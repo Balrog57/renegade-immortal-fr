@@ -1,66 +1,66 @@
 ---
 n: 1730
-title: "Essence terrestre !"
+title: "Essence terrestre!"
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1730 - Earth essence!"
 slug: essence-terrestre
 ---
-Chapitre 1730 - Essence terrestre !
+Chapitre 1730 - Essence terrestre!
 
-Parmi les quatre individus, il y avait un vieil homme vêtu d'une robe taoïste. Son visage était parsemé de taches brunes et, après avoir hésité un instant, il prit la parole d'une voix rauque : « Cette affaire... Devrions-nous en informer le Grand Ancien Na Duo ? »
+Parmi les quatre individus, il y avait un vieil homme vêtu d'une robe taoïste. Son visage était parsemé de taches brunes et, après avoir hésité un instant, il prit la parole d'une voix rauque: « Cette affaire... Devrions-nous en informer le Grand Ancien Na Duo? »
 
 Il s'agissait de Yin Dongshen, celui qui redoutait le plus Wang Lin.
 
-Le dernier à prendre la parole fut l'homme d'âge mûr. Il fronça les sourcils et dit lentement : « Je suggère également de ne pas provoquer ce Wang Lin avant d'en informer le Grand Ancien Na Duo. Sa réputation est immense, et depuis qu'il est venu nous rendre visite, si nous... »
+Le dernier à prendre la parole fut l'homme d'âge mûr. Il fronça les sourcils et dit lentement: « Je suggère également de ne pas provoquer ce Wang Lin avant d'en informer le Grand Ancien Na Duo. Sa réputation est immense, et depuis qu'il est venu nous rendre visite, si nous... »
 
-« Quand notre Secte Gui Yi a-t-elle jamais eu peur de qui que ce soit ? Même si ce Wang Lin est célèbre, et alors ? Même s'il était un dragon, il devrait encore se prosterner devant nous ! » s'écria la femme d'âge mûr.
+« Quand notre Secte Gui Yi a-t-elle jamais eu peur de qui que ce soit? Même si ce Wang Lin est célèbre, et alors? Même s'il était un dragon, il devrait encore se prosterner devant nous! » s'écria la femme d'âge mûr.
 
-Le vieil homme en robe noire agita sa manche et dit froidement : « Inutile de discuter, cet ancien a pris sa décision. De plus, cela ne signifie pas que le Grand Ancien Na Duo ignore tout de cette affaire. Puisqu'il n'est pas sorti, voyons quel genre de démon à trois têtes et six bras est ce Wang Lin ! »
+Le vieil homme en robe noire agita sa manche et dit froidement: « Inutile de discuter, cet ancien a pris sa décision. De plus, cela ne signifie pas que le Grand Ancien Na Duo ignore tout de cette affaire. Puisqu'il n'est pas sorti, voyons quel genre de démon à trois têtes et six bras est ce Wang Lin! »
 
-D'un revers de manche, l'espace entre les quatre se déforma et un miroir apparut. Le miroir révélait Wang Lin, qui marchait vers l'intersection des cinq anneaux !
+D'un revers de manche, l'espace entre les quatre se déforma et un miroir apparut. Le miroir révélait Wang Lin, qui marchait vers l'intersection des cinq anneaux!
 
 Au même moment, deux personnes étaient assises au neuvième étage. Toutes deux étaient d'âge mûr, et l'une d'elles portait une robe aux cinq couleurs. Il contemplait calmement le ciel à l'extérieur de la tour, une lueur mystérieuse dans les yeux.
 
-Si Wang Lin avait été là, il aurait immédiatement reconnu cette personne : c'était Na Duo !
+Si Wang Lin avait été là, il aurait immédiatement reconnu cette personne: c'était Na Duo!
 
-Les années n'avaient laissé aucune trace sur le corps de Na Duo ; il paraissait toujours identique à autrefois. Fixant le ciel, Na Duo esquissa un sourire.
+Les années n'avaient laissé aucune trace sur le corps de Na Duo; il paraissait toujours identique à autrefois. Fixant le ciel, Na Duo esquissa un sourire.
 
 « À l'époque, il n'était qu'un simple cultivateur de l'Âme Naissante. Après seulement mille ans, il a atteint des sommets tels... Que même moi, je ne suis plus son égal. »
 
-« Je ne suis pas non plus son égal, mais après tout, qu'importe ? Nous ne sommes que leurs descendants ; veiller sur ce lieu est amplement suffisant. » L'homme d'âge mûr assis face à Na Duo portait du violet. Il était très beau et, après avoir entendu les paroles de Na Duo, il rit.
+« Je ne suis pas non plus son égal, mais après tout, qu'importe? Nous ne sommes que leurs descendants; veiller sur ce lieu est amplement suffisant. » L'homme d'âge mûr assis face à Na Duo portait du violet. Il était très beau et, après avoir entendu les paroles de Na Duo, il rit.
 
-« Si un véritable ennemi surgissait, nous n'aurions pas besoin d'intervenir. N'importe lequel des ancêtres là-haut pourrait s'éveiller et tout résoudre. Cependant, penses-tu que ce Wang Lin puisse sortir de la Formation des Cinq Éléments ? »
+« Si un véritable ennemi surgissait, nous n'aurions pas besoin d'intervenir. N'importe lequel des ancêtres là-haut pourrait s'éveiller et tout résoudre. Cependant, penses-tu que ce Wang Lin puisse sortir de la Formation des Cinq Éléments? »
 
-« Il devrait être capable de s'en extraire, mais quant aux Neuf Cycles, il ne devrait pas franchir le troisième ! Cette formation a été établie par les neuf ancêtres il y a fort longtemps ; même après d'innombrables années, ce n'est pas une chose qu'un mortel ordinaire peut briser ! Je connais un peu ce Wang Lin, il n'est qu'au stade intermédiaire du Vide Spirituel ! » sourit Na Duo.
+« Il devrait être capable de s'en extraire, mais quant aux Neuf Cycles, il ne devrait pas franchir le troisième! Cette formation a été établie par les neuf ancêtres il y a fort longtemps; même après d'innombrables années, ce n'est pas une chose qu'un mortel ordinaire peut briser! Je connais un peu ce Wang Lin, il n'est qu'au stade intermédiaire du Vide Spirituel! » sourit Na Duo.
 
-L'homme d'âge mûr sourit également. Il regarda vers l'extérieur de la tour et dit lentement : « Regardons cela comme une pièce de théâtre. »
+L'homme d'âge mûr sourit également. Il regarda vers l'extérieur de la tour et dit lentement: « Regardons cela comme une pièce de théâtre. »
 
 À l'intérieur des cinq anneaux, Wang Lin avançait calmement. Les anneaux émettaient des hurlements tonitruants, mais rien de tout cela ne pouvait blesser Wang Lin.
 
-Son Corps du Dao Antique était extrêmement puissant ; de simples sorts ne pourraient l'atteindre. Les cinq éléments continuaient de se manifester. Parfois, c'était un feu monstrueux, parfois une tempête de sable, tantôt une mer en furie couvrait le ciel, parfois des milliers de fragments de métal hurlaient, et parfois des arbres s'effondraient avec fracas.
+Son Corps du Dao Antique était extrêmement puissant; de simples sorts ne pourraient l'atteindre. Les cinq éléments continuaient de se manifester. Parfois, c'était un feu monstrueux, parfois une tempête de sable, tantôt une mer en furie couvrait le ciel, parfois des milliers de fragments de métal hurlaient, et parfois des arbres s'effondraient avec fracas.
 
-Wang Lin ne ralentit pas sa marche. Il était venu sur la planète des Cinq Éléments pleinement préparé. Même si cet endroit était un repaire de tigres, il comptait bien tenter une percée !
+Wang Lin ne ralentit pas sa marche. Il était venu sur la planète des Cinq Éléments pleinement préparé. Même si cet endroit était un repaire de tigres, il comptait bien tenter une percée!
 
-La seconde variable, outre l'Omniscient, était dissimulée ici. Wang Lin ignorait quelle force se cachait en ces lieux et se trouvait donc dans une position extrêmement défavorable pour trouver la troisième âme !
+La seconde variable, outre l'Omniscient, était dissimulée ici. Wang Lin ignorait quelle force se cachait en ces lieux et se trouvait donc dans une position extrêmement défavorable pour trouver la troisième âme!
 
-Son but en venant ici était de lever le voile sur cette inconnue. Il voulait savoir avec précision quelle était la puissance de la force tapie dans l'ombre !
+Son but en venant ici était de lever le voile sur cette inconnue. Il voulait savoir avec précision quelle était la puissance de la force tapie dans l'ombre!
 
-Ce n'était qu'en faisant cela que Wang Lin pourrait être serein !
+Ce n'était qu'en faisant cela que Wang Lin pourrait être serein!
 
-Il n'était pas assez arrogant pour prétendre écraser cette force seul, mais il était convaincu que s'il décidait de partir, personne n'oserait l'en empêcher !
+Il n'était pas assez arrogant pour prétendre écraser cette force seul, mais il était convaincu que s'il décidait de partir, personne n'oserait l'en empêcher!
 
-S'il n'avait pas eu cette confiance en lui, il ne serait jamais venu ici seul !
+S'il n'avait pas eu cette confiance en lui, il ne serait jamais venu ici seul!
 
-Tandis qu'il avançait, les sorts des cinq éléments continuaient de s'effondrer autour de lui. Après quatorze pas, Wang Lin pénétra dans la partie intérieure où les cinq anneaux convergeaient !
+Tandis qu'il avançait, les sorts des cinq éléments continuaient de s'effondrer autour de lui. Après quatorze pas, Wang Lin pénétra dans la partie intérieure où les cinq anneaux convergeaient!
 
-La lumière y était vive et éblouissante. Les cinq éléments autour de lui changèrent soudainement : tout ce qui l'entourait se mua en élément terre !
+La lumière y était vive et éblouissante. Les cinq éléments autour de lui changèrent soudainement: tout ce qui l'entourait se mua en élément terre!
 
-Tout ce qu'il avait vu jusqu'alors n'était que la couche superficielle. Ce à quoi Wang Lin faisait face désormais était la véritable première étape de la Formation des Cinq Éléments : la Grande Formation Terrestre !
+Tout ce qu'il avait vu jusqu'alors n'était que la couche superficielle. Ce à quoi Wang Lin faisait face désormais était la véritable première étape de la Formation des Cinq Éléments: la Grande Formation Terrestre!
 
 Dès que Wang Lin entra dans les cinq anneaux et que la formation terrestre fut activée, sa vision devint floue. C'était comme s'il avait basculé dans un autre monde.
 
-Ce monde ne possédait qu'une terre, sans ciel ! Sous ses pieds s'étendait une terre infinie, et au-dessus de lui, une terre inversée remplaçait la voûte céleste !
+Ce monde ne possédait qu'une terre, sans ciel! Sous ses pieds s'étendait une terre infinie, et au-dessus de lui, une terre inversée remplaçait la voûte céleste!
 
 Des particules de sol tombaient d'en haut telle une pluie. Des tempêtes apparurent, reliant les deux terres. Il ne s'agissait pas d'une seule tempête, mais de neuf. Ces neuf tempêtes déchaînaient des hurlements incessants.
 
@@ -70,7 +70,7 @@ La terre sous les pieds de Wang Lin trembla et ondula comme une vague, comme si 
 
 Des grondements tonitruants résonnaient à ses oreilles alors qu'il observait la scène avec un calme glacial.
 
-« Un simple esprit des cinq éléments, indigne d'être reconnu ! » Wang Lin fit un pas en avant pour affronter l'un des visages. Alors que celui-ci rugissait, Wang Lin lui asséna un coup de poing.
+« Un simple esprit des cinq éléments, indigne d'être reconnu! » Wang Lin fit un pas en avant pour affronter l'un des visages. Alors que celui-ci rugissait, Wang Lin lui asséna un coup de poing.
 
 Le visage s'effondra dans un fracas et une masse de terre vola autour de lui. Wang Lin bougea soudainement pour atteindre le second visage et lui porta un autre coup.
 
@@ -80,11 +80,11 @@ Simultanément, la terre du dessous commença à se soulever. Tout se produisit 
 
 Dans la tour, les quatre personnes observaient la scène via le miroir. Voyant cela, le vieil homme en robe noire éclata de rire.
 
-« Comment une formation terrestre pourrait-elle être brisée si facilement ? Ce Wang Lin semble bien trop sûr de lui. Même s'il est au troisième niveau, briser la formation terrestre demande un certain effort ! »
+« Comment une formation terrestre pourrait-elle être brisée si facilement? Ce Wang Lin semble bien trop sûr de lui. Même s'il est au troisième niveau, briser la formation terrestre demande un certain effort! »
 
 « C'est exact, ce n'est que le deuxième changement de la formation terrestre, il en reste sept. Je pense que même si ce Wang Lin parvient à franchir la première formation, il en sortira gravement blessé », intervint la femme d'âge mûr d'une voix tranchante. Elle fixait Wang Lin avec un mélange de haine et de joie.
 
-« Wang Lin, tu connais Situ Nan ; aujourd'hui, c'est toi qui accepteras la punition à la place de cet homme sans cœur ! »
+« Wang Lin, tu connais Situ Nan; aujourd'hui, c'est toi qui accepteras la punition à la place de cet homme sans cœur! »
 
 Les deux autres furent surpris et fronçèrent les sourcils. Ils échangèrent un regard, sentant que quelque chose clochait. Tout semblait trop facile.
 
@@ -94,25 +94,25 @@ Dans le miroir, les deux terres s'étaient déjà rejointes, scellant Wang Lin a
 
 Des fissures apparurent soudainement sur la terre. Elles se multiplièrent jusqu'à ce que la masse terrestre éclate brusquement. Wang Lin, inchangé, sortit des débris de la formation effondrée.
 
-Si cela avait été tout, cela n'aurait pas suffi à choquer le vieil homme et la femme. Ce qui les stupéfia, c'est que Wang Lin agita la main en utilisant un sort inconnu : la terre brisée vola vers lui et se condensa dans sa main droite !
+Si cela avait été tout, cela n'aurait pas suffi à choquer le vieil homme et la femme. Ce qui les stupéfia, c'est que Wang Lin agita la main en utilisant un sort inconnu: la terre brisée vola vers lui et se condensa dans sa main droite!
 
-Elle s'était transformée en une simple poignée de terre !
+Elle s'était transformée en une simple poignée de terre!
 
-Cette petite masse dégageait une puissante aura spirituelle. C'était l'esprit de la formation terrestre !
+Cette petite masse dégageait une puissante aura spirituelle. C'était l'esprit de la formation terrestre!
 
 Les quatre restèrent silencieux, plongés dans leur réflexion, avant que le vieil homme en robe noire ne suffoque, les yeux emplis de terreur. Il regarda, hébété, Wang Lin tenir cette poignée de terre et la repousser d'un geste. Lorsque Wang Lin leva les yeux vers lui, l'homme poussa un cri involontaire.
 
 Il n'était pas le seul. Dès que le regard de Wang Lin balaya la zone, la femme et les deux autres sentirent leur cuir chevelu picoter. Ils reculèrent immédiatement.
 
-« Il ne pouvait pas nous avoir trouvés, nous sommes à l'extérieur de la formation ! »
+« Il ne pouvait pas nous avoir trouvés, nous sommes à l'extérieur de la formation! »
 
-« Il... il a réellement capturé l'esprit terrestre ! »
+« Il... il a réellement capturé l'esprit terrestre! »
 
 Au dixième étage, le regard de Na Duo était toujours fixé sur le ciel extérieur, et il fronça progressivement les sourcils.
 
-L'homme d'âge mûr face à lui murmura : « S'il s'était contenté de briser la formation, cela aurait été une chose ; mais il a emporté l'esprit terrestre... Effectivement, il est digne de sa réputation... Il est extrêmement puissant ! »
+L'homme d'âge mûr face à lui murmura: « S'il s'était contenté de briser la formation, cela aurait été une chose; mais il a emporté l'esprit terrestre... Effectivement, il est digne de sa réputation... Il est extrêmement puissant! »
 
-« Ce n'est rien, il reste encore quatre formations. Et après elles, les Neuf Cycles. Je veux voir comment il parviendra à les franchir ! » Le regard de Na Duo devint froid. Lui et Wang Lin ne pouvaient être considérés comme des amis ; au mieux, ils étaient des connaissances, et tout lien qu'ils avaient partagé s'était dissipé au fil des mille dernières années.
+« Ce n'est rien, il reste encore quatre formations. Et après elles, les Neuf Cycles. Je veux voir comment il parviendra à les franchir! » Le regard de Na Duo devint froid. Lui et Wang Lin ne pouvaient être considérés comme des amis; au mieux, ils étaient des connaissances, et tout lien qu'ils avaient partagé s'était dissipé au fil des mille dernières années.
 
 À cet instant, personne dans le monde de la grotte ne remarqua qu'une lueur rouge sang était apparue dans le Vide Brillant. Cette lueur se mua en un jeune homme aux cheveux noirs.
 

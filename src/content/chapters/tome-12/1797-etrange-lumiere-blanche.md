@@ -14,15 +14,15 @@ La disparition de la lumière rouge signifiait que Wang Lin avait perdu son guid
 
 « A-t-il échoué… » Les yeux de Xuan Luo trahissaient une profonde tristesse, et il ferma les paupières dans un soupir. Il allait attendre encore un peu. Peut-être qu'un miracle se produirait, même si les chances d'un tel miracle étaient infimes.
 
-Dans le vide séparant le monde des grottes du Continent Astral Immortel, Wang Lin portait le cercueil, avançant les cheveux ébouriffés. Il progressait pas à pas. Il n'avait plus de pensées, plus aucune force ; la seule chose qui le poussait en avant était sa volonté.
+Dans le vide séparant le monde des grottes du Continent Astral Immortel, Wang Lin portait le cercueil, avançant les cheveux ébouriffés. Il progressait pas à pas. Il n'avait plus de pensées, plus aucune force; la seule chose qui le poussait en avant était sa volonté.
 
-Grâce à cette volonté, il utilisait son propre corps pour protéger sa femme et ne renoncerait jamais !
+Grâce à cette volonté, il utilisait son propre corps pour protéger sa femme et ne renoncerait jamais!
 
 La lumière rouge entre ses sourcils avait disparu il y a six mois. Il ne pouvait plus ressentir le chemin devant lui. La seule chose qu'il pouvait faire était de ne pas reculer et de continuer à avancer afin de trouver une issue.
 
 Dix ans passés dans ce vide obscur suffisaient à rendre n'importe qui fou de solitude. Wang Lin serra les dents et continua sa progression. S'il n'avait pas eu cette volonté, son esprit se serait effondré depuis longtemps.
 
-En vérité, il n'aurait pas tenu aussi longtemps sans la rencontre fortuite qu'il avait faite après la disparition de la lumière rouge six mois plus tôt. Après tout, il ne lui restait que peu de sa cultivation du Dao Antique.
+En vérité, il n'aurait pas tenu aussi longtemps sans la rencontre fortuite qu'il avait faite après la disparition de la lumière rouge six mois plus tôt. Après tout, il ne lui restait que peu de sa culture du Dao Antique.
 
 À cet instant précis, un rayon de lumière apparut dans le vide. Cette lueur était très faible et semblait émaner d'un cadavre.
 
@@ -40,23 +40,23 @@ Wang Lin relâcha sa main droite et laissa le corps du vieil homme, désormais p
 
 Wang Lin ignorait la nature de cette force. Il y a six mois, il avait également rencontré un cadavre semblable. C'est seulement après avoir absorbé une telle énergie qu'il avait trouvé la force de poursuivre.
 
-Cette puissance était extrêmement mystérieuse. Elle pouvait aider ses essences et sa cultivation du Dao Antique à se régénérer. Une telle chose ne devrait pas exister, et pourtant, elle était apparue dans le vide devant lui.
+Cette puissance était extrêmement mystérieuse. Elle pouvait aider ses essences et sa culture du Dao Antique à se régénérer. Une telle chose ne devrait pas exister, et pourtant, elle était apparue dans le vide devant lui.
 
 Au cours de ces dix années, Wang Lin n'avait rencontré que deux corps de ce genre.
 
-L'esprit de Wang Lin trembla et ses yeux brillèrent. Il activa sa cultivation pour résister à la pression des lois du Continent Astral Immortel. Puis, il toucha le cercueil derrière lui pour ressentir la présence de Li Muwan. Wang Lin reprit silencieusement sa marche.
+L'esprit de Wang Lin trembla et ses yeux brillèrent. Il activa sa culture pour résister à la pression des lois du Continent Astral Immortel. Puis, il toucha le cercueil derrière lui pour ressentir la présence de Li Muwan. Wang Lin reprit silencieusement sa marche.
 
 Sa vitesse n'était pas rapide, mais il ne s'arrêtait jamais. Il avançait sans changer de direction.
 
 « Dix ans se sont déjà écoulés… Je me demande où se trouve la fin… Je n'aurais pas dû m'égarer dans la mauvaise direction… » Wang Lin serra les dents et disparut rapidement dans le vide.
 
-« Cette force est très étrange. Si je peux en rencontrer davantage, je ne mourrai pas d'épuisement ! » Le Sens Divin de Wang Lin se déploya, cherchant la lumière.
+« Cette force est très étrange. Si je peux en rencontrer davantage, je ne mourrai pas d'épuisement! » Le Sens Divin de Wang Lin se déploya, cherchant la lumière.
 
 Cependant, croiser ces corps à la lumière blanche était purement fortuit. Il serait très difficile d'en trouver d'autres sans changer sa trajectoire.
 
-Après un an, il n'avait toujours pas rencontré de troisième corps. Sa cultivation avait atteint ses limites et il était comme une lampe à huile tarie.
+Après un an, il n'avait toujours pas rencontré de troisième corps. Sa culture avait atteint ses limites et il était comme une lampe à huile tarie.
 
-Wang Lin était devenu si mince que même quelqu'un le connaissant aurait eu du mal à l'identifier. La lueur dans ses yeux s'était éteinte jusqu'à ne plus rien laisser ; il ressemblait à un mort.
+Wang Lin était devenu si mince que même quelqu'un le connaissant aurait eu du mal à l'identifier. La lueur dans ses yeux s'était éteinte jusqu'à ne plus rien laisser; il ressemblait à un mort.
 
 Il ignorait quelle distance il lui restait à parcourir. Cette incertitude était une émotion terrifiante capable de briser l'esprit de n'importe qui. Même avec la volonté de Wang Lin, son esprit subissait le contrecoup.
 
@@ -84,7 +84,7 @@ Xuan Luo comprit qu'il devait partir.
 
 « Disciple, toi… Prends soin de toi… Si tu n'es pas mort, viens me chercher… » Xuan Luo soupira et agita sa manche. Un monstrueux soleil de sang apparut et il s'élança dans le ciel.
 
-Xuan Luo partit. Désormais, plus personne n'attendrait l'arrivée de Wang Lin. Ce dernier flottait toujours dans le vide, mais sa trajectoire avait changé. On ignorait vers où il dérivait ; il était devenu l'un de ces corps errants dans le néant.
+Xuan Luo partit. Désormais, plus personne n'attendrait l'arrivée de Wang Lin. Ce dernier flottait toujours dans le vide, mais sa trajectoire avait changé. On ignorait vers où il dérivait; il était devenu l'un de ces corps errants dans le néant.
 
 Plusieurs années passèrent encore. Certains êtres se réincarnaient sur le Continent Astral Immortel. D'autres étaient encore en chemin et pourraient avoir besoin de centaines, voire de mille ans avant de renaître.
 
@@ -100,7 +100,7 @@ Cependant, lorsqu'un menteur devient célèbre, ce n'est guère une bonne chose 
 
 Le temps s'écoula lentement, sur une très longue période.
 
-Xuan Luo était depuis longtemps retourné au clan du Dao Antique avec une expression sombre et s'était retiré en cultivation fermée. Lorsque l'Empereur du Dao Antique vit Xuan Luo revenir seul, il ricana intérieurement. Il finit par oublier pourquoi Xuan Luo était parti chercher quelqu'un.
+Xuan Luo était depuis longtemps retourné au clan du Dao Antique avec une expression sombre et s'était retiré en culture fermée. Lorsque l'Empereur du Dao Antique vit Xuan Luo revenir seul, il ricana intérieurement. Il finit par oublier pourquoi Xuan Luo était parti chercher quelqu'un.
 
 Il semblait que beaucoup de gens ne pensaient plus à cet homme nommé Wang Lin. Le Continent Astral Immortel était ainsi, et le monde des grottes en était de même. Pourtant, quelques âmes ne pouvaient oublier ce nom dès qu'elles se remémoraient le passé.
 
@@ -108,10 +108,10 @@ Mu Bingmei était de celles-là. Tang Shan du Continent Astral Immortel l'était
 
 Le Roi Moustique n'avait pas non plus oublié Wang Lin. Autrefois, la bête avait été stoppée par lui, puis elle sembla devenir folle en absorbant les lois du Continent Astral Immortel avec ses compagnons.
 
-Elle avait subi quatre métamorphoses au cours de la dernière décennie ! À chaque transformation, le Roi Moustique devenait plusieurs fois plus puissant. La pression environnante s'affaiblissait jusqu'à sembler ne plus exister !
+Elle avait subi quatre métamorphoses au cours de la dernière décennie! À chaque transformation, le Roi Moustique devenait plusieurs fois plus puissant. La pression environnante s'affaiblissait jusqu'à sembler ne plus exister!
 
-Finalement, après la cinquième métamorphose, le Roi Moustique dégagea une pression qui ébranla tout le vide. Son corps n'avait plus l'apparence d'une planète ; il avait complètement changé pour ressembler à de la fumée.
+Finalement, après la cinquième métamorphose, le Roi Moustique dégagea une pression qui ébranla tout le vide. Son corps n'avait plus l'apparence d'une planète; il avait complètement changé pour ressembler à de la fumée.
 
 Cette fumée était diffuse, comme si le moustique venait de surgir d'une peinture à l'encre. Cependant, sa férocité avait atteint son apogée.
 
-Par la suite, le Roi Moustique n'absorba plus les lois du Continent Astral Immortel. Son corps se répandit en une brume qui dévora ses neuf compagnons avant de s'élancer dans le vide infini. Il allait trouver Wang Lin, retrouver son maître !
+Par la suite, le Roi Moustique n'absorba plus les lois du Continent Astral Immortel. Son corps se répandit en une brume qui dévora ses neuf compagnons avant de s'élancer dans le vide infini. Il allait trouver Wang Lin, retrouver son maître!

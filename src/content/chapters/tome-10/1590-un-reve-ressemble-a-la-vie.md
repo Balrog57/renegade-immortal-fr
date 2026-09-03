@@ -12,7 +12,7 @@ Des volutes de fumée s'élevaient et le bruit des aboiements provenait de l'aub
 
 Les quelques chiens de la boutique jouaient entre eux, courant partout en remuant la queue.
 
-Peu après, on entendit au loin le martèlement des sabots sur le sol. Une poussière s'élevait tandis que plusieurs chevaux galopaient à toute allure. À califourchon sur ces montures se trouvaient plusieurs hommes robustes vêtus de robes ; ils affichaient tous une expression grave durant leur course effrénée.
+Peu après, on entendit au loin le martèlement des sabots sur le sol. Une poussière s'élevait tandis que plusieurs chevaux galopaient à toute allure. À califourchon sur ces montures se trouvaient plusieurs hommes robustes vêtus de robes; ils affichaient tous une expression grave durant leur course effrénée.
 
 À leur approche, les chiens gémirent et s'écartèrent du chemin. Les chevaux passèrent dans un souffle de vent.
 
@@ -20,7 +20,7 @@ Le fracas des sabots était tel que le sol devant l'auberge semblait trembler, e
 
 Cette auberge était très modeste et semblait exister depuis fort longtemps. En tremblant, elle émettait des craquements comme si elle ne pouvait supporter de tels secousses. Des cris de surprise montèrent du second étage.
 
-« Ne vous inquiétez pas, ne vous inquiétez pas ! La boutique de ce vieil homme est là depuis plus de cent ans, et cela arrive à chaque fois que des chevaux passent au galop. Elle ne s'effondrera pas. » Une voix ancienne résonna dans l'auberge. Dans un coin de la salle siégeait un petit vieil homme vêtu d'habits grossiers. Il tenait une pipe à la main et fumait nonchalamment.
+« Ne vous inquiétez pas, ne vous inquiétez pas! La boutique de ce vieil homme est là depuis plus de cent ans, et cela arrive à chaque fois que des chevaux passent au galop. Elle ne s'effondrera pas. » Une voix ancienne résonna dans l'auberge. Dans un coin de la salle siégeait un petit vieil homme vêtu d'habits grossiers. Il tenait une pipe à la main et fumait nonchalamment.
 
 En face de lui, le serveur de la veille, une serviette sur l'épaule, apportait une bouilloire d'eau chaude aux clients des chambres du second étage.
 
@@ -36,37 +36,37 @@ Avec un sourire amer, il se redressa en s'appuyant sur le bord de son lit, la t�
 
 À cet instant précis, on frappa à la porte et la voix du serveur résonna.
 
-« De l'eau chaude, le client en désire-t-il ? »
+« De l'eau chaude, le client en désire-t-il? »
 
-Le jeune homme se leva brusquement. Il s'était levé trop vite et le vertige le reprit. Il parvint à peine à articuler :
+Le jeune homme se leva brusquement. Il s'était levé trop vite et le vertige le reprit. Il parvint à peine à articuler:
 
 « Entrez. »
 
 La porte s'ouvrit dans un grincement et le serveur entra avec la bouilloire. Après avoir rempli le bassin d'eau chaude, il tourna un regard souriant vers le jeune homme.
 
-« Cela fait trois jours que je travaille ici, et je n'ai jamais vu personne s'enivrer avec notre vin de riz après seulement deux coupes. Hier soir, peu importe mes efforts, vous ne vous réveilliez pas ; j'ai dû vous monter ici pour vous reposer. Le petit frère n'est pas doué pour l'alcool, il va falloir s'entraîner. J'ai entendu dire que tous les officiels de la capitale peuvent boire mille coupes sans tomber. »
+« Cela fait trois jours que je travaille ici, et je n'ai jamais vu personne s'enivrer avec notre vin de riz après seulement deux coupes. Hier soir, peu importe mes efforts, vous ne vous réveilliez pas; j'ai dû vous monter ici pour vous reposer. Le petit frère n'est pas doué pour l'alcool, il va falloir s'entraîner. J'ai entendu dire que tous les officiels de la capitale peuvent boire mille coupes sans tomber. »
 
 Le visage du jeune homme devint légèrement rouge et ses yeux se remplirent de gratitude. Il se leva et joignit les mains en signe de respect. « Merci, mon frère, pour votre sollicitude. Je ne sais pas ce qui m'est arrivé non plus. La première coupe allait bien, mais dès que la seconde a atteint mon estomac, je me suis effondré, ivre mort. »
 
-Le serveur esquissa un sourire et, en repartant avec sa bouilloire, afficha une expression malicieuse. Il regarda le jeune homme et dit : « Vous venez ici pour passer les examens officiels, n'est-ce pas ? Hier soir, dans votre ivresse, vous disiez avoir fait un rêve où vous deveniez un immortel. Haha, vos paroles étaient très intéressantes. Si vous avez le temps, revenez m'en parler, c'était très amusant. »
+Le serveur esquissa un sourire et, en repartant avec sa bouilloire, afficha une expression malicieuse. Il regarda le jeune homme et dit: « Vous venez ici pour passer les examens officiels, n'est-ce pas? Hier soir, dans votre ivresse, vous disiez avoir fait un rêve où vous deveniez un immortel. Haha, vos paroles étaient très intéressantes. Si vous avez le temps, revenez m'en parler, c'était très amusant. »
 
 Sur ces mots, le serveur sortit avec un sourire bienveillant. Le visage du jeune homme s'empourpra et il secoua la tête d'un air amer. Une fois le serveur parti, il se lava le visage à l'eau chaude pour dissiper les derniers effets de l'ivresse de la nuit passée.
 
 Il ouvrit la fenêtre, laissant entrer une brise fraîche et la lumière éclatante du soleil. Le vent sur son visage lui fit un bien immense, et il poussa un long soupir de soulagement.
 
-Le jeune homme resta près de la fenêtre, observant l'extérieur tout en murmurant pour lui-même : « Après m'être enivré hier soir, j'ai vraiment fait un rêve. Ce rêve était très étrange, et je n'en ai rien oublié... »
+Le jeune homme resta près de la fenêtre, observant l'extérieur tout en murmurant pour lui-même: « Après m'être enivré hier soir, j'ai vraiment fait un rêve. Ce rêve était très étrange, et je n'en ai rien oublié... »
 
-« Il était si réaliste qu'il était presque impossible de le distinguer de la réalité... Tout a commencé il y a trois ans, quand mon quatrième oncle est arrivé. J'ai rejoint la Secte Heng Yue... Hehe, c'était fascinant, mais le rêve semblait inachevé ; je ne me souviens que du moment où j'ai intégré la Secte Heng Yue. La Secte Heng Yue... Comment une telle secte pourrait-elle exister ? Comment peut-il y avoir des immortels ? Les lettrés comme moi ne croient pas au pouvoir des esprits, ce ne sont que des rumeurs pour tromper les gens. » Le jeune homme secoua la tête et fixa la tasse sur la table. Son cœur d'enfant se manifesta lorsqu'il exécuta un geste de mémoire pour pointer la coupe du doigt.
+« Il était si réaliste qu'il était presque impossible de le distinguer de la réalité... Tout a commencé il y a trois ans, quand mon quatrième oncle est arrivé. J'ai rejoint la Secte Heng Yue... Hehe, c'était fascinant, mais le rêve semblait inachevé; je ne me souviens que du moment où j'ai intégré la Secte Heng Yue. La Secte Heng Yue... Comment une telle secte pourrait-elle exister? Comment peut-il y avoir des immortels? Les lettrés comme moi ne croient pas au pouvoir des esprits, ce ne sont que des rumeurs pour tromper les gens. » Le jeune homme secoua la tête et fixa la tasse sur la table. Son cœur d'enfant se manifesta lorsqu'il exécuta un geste de mémoire pour pointer la coupe du doigt.
 
-« Sortilège d'attraction ! » sourit-il en pointant l'objet.
+« Sortilège d'attraction! » sourit-il en pointant l'objet.
 
-Mais la tasse ne bougea pas d'un iota, restant parfaitement immobile. Le jeune homme rit et grommela : « Ces sorts sont bien curieux. »
+Mais la tasse ne bougea pas d'un iota, restant parfaitement immobile. Le jeune homme rit et grommela: « Ces sorts sont bien curieux. »
 
 Après avoir un peu joué, il retrouva son calme et rangea ses affaires. Ses vêtements, son argent, sa nourriture séchée, sa plume, son encre et ses livres étaient tous là. Il nettoya soigneusement la pièce, attendit que l'odeur de vin se dissipe, puis se changea. Enfin, il mit son sac en bambou sur son dos et quitta la chambre.
 
 Il avait été très intelligent dès son plus jeune âge, mais sa personnalité était d'une grande simplicité. Ayant grandi dans un village de montagne, c'était la première fois qu'il quittait son foyer. Le regard bienveillant de ses parents semblait l'accompagner alors qu'il s'éloignait de son village natal. Il était tel un oisillon prêt à déployer ses ailes.
 
-Cette chambre était devenue sale et malodorante à cause de lui ; il préférait la nettoyer lui-même plutôt que de laisser le serveur qui l'avait porté faire le travail.
+Cette chambre était devenue sale et malodorante à cause de lui; il préférait la nettoyer lui-même plutôt que de laisser le serveur qui l'avait porté faire le travail.
 
 Il mangea simplement un morceau au rez-de-chaussée et régla sa note. Puis, il adressa un sourire au serveur avant de partir, face au soleil.
 
@@ -74,7 +74,7 @@ La lumière douce enveloppait son corps, emplissant le jeune homme d'une chaleur
 
 Ses vêtements propres et sa tenue soignée respiraient la vitalité. En marchant sur la route officielle, il regardait devant lui, apercevant au loin la capitale du pays de Zhao.
 
-« Wang Lin, tu vas y arriver ! Une fois que j'aurai mon titre, je viendrai chercher mes parents dans le village pour les mettre à l'abri et les servir jusqu'à leur vieillesse, afin qu'ils connaissent enfin le bonheur. » Le jeune homme prit une profonde inspiration et reprit sa marche.
+« Wang Lin, tu vas y arriver! Une fois que j'aurai mon titre, je viendrai chercher mes parents dans le village pour les mettre à l'abri et les servir jusqu'à leur vieillesse, afin qu'ils connaissent enfin le bonheur. » Le jeune homme prit une profonde inspiration et reprit sa marche.
 
 La brise printanière soufflait, lui apportant le parfum des fleurs. Les vêtements de Wang Lin flottaient au vent tandis qu'il s'éloignait peu à peu de l'auberge.
 
@@ -92,14 +92,14 @@ L'horizon s'assombrit progressivement et des nuages noirs commencèrent à s'amo
 
 Le ciel était limpide le matin, mais avant même que la nuit ne tombe, les nuages avaient envahi l'étendue céleste, rendant le temps imprévisible. Les montagnes verdoyantes s'obscurcirent sous leur ombre. Bien qu'épais, les nuages ne parvenaient pas à masquer totalement les sommets.
 
-De loin, la montagne et les nuages semblaient livrer bataille : la montagne cherchait à percer les cieux, tandis que les nuages tentaient de dévorer les cimes. C'était un combat digne d'un dragon contre un tigre.
+De loin, la montagne et les nuages semblaient livrer bataille: la montagne cherchait à percer les cieux, tandis que les nuages tentaient de dévorer les cimes. C'était un combat digne d'un dragon contre un tigre.
 
 À cet instant, le tonnerre éclata et la pluie commença à tomber. Wang Lin courut rapidement vers un arbre et sortit un grand parapluie de son sac en bambou. Cet objet, habilement fabriqué par son père, était pliable. Une fois ouvert, il couvrait non seulement son sac, mais aussi tout son corps.
 
 Tenant le parapluie de la main droite, Wang Lin observa la montagne lointaine que les nuages ne parvenaient pas à occulter. Il regarda la pluie tomber sur la terre, sur les feuilles, sur la surface de la rivière créant des ondulations, et sur le pont de la navire.
 
-« Le vieil adage dit : "Les nuages noirs sont comme de l'encre couvrant les montagnes, la pluie blanche saute comme des perles dans le bateau"... Il s'avère que c'est vrai. » Wang Lin contempla ce spectacle et rit.
+« Le vieil adage dit: "Les nuages noirs sont comme de l'encre couvrant les montagnes, la pluie blanche saute comme des perles dans le bateau"... Il s'avère que c'est vrai. » Wang Lin contempla ce spectacle et rit.
 
-« Un érudit comme vous est-il devenu idiot ? Vous voyez la pluie tomber sur mon bateau et vous osez encore rire. C'est vraiment exaspérant ! » Une voix cristalline provient d'une embarcation proche de la rive. À la proue du bateau se tenait une jolie jeune fille tenant un parapluie. Elle affichait un visage sombre en fixant Wang Lin, tandis que sa main de jade le pointait du doigt.
+« Un érudit comme vous est-il devenu idiot? Vous voyez la pluie tomber sur mon bateau et vous osez encore rire. C'est vraiment exaspérant! » Une voix cristalline provient d'une embarcation proche de la rive. À la proue du bateau se tenait une jolie jeune fille tenant un parapluie. Elle affichait un visage sombre en fixant Wang Lin, tandis que sa main de jade le pointait du doigt.
 
 Wang Lin fut surpris et son rire s'interrompit net. Il se gratta la tête, embarrassé.

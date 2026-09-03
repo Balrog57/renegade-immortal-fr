@@ -6,31 +6,31 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 680 - Liu Meis Special Treasure
 slug: le-tresor-special-de-liu-mei
 ---
-Wang Lin ouvrit les yeux, dont la clarté était retrouvée. Bien que la douleur fût toujours présente, c'était comme s'il avait percé à jour les mystères du monde. C'était une vérité qu'il avait apprise autrefois : il devait laisser partir ceux qui étaient destinés à disparaître...
+Wang Lin ouvrit les yeux, dont la clarté était retrouvée. Bien que la douleur fût toujours présente, c'était comme s'il avait percé à jour les mystères du monde. C'était une vérité qu'il avait apprise autrefois: il devait laisser partir ceux qui étaient destinés à disparaître...
 
 Il leva sa main droite et un filet de brume apparut au-dessus d'elle. Cette brume était composée de toute la fumée qui avait pénétré son corps. Son âme originelle contenant une part du dragon de tonnerre antique, elle renfermait le pouvoir du tonnerre céleste. Ce Dao du Démon Céleste aux Dix Mille Illusions n'était pas suffisant pour consumer son âme originelle.
 
 Observant la brume, Wang Lin réfléchit un instant, puis l'écrasa.
 
-« Bien que ta cultivation ait été augmentée de force, ta compréhension de ton domaine est insuffisante. Les gens ordinaires ont un dicton : gâcher les choses par un enthousiasme excessif. C'est là ta faiblesse fatale ! »
+« Bien que ta culture ait été augmentée de force, ta compréhension de ton domaine est insuffisante. Les gens ordinaires ont un dicton: gâcher les choses par un enthousiasme excessif. C'est là ta faiblesse fatale! »
 
-Au moment où il l'écrasa, un gémissement étouffé émana du vide. Aussitôt, la silhouette de Liu Mei apparut au loin. Son visage était livide tandis qu'elle fixait Wang Lin. Ses yeux emplis de haine, elle siffla : « Tu es bel et bien Wang Lin, un être au cœur impitoyable. »
+Au moment où il l'écrasa, un gémissement étouffé émana du vide. Aussitôt, la silhouette de Liu Mei apparut au loin. Son visage était livide tandis qu'elle fixait Wang Lin. Ses yeux emplis de haine, elle siffla: « Tu es bel et bien Wang Lin, un être au cœur impitoyable. »
 
-« Ce n'est pas moi qui suis impitoyable, c'est toi ! » Les yeux de Wang Lin révélèrent une pure intention meurtrière.
+« Ce n'est pas moi qui suis impitoyable, c'est toi! » Les yeux de Wang Lin révélèrent une pure intention meurtrière.
 
-« J'ai consacré ma vie au Dao, mais tu as utilisé l'âme du domaine pour briser mon corps vierge. Comment expliques-tu cela ?! » La voix de Liu Mei se brisa. Tout son calme d'autrefois s'était évanoui, et la haine dans son regard ne fit que croître.
+« J'ai consacré ma vie au Dao, mais tu as utilisé l'âme du domaine pour briser mon corps vierge. Comment expliques-tu cela?! » La voix de Liu Mei se brisa. Tout son calme d'autrefois s'était évanoui, et la haine dans son regard ne fit que croître.
 
-Wang Lin fronça les sourcils. C'était un souvenir qu'il ne souhaitait pas raviver. Ses yeux devinrent glacials et il dit doucement : « Tu as été la première à agir. De plus, l'affaire de l'âme du domaine n'était qu'un accident. »
+Wang Lin fronça les sourcils. C'était un souvenir qu'il ne souhaitait pas raviver. Ses yeux devinrent glacials et il dit doucement: « Tu as été la première à agir. De plus, l'affaire de l'âme du domaine n'était qu'un accident. »
 
 « Un accident... » Liu Mei commença à rire. Son rire redoubla d'intensité jusqu'à devenir empreint de vile méchanceté. Elle pouvait maintenir sa dignité de Dao du Démon Céleste aux Dix Mille Illusions devant tout le monde, mais face à l'homme qui se tenait devant elle, elle n'en était plus capable.
 
-« Tu me réponds que c'était un accident ? Alors je vais t'offrir un autre accident ! » Une nuance de douleur complexe perçait sous sa haine. Elle toucha son sac de rangement.
+« Tu me réponds que c'était un accident? Alors je vais t'offrir un autre accident! » Une nuance de douleur complexe perçait sous sa haine. Elle toucha son sac de rangement.
 
 Wang Lin fronça les sourcils. Le garde céleste apparut soudainement devant lui et s'avança vers Liu Mei.
 
 La main droite de Liu Mei s'éleva du sac de rangement et celui-ci s'ouvrit. Une brume noire jaillit de l'intérieur, accompagnée d'une explosion de ressentiment monstrueux.
 
-Ce ressentiment était si puissant qu'il fit trembler les cieux ; le ciel s'obscurcit comme s'il était couvert par d'épais nuages. De vastes vortex commencèrent à tourner lentement dans les airs.
+Ce ressentiment était si puissant qu'il fit trembler les cieux; le ciel s'obscurcit comme s'il était couvert par d'épais nuages. De vastes vortex commencèrent à tourner lentement dans les airs.
 
 Le ressentiment était trop intense. À mesure qu'il se propageait, des hurlements fantomatiques surgirent dans un rayon de cinq kilomètres, comme si l'on pénétrait dans le royaume des esprits.
 
@@ -38,23 +38,23 @@ Une salve de cris stridents explosa de la brume noire. Celle-ci était trop rapi
 
 L'expression de Wang Lin resta neutre alors qu'il fixait cette lueur noire. Au moment où elle s'approcha, il pointa son doigt tel une épée, créant une rafale de vent. Ce souffle balaya la brume noire, révélant une paire d'yeux sombres.
 
-Dès que le regard de Wang Lin croisa ces yeux noirs, il fut saisi de stupeur. Ils étaient totalement voilés ; aucune lumière n'y brillait, seul un ressentiment monstrueux s'en dégageait.
+Dès que le regard de Wang Lin croisa ces yeux noirs, il fut saisi de stupeur. Ils étaient totalement voilés; aucune lumière n'y brillait, seul un ressentiment monstrueux s'en dégageait.
 
 Pourtant, au moment où Wang Lin vit cette paire d'yeux, son esprit vacilla et une sensation d'harmonie envahit son corps. C'était comme si dix mille coups de tonnerre explosaient à ses oreilles, faisant trembler son propre être. Inconsciemment, il retira son doigt, fit quelques pas en arrière et fixa la brume noire.
 
 « Ceci... ceci est... » Une douleur terrible surgit au cœur de Wang Lin et se propagea instantanément dans tout son corps. Il regarda la brume noire et ses yeux devinrent soudainement rouges. D'un geste de la main droite, il ordonna au garde céleste de revenir immédiatement. L'ombre s'étendit pour envelopper la brume noire, l'empêchant de bouger.
 
-Le visage de Wang Lin était empreint de férocité lorsqu'il hurla à Liu Mei : « Qu'est-ce qui se cache là-dedans ?! »
+Le visage de Wang Lin était empreint de férocité lorsqu'il hurla à Liu Mei: « Qu'est-ce qui se cache là-dedans?! »
 
-Liu Mei esquissa un sourire, bien que ses yeux fussent emplis de douleur. Elle regarda ensuite Wang Lin avec un sourire encore plus large : « Tu ne le reconnais pas ? Non, avec ta cultivation, tu devrais pourtant être capable de le reconnaître. »
+Liu Mei esquissa un sourire, bien que ses yeux fussent emplis de douleur. Elle regarda ensuite Wang Lin avec un sourire encore plus large: « Tu ne le reconnais pas? Non, avec ta culture, tu devrais pourtant être capable de le reconnaître. »
 
-« Il existe une légende parmi les mortels. Si une personne perd plusieurs enfants, les âmes de ces derniers ne se dissipent pas ; elles te suivront et t'observeront toujours. Elles sembleront vouloir dire quelque chose, mais tu n'entendras rien. Ce n'est qu'au moment de ta mort que tu les entendras enfin te demander : "Papa, pourquoi ne veux-tu pas de moi..." »
+« Il existe une légende parmi les mortels. Si une personne perd plusieurs enfants, les âmes de ces derniers ne se dissipent pas; elles te suivront et t'observeront toujours. Elles sembleront vouloir dire quelque chose, mais tu n'entendras rien. Ce n'est qu'au moment de ta mort que tu les entendras enfin te demander: "Papa, pourquoi ne veux-tu pas de moi..." »
 
 La voix de Liu Mei était étrange, imprégnée d'une trace de folie.
 
-« J'ai raffiné cet enfant dans mon corps pendant un siècle jusqu'à ce qu'il devienne un esprit de ressentiment. Lorsqu'il a pris conscience, je n'ai cessé de lui répéter que c'était son père qui l'avait abandonné. Et son père s'appelle Wang Lin ! »
+« J'ai raffiné cet enfant dans mon corps pendant un siècle jusqu'à ce qu'il devienne un esprit de ressentiment. Lorsqu'il a pris conscience, je n'ai cessé de lui répéter que c'était son père qui l'avait abandonné. Et son père s'appelle Wang Lin! »
 
-« Wang Lin, tu as ruiné mon cœur Dao, ruiné mon domaine et pris mon corps. Si tout cela n'était qu'un accident, alors laisse-moi te rembourser avec un trésor magique spécial ! »
+« Wang Lin, tu as ruiné mon cœur Dao, ruiné mon domaine et pris mon corps. Si tout cela n'était qu'un accident, alors laisse-moi te rembourser avec un trésor magique spécial! »
 
 Wang Lin restait silencieux. Il était plongé dans un mutisme total, comme si toute vie avait été drainée de son corps pour ne laisser place qu'à une mort infinie.
 
@@ -68,45 +68,45 @@ Observant la brume noire encerclée par l'ombre du garde céleste, le regard de 
 
 Ce puissant ressentiment ne put entraver la vision de Wang Lin.
 
-Après un temps indéterminé, Wang Lin dit doucement : « Merci... »
+Après un temps indéterminé, Wang Lin dit doucement: « Merci... »
 
-Liu Mei fut stupéfaite. Fixant Wang Lin, elle s'écria : « Wang Lin, ton cœur ne te fait-il donc aucune peine ?! »
+Liu Mei fut stupéfaite. Fixant Wang Lin, elle s'écria: « Wang Lin, ton cœur ne te fait-il donc aucune peine?! »
 
-Wang Lin ne daigna même pas la regarder. Il ne fixa que la silhouette dans la brume et murmura : « Si tu as pu le raffiner en un esprit de ressentiment, alors je pourrai le transformer à nouveau, même si cela prend des milliers d'années... des dizaines de milliers d'années... Merci de me l'avoir rendu... »
+Wang Lin ne daigna même pas la regarder. Il ne fixa que la silhouette dans la brume et murmura: « Si tu as pu le raffiner en un esprit de ressentiment, alors je pourrai le transformer à nouveau, même si cela prend des milliers d'années... des dizaines de milliers d'années... Merci de me l'avoir rendu... »
 
-Tout cela dépassait totalement les attentes de Liu Mei. Elle ricana : « Il ne pourra pas revenir. Pour qu'il devienne un esprit de ressentiment complet, je... »
+Tout cela dépassait totalement les attentes de Liu Mei. Elle ricana: « Il ne pourra pas revenir. Pour qu'il devienne un esprit de ressentiment complet, je... »
 
-Avant qu'elle n'ait pu finir, Wang Lin dit doucement : « Si je dis que c'est possible, alors c'est possible ! » Son regard quitta la brume pour se poser sur Liu Mei. Ses yeux n'étaient plus calmes, mais empreints d'une intention meurtrière inimaginable. Hormis Teng Huayuan, Wang Lin n'avait jamais éprouvé une telle soif de sang envers quiconque !
+Avant qu'elle n'ait pu finir, Wang Lin dit doucement: « Si je dis que c'est possible, alors c'est possible! » Son regard quitta la brume pour se poser sur Liu Mei. Ses yeux n'étaient plus calmes, mais empreints d'une intention meurtrière inimaginable. Hormis Teng Huayuan, Wang Lin n'avait jamais éprouvé une telle soif de sang envers quiconque!
 
-« Maintenant, c'est ton tour ! »
+« Maintenant, c'est ton tour! »
 
 La voix de Wang Lin n'était pas froide, mais elle fit comme si l'hiver s'abattait soudainement sur les environs. Il fit un pas en avant et pressa son pouce droit. Le Doigt des Enfers apparut brusquement.
 
 Un fracas retentit dans le ciel alors que la rivière des enfers réapparaissait pour fusionner avec le doigt de Wang Lin. Le Doigt des Enfers, formé par les eaux de l'enfer, s'élança et chargea droit sur Liu Mei.
 
-Liu Mei recula. Ce faisant, elle frappa son sac de rangement et un grand miroir antique apparut dans sa main. C'était un trésor que l'ancêtre de la famille Huan lui avait offert : un trésor céleste de faible qualité !
+Liu Mei recula. Ce faisant, elle frappa son sac de rangement et un grand miroir antique apparut dans sa main. C'était un trésor que l'ancêtre de la famille Huan lui avait offert: un trésor céleste de faible qualité!
 
 Lorsque le Doigt des Enfers percuta le miroir, une explosion tellurique se produisit. Simultanément, Wang Lin fit un pas en avant et la Formation d'Épée aux Sept Étoiles encercla Liu Mei. Wang Lin poussa un cri et sept rayons d'énergie d'épée jaillirent.
 
-Wang Lin dit calmement : « Un faux cultivateur de l'Ascendant au stade tardif, n'ayant que de l'énergie spirituelle céleste et aucun domaine, ne fait pas le poids face à un cultivateur de stade intermédiaire ! » Le doigt de la mort s'approcha de Liu Mei, porté par la Formation d'Épée aux Sept Étoiles.
+Wang Lin dit calmement: « Un faux cultivateur de l'Ascendant au stade tardif, n'ayant que de l'énergie spirituelle céleste et aucun domaine, ne fait pas le poids face à un cultivateur de stade intermédiaire! » Le doigt de la mort s'approcha de Liu Mei, porté par la Formation d'Épée aux Sept Étoiles.
 
-L'énergie des épées convergeait, faisant radicalement changer l'expression de Liu Mei. Sentant le danger, elle se mordit la langue. Du sang jaillit de sa bouche, emportant un objet : une aiguille tranchante.
+L'énergie des épées convergeait, faisant radicalement changer l'expression de Liu Mei. Sentant le danger, elle se mordit la langue. Du sang jaillit de sa bouche, emportant un objet: une aiguille tranchante.
 
 Dès son apparition, l'aiguille encercla Liu Mei et bloqua la Formation d'Épée aux Sept Étoiles. Même le doigt de la mort fut transpercé par cette aiguille.
 
-« La quatrième âme ! » Wang Lin la regarda froidement, ses yeux devenant encore plus glacials. Il leva la main droite et pointa doucement l'aiguille.
+« La quatrième âme! » Wang Lin la regarda froidement, ses yeux devenant encore plus glacials. Il leva la main droite et pointa doucement l'aiguille.
 
-« Arrête ! »
+« Arrête! »
 
 L'aiguille noire s'immobilisa soudainement. Alors qu'elle luttait pour bouger, Wang Lin fit un pas de plus et apparut devant Liu Mei. Sa main droite pressa impitoyablement entre ses sourcils.
 
-Liu Mei laissa échapper un gémissement misérable tandis qu'une masse de gaz noir s'échappait de son front. Elle recula aussitôt, les yeux remplis d'horreur. Bien que la cultivation de Wang Lin ne fût qu'au début du stade Ascendant, ses divers sorts et trésors étaient d'une puissance effrayante.
+Liu Mei laissa échapper un gémissement misérable tandis qu'une masse de gaz noir s'échappait de son front. Elle recula aussitôt, les yeux remplis d'horreur. Bien que la culture de Wang Lin ne fût qu'au début du stade Ascendant, ses divers sorts et trésors étaient d'une puissance effrayante.
 
-« Tu comptes fuir ? » Wang Lin fit un autre pas en avant, ses deux doigts formant une épée. Une partie du tonnerre contenu dans son âme originelle se condensa à l'extrémité de son doigt, prêt à arracher la vie de cette femme vile.
+« Tu comptes fuir? » Wang Lin fit un autre pas en avant, ses deux doigts formant une épée. Une partie du tonnerre contenu dans son âme originelle se condensa à l'extrémité de son doigt, prêt à arracher la vie de cette femme vile.
 
-L'ombre de la mort enveloppait le corps et l'esprit de Liu Mei, dont le visage était devenu livide. Le doigt de Wang Lin avait déjà blessé son âme originelle ; sans l'abondance d'énergie spirituelle céleste dans son corps, elle serait probablement déjà morte.
+L'ombre de la mort enveloppait le corps et l'esprit de Liu Mei, dont le visage était devenu livide. Le doigt de Wang Lin avait déjà blessé son âme originelle; sans l'abondance d'énergie spirituelle céleste dans son corps, elle serait probablement déjà morte.
 
-Liu Mei poussa un cri strident : « Li Er ! »
+Liu Mei poussa un cri strident: « Li Er! »
 
 Wang Lin fronça les sourcils en voyant la brume noire entourée par le garde céleste s'agiter violemment. Elle laissait échapper des hurlements perçants, semblables à des lames qui chargeaient Wang Lin pour lui déchirer le cœur.
 
@@ -118,12 +118,12 @@ Un bras légèrement flétri sortit du vortex et pressa nonchalamment contre le 
 
 Dans un fracas assourdissant, le corps de Wang Lin fut projeté en arrière tel un météore. Son visage devint pâle et il cracha une large bouchée de sang, mais ses yeux brillaient d'une lueur froide et monstrueuse.
 
-« Oh, pas encore morte ? » Une voix antique émana du vortex. Le bras flétri saisit Liu Mei et la traîna directement à l'intérieur.
+« Oh, pas encore morte? » Une voix antique émana du vortex. Le bras flétri saisit Liu Mei et la traîna directement à l'intérieur.
 
-« Si tu la sauves, la famille Huan sera anéantie ! » La voix de Wang Lin était aussi glaciale que le vent d'hiver tandis qu'il fixait le vortex. Il savait que la seule personne capable de secourir Liu Mei en cet instant était l'ancêtre de la famille Huan.
+« Si tu la sauves, la famille Huan sera anéantie! » La voix de Wang Lin était aussi glaciale que le vent d'hiver tandis qu'il fixait le vortex. Il savait que la seule personne capable de secourir Liu Mei en cet instant était l'ancêtre de la famille Huan.
 
 Sur ces mots, Wang Lin fit un pas en avant et condensa sans hésiter l'énergie d'épée de Ling Tianhou. Son doigt pointa comme un éclair et l'énergie d'épée chargea directement le vortex.
 
-« Jeune arrogant, bien que tu possèdes une marionnette de niveau Yin et Yang, tu ne fais toujours pas le poids face à ce vieil homme. Puisque toi et Huan Mei avez un passé commun, ce vieil homme ne s'ingérera pas dans votre querelle. Cependant, si tu persists, je ne te ferai aucun cadeau ! » déclara la voix antique du vortex. Il emporta Liu Mei en disparaissant totalement dans le vortex.
+« Jeune arrogant, bien que tu possèdes une marionnette de niveau Yin et Yang, tu ne fais toujours pas le poids face à ce vieil homme. Puisque toi et Huan Mei avez un passé commun, ce vieil homme ne s'ingérera pas dans votre querelle. Cependant, si tu persists, je ne te ferai aucun cadeau! » déclara la voix antique du vortex. Il emporta Liu Mei en disparaissant totalement dans le vortex.
 
 Cependant, à cet instant précis, l'énergie d'épée de Ling Tianhou avait traversé le vortex pour frapper directement l'ancêtre de la famille Huan de l'autre côté.

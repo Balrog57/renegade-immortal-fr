@@ -12,9 +12,9 @@ De plus en plus de personnes commencèrent à étudier le sort de raffinement de
 
 La taille de la tribu augmenta considérablement. En incluant les nouveaux captifs, le nombre d'hommes au sein de la tribu dépassait désormais les 500 individus. Cela faisait d'elle une tribu de taille moyenne parmi celles des environs.
 
-Avec une telle concentration de personnes en un seul point, l'espace devint exigu, tant à l'intérieur qu'à l'extérieur de la vallée ; Wang Lin décida donc de déployer une nouvelle formation. Cette formation reposait sur des restrictions et intégrait la puissance de la vallée ainsi que celle de la formation de cinq kilomètres.
+Avec une telle concentration de personnes en un seul point, l'espace devint exigu, tant à l'intérieur qu'à l'extérieur de la vallée; Wang Lin décida donc de déployer une nouvelle formation. Cette formation reposait sur des restrictions et intégrait la puissance de la vallée ainsi que celle de la formation de cinq kilomètres.
 
-La zone de protection de cette nouvelle formation s'étendait désormais sur environ 10 kilomètres de large, résolvant ainsi le problème de l'espace.
+La zone de protection de cette nouvelle formation s'étendait désormais sur environ 5 kilomètres de large, résolvant ainsi le problème de l'espace.
 
 Chaque nouvelle tribu avait besoin d'un nom. Après qu'Ouyang Hua eut posé la question à plusieurs reprises, Wang Lin la nomma la Tribu du Raffinement de l'Âme.
 
@@ -26,9 +26,9 @@ Cette vallée devint le symbole du pouvoir suprême de la tribu. Wang Lin, l'uni
 
 Les règles de Wang Lin demeuraient inchangées. Il n'existait toujours que trois méthodes pour obtenir les chants après le troisième stade.
 
-Tous les membres de la Tribu du Raffinement de l'Âme consacraient tout leur temps à la cultivation. Hormis les patrouilles, il n'y avait presque personne à l'extérieur, car chacun cultivait au sein de sa demeure.
+Tous les membres de la Tribu du Raffinement de l'Âme consacraient tout leur temps à la culture. Hormis les patrouilles, il n'y avait presque personne à l'extérieur, car chacun cultivait au sein de sa demeure.
 
-La Tribu du Raffinement de l'Âme était radicalement différente de toutes les autres tribus de la Terre des Esprits Démoniaques ; elle ressemblait davantage à une secte de cultivation nouvellement née.
+La Tribu du Raffinement de l'Âme était radicalement différente de toutes les autres tribus de la Terre des Esprits Démoniaques; elle ressemblait davantage à une secte de culture nouvellement née.
 
 La vie de Wang Lin devint très paisible, car il était le seul habitant de la vallée. Toutes les anciennes habitations avaient été supprimées par lui, et l'endroit ressemblait désormais presque au Royaume Céleste.
 
@@ -36,13 +36,13 @@ Dans ce lieu semblable au Royaume Céleste, Wang Lin se bâtit une humble demeur
 
 C'était dans cette maison que Wang Lin résidait. Il s'y tenait en position du lotus et cultivait en silence.
 
-Ce qu'il absorbait n'était pas l'énergie spirituelle céleste, mais l'énergie spirituelle démoniaque !
+Ce qu'il absorbait n'était pas l'énergie spirituelle céleste, mais l'énergie spirituelle démoniaque!
 
 Le temps passa lentement et, en un clin d'œil, l'hiver arriva. L'hiver ici n'était pas différent de celui du monde extérieur. Des flocons blancs tombaient du ciel et le monde entier se parait de nacre.
 
-Wang Lin ouvrit les yeux, sortant de sa cultivation. En quittant sa demeure en bois, il vit la neige tomber. Il contempla silencieusement la chute des flocons, totalement immergé dans cette vision.
+Wang Lin ouvrit les yeux, sortant de sa culture. En quittant sa demeure en bois, il vit la neige tomber. Il contempla silencieusement la chute des flocons, totalement immergé dans cette vision.
 
-Peu après, Wang Lin leva la tête et murmura : « Deux ans déjà... »
+Peu après, Wang Lin leva la tête et murmura: « Deux ans déjà... »
 
 Il était dans la Terre des Esprits Démoniaques depuis presque deux ans. Une fois l'hiver passé, cela fera exactement deux ans.
 
@@ -52,7 +52,7 @@ Il leva sa main droite et captura un flocon. Tandis que le flocon se posait sur 
 
 Les flocons tombaient lentement sur son corps. L'intensité de la chute augmenta progressivement et, quelques heures plus tard, Wang Lin était devenu un véritable bonhomme de neige.
 
-Il ne bougea pas d'un iota, absorbant l'énergie spirituelle démoniaque contenue dans les flocons. Le cristal démoniaque en son sein était passé du rang 5 au rang 34 !
+Il ne bougea pas d'un iota, absorbant l'énergie spirituelle démoniaque contenue dans les flocons. Le cristal démoniaque en son sein était passé du rang 5 au rang 34!
 
 Plus le rang est élevé, plus la progression est ardue. Le rang 3 équivaut à l'Établissement des Fondations, le rang 30 correspond à la Formation du Noyau, et l'étape suivante exige dix fois plus d'efforts encore.
 
@@ -60,11 +60,11 @@ La raison pour laquelle Wang Lin avait choisi d'absorber l'énergie spirituelle 
 
 Bien qu'il possédât cent ans de jades célestes, ceux-ci suffiraient à peine à l'amener au stade avancé de la Transformation de l'Âme, et la quantité nécessaire pour atteindre le stade Ascendant dépassait l'entendement.
 
-Par conséquent, s'il voulait élever son niveau de cultivation, il devait trouver d'autres raccourcis. Transformer l'énergie spirituelle démoniaque en énergie spirituelle céleste était l'une des méthodes qu'il avait conçues.
+Par conséquent, s'il voulait élever son niveau de culture, il devait trouver d'autres raccourcis. Transformer l'énergie spirituelle démoniaque en énergie spirituelle céleste était l'une des méthodes qu'il avait conçues.
 
 Si Wang Lin y avait pensé, d'autres le pourraient aussi. Désormais, tout dépendait de qui serait capable d'absorber le plus d'énergie spirituelle démoniaque.
 
-Aux yeux de Wang Lin, l'énergie spirituelle démoniaque était une alternative aux jades célestes, car elle pouvait accélérer sa cultivation !
+Aux yeux de Wang Lin, l'énergie spirituelle démoniaque était une alternative aux jades célestes, car elle pouvait accélérer sa culture!
 
 Au cours de ces deux années, la Tribu du Raffinement de l'Âme continua de croître. À mesure que le besoin pour le chant suivant s'intensifiait, les membres quittaient la vallée pour s'entraîner. En complément, chaque mois, des équipes revenaient de raids contre des tribus plus petites, rapportant des captifs et diverses quantités de cristaux démoniaques.
 
@@ -72,7 +72,7 @@ Il convient de noter que les formations utilisées pour se défendre contre les 
 
 Avec le temps, la population de la Tribu du Raffinement de l'Âme continua d'augmenter, au point que la zone de 10 kilomètres parut insuffisante.
 
-Il fut donc nécessaire d'étendre la formation une fois de plus. Wang Lin y consacra trois jours d'étude avant d'agrandir le périmètre de 10 kilomètres supplémentaires. Désormais dotée d'un territoire de 20 kilomètres, la tribu pouvait être considérée comme l'une des plus puissantes dans un rayon de plusieurs dizaines de milliers de kilomètres !
+Il fut donc nécessaire d'étendre la formation une fois de plus. Wang Lin y consacra trois jours d'étude avant d'agrandir le périmètre de 10 kilomètres supplémentaires. Désormais dotée d'un territoire de 10 kilomètres, la tribu pouvait être considérée comme l'une des plus puissantes dans un rayon de plusieurs dizaines de milliers de kilomètres!
 
 L'accroissement du nombre de membres entraîna une hausse du nombre de pratiquants du sort de raffinement de l'âme. Wang Lin savait que les fragments d'âme contenus dans les drapeaux d'âme devaient être nourris de nombreuses fois pour atteindre leur pleine puissance.
 
@@ -80,7 +80,7 @@ Plutôt que d'enseigner aux gens comment les entretenir, il choisit d'utiliser l
 
 Dès l'apparition de ces nuages, une onde de choc parcourut la Tribu du Raffinement de l'Âme. De nombreux membres se précipitèrent dehors, tandis que les plus puissants s'enveloppèrent dans leurs propres drapeaux d'âme pour tenter de s'élever et comprendre ce qui se passait.
 
-« Libérez vos fragments d'âme dans les nuages noirs pendant une durée déterminée chaque jour. Cela rendra les fragments d'âme encore plus puissants ! » La voix de Wang Lin résonna à travers les 20 kilomètres de territoire.
+« Libérez vos fragments d'âme dans les nuages noirs pendant une durée déterminée chaque jour. Cela rendra les fragments d'âme encore plus puissants! » La voix de Wang Lin résonna à travers les 20 kilomètres de territoire.
 
 À l'instant même où sa voix fut entendue, chaque membre de la tribu s'agenouilla au sol. Leurs visages étaient empreints de respect, et ils se prosternaient tous vers la vallée où résidait Wang Lin.
 
@@ -92,9 +92,9 @@ Au sein de la tribu, tout le monde ne pratiquait pas le sort de raffinement de l
 
 Treize était l'un de ces chasseurs.
 
-Depuis que sa cultivation avait été anéantie, il n'avait plus prononcé un mot ; il était comme muet. Il n'y avait plus d'étincelle dans son corps ; il n'était plus qu'une carcasse errante.
+Depuis que sa culture avait été anéantie, il n'avait plus prononcé un mot; il était comme muet. Il n'y avait plus d'étincelle dans son corps; il n'était plus qu'une carcasse errante.
 
-Seul tard dans la nuit, lors de ses innombrables tentatives de cultivation, une émotion perçait sur son visage. Cependant, cette émotion n'était que douleur infinie et ressentiment.
+Seul tard dans la nuit, lors de ses innombrables tentatives de culture, une émotion perçait sur son visage. Cependant, cette émotion n'était que douleur infinie et ressentiment.
 
 Il refusait d'accepter sa condition. De nombreux membres de la tribu atteignaient désormais le quatrième stade, et beaucoup possédaient plus de dix drapeaux d'âme. De nouveaux génies avaient émergé, remplaçant Treize comme les figures les plus puissantes sous l'autorité d'Ouyang Hua.
 
@@ -110,15 +110,15 @@ Lorsqu'un membre de la tribu avait attaqué une petite tribu, ils n'y avaient tr
 
 En observant l'objet, il leva soudain la tête vers l'extérieur de la vallée, où il aperçut la silhouette familière d'Ouyang Hua.
 
-« Ce disciple a une affaire à discuter et souhaite s'entretenir avec l'Ancêtre ! »
+« Ce disciple a une affaire à discuter et souhaite s'entretenir avec l'Ancêtre! »
 
 Le titre d'Ancêtre était donné par tous les membres de la tribu. Puisque Wang Lin n'avait pas refusé, on pouvait considérer qu'il avait tacitement accepté.
 
-« Entre ! » Wang Lin baissa les yeux sur le morceau de bois.
+« Entre! » Wang Lin baissa les yeux sur le morceau de bois.
 
-Ouyang Hua pénétra dans la vallée. Il portait quelqu'un dans ses bras : une personne couverte de sang, au visage d'une pâleur extrême.
+Ouyang Hua pénétra dans la vallée. Il portait quelqu'un dans ses bras: une personne couverte de sang, au visage d'une pâleur extrême.
 
-Après s'être précipité auprès de Wang Lin, Ouyang Hua déposa le corps sur le côté, s'agenouilla et dit : « Ancêtre, alors que Treize chassait, il est tombé sur une bête démoniaque rare. Au moment où ce vieil homme s'en est rendu compte et s'est précipité, il était déjà trop tard... »
+Après s'être précipité auprès de Wang Lin, Ouyang Hua déposa le corps sur le côté, s'agenouilla et dit: « Ancêtre, alors que Treize chassait, il est tombé sur une bête démoniaque rare. Au moment où ce vieil homme s'en est rendu compte et s'est précipité, il était déjà trop tard... »
 
 Pour toutes les créatures vivantes de la Terre des Esprits Démoniaques, une fois qu'elles ont accumulé suffisamment d'énergie spirituelle démoniaque, elles subissent une mutation démoniaque qui accroît considérablement leur force.
 
@@ -126,10 +126,10 @@ Wang Lin posa le morceau de bois et leva la tête pour regarder Treize.
 
 Treize semblait beaucoup plus vieux qu'un an auparavant. En le regardant, on ne voyait plus un jeune homme, mais un vieillard au crépuscule de sa vie.
 
-Wang Lin dit d'un ton solennel : « Tu peux partir. »
+Wang Lin dit d'un ton solennel: « Tu peux partir. »
 
 Ouyang Hua se leva et se retira respectueusement.
 
-Une fois sorti de la vallée, il poussa un soupir en jetant un dernier regard vers les lieux et murmura : « Treize, tout dépendra de ta chance... »
+Une fois sorti de la vallée, il poussa un soupir en jetant un dernier regard vers les lieux et murmura: « Treize, tout dépendra de ta chance... »
 
 Wang Lin fixa Treize et commença à réfléchir.

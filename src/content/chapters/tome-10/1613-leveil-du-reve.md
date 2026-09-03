@@ -1,24 +1,24 @@
 ---
 n: 1613
-title: "L'Éveil du Rêve !"
+title: "L'Éveil du Rêve!"
 book: 10
 bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1613 - Awaken From Dream!"
 slug: leveil-du-reve
 ---
-Chapitre 1613 - L'Éveil du Rêve !
+Chapitre 1613 - L'Éveil du Rêve!
 
 « Pourquoi l'as-tu... amenée ici... » Le jeune homme en blanc but une autre gorgée de vin et ferma les yeux.
 
-« Elle est là. Si tu peux rompre ce lien, alors romps-le ! » Wang Lin saisit le pichet et but lentement une gorgée.
+« Elle est là. Si tu peux rompre ce lien, alors romps-le! » Wang Lin saisit le pichet et but lentement une gorgée.
 
 Le jeune homme aux cheveux blancs resta silencieux, songeant profondément jusqu'à avoir vidé tout le pichet.
 
-« Me reproches-tu cela... ? »
+« Me reproches-tu cela...? »
 
 « Tu es moi, je suis toi. Te reprocher quoi que ce soit revient à me le reprocher à moi-même. » Wang Lin esquissa un sourire calme.
 
-Le jeune homme en blanc murmura doucement : « Je dors encore. J'ai utilisé le Dao de la tromperie pour créer ce monde. Je n'en ai aucun contrôle ; tout ceci n'est que la déduction issue des intentions complexes du Dao des trois Fruits du Dao... »
+Le jeune homme en blanc murmura doucement: « Je dors encore. J'ai utilisé le Dao de la tromperie pour créer ce monde. Je n'en ai aucun contrôle; tout ceci n'est que la déduction issue des intentions complexes du Dao des trois Fruits du Dao... »
 
 Wang Lin ne répondit rien.
 
@@ -26,11 +26,11 @@ Tous deux, ou plutôt une seule et même personne, étaient assis sur ce bateau 
 
 Le temps ne passait plus. Les feuilles de saule restaient immobiles dans l'air, mais les deux compères avaient trop bu.
 
-Après un long moment, le jeune homme en blanc dit doucement : « Comment est cette vie... ? »
+Après un long moment, le jeune homme en blanc dit doucement: « Comment est cette vie...? »
 
-« Pourquoi me le demandes-tu ? Ce que je ressens est ce que tu ressens. » Wang Lin reposa le pichet.
+« Pourquoi me le demandes-tu? Ce que je ressens est ce que tu ressens. » Wang Lin reposa le pichet.
 
-« Es-tu prêt... ? » Le jeune homme en blanc poussa un soupir et regarda Li Muwan. Ses yeux devinrent embrumés.
+« Es-tu prêt...? » Le jeune homme en blanc poussa un soupir et regarda Li Muwan. Ses yeux devinrent embrumés.
 
 « Tu peux partir. » Wang Lin reporta son regard sur Li Muwan, les yeux empreints de réticence. Peu importait à quel point il refusait de partir, il savait qu'il allait disparaître... Ce rêve touchait à sa fin...
 
@@ -46,11 +46,11 @@ Bien qu'il fût parti, tout dans ce monde demeura figé, sans le moindre changem
 
 Wang Lin médita en silence. Le temps ne passait pas, mais sa réflexion fut longue. Il s'approcha de Li Muwan et s'assit à ses côtés. Il posa ses mains sur la cithare, ferma les yeux et commença à jouer lentement.
 
-La cithare ne produisait aucun son, mais la musique emplissait le cœur de Wang Lin. Des vagues de chagrin déferlèrent en lui. Une chanson née d'un rêve doit s'achever ; un cri de nostalgie inoubliable.
+La cithare ne produisait aucun son, mais la musique emplissait le cœur de Wang Lin. Des vagues de chagrin déferlèrent en lui. Une chanson née d'un rêve doit s'achever; un cri de nostalgie inoubliable.
 
 « Cette année-là, cette année-là, nous nous sommes rencontrés dans le pays de Hou Fen, aux abords de la Mer des Démons. Une chasse, une voix sombre résonna, et je baissai les yeux.
 
-Les années passèrent, les cycles défilèrent, nous n'étions que deux grains de poussière aux extrémités de ce rêve. Après combien d'années nous sommes-nous enfin rencontrés pour ne faire que nous croiser dans un état de torpeur ?
+Les années passèrent, les cycles défilèrent, nous n'étions que deux grains de poussière aux extrémités de ce rêve. Après combien d'années nous sommes-nous enfin rencontrés pour ne faire que nous croiser dans un état de torpeur?
 
 Au moment où nous nous sommes enfin trouvés, le rêve touchait à sa fin. Même si je suis réticent, même si je suis si réticent... »
 
@@ -58,23 +58,23 @@ Wang Lin ouvrit ses vieux yeux à la fin de la chanson. Sa main droite tremblait
 
 Ce regard était celui d'un éveil du rêve.
 
-Wang Lin porta le pichet à ses lèvres. Il contempla les cieux et la terre, ce monde dans lequel il avait vécu plus de soixante-dix ans, puis il vida tout le pichet !
+Wang Lin porta le pichet à ses lèvres. Il contempla les cieux et la terre, ce monde dans lequel il avait vécu plus de soixante-dix ans, puis il vida tout le pichet!
 
 Ce vin était comme de l'eau, sans aucune brûlure.
 
 Mais il était comme du feu. Lorsqu'il atteignit son estomac, il le brûla.
 
-« Qu'est-ce que le karma... Quand j'ouvre ma paume, c'est la cause karmique ; quand je ferme ma paume, c'est l'effet karmique... »
+« Qu'est-ce que le karma... Quand j'ouvre ma paume, c'est la cause karmique; quand je ferme ma paume, c'est l'effet karmique... »
 
 Le monde gronda. Le bateau sur lequel se trouvait Wang Lin disparut. Avec lui s'évanouirent la rivière, le pont de pierre, les innombrables embarcations et les feuilles de saule infinies dans le ciel.
 
 Une onde invisible se propagea de Wang Lin comme centre. Tous les édifices de la ville de Su disparurent en un éclair. Non seulement Su, mais tout le pays de Zhao — ses montagnes, ses rivières, ses sectes, ses villages et tout le reste — s'effaça instantanément.
 
-Le pays de Zhao, les terres au-delà, la Secte de l'Affinement de l'Âme, Xue Yue, les autres nations ; tout le monde s'effondra.
+Le pays de Zhao, les terres au-delà, la Secte de l'Affinement de l'Âme, Xue Yue, les autres nations; tout le monde s'effondra.
 
-Il y eut aussi l'océan infini, la mer déchaînée, l'autre rive, l'autre continent, la terre natale de Li Muwan ; tout disparut. Le pays de Hou Fen, le pays de Xuan Wu, la Mer des Démons et le foyer de Wang Lin et Li Muwan s'éteignirent en cendres.
+Il y eut aussi l'océan infini, la mer déchaînée, l'autre rive, l'autre continent, la terre natale de Li Muwan; tout disparut. Le pays de Hou Fen, le pays de Xuan Wu, la Mer des Démons et le foyer de Wang Lin et Li Muwan s'éteignirent en cendres.
 
-Tout ce qui composait ce monde se dispersa... Laissant derrière lui les mortels et les cultivateurs vaquant à leurs occupations. Ils ne disparurent pas ; ils demeurèrent calmement, par-delà le monde.
+Tout ce qui composait ce monde se dispersa... Laissant derrière lui les mortels et les cultivateurs vaquant à leurs occupations. Ils ne disparurent pas; ils demeurèrent calmement, par-delà le monde.
 
 Tout comme Li Muwan et Big Fortune aux côtés de Wang Lin.
 
@@ -90,11 +90,11 @@ Xu Fei et Zhou Rui volaient dans les airs. À cet instant, le temps s'arrêta et
 
 Wang Zhou, vêtu d'une robe noire, se tenait sur le mont Heng Yue. Le vent souffla et son corps s'effondra.
 
-Il y eut aussi Hong Long, l'ancêtre de la famille Teng, et les innombrables cultivateurs de Zhao. Même hors de Zhao, il y avait Zhou Wutai qui contemplait un jeune homme devant lui : son disciple. En regardant son disciple, Zhou Wutai disparut avec lui sous l'effet du vent.
+Il y eut aussi Hong Long, l'ancêtre de la famille Teng, et les innombrables cultivateurs de Zhao. Même hors de Zhao, il y avait Zhou Wutai qui contemplait un jeune homme devant lui: son disciple. En regardant son disciple, Zhou Wutai disparut avec lui sous l'effet du vent.
 
 Il y eut aussi Yun Quezi, Dun Tian et Nian Tian de la Secte de l'Affinement de l'Âme, ainsi que Zhu Quezi. Que ce soit sur ce continent ou sur celui de l'autre côté de la mer, tous disparurent sans laisser de trace.
 
-À cet instant, le monde ne possédait plus ni terre ni vie ; seul le ciel subsistait.
+À cet instant, le monde ne possédait plus ni terre ni vie; seul le ciel subsistait.
 
 Les seuls qui n'avaient pas disparu étaient Wang Lin, en pleurs, et Big Fortune.
 
@@ -109,41 +109,26 @@ Il ne voulait pas renoncer... Mais le rêve finirait inévitablement par prendre
 Au moment où il les ferma, diverses scènes lui apparurent. Ces visions le rendaient incapable d'abandonner, mais finalement, elles se dissipèrent une à une. S'il voulait les retrouver, il ne pourrait que puiser dans ses souvenirs.
 
 Dans ces visions, il se vit, Li Muwan et Big Fortune assis sur le bateau.
-
 Il vit un carrosse traversant la neige vers son village de montagne natal.
-
 Il se vit, Li Muwan et lui, dans leur maison de la vallée. La musique d'une cithare résonnait, une mélodie joyeuse. Leurs regards croisés semblaient durer l'éternité. Lorsqu'on essayait de regarder à nouveau, tout devenait flou.
-
 Il se vit assis sur un rocher en montagne, contemplant les lois du ciel. Les cultivateurs dans un rayon de milliers de kilomètres l'adoraient. Parmi eux, il aperçut les larmes de Liu Mei.
-
-Il se vit pointant le ciel et rugissant près d'un volcan éteint. Il pouvait tout endurer, il pouvait tout utiliser pour s'auto-illusionner, mais il ne pouvait pas se mentir sur la rupture de son karma avec Li Muwan. Il pointa le ciel, l'oiseau blanc, en se questionnant lui-même :
-
-« Peux-tu rompre ce lien ? Peux-tu le rompre ? Tu ne peux pas le rompre !!! »
-
-Au milieu des vagues et des vents infinis de la mer, il vit un navire marchand lutter contre les éléments. Il vit tous les passagers chanter une antique chanson de marins. Il vit cette volonté défiant la mort !
-
+Il se vit pointant le ciel et rugissant près d'un volcan éteint. Il pouvait tout endurer, il pouvait tout utiliser pour s'auto-illusionner, mais il ne pouvait pas se mentir sur la rupture de son karma avec Li Muwan. Il pointa le ciel, l'oiseau blanc, en se questionnant lui-même:
+« Peux-tu rompre ce lien? Peux-tu le rompre? Tu ne peux pas le rompre!!! »
+Au milieu des vagues et des vents infinis de la mer, il vit un navire marchand lutter contre les éléments. Il vit tous les passagers chanter une antique chanson de marins. Il vit cette volonté défiant la mort!
 Il vit une femme tenant un bébé sous la pluie devant un pavillon. Elle était si glaciale que la pluie se transformait en glace.
-
 Il vit l'incompréhension dans les yeux de Liu Mei aux confins de Zhao, et la pilule qu'elle avait laissée avec un sourire.
-
 Il vit son père fermer les yeux dans ses bras. Il vit une feuille d'automne s'envoler avec son âme, s'éloignant toujours plus loin... Il vit les yeux de sa mère ne jamais se rouvrir, et un sourire apparaître au coin de ses lèvres, comme si elle avait retrouvé son père.
-
-Il se vit foudroyant du regard le cultivateur venu pour le tuer dans la ville de Su. Une seule phrase suffit à effrayer l'assaillant !
-
+Il se vit foudroyant du regard le cultivateur venu pour le tuer dans la ville de Su. Une seule phrase suffit à effrayer l'assaillant!
 Il vit Su Dao et son enterrement. Il revit l'année où lui et Big Fortune arrivèrent pour la première fois à Su, quand les feuilles de saule volaient dans l'air. Ils avaient loué un bateau pour attendre leur rencontre avec lui-même.
 
 Enfin, il vit une auberge au bord de la route royale. Sur une table, à l'intérieur, gisait un jeune homme ivre. Le serveur, le sourcil froncé, s'approcha pour le secouer.
-
 « Petit frère, réveille-toi... Ah, voilà un vrai érudit. À peine deux coupes et déjà ivre. Je dois nettoyer, dépêche-toi de te lever... »
-
-Il vit le jeune homme ivre lever la tête et lâcher une phrase dans un petit rire :
-
+Il vit le jeune homme ivre lever la tête et lâcher une phrase dans un petit rire:
 « Laisse-moi te dire, j'ai fait un rêve... J'ai rêvé que j'étais un immortel... »
 
 Toutes les images se fragmentèrent en éclats flous dès qu'il prononça le mot « immortel ».
 
 Les yeux de Wang Lin se fermèrent totalement. À l'instant même, le ciel s'effondra. Tout dans le rêve se dissipa.
-
 Le rêve prit fin...
 
 Dans le vide obscur que le Vieux Fantôme Zhan appelait la couche murale de la grotte, un jeune homme aux cheveux blancs reposait dans une lumière couleur sang. Ses yeux s'ouvrièrent.

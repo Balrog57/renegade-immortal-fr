@@ -6,11 +6,11 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 792 - The Place Closest to the Ancient Celestial Realm
 slug: lendroit-le-plus-proche-du-royaume-celeste-antique
 ---
-Wang Lin sembla réaliser quelque chose. Lorsque l'âme originelle du vieil homme mystérieux contrôlait son corps pour lancer des sorts, celui-ci n'utilisait qu'une infime quantité d'énergie originelle ; le reste était puisé dans le monde lui-même.
+Wang Lin sembla réaliser quelque chose. Lorsque l'âme originelle du vieil homme mystérieux contrôlait son corps pour lancer des sorts, celui-ci n'utilisait qu'une infime quantité d'énergie originelle; le reste était puisé dans le monde lui-même.
 
 Ce genre de sort ressemblait fort à celui capable d'extraire les âmes de toute chose. C'était une technique similaire, mais bien plus profonde.
 
-Cependant, ce sort dépassait largement le niveau de cultivation de Wang Lin. Bien qu'il en eût saisi certains principes, il restait une fine barrière qu'il ne parvenait pas à franchir.
+Cependant, ce sort dépassait largement le niveau de culture de Wang Lin. Bien qu'il en eût saisi certains principes, il restait une fine barrière qu'il ne parvenait pas à franchir.
 
 Alors que le vieil homme dirigeait son corps dans un mouvement fulgurant, Wang Lin n'eut plus le temps de réfléchir aux sorts. Il était parfaitement conscient que l'âme originelle du vieil homme mystérieux, nichée en lui, se dissipait rapidement.
 
@@ -22,13 +22,13 @@ C'était une pure illusion, mais Wang Lin ne trouvait aucun autre moyen d'expliq
 
 Cela était également dû au fait que Wang Lin avait déjà saisi le concept de « Déformation Spatiale », un sort appartenant aux cultivateurs du deuxième niveau. Bien qu'il ne puisse pas fusionner avec le monde aussi naturellement que le vieil homme, qui le faisait comme s'il respirait, il pourrait néanmoins l'utiliser avec suffisamment de préparation.
 
-S'il n'avait été qu'un cultivateur au stade du Yang Corporel n'ayant pas maîtrisé la Déformation Spatiale, son âme originelle ne pourrait avoir résisté à une telle accélération. Dans le meilleur des cas, il aurait été gravement blessé ; dans le pire, son âme originelle se serait effondrée.
+S'il n'avait été qu'un cultivateur au stade du Yang Corporel n'ayant pas maîtrisé la Déformation Spatiale, son âme originelle ne pourrait avoir résisté à une telle accélération. Dans le meilleur des cas, il aurait été gravement blessé; dans le pire, son âme originelle se serait effondrée.
 
 Même si Wang Lin maîtrisait la Déformation Spatiale, il sentait que son âme originelle ne pourrait supporter un voyage dans cet état sur une période aussi prolongée.
 
 Sous le contrôle du vieil homme, son corps ne quittait jamais l'état de fusion avec le monde. C'était comme si chaque parcelle de son être, y compris son âme originelle, était divisée en d'innombrables grains faisant partie intégrante de l'univers.
 
-Fusionner avec le monde permettait d'atteindre n'importe quel lieu en un instant, mais ce sort comportait des limites ; sans quoi, le vieil homme serait simplement apparu là où son corps se trouvait au lieu de foncer ainsi.
+Fusionner avec le monde permettait d'atteindre n'importe quel lieu en un instant, mais ce sort comportait des limites; sans quoi, le vieil homme serait simplement apparu là où son corps se trouvait au lieu de foncer ainsi.
 
 Pour Wang Lin, ce temps de demi-encens ressemblait à un siècle. Durant ce siècle, il traversa une tempête déchaînée qui cherchait à le déchiqueter. Il dut lutter de toutes ses forces pour ne pas être réduit en lambeaux par les bourrasques.
 
@@ -40,9 +40,9 @@ En s'intégrant étroitement au monde, on pouvait mieux explorer ses lois fondam
 
 À cet instant, le vieil homme mystérieux aidait involontairement Wang Lin. C'était comme si une paire de mains gigantesques saisissait l'âme originelle de Wang Lin pour la forcer à fusionner avec l'univers.
 
-Malgré la douleur, les bienfaits étaient bien réels !
+Malgré la douleur, les bienfaits étaient bien réels!
 
-Son âme originelle se fondait de plus en plus étroitement dans le monde, comme s'il en avait toujours fait partie. Simultanément, le domaine de Wang Lin commença lui aussi à fusionner avec le monde ; son domaine karmique se confrontait au Dao karmique de l'univers.
+Son âme originelle se fondait de plus en plus étroitement dans le monde, comme s'il en avait toujours fait partie. Simultanément, le domaine de Wang Lin commença lui aussi à fusionner avec le monde; son domaine karmique se confrontait au Dao karmique de l'univers.
 
 Au-delà de son âme originelle, son corps physique en bénéficiait également. Après avoir subi le nettoyage précédent, son énergie originelle avait pleinement fusionné avec sa chair.
 
@@ -70,4 +70,4 @@ L'expression de Wang Lin était sombre alors qu'il accélérait sa fuite. Il ava
 
 Le regard du jeune homme maléfique devint glacial tandis qu'il inspectait les fragments environnants en fronçant les sourcils.
 
-« Cet endroit était la Capitale Impériale du Royaume Céleste du Tonnerre. C'était le cœur du royaume et l'endroit le plus proche du Royaume Céleste Antique avant son effondrement... La rumeur prétendait que, lorsque le Royaume Céleste Antique existait encore, c'est ici que les anciens êtres célestes descendaient... Quel est donc le dessein de cet individu qui possède également le pouvoir d'un Seigneur Céleste ?! »
+« Cet endroit était la Capitale Impériale du Royaume Céleste du Tonnerre. C'était le cœur du royaume et l'endroit le plus proche du Royaume Céleste Antique avant son effondrement... La rumeur prétendait que, lorsque le Royaume Céleste Antique existait encore, c'est ici que les anciens êtres célestes descendaient... Quel est donc le dessein de cet individu qui possède également le pouvoir d'un Seigneur Céleste?! »

@@ -18,17 +18,17 @@ L'instant d'après, le jeune homme réapparut aux côtés d'un cultivateur de l'
 
 Non seulement lui, mais tous les cultivateurs environnants s'enfuirent.
 
-Le sourire sur le visage du jeune homme devint plus sinistre encore alors qu'il projetait sa lance. Une ondulation se propagea dans le vide et, non loin de là, le corps du cultivateur de l'Illusory Yin fut expulsé de sa position. Son visage était livide ; il s'apprêtait à fuir de nouveau quand son corps se mit soudainement à trembler. Dans un fracas retentissant, son corps explosa, et sa chair, son sang ainsi que son âme originelle furent aspirés dans la bouche du jeune homme.
+Le sourire sur le visage du jeune homme devint plus sinistre encore alors qu'il projetait sa lance. Une ondulation se propagea dans le vide et, non loin de là, le corps du cultivateur de l'Illusory Yin fut expulsé de sa position. Son visage était livide; il s'apprêtait à fuir de nouveau quand son corps se mit soudainement à trembler. Dans un fracas retentissant, son corps explosa, et sa chair, son sang ainsi que son âme originelle furent aspirés dans la bouche du jeune homme.
 
 Même la peau et les os, le sang et la chair... rien ne resta.
 
-Tout cela se produisit en un clin d'œil. Le corps du jeune homme vacilla une fois de plus ; ses mouvements étaient imprévisibles alors qu'il fendait la foule des cultivateurs. Chaque fois qu'il surgissait, un nouveau cultivateur mourait.
+Tout cela se produisit en un clin d'œil. Le corps du jeune homme vacilla une fois de plus; ses mouvements étaient imprévisibles alors qu'il fendait la foule des cultivateurs. Chaque fois qu'il surgissait, un nouveau cultivateur mourait.
 
-Le vieil homme mystérieux qui contrôlait Wang Lin laissa échapper un reniflement froid et chargea comme l'éclair. Sa main droite traçant un sceau, il pointa vers le ciel et hurla : « Rassemblement ! »
+Le vieil homme mystérieux qui contrôlait Wang Lin laissa échapper un reniflement froid et chargea comme l'éclair. Sa main droite traçant un sceau, il pointa vers le ciel et hurla: « Rassemblement! »
 
 Des rayons de lumière pourpre surgirent du vide et convergèrent dans la main droite de Wang Lin. En un instant, une sphère de lumière pourpre se forma. Une lueur riche émanait de cette sphère, parcourue d'une fine brume qui la rendait extrêmement magnifique.
 
-« Dispersion ! » Un cri rauque s'échappa de la bouche de Wang Lin, et la sphère pourpre s'effondra aussitôt. Une onde de choc se propagea alors dans toutes les directions.
+« Dispersion! » Un cri rauque s'échappa de la bouche de Wang Lin, et la sphère pourpre s'effondra aussitôt. Une onde de choc se propagea alors dans toutes les directions.
 
 Cette onde de choc était imprégnée d'énergie originelle. En se répandant, elle frappa violemment tous les cultivateurs environnants. La force était telle que tous furent contraints de reculer rapidement.
 
@@ -38,19 +38,19 @@ Presque instantanément, une zone de cinq kilomètres se libéra, ne laissant qu
 
 Le jeune homme se lécha les lèvres, un éclat rouge apparaissant sur son visage. Bien que son temps fût compté, il avait déjà dévoré plus de vingt cultivateurs. Ses yeux s'illuminèrent. Au lieu de poursuivre son combat contre Wang Lin, il chargea vers les autres cultivateurs en fuite.
 
-Wang Lin entendit clairement le vieil homme en lui maudire. Son corps s'élança et cria : « Le grand Seigneur Céleste Qing Shui est donc prêt à dévorer des juniors pour simplement recouvrer sa cultivation ? Si tu es vraiment capable, viens combattre ce vieil homme au lieu de te déshonorer ainsi ! »
+Wang Lin entendit clairement le vieil homme en lui maudire. Son corps s'élança et cria: « Le grand Seigneur Céleste Qing Shui est donc prêt à dévorer des juniors pour simplement recouvrer sa culture? Si tu es vraiment capable, viens combattre ce vieil homme au lieu de te déshonorer ainsi! »
 
-Le jeune homme fut surpris et se retourna. Ses yeux étaient emplis d'une intention meurtrière lorsqu'il dit lentement : « Je ne suis pas Qing Shui ! »
+Le jeune homme fut surpris et se retourna. Ses yeux étaient emplis d'une intention meurtrière lorsqu'il dit lentement: « Je ne suis pas Qing Shui! »
 
-« Mensonges ! Tu es Qing Shui ! Qing Shui ! Qing Shui ! » La voix du vieil homme continuait de s'échapper du corps de Wang Lin.
+« Mensonges! Tu es Qing Shui! Qing Shui! Qing Shui! » La voix du vieil homme continuait de s'échapper du corps de Wang Lin.
 
 L'intention meurtrière dans les yeux du jeune homme s'intensifia alors qu'il laissait échapper un renflement froid. Il se retourna et continua sa traque des cultivateurs en fuite.
 
-Le vieil homme à l'intérieur de Wang Lin soupira. « L'héritier du pays de Clear Water ne peut même plus se souvenir de son propre nom, c'est vraiment pitoyable ! » Cependant, le jeune homme resta de marbre, disparaissant pour continuer sa dévoration.
+Le vieil homme à l'intérieur de Wang Lin soupira. « L'héritier du pays de Clear Water ne peut même plus se souvenir de son propre nom, c'est vraiment pitoyable! » Cependant, le jeune homme resta de marbre, disparaissant pour continuer sa dévoration.
 
 Wang Lin percevait clairement le dégoût de l'âme originelle du vieil homme, qui disparut dans le vide. Lorsqu'il réapparut, il se trouvait aux côtés d'un cultivateur Ascendant, à une grande distance.
 
-« Si tu veux dévorer, alors moi, je vais les faire fuir ! » Le corps de Wang Lin s'anima. Sous le regard terrifié du cultivateur Ascendant, Wang Lin lui asséna un coup de pied.
+« Si tu veux dévorer, alors moi, je vais les faire fuir! » Le corps de Wang Lin s'anima. Sous le regard terrifié du cultivateur Ascendant, Wang Lin lui asséna un coup de pied.
 
 Une force puissante enveloppa le corps du cultivateur. Celui-ci fusionna avec le monde et disparut instantanément.
 
@@ -64,7 +64,7 @@ Le visage de Shengong Hu se crispa de férocité. Homme arrogant, il forma rapid
 
 Cet éclair était rouge sombre. Dès son apparition, des ondulations parcoururent le vide, comme si d'innombrables filaments de tonnerre convergeaient de toutes les directions.
 
-Shengong Hu ne possédait qu'un seul filament de ce tonnerre, et il représentait le sommet de sa cultivation. Il n'avait pu l'obtenir qu'après avoir reçu l'illumination de Wang Lin. Il avait passé des années à chercher l'origine du tonnerre et l'avait raffiné sans relâche au sein de son corps.
+Shengong Hu ne possédait qu'un seul filament de ce tonnerre, et il représentait le sommet de sa culture. Il n'avait pu l'obtenir qu'après avoir reçu l'illumination de Wang Lin. Il avait passé des années à chercher l'origine du tonnerre et l'avait raffiné sans relâche au sein de son corps.
 
 Après tant d'années, il n'était capable de former qu'un seul éclair. Ce dernier n'était pas encore parfait, raison pour laquelle il ne l'avait pas utilisé lors du combat précédent.
 
@@ -78,11 +78,11 @@ Shengong Hu poussa un rugissement et l'éclair jaillit de sa main, dégageant un
 
 Shengong Hu saisit cette opportunité pour battre en retraite sans hésiter. À ce moment-là, Wang Lin aperçut Shengong Hu au loin. Bien qu'il ne puisse contrôler son corps, il pouvait communiquer avec le mystérieux vieillard.
 
-« Sauve-le ! » L'âme originelle de Wang Lin envoya ce message.
+« Sauve-le! » L'âme originelle de Wang Lin envoya ce message.
 
 L'âme originelle du vieil homme grogna mais n'opposa pas de refus. Après avoir expulsé le cultivateur qui se trouvait à ses côtés, il fusionna avec le monde et réapparut près de Shengong Hu. Sa main droite traça un sceau pour percuter le jeune maléfique qui approchait.
 
-Un fracas assourdissant retentit ; le jeune homme recula de quelques pas, tout comme Wang Lin. Cependant, dans son mouvement de recul, ce dernier envoya un coup de pied à l'exalté Shengong Hu. Ce dernier, transporté par l'excitation, s'envola dans les airs, fusionna avec le monde et disparut.
+Un fracas assourdissant retentit; le jeune homme recula de quelques pas, tout comme Wang Lin. Cependant, dans son mouvement de recul, ce dernier envoya un coup de pied à l'exalté Shengong Hu. Ce dernier, transporté par l'excitation, s'envola dans les airs, fusionna avec le monde et disparut.
 
 Le jeune maléfique lança un regard froid à Wang Lin et, dans un scintillement, son corps commença à se diviser. Il continua de se multiplier et, en un clin d'œil, les trente-deux clones détruits plus tôt lors du combat réapparurent.
 
@@ -90,11 +90,11 @@ Une fois apparus, les clones se dispersèrent immédiatement, chacun fonçant à
 
 Wang Lin sentit clairement l'âme originelle du vieil homme trembler avant qu'il ne pousse un rugissement. Il prit le contrôle du corps de Wang Lin et s'élança dans le ciel, bras ouverts. L'énergie originelle commença à se répandre frénétiquement dans le monde, au point de sembler le remplacer totalement.
 
-C'était comme si, à cet instant précis, Wang Lin était devenu le monde lui-même. Ses yeux brillaient d'une lueur étrange alors qu'il murmurait : « Sort céleste, disparition ! »
+C'était comme si, à cet instant précis, Wang Lin était devenu le monde lui-même. Ses yeux brillaient d'une lueur étrange alors qu'il murmurait: « Sort céleste, disparition! »
 
 Instantanément, l'énergie originelle se condensa autour de tous les cultivateurs en fuite.
 
-La voix résonna une nouvelle fois depuis le corps de Wang Lin : « Sort céleste, dispersion ! »
+La voix résonna une nouvelle fois depuis le corps de Wang Lin: « Sort céleste, dispersion! »
 
 En un instant, tous les cultivateurs furent enveloppés par l'énergie originelle et contraints de fusionner avec le monde. C'était comme si une paire de mains géantes et invisibles manipulait la réalité même.
 
@@ -104,16 +104,16 @@ Seuls le jeune homme et ses trente-deux clones subsistaient.
 
 Wang Lin sentait que l'âme originelle du vieil homme était extrêmement affaiblie et pouvait se dissiper à tout moment, telle une lampe dont l'huile s'épuise.
 
-« Malheur ! Cette fois, ce vieux fou travaille à perte ! »
+« Malheur! Cette fois, ce vieux fou travaille à perte! »
 
 Les yeux du jeune homme brillèrent d'un éclat rouge et il fit un pas vers Wang Lin.
 
-« Puisque tu cherches la mort, je vais exaucer ton vœu ! » Le jeune homme se rapprocha et projeta la lance qu'il tenait. Celle-ci jaillit comme un rayon de lumière noire vers Wang Lin.
+« Puisque tu cherches la mort, je vais exaucer ton vœu! » Le jeune homme se rapprocha et projeta la lance qu'il tenait. Celle-ci jaillit comme un rayon de lumière noire vers Wang Lin.
 
-Wang Lin sentit son cuir chevelu engourdi ; l'âme originelle du vieil homme parvint tout juste à diriger son corps pour esquiver l'attaque.
+Wang Lin sentit son cuir chevelu engourdi; l'âme originelle du vieil homme parvint tout juste à diriger son corps pour esquiver l'attaque.
 
 Le jeune maléfique le suivit de près. Le mystérieux vieillard qui contrôlait le corps de Wang Lin fusionna avec le monde et disparut en un éclair.
 
 Cependant, le jeune maléfique qui le poursuivait fusionna également avec le monde pour traquer l'ancien.
 
-Ils étaient trop rapides. En un instant, ils traversèrent d'innombrables fragments de réalité. Le jeune maléfique laissa poindre un sourire narquois et dit lentement : « Dès l'instant où tu es apparu, j'ai su que ton but était de me conduire vers ton vrai corps. Peu importe, je vais te suivre et te dévorer. Ce sera bien plus efficace pour ma récupération que les innombrables cultivateurs présents ici ! »
+Ils étaient trop rapides. En un instant, ils traversèrent d'innombrables fragments de réalité. Le jeune maléfique laissa poindre un sourire narquois et dit lentement: « Dès l'instant où tu es apparu, j'ai su que ton but était de me conduire vers ton vrai corps. Peu importe, je vais te suivre et te dévorer. Ce sera bien plus efficace pour ma récupération que les innombrables cultivateurs présents ici! »

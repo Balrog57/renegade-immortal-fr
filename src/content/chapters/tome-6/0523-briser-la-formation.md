@@ -24,7 +24,7 @@ Cependant, après quelques cycles, certaines restrictions demeuraient fusionnée
 
 À y regarder de près, on pouvait voir que des dizaines de ces restrictions s'étaient déjà agglomérées en un seul bloc. Ce processus d'union et de séparation ressemblait à un cycle perpétuel.
 
-Pour Wang Lin, ce procédé était une forme de déduction !
+Pour Wang Lin, ce procédé était une forme de déduction!
 
 Cette déduction avait débuté à l'instant même où il avait aperçu l'ancienne formation et s'était assis au sol. Ce que Wang Lin étudiait n'étaient pas des restrictions ordinaires, mais les antiques restrictions de la Terre de l'Ancien Dieu. Ces techniques étaient si primordiales que même les anciens cultivateurs ne faisaient que s'en apprendre l'usage sans jamais pouvoir les créer eux-mêmes.
 
@@ -36,53 +36,53 @@ Sa vitesse était telle qu'elle brisait le mur du son. Le souffle créé par sa 
 
 À cet instant, la figure verdoyante s'effondra sous la violence du vent.
 
-Pourtant, au moment même de son effondrement, les lueurs vertes cristallines qui brillaient là où se trouvaient ses yeux s'éteignirent soudainement !
+Pourtant, au moment même de son effondrement, les lueurs vertes cristallines qui brillaient là où se trouvaient ses yeux s'éteignirent soudainement!
 
-Mais elles retrouvèrent aussitôt leur éclat !
+Mais elles retrouvèrent aussitôt leur éclat!
 
 À cet instant, les lumières vertes situées à des milliers de kilomètres autour de la vallée brillèrent de mille feux. Des rayons de lumière jaillirent de ces amas flottants et s'entrelacèrent les uns aux autres dans le ciel.
 
-Tout cela se produisit juste après l'effondrement de la figure verte. Cela fut si rapide qu'il n'y eut aucun répit pour la réaction !
+Tout cela se produisit juste après l'effondrement de la figure verte. Cela fut si rapide qu'il n'y eut aucun répit pour la réaction!
 
 Même avec sa vitesse prodigieuse, la lance n'avait pu progresser que de quelques dizaines de pieds durant cet intervalle.
 
-Cependant, en un clin d'œil, un changement radical s'opéra sous les yeux de Wang Lin !
+Cependant, en un clin d'œil, un changement radical s'opéra sous les yeux de Wang Lin!
 
 Bien que la déduction se poursuive dans son esprit et approchât de sa conclusion, ses yeux restaient rivés sur la formation.
 
 Il put alors voir que la zone de 10 000 pieds entourant la formation était désormais encerclée par d'innombrables couches de lumière verte. Tout le périmètre autour de la vallée était devenu une gigantesque cage émeraude.
 
-Wang Lin se trouvait prisonnier de cette cage !
+Wang Lin se trouvait prisonnier de cette cage!
 
 D'innombrables éclairs verts traversaient l'enceinte, et il était impossible de dire combien d'entre eux fulguraient simultanément.
 
 Dans un éclair et un fracas, la lance se brisa net en deux.
 
-Bien que la lance de restrictions fût détruite, Wang Lin ne parut nullement perturbé ; après tout, une telle arme n'était faite que de restrictions. Tant qu'elle n'avait pas brisé la formation, il n'avait aucune surprise. La seule façon pour elle d'y parvenir aurait été que la formation soit exposée et dépourvue de toute défense au moment de l'impact.
+Bien que la lance de restrictions fût détruite, Wang Lin ne parut nullement perturbé; après tout, une telle arme n'était faite que de restrictions. Tant qu'elle n'avait pas brisé la formation, il n'avait aucune surprise. La seule façon pour elle d'y parvenir aurait été que la formation soit exposée et dépourvue de toute défense au moment de l'impact.
 
-La véritable raison pour laquelle Wang Lin avait lancé cette lance était que sa déduction touchait à son terme ; il pouvait briser la formation à tout instant.
+La véritable raison pour laquelle Wang Lin avait lancé cette lance était que sa déduction touchait à son terme; il pouvait briser la formation à tout instant.
 
 La lance de restrictions était brisée et il se trouvait piégé dans cette cage de lumière verte d'un rayon de 10 000 pieds, mais son expression resta imperturbable.
 
-Dans l'esprit de Wang Lin, la déduction continuait de converger vers une solution !
+Dans l'esprit de Wang Lin, la déduction continuait de converger vers une solution!
 
 Le rire glacial d'Ouyang Hua retentit depuis l'intérieur de la vallée.
 
-« Étranger, que penses-tu de la formation de mon clan ? Il n'est pas trop tard pour fuir. Brise-toi un bras et une jambe, puis révèle ton âme d'origine pour que la formation l'absorbe trois fois, et alors je te laisserai partir ! »
+« Étranger, que penses-tu de la formation de mon clan? Il n'est pas trop tard pour fuir. Brise-toi un bras et une jambe, puis révèle ton âme d'origine pour que la formation l'absorbe trois fois, et alors je te laisserai partir! »
 
 Wang Lin leva la tête vers la vallée. Soudain, des ombres de symboles apparurent dans ses yeux, avant de s'y rassembler rapidement.
 
-« Le 83e ! C'est déjà la limite, mais cela devrait suffire à briser cette formation ! » À cet instant, la déduction de Wang Lin trouva sa résolution.
+« Le 83e! C'est déjà la limite, mais cela devrait suffire à briser cette formation! » À cet instant, la déduction de Wang Lin trouva sa résolution.
 
-Ses yeux brillaient d'un feu fantomatique semblable aux flammes des enfers, capable de faire trembler quiconque croiserait son regard. Il fixa la vallée et déclara froidement : « Impudent, tu oses proférer des paroles aussi arrogantes ! »
+Ses yeux brillaient d'un feu fantomatique semblable aux flammes des enfers, capable de faire trembler quiconque croiserait son regard. Il fixa la vallée et déclara froidement: « Impudent, tu oses proférer des paroles aussi arrogantes! »
 
-Le rire dément d'Ouyang Hua s'éleva de la vallée. « Ah vraiment ? Alors laisse ce vieil homme te montrer qui est le véritable impudent ici ! Figure verte, tue et collecte ! »
+Le rire dément d'Ouyang Hua s'éleva de la vallée. « Ah vraiment? Alors laisse ce vieil homme te montrer qui est le véritable impudent ici! Figure verte, tue et collecte! »
 
 Aussitôt dit, la cage verte entourant la vallée commença à se contracter à une vitesse inimaginable. En un clin d'œil, elle n'était plus qu'à quelques dizaines de pieds de Wang Lin.
 
-Tout cela s'était produit dans le temps d'un seul battement de paupière !
+Tout cela s'était produit dans le temps d'un seul battement de paupière!
 
-« Étranger, tu deviendras la deuxième ombre démoniaque de ma vallée ! » La voix d'Ouyang Hua, émanant des profondeurs de la vallée, était imprégnée d'une cruelle soif de sang.
+« Étranger, tu deviendras la deuxième ombre démoniaque de ma vallée! » La voix d'Ouyang Hua, émanant des profondeurs de la vallée, était imprégnée d'une cruelle soif de sang.
 
 Le corps de Wang Lin ne bougea pas, mais à cet instant précis, des symboles fulgurèrent dans ses yeux. À chaque éclat, une lueur spectrale s'en échappait.
 
@@ -102,9 +102,9 @@ Les yeux de Wang Lin brillèrent à nouveau et dix symboles de restriction compl
 
 Le crépitement provenant de la cage devint plus intense. Cette fois, des lignes semblables à des fissures se propagèrent lentement sur la structure, produisant une série de craquements.
 
-« 30 ensembles de symboles de restriction ! » Les yeux de Wang Lin scintillèrent de nouveau, et cette fois, trente symboles apparurent avant de fusionner rapidement dans le néant.
+« 30 ensembles de symboles de restriction! » Les yeux de Wang Lin scintillèrent de nouveau, et cette fois, trente symboles apparurent avant de fusionner rapidement dans le néant.
 
-La cage de lumière verte qui se trouvait à moins de neuf mètres de lui s'effondra instantanément ! Elle se mua en d'innombrables étincelles semblables à un ciel étoilé, offrant un spectacle d'un grand mystère.
+La cage de lumière verte qui se trouvait à moins de neuf mètres de lui s'effondra instantanément! Elle se mua en d'innombrables étincelles semblables à un ciel étoilé, offrant un spectacle d'un grand mystère.
 
 L'expression de Wang Lin demeura sereine tandis qu'il contemplait la vallée. Simultanément, les étranges ensembles de symboles continuaient de clignoter dans son regard.
 
@@ -124,7 +124,7 @@ Le regard de Wang Lin était aussi vif que l'éclair alors qu'il levait le pied 
 
 À chacun de ses pas, de nouvelles lueurs vertes surgissaient dans la vallée. Ces lumières se rassemblèrent pour former un immense pilier qui s'abattit sur lui.
 
-L'expression de Wang Lin resta imperturbable ; il ne ralentit nullement sa marche !
+L'expression de Wang Lin resta imperturbable; il ne ralentit nullement sa marche!
 
 Le pilier de lumière verte s'écrasa vers lui, mais lorsqu'il fut à dix pas de distance, une multitude de symboles de restriction apparut soudainement entre l'homme et le projectile.
 
@@ -134,4 +134,4 @@ Tandis qu'il progressait, le pilier de lumière reculait rapidement, continuant 
 
 Lorsque Wang Lin ne fut plus qu'à dix pas de la vallée, le pilier de lumière verte se dissipe complètement. Au même instant, la vallée trembla violemment, comme si sa force protectrice s'évaporait brusquement.
 
-« Céleste, ayez pitié, ayez pitié... Ouyang Hua reconnaît ses torts ! » La voix d'Ouyang Hua s'éleva immédiatement de l'intérieur de la vallée.
+« Céleste, ayez pitié, ayez pitié... Ouyang Hua reconnaît ses torts! » La voix d'Ouyang Hua s'éleva immédiatement de l'intérieur de la vallée.

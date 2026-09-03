@@ -8,7 +8,7 @@ slug: la-cause-karmique-du-secte-de-laffinement-de-lame
 ---
 À cette époque, une multitude d'érudits venus des villages, des bourgs et des cités de tout le pays de Zhao se rendaient à la capitale pour l'examen impérial. Certains voyageaient seuls, comme Wang Lin, d'autres en groupes de trois ou cinq, se dirigeant vers les quarante-neuf capitales provinciales. Ce n'est qu'après avoir réussi cet examen qu'ils pourraient se rendre dans la ville de Su pour passer le second concours.
 
-La ville de Su était devenue célèbre grâce à un seul homme : Su Dao, le premier érudit du pays de Zhao. Son existence même avait fait de la ville de Su la capitale intellectuelle du pays.
+La ville de Su était devenue célèbre grâce à un seul homme: Su Dao, le premier érudit du pays de Zhao. Son existence même avait fait de la ville de Su la capitale intellectuelle du pays.
 
 L'étudiant qui se distinguerait le plus lors de l'examen de la ville de Su deviendrait l'Élu Su. Tous les Élus Su rejoindraient alors la capitale de Zhao, où ils s'envoleraient vers les cieux ou disparaîtraient dans l'ombre.
 
@@ -32,11 +32,11 @@ Bien qu'il fît nuit tombante, la ville était encore animée. Les rues grouilla
 
 Voyant le ciel s'obscurcir davantage, l'inquiétude gagna Wang Lin. Heureusement, la dernière auberge disposait d'une ultime chambre vacante. Bien que le prix fût élevé, le tonnerre commença à gronder dans les cieux. La pluie, qui s'était arrêtée, semblait sur le point de revenir. Wang Lin serra les dents et ordonna à Grande Fortune de sortir l'argent.
 
-Grande Fortune sortit l'argent qu'il gardait pour Wang Lin. Son cœur se serra en puisant dans ses économies ; il tendit les pièces à contrecœur en marmonnant pour lui-même :
+Grande Fortune sortit l'argent qu'il gardait pour Wang Lin. Son cœur se serra en puisant dans ses économies; il tendit les pièces à contrecœur en marmonnant pour lui-même:
 
 « Pas beaucoup d'argent... Ça fait mal au cœur... J'ai l'impression d'avoir déjà vécu cela, je sais que l'argent est crucial... »
 
-Tout en bredouillant, le serveur jeta un regard méprisant à Wang Lin et à l'homme d'âge mûr. Il les conduisit avec nonchalance à leur chambre. Il avait vu passer bien des érudits de ce genre : certains généreux, d'autres aussi indigents que Wang Lin.
+Tout en bredouillant, le serveur jeta un regard méprisant à Wang Lin et à l'homme d'âge mûr. Il les conduisit avec nonchalance à leur chambre. Il avait vu passer bien des érudits de ce genre: certains généreux, d'autres aussi indigents que Wang Lin.
 
 Wang Lin possédait une personnalité simple. Bien qu'il eût remarqué le dédain du serveur, il n'y prêta aucune importance.
 
@@ -68,7 +68,7 @@ Semblant percevoir le regard de Wang Lin, l'oiseau blanc tourna ses yeux vers lu
 
 Le tonnerre devint plus intense encore et les éclairs crépitaient sans interruption. Tandis que le ciel scintillait sous les décharges électriques, l'esprit de Wang Lin fut secoué. Il resta immobile, sentant des pensées s'assembler lentement dans son esprit. Ces pensées finirent par se transformer en une voix indistincte.
 
-Cette voix, empreinte de confusion et d'une antiquité profonde, résonna au plus profond de lui :
+Cette voix, empreinte de confusion et d'une antiquité profonde, résonna au plus profond de lui:
 
 « Karma... Qu'est-ce que le karma... Le karma, qu'est-ce que c'est... »
 
@@ -78,7 +78,7 @@ L'oiseau battit des ailes et se mua en un rayon de lumière qui fonça vers Wang
 
 Wang Lin le fixa longuement.
 
-Il murmura : « Est-ce toi qui me parles... »
+Il murmura: « Est-ce toi qui me parles... »
 
 « Le karma, qu'est-ce que c'est... » La confusion se lisait dans les yeux de Wang Lin. L'oiseau lui lança un regard profond avant de s'envoler. Il décrivit quelques cercles dans le ciel avant de pousser un cri et de disparaître dans les nuages sombres.
 
@@ -86,7 +86,7 @@ Bien que l'oiseau fût parti, le tonnerre continuait de gronder. Alors que les g
 
 À ce geste, un éclair jaillit dans son œil droit. Tandis que la marque scintillait, le tonnerre cessa brusquement. C'était comme si une volonté, supérieure au tonnerre lui-même, l'avait ordonné.
 
-C'était comme si cette volonté était le Roi du Tonnerre et pouvait commander aux tempêtes infinies. Si elle ordonnait au tonnerre de se retirer, il devait obéir ! Même les éclairs incessants semblèrent s'éteindre sous ce simple geste du doigt.
+C'était comme si cette volonté était le Roi du Tonnerre et pouvait commander aux tempêtes infinies. Si elle ordonnait au tonnerre de se retirer, il devait obéir! Même les éclairs incessants semblèrent s'éteindre sous ce simple geste du doigt.
 
 Le vent lui-même s'effondra devant ce doigt et fut repoussé. La pluie suivit, comme si elle possédait une âme et qu'elle était terrifiée. En un clin d'œil, l'averse cessa.
 
@@ -94,17 +94,17 @@ Toutefois, seule la pluie au-dessus de la ville s'était arrêtée. Sous la pres
 
 Dans le ciel de Zhao, des cultivateurs volaient, parmi lesquels Wang Zhuo, Xu Fei, Zhou Rui et leurs compagnons. Ils survolaient la pluie, mais furent tous saisis d'effroi à cet instant. Devant eux, un vieil homme apparut. Ce dernier se retourna, et une stupeur infinie envahit ses yeux.
 
-« Cette aura... Par les dieux, quel est donc son niveau de cultivation ?! »
+« Cette aura... Par les dieux, quel est donc son niveau de culture?! »
 
-À l'autre extrémité du pays de Zhao, deux rayons de lumière apparurent lorsque les nuages se dissipèrent, révélant un homme et une femme. La femme était Liu Mei. Son visage était pâle et elle regardait en arrière avec confusion. L'expression de l'homme à ses côtés changea radicalement ; il faillit pousser un cri d'incrédulité.
+À l'autre extrémité du pays de Zhao, deux rayons de lumière apparurent lorsque les nuages se dissipèrent, révélant un homme et une femme. La femme était Liu Mei. Son visage était pâle et elle regardait en arrière avec confusion. L'expression de l'homme à ses côtés changea radicalement; il faillit pousser un cri d'incrédulité.
 
-Également dans le pays de Zhao, dans la ville de Teng, le monstre Nascent Soul de la famille Teng, Teng Huayuan, était en pleine cultivation. À cet instant, il ouvrit les yeux, saisi par une sensation terrifiante.
+Également dans le pays de Zhao, dans la ville de Teng, le monstre Nascent Soul de la famille Teng, Teng Huayuan, était en pleine culture. À cet instant, il ouvrit les yeux, saisi par une sensation terrifiante.
 
 Au sommet de la Secte Heng Yue, un vieil homme en robe jaune contemplait le ciel, le sourcil froncé. Il s'agissait de Huang Long, dont l'expression était devenue extrêmement grave. Sa main continuait de tracer des sceaux jusqu'à ce qu'elle se mette à trembler et que le sang ne perle de ses ongles. Ses yeux brillaient d'une lueur étrange, comme s'il n'osait croire à ce qu'il percevait.
 
-« C'est... Comment est-ce possible ?! »
+« C'est... Comment est-ce possible?! »
 
-Dans un lieu lointain sur la planète Suzaku, se trouvait une secte puissante, capable de dominer tous les pays de rang 5. Cette secte était peuplée d'âmes et le hurlement des spectres y résonnait sans cesse. De loin, elle ressemblait à un drapeau géant !
+Dans un lieu lointain sur la planète Suzaku, se trouvait une secte puissante, capable de dominer tous les pays de rang 5. Cette secte était peuplée d'âmes et le hurlement des spectres y résonnait sans cesse. De loin, elle ressemblait à un drapeau géant!
 
 Un homme était assis au milieu de ce ciel chargé d'âmes. C'était un homme d'âge mûr, le frère aîné de Dun Tian.
 

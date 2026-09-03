@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 753 - There was no Answer
 slug: il-ny-avait-pas-de-reponse
 ---
-La flamme rouge fut complètement absorbée par la statue au moment où Li Yuan se retourna. De plus en plus de fissures apparurent, laissant jaillir des rayons de lumière rouge. Cette lueur portait l'odeur du sang ; une odeur qui émanait de Ge Hong.
+La flamme rouge fut complètement absorbée par la statue au moment où Li Yuan se retourna. De plus en plus de fissures apparurent, laissant jaillir des rayons de lumière rouge. Cette lueur portait l'odeur du sang; une odeur qui émanait de Ge Hong.
 
 Ces lueurs rouges semblaient contenir une aura puissante et se propageaient vers le parchemin. Cependant, à cet instant, de nombreuses fissures s’ouvrirent également sous les yeux de la statue. Lorsque la lumière rouge s'en échappa, une illusion se produisit.
 
@@ -14,7 +14,7 @@ C'était comme si... la statue céleste pleurait deux traînées de sang...
 
 « Je... m'étais trompé... » Li Yuan fixa la statue de pierre en marmonnant, ses yeux empreints de confusion.
 
-Le regard de Wang Lin était glacial. Ce Li Yuan n'était pas dangereux en soi. Avec une cultivation au sommet du stade avancé de l'Ascendant, Wang Lin pourrait facilement l'emporter. Cependant, une aura puissante émanait de l'intérieur du corps de Li Yuan, et la source de cette puissance était l'empreinte d'esclave !
+Le regard de Wang Lin était glacial. Ce Li Yuan n'était pas dangereux en soi. Avec une culture au sommet du stade avancé de l'Ascendant, Wang Lin pourrait facilement l'emporter. Cependant, une aura puissante émanait de l'intérieur du corps de Li Yuan, et la source de cette puissance était l'empreinte d'esclave!
 
 C'était à cause de cette aura que cet homme dégageait toujours un air mystérieux.
 
@@ -22,7 +22,7 @@ Wang Lin se méfiait énormément de ce pouvoir. Il l'avait remarqué pour la pr
 
 À cet instant, Wang Lin s'était contenté de garder cela en mémoire. Ce n'est que lorsqu'il vit le regard de Ge Hong posé sur la statue avant sa mort que Wang Lin fut frappé par un éclair de compréhension, comme si la foudre l'avait transpercé.
 
-La famille Ge était la descendante des Célestes ! Quant à la famille Li, elle était peut-être réellement innocente. Tout cela n'était dû qu'au fait que leurs ancêtres avaient osé pénétrer dans ce lieu et avaient reçu l'empreinte d'esclave, causant ainsi le déclin de toute leur lignée. Pendant des générations, les membres de la famille avaient sacrifié leur cultivation et leur espérance de vie pour permettre lentement à cette âme céleste indestructible de se rétablir.
+La famille Ge était la descendante des Célestes! Quant à la famille Li, elle était peut-être réellement innocente. Tout cela n'était dû qu'au fait que leurs ancêtres avaient osé pénétrer dans ce lieu et avaient reçu l'empreinte d'esclave, causant ainsi le déclin de toute leur lignée. Pendant des générations, les membres de la famille avaient sacrifié leur culture et leur espérance de vie pour permettre lentement à cette âme céleste indestructible de se rétablir.
 
 La famille Li avait peut-être réellement voulu se rebeller, mais il était évident qu'elle avait échoué à chaque tentative. Ce n'est que l'ancêtre de la famille Li, il y a des dizaines de milliers d'années, qui avait eu une chance. Cependant, l'empreinte d'esclave, qui avait nourri son maître pendant des millénaires, avait accumulé suffisamment d'énergie pour que l'âme cachée à l'intérieur s'éveille. C'est ainsi que l'ancêtre talentueux de la famille Li était apparu.
 
@@ -30,11 +30,11 @@ En conséquence, lorsque l'ancêtre Li avait déclaré qu'il libérait la famill
 
 Wang Lin avait sincèrement pensé que l'échec d'il y a des dizaines de milliers d'années était dû à un problème concernant la famille Ge. Cependant, ce n'est qu'en réfléchissant à la raison pour laquelle Li Yuan avait dû le chercher qu'il parvint à une conclusion différente.
 
-Les préparatifs de Li Yuan étaient très probablement achevés ; il ne pouvait pas avoir prévu de le rencontrer avant d'entrer dans le Royaume Céleste. Lorsque Wang Lin vit la statue de pierre et comprit le karma liant les familles Li et Ge, il comprit soudainement tout.
+Les préparatifs de Li Yuan étaient très probablement achevés; il ne pouvait pas avoir prévu de le rencontrer avant d'entrer dans le Royaume Céleste. Lorsque Wang Lin vit la statue de pierre et comprit le karma liant les familles Li et Ge, il comprit soudainement tout.
 
 C'était parce que Li Yuan avait vu le Fouet Karmique lorsqu'il l'avait utilisé lors du combat contre le cultivateur Yin Illusoire. C'est pour cette raison que Li Yuan l'avait choisi.
 
-Le Fouet Karmique affecte le karma !
+Le Fouet Karmique affecte le karma!
 
 L'échec d'il y a des dizaines de milliers d'années n'était pas dû au serviteur, aux trésors ou à la famille Ge. C'était parce que le Céleste refusait d'être ressuscité de cette manière. Le Céleste ne voulait pas payer le prix de la vie de tous ses descendants pour libérer son âme scellée.
 
@@ -42,11 +42,11 @@ On pouvait imaginer que le sang de Ge Hong n'était pas suffisant pour la résur
 
 La cause karmique était la résurrection de la statue céleste. L'effet karmique était la levée de la résistance de l'âme céleste.
 
-Mais comment l'âme d'un Céleste pouvait-elle être si simple ? Si Wang Lin avait utilisé le Fouet Karmique, il aurait lui-même été entraîné dans ce cycle, et même lui ne savait pas s'il en aurait survécu.
+Mais comment l'âme d'un Céleste pouvait-elle être si simple? Si Wang Lin avait utilisé le Fouet Karmique, il aurait lui-même été entraîné dans ce cycle, et même lui ne savait pas s'il en aurait survécu.
 
 Si Wang Lin n'était pas apparu, Li Yuan aurait utilisé d'autres méthodes après son premier échec. Cependant, même Li Yuan n'était pas certain de leur réussite, ce qui explique pourquoi il affirmait avoir 70 % de chances de succès, et 90 % s'il possédait le Fouet Karmique.
 
-Wang Lin osa spéculer que ce Li Yuan possédait également un trésor lié au karma dans son sac !
+Wang Lin osa spéculer que ce Li Yuan possédait également un trésor lié au karma dans son sac!
 
 Cela expliquerait pourquoi, après l'échec d'il y a des dizaines de milliers d'années, la famille Ge avait utilisé diverses méthodes pour conserver les trois trésors. Au lieu de les cacher, ils avaient fait part de la situation à tout le clan.
 
@@ -64,7 +64,7 @@ Après avoir compris tout cela, Wang Lin resta à l'intérieur du Tableau Montag
 
 Il trouva ce Li Yuan quelque peu pitoyable.
 
-Il était un serviteur si loyal qu'il était prêt à tout pour que son maître puisse renaître !
+Il était un serviteur si loyal qu'il était prêt à tout pour que son maître puisse renaître!
 
 Tout comme l'image qu'il avait vue à travers l'illusion de la statue. Lorsque le maître mourut, le serviteur, debout au bout de l'épée, se retourna avec des yeux vides et tristes.
 
@@ -84,7 +84,7 @@ Wang Lin, immobile dans le Tableau Montagne et Rivière, observait la scène en 
 
 « C'est à cause d'une paranoïa extrême qu'il s'est égaré. Après le premier échec il y a des dizaines de milliers d'années, sa conviction était instable. Maintenant qu'il a échoué une seconde fois, sa foi s'est effondrée. »
 
-Les fissures se multiplièrent sur la statue ; même l'épée de pierre sur laquelle reposait le serviteur était criblée de cassures. Une lumière rouge jaillit des fentes et colora la moitié du ciel.
+Les fissures se multiplièrent sur la statue; même l'épée de pierre sur laquelle reposait le serviteur était criblée de cassures. Une lumière rouge jaillit des fentes et colora la moitié du ciel.
 
 La pierre libéra une lueur rouge toujours plus intense qui s'étira lentement vers l'extérieur pour être absorbée par le parchemin.
 
@@ -94,9 +94,9 @@ Finalement, les rayons rouges semblèrent se lier entre eux pour être violemmen
 
 « Maître... »
 
-De plus en plus de lumière rouge apparut, mais aucune ne s'échappa ; tout fut absorbé par le parchemin. La lueur de la statue faiblit progressivement, comme si elle avait été entièrement libérée.
+De plus en plus de lumière rouge apparut, mais aucune ne s'échappa; tout fut absorbé par le parchemin. La lueur de la statue faiblit progressivement, comme si elle avait été entièrement libérée.
 
-Enfin, lorsque le dernier rayon de lumière quitta la statue pour entrer dans le parchemin, l'œuvre entière trembla. C'était comme si elle avait perdu son âme et toute trace d'intelligence ; elle paraissait désormais tout à fait ordinaire.
+Enfin, lorsque le dernier rayon de lumière quitta la statue pour entrer dans le parchemin, l'œuvre entière trembla. C'était comme si elle avait perdu son âme et toute trace d'intelligence; elle paraissait désormais tout à fait ordinaire.
 
 Le parchemin qui avait absorbé toute cette lumière émit un éclat fulgurant. Une flamme apparut au coin du document et grandit lentement. Le parchemin commença à brûler par les bords.
 
@@ -118,7 +118,7 @@ Une légère fumée oscillait près de la garde. Il était difficile de dire s'i
 
 La silhouette sur la garde de l'épée s'éleva dans les airs et agita doucement la main, appelant Li Yuan.
 
-Li Yuan, qui se tenait au sol, fut pris d'un tremblement immédiat. Une rune complexe apparut sur son front : c'était l'empreinte d'esclave. Tandis que l'empreinte vacillait, l'âme résiduelle qu'elle contenait s'échappa vers le ciel pour atterrir au bout de l'épée.
+Li Yuan, qui se tenait au sol, fut pris d'un tremblement immédiat. Une rune complexe apparut sur son front: c'était l'empreinte d'esclave. Tandis que l'empreinte vacillait, l'âme résiduelle qu'elle contenait s'échappa vers le ciel pour atterrir au bout de l'épée.
 
 La fumée verte s'élança dans les airs et disparut sans laisser de trace.
 

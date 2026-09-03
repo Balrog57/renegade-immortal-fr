@@ -14,37 +14,37 @@ Sur le dos de la créature se tenait un homme. Ses longs cheveux flottaient avec
 
 Cet homme n'était autre que Wang Lin.
 
-Le moustique s'approchait lentement d'une ville en contrebas : la capitale mortelle du pays de Zhou.
+Le moustique s'approchait lentement d'une ville en contrebas: la capitale mortelle du pays de Zhou.
 
-La cité était parsemée de bâtiments imposants et une rivière la traversait de part en part, du nord au sud. De nombreux bateaux naviguaient sur le cours d'eau ; bien qu'il fût trois heures du matin, des lueurs émanaient des embarcations et les éclats de rire des femmes s'en échappaient, conférant à l'endroit une atmosphère encore plus luxueuse.
+La cité était parsemée de bâtiments imposants et une rivière la traversait de part en part, du nord au sud. De nombreux bateaux naviguaient sur le cours d'eau; bien qu'il fût trois heures du matin, des lueurs émanaient des embarcations et les éclats de rire des femmes s'en échappaient, conférant à l'endroit une atmosphère encore plus luxueuse.
 
 Wang Lin observa ces bateaux et ordonna au moustique de descendre. La bête plana silencieusement au-dessus de la rivière, telle une divinité passant en revue ses domaines.
 
 Sur l'un des bateaux, un riche ivrogne sortit la tête pour prendre un peu l'air lorsqu'il aperçut l'ombre de la bête. En un instant, l'alcool qui coulait dans ses veines s'évapora sous le coup de la stupeur. Il lui fallut un long moment pour reprendre ses esprits, persuadé qu'il avait trop bu et qu'il était en proie à des hallucinations.
 
-À l'est de la ville, un palais fastueux résonnait de chants joyeux et de festivités. Depuis le dos du moustique, Wang Lin déclara : « Situ, il est temps de partir ! »
+À l'est de la ville, un palais fastueux résonnait de chants joyeux et de festivités. Depuis le dos du moustique, Wang Lin déclara: « Situ, il est temps de partir! »
 
-Aussitôt, tout bruit cessa. Les chants s'éteignirent au palais ; c'était comme si le temps s'était figé pour tous les habitants.
+Aussitôt, tout bruit cessa. Les chants s'éteignirent au palais; c'était comme si le temps s'était figé pour tous les habitants.
 
-Un jeune garçon vêtu d'une robe violette apparut. Un air de regret étanchait sur son visage tandis qu'il soupirait : « Ce vieil homme n'a pas encore assez profité de la vie. Cultiver, cultiver... à quoi bon cultiver, quelle foutaise ! Ma vie de roi est bien préférable ; je peux faire ce que je veux et nul n'ose m'offenser ! »
+Un jeune garçon vêtu d'une robe violette apparut. Un air de regret étanchait sur son visage tandis qu'il soupirait: « Ce vieil homme n'a pas encore assez profité de la vie. Cultiver, cultiver... à quoi bon cultiver, quelle foutaise! Ma vie de roi est bien préférable; je peux faire ce que je veux et nul n'ose m'offenser! »
 
-Wang Lin leva les yeux vers la lune et dit d'une voix lente : « Nous devons partir. »
+Wang Lin leva les yeux vers la lune et dit d'une voix lente: « Nous devons partir. »
 
 « Attends un instant. Le petit roi de ce pays a été plutôt aimable envers moi, laisse-moi le récompenser. » Sur ces mots, Situ Nan disparut.
 
-Une demi-heure plus tard, la silhouette de Situ Nan réapparut soudainement aux côtés de Wang Lin dans un éclat de rire : « Allons-y ! Il est temps de quitter la planète Suzaku !!! »
+Une demi-heure plus tard, la silhouette de Situ Nan réapparut soudainement aux côtés de Wang Lin dans un éclat de rire: « Allons-y! Il est temps de quitter la planète Suzaku!!! »
 
 Il sauta sur le dos du moustique. La bête, déjà terrifiée par lui, poussa un cri et s'élança vers les cieux avant de disparaître à l'horizon.
 
-Le moustique vola de plus en plus vite jusqu'à atteindre la limite de la première couche de l'atmosphère planétaire. Une fois cette barrière franchie, on pouvait quitter la planète Suzaku !
+Le moustique vola de plus en plus vite jusqu'à atteindre la limite de la première couche de l'atmosphère planétaire. Une fois cette barrière franchie, on pouvait quitter la planète Suzaku!
 
 Lorsqu'ils atteignirent une certaine altitude, Wang Lin rangea le moustique. Il se transforma alors en une météore fendant l'atmosphère. Situ Nan, étant plus rapide encore, prit même de l'avance sur lui.
 
-La pression atmosphérique s'abattit sur eux, créant une force de résistance colossale, comme si une montagne gigantesque pesait sur leurs épaules. Situ Nan éclata de rire et hurla : « Écartez-vous pour ce vieil homme ! »
+La pression atmosphérique s'abattit sur eux, créant une force de résistance colossale, comme si une montagne gigantesque pesait sur leurs épaules. Situ Nan éclata de rire et hurla: « Écartez-vous pour ce vieil homme! »
 
 Dans un rugissement, l'atmosphère sembla être déchirée par une paire de mains géantes. Les strates gazeuses furent repoussées, ouvrant un tunnel de passage.
 
-L'atmosphère est normalement invisible et ne se ressent que par le contact physique ; pourtant, à cet instant, une ondulation se propageait dans les airs, faisant le tour de la planète entière.
+L'atmosphère est normalement invisible et ne se ressent que par le contact physique; pourtant, à cet instant, une ondulation se propageait dans les airs, faisant le tour de la planète entière.
 
 À ce moment précis, qu'ils fussent mortels ou cultivateurs, tous levèrent les yeux vers le ciel.
 
@@ -52,17 +52,17 @@ De leur point de vue, le firmament s'embrasa soudainement de couleurs, baignant 
 
 Au sommet du mont Suzaku, Zhou Wutai contemplait le spectacle avec un air de regret.
 
-Derrière lui se tenaient plusieurs individus : les messagers nouvellement nommés du mont Suzaku, chargés d'exécuter chacun de ses ordres.
+Derrière lui se tenaient plusieurs individus: les messagers nouvellement nommés du mont Suzaku, chargés d'exécuter chacun de ses ordres.
 
-Zhou Wutai murmura pour lui-même : « Frère Wang, que ton voyage soit sans encombre ! » Des souvenirs de son temps passé avec Wang Lin traversèrent son esprit : leur rencontre due à un petit prince du monde mortel, la destruction de l'Alliance des Quatre Sectes, et enfin le moment où Wang Lin avait refusé le titre de Suzaku pour le lui céder.
+Zhou Wutai murmura pour lui-même: « Frère Wang, que ton voyage soit sans encombre! » Des souvenirs de son temps passé avec Wang Lin traversèrent son esprit: leur rencontre due à un petit prince du monde mortel, la destruction de l'Alliance des Quatre Sectes, et enfin le moment où Wang Lin avait refusé le titre de Suzaku pour le lui céder.
 
 En se remémorant tout cela, Zhou Wutai entra dans un état de rêverie. Le temps passe, les choses changent sans cesse... c'est ainsi depuis toujours.
 
 Dans la région de Zhao, tous les membres de la famille Wang levèrent la tête vers le ciel. Wang Zhuo soupira en observant l'horizon.
 
-À ses côtés se tenait un beau adolescent d'environ quatorze ou quinze ans. Il se tourna vers Wang Zhuo et demanda : « Grand-père ancêtre, est-ce l'autre grand-père ancêtre que l'on voit là-haut ? »
+À ses côtés se tenait un beau adolescent d'environ quatorze ou quinze ans. Il se tourna vers Wang Zhuo et demanda: « Grand-père ancêtre, est-ce l'autre grand-père ancêtre que l'on voit là-haut? »
 
-Wang Zhuo lui caressa la tête et répondit : « Oui, c'est l'homme que je respecte le plus au monde : mon frère cadet. »
+Wang Zhuo lui caressa la tête et répondit: « Oui, c'est l'homme que je respecte le plus au monde: mon frère cadet. »
 
 Dans la jungle près de la vallée à Chu, un tigre immense et féroce venait de bondir sur un sanglier, l'abattant d'une seule morsure. Il projeta la proie derrière lui, vers les sept ou huit tigresses qui le suivaient.
 
@@ -82,15 +82,15 @@ Planète Suzaku, domaine du Clan Immortel Oublié.
 
 Yunque Zi était assis seul sur une haute montagne, les yeux rivés vers le ciel. Son visage paraissait très vieilli, plus encore qu'auparavant. Il avait subi de graves blessures dans la Tombe de Suzaku et, malgré un an de convalescence, il n'en avait que peu récupéré. Il sentait également sa fin approcher, une fatigue immense l'accablant.
 
-L'espérance de vie des membres du Clan Immortel Oublié était légèrement supérieure à celle des cultivateurs ; sans cela, avec le niveau de cultivation de Yunque Zi, il serait mort depuis longtemps.
+L'espérance de vie des membres du Clan Immortel Oublié était légèrement supérieure à celle des cultivateurs; sans cela, avec le niveau de culture de Yunque Zi, il serait mort depuis longtemps.
 
 « La jeune génération nous surpassera bientôt... » soupira-t-il après un long silence.
 
 Dans les terres du Clan Immortel Oublié, à cinq mille kilomètres de là, un jeune homme couvert de tatouages dorés scintillants contemplait le ciel avec mélancolie.
 
-« Frère Wang, vous souvenez-vous encore de moi... ? » Cet homme était le jeune maître du Clan Immortel Oublié. Son histoire était singulière : lors de la bataille pour le Cristal de Cultivation dans la Tombe de Suzaku, il n'avait pas pu atteindre l'objectif, mais il avait survécu.
+« Frère Wang, vous souvenez-vous encore de moi...? » Cet homme était le jeune maître du Clan Immortel Oublié. Son histoire était singulière: lors de la bataille pour le Cristal de Culture dans la Tombe de Suzaku, il n'avait pas pu atteindre l'objectif, mais il avait survécu.
 
-« Frère Wang, je quitte également la planète Suzaku. J'espère que nous aurons l'occasion de nous revoir un jour ! »
+« Frère Wang, je quitte également la planète Suzaku. J'espère que nous aurons l'occasion de nous revoir un jour! »
 
 À cet instant, tous les cultivateurs de la planète Suzaku ressentirent une fluctuation céleste. Sous leurs yeux ébahis, Wang Lin et Situ Nan percèrent l'atmosphère pour s'élancer dans le vide spatial.
 
@@ -100,4 +100,4 @@ Dans la Terre de l'Ancien Dieu, les rires démoniaques de Tuo Sen résonnaient e
 
 Dans la Mer des Démons, la rumeur de l'ordre d'exécution circulait toujours parmi les cultivateurs démoniaques, sans jamais s'éteindre...
 
-Une légende : un cultivateur nommé Wang Lin avait laissé son empreinte sur toute la planète Suzaku...
+Une légende: un cultivateur nommé Wang Lin avait laissé son empreinte sur toute la planète Suzaku...

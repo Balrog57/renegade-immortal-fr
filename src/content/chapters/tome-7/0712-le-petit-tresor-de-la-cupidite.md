@@ -42,11 +42,11 @@ Il se souvenait pourtant clairement que le liquide était trouble et ne contenai
 
 Wang Lin songea tout en s'enfonçant davantage. Après un temps indéterminé, il atteignit le filon métallique, qui constituait également l'os du Serpent Moongazer.
 
-Une flamme apparut, illuminant l'obscurité autour de l'os. Les yeux de Wang Lin se mirent à briller. C'était précisément l'objectif de sa venue !
+Une flamme apparut, illuminant l'obscurité autour de l'os. Les yeux de Wang Lin se mirent à briller. C'était précisément l'objectif de sa venue!
 
 Il posa la main droite sur l'os, prêt à l'absorber. Pourtant, il s'interrompit brusquement et commença à réfléchir.
 
-« Le fait qu'une personne ait pu provoquer un changement d'état chez le Serpent Moongazer signifie que sa cultivation est phénoménale. Si cette personne est déjà morte, ce ne sera pas un problème. Cependant, s'il se cache encore ou s'il est piégé ici, alors lorsque je prendrai l'os et libérerai les Fruits d'Ascension Céleste, il est fort probable qu'il surgisse ! Dans ce cas, cela introduira de trop nombreuses variables ! »
+« Le fait qu'une personne ait pu provoquer un changement d'état chez le Serpent Moongazer signifie que sa culture est phénoménale. Si cette personne est déjà morte, ce ne sera pas un problème. Cependant, s'il se cache encore ou s'il est piégé ici, alors lorsque je prendrai l'os et libérerai les Fruits d'Ascension Céleste, il est fort probable qu'il surgisse! Dans ce cas, cela introduira de trop nombreuses variables! »
 
 Wang Lin retira sa main. Après une courte réflexion, il se déplaça le long de l'os. Il décida d'explorer soigneusement la zone pour vérifier si d'autres cultivateurs rôdaient dans les parages.
 
@@ -72,7 +72,7 @@ Après réflexion, il retourna vers la faille, ses yeux suivant les traces du mu
 
 L'énergie spirituelle céleste apparut instantanément et un vent céleste se mit à souffler. Le mucus séché fondit immédiatement, révélant la profonde fissure sous-jacente.
 
-Au plus profond de cette faille reposait une montagne gigantesque !
+Au plus profond de cette faille reposait une montagne gigantesque!
 
 Le mucus masquait la vue jusqu'alors, c'est pourquoi Wang Lin ne l'avait pas remarquée. De plus, la montagne s'était presque totalement assimilée à l'os, rendant la distinction entre les deux quasi impossible.
 
@@ -80,25 +80,25 @@ En se déplaçant un instant plus tôt, Wang Lin avait remarqué que l'énergie 
 
 Tout en contemplant la montagne fusionnée avec l'os du Serpent Moongazer, l'éclat dans les yeux de Wang Lin s'estompa pour laisser place à une lueur mystérieuse.
 
-« Cupidité ! » lâcha Wang Lin, le visage sombre.
+« Cupidité! » lâcha Wang Lin, le visage sombre.
 
 Il avait déjà vu cette montagne. C'était le trésor dont Greed s'était emparé pour en extraire l'âme de la montagne.
 
-« Ils m'ont bel et bien poursuivi ! » Les yeux de Wang Lin brillèrent. Il n'était plus pressé d'extraire l'os du Serpent Moongazer.
+« Ils m'ont bel et bien poursuivi! » Les yeux de Wang Lin brillèrent. Il n'était plus pressé d'extraire l'os du Serpent Moongazer.
 
-« Je ne sais pas s'ils sont tous venus, ou seulement quelques-uns, ou si seul Greed est arrivé ! » Wang Lin se frotta le menton en fixant la montagne. Il avança et pénétra directement dans la fissure.
+« Je ne sais pas s'ils sont tous venus, ou seulement quelques-uns, ou si seul Greed est arrivé! » Wang Lin se frotta le menton en fixant la montagne. Il avança et pénétra directement dans la fissure.
 
 Les parois de l'os étaient irrégulières et la grande quantité de minerai métallique émettait une lueur rouge, créant un spectacle magnifique.
 
-« La formation des sept étoiles a été emportée par les tentacules et j'ignore où elle se trouve. Cependant, je ne peux pas abandonner cette montagne. Avec le statut et les habitudes de Greed, ses trésors ne peuvent être ordinaires ! » Une lueur étrange passa dans le regard de Wang Lin. Il inspecta soigneusement les environs avant d'atteindre la montagne.
+« La formation des sept étoiles a été emportée par les tentacules et j'ignore où elle se trouve. Cependant, je ne peux pas abandonner cette montagne. Avec le statut et les habitudes de Greed, ses trésors ne peuvent être ordinaires! » Une lueur étrange passa dans le regard de Wang Lin. Il inspecta soigneusement les environs avant d'atteindre la montagne.
 
 Le rebord de la montagne était déjà assimilé à l'os, rendant la séparation impossible. On pouvait clairement voir que du métal flamboyant apparaissait au sein de la montagne.
 
-« L'assimilation est très poussée, ce sera donc délicat. Je ne peux pas utiliser les Fruits d'Ascension Céleste pour le moment. » Wang Lin réfléchit un instant avant de former une lame avec ses deux doigts pour tester la dureté de la roche. La montagne était extrêmement résistante ; bien que son doigt fût imprégné d'énergie spirituelle céleste, il n'en laissa aucune trace. Ses yeux s'illuminèrent et il transféra une partie de l'énergie de l'épée de Ling Tianhou dans son doigt. Renonçant à tenter de prendre la montagne entière, il contourna la partie assimilée et frappa d'un coup sec.
+« L'assimilation est très poussée, ce sera donc délicat. Je ne peux pas utiliser les Fruits d'Ascension Céleste pour le moment. » Wang Lin réfléchit un instant avant de former une lame avec ses deux doigts pour tester la dureté de la roche. La montagne était extrêmement résistante; bien que son doigt fût imprégné d'énergie spirituelle céleste, il n'en laissa aucune trace. Ses yeux s'illuminèrent et il transféra une partie de l'énergie de l'épée de Ling Tianhou dans son doigt. Renonçant à tenter de prendre la montagne entière, il contourna la partie assimilée et frappa d'un coup sec.
 
 Une fissure apparut silencieusement sur la montagne avant de se propager lentement. Un léger craquement fut le seul signe de la séparation du côté proche de la montagne de l'os du Serpent Moongazer.
 
-La position choisie par Wang Lin était ingénieuse : en évitant totalement la partie assimilée, il n'avait pas provoqué le Serpent Moongazer.
+La position choisie par Wang Lin était ingénieuse: en évitant totalement la partie assimilée, il n'avait pas provoqué le Serpent Moongazer.
 
 Une fois de l'autre côté, Wang Lin l'examina avec soin et agita à nouveau ses doigts. Cette fois, il fut encore plus prudent, car ce côté de la montagne était bien plus fusionné que l'autre.
 
@@ -110,7 +110,7 @@ Il n'osa même pas déployer son sens divin. Sous cette aura glaciale, il avait 
 
 La sensation perdura et devint plus nette encore. Le regard de Wang Lin se fit glacial tandis que sa main droite saisissait la montagne extraite. Il chargea immédiatement et pointa sa main gauche derrière lui.
 
-Le sort d'Arrêt !
+Le sort d'Arrêt!
 
 Tout cela se produisit en un éclair, sans la moindre hésitation. Tandis que Wang Lin s'élançait, un rugissement retentit dans son dos.
 
@@ -120,11 +120,11 @@ Le petit Serpent Moongazer était immobilisé par le sort d'Arrêt, ce qui offri
 
 Wang Lin progressait à une vitesse fulgurante dans les profondeurs et était déjà loin. Cela ne faisait que renforcer sa conscience du danger mortel de ce lieu.
 
-« Combien de Serpents Moongazer y a-t-il ici ?! » L'expression de Wang Lin était sombre.
+« Combien de Serpents Moongazer y a-t-il ici?! » L'expression de Wang Lin était sombre.
 
 Ce qui l'effrayait le plus, c'était la nature extrêmement étrange de l'apparition du serpent. Il n'avait absolument pas senti sa présence approcher. Cela faisait longtemps qu'une telle surprise ne lui était arrivée.
 
-« Ce Serpent Moongazer est sous sa troisième forme. Ce maudit Greed, qu'a-t-il bien pu faire ? S'il s'était contenté de planter la montagne dans l'os du serpent, cela ne ressemblerait absolument pas à ça ! »
+« Ce Serpent Moongazer est sous sa troisième forme. Ce maudit Greed, qu'a-t-il bien pu faire? S'il s'était contenté de planter la montagne dans l'os du serpent, cela ne ressemblerait absolument pas à ça! »
 
 Soudain, Wang Lin s'arrêta en pleine fuite. Il sembla avoir eu une pensée soudaine, et son visage devint encore plus ténébreux.
 

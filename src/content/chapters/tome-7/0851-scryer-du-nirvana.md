@@ -6,9 +6,9 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 851 - Nirvana Scryer
 slug: scryer-du-nirvana
 ---
-Wang Lin ouvrit soudainement les yeux après sa cultivation. Son regard brillait d'une lueur intense et une fine couche de gaz noir, invisible à l'œil nu, l'entourait. À l'intérieur de son corps, son énergie originelle se transformait en gaz blanc et circulait à des vitesses plusieurs fois supérieures à la normale.
+Wang Lin ouvrit soudainement les yeux après sa culture. Son regard brillait d'une lueur intense et une fine couche de gaz noir, invisible à l'œil nu, l'entourait. À l'intérieur de son corps, son énergie originelle se transformait en gaz blanc et circulait à des vitesses plusieurs fois supérieures à la normale.
 
-Wang Lin murmura : « Le Dao entre dans le Dao ! » Après avoir atteint l'illumination, il n'était plus confus quant à son état actuel, mais pleinement conscient.
+Wang Lin murmura: « Le Dao entre dans le Dao! » Après avoir atteint l'illumination, il n'était plus confus quant à son état actuel, mais pleinement conscient.
 
 Il avait déjà expérimenté l'entrée du Dao dans son corps il y a longtemps, mais c'était au sein du domaine de la vie et de la mort. Désormais, il avait condensé le domaine karmique en une forme corporelle qui pénétrait son propre être.
 
@@ -16,11 +16,11 @@ Après avoir médité silencieusement un instant, Wang Lin se leva et, d'un simp
 
 D'un pas, Wang Lin s'éclipsa pour fusionner avec le monde. Lorsqu'il réapparut, il se trouvait parmi les étoiles. Sans s'attarder, il disparut de nouveau rapidement.
 
-« D'abord, je dois trouver Li Yuan et obtenir la restriction du cœur ! Si quiconque ose se mettre sur mon chemin, j'activerai la tribulation divine et emprunterai leur pouvoir pour m'aider à la surmonter ! » Les yeux de Wang Lin étaient glacials. Il avait déjà affronté la tribulation divine à plusieurs reprises et ne ressentait plus l'effroi qu'il éprouvait autrefois.
+« D'abord, je dois trouver Li Yuan et obtenir la restriction du cœur! Si quiconque ose se mettre sur mon chemin, j'activerai la tribulation divine et emprunterai leur pouvoir pour m'aider à la surmonter! » Les yeux de Wang Lin étaient glacials. Il avait déjà affronté la tribulation divine à plusieurs reprises et ne ressentait plus l'effroi qu'il éprouvait autrefois.
 
 À cet instant, il fusionna avec le monde et fonça vers le Domaine du Sud. La famille Li se trouvait dans le Domaine du Sud, sur la Planète de l'Annihilation.
 
-Wang Lin, fusionné avec le monde, se déplaçait à une vitesse incroyable en suivant la carte que lui avait donnée Li Yuan. Cependant, avec son niveau de cultivation, il ne pouvait maintenir cette fusion très longtemps. Chaque fois qu'il réapparaissait, il devait se reposer un moment.
+Wang Lin, fusionné avec le monde, se déplaçait à une vitesse incroyable en suivant la carte que lui avait donnée Li Yuan. Cependant, avec son niveau de culture, il ne pouvait maintenir cette fusion très longtemps. Chaque fois qu'il réapparaissait, il devait se reposer un moment.
 
 Malgré cela, sa vitesse surpassait de loin celle des cultivateurs incapables de fusionner avec le monde. Ce jour-là, lorsqu'il réapparut dans le Domaine du Sud et s'élança en avant, son expression changea soudainement alors qu'il s'apprêtait à nouveau à fusionner avec le monde.
 
@@ -28,29 +28,29 @@ Un puissant sentiment de crise envahit les environs. Le regard de Wang Lin se fi
 
 Il vit un nuage rouge emplir le lointain. En un instant, ce nuage se rassembla devant lui et prit la forme d'un homme d'âge mûr.
 
-« Es-tu Xu Mu ? » L'homme tenait un miroir dans sa main droite et fixait Wang Lin avec froideur.
+« Es-tu Xu Mu? » L'homme tenait un miroir dans sa main droite et fixait Wang Lin avec froideur.
 
-En voyant cet homme, Wang Lin le reconnut, mais resta silencieux. Au lieu de répondre, il fit un pas en arrière ; des ondulations apparurent sous ses pieds alors qu'il tentait de fusionner avec le monde.
+En voyant cet homme, Wang Lin le reconnut, mais resta silencieux. Au lieu de répondre, il fit un pas en arrière; des ondulations apparurent sous ses pieds alors qu'il tentait de fusionner avec le monde.
 
 Cependant, il dut s'arrêter immédiatement. L'espace environnant était verrouillé par une force mystérieuse, rendant toute fusion impossible. Wang Lin l'avait déjà pressenti à l'apparition de l'homme. Ayant désormais la confirmation, il ne paniqua pas et observa calmement son adversaire.
 
-L'expression de l'homme d'âge mûr était glaciale, et sa voix l'était plus encore : « Bien que je ne maîtrise pas la Distorsion Spatiale, je peux tout de même calculer votre position. Cet endroit a été préparé pour vous ! »
+L'expression de l'homme d'âge mûr était glaciale, et sa voix l'était plus encore: « Bien que je ne maîtrise pas la Distorsion Spatiale, je peux tout de même calculer votre position. Cet endroit a été préparé pour vous! »
 
 Il ne laissa même pas à Wang Lin le temps de répliquer. Dès qu'il eut parlé, le miroir de bronze dans sa main brilla et l'espace environnant disparut soudainement.
 
-Le décor se transforma en une surface semblable à un miroir !
+Le décor se transforma en une surface semblable à un miroir!
 
-« Rassemblement ! » Alors que l'homme lançait cet ordre d'un ton glacial, tout ce qui entourait Wang Lin s'effondra en d'innombrables fragments. D'un revers de manche, il aspira le tout dans le miroir de bronze qu'il tenait. Emportant son trophée, il disparut au loin.
+« Rassemblement! » Alors que l'homme lançait cet ordre d'un ton glacial, tout ce qui entourait Wang Lin s'effondra en d'innombrables fragments. D'un revers de manche, il aspira le tout dans le miroir de bronze qu'il tenait. Emportant son trophée, il disparut au loin.
 
-Tout cela se produisit en un éclair. Durant toute l'action, l'expression de l'homme n'avait pas changé ; c'était comme si capturer Wang Lin était pour lui une tâche d'une banalité absolue.
+Tout cela se produisit en un éclair. Durant toute l'action, l'expression de l'homme n'avait pas changé; c'était comme si capturer Wang Lin était pour lui une tâche d'une banalité absolue.
 
 Une aura brumeuse envahit les lieux lors de la réapparition de Wang Lin. Toute la zone était saturée de brouillard et une énergie brûlante émanait de toutes parts, comme s'il se trouvait dans un creuset céleste.
 
-Le regard de Wang Lin resta serein avant de se durcir. Il fit entrer en contact le gaz blanc à l'intérieur de son corps avec le gaz noir à l'extérieur. Les deux s'entrelacèrent pour former le symbole du Yin et du Yang, se mettant alors à tournoyer. À cet instant précis, la cultivation de Wang Lin franchit un nouveau palier !
+Le regard de Wang Lin resta serein avant de se durcir. Il fit entrer en contact le gaz blanc à l'intérieur de son corps avec le gaz noir à l'extérieur. Les deux s'entrelacèrent pour former le symbole du Yin et du Yang, se mettant alors à tournoyer. À cet instant précis, la culture de Wang Lin franchit un nouveau palier!
 
-Le stade Scruteur du Nirvana !
+Le stade Scryer du Nirvana!
 
-Un fracas assourdissant résonna dans cet espace brumeux alors que Wang Lin accédait au stade Scruteur du Nirvana. Son corps commença à flotter et ses cheveux s'agitèrent sans qu'aucun vent ne soufflât. Une aura puissante émanait de lui tandis que les flux du Yin et du Yang tournaient. Un vortex se forma, déchaîné autour de lui.
+Un fracas assourdissant résonna dans cet espace brumeux alors que Wang Lin accédait au stade Scryer du Nirvana. Son corps commença à flotter et ses cheveux s'agitèrent sans qu'aucun vent ne soufflât. Une aura puissante émanait de lui tandis que les flux du Yin et du Yang tournaient. Un vortex se forma, déchaîné autour de lui.
 
 D'immenses quantités de brume reculèrent sous cette tempête comme si elles étaient repoussées par une force invincible. Même l'énergie brûlante se dissipa, n'osant s'approcher de lui.
 
@@ -58,25 +58,25 @@ Les yeux de Wang Lin semblaient contenir le soleil et la lune. Le gaz noir et bl
 
 Un éclair de froideur traversa son regard alors qu'il levait la tête vers le ciel.
 
-Yao Yun progressait rapidement à travers l'espace, l'expression impassible. Soudain, son visage se décomposa en voyant une masse de nuages rouges s'accumuler. Ces nuages différaient radicalement de ceux qu'il avait sous ses pieds ; ils contenaient une puissance qui le terrifiait.
+Yao Yun progressait rapidement à travers l'espace, l'expression impassible. Soudain, son visage se décomposa en voyant une masse de nuages rouges s'accumuler. Ces nuages différaient radicalement de ceux qu'il avait sous ses pieds; ils contenaient une puissance qui le terrifiait.
 
-« Ceci... Ceci est un nuage de tribulation divine ! » Ses pupilles se rétractèrent brusquement. Il avait atteint le stade initial du Purificateur du Nirvana il y a des milliers d'années, mais pour une raison inconnue, sa cultivation avait régressé au milieu du stade Scruteur du Nirvana. Non seulement cela, mais il semblait avoir perdu la mémoire. En particulier, ses souvenirs de son départ de la Planète de Sang, des millénaires plus tôt, étaient totalement embrumés.
+« Ceci... Ceci est un nuage de tribulation divine! » Ses pupilles se rétractèrent brusquement. Il avait atteint le stade initial du Nettoyage du Nirvana il y a des milliers d'années, mais pour une raison inconnue, sa culture avait régressé au milieu du stade Scryer du Nirvana. Non seulement cela, mais il semblait avoir perdu la mémoire. En particulier, ses souvenirs de son départ de la Planète de Sang, des millénaires plus tôt, étaient totalement embrumés.
 
 Aussi s'efforçait-il, il ne parvenait à rien se remémorer.
 
 Il se souvenait vaguement qu'il avait commis un acte qui avait profondément irrité l'Ancêtre. Pourtant, finalement, ce dernier lui avait pardonné sans le punir.
 
-Depuis lors, sa conscience était souvent trouble et sa cultivation avait considérablement régressé au fil des millénaires. Si cela n'était que cela, ce ne serait pas si étrange, mais de temps à autre, une douleur fulgurante lui transperçait le crâne. C'était presque insupportable et cela déclenchait en lui une soif de sang démoniaque. S'il ne se maîtrisait pas, il se lançait dans des massacres sans fin.
+Depuis lors, sa conscience était souvent trouble et sa culture avait considérablement régressé au fil des millénaires. Si cela n'était que cela, ce ne serait pas si étrange, mais de temps à autre, une douleur fulgurante lui transperçait le crâne. C'était presque insupportable et cela déclenchait en lui une soif de sang démoniaque. S'il ne se maîtrisait pas, il se lançait dans des massacres sans fin.
 
-C'était comme si ce carnage était le seul moyen d'évacuer la douleur qui lui martelait la tête !
+C'était comme si ce carnage était le seul moyen d'évacuer la douleur qui lui martelait la tête!
 
-Au début, il parvenait à réprimer cet instinct grâce à sa cultivation. Cependant, avec le temps et la régression de ses pouvoirs, la douleur s'intensifiait. Il devenait de plus en plus difficile de contenir l'envie de massacrer toute forme de vie dans ce monde !
+Au début, il parvenait à réprimer cet instinct grâce à sa culture. Cependant, avec le temps et la régression de ses pouvoirs, la douleur s'intensifiait. Il devenait de plus en plus difficile de contenir l'envie de massacrer toute forme de vie dans ce monde!
 
 Il pressentait que cela était lié à une rencontre sur la Planète de Sang, mais malgré tous ses efforts, le souvenir lui échappait.
 
 Il avait un jour interrogé le Dieu de Sang, sans jamais obtenir de réponse.
 
-Se sentant impuissant, il s'était muré au sein de sa famille, s'adonnant à une cultivation en isolement pour stopper sa régression et tenter de retrouver ses souvenirs perdus. Cela dura jusqu'à récemment, quand il reçut l'ordre de l'Ancêtre de sortir pour éliminer un certain Xu Mu.
+Se sentant impuissant, il s'était muré au sein de sa famille, s'adonnant à une culture en isolement pour stopper sa régression et tenter de retrouver ses souvenirs perdus. Cela dura jusqu'à récemment, quand il reçut l'ordre de l'Ancêtre de sortir pour éliminer un certain Xu Mu.
 
 Il avait obtenu tous les détails sur cette cible auprès de l'Ancêtre afin de maîtriser la situation.
 
@@ -104,8 +104,8 @@ Une partie de la tribulation divine pénétra dans le miroir de bronze.
 
 Dans l'espace brumeux, Wang Lin était tel une épée dégainée. Il chargea vers le haut, porté par la rotation du gaz noir et blanc. La tempête générée par ces flux rugissait violemment autour de lui.
 
-« Tranchant Céleste ! » rugit Wang Lin. Le gaz noir et blanc à l'extérieur de son corps fusionna rapidement pour former un rayon d'énergie d'épée grise qui fut projeté !
+« Tranchant Céleste! » rugit Wang Lin. Le gaz noir et blanc à l'extérieur de son corps fusionna rapidement pour former un rayon d'énergie d'épée grise qui fut projeté!
 
-Boom ! Un fracas retentit alors que le miroir dans la main de Yao Yun volait en éclats. D'innombrables fragments furent projetés par la violence de l'impact.
+Boom! Un fracas retentit alors que le miroir dans la main de Yao Yun volait en éclats. D'innombrables fragments furent projetés par la violence de l'impact.
 
-La silhouette de Wang Lin émergea au moment même où le miroir se brisait !
+La silhouette de Wang Lin émergea au moment même où le miroir se brisait!

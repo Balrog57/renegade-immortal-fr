@@ -28,37 +28,37 @@ Tandis que Wang Lin calmait sa puissance du Dao Ancestral pour qu'aucune ne s'en
 
 À cet instant, Wang Lin lui parut être l'ancêtre des trois anciens clans, ce qui fit trembler son cœur.
 
-« Merci infiniment. Si je parviens à trouver la véritable porte, je vous aiderai certainement à quitter cet endroit ! » Wang Lin se leva et joignit les mains en signe de respect envers la femme.
+« Merci infiniment. Si je parviens à trouver la véritable porte, je vous aiderai certainement à quitter cet endroit! » Wang Lin se leva et joignit les mains en signe de respect envers la femme.
 
 La déesse ancienne hocha la tête sans prononcer un mot.
 
-« Qu'est-ce qui est scellé là-bas ? » demanda Wang Lin en désignant l'endroit où il ressentait cet appel.
+« Qu'est-ce qui est scellé là-bas? » demanda Wang Lin en désignant l'endroit où il ressentait cet appel.
 
-« C'est la montagne arrièrer du Secte Dong Ling, là où se trouve le Bassin de Dong Ling. Cependant, ce lieu n'a été créé qu'à partir des souvenirs du Maître ; il n'a donc aucun pouvoir réel », répondit la déesse ancienne avec un regard confus.
+« C'est la montagne arrièrer de la Secte Dong Ling, là où se trouve le Bassin de Dong Ling. Cependant, ce lieu n'a été créé qu'à partir des souvenirs du Maître; il n'a donc aucun pouvoir réel », répondit la déesse ancienne avec un regard confus.
 
 Les yeux de Wang Lin s'illuminèrent. Après une courte réflexion, il s'élança dans les airs.
 
-« Je vais aller vérifier par moi-même. Je vous remercie pour aujourd'hui. Je sais distinguer mes griefs de ma gratitude. Notre querelle passée est terminée, et je vous suis encore redevable. Je vous aiderai à quitter ce lieu ! » Wang Lin salua la déesse ancienne d'un geste de la main et s'envola vers la glace qui l'appelait.
+« Je vais aller vérifier par moi-même. Je vous remercie pour aujourd'hui. Je sais distinguer mes griefs de ma gratitude. Notre querelle passée est terminée, et je vous suis encore redevable. Je vous aiderai à quitter ce lieu! » Wang Lin salua la déesse ancienne d'un geste de la main et s'envola vers la glace qui l'appelait.
 
-La glace était entourée d'une énergie glaciale, mais cela n'arrêta pas Wang Lin. Ce froid n'avait d'effet que sur les autres ; pour lui, ce n'était qu'un terrain plat.
+La glace était entourée d'une énergie glaciale, mais cela n'arrêta pas Wang Lin. Ce froid n'avait d'effet que sur les autres; pour lui, ce n'était qu'un terrain plat.
 
-En traversant la glace, il ressentit tout de même une certaine fraîcheur. Cependant, il lui suffisait de faire circuler un peu de sa cultivation pour que cette sensation disparaisse.
+En traversant la glace, il ressentit tout de même une certaine fraîcheur. Cependant, il lui suffisait de faire circuler un peu de sa culture pour que cette sensation disparaisse.
 
-La glace agissait comme un miroir ; elle reflétait vaguement sa silhouette lors de ses mouvements, donnant l'impression qu'une ombre incertaine le suivait. Wang Lin n'y prêta qu'un bref regard et poursuivit sa route comme si de rien n'était.
+La glace agissait comme un miroir; elle reflétait vaguement sa silhouette lors de ses mouvements, donnant l'impression qu'une ombre incertaine le suivait. Wang Lin n'y prêta qu'un bref regard et poursuivit sa route comme si de rien n'était.
 
-L'espace était vaste, mais avec la vitesse de Wang Lin, il ne fallut que la moitié d'un bâton d'encens pour que l'appel devienne plus distinct. Il se trouvait à moins de 100 000 pieds !
+L'espace était vaste, mais avec la vitesse de Wang Lin, il ne fallut que la moitié d'un bâton d'encens pour que l'appel devienne plus distinct. Il se trouvait à moins de 100 000 pieds!
 
-Bien que ce monde fût scellé, Wang Lin pouvait voir qu'il s'agissait d'une haute montagne enveloppée de glace. Après avoir franchi la montagne, il aperçut un vaste bassin derrière elle !
+Bien que ce monde fût scellé, Wang Lin pouvait voir qu'il s'agissait d'une haute montagne enveloppée de glace. Après avoir franchi la montagne, il aperçut un vaste bassin derrière elle!
 
 Ce bassin ressemblait à un lac, mais il était lui aussi scellé. Une faible aura d'énergie céleste entourait l'eau.
 
 Les yeux de Wang Lin brillèrent et il avança prudemment. Un instant plus tard, il arriva au-dessus du bassin et regarda en bas. Ses pupilles se rétractèrent immédiatement.
 
-Bien que le bassin soit gelé, il était translucide. En observant attentivement depuis le haut, on pouvait voir quelque chose à l'intérieur !
+Bien que le bassin soit gelé, il était translucide. En observant attentivement depuis le haut, on pouvait voir quelque chose à l'intérieur!
 
-C'était un bras gigantesque, un bras gauche !
+C'était un bras gigantesque, un bras gauche!
 
-« Le bras gauche de Ye Mo ! » Wang Lin prit une profonde inspiration, les yeux brillants. Lorsqu'il était venu ici auparavant, il avait eu une intuition. Il pensait initialement qu'il s'agissait de l'œil gauche de Ye Mo, mais il ne s'attendait pas à ce que ce soit son bras gauche !
+« Le bras gauche de Ye Mo! » Wang Lin prit une profonde inspiration, les yeux brillants. Lorsqu'il était venu ici auparavant, il avait eu une intuition. Il pensait initialement qu'il s'agissait de l'œil gauche de Ye Mo, mais il ne s'attendait pas à ce que ce soit son bras gauche!
 
 « Après avoir fusionné avec le bras droit de Ye Mo, le Sort de Déchirement du Ciel pouvait déchirer des cultivateurs du troisième niveau... Si je fusionne avec le bras gauche et utilise ce même sort, sa puissance sera... » En pensant à cela, le cœur de Wang Lin se mit à battre la chamade.
 
@@ -82,27 +82,27 @@ Xuan Luo, les mains derrière le dos, flottait au-dessus du bassin. Il observait
 
 Impossible de pénétrer ou de briser cette couche. Wang Lin fronça les sourcils, laissa échapper un reniflement froid et contracta ses cinq doigts en griffe. La puissance du Dao Ancestral se concentra au bout de ses doigts, qui émettaient une lueur spectrale accompagnée d'une aura dense du Dao Ancestral.
 
-« Dao Ancestral Immortel ! » rugit Wang Lin alors que d'innombrables ombres superposées surgissaient de sa main droite. Des milliers d'ombres semblèrent apparaître et, au moment où elles fusionnèrent en une seule, la main droite de Wang Lin s'abattit sur la glace.
+« Dao Ancestral Immortel! » rugit Wang Lin alors que d'innombrables ombres superposées surgissaient de sa main droite. Des milliers d'ombres semblèrent apparaître et, au moment où elles fusionnèrent en une seule, la main droite de Wang Lin s'abattit sur la glace.
 
 Des grondements tonitruants résonnèrent à travers le monde. Tandis que la main de Wang Lin saisissait la glace, les innombrables ombres disparues réapparurent soudainement.
 
 Cette attaque était comme si Wang Lin frappait une multitude de fois simultanément. Armé du Dao Ancestral Immortel, il attaqua la glace en pleine régénération. Dans un rugissement, ses doigts griffèrent la surface et arrachèrent un morceau de glace de la taille d'une paume.
 
-Tenant le fragment, Wang Lin l'examina avec soin et tenta de le consumer avec son essence de feu, mais il fut incapable de le faire fondre. Ses yeux se plissèrent ; il sentait une force étrange à l'intérieur de ce bloc. Il trouva cette force similaire à une essence.
+Tenant le fragment, Wang Lin l'examina avec soin et tenta de le consumer avec son essence de feu, mais il fut incapable de le faire fondre. Ses yeux se plissèrent; il sentait une force étrange à l'intérieur de ce bloc. Il trouva cette force similaire à une essence.
 
-Mais il y avait une nuance : c'était comme si cet endroit n'était pas réellement scellé par la glace, et que s'il s'immergeait dans le bassin, ses essences en seraient grandement nourries.
+Mais il y avait une nuance: c'était comme si cet endroit n'était pas réellement scellé par la glace, et que s'il s'immergeait dans le bassin, ses essences en seraient grandement nourries.
 
 Cependant, non seulement cette puissance était faible, mais elle fluctuait de manière irrégulière. Wang Lin réfléchit un instant et une lueur d'illumination traversa son regard.
 
-Cet endroit avait été créé par le Souverain Céleste aux Sept Couleurs à partir de ses souvenirs, nourri par sa propre force vitale. Ce Bassin de Dong Ling existait probablement sur le Continent Astral Immortel, et sa fonction était sans doute de nourrir les essences !
+Cet endroit avait été créé par le Souverain Céleste aux Sept Couleurs à partir de ses souvenirs, nourri par sa propre force vitale. Ce Bassin de Dong Ling existait probablement sur le Continent Astral Immortel, et sa fonction était sans doute de nourrir les essences!
 
-La cultivation du Souverain Céleste aux Sept Couleurs étant limitée, il n'avait pu imiter que l'aura, mais pas l'effet réel.
+La culture du Souverain Céleste aux Sept Couleurs étant limitée, il n'avait pu imiter que l'aura, mais pas l'effet réel.
 
-Après une réflexion, Wang Lin rangea la glace dans son espace de stockage. Elle restait très étrange et ne fondait pas ; elle continuait d'émaner une aura glaciale.
+Après une réflexion, Wang Lin rangea la glace dans son espace de stockage. Elle restait très étrange et ne fondait pas; elle continuait d'émaner une aura glaciale.
 
 Fixant le fragment, Wang Lin prit une profonde inspiration et leva sa main droite. Alors que le Dao Ancestral Immortel imprégnait sa main, il griffa à nouveau la glace. Des grondements tonitruants se succédèrent. Par cette méthode brute et laborieuse, Wang Lin mit plusieurs heures à creuser un tunnel dans la glace.
 
-Au bout d'un demi-bâton d'encens de travail, un dernier fracas retentit. Wang Lin arracha un morceau de glace, exposant enfin le bras gauche de Ye Mo !
+Au bout d'un demi-bâton d'encens de travail, un dernier fracas retentit. Wang Lin arracha un morceau de glace, exposant enfin le bras gauche de Ye Mo!
 
 Seule une petite zone de peau, de la taille d'une paume, était visible. Elle était grise mais dégageait une puissante aura du Dao Ancestral qui pénétra l'esprit de Wang Lin. Il prit une profonde inspiration et s'assit, pressant sa main gauche contre la peau exposée.
 
@@ -112,4 +112,4 @@ Cette lumière continua de se propager dans toutes les directions, enveloppant l
 
 Le temps s'écoulait lentement. Wang Lin déploya une partie de son Sens Divin pour surveiller les environs tout en absorbant progressivement le bras gauche de Ye Mo. Fort de son expérience avec le bras droit, il maîtrisait le processus. Après trois jours, le bras gauche de Ye Mo commença à rétrécir.
 
-À mesure qu'il se rétractait, la lumière spectrale qui couvrait 10 000 kilomètres se contractait également. Une fois la lumière totalement rentrée, le bras gauche de Ye Mo se transforma en un filet de fumée et s'engouffra dans le bras gauche de Wang Lin !
+À mesure qu'il se rétractait, la lumière spectrale qui couvrait 10 000 kilomètres se contractait également. Une fois la lumière totalement rentrée, le bras gauche de Ye Mo se transforma en un filet de fumée et s'engouffra dans le bras gauche de Wang Lin!

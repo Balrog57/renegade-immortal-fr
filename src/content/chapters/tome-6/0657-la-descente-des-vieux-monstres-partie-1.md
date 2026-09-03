@@ -6,29 +6,29 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 657 - The Old Monsters Descend (part 1)
 slug: la-descente-des-vieux-monstres-partie-1
 ---
-« Le système stellaire d'Allheaven ! » Les pupilles de Wang Lin se contractèrent. Dans ses souvenirs, il n'existait aucune information concernant le système stellaire d'Allheaven. Même dans les souvenirs de Tu Si, il n'y avait rien à ce sujet.
+« Le système stellaire d'Allheaven! » Les pupilles de Wang Lin se contractèrent. Dans ses souvenirs, il n'existait aucune information concernant le système stellaire d'Allheaven. Même dans les souvenirs de Tu Si, il n'y avait rien à ce sujet.
 
 La femme à l'intérieur du parchemin trembla. Elle semblait vouloir se retourner, mais une force invisible l'en empêchait.
 
 « Mon foyer... »
 
-Wang Lin réfléchit un instant. Il fixa le parchemin et dit : « Je vous ai déjà amenée ici, maintenant c'est à votre tour ! »
+Wang Lin réfléchit un instant. Il fixa le parchemin et dit: « Je vous ai déjà amenée ici, maintenant c'est à votre tour! »
 
-La femme laissa échapper un soupir et sa voix éthérée résonna :
+La femme laissa échapper un soupir et sa voix éthérée résonna:
 
-« Voulez-vous entendre une histoire... ? »
+« Voulez-vous entendre une histoire...? »
 
-Wang Lin fronça les sourcils. Son expression était sombre lorsqu'il dit froidement : « Cela ne m'intéresse pas ! »
+Wang Lin fronça les sourcils. Son expression était sombre lorsqu'il dit froidement: « Cela ne m'intéresse pas! »
 
-La femme fut surprise. Elle afficha un sourire amer et dit : « Il y a très longtemps, il existait un domaine mystérieux. Cet endroit était la terre sacrée des cultivateurs du monde entier... non, de l'univers entier. On l'appelait le Domaine Céleste... »
+La femme fut surprise. Elle afficha un sourire amer et dit: « Il y a très longtemps, il existait un domaine mystérieux. Cet endroit était la terre sacrée des cultivateurs du monde entier... non, de l'univers entier. On l'appelait le Domaine Céleste... »
 
-« De nombreux récits concernant le Domaine Céleste se sont évanouis dans le fleuve du temps ; personne ne sait même si ce Domaine Céleste a réellement existé. »
+« De nombreux récits concernant le Domaine Céleste se sont évanouis dans le fleuve du temps; personne ne sait même si ce Domaine Céleste a réellement existé. »
 
 « Cependant, une rumeur a été transmise. On disait que le Domaine Céleste avait abandonné les cultivateurs pour quitter cet univers. Les seules traces restantes étaient les quatre tunnels qui permettaient autrefois de s'y rendre. Après d'innombrables années, ces quatre tunnels devinrent des lieux où les cultivateurs de haut niveau devaient se rendre, et devinrent les Royaumes Célestes. Ces quatre Royaumes Célestes sont respectivement... le Vent, la Pluie, le Tonnerre et l'Éclair... »
 
 « Sous chacun des quatre Royaumes Célestes se trouve un système stellaire correspondant. Au-dessus de mon système stellaire d'Allheaven se trouve le Royaume Céleste du Tonnerre... »
 
-« La perle défiant le ciel n'appartient pas au système stellaire de l'Alliance ; elle est apparue pour la première fois dans mon système stellaire d'Allheaven. Personne ne sait comment cette perle est apparue, mais lors de son apparition, tous les grands cultivateurs du système d'Allheaven ont ressenti l'existence de l'ancien Domaine Céleste... »
+« La perle défiant le ciel n'appartient pas au système stellaire de l'Alliance; elle est apparue pour la première fois dans mon système stellaire d'Allheaven. Personne ne sait comment cette perle est apparue, mais lors de son apparition, tous les grands cultivateurs du système d'Allheaven ont ressenti l'existence de l'ancien Domaine Céleste... »
 
 Les yeux de Wang Lin se rétrécirent alors qu'il regardait froidement le parchemin, mais il resta silencieux.
 
@@ -36,27 +36,27 @@ Les yeux de Wang Lin se rétrécirent alors qu'il regardait froidement le parche
 
 « Des années plus tard, nous avons obtenu quelques indices. Pour une raison quelconque, cette perle est apparue dans le Royaume Céleste de la Pluie du système stellaire de l'Alliance... »
 
-Un éclair de froideur passa dans ses yeux alors qu'il pointait le ciel et disait : « C'est vous qui avez mis en place le réseau de transfert ! »
+Un éclair de froideur passa dans ses yeux alors qu'il pointait le ciel et disait: « C'est vous qui avez mis en place le réseau de transfert! »
 
 La femme à l'intérieur du parchemin réfléchit longuement avant de secouer la tête. « Je ne suis pas entrée dans le système stellaire de l'Alliance par ici, mais ce réseau de transfert a bel et bien été créé par un cultivateur du système d'Allheaven. Ce réseau n'est plus fonctionnel, à moins de posséder une pierre d'Allheaven. Même un jade céleste ne peut l'activer. »
 
-« Je vous ai dit tout ce que je sais sur la perle défiant le ciel. Quant à l'âme qui s'y trouve, mon ancêtre pourra certainement vous aider. Tant que vous me ramenez dans le système stellaire d'Allheaven et me renvoyez chez moi, je demanderai sans faute à l'ancêtre de vous aider à ressusciter l'âme qu'elle renferme ! »
+« Je vous ai dit tout ce que je sais sur la perle défiant le ciel. Quant à l'âme qui s'y trouve, mon ancêtre pourra certainement vous aider. Tant que vous me ramenez dans le système stellaire d'Allheaven et me renvoyez chez moi, je demanderai sans faute à l'ancêtre de vous aider à ressusciter l'âme qu'elle renferme! »
 
 Le regard de Wang Lin resta glacial alors qu'il fixait la femme pendant un long moment avant de détourner les yeux. Dès qu'il avait vu le nom du système stellaire d'Allheaven, il avait retrouvé son calme. Ce que disait la femme visait manifestement à l'inciter à se rendre dans ce système.
 
-Wang Lin demanda calmement : « À quelle secte du système stellaire d'Allheaven appartenez-vous ? »
+Wang Lin demanda calmement: « À quelle secte du système stellaire d'Allheaven appartenez-vous? »
 
 « Le système d'Allheaven n'est pas comme votre système de l'Alliance. Il n'y a pas de sectes, seulement des familles de cultivateurs. Ma famille est la famille Xiang, sur la planète Dong Lin. »
 
-Wang Lin sembla peser le pour et le contre. Un instant plus tard, il dit : « Je crains de ne pas pouvoir traverser ce vortex avec mon niveau de cultivation actuel... »
+Wang Lin sembla peser le pour et le contre. Un instant plus tard, il dit: « Je crains de ne pas pouvoir traverser ce vortex avec mon niveau de culture actuel... »
 
-La femme à l'intérieur secoua la tête et dit doucement : « Vous possédez la perle défiant le ciel, vous devriez donc certainement être capable de passer. »
+La femme à l'intérieur secoua la tête et dit doucement: « Vous possédez la perle défiant le ciel, vous devriez donc certainement être capable de passer. »
 
 Un léger éclat de froideur passa dans ses yeux. Puisque cette femme était si certaine, elle devait dissimuler bien des choses.
 
 Wang Lin ne perdit plus de temps avec elle. Sa main droite s'étendit, saisit le parchemin et il se mit en mouvement. Il ne traversa pas le vortex, mais s'élança vers le haut.
 
-La femme à l'intérieur cria immédiatement : « Vous... ne voulez donc pas ressusciter l'âme dans la perle ? »
+La femme à l'intérieur cria immédiatement: « Vous... ne voulez donc pas ressusciter l'âme dans la perle? »
 
 Wang Lin réfléchit en silence tout en chargeant. Il déploya son âme originelle pour fusionner avec la force d'aspiration et s'élança vers le haut.
 
@@ -68,15 +68,15 @@ Des craquements immédiats retentirent alors que la foudre parcourait la roche. 
 
 Sans cette grande roche, l'endroit devint semblable au reste du gouffre. Wang Lin saisit le parchemin et pénétra dans la fissure située à deux cents pieds de là.
 
-Une fois à l'intérieur, Wang Lin fit un geste de la main et le parchemin fut inséré profondément dans la paroi. Ses yeux devinrent glacials ; ses mains tracèrent de nombreux sceaux, et d'innombrables restrictions se déposèrent autour du parchemin.
+Une fois à l'intérieur, Wang Lin fit un geste de la main et le parchemin fut inséré profondément dans la paroi. Ses yeux devinrent glacials; ses mains tracèrent de nombreux sceaux, et d'innombrables restrictions se déposèrent autour du parchemin.
 
 « Pourquoi faites-vous cela... Sans mon aide, l'âme dans votre perle ne pourra jamais être ressuscitée... » La voix anxieuse de la femme émanait du parchemin.
 
-« Silence ! » Les yeux de Wang Lin s'illuminèrent et ses mains s'activèrent de plus en plus vite. Les innombrables restrictions finirent par recouvrir presque toute la fissure.
+« Silence! » Les yeux de Wang Lin s'illuminèrent et ses mains s'activèrent de plus en plus vite. Les innombrables restrictions finirent par recouvrir presque toute la fissure.
 
-Il avait inspecté le parchemin durant son ascension et savait qu'il ne pouvait pas le détruire. Cependant, cette femme connaissait trop de ses secrets. Puisqu'il ne pouvait pas la tuer, autant la sceller à jamais !
+Il avait inspecté le parchemin durant son ascension et savait qu'il ne pouvait pas le détruire. Cependant, cette femme connaissait trop de ses secrets. Puisqu'il ne pouvait pas la tuer, autant la sceller à jamais!
 
-« Wang Lin !! Sans moi, l'âme dans votre perle ne pourra jamais ressusciter ! » La voix malveillante du parchemin ressemblait à un hurlement fantomatique.
+« Wang Lin!! Sans moi, l'âme dans votre perle ne pourra jamais ressusciter! » La voix malveillante du parchemin ressemblait à un hurlement fantomatique.
 
 L'expression de Wang Lin était sombre et ses mains s'agitaient encore plus rapidement. La voix venimeuse s'atténua progressivement jusqu'à disparaître complètement.
 
@@ -88,13 +88,13 @@ De l'extérieur, rien n'était anormal. Personne ne saurait qu'une femme était 
 
 Même si quelqu'un arrivait sur les lieux, il serait trop occupé à lutter contre la force d'aspiration pour daigner inspecter ce mur qui semblait identique à tous les autres.
 
-Une fois le scellement terminé, il ne partit pas immédiatement ; il resta à distance et attendit silencieusement.
+Une fois le scellement terminé, il ne partit pas immédiatement; il resta à distance et attendit silencieusement.
 
 Le temps passa lentement. Plusieurs jours plus tard, une faible fluctuation émana de l'endroit où le parchemin était scellé. À l'instant précis où elle apparut, Wang Lin, resté en retrait, ouvrit les yeux avec un sourire glacial.
 
 Il forma un sceau et une ombre noire surgit immédiatement derrière lui. Cette ombre chargea directement vers la fissure.
 
-« Scelle ! » rugit Wang Lin tandis que la main du gardien céleste traçait un sceau. Une puissance colossale apparut sur la main de la sentinelle et écrasa la fluctuation.
+« Scelle! » rugit Wang Lin tandis que la main du gardien céleste traçait un sceau. Une puissance colossale apparut sur la main de la sentinelle et écrasa la fluctuation.
 
 Wang Lin entendit vaguement un gémissement misérable. Ses yeux s'illuminèrent et, avec le gardien céleste, ils placèrent tous deux d'innombrables restrictions dans les profondeurs de la fissure.
 
@@ -102,11 +102,11 @@ Une fois cela achevé, Wang Lin retira le gardien céleste et attendit à nouvea
 
 Plusieurs mois passèrent avant que la fluctuation ne réapparaisse, pour ne trouver qu'un nouveau scellement total. Après la troisième tentative, Wang Lin réfléchit un instant et cessa d'attendre pour s'élancer vers les hauteurs.
 
-« La femme dans le parchemin est probablement très puissante, mais elle est prisonnière de ce parchemin ; je crains qu'elle n'ait jamais eu la moindre chance de s'échapper. Cependant, autrefois, elle avait absorbé le sort du Troisième Ancêtre et avait acquis une certaine puissance. »
+« La femme dans le parchemin est probablement très puissante, mais elle est prisonnière de ce parchemin; je crains qu'elle n'ait jamais eu la moindre chance de s'échapper. Cependant, autrefois, elle avait absorbé le sort du Troisième Ancêtre et avait acquis une certaine puissance. »
 
 « Je ne l'ai pas inspectée, alors au fil des ans, elle a appris trop de mes secrets. À moins que ce ne soit dû aux circonstances particulières de l'Abîme des Marées, je crains qu'elle n'ait jamais parlé. Elle aurait plutôt attendu patiemment de recouvrer ses forces. »
 
-« Si je garde un tel danger à mes côtés, cela finira par me nuire ! Elle doit avoir des intentions cachées ! »
+« Si je garde un tel danger à mes côtés, cela finira par me nuire! Elle doit avoir des intentions cachées! »
 
 Wang Lin songea à cela tout en s'élevant.
 
@@ -118,13 +118,13 @@ Il prit une grande inspiration et frappa son sac de rangement. La formation des 
 
 « La famille Xiang sur la planète Dong Lin... Même si cette famille n'a aucun lien avec cette femme, je devrais pouvoir trouver des indices sur son identité. Puisqu'elle prétend que l'ancêtre de sa lignée peut ressusciter Wan Er, cela vaut la peine de vérifier. Sans ce parchemin qui me suit, même en me rendant dans le système d'Allheaven, personne ne saura que je possède la perle défiant le ciel. »
 
-« Après tout, cette Terre des Esprits Démoniaques est saturée de dangers, et l'Omniscient et sa suite peuvent surgir à tout moment. Une fois qu'ils seront là, notre rencontre sera inévitable. Face à des cultivateurs dont le niveau de cultivation dépasse mon imagination, je serai impuissant. »
+« Après tout, cette Terre des Esprits Démoniaques est saturée de dangers, et l'Omniscient et sa suite peuvent surgir à tout moment. Une fois qu'ils seront là, notre rencontre sera inévitable. Face à des cultivateurs dont le niveau de culture dépasse mon imagination, je serai impuissant. »
 
 Alors qu'il s'élevait, le regard de Wang Lin se fit glacial.
 
-« Cependant, puisque ce dernier jeton est entre mes mains, ils ne pourront pas pénétrer dans la véritable grotte sans moi. Même s'ils viennent sur la Terre des Esprits Démoniaques, cela sera inutile. Et même s'ils apprennent par Greed que je possède le jeton, il sera trop tard. Je serai déjà parti pour le système d'Allheaven ! »
+« Cependant, puisque ce dernier jeton est entre mes mains, ils ne pourront pas pénétrer dans la véritable grotte sans moi. Même s'ils viennent sur la Terre des Esprits Démoniaques, cela sera inutile. Et même s'ils apprennent par Greed que je possède le jeton, il sera trop tard. Je serai déjà parti pour le système d'Allheaven! »
 
-« Une fois que mon niveau de cultivation aura atteint un point où je pourrai rivaliser avec l'Omniscient et ses compagnons, alors je pourrai revenir et percer le secret de cette grotte ! »
+« Une fois que mon niveau de culture aura atteint un point où je pourrai rivaliser avec l'Omniscient et ses compagnons, alors je pourrai revenir et percer le secret de cette grotte! »
 
 Les yeux de Wang Lin étaient étincelants.
 

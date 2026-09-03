@@ -10,35 +10,35 @@ Teng Trois ne paraissait pas jeune. Ses cheveux étaient déjà blancs et il sem
 
 Il était très beau. Sur son visage impeccable, ses yeux brillaient comme des gemmes noires.
 
-Teng Trois dit doucement : « Xiu Xiu, pour l'instant, la famille Teng fait face à un ennemi puissant et l'Ancêtre ne sortira pas. Toute cette situation est bien trop étrange. Une fois que tu auras atteint la ville de la famille Teng en toute sécurité, reste avec ta petite sœur et ne sors pas. »
+Teng Trois dit doucement: « Xiu Xiu, pour l'instant, la famille Teng fait face à un ennemi puissant et l'Ancêtre ne sortira pas. Toute cette situation est bien trop étrange. Une fois que tu auras atteint la ville de la famille Teng en toute sécurité, reste avec ta petite sœur et ne sors pas. »
 
 Teng Xiu Xiu était la fille de Teng Trois. La raison pour laquelle il avait quitté la chambre cachée était de protéger sa fille sur le chemin menant à la ville de la famille Teng.
 
 Teng Xiu Xiu hocha la tête.
 
-Teng Trois hésita un instant et reprit : « Si... si je ne peux échapper à la mort cette fois, alors oublie l'idée d'aller à la ville de la famille Teng pour retrouver ta petite sœur. Quitte immédiatement le pays de Zhao. Va aussi loin que possible. »
+Teng Trois hésita un instant et reprit: « Si... si je ne peux échapper à la mort cette fois, alors oublie l'idée d'aller à la ville de la famille Teng pour retrouver ta petite sœur. Quitte immédiatement le pays de Zhao. Va aussi loin que possible. »
 
 Wang Zhuo écoutait tout cela en silence sur le côté. Bien que son expression fût calme, il riait froidement dans son cœur.
 
-Le regard de Teng Trois semblait capable de percer les cœurs lorsqu'il fixa Wang Zhuo. Son expression ne changea pas ; nul ne pouvait savoir s'il éprouvait de la joie ou de la colère.
+Le regard de Teng Trois semblait capable de percer les cœurs lorsqu'il fixa Wang Zhuo. Son expression ne changea pas; nul ne pouvait savoir s'il éprouvait de la joie ou de la colère.
 
 Une vague d'émotions déferla en lui tandis qu'il caressait les cheveux de Teng Xiu Xiu.
 
 Il savait que depuis l'époque où l'Ancêtre l'avait contraint à se séparer de sa femme, il vivrait éternellement sous l'ombre de ce dernier. Tout cela parce que son épouse était une mortelle et parce qu'il était l'arrière-arrière-petit-fils de l'Ancêtre. Un membre aussi important de la famille Teng ne pouvait prendre une mortelle pour épouse.
 
-Car ses descendants devaient posséder les aptitudes nécessaires à la cultivation.
+Car ses descendants devaient posséder les aptitudes nécessaires à la culture.
 
-S'il voulait changer le cours des choses, il lui fallait du pouvoir. Il devait atteindre un niveau de cultivation surpassant celui de l'Ancêtre.
+S'il voulait changer le cours des choses, il lui fallait du pouvoir. Il devait atteindre un niveau de culture surpassant celui de l'Ancêtre.
 
-De nombreuses années plus tard, il avait réussi sa cultivation et avait pu guider ses deux filles sur la voie de la cultivation, mais l'espérance de vie de sa femme était déjà épuisée. La douleur dans son cœur ne s'était jamais estompée au fil des ans.
+De nombreuses années plus tard, il avait réussi sa culture et avait pu guider ses deux filles sur la voie de la cultivation, mais l'espérance de vie de sa femme était déjà épuisée. La douleur dans son cœur ne s'était jamais estompée au fil des ans.
 
-Durant toutes ces années, il s'était consacré exclusivement à la cultivation. Seule celle-ci lui permettait de réprimer le souvenir de son épouse.
+Durant toutes ces années, il s'était consacré exclusivement à la culture. Seule celle-ci lui permettait de réprimer le souvenir de son épouse.
 
-D'une certaine manière, Teng Xiu Xiu, qui ressemblait tant à sa défunte femme, n'était pas seulement sa fille ; elle était aussi le réceptacle de tout l'amour qu'il portait à son épouse. C'est pourquoi il ne permettrait jamais que Teng Xiu Xiu subisse le moindre préjudice ou qu'on lui cause la moindre injustice.
+D'une certaine manière, Teng Xiu Xiu, qui ressemblait tant à sa défunte femme, n'était pas seulement sa fille; elle était aussi le réceptacle de tout l'amour qu'il portait à son épouse. C'est pourquoi il ne permettrait jamais que Teng Xiu Xiu subisse le moindre préjudice ou qu'on lui cause la moindre injustice.
 
-Il lança un regard glacial à Wang Zhuo et dit : « Wang Zhuo, par égard pour Teng Xiu Xiu, je te laisse la vie sauve. Maintenant, disparais ! À partir de cet instant, Teng Xiu Xiu n'a plus aucun lien avec toi. »
+Il lança un regard glacial à Wang Zhuo et dit: « Wang Zhuo, par égard pour Teng Xiu Xiu, je te laisse la vie sauve. Maintenant, disparais! À partir de cet instant, Teng Xiu Xiu n'a plus aucun lien avec toi. »
 
-Les yeux de Wang Zhuo s'illuminèrent. Il regarda Teng Trois et lança : « Quel tempérament ! » Sur ce, il fit un bond en arrière, prêt à partir.
+Les yeux de Wang Zhuo s'illuminèrent. Il regarda Teng Trois et lança: « Quel tempérament! » Sur ce, il fit un bond en arrière, prêt à partir.
 
 En entendant cela, Teng Xiu Xiu se précipita pour saisir le bras de Wang Zhuo. Elle se retourna, regarda son père les yeux embués de larmes, et mordilla sa lèvre inférieure sans dire un mot.
 
@@ -48,11 +48,11 @@ Le regard de Teng Trois resta froid, mais il laissa échapper un lent soupir ava
 
 Wang Zhuo réfléchit un instant. Il regarda Teng Xiu Xiu d'un air complexe. Si ce jour venait un jour, lui-même ignorait ce qu'il ferait.
 
-Teng Xiu Xiu regarda les deux hommes qui étaient les plus importants de sa vie et s'écria : « Père, Wang Zhuo ne le fera pas, il ne le fera pas ! » Sa voix était empreinte d'une détermination absolue. Cette femme, jusqu'au bout, croyait que Wang Zhuo ne lui ferait jamais de mal.
+Teng Xiu Xiu regarda les deux hommes qui étaient les plus importants de sa vie et s'écria: « Père, Wang Zhuo ne le fera pas, il ne le fera pas! » Sa voix était empreinte d'une détermination absolue. Cette femme, jusqu'au bout, croyait que Wang Zhuo ne lui ferait jamais de mal.
 
 Bien que l'expression de Teng Trois fût restée de marbre, son envie de tuer s'intensifia considérablement. Si la famille Teng avait été stable, que Wang Zhuo vive ou meure n'aurait eu aucune importance, car il était certain qu'il ne saurait agir avec imprudence.
 
-Mais en ce moment, la famille Teng était en péril, et la situation était tout autre. Teng Trois prit une décision : une fois de retour à la ville de la famille Teng, il trouverait l'occasion d'éliminer Wang Zhuo.
+Mais en ce moment, la famille Teng était en péril, et la situation était tout autre. Teng Trois prit une décision: une fois de retour à la ville de la famille Teng, il trouverait l'occasion d'éliminer Wang Zhuo.
 
 Car il avait le pressentiment que si Wang Zhuo ne mourait pas, Teng Xiu Xiu resterait en danger.
 
@@ -62,13 +62,13 @@ Un nuage sombre couvrit soudainement le ciel. Cette masse ténébreuse semblait 
 
 Le regard de Teng Trois devint brusquement grave. Sans hésiter, il pressa son abdomen et cracha une partie de son sang essentiel. Simultanément, un point de lumière jaillit de sa sacoche de rangement pour fusionner avec le sang, formant devant lui un anneau de lumière ovale.
 
-Teng Trois tendit la main et saisit Teng Xiu Xiu. Celle-ci poussa un cri de surprise alors que son père la jetait dans l'anneau de lumière. Regardant son père avec désespoir, elle hurla : « Père ! »
+Teng Trois tendit la main et saisit Teng Xiu Xiu. Celle-ci poussa un cri de surprise alors que son père la jetait dans l'anneau de lumière. Regardant son père avec désespoir, elle hurla: « Père! »
 
-En entendant son cri, Teng Trois sentit qu'il ne pouvait être cruel ; il tendit à nouveau la main. Cette fois, il attrapa Wang Zhuo et le projeta violemment vers l'anneau de lumière.
+En entendant son cri, Teng Trois sentit qu'il ne pouvait être cruel; il tendit à nouveau la main. Cette fois, il attrapa Wang Zhuo et le projeta violemment vers l'anneau de lumière.
 
 Les deux disparurent dans l'éclat ovale.
 
-Tout s'était passé avec une rapidité fulgurante. Dès l'apparition du nuage noir, Teng Trois n'avait pas hésité à entamer sa propre cultivation pour utiliser une quantité massive de sang essentiel afin de transporter Teng Xiu Xiu et Wang Zhuo loin de là.
+Tout s'était passé avec une rapidité fulgurante. Dès l'apparition du nuage noir, Teng Trois n'avait pas hésité à entamer sa propre culture pour utiliser une quantité massive de sang essentiel afin de transporter Teng Xiu Xiu et Wang Zhuo loin de là.
 
 Une fois son geste accompli, il n'éprouvait plus aucun regret. Il redressa le buste et, dans un silence absolu, une épée volante de couleur orange apparut à ses côtés.
 
@@ -80,7 +80,7 @@ Il n'utilisait jamais cette épée lors de ses combats.
 
 L'adoration qu'il vouait à cette arme n'était en rien inférieure à celle qu'il portait à Teng Xiu Xiu, car lors de sa forge, sa femme y avait laissé une goutte de son sang.
 
-C'est à cause de cette goutte de sang mortel que la puissance de l'épée s'en trouvait considérablement affaiblie. Mais Teng Trois s'en moquait ; tant que cette épée subsistait, sa femme était présente. Si l'épée se brisait, sa femme mourrait.
+C'est à cause de cette goutte de sang mortel que la puissance de l'épée s'en trouvait considérablement affaiblie. Mais Teng Trois s'en moquait; tant que cette épée subsistait, sa femme était présente. Si l'épée se brisait, sa femme mourrait.
 
 À cet instant, le cœur de Teng Trois fut consumé par un désir ardent de combattre, car il savait qu'il allait mourir aujourd'hui.
 
@@ -98,7 +98,7 @@ Les nuages sombres se rassemblèrent pour former une silhouette ressemblant à W
 
 L'homme d'âge mûr chargea Wang Lin sans aucune crainte dans les yeux et périt face au Royaume de Ji de ce dernier. Cependant, au moment précis de sa mort, Wang Lin ressentit la profonde affliction de Teng Trois.
 
-Wang Lin resta pensif un long moment, mais il ne retira pas son âme, bien que cet homme eût fait un excellent démon. Il ne pensait pas qu'un membre de la famille Teng puisse chérir ses proches à ce point. Néanmoins, l'homme devait mourir ; il n'aurait jamais dû naître au sein de la lignée des Teng.
+Wang Lin resta pensif un long moment, mais il ne retira pas son âme, bien que cet homme eût fait un excellent démon. Il ne pensait pas qu'un membre de la famille Teng puisse chérir ses proches à ce point. Néanmoins, l'homme devait mourir; il n'aurait jamais dû naître au sein de la lignée des Teng.
 
 À cent kilomètres de là, Teng Trois s'était arrêté. Son corps ne présentait aucune blessure apparente, mais il était mort.
 
@@ -112,7 +112,7 @@ Teng Huayuan se tenait au dernier étage de la demeure ancestrale des Teng, cont
 
 Le corps de Teng Huayuan trembla. Son visage parut soudainement beaucoup plus marqué par l'âge. Il toucha lentement les jades brisés et, lorsque sa main effleura celui de Teng Trois, ses vieux yeux versèrent des larmes qu'ils n'avaient pas laissées couler depuis quatre cents ans.
 
-Teng Huayuan murmura : « Hai Er. »
+Teng Huayuan murmura: « Hai Er. »
 
 Teng Hai était le véritable nom de Teng Trois.
 
@@ -126,7 +126,7 @@ L'enfance amère de Teng Neuf avait forgé une personnalité tordue, l'amenant �
 
 Teng Huit, Teng Six et Teng Quatre occupaient tous une place dans le cœur de Teng Huayuan, mais Teng Trois demeurait le plus important.
 
-Teng Huayuan avait toujours considéré Teng Trois comme la honte de la famille. Bien que né disciple éminent, au lieu de se consacrer sérieusement à sa cultivation, il s'était laissé enchaîner par une obsession pour une mortelle. Teng Huayuan les avait séparés de force, laissant le cours impitoyable du temps achever cette femme.
+Teng Huayuan avait toujours considéré Teng Trois comme la honte de la famille. Bien que né disciple éminent, au lieu de se consacrer sérieusement à sa culture, il s'était laissé enchaîner par une obsession pour une mortelle. Teng Huayuan les avait séparés de force, laissant le cours impitoyable du temps achever cette femme.
 
 Teng Huayuan savait que Teng Trois le détestait.
 

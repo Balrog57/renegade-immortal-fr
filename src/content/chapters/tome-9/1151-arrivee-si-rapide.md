@@ -6,11 +6,11 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1151 - Came So Quickly
 slug: arrivee-si-rapide
 ---
-Wang Lin séjournait sur ce continent sauvage depuis un certain temps déjà. Compte tenu de la situation au Secte Originel, il ne pouvait pas y rester beaucoup plus longtemps.
+Wang Lin séjournait sur ce continent sauvage depuis un certain temps déjà. Compte tenu de la situation à la Secte Originel, il ne pouvait pas y rester beaucoup plus longtemps.
 
-Bien qu'il ne craignît pas le Secte du Dao Pourpre, s'il n'était pas là, le Secte Originel serait anéanti avec sa force actuelle. Si cela s'était produit dans le passé, Wang Lin ne s'en serait pas soucié, mais puisqu'il avait tué des membres du Secte du Dao Pourpre, il était désormais impliqué dans cette affaire.
+Bien qu'il ne craignît pas la Secte du Dao Pourpre, s'il n'était pas là, la Secte Originel serait anéanti avec sa force actuelle. Si cela s'était produit dans le passé, Wang Lin ne s'en serait pas soucié, mais puisqu'il avait tué des membres de la Secte du Dao Pourpre, il était désormais impliqué dans cette affaire.
 
-De plus, cette cultivatrice rusée, Lu Yanfei, lui avait respectueusement offert une identité. Il y avait également l'indice de l'Extrême Yin qu'il devait obtenir auprès des membres du Secte du Dao Pourpre.
+De plus, cette cultivatrice rusée, Lu Yanfei, lui avait respectueusement offert une identité. Il y avait également l'indice de l'Extrême Yin qu'il devait obtenir auprès des membres de la Secte du Dao Pourpre.
 
 Par conséquent, Wang Lin décida d'agir avec arrogance pour une fois et utilisa le singe noir qu'il venait de dompter pour se précipiter dans le nid de ces bêtes féroces afin de leur voler leurs herbes par la force.
 
@@ -26,13 +26,13 @@ Ce qui fit sourire Wang Lin avec amertume, c'est qu'il avait vaguement l'impress
 
 Si ces bêtes féroces n'avaient subi qu'un seul vol d'herbes, elles ne les auraient pas poursuivies pendant plusieurs jours sans se soucier de l'épuisement. Il y avait en elles une pointe de folie et... une haine profonde.
 
-Wang Lin commença à spéculer que certaines des herbes que ces bêtes féroces cachaient ne poussaient pas sur les sommets des montagnes, mais ailleurs ; des endroits où il devrait étendre son Sens Divin pour les trouver. Autrement, ces lieux seraient trop difficiles à découvrir à l'œil nu en raison du brouillard.
+Wang Lin commença à spéculer que certaines des herbes que ces bêtes féroces cachaient ne poussaient pas sur les sommets des montagnes, mais ailleurs; des endroits où il devrait étendre son Sens Divin pour les trouver. Autrement, ces lieux seraient trop difficiles à découvrir à l'œil nu en raison du brouillard.
 
 Cependant, le singe noir n'en était pas affecté, comme s'il savait déjà où les herbes étaient dissimulées. Il se déplaçait avec la rapidité de l'éclair pour voler les herbes et repartir aussitôt. C'était comme si le singe noir avait observé tout cela depuis longtemps.
 
 Durant ces jours de pillage, le singe noir s'était rapproché de Wang Lin. Parfois, il jetait un regard par-dessus son épaule vers lui, comme s'il contemplait un confrère du même métier.
 
-C'est cette observation qui rappela à Wang Lin le jour où il avait dompté le singe noir. Même lorsqu'il avait clairement révélé une cultivation plus puissante et blessé l'animal, le singe n'avait pas voulu se soumettre. Au lieu de cela, ses yeux étaient empreints de haine et d'un refus obstiné. Ce n'est que face à la menace de mort qu'il s'était finalement incliné.
+C'est cette observation qui rappela à Wang Lin le jour où il avait dompté le singe noir. Même lorsqu'il avait clairement révélé une culture plus puissante et blessé l'animal, le singe n'avait pas voulu se soumettre. Au lieu de cela, ses yeux étaient empreints de haine et d'un refus obstiné. Ce n'est que face à la menace de mort qu'il s'était finalement incliné.
 
 On peut supposer que ce singe noir, qui avait l'habitude de voler les herbes d'autrui, devait éprouver un sentiment très complexe en étant lui-même dépouillé.
 
@@ -48,9 +48,9 @@ Le singe noir ignorait tout cela. En courant, il tordait parfois son corps pour 
 
 Un sourire apparut sur les lèvres de Wang Lin alors que sa main droite plongeait dans le vide pour ouvrir son espace de stockage. Il en sortit un talisman jaune et le plaça sur l'épaule du singe noir.
 
-En un instant, une tempête jaune éclata autour du singe noir et celui-ci s'élança vers le ciel. Le corps du singe trembla et ses yeux se remplirent de joie. Sa vitesse augmenta soudainement ; il bondit dans les airs et retomba juste devant l'armée de bêtes.
+En un instant, une tempête jaune éclata autour du singe noir et celui-ci s'élança vers le ciel. Le corps du singe trembla et ses yeux se remplirent de joie. Sa vitesse augmenta soudainement; il bondit dans les airs et retomba juste devant l'armée de bêtes.
 
-Cependant, il ne s'enfuit pas immédiatement ; il poussa un rugissement face à la horde. Puis, il chargea au milieu d'elles, se frayant un chemin par ses coups de poing et de pieds avant de resurgir de l'autre côté.
+Cependant, il ne s'enfuit pas immédiatement; il poussa un rugissement face à la horde. Puis, il chargea au milieu d'elles, se frayant un chemin par ses coups de poing et de pieds avant de resurgir de l'autre côté.
 
 Les bêtes rugirent toutes, devenant plus enragées encore.
 
@@ -62,7 +62,7 @@ L'armée de bêtes derrière Wang Lin grandissait progressivement. La terre trem
 
 Après avoir parcouru le continent sauvage, le singe noir semblait insatisfait. Il chargea vers le centre du continent, poursuivi par l'armée de bêtes. Wang Lin calcula le temps et n'interrompit pas la course du singe.
 
-Au fil de ces jours sur ce continent, Wang Lin avait appris qu'il existait des bêtes féroces de rang encore plus élevé à l'intérieur. Le singe noir se précipita rapidement vers le centre. Il n'y avait que peu de montagnes ici ; le paysage était plutôt composé de vallées entourées de collines.
+Au fil de ces jours sur ce continent, Wang Lin avait appris qu'il existait des bêtes féroces de rang encore plus élevé à l'intérieur. Le singe noir se précipita rapidement vers le centre. Il n'y avait que peu de montagnes ici; le paysage était plutôt composé de vallées entourées de collines.
 
 Les vallées étaient largement plongées dans le brouillard, rendant l'intérieur invisible, mais une pression sinistre s'en échappait habituellement.
 
@@ -70,7 +70,7 @@ Lorsque le singe noir s'engouffra dans la vallée, Wang Lin devint sérieux. Ces
 
 C'était comme si toutes les bêtes féroces de cet endroit avaient disparu.
 
-Wang Lin n'était pas le seul perplexe ; même le singe noir ralentit. Il fixait l'horizon, hésitant à poursuivre sa route.
+Wang Lin n'était pas le seul perplexe; même le singe noir ralentit. Il fixait l'horizon, hésitant à poursuivre sa route.
 
 Alors que Wang Lin réfléchissait, la terre se mit à trembler. L'armée de bêtes avait atteint la partie centrale du continent et chargeait le singe noir.
 
@@ -80,23 +80,23 @@ Le temps passa rapidement. Alors que le singe noir traversait la vallée, l'arm�
 
 À cet instant précis, les yeux de Wang Lin se plissèrent. Il se redressa et fixa l'horizon. Simultanément, une voix lugubre résonna devant lui.
 
-« La Secte des Cinq Poisons a une affaire à régler ici. Les gens sans importance, partez vite... Hein !!! » La voix sombre n'avait pas fini sa phrase qu'elle se transforma en un cri de stupeur.
+« La Secte des Cinq Poisons a une affaire à régler ici. Les gens sans importance, partez vite... Hein!!! » La voix sombre n'avait pas fini sa phrase qu'elle se transforma en un cri de stupeur.
 
-La voix avait manifestement aperçu l'armée interminable de bêtes féroces qui pourchassait le singe noir !
+La voix avait manifestement aperçu l'armée interminable de bêtes féroces qui pourchassait le singe noir!
 
 À ce moment-là, le Sens Divin de Wang Lin perceba également les huit crânes géants à l'entrée de la vallée, qui absorbaient les âmes des morts pour les convertir en attaques.
 
-Il vit aussi une vieille femme décrépite debout sur l'un des crânes !
+Il vit aussi une vieille femme décrépite debout sur l'un des crânes!
 
 Les pupilles de la vieille femme se contractèrent. Le brouillard limitait sa vision et son Sens Divin était restreint. Cependant, les vibrations du sol s'intensifièrent et bientôt, la vague infinie de bêtes entra dans le champ de perception de son Sens Divin.
 
-À cet instant, elle ne put s'empêcher de haleter de surprise. Toutefois, avec son niveau de cultivation, son intelligence était aiguisée. En voyant le singe noir, elle comprit immédiatement que cette multitude de bêtes poursuivait l'animal et le cultivateur aux cheveux blancs sur son dos.
+À cet instant, elle ne put s'empêcher de haleter de surprise. Toutefois, avec son niveau de culture, son intelligence était aiguisée. En voyant le singe noir, elle comprit immédiatement que cette multitude de bêtes poursuivait l'animal et le cultivateur aux cheveux blancs sur son dos.
 
 Une lueur d'intention meurtrière apparut dans ses yeux. Elle ne croyait pas à une coïncidence. Soit la Secte de la Fleur Claire envoyait des renforts, soit l'une des six autres sectes était arrivée prématurément.
 
-« Ils sont venus si vite ! » La vieille femme fit un pas en avant et chargea vers le singe noir. Un brouillard empoisonné commença à se répandre devant elle.
+« Ils sont venus si vite! » La vieille femme fit un pas en avant et chargea vers le singe noir. Un brouillard empoisonné commença à se répandre devant elle.
 
-Les yeux de Wang Lin s'illuminèrent ; il réalisa qu'il venait d'entrer par accident au cœur d'une bataille. Ces huit crânes constituaient manifestement une formation destinée à piéger et à tuer quiconque, homme ou bête, pénétrerait dans la vallée.
+Les yeux de Wang Lin s'illuminèrent; il réalisa qu'il venait d'entrer par accident au cœur d'une bataille. Ces huit crânes constituaient manifestement une formation destinée à piéger et à tuer quiconque, homme ou bête, pénétrerait dans la vallée.
 
 Cependant, il n'avait pas le temps d'expliquer quoi que ce soit. La vieille femme était trop rapide et le poison se propageait déjà vers lui, sans parler de son intention meurtrière. Wang Lin sauta du dos du singe noir et lui lança un ordre.
 
@@ -104,16 +104,16 @@ Le singe noir changea brusquement de trajectoire pour foncer vers les huit crân
 
 Simultanément, la main droite de Wang Lin forma un sceau et pointa vers l'avant. Un vent noir apparut instantanément et se mua en dragons sombres qui chargèrent la vieille femme.
 
-Le niveau de cultivation de la vieille femme était identique à celui de Song Wude, au stade intermédiaire du Purificateur de Nirvana. Cependant, sa cultivation du poison la rendait extrêmement puissante, bien supérieure à celle de Song Wude. Voyant le vent noir approcher, elle forma aussitôt un sceau et expira trois bouffées d'air !
+Le niveau de culture de la vieille femme était identique à celui de Song Wude, au stade intermédiaire du Purificateur de Nirvana. Cependant, sa culture du poison la rendait extrêmement puissante, bien supérieure à celle de Song Wude. Voyant le vent noir approcher, elle forma aussitôt un sceau et expira trois bouffées d'air!
 
 La première se transforma en un brouillard rouge qui se propagea rapidement. Elle entra en collision avec le vent noir dans un grondement assourdissant.
 
-La deuxième se mua en une eau noire qui jaillit comme une pluie battante. Elle perça le brouillard rouge et chargea droit sur Wang Lin. Chaque goutte de cette eau noire contenait un poison étrange ; si une seule goutte l'atteignait, elle suffirait à décomposer sa chair en une mare de sang.
+La deuxième se mua en une eau noire qui jaillit comme une pluie battante. Elle perça le brouillard rouge et chargea droit sur Wang Lin. Chaque goutte de cette eau noire contenait un poison étrange; si une seule goutte l'atteignait, elle suffirait à décomposer sa chair en une mare de sang.
 
-La troisième scintilla de sept couleurs avant de se transformer en une statue haute de plus de mille pieds !
+La troisième scintilla de sept couleurs avant de se transformer en une statue haute de plus de mille pieds!
 
-« Roi du Poison, apparais ! Sceau de l'Esprit du Poison ! » La vieille femme était d'une grande férocité et utilisa immédiatement son sort le plus puissant. Les yeux de la statue du Roi du Poison s'illuminèrent. Une lumière presque tangible en jaillit et forma une marque noire devant la statue !
+« Roi du Poison, apparais! Sceau de l'Esprit du Poison! » La vieille femme était d'une grande férocité et utilisa immédiatement son sort le plus puissant. Les yeux de la statue du Roi du Poison s'illuminèrent. Une lumière presque tangible en jaillit et forma une marque noire devant la statue!
 
-Dès l'apparition du sceau, celui-ci chargea Wang Lin. S'il touchait son corps, outre la transformation de sa chair en sang, même son Âme Originelle mourrait instantanément sous l'effet du poison !
+Dès l'apparition du sceau, celui-ci chargea Wang Lin. S'il touchait son corps, outre la transformation de sa chair en sang, même son Âme Originelle mourrait instantanément sous l'effet du poison!
 
-La vieille femme était d'une cruauté extrême. Afin de s'approprier la pierre de jade et la recette de la pilule du Vide de Nirvana, elle avait utilisé son sort le plus dévastateur pour éliminer Wang Lin. Craignant qu'il n'esquive ses attaques, elle agita sa manche et un petit serpent apparut tel un éclair. Ce petit serpent était sa bête liée à sa vie ; il était entièrement noir, coiffé d'une petite crête ressemblant à celle d'un coq. Dès son apparition, une odeur fétide emplit l'air.
+La vieille femme était d'une cruauté extrême. Afin de s'approprier la pierre de jade et la recette de la pilule du Vide de Nirvana, elle avait utilisé son sort le plus dévastateur pour éliminer Wang Lin. Craignant qu'il n'esquive ses attaques, elle agita sa manche et un petit serpent apparut tel un éclair. Ce petit serpent était sa bête liée à sa vie; il était entièrement noir, coiffé d'une petite crête ressemblant à celle d'un coq. Dès son apparition, une odeur fétide emplit l'air.

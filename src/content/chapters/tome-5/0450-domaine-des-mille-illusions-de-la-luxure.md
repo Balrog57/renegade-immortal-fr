@@ -6,11 +6,11 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 450 - Thousand Illusion Lust Domain
 slug: domaine-des-mille-illusions-de-la-luxure
 ---
-Yunque Zi fut surpris et demanda : « Est-ce là ton ancien domaine de la luxure ? »
+Yunque Zi fut surpris et demanda: « Est-ce là ton ancien domaine de la luxure? »
 
-Le troisième ancêtre hocha la tête et répondit : « C'est mon domaine de la luxure. Si elle réussit sa possession, elle s'emparera certainement d'une partie de ma puissance. Comment pourrais-je la laisser faire ? »
+Le troisième ancêtre hocha la tête et répondit: « C'est mon domaine de la luxure. Si elle réussit sa possession, elle s'emparera certainement d'une partie de ma puissance. Comment pourrais-je la laisser faire? »
 
-« Cette chose s'est séparée de moi et a été trouvée par un petit cultivateur. Je crois que ce dernier se trouve actuellement à l'intérieur du Tombeau Suzaku. Bien que je ne puisse pas détruire le domaine, je peux y apporter quelques modifications mineures. En temps normal, cela n'aurait guère d'importance, mais lors d'une possession, cela fera échouer sa tentative ! »
+« Cette chose s'est séparée de moi et a été trouvée par un petit cultivateur. Je crois que ce dernier se trouve actuellement à l'intérieur du Tombeau Suzaku. Bien que je ne puisse pas détruire le domaine, je peux y apporter quelques modifications mineures. En temps normal, cela n'aurait guère d'importance, mais lors d'une possession, cela fera échouer sa tentative! »
 
 Après avoir fini de parler, le troisième ancêtre pointa son front. La plante sur son front commença à bouger de manière mystérieuse. Des tatouages s'échappèrent de la plante avant de disparaître dans les airs.
 
@@ -18,17 +18,17 @@ Dans le Tombeau Suzaku, Wang Lin monta sur l'autel et l'activa. Il sentit l'aute
 
 Mais à ce moment précis, une immense quantité de brouillard rose jaillit soudainement du front de Liu Mei, suivie par le cri de Mei Ji.
 
-« Comment est-ce possible ?! Une force dotée d'une énergie semblable à la mienne interfère avec ma possession ! Comment peut-il en être ainsi... » À sa naissance, Mei Ji avait perdu tous les souvenirs de son créateur ; ce n'était donc, de son point de vue, que leur première rencontre.
+« Comment est-ce possible?! Une force dotée d'une énergie semblable à la mienne interfère avec ma possession! Comment peut-il en être ainsi... » À sa naissance, Mei Ji avait perdu tous les souvenirs de son créateur; ce n'était donc, de son point de vue, que leur première rencontre.
 
 Alors qu'elle pénétrait dans le corps de Liu Mei pour briser son domaine, elle ressentit soudain une douleur fulgurante dans son âme. Cette douleur la priva de toute sa puissance et la laissa extrêmement faible.
 
 En conséquence, le domaine de Liu Mei contre-attaqua et la força à être expulsée.
 
-Au moment où Mei Ji fut éjectée du corps de Liu Mei, cette dernière ouvrit les yeux et s'exclama : « Tu es la dernière illusion ; tu ne pourras pas t'échapper ! »
+Au moment où Mei Ji fut éjectée du corps de Liu Mei, cette dernière ouvrit les yeux et s'exclama: « Tu es la dernière illusion; tu ne pourras pas t'échapper! »
 
 Aussitôt, une immense quantité de brouillard rose fut aspirée par Liu Mei.
 
-Mei Ji poussa un cri de désespoir. Elle était toujours totalement impuissante. Elle serra les dents et s'écria : « Si je ne peux pas te posséder, alors fusionnons ! »
+Mei Ji poussa un cri de désespoir. Elle était toujours totalement impuissante. Elle serra les dents et s'écria: « Si je ne peux pas te posséder, alors fusionnons! »
 
 Sur ces mots, Mei Ji utilisa une méthode inconnue qui fit exploser son corps et s'effondrer son âme. Même son puissant domaine de la luxure s'effondra, et tout son être fut absorbé par Liu Mei.
 
@@ -38,11 +38,11 @@ Tout cela se produisit à une vitesse fulgurante. Lorsque Wang Lin se retourna p
 
 Wang Lin n'eut pas le temps de se téléporter avant que le brouillard rose ne se répande dans toutes les directions. Il dut reculer précipitamment et créer une rafale de vent chargée d'énergie spirituelle céleste pour se protéger.
 
-Cependant, malgré sa vitesse, le brouillard rose ne fut nullement affecté par le vent ; il semblait éthéré et se propagea avec rapidité. La dispersion fut si vélocire que, même en reculant, une partie du brouillard pénétra les pores de Wang Lin.
+Cependant, malgré sa vitesse, le brouillard rose ne fut nullement affecté par le vent; il semblait éthéré et se propagea avec rapidité. La dispersion fut si vélocire que, même en reculant, une partie du brouillard pénétra les pores de Wang Lin.
 
-Toutefois, la quantité absorbée n'était pas excessive ; après avoir activé un peu d'énergie spirituelle céleste, il parvint à expulser la majeure partie du brouillard de son corps. L'expression de Wang Lin devint sombre alors qu'il continuait de reculer jusqu'à pouvoir enfin esquiver la brume.
+Toutefois, la quantité absorbée n'était pas excessive; après avoir activé un peu d'énergie spirituelle céleste, il parvint à expulser la majeure partie du brouillard de son corps. L'expression de Wang Lin devint sombre alors qu'il continuait de reculer jusqu'à pouvoir enfin esquiver la brume.
 
-« Ce brouillard rose n'est pas un sort ; il est issu d'un domaine. C'est pourquoi le vent n'a eu aucun effet sur lui ! » Son visage s'assombrit tandis qu'il observait le brouillard qui recouvrait désormais toute la vallée.
+« Ce brouillard rose n'est pas un sort; il est issu d'un domaine. C'est pourquoi le vent n'a eu aucun effet sur lui! » Son visage s'assombrit tandis qu'il observait le brouillard qui recouvrait désormais toute la vallée.
 
 Une silhouette éblouissante apparut lentement au sein de la brume rose.
 
@@ -54,21 +54,21 @@ La brume se propagea comme une onde de choc, dégageant une force colossale, com
 
 La propagation fut bien plus rapide que les mouvements de Wang Lin. En un clin d'œil, des dizaines de milliers de kilomètres furent transformés en un monde rose. Les montagnes furent également enveloppées par ce brouillard, créant l'illusion d'un rêve éveillé.
 
-Wang Lin n'était pas loin de Liu Mei ; ils se trouvaient au centre du phénomène. En temps normal, avec sa force mentale, il aurait pu résister s'il avait contenu sa respiration et activé son propre domaine.
+Wang Lin n'était pas loin de Liu Mei; ils se trouvaient au centre du phénomène. En temps normal, avec sa force mentale, il aurait pu résister s'il avait contenu sa respiration et activé son propre domaine.
 
 Mais lors de sa retraite précédente, une partie du brouillard était entrée dans son corps. Normalement, il lui aurait suffi de cultiver pendant le temps d'un bâton d'encens pour l'expulser totalement, mais il n'en avait pas le luxe.
 
 Alors que le brouillard l'encerclait, la brume emprisonnée en lui brisa ses sceaux et se propagea dans tout son organisme. Entre la menace intérieure et extérieure, Wang Lin perdit le contrôle pour la première fois.
 
-Le Domaine des Mille Illusions Impitoyables était déjà au stade intermédiaire de la Transformation de l'Âme. Il ne s'agissait en réalité que de 999 illusions, chacune représentant une vie que Liu Mei avait vécue. La Liu Mei du Secte Xuan Dao n'était qu'un avatar parmi d'autres.
+Le Domaine des Mille Illusions Impitoyables était déjà au stade intermédiaire de la Transformation de l'Âme. Il ne s'agissait en réalité que de 999 illusions, chacune représentant une vie que Liu Mei avait vécue. La Liu Mei de la Secte Tian Dao n'était qu'un avatar parmi d'autres.
 
-Liu Mei possédait 999 avatars ainsi pour expérimenter 999 illusions différentes ; il ne lui en manquait plus qu'une seule pour que son domaine atteigne le stade avancé de la Transformation de l'Âme. Une fois ce stade atteint, il ne lui faudrait que suffisamment de jades célestes pour entreprendre l'épreuve de la vie et de la mort afin d'atteindre le stade Ascendant. Un seul pas pourrait mener à la mort, ou bien vers la divinité d'un cultivateur Ascendant !
+Liu Mei possédait 999 avatars ainsi pour expérimenter 999 illusions différentes; il ne lui en manquait plus qu'une seule pour que son domaine atteigne le stade avancé de la Transformation de l'Âme. Une fois ce stade atteint, il ne lui faudrait que suffisamment de jades célestes pour entreprendre l'épreuve de la vie et de la mort afin d'atteindre le stade Ascendant. Un seul pas pourrait mener à la mort, ou bien vers la divinité d'un cultivateur Ascendant!
 
 L'apparition de Mei Ji fut une épreuve majeure pour Liu Mei. Sans l'intervention du troisième ancêtre, Liu Mei aurait probablement été possédée, devenant une simple marionnette vouée aux plaisirs charnels. C'est pourquoi, à ses yeux, Wang Lin était méprisable.
 
 L'aide involontaire du troisième ancêtre avait forcé Mei Ji à s'effondrer pour fusionner avec Liu Mei, faisant de sa vie la 1000e illusion de cette dernière.
 
-Son domaine surpassait actuellement le domaine de la vie et de la mort de Wang Lin, qui n'en était qu'au début de la Transformation de l'Âme ; ce dernier ne pouvait donc manifestement pas y résister.
+Son domaine surpassait actuellement le domaine de la vie et de la mort de Wang Lin, qui n'en était qu'au début de la Transformation de l'Âme; ce dernier ne pouvait donc manifestement pas y résister.
 
 Le brouillard rose qui couvrait des dizaines de milliers de kilomètres commença lentement à se condenser vers la vallée.
 
@@ -90,9 +90,9 @@ Le corps de Wang Lin apparut dans une terre désolée de la section intérieure 
 
 Alors qu'il était entouré par la brume rose, il avait eu l'impression de vivre un rêve. Et lorsque celle-ci s'était dissipée, il avait vu une femme sous lui. À cet instant, son cœur avait éprouvé une douleur pour elle.
 
-« J'ai encore des choses à accomplir, je dois donc mettre de côté la question de Liu Mei pour le moment. Y penser est inutile... Ah ! » Wang Lin soupira en touchant l'espace entre ses sourcils, là où se trouvait la Perle Défiant le Ciel.
+« J'ai encore des choses à accomplir, je dois donc mettre de côté la question de Liu Mei pour le moment. Y penser est inutile... Ah! » Wang Lin soupira en touchant l'espace entre ses sourcils, là où se trouvait la Perle Défiant le Ciel.
 
-L'Âme Naissante de Li Muwan se rétablissait lentement à l'intérieur de la perle ; un jour, elle s'éveillerait.
+L'Âme Naissante de Li Muwan se rétablissait lentement à l'intérieur de la perle; un jour, elle s'éveillerait.
 
 Wang Lin réfléchit un instant avant de disparaître pour s'envoler rapidement au loin.
 
@@ -102,8 +102,8 @@ Le Sens Divin de Wang Lin se déploya pour balayer la zone. L'endroit était tro
 
 Le cœur de Wang Lin trembla. Toutes ces présences étaient des formes de vie composées de fragments d'âme. Non seulement la section intérieure en recélait davantage, mais elles étaient bien plus puissantes que celles de l'extérieur.
 
-Ses yeux s'illuminèrent ; il choisit une direction et s'élança avec célérité. Son premier objectif était de trouver la montagne censée être le centre de ce lieu.
+Ses yeux s'illuminèrent; il choisit une direction et s'élança avec célérité. Son premier objectif était de trouver la montagne censée être le centre de ce lieu.
 
-Il savait qu'il ne disposait pas de beaucoup de temps. Si le Cristal de la Planète de Cultivation se brisait, il devrait utiliser la méthode donnée par Situ Nan. Ce cristal était un objet tyrannique, représentant le pouvoir absolu que l'Alliance de Cultivation accordait aux pays de cultivation de rang 6.
+Il savait qu'il ne disposait pas de beaucoup de temps. Si le Cristal de la Planète de Culture se brisait, il devrait utiliser la méthode donnée par Situ Nan. Ce cristal était un objet tyrannique, représentant le pouvoir absolu que l'Alliance de Culture accordait aux pays de culture de rang 6.
 
-Une fois que les cultivateurs atteignent le stade Ascendant et ont tenté de trouver leur propre Tao, ils peuvent espérer récupérer leurs fragments d'âme du Cristal de la Planète de Cultivation. Cependant, aucun des Suzaku n'avait pu récupérer ses fragments. S'ils l'avaient fait, ils auraient perdu leur capacité à utiliser le sceau Suzaku et, par extension, leur titre de Suzaku.
+Une fois que les cultivateurs atteignent le stade Ascendant et ont tenté de trouver leur propre Tao, ils peuvent espérer récupérer leurs fragments d'âme du Cristal de la Planète de Culture. Cependant, aucun des Suzaku n'avait pu récupérer ses fragments. S'ils l'avaient fait, ils auraient perdu leur capacité à utiliser le sceau Suzaku et, par extension, leur titre de Suzaku.

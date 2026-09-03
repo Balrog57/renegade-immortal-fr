@@ -14,19 +14,19 @@ Ce drapeau substitut ne pouvait sceller que dix âmes, ce qui signifiait qu'il s
 
 Mais cet objet compensait par la quantité, car on pouvait utiliser dix de ces drapeaux simultanément. Bien qu'il ne fût pas aussi puissant qu'un drapeau d'âmes à cent âmes, il en possédait tout de même la moitié de la puissance.
 
-À l'instar de ses sorts, Wang Lin avait dissimulé une faille fatale dans ce drapeau substitut, et lui seul en connaissait la faiblesse. Après tout, Wang Lin était le seul être sur la planète Tian Yun à connaître les sorts du Secte de l'Affinement des Âmes.
+À l'instar de ses sorts, Wang Lin avait dissimulé une faille fatale dans ce drapeau substitut, et lui seul en connaissait la faiblesse. Après tout, Wang Lin était le seul être sur la planète Tian Yun à connaître les sorts de la Secte de l'Affinement des Âmes.
 
 Après avoir gravé la méthode de création du nouveau drapeau sur un jade, Wang Lin déploya son sens divin et appela Ouyang Hua ainsi que le jeune homme nommé Treize.
 
 Treize était le jeune homme que Wang Lin avait secrètement suivi pour trouver la vallée.
 
-Ce dernier semblait posséder une affinité naturelle avec les sorts du Secte de l'Affinement des Âmes. Si Du Tian avait été encore en vie, il en aurait été absolument stupéfait.
+Ce dernier semblait posséder une affinité naturelle avec les sorts de la Secte de l'Affinement des Âmes. Si Du Tian avait été encore en vie, il en aurait été absolument stupéfait.
 
 Treize se tint rapidement devant Wang Lin. Il ne ressentait que respect et admiration envers le Suprême Céleste qui se tenait devant lui.
 
 Plus il pratiquait le sort d'affinement des âmes, plus l'émerveillement grandissait en son cœur. Durant les trois mois passés à étudier ce sort, il en était venu à la conclusion que s'il parvenait à le maîtriser pleinement, sa puissance dépasserait l'imagination.
 
-Drapeau d'âmes à 10 âmes ; drapeau d'âmes à 100 âmes ; drapeau d'âmes à 1 000 âmes ; drapeau d'âmes à 10 000 âmes...
+Drapeau d'âmes à 10 âmes; drapeau d'âmes à 100 âmes; drapeau d'âmes à 1 000 âmes; drapeau d'âmes à 10 000 âmes...
 
 Treize prit une profonde inspiration, une lueur d'excitation brillant dans ses yeux.
 
@@ -34,35 +34,35 @@ Ouyang Hua, bien plus expérimenté que Treize, se tenait là en silence avec un
 
 En vérité, dès l'instant où chacun avait commencé à apprendre le sort d'affinement des âmes, l'autorité réelle sur le village s'était progressivement déplacée d'Ouyang Hua vers Wang Lin.
 
-Presque tout le monde savait que Wang Lin était le véritable maître des lieux !
+Presque tout le monde savait que Wang Lin était le véritable maître des lieux!
 
 « Suprême Céleste, les 27 hommes du village ont tous commencé à cultiver le sort démoniaque. Actuellement, hormis Treize, la plupart sont bloqués au premier stade, et six d'entre eux n'ont même pas réussi à atteindre ce niveau. »
 
 Wang Lin, assis en position de lotus, hocha la tête. Bien que le sort d'affinement des âmes fût facile à apprendre, il ne convenait pas à tous. Le fait qu'une grande majorité des 27 personnes ici aient déjà atteint le premier stade aurait été une nouvelle stupéfiante sur Suzaku.
 
-En jetant un regard sur Treize, Wang Lin se montra très satisfait de la rapidité avec laquelle l'enfant progressait dans sa cultivation.
+En jetant un regard sur Treize, Wang Lin se montra très satisfait de la rapidité avec laquelle l'enfant progressait dans sa culture.
 
-Remarquant le regard de Wang Lin, Treize se redressa et son excitation s'intensifia : « Suprême Céleste, Treize a déjà atteint le troisième stade. Si je parviens à créer le drapeau d'âmes, je pourrai sortir pour trouver des fragments d'âmes afin de les sceller à l'intérieur ! »
+Remarquant le regard de Wang Lin, Treize se redressa et son excitation s'intensifia: « Suprême Céleste, Treize a déjà atteint le troisième stade. Si je parviens à créer le drapeau d'âmes, je pourrai sortir pour trouver des fragments d'âmes afin de les sceller à l'intérieur! »
 
-Wang Lin esquissa un léger sourire et, d'un mouvement de sa main droite, fit apparaître un jade. Il lança l'objet en souriant : « La nouvelle méthode pour fabriquer les drapeaux d'âmes se trouve ici ! »
+Wang Lin esquissa un léger sourire et, d'un mouvement de sa main droite, fit apparaître un jade. Il lança l'objet en souriant: « La nouvelle méthode pour fabriquer les drapeaux d'âmes se trouve ici! »
 
 Treize attrapa le jade avec une expression de joie extrême. Il prit une profonde inspiration, pressa le jade contre son front et commença à visualiser, tel qu'Ouyang Hua le lui avait enseigné. Peu après, son corps trembla légèrement et ses yeux s'emplirent d'exaltation.
 
 Il regarda Wang Lin et se prosterna soudainement au sol, effectuant trois kowtows appuyés.
 
-Wang Lin ferma les yeux et dit calmement : « Tu peux disposer. Concentre tous tes efforts sur la création du drapeau d'âmes. »
+Wang Lin ferma les yeux et dit calmement: « Tu peux disposer. Concentre tous tes efforts sur la création du drapeau d'âmes. »
 
 Treize hocha la tête, reposa le jade et s'éclipsa respectueusement.
 
 Ouyang Hua hésita un instant. Il regarda Wang Lin, puis le jade posé au sol. Sans la permission de Wang Lin, il n'oserait pas ramasser l'objet pour l'examiner.
 
-Wang Lin dit d'une voix lente : « Regarde-le. Tu as déjà atteint le troisième stade. Si tu réussis à en fabriquer un, ta puissance augmentera considérablement lorsque tu utiliseras ton énergie spirituelle démoniaque pour sceller un fragment d'âme. »
+Wang Lin dit d'une voix lente: « Regarde-le. Tu as déjà atteint le troisième stade. Si tu réussis à en fabriquer un, ta puissance augmentera considérablement lorsque tu utiliseras ton énergie spirituelle démoniaque pour sceller un fragment d'âme. »
 
-Ouyang Hua ramassa rapidement le jade et le pressa contre son front. Peu après, il prit une profonde inspiration et dit respectueusement : « Ce junior partira chercher les matériaux nécessaires à sa fabrication. »
+Ouyang Hua ramassa rapidement le jade et le pressa contre son front. Peu après, il prit une profonde inspiration et dit respectueusement: « Ce junior partira chercher les matériaux nécessaires à sa fabrication. »
 
-Puis, après une courte réflexion, il ajouta : « Suprême Céleste, une fois que Treize et moi aurons réussi à fabriquer nos drapeaux d'âmes, je prévois d'attaquer une grotte située à 500 kilomètres d'ici. Une autre tribu s'y trouve, composée d'une dizaine de personnes. »
+Puis, après une courte réflexion, il ajouta: « Suprême Céleste, une fois que Treize et moi aurons réussi à fabriquer nos drapeaux d'âmes, je prévois d'attaquer une grotte située à 500 kilomètres d'ici. Une autre tribu s'y trouve, composée d'une dizaine de personnes. »
 
-L'expression de Wang Lin resta imperturbable alors qu'il répondait : « Fais ce que tu souhaites ! »
+L'expression de Wang Lin resta imperturbable alors qu'il répondait: « Fais ce que tu souhaites! »
 
 Ouyang Hua hocha la tête et partit précipitamment.
 
@@ -78,13 +78,13 @@ Treize était transporté par cette attention.
 
 Ouyang Hua se caressa la barbe en affichant un sourire. En vérité, il avait déjà fabriqué un drapeau d'âmes quelques jours avant Treize, mais il ne l'avait pas révélé, laissant ainsi à Treize la chance de briller.
 
-Ouyang Hua était tel un vieux renard rusé ; il avait naturellement remarqué que Treize semblait avoir capté l'attention du Suprême Céleste Wang Lin. Ajouté au fait qu'il vieillissait et que l'avenir ne lui appartenait plus, il semblait clair que cet avenir reviendrait à Treize !
+Ouyang Hua était tel un vieux renard rusé; il avait naturellement remarqué que Treize semblait avoir capté l'attention du Suprême Céleste Wang Lin. Ajouté au fait qu'il vieillissait et que l'avenir ne lui appartenait plus, il semblait clair que cet avenir reviendrait à Treize!
 
-Quelqu'un dans la foule demanda : « Petit Treize, le drapeau d'âmes n'est utile qu'une fois qu'un fragment d'âme y est scellé. Quand comptes-tu capturer un fragment pour le sceller ? »
+Quelqu'un dans la foule demanda: « Petit Treize, le drapeau d'âmes n'est utile qu'une fois qu'un fragment d'âme y est scellé. Quand comptes-tu capturer un fragment pour le sceller? »
 
 Les autres hochèrent la tête en signe d'assentiment.
 
-Treize laissa échapper un reniflement et rétorqua : « Qui a dit que je n'avais pas déjà scellé un fragment d'âme ? Regardez bien, tous ! » Sur ces mots, sa main droite traça un sceau, et l'énergie spirituelle démoniaque convergea de toutes parts pour former une lueur verte au bout de son doigt.
+Treize laissa échapper un reniflement et rétorqua: « Qui a dit que je n'avais pas déjà scellé un fragment d'âme? Regardez bien, tous! » Sur ces mots, sa main droite traça un sceau, et l'énergie spirituelle démoniaque convergea de toutes parts pour former une lueur verte au bout de son doigt.
 
 Il pointa le drapeau, qui se mit aussitôt à vibrer. Un rayon de gaz noir s'en échappa soudainement, prenant la forme d'une bête sauvage ressemblant à un lion ailé.
 
@@ -92,7 +92,7 @@ Dès l'apparition de la créature, elle poussa un rugissement qui fit tressailli
 
 Les yeux d'Ouyang Hua se plissèrent, frappé par la surprise.
 
-Treize, arborant une expression fière, pointa la bête et cria : « Attaque ! »
+Treize, arborant une expression fière, pointa la bête et cria: « Attaque! »
 
 Le fragment d'âme semblable à un lion afficha un regard féroce, chargea et percuta le mur. Un fracas retentit et des fissures apparurent sur la paroi.
 
@@ -102,13 +102,13 @@ Des exclamations de surprise jaillirent de la foule, et les regards admiratifs r
 
 Il avait accidentellement découvert ce lion volant en entrant dans la forêt cette fois-ci. La bête était mortelle et venait de succomber à ses blessures. Treize avait serré les dents, risquant d'utiliser le sort d'affinement des âmes. Après de multiples tentatives, il avait réussi à raffiner l'âme et à la sceller dans le drapeau.
 
-Treize prit une profonde inspiration, agita la main et ordonna : « Retour ! »
+Treize prit une profonde inspiration, agita la main et ordonna: « Retour! »
 
-Il fit alors tournoyer le drapeau, mais à cet instant précis, le fragment d'âme du lion se tourna vers lui avec un regard malveillant. Il bougea comme l'éclair, mais non pas vers le drapeau ; il chargeait Treize.
+Il fit alors tournoyer le drapeau, mais à cet instant précis, le fragment d'âme du lion se tourna vers lui avec un regard malveillant. Il bougea comme l'éclair, mais non pas vers le drapeau; il chargeait Treize.
 
 La férocité dans ses yeux s'était muée en une intention meurtrière.
 
-Le visage de Treize se décomposa. Il brandit le drapeau et cria : « Retour ! »
+Le visage de Treize se décomposa. Il brandit le drapeau et cria: « Retour! »
 
 L'âme du lion ignora totalement l'ordre et chargea, provoquant la dispersion générale. Ouyang Hua serra les dents et s'élança à son tour, tenant désormais un petit drapeau de trois pouces.
 
@@ -122,13 +122,13 @@ Treize était livide. Il voulut reculer, mais une force mystérieuse semblait l'
 
 C'est à ce moment précis qu'un reniflement glacial retentit dans la vallée, tel un coup de tonnerre.
 
-Ce fut suivi d'une voix plus froide que l'hiver : « Espèce de bête maudite, oses-tu ?! »
+Ce fut suivi d'une voix plus froide que l'hiver: « Espèce de bête maudite, oses-tu?! »
 
-Lorsque cette voix atteignit les oreilles de Treize, il eut l'impression d'entendre un son divin. Il cria dans un élan de panique : « Suprême Céleste, sauvez-moi... ! »
+Lorsque cette voix atteignit les oreilles de Treize, il eut l'impression d'entendre un son divin. Il cria dans un élan de panique: « Suprême Céleste, sauvez-moi...! »
 
 La même voix frappa les oreilles du lion comme un tonnerre déchaîné, faisant trembler violemment son corps au point de le faire s'effondrer.
 
-S'il ne s'effondra pas, ce n'était pas par force, mais parce que Wang Lin ne le voulait pas !
+S'il ne s'effondra pas, ce n'était pas par force, mais parce que Wang Lin ne le voulait pas!
 
 La charge s'interrompit net et, sans la moindre hésitation, le lion poussa un cri misérable avant de faire demi-tour pour fuir. À cet instant, une silhouette émergea du fond de la vallée.
 
@@ -150,4 +150,4 @@ Si ces deux-là étaient ainsi impressionnés, il n'était même pas nécessaire
 
 En vérité, si le fragment d'âme du lion craignait autant Wang Lin, c'était principalement à cause de la faille fatale que ce dernier avait laissée dans le sort et le drapeau d'âmes.
 
-Tous les fragments d'âmes scellés par ceux qui pratiquaient le sort modifié par Wang Lin pouvaient être supprimés et contrôlés par lui !
+Tous les fragments d'âmes scellés par ceux qui pratiquaient le sort modifié par Wang Lin pouvaient être supprimés et contrôlés par lui!

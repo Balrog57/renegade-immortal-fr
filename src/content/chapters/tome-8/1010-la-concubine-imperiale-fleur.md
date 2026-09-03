@@ -6,71 +6,71 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1010 - Flower Imperial Concubine
 slug: la-concubine-imperiale-fleur
 ---
-Comment une simple statue pouvait-elle faire plier un dieu ancien ?! Alors que la puissance de son héritage de dieu ancien remplissait son corps, Wang Lin se redressa. Ses yeux étaient tels des éclairs lorsqu'il croisa à nouveau le regard de la statue !
+Comment une simple statue pouvait-elle faire plier un dieu ancien?! Alors que la puissance de son héritage de dieu ancien remplissait son corps, Wang Lin se redressa. Ses yeux étaient tels des éclairs lorsqu'il croisa à nouveau le regard de la statue!
 
 Il sentit un grondement dans son esprit qui se propagea à travers son corps. Tandis que celui-ci tremblait, ses yeux brillaient d'un regard inflexible.
 
-« Rien ne peut faire plier les dieux anciens ! Ni les cieux, ni les lois du monde, et vous non plus ! » Les étoiles de dieu ancien tournaient rapidement entre les sourcils de Wang Lin, et des craquements retentirent à l'intérieur de son corps. Bien qu'il n'ait pas encore pris sa véritable forme de dieu ancien, la force de son corps augmentait rapidement.
+« Rien ne peut faire plier les dieux anciens! Ni les cieux, ni les lois du monde, et vous non plus! » Les étoiles de dieu ancien tournaient rapidement entre les sourcils de Wang Lin, et des craquements retentirent à l'intérieur de son corps. Bien qu'il n'ait pas encore pris sa véritable forme de dieu ancien, la force de son corps augmentait rapidement.
 
 Sa puissance physique lui permettait d'accueillir davantage de puissance de dieu ancien. Wang Lin pouvait désormais se tenir là, tel une montagne, tandis qu'une aura indomptable éruptait de son corps.
 
-Cette aura résistait à la suppression dégagée par la statue !
+Cette aura résistait à la suppression dégagée par la statue!
 
 Des ondulations silencieuses résonnèrent, formant une tempête qui balaya la salle, forçant Wang Lin à reculer une fois de plus.
 
 Wang Lin poussa un rugissement tout en luttant pour s'arrêter, les yeux fixés sur la statue. À cet instant, il eut l'illusion que la statue était vivante et qu'elle le regardait avec froideur.
 
-Roar !
+Roar!
 
-Soudain, Wang Lin leva la tête et libéra le rugissement d'un dieu ancien. Toute forme de vie devait s'incliner devant le rugissement des dieux anciens. Aucune n'était digne de se tenir devant lui !
+Soudain, Wang Lin leva la tête et libéra le rugissement d'un dieu ancien. Toute forme de vie devait s'incliner devant le rugissement des dieux anciens. Aucune n'était digne de se tenir devant lui!
 
-Alors qu'il rugissait, toute la grotte se mit à trembler comme si elle ne pouvait supporter un tel son. Au même moment, Wang Lin leva le pied et fit un pas en avant avec acharnement !
+Alors qu'il rugissait, toute la grotte se mit à trembler comme si elle ne pouvait supporter un tel son. Au même moment, Wang Lin leva le pied et fit un pas en avant avec acharnement!
 
 Bien que ce pas fût simple, il était extrêmement difficile pour Wang Lin. Face à cette pression inimaginable et cette aura capable de faire s'effondrer n'importe qui, la seule voie logique était de reculer. Cependant, reculer signifiait céder, et s'il ne parvenait pas à inverser la situation, il aurait totalement capitulé.
 
-Les dieux anciens osaient défier les cieux et le Dao. S'il devait s'incliner devant cette simple statue, Wang Lin ne serait pas digne de porter le titre de véritable dieu ancien !
+Les dieux anciens osaient défier les cieux et le Dao. S'il devait s'incliner devant cette simple statue, Wang Lin ne serait pas digne de porter le titre de véritable dieu ancien!
 
-À chaque pas, Wang Lin entendait les sons terrifiants de choses se brisant à l'intérieur de lui. Faire ce pas signifiait affronter directement cette pression et rejeter toute possibilité de négociation !
+À chaque pas, Wang Lin entendait les sons terrifiants de choses se brisant à l'intérieur de lui. Faire ce pas signifiait affronter directement cette pression et rejeter toute possibilité de négociation!
 
-Pourtant, c'était précisément ce que l'héritage du dieu ancien en lui exigeait !
+Pourtant, c'était précisément ce que l'héritage du dieu ancien en lui exigeait!
 
-Reculer de dix pas, de cent pas, ou même rester immobile en luttant sans faiblir, restait faire preuve d'une volonté trop faible. Une telle attitude signifiait que le Dao que l'on suivait ne pouvait que se soumettre à la volonté des cieux !
+Reculer de dix pas, de cent pas, ou même rester immobile en luttant sans faiblir, restait faire preuve d'une volonté trop faible. Une telle attitude signifiait que le Dao que l'on suivait ne pouvait que se soumettre à la volonté des cieux!
 
-Mais faire un seul pas était très différent. Cela signifiait la rébellion ; cela signifiait le défi !
+Mais faire un seul pas était très différent. Cela signifiait la rébellion; cela signifiait le défi!
 
-Après ce pas, la pression de la statue augmenta de plusieurs crans. C'était comme si d'innombrables montagnes s'étaient abattues sur Wang Lin, l'empêchant de résister !
+Après ce pas, la pression de la statue augmenta de plusieurs crans. C'était comme si d'innombrables montagnes s'étaient abattues sur Wang Lin, l'empêchant de résister!
 
-Le sang jaillit des pores de son dos, mais il fit un autre pas en avant !
+Le sang jaillit des pores de son dos, mais il fit un autre pas en avant!
 
-« Moi, Wang Lin, je suis un cultivateur qui défie les cieux. J'ose défier le ciel et le destin, alors comment pourrais-je reculer ici ?! » Le pas de Wang Lin était comme remonter un fleuve à contre-courant et irriter les cieux. Une pression encore plus puissante s'abattit sur lui.
+« Moi, Wang Lin, je suis un cultivateur qui défie les cieux. J'ose défier le ciel et le destin, alors comment pourrais-je reculer ici?! » Le pas de Wang Lin était comme remonter un fleuve à contre-courant et irriter les cieux. Une pression encore plus puissante s'abattit sur lui.
 
-« Un chercheur de Dao peut naître à l'aube et mourir au crépuscule. Un cultivateur qui défie les cieux possède un cœur rebelle. Qu'y a-t-il à craindre ? Ce n'est que la mort ! »
+« Un chercheur de Dao peut naître à l'aube et mourir au crépuscule. Un cultivateur qui défie les cieux possède un cœur rebelle. Qu'y a-t-il à craindre? Ce n'est que la mort! »
 
-Sous cette pression inimaginable, le sang jaillit du corps de Wang Lin. Il était couvert de sang, mais il rit. Son rire était empreint d'une aura indomptable !
+Sous cette pression inimaginable, le sang jaillit du corps de Wang Lin. Il était couvert de sang, mais il rit. Son rire était empreint d'une aura indomptable!
 
-L'esprit de Wang Lin était désormais limpide, toutes les pensées inutiles ayant été balayées. Une seule idée occupait son esprit : « défier ! »
+L'esprit de Wang Lin était désormais limpide, toutes les pensées inutiles ayant été balayées. Une seule idée occupait son esprit: « défier! »
 
-Autrefois, il avait défié les cieux dans la Terre des Esprits Démoniaques pour atteindre le stade Ascendant. Ici, il faisait face à cette pression une fois de plus dans la Terre des Esprits Démoniaques. Cette nature rebelle, que Wang Lin avait scellée et supprimée durant son séjour à Allheaven, refleurissait une fois de plus !
+Autrefois, il avait défié les cieux dans la Terre des Esprits Démoniaques pour atteindre le stade Ascendant. Ici, il faisait face à cette pression une fois de plus dans la Terre des Esprits Démoniaques. Cette nature rebelle, que Wang Lin avait scellée et supprimée durant son séjour à Allheaven, refleurissait une fois de plus!
 
-Tout était une question de karma !
+Tout était une question de karma!
 
-Tout en riant, Wang Lin fit un autre pas. Au moment où il fit le troisième pas, la pression dans le palais disparut comme si elle n'avait jamais existé !
+Tout en riant, Wang Lin fit un autre pas. Au moment où il fit le troisième pas, la pression dans le palais disparut comme si elle n'avait jamais existé!
 
 La femme en blanc, observant Wang Lin depuis sous la statue, laissa transparaître une émotion complexe.
 
-Seul le rire de Wang Lin résonna dans le palais avant de se dissiper lentement !
+Seul le rire de Wang Lin résonna dans le palais avant de se dissiper lentement!
 
 Dès qu'il vit la statue, il devina qui elle représentait. L'apparence de cette personne ressemblait quelque peu à celle de Qing Shuang.
 
-De plus, une seule personne pouvait faire en sorte qu'une simple statue dégage une pression aussi écrasante !
+De plus, une seule personne pouvait faire en sorte qu'une simple statue dégage une pression aussi écrasante!
 
-« L'Empereur Céleste Qing Lin ! » Le dos de Wang Lin était trempé de sueur. Le danger qu'il avait ressenti à l'instant n'avait aucun précédent. Sans la puissance des dieux anciens, il aurait instantanément explosé et serait mort.
+« L'Empereur Céleste Qing Lin! » Le dos de Wang Lin était trempé de sueur. Le danger qu'il avait ressenti à l'instant n'avait aucun précédent. Sans la puissance des dieux anciens, il aurait instantanément explosé et serait mort.
 
 Une trace de froideur apparut dans le regard de Wang Lin lorsqu'il fixa la femme en blanc.
 
-La femme en blanc baissa la tête et dit doucement : « Vous avez passé le test ! »
+La femme en blanc baissa la tête et dit doucement: « Vous avez passé le test! »
 
-Wang Lin demanda calmement : « Qui êtes-vous ? »
+Wang Lin demanda calmement: « Qui êtes-vous? »
 
 « L'une des huit concubines impériales, la Concubine Impériale Fleur, Han Yan. » La femme regarda la statue. Ses yeux étaient empreints d'un regard doux et d'un profond sentiment d'amour.
 
@@ -86,21 +86,21 @@ Plus incroyable encore, les étoiles n'étaient pas statiques, mais se déplaça
 
 « Entrez dans ce réseau de transfert pour accéder à la terre scellée. Si vous avez la capacité de l'ouvrir, vous pourrez pénétrer dans la véritable grotte céleste. »
 
-« Est-ce là la grotte céleste où se trouve l'Empereur Céleste Qing Lin ? » Le regard de Wang Lin passa des étoiles à la formation constituée par les dalles.
+« Est-ce là la grotte céleste où se trouve l'Empereur Céleste Qing Lin? » Le regard de Wang Lin passa des étoiles à la formation constituée par les dalles.
 
-La femme en blanc réfléchit silencieusement en contemplant la statue. Après un long moment, elle dit doucement : « À son retour, il était déjà blessé. Il fut ensuite attaqué par deux insignifiants étrangers. Une fois revenu, il activa la grotte céleste pour se soigner. »
+La femme en blanc réfléchit silencieusement en contemplant la statue. Après un long moment, elle dit doucement: « À son retour, il était déjà blessé. Il fut ensuite attaqué par deux insignifiants étrangers. Une fois revenu, il activa la grotte céleste pour se soigner. »
 
-« À l'origine, il n'y avait pas d'entrée, mais il en a créé quatre. Si les quatre entrées sont ouvertes, une véritable porte apparaîtra dans la Terre des Esprits Démoniaques, menant à l'endroit où il est en cultivation de porte close... »
+« À l'origine, il n'y avait pas d'entrée, mais il en a créé quatre. Si les quatre entrées sont ouvertes, une véritable porte apparaîtra dans la Terre des Esprits Démoniaques, menant à l'endroit où il est en culture de porte close... »
 
 « Vous possédez le sortilège Stop, vous avez la dépouille de Qing Shuang et vous portez le nom de Wang, alors je ne vous arrêterai pas... Une fois entré dans le réseau de transfert, vos compagnons apparaîtront dans votre esprit. » La femme soupira en se détournant pour s'enfoncer dans les profondeurs du hall. Wang Lin observa sa silhouette empreinte de solitude et de mélancolie.
 
-Wang Lin demanda précipitamment : « Que voulez-vous dire par "portez le nom de Wang" ? »
+Wang Lin demanda précipitamment: « Que voulez-vous dire par "portez le nom de Wang"? »
 
 « Si le destin le permet, vous le découvrirez... » La voix de la femme en blanc était faible alors qu'elle sombrait lentement dans les ténèbres.
 
-Wang Lin regarda vers l'obscurité et lança rapidement : « Avec votre pouvoir, Senior, pourquoi ne venez-vous pas avec moi ? »
+Wang Lin regarda vers l'obscurité et lança rapidement: « Avec votre pouvoir, Senior, pourquoi ne venez-vous pas avec moi? »
 
-La femme en blanc, qui s'était déjà à moitié enfoncée dans le noir, s'arrêta brusquement. Son dos était tourné vers Wang Lin lorsqu'elle laissa échapper une expression amère et murmura : « Je ne peux pas partir... »
+La femme en blanc, qui s'était déjà à moitié enfoncée dans le noir, s'arrêta brusquement. Son dos était tourné vers Wang Lin lorsqu'elle laissa échapper une expression amère et murmura: « Je ne peux pas partir... »
 
 Tandis qu'elle parlait, son corps disparut complètement dans l'obscurité.
 
@@ -140,10 +140,10 @@ D'une pensée, Maître Vent Creux, les trois frères Chen, Grand Tête et Lei Ji
 
 À cet instant précis, l'expression de Situ Nan changea lorsqu'il sentit un Sens Divin passer près de lui. Ce Sens Divin lui était très familier.
 
-« Wang Lin ! »
+« Wang Lin! »
 
 Le corps de Situ Nan disparut sous le balayage du Sens Divin de Wang Lin. Lorsqu'il réapparut, il se trouvait aux côtés de la grande formation.
 
-« La grotte est totalement ouverte. Lei Ji, ta cultivation est insuffisante, alors attends ici que nous revenions ! » Alors que la voix de Wang Lin résonnait, la formation au sol commença à scintiller.
+« La grotte est totalement ouverte. Lei Ji, ta culture est insuffisante, alors attends ici que nous revenions! » Alors que la voix de Wang Lin résonnait, la formation au sol commença à scintiller.
 
-Au même moment, un changement prodigieux se produisit dans la Terre des Esprits Démoniaques !
+Au même moment, un changement prodigieux se produisit dans la Terre des Esprits Démoniaques!

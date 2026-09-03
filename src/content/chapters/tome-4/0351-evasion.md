@@ -6,11 +6,11 @@ bookTitle: Clean Sweep
 en: Chapter 351 - Escape
 slug: evasion
 ---
-L'esprit bestial avala l'âme et se tourna vers Wang Lin. Bien que la bête fût sous le contrôle du piège à bêtes, elle restait extrêmement hostile. Comment pourrait-elle accepter d'être asservie par Wang Lin ?
+L'esprit bestial avala l'âme et se tourna vers Wang Lin. Bien que la bête fût sous le contrôle du piège à bêtes, elle restait extrêmement hostile. Comment pourrait-elle accepter d'être asservie par Wang Lin?
 
 Wang Lin resta d'un calme imperturbable alors que la bête bondissait vers lui. Il traça un sceau et l'envoya vers le char de guerre. Immédiatement, des chaînes jaillirent du char et emprisonnèrent l'esprit bestial.
 
-L'esprit bestial se débattit avec acharnement, refusant de capituler. Cependant, les chaînes semblaient imprégnées d'une puissance immense ; elles traînèrent lentement l'esprit vers le char de guerre.
+L'esprit bestial se débattit avec acharnement, refusant de capituler. Cependant, les chaînes semblaient imprégnées d'une puissance immense; elles traînèrent lentement l'esprit vers le char de guerre.
 
 L'esprit bestial continua de lutter en vain alors qu'il était entraîné vers l'engin. Lorsqu'il fut à proximité du char de guerre, son corps commença à rétrécir jusqu'à ce qu'il disparaisse à l'intérieur.
 
@@ -22,7 +22,7 @@ La pierre spirituelle de qualité supérieure en main, Wang Lin s'éleva rapidem
 
 Ce processus dura un long moment avant que l'aspiration ne faiblisse peu à peu. Wang Lin essuya la sueur sur son front. Lorsqu'il relâcha sa main, la pierre spirituelle de qualité supérieure n'était plus qu'une fine poussière au creux de sa paume.
 
-« La puissance du Char de Guerre Divin dépasse mon imagination ; il est véritablement digne d'être qualifié de trésor céleste. Cependant, l'esprit bestial est trop féroce. Si le piège à bêtes peut le contrôler un court instant, il pourrait bien finir par m'épuiser totalement un jour. »
+« La puissance du Char de Guerre Divin dépasse mon imagination; il est véritablement digne d'être qualifié de trésor céleste. Cependant, l'esprit bestial est trop féroce. Si le piège à bêtes peut le contrôler un court instant, il pourrait bien finir par m'épuiser totalement un jour. »
 
 « De plus, chaque fois que je l'utiliserai, je devrai consommer une pierre spirituelle de qualité supérieure pour reconstituer l'énergie perdue. Le coût est tout simplement trop élevé. » La sueur sur le front de Wang Lin s'évapora sous la brise qui soufflait sur son visage. Il commença à réfléchir en silence.
 
@@ -30,9 +30,9 @@ Sa vitesse était grande. Il savait que le troisième étage était extrêmement
 
 Un shaman aux sept feuilles, dont la puissance équivalait à celle d'un cultivateur de la Transformation de l'Âme, était un adversaire contre lequel l'actuel Wang Lin ne pouvait rien faire.
 
-« Je me demande si le Char de Guerre Divin peut tuer un cultivateur de la Transformation de l'Âme. La différence entre un cultivateur de la Formation de l'Âme et un cultivateur de la Transformation de l'Âme n'est pas une simple question de chiffres ; c'est une différence de nature. Toute l'énergie spirituelle d'un cultivateur de la Transformation de l'Âme s'est transformée en énergie spirituelle céleste. » Wang Lin fronça les sourcils.
+« Je me demande si le Char de Guerre Divin peut tuer un cultivateur de la Transformation de l'Âme. La différence entre un cultivateur de la Formation de l'Âme et un cultivateur de la Transformation de l'Âme n'est pas une simple question de chiffres; c'est une différence de nature. Toute l'énergie spirituelle d'un cultivateur de la Transformation de l'Âme s'est transformée en énergie spirituelle céleste. » Wang Lin fronça les sourcils.
 
-« Cependant, c'est un peu étrange. Pourquoi aucun shaman aux sept feuilles n'est-il apparu lors du tumulte sous l'arbre de la réincarnation ? » Les yeux de Wang Lin s'illuminèrent et il accéléra encore sa course.
+« Cependant, c'est un peu étrange. Pourquoi aucun shaman aux sept feuilles n'est-il apparu lors du tumulte sous l'arbre de la réincarnation? » Les yeux de Wang Lin s'illuminèrent et il accéléra encore sa course.
 
 Il était très visible en survolant le troisième étage avec l'arbre de la réincarnation sur l'épaule. Il passa sa main sur l'arbre et le coupa en plusieurs morceaux.
 
@@ -40,7 +40,7 @@ Il était très visible en survolant le troisième étage avec l'arbre de la ré
 
 Sans délai, un petit fragment de l'arbre de la réincarnation disparut dans son sac de rangement.
 
-« Ça a marché ! » Wang Lin augmenta sa vitesse et entreposa rapidement les morceaux de l'arbre dans son sac.
+« Ça a marché! » Wang Lin augmenta sa vitesse et entreposa rapidement les morceaux de l'arbre dans son sac.
 
 « Cet arbre de la réincarnation est véritablement mystérieux. Il ne peut pas être placé dans le sac de rangement en un seul bloc, mais il accepte d'être fragmenté. » Wang Lin jeta un regard à son sac et s'élança vers la sortie du troisième étage.
 
@@ -54,7 +54,7 @@ Le vieillard aux cheveux blancs portait un bracelet fait d'os de bêtes. Il touc
 
 En un clin d'œil, il disparut pour réapparaître au deuxième étage.
 
-« Qu'est-ce que c'est ? » Dès sa réapparition, le vieil homme fut frappé par la stupéfaction. Lorsqu'il avait disparu, il percevait clairement la position de l'intrus, mais à son retour, la présence de celui-ci s'était totalement volatilisée.
+« Qu'est-ce que c'est? » Dès sa réapparition, le vieil homme fut frappé par la stupéfaction. Lorsqu'il avait disparu, il percevait clairement la position de l'intrus, mais à son retour, la présence de celui-ci s'était totalement volatilisée.
 
 Le vieil homme se redressa et pointa sa tempe. Une plante aux sept feuilles apparut lentement sur son front, et chaque recoin du deuxième étage fut instantanément projeté dans son esprit.
 
@@ -94,17 +94,17 @@ D'un seul regard, Wang Lin eut l'impression d'être totalement mis à nu. Un fro
 
 Il n'osa pas reculer. Il sentait que s'il faisait le moindre pas en arrière, le vieil homme le tuerait sur-le-champ. Il fixa froidement le vieillard, sa main gauche agrippant le piège à bêtes.
 
-Le vieil homme toussa et dit lentement : « Tu as tué Momo, Dia Ya, Ca Gu et Chi Mu. Je perçois des esprits vengeurs sur toi. Tuer les juniors de mon clan avec ton simple niveau de cultivation, qui frôle à peine le stade intermédiaire de la Formation de l'Âme, et surtout un guerrier aux six feuilles comme Chi Mu, doit faire de toi un nom célèbre dans le monde de la cultivation. Quel est ton nom ? »
+Le vieil homme toussa et dit lentement: « Tu as tué Momo, Dia Ya, Ca Gu et Chi Mu. Je perçois des esprits vengeurs sur toi. Tuer les juniors de mon clan avec ton simple niveau de culture, qui frôle à peine le stade intermédiaire de la Formation de l'Âme, et surtout un guerrier aux six feuilles comme Chi Mu, doit faire de toi un nom célèbre dans le monde de la culture. Quel est ton nom? »
 
-Wang Lin répondit calmement : « Wang Lin ! » Sa main gauche pressait fermement le piège à bêtes. Le char de guerre présentait un défaut fatal : son activation était trop lente. Wang Lin n'était pas certain de pouvoir gagner assez de temps pour l'ouvrir.
+Wang Lin répondit calmement: « Wang Lin! » Sa main gauche pressait fermement le piège à bêtes. Le char de guerre présentait un défaut fatal: son activation était trop lente. Wang Lin n'était pas certain de pouvoir gagner assez de temps pour l'ouvrir.
 
-« Le trésor qui a tué Chi Mu doit être ce bracelet que tu portes. » Le vieil homme observa le piège à bêtes et ajouta : « On y sent l'odeur d'un esprit bestial. »
+« Le trésor qui a tué Chi Mu doit être ce bracelet que tu portes. » Le vieil homme observa le piège à bêtes et ajouta: « On y sent l'odeur d'un esprit bestial. »
 
 Le visage de Wang Lin se fit sombre. Il fixa le vieillard tout en tentant de reculer lentement.
 
 Les yeux du vieil homme se tournèrent de nouveau vers lui. Wang Lin marqua un temps d'arrêt et cessa de reculer.
 
-Le vieil homme toussa. « Je ne serai pas trop dur avec toi. Dis-moi quelle méthode tu as utilisée pour dissimuler ta présence, et je préserverai ton corps intact avant de t'apposer moi-même un tatouage. À partir de là, tu deviendras ma marionnette tatouée. Quelqu'un de ton niveau de cultivation ne pourra pas s'échapper. » Le vieillard tendit la main et Wang Lin sentit immédiatement l'espace autour de lui commencer à se refermer.
+Le vieil homme toussa. « Je ne serai pas trop dur avec toi. Dis-moi quelle méthode tu as utilisée pour dissimuler ta présence, et je préserverai ton corps intact avant de t'apposer moi-même un tatouage. À partir de là, tu deviendras ma marionnette tatouée. Quelqu'un de ton niveau de culture ne pourra pas s'échapper. » Le vieillard tendit la main et Wang Lin sentit immédiatement l'espace autour de lui commencer à se refermer.
 
 Le regard de Wang Lin devint glacial. Sa main droite toucha son sac de rangement, et le drapeau de restriction apparut. Il libéra une multitude de dragons faits de gaz de restriction qui chargèrent vers le vieil homme.
 
@@ -114,9 +114,9 @@ Le vieil homme haussa un sourcil et pointa le doigt en avant. Les tatouages sur 
 
 Dès qu'il apparut, le tatouage se divisa en de multiples fragments qui volèrent vers les dragons. Quant à l'énergie de l'épée, le vieil homme créa un autre tatouage qui entra en collision avec elle.
 
-Bang !
+Bang!
 
-L'énergie de l'épée laissa une marque rouge sur le doigt du vieillard. Il l'observa et dit : « Pas mal. Cette épée doit également être un trésor précieux. »
+L'énergie de l'épée laissa une marque rouge sur le doigt du vieillard. Il l'observa et dit: « Pas mal. Cette épée doit également être un trésor précieux. »
 
 Wang Lin sentit son cuir chevelu se hérisser. Le drapeau de restriction était inutile, l'épée céleste était inutile, et même le Char de Guerre Divin semblait impuissant face à cet homme.
 
@@ -128,6 +128,6 @@ Il ne bougea pas plus vite cette fois-ci, mais il déploya une puissance bien su
 
 C'était comme si la zone entière était sur le point de s'effondrer.
 
-Les yeux de Wang Lin s'illuminèrent. Après avoir rangé le drapeau de restriction, un autre objet apparut dans sa main : un parchemin.
+Les yeux de Wang Lin s'illuminèrent. Après avoir rangé le drapeau de restriction, un autre objet apparut dans sa main: un parchemin.
 
 Dès que ce parchemin à l'apparence banale apparut dans la main de Wang Lin, le vieil homme, dont l'expression était restée imperturbable, devint soudainement très sérieux et sa main s'immobilisa inconsciemment.

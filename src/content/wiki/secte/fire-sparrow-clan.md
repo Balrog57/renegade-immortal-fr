@@ -18,16 +18,16 @@ Un membre du clan tenta de voler la **Marque de l'Oiseau Vermillon** de **Wang L
 
 ### Fiche signalétique
 
-- **Nom :** Clan du Moineau de Feu (Fire Sparrow Clan)
-- **Origine :** Secte Divine de l'Oiseau Vermillon (Vermillion Bird Divine Sect)
-- **Statut :** L'un des sept grands clans antiques
-- **Affiliation :** Conseil Souverain (Sovereign Council)
-- **Capacité :** Manipulation du feu
-- **Reliques :** 9 statues du Vermillon Noir (3 détruites, autres gravement endommagées)
-- **Ennemi :** Wang Lin
-- **Système stellaire :** Système Stellaire Primordial Antique (Ancient Primordial Star System)
-- **Royaume :** Royaume Extérieur (Outer Realm)
-- **Monde :** Monde de la Grotte de Wang Lin
+- **Nom:** Clan du Moineau de Feu (Fire Sparrow Clan)
+- **Origine:** Secte Divine de l'Oiseau Vermillon (Vermillion Bird Divine Sect)
+- **Statut:** L'un des sept grands clans antiques
+- **Affiliation:** Conseil Souverain (Sovereign Council)
+- **Capacité:** Manipulation du feu
+- **Reliques:** 9 statues du Vermillon Noir (3 détruites, autres gravement endommagées)
+- **Ennemi:** Wang Lin
+- **Système stellaire:** Système Stellaire Primordial Antique (Ancient Primordial Star System)
+- **Royaume:** Royaume Extérieur (Outer Realm)
+- **Monde:** Monde de la Grotte de Wang Lin
 
 ## Contexte
 

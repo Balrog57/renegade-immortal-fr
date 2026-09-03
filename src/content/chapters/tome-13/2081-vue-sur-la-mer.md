@@ -26,17 +26,17 @@ Après un long moment, lorsque Xi Zifeng finit par ouvrir les yeux, un sourire g
 
 Sur le grand rocher central siégeait un vieil homme. Le visage rubicond, il cultivait avec calme. À chaque respiration, un rayon de lumière grise quittait son corps pour pénétrer la roche, avant de se propager afin d'être absorbé par les autres blocs de pierre.
 
-Il n'y avait aucun rocher ici avant sa venue ; mais le jour où le vieil homme arriva, de plus en plus de ces pierres apparurent, comme si elles étaient formées par son sort...
+Il n'y avait aucun rocher ici avant sa venue; mais le jour où le vieil homme arriva, de plus en plus de ces pierres apparurent, comme si elles étaient formées par son sort...
 
 Ce vieil homme était la statue de pierre fissurée qui reposait dans les profondeurs du Royaume Céleste du Vent. Sans lui, la bataille de Wang Lin contre le Daoïste Eau aurait été bien plus périlleuse.
 
-En cet instant, les yeux du vieil homme étaient clos ; il cultivait paisiblement pour expulser la puissance qui transformait son corps en pierre. Tous les rochers présents étaient nés de ce processus.
+En cet instant, les yeux du vieil homme étaient clos; il cultivait paisiblement pour expulser la puissance qui transformait son corps en pierre. Tous les rochers présents étaient nés de ce processus.
 
 « Il ne me faut que trois cents ans de plus pour me rétablir complètement... Ensuite, je pourrai partir d'ici et rentrer... chez moi... » Le vieil homme ouvrit les yeux. Son regard semblait capable de percer le vide pour contempler l'immensité du système stellaire.
 
-Il n'était pas un cultivateur du monde des grottes, mais venait du Continent Astral Immortel, du Secte des Sept Dao... En réalité, il n'était qu'un disciple du Souverain Céleste aux Sept Couleurs.
+Il n'était pas un cultivateur du monde des grottes, mais venait du Continent Astral Immortel, de la Secte des Sept Dao... En réalité, il n'était qu'un disciple du Souverain Céleste aux Sept Couleurs.
 
-En murmurant, il ressentit une certaine réticence à quitter le monde des grottes, tant il y avait séjourné. Après un instant de réflexion, il laissa échapper un soupir et referma les yeux. Alors qu'il reprenait sa cultivation, un puissant sens divin balaya les lieux.
+En murmurant, il ressentit une certaine réticence à quitter le monde des grottes, tant il y avait séjourné. Après un instant de réflexion, il laissa échapper un soupir et referma les yeux. Alors qu'il reprenait sa culture, un puissant sens divin balaya les lieux.
 
 La puissance de ce sens divin choqua le vieil homme. Il comprit clairement que, à moins que son propriétaire ne veuille qu'il le détecte, il n'aurait jamais pu ressentir une telle présence.
 
@@ -46,7 +46,7 @@ Le sens divin passa sans s'arrêter, mais après sa disparition, laissant le vie
 
 La pilule était d'un rouge éclatant et dégageait une puissance planétaire écrasante. Rien qu'en respirant son parfum, la force pétrifiante qui oppressait son corps fut supprimée.
 
-En contemplant la pilule et en se remémorant le sens divin, le vieil homme ressentit progressivement un sentiment de familiarité. Après avoir médité un instant, il murmura pour lui-même :
+En contemplant la pilule et en se remémorant le sens divin, le vieil homme ressentit progressivement un sentiment de familiarité. Après avoir médité un instant, il murmura pour lui-même:
 
 « C'est lui... »
 
@@ -56,7 +56,7 @@ Mais après un long moment, il ne rouvrit pas les yeux et se calma pour replonge
 
 Devant lui flottait un jade formé par un sens divin. Ce jade n'était pas corporel, semblant alterner entre l'illusion et la solidité. Il flottait silencieusement, attendant que le bébé s'éveille pour le voir.
 
-La planète de cultivation où reposait le bébé était extrêmement ordinaire et ne paraissait en rien étrange. Si elle présentait une particularité, c'était qu'elle ressemblait à un globe oculaire vue de loin.
+La planète de culture où reposait le bébé était extrêmement ordinaire et ne paraissait en rien étrange. Si elle présentait une particularité, c'était qu'elle ressemblait à un globe oculaire vue de loin.
 
 Les chaînes de montagnes sur la planète évoquaient des veines sanguines, les vastes mers rappelaient la sclérotique, et le continent semblait être la pupille.
 
@@ -84,7 +84,7 @@ Le Maître Hong Shan volait dans le ciel quand une traînée de lumière d'épé
 
 Le Maître Hong Shan le poursuivait, l'air sombre. À cet instant, l'amas de lumière pénétra son corps et le fit regarder vers le Continent du Taureau Céleste. Son expression austère s'adoucit, mais il accéléra sa course.
 
-Qing Lin, Zhou Ru, Red Butterfly, Zhou Yi, et presque tous les habitants du monde des grottes reçurent l'éclat de lumière et ressentirent l'existence de la Secte des Sept Dao. Même s'ils étaient encore mortels, les souvenirs de la secte s'éveilleraient lentement en eux dans le futur.
+Qing Lin, Zhou Ru, Papillon Rouge, Zhou Yi, et presque tous les habitants du monde des grottes reçurent l'éclat de lumière et ressentirent l'existence de la Secte des Sept Dao. Même s'ils étaient encore mortels, les souvenirs de la secte s'éveilleraient lentement en eux dans le futur.
 
 Wang Lin jeta un dernier regard à la Secte des Sept Dao avant d'y établir une formation puissante. Cette formation était comparable à celle qu'il avait installée dans le monde des grottes. Même s'il ne parvenait pas à sortir du Royaume Divin Immemorial, il pourrait garantir la sécurité du monde des grottes et protéger l'existence de la Secte des Sept Dao.
 

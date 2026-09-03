@@ -1,24 +1,24 @@
 ---
 n: 1770
-title: "La Poupée Yi Si !"
+title: "La Poupée Yi Si!"
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1770 - Yi Si Puppet!"
 slug: la-poupee-yi-si
 ---
-Chapitre 1770 - La Poupée Yi Si !
+Chapitre 1770 - La Poupée Yi Si!
 
 À l'intérieur de la Tombe Antique, Wang Lin chutait rapidement à travers le brouillard. Le vent hurlait à ses oreilles tandis qu'il descendait. Son Sens Divin était déployé, observant attentivement les environs.
 
-Wang Lin comprenait qu'il y avait de nombreuses choses étranges dans ce brouillard ; il avait d'ailleurs déjà aperçu la plupart des bêtes féroces de cet endroit. Il modifia sa vitesse pour éviter les créatures à proximité et se dirigea vers l'avant-dernière couche.
+Wang Lin comprenait qu'il y avait de nombreuses choses étranges dans ce brouillard; il avait d'ailleurs déjà aperçu la plupart des bêtes féroces de cet endroit. Il modifia sa vitesse pour éviter les créatures à proximité et se dirigea vers l'avant-dernière couche.
 
-C'était précisément dans cette avant-dernière couche que Wang Lin avait ressenti cette aura terrifiante. Cependant, plus il y pensait, plus il était convaincu que cette aura était l'atout le plus puissant de l'Empereur Céleste aux Sept Couleurs !
+C'était précisément dans cette avant-dernière couche que Wang Lin avait ressenti cette aura terrifiante. Cependant, plus il y pensait, plus il était convaincu que cette aura était l'atout le plus puissant de l'Empereur Céleste aux Sept Couleurs!
 
-La Poupée Yi Si !
+La Poupée Yi Si!
 
 Une fois qu'il serait entré au cœur de la grotte, il les sacrifierait en suivant la méthode laissée par l'Empereur Céleste aux Sept Couleurs. Après chaque sacrifice, il sentirait son lien avec elle se renforcer.
 
-Il avait tué beaucoup de gens à ce stade et, grâce à cette connexion mystérieuse, Wang Lin était sûr à 80 % que cette aura terrifiante appartenait à Yi Si !
+Il avait tué beaucoup de gens à ce stade et, grâce à cette connexion mystérieuse, Wang Lin était sûr à 80 % que cette aura terrifiante appartenait à Yi Si!
 
 « Le but de la Tombe Antique est probablement de nourrir la poupée. Après avoir tué Ye Mo, l'Empereur Céleste aux Sept Couleurs s'est servi de lui pour achever cette poupée. » Les yeux de Wang Lin brillèrent. Grâce aux souvenirs de la troisième âme, il avait deviné la majeure partie de la vérité.
 
@@ -42,7 +42,7 @@ En voyant ce réseau de transfert, les yeux de Wang Lin se plissèrent. Alors qu
 
 À l'écho du rugissement, les algues environnantes se mirent à osciller plus violemment. Des quantités massives de gaz noir furent expulsées dans les airs. La terre commença à trembler, ondulant comme des vagues.
 
-Le bruit finit par s'estomper après un long moment. Le visage de Wang Lin était pâle ; il resta immobile devant la formation, plongé dans ses pensées pendant un long moment, avant de lever les yeux avec détermination.
+Le bruit finit par s'estomper après un long moment. Le visage de Wang Lin était pâle; il resta immobile devant la formation, plongé dans ses pensées pendant un long moment, avant de lever les yeux avec détermination.
 
 « Si mes déductions sont exactes, ce ne devrait pas être trop dangereux. Au contraire, cela pourrait être une immense fortune pour moi. La Poupée Yi Si... » Sans plus hésiter, Wang Lin entra dans l'ancien réseau de transfert.
 
@@ -64,23 +64,23 @@ Alors qu'il avançait rapidement, le brouillard autour de lui s'agita brusquemen
 
 Wang Lin s'arrêta brusquement. C'était comme si une force colossale l'avait percuté en même temps que le rugissement. La puissance le repoussa de 1 000 pieds avant que le son ne se dissipe.
 
-Le visage de Wang Lin était livide et ses yeux brillaient intensément. Ce rugissement avait ébranlé son esprit ; il avait failli être blessé.
+Le visage de Wang Lin était livide et ses yeux brillaient intensément. Ce rugissement avait ébranlé son esprit; il avait failli être blessé.
 
 « Quelle aura puissante... Si cette chose est réellement la Poupée Yi Si et que je peux l'utiliser... » Wang Lin reprit sa marche.
 
-Il se rapprocha progressivement de la source du vacarme jusqu'à ce qu'une montagne apparaisse !
+Il se rapprocha progressivement de la source du vacarme jusqu'à ce qu'une montagne apparaisse!
 
 Cette montagne n'était pas très haute, mais elle était enveloppée d'un brouillard rouge. Lorsque Wang Lin s'en approcha, la brume rouge commença à bouger, formant une tête gigantesque.
 
-Cette tête était chauve et dépourvue de cheveux. Sa forme était floue, rendant son apparence impossible à distinguer. Cependant, sa bouche était grande ouverte, laissant échapper ce rugissement terrifiant !
+Cette tête était chauve et dépourvue de cheveux. Sa forme était floue, rendant son apparence impossible à distinguer. Cependant, sa bouche était grande ouverte, laissant échapper ce rugissement terrifiant!
 
 Dès que le rugissement retentit, les mains de Wang Lin formèrent un sceau qu'il agita. Son essence apparut devant lui et la puissance de son Dao Antique emplit son corps pour résister à l'assaut sonore.
 
 À cet instant, il se trouvait pourtant à des centaines de milliers de pieds de distance, mais même ainsi, le rugissement l'atteignit avec une force brutale. Des bruits d'éclatement résonnèrent alors que les essences de Wang Lin étaient repoussées violemment dans son corps. Le visage de Wang Lin devint pâle et il fut projeté en arrière de 10 000 pieds avant que le rugissement ne s'éteigne. Du sang coula du coin de sa bouche. La tête formée par le brouillard rouge sembla fondre avant de se résorber sur la montagne.
 
-« C'est Yi Si ! » Wang Lin fixa le sommet brumeux. Grâce au lien dans son cœur, il en était absolument certain !
+« C'est Yi Si! » Wang Lin fixa le sommet brumeux. Grâce au lien dans son cœur, il en était absolument certain!
 
-« Malheureusement, même si j'ai sacrifié beaucoup de gens, ce n'est pas suffisant... Si je veux contrôler cette chose, je dois tuer un autre cultivateur puissant ! » Wang Lin fronça les sourcils en contemplant la montagne. Tandis qu'il réfléchissait, son regard se porta au loin.
+« Malheureusement, même si j'ai sacrifié beaucoup de gens, ce n'est pas suffisant... Si je veux contrôler cette chose, je dois tuer un autre cultivateur puissant! » Wang Lin fronça les sourcils en contemplant la montagne. Tandis qu'il réfléchissait, son regard se porta au loin.
 
 « C'est elle... » Le corps de Wang Lin vacilla et disparut alors qu'il se dissimulait.
 
@@ -88,13 +88,13 @@ Peu après, une lumière dorée jaillit et une gigantesque porte dorée flotta d
 
 Elle regardait la montagne avec effroi. Elle ne s'attendait pas à ce que cette couche de la Tombe Antique abrite une chose aussi terrifiante.
 
-Elle serra les dents. Profitant d'un moment de silence de la montagne, elle envoya un message :
+Elle serra les dents. Profitant d'un moment de silence de la montagne, elle envoya un message:
 
-« Wang Lin, je sais que vous êtes là ! Je n'ai aucune intention malveillante. Je pense que mes pouvoirs et mes sorts pourraient vous être utiles. Veuillez apparaître ! »
+« Wang Lin, je sais que vous êtes là! Je n'ai aucune intention malveillante. Je pense que mes pouvoirs et mes sorts pourraient vous être utiles. Veuillez apparaître! »
 
 L'environnement resta désespérément silencieux. Seul le remous du brouillard au loin produisait un grondement sourd.
 
-La voix de la troisième concubine résonna, mais face à l'absence de réaction, son expression s'assombrit et elle secoua la tête. La porte dorée commença à reculer lentement ; elle s'apprêtait à changer de lieu pour poursuivre sa recherche.
+La voix de la troisième concubine résonna, mais face à l'absence de réaction, son expression s'assombrit et elle secoua la tête. La porte dorée commença à reculer lentement; elle s'apprêtait à changer de lieu pour poursuivre sa recherche.
 
 Cependant, à cet instant précis, le brouillard sur la montagne se mit à gronder et l'ombre indistincte sembla pousser un nouveau rugissement.
 
@@ -102,16 +102,16 @@ Sous ce cri, le monde changea de couleur et des ondes invisibles parcoururent l'
 
 La porte brilla intensément pour résister au rugissement, mais elle s'effondra rapidement. Le visage de la troisième concubine pâlit et elle battit en retraite immédiatement, formant un sceau de ses mains. Un éclair de lumière dorée jaillit et quatre autres portes apparurent.
 
-Des grondements tonitruants résonnèrent et les quatre portes se brisèrent une à une. La troisième concubine avait profité de ce laps de temps pour reculer de plus de 10 000 pieds. Elle s'apprêtait à utiliser un autre sort pour contrer l'onde de choc résiduelle lorsqu'une voix froide retentit :
+Des grondements tonitruants résonnèrent et les quatre portes se brisèrent une à une. La troisième concubine avait profité de ce laps de temps pour reculer de plus de 10 000 pieds. Elle s'apprêtait à utiliser un autre sort pour contrer l'onde de choc résiduelle lorsqu'une voix froide retentit:
 
-« Pourquoi me cherchez-vous ? » Tandis que la voix résonnait, Wang Lin apparut devant la femme. Il fit un geste de la main droite derrière lui pour bloquer l'onde de choc. Le corps de Wang Lin était assez robuste pour résister à une telle puissance.
+« Pourquoi me cherchez-vous? » Tandis que la voix résonnait, Wang Lin apparut devant la femme. Il fit un geste de la main droite derrière lui pour bloquer l'onde de choc. Le corps de Wang Lin était assez robuste pour résister à une telle puissance.
 
-« Wang Lin ! » La troisième concubine fut surprise et une lueur de joie apparut dans ses yeux, bien qu'elle la dissimulât rapidement.
+« Wang Lin! » La troisième concubine fut surprise et une lueur de joie apparut dans ses yeux, bien qu'elle la dissimulât rapidement.
 
 « Vous... Vous m'avez aidée autrefois dans la Tombe Antique. Cette fois, c'est moi qui veux vous aider... »
 
 « Inutile, cet endroit est dangereux. Ne restez pas ici. » Wang Lin fixa froidement la troisième concubine et se détourna pour partir à la recherche de l'âme d'un puissant cultivateur à sacrifier.
 
-« Je... Je peux vous aider ! » La troisième concubine mordit sa lèvre et leva la main droite. Un chapelet de perles dorées ornait son poignet, dégageant une douce lueur.
+« Je... Je peux vous aider! » La troisième concubine mordit sa lèvre et leva la main droite. Un chapelet de perles dorées ornait son poignet, dégageant une douce lueur.
 
-« Mon maître me l'a offert. Il peut se transformer en sept portes dorées. Si vous voulez pénétrer dans cette montagne, cet objet pourra vous aider ! »
+« Mon maître me l'a offert. Il peut se transformer en sept portes dorées. Si vous voulez pénétrer dans cette montagne, cet objet pourra vous aider! »

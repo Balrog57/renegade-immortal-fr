@@ -8,7 +8,7 @@ slug: quand-vous-rouvrirez-les-yeux
 ---
 Cet automne, les feuilles mortes étaient emportées par le vent et volaient à travers le ciel, comme si elles cherchaient à regagner leur foyer.
 
-Le ciel d'automne était limpide sur dix mille kilomètres ; il était d'une beauté saisissante. En ce matin d'automne, de légères volutes de fumée s'échappaient de ce qui ressemblait à une ferme et un jardin.
+Le ciel d'automne était limpide sur dix mille kilomètres; il était d'une beauté saisissante. En ce matin d'automne, de légères volutes de fumée s'échappaient de ce qui ressemblait à une ferme et un jardin.
 
 Cet endroit se trouvait dans le pays de Zhao. Beaucoup d'habitants n'allaient jamais au-delà de leurs terres agricoles. Sans parler du fait qu'il s'agissait d'un lieu reculé, un petit village montagneux niché au pied d'une montagne.
 
@@ -20,15 +20,15 @@ La rumeur disait que l'ancêtre de cette famille était charpentier, mais que la
 
 Plus de vingt ans s'étaient désormais écoulés, et l'érudit était devenu un homme d'âge mûr. Il avait un fils qui avait également grandi. Aujourd'hui était le jour de joie pour l'enfant Wang Lin.
 
-Wang Lin avait grandi ici, les villageois voisins le connaissaient donc très bien. Cet enfant était très malheureux : il était muet. Il restait toujours silencieux, le regard perdu au loin, et nul ne savait ce qu'il contemplait.
+Wang Lin avait grandi ici, les villageois voisins le connaissaient donc très bien. Cet enfant était très malheureux: il était muet. Il restait toujours silencieux, le regard perdu au loin, et nul ne savait ce qu'il contemplait.
 
 Alors que l'effervescence atteignait son paroxysme, le rideau de la calèche s'ouvrit et une femme portant un voile rouge en sortit. Wang Lin lui prit la main et tous deux pénétrèrent dans la cour.
 
 Quant à cette femme, tous les jeunes du village l'adoraient. Elle était la seconde fille de la famille Liu, une riche lignée de la région. Depuis son enfance, elle avait toujours aimé être aux côtés de Wang Lin. Ils étaient amoureux depuis leur plus tendre enfance, et l'on voyait souvent ces deux petits êtres regarder ensemble vers l'horizon.
 
-Maintenant qu'ils étaient adultes, personne ne s'étonnait de leur mariage ; beaucoup ne faisaient que les envier.
+Maintenant qu'ils étaient adultes, personne ne s'étonnait de leur mariage; beaucoup ne faisaient que les envier.
 
-Les festivités dans un village sont souvent moins grandioses que celles des villes. Elles sont très simples : l'hôte organise un banquet et tout le village vient les féliciter. Une fois le soleil couché, tout s'achevait.
+Les festivités dans un village sont souvent moins grandioses que celles des villes. Elles sont très simples: l'hôte organise un banquet et tout le village vient les féliciter. Une fois le soleil couché, tout s'achevait.
 
 Le reste du temps appartenait aux nouveaux mariés.
 
@@ -44,7 +44,7 @@ Le lendemain de leur mariage, Liu Mei était assise dans la cour, face à Wang L
 
 Leur vie modeste dégageait un sentiment de chaleur. Deux ans plus tard, ils eurent un enfant. Un garçon, nommé Wang Ping.
 
-Le garçon était très intelligent et doté d'une grande éloquence. Au fil de sa croissance, la famille mena une vie paisible ; tout semblait parfait.
+Le garçon était très intelligent et doté d'une grande éloquence. Au fil de sa croissance, la famille mena une vie paisible; tout semblait parfait.
 
 Wang Lin avait choisi de ne pas suivre les études de son père pour devenir charpentier, métier transmis par leurs ancêtres. Il avait décidé de vivre dans ce petit village de montagne.
 
@@ -58,7 +58,7 @@ Wang Ping réussit l'examen et partit pour la capitale quelques années plus tar
 
 Le temps passa sans qu'on ne s'en aperçoive. Des cheveux blancs apparurent sur les têtes de Wang Lin et Liu Mei. Wang Ping s'était fait un nom à la capitale et avait trouvé sa propre voie.
 
-À ce moment-là, Wang Ping se maria. Sa femme portait un très joli nom : Qing Yi. C'était une jeune fille magnifique issue d'une riche famille de la capitale.
+À ce moment-là, Wang Ping se maria. Sa femme portait un très joli nom: Qing Yi. C'était une jeune fille magnifique issue d'une riche famille de la capitale.
 
 Elle se montrait très dévouée envers Wang Lin et Liu Mei, ce qui les comblait de bonheur tout en les émuit profondément. Après tout, cela signifiait que Wang Ping allait fonder sa propre famille et que, tel un oiseau ayant grandi, il s'envolerait haut dans le ciel. Peut-être ne reviendrait-il pas chez lui avant longtemps.
 
@@ -88,7 +88,7 @@ Trois jours après l'achèvement de la sculpture, Liu Mei tomba malade. Allongé
 
 « Tu m'as dit que j'étais ta femme... et que tu étais mon mari... C'était notre destin », murmura Liu Mei, son sourire devenant plus tendre encore. Elle contemplait Wang Lin comme si elle était plongée dans ses souvenirs.
 
-Wang Lin sourit également ; il serra la main de Liu Mei sans jamais la relâcher.
+Wang Lin sourit également; il serra la main de Liu Mei sans jamais la relâcher.
 
 Ils restèrent ainsi à se regarder. Liu Mei continua de parler. Elle évoqua toute une vie, sa jeunesse, sa vie d'épouse, et l'arrivée de Wang Ping.
 
@@ -102,13 +102,13 @@ Son visage marqué par les rides devint rouge, comme si le temps avait remonté 
 
 « Je l'ai vu... Wang Lin, je l'ai vu... » Elle s'efforça de se redresser, le visage illuminé par la joie. Elle pointa la fenêtre et parla avec précipitation à Wang Lin.
 
-« J'ai vu exactement ce qu'il y avait dans le ciel quand nous étions enfants, je l'ai vraiment vu ! Dans le ciel, il y avait toi et moi... »
+« J'ai vu exactement ce qu'il y avait dans le ciel quand nous étions enfants, je l'ai vraiment vu! Dans le ciel, il y avait toi et moi... »
 
 « Je l'ai vu... Nous sommes des cultivateurs... Je... Je... » Liu Mei s'interrompit brusquement, les larmes coulant de ses yeux. Elle venait de voir une scène qui lui brisait le cœur.
 
 « Je... Comment est-ce possible... » Les larmes redoublèrent sur le visage de Liu Mei.
 
-Wang Lin attira Liu Mei contre lui et prononça ses premiers mots depuis leur mariage : « Tout cela appartient au passé... » Sa voix était rauque, mais empreinte de douceur.
+Wang Lin attira Liu Mei contre lui et prononça ses premiers mots depuis leur mariage: « Tout cela appartient au passé... » Sa voix était rauque, mais empreinte de douceur.
 
 Cette nuit-là, Wang Ping rentra avec sa femme après avoir démissionné de son poste officiel pour revenir auprès de ses parents. Dans la chambre, il les trouva semblant dormir avec un sourire aux lèvres. Ils étaient décédés.
 

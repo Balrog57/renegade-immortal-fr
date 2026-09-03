@@ -6,11 +6,11 @@ bookTitle: Clean Sweep
 en: Chapter 278 - Divine Retribution
 slug: retribution-divine
 ---
-Mais il était trop tard !
+Mais il était trop tard!
 
-Plus tôt, lorsque Wang Lin avait sorti la marionnette, il avait pris une décision. En ce moment même, il jouait sa vie. La vieille femme n'était clairement pas une simple cultivatrice au stade initial de la Formation de l'Âme ; elle se situait très probablement au sommet du stade intermédiaire. Les techniques de cette femme devaient impérativement contenir son domaine ; si Wang Lin se faisait capturer, le danger serait absolu.
+Plus tôt, lorsque Wang Lin avait sorti la marionnette, il avait pris une décision. En ce moment même, il jouait sa vie. La vieille femme n'était clairement pas une simple cultivatrice au stade initial de la Formation de l'Âme; elle se situait très probablement au sommet du stade intermédiaire. Les techniques de cette femme devaient impérativement contenir son domaine; si Wang Lin se faisait capturer, le danger serait absolu.
 
-L'écart entre leurs niveaux de cultivation était trop immense ; même en tentant de fuir, il ne serait pas plus rapide qu'elle.
+L'écart entre leurs niveaux de culture était trop immense; même en tentant de fuir, il ne serait pas plus rapide qu'elle.
 
 Le regard de Wang Lin devint résolu alors qu'il tranchait. Il devait en finir rapidement, car si les autres cultivateurs de Xue Yu arrivaient, s'échapper deviendrait une tâche quasi impossible.
 
@@ -18,7 +18,7 @@ Il devait remporter la victoire le plus vite possible, avant que la vieille femm
 
 Wang Lin n'hésita pas un instant. Au moment où il lança la marionnette de l'Âme Naissante, il prit une profonde inspiration et un mince fil s'échappa lentement de sa main.
 
-Un fragment de rétribution divine !
+Un fragment de rétribution divine!
 
 En complément, il pouvait également se cacher à l'intérieur de la perle défiant le ciel. Cependant, cela restait son dernier recours, car il préférait utiliser ce fragment de rétribution divine plutôt que de permettre à la vieille femme de découvrir la perle.
 
@@ -28,23 +28,23 @@ Wang Lin profita du moment où la vieille femme fut stupéfaite par le Royaume J
 
 Ce fragment était l'atout qui avait permis à Wang Lin de survivre à de nombreuses crises, et il devait encore s'en servir aujourd'hui pour rester en vie.
 
-Ce n'était pas qu'il n'avait pas envisagé de l'utiliser pour la menacer ; c'était parce que de nombreux cultivateurs de Xue Yu étaient présents. Il aurait pu la menacer, mais une fois qu'elle serait partie pour ramener renforts, il se retrouverait dans une situation périlleuse.
+Ce n'était pas qu'il n'avait pas envisagé de l'utiliser pour la menacer; c'était parce que de nombreux cultivateurs de Xue Yu étaient présents. Il aurait pu la menacer, mais une fois qu'elle serait partie pour ramener renforts, il se retrouverait dans une situation périlleuse.
 
 La situation idéale était donc de la tuer avec ce fragment avant même qu'elle ne s'en rende compte.
 
 Bien qu'il éprouvât un pincement au cœur en l'utilisant, Wang Lin n'était pas un homme indécis. Le fragment de rétribution divine disparut et des nuages rouges surgirent dans le ciel.
 
-Ces nuages apparurent de manière mystérieuse. En un instant, la voûte céleste fut recouverte de rouge. Quant à l'aura bleu foncé, elle ne pouvait absolument rivaliser avec ces nuages ; elle s'écarta du passage des nuages rouges comme si elle n'osait entraver leur route.
+Ces nuages apparurent de manière mystérieuse. En un instant, la voûte céleste fut recouverte de rouge. Quant à l'aura bleu foncé, elle ne pouvait absolument rivaliser avec ces nuages; elle s'écarta du passage des nuages rouges comme si elle n'osait entraver leur route.
 
 Ce fut le spectacle auquel la vieille femme fut confrontée dès qu'elle retrouva ses esprits après l'attaque de Wang Lin.
 
 Elle ne reconnut pas immédiatement la nature de ce phénomène, mais dès qu'elle aperçut les nuages rouges, une terreur profonde l'envahit, et elle n'hésita pas à se réfugier dans la tour de glace.
 
-À cet instant, Red Butterfly, vêtue de blanc, observa les nuages rouges avec un regard curieux.
+À cet instant, Papillon Rouge, vêtue de blanc, observa les nuages rouges avec un regard curieux.
 
 L'homme d'âge moyen à l'apparence maladive derrière elle devint soudainement extrêmement vigilant. Son air souffreteux disparut totalement alors qu'il fixait les nuages rouges.
 
-Sans dire un mot, il abandonna purement et simplement sa mission de protection envers Red Butterfly pour se diriger vers les nuages.
+Sans dire un mot, il abandonna purement et simplement sa mission de protection envers Papillon Rouge pour se diriger vers les nuages.
 
 Le visage de Wang Lin était pâle et sa main droite tremblait tandis qu'il regardait la vieille femme s'échapper dans la tour de glace. Ses yeux s'illuminèrent alors qu'il dirigeait les nuages rouges vers la tour.
 
@@ -60,7 +60,7 @@ La rétribution divine violette s'écrasa sur la tour de glace. La tour et la vi
 
 Wang Lin prit une profonde inspiration et lança un dernier regard mélancolique vers la rétribution divine. Sachant qu'il n'était pas temps de traîner, il fit volte-face pour s'enfuir.
 
-Mais après n'avoir parcouru que cent pieds, il sentit un puissant Sens Divin balayer les environs. À cet instant, le chapeau de paille sur sa tête brilla, et ce Sens Divin se retira précipitamment.
+Mais après n'avoir parcouru que 330 mètres, il sentit un puissant Sens Divin balayer les environs. À cet instant, le chapeau de paille sur sa tête brilla, et ce Sens Divin se retira précipitamment.
 
 Soudain, une énergie brûlante émana du chapeau et pénétra son esprit. Il vit l'image de l'homme d'âge moyen qui avait détruit le dragon s'approcher rapidement.
 
@@ -70,7 +70,7 @@ Après que l'éclair de rétribution divine violette eut anéanti la tour de gla
 
 Soudain, la masse de nuages rouges en pleine dissipation commença à bouger à nouveau, comme si elle tentait de se condenser une seconde fois. Cependant, sans le fragment de rétribution divine pour la guider, les nuages ne purent plus se reformer.
 
-L'homme d'âge moyen était extrêmement inquiet ; il savait que c'était une opportunité rarissime. S'il la manquait, il ignorait s'il reverrait jamais une telle chance de sa vie.
+L'homme d'âge moyen était extrêmement inquiet; il savait que c'était une opportunité rarissime. S'il la manquait, il ignorait s'il reverrait jamais une telle chance de sa vie.
 
 Pourtant, les nuages refusaient de se condenser et il ne put que les regarder se dissiper. C'était comme contempler une montagne d'or et d'argent devant soi, pour réaliser, au moment de la saisir, qu'un abîme infranchissable vous en séparait.
 
@@ -86,21 +86,21 @@ Dès que son corps pénétra le nuage rouge, des éclairs violets le frappèrent
 
 L'homme d'âge moyen resta là, fixant le ciel d'un air hébété et lugubre. Plus tôt, lorsque son Sens Divin avait balayé les lieux, il n'avait trouvé que la tour de glace et une lueur dorée. Cette lueur avait fait souffrir son Sens Divin, l'obligeant à se retirer. Depuis, il ne parvenait plus à la ressentir.
 
-Après avoir réfléchi un instant, il joignit les mains et cria : « Compagnon cultivateur qui as attiré la rétribution divine, je suis Ou Zhi de Suzaku ! Je te demande d'attirer à nouveau la rétribution divine ; je te récompenserai richement ! »
+Après avoir réfléchi un instant, il joignit les mains et cria: « Compagnon cultivateur qui as attiré la rétribution divine, je suis Ou Zhi de Suzaku! Je te demande d'attirer à nouveau la rétribution divine; je te récompenserai richement! »
 
 Face au silence prolongé, l'homme soupira. Il tendit la main pour saisir le vide. Un cri retentit alors qu'un bras gigantesque couvert d'une aura bleue volait vers lui. Le bras atterrit dans sa main avant de tomber en poussière.
 
-La créature serpent n'avait plus qu'un seul bras. L'expression de Red Butterfly était calme, mais une trace de colère sous-jacente y perçait.
+La créature serpent n'avait plus qu'un seul bras. L'expression de Papillon Rouge était calme, mais une trace de colère sous-jacente y perçait.
 
-L'homme d'âge moyen laissa échapper un froid renâclement et dit lentement : « Si ce n'était pas pour cette maudite bête qui a ruiné ma fortune, j'aurais pu parfaire ma technique aujourd'hui. Je suis déjà très généreux de ne prendre qu'un seul bras. Red Butterfly, souviens-toi bien de cela. »
+L'homme d'âge moyen laissa échapper un froid renâclement et dit lentement: « Si ce n'était pas pour cette maudite bête qui a ruiné ma fortune, j'aurais pu parfaire ma technique aujourd'hui. Je suis déjà très généreux de ne prendre qu'un seul bras. Papillon Rouge, souviens-toi bien de cela. »
 
-Red Butterfly ne répondit rien. Les sept individus derrière elle n'osèrent que bouillir de rage en silence.
+Papillon Rouge ne répondit rien. Les sept individus derrière elle n'osèrent que bouillir de rage en silence.
 
-L'homme se déplaça. Lorsqu'il réapparut, il était derrière Red Butterfly, arborant à nouveau son air de malade.
+L'homme se déplaça. Lorsqu'il réapparut, il était derrière Papillon Rouge, arborant à nouveau son air de malade.
 
 Presque tous les cultivateurs de l'Alliance des Quatre Sectes périrent dans l'année suivant la bataille. Seuls quelques-uns eurent la chance de rester cachés dans le nouveau Xue Yu.
 
-Le temps passa lentement. Après avoir vécu là pendant un an, Red Butterfly suivit l'homme d'âge moyen vers Suzaku.
+Le temps passa lentement. Après avoir vécu là pendant un an, Papillon Rouge suivit l'homme d'âge moyen vers Suzaku.
 
 Quant au chaudron de pluie, malgré les recherches acharnées des cultivateurs de Xue Yu, il resta introuvable. Ils étaient convaincus qu'il était entre les mains des survivants de l'Alliance des Quatre Sectes.
 
@@ -108,4 +108,4 @@ Après que Xue Yu prit le contrôle du pays, une masse immense de mortels de l'a
 
 Les tours de glace, caractéristiques de Xue Yu, apparurent une à une. Après trois ans, ce territoire appartenait totalement à Xue Yu.
 
-Le temps s'écoula rapidement. Cinq ans plus tard, à un endroit situé à 30 000 kilomètres de la frontière de Xue Yu, une lumière aux couleurs de l'arc-en-ciel commença progressivement à se condenser.
+Le temps s'écoula rapidement. Cinq ans plus tard, à un endroit situé à 15 000 kilomètres de la frontière de Xue Yu, une lumière aux couleurs de l'arc-en-ciel commença progressivement à se condenser.

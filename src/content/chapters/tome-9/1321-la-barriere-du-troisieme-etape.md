@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1321 - The Barrier to the Third Step
 slug: la-barriere-du-troisieme-etape
 ---
-La majorité des planètes de cultivation du Clan Soie Bleue connaissaient une saison des pluies où les précipitations tombaient sans relâche. Parfois, elles s'abattaient du ciel en trombes, abreuvant la terre.
+La majorité des planètes de culture du Clan Soie Bleue connaissaient une saison des pluies où les précipitations tombaient sans relâche. Parfois, elles s'abattaient du ciel en trombes, abreuvant la terre.
 
-Ces saisons pluvieuses duraient souvent six mois avant que d'autres saisons ne s'enchaînent, selon la planète de cultivation concernée. La planète sur laquelle Wang Lin méditait bascula dans l'hiver après sept mois de pluie.
+Ces saisons pluvieuses duraient souvent six mois avant que d'autres saisons ne s'enchaînent, selon la planète de culture concernée. La planète sur laquelle Wang Lin méditait bascula dans l'hiver après sept mois de pluie.
 
 Cet hiver, succédant à la saison des pluies, était saisissant. La terre, saturée d'humidité, fut instantanément figée par la neige. Marcher sur ce sol gelé permettait de ressentir la morsure du froid jusqu'au bout des pieds. Même le sang semblait ralentir et se glacer dans les veines.
 
@@ -16,7 +16,7 @@ Pour des mortels, une telle saison aurait été terrible, mais ceux du Clan Soie
 
 Certaines récoltes étaient même effectuées dans ce froid. Plus la température chutait, plus la récolte était abondante.
 
-Les flocons de neige dérivaient dans l'air, recouvrant des milliers de kilomètres de terres. Le spectacle était magnifique. Le sommet sur lequel Wang Lin se trouvait était également drapé de blanc ; il n'était désormais plus qu'une montagne enneigée.
+Les flocons de neige dérivaient dans l'air, recouvrant des milliers de kilomètres de terres. Le spectacle était magnifique. Le sommet sur lequel Wang Lin se trouvait était également drapé de blanc; il n'était désormais plus qu'une montagne enneigée.
 
 Cependant, les quelques roches noires qui n'étaient pas encore recouvertes laissaient deviner l'aspect originel de la montagne, en attendant que l'hiver passe.
 
@@ -28,7 +28,7 @@ Après avoir compris le Sceau du Renversement Céleste, Wang Lin resta au sommet
 
 La scène du Maître Dao Bleu Rêve utilisant ce sort se rejouait sans cesse dans son esprit.
 
-Ce jour-là, Wang Lin ouvrit ses yeux fatigués et fixa la neige accumulée devant lui. Il murmura : « Il y a aussi de la lumière dans ma Nuit Brisée et dans la loi d'origine. Sauf que cette lumière provient du soleil levant, tandis que la lumière du Maître Dao Bleu Rêve n'a rien à voir avec la loi d'origine. Sa lumière est puisée dans toutes les créatures vivantes... Qu'est-ce que cette lumière, au juste... »
+Ce jour-là, Wang Lin ouvrit ses yeux fatigués et fixa la neige accumulée devant lui. Il murmura: « Il y a aussi de la lumière dans ma Nuit Brisée et dans la loi d'origine. Sauf que cette lumière provient du soleil levant, tandis que la lumière du Maître Dao Bleu Rêve n'a rien à voir avec la loi d'origine. Sa lumière est puisée dans toutes les créatures vivantes... Qu'est-ce que cette lumière, au juste... »
 
 Wang Lin déploya son sens divin tout en réfléchissant. Son sens divin s'étendit à partir de la montagne comme point central. Grâce à sa puissance, il semblait se scinder en des millions de directions différentes.
 
@@ -50,37 +50,37 @@ Après un temps indéterminé, Wang Lin vit de la lumière. En observant une fam
 
 Cette lumière était très faible, comme si elle pouvait s'éteindre au moindre souffle de vent, mais elle était réelle. Lentement, il vit davantage de lumières. Il vit ensuite la lumière émanant de deux amants, puis celle du corps d'un homme riche...
 
-Il vit même une lumière provenant d'un squelette mort. Cette lueur était empreinte de tristesse, de regret et de lutte. Il vit également la lumière des petites bêtes !
+Il vit même une lumière provenant d'un squelette mort. Cette lueur était empreinte de tristesse, de regret et de lutte. Il vit également la lumière des petites bêtes!
 
 Toute vie émettait cette lumière. Les montagnes, les rivières, les mers, la terre, le ciel... tout dégageait cette faible clarté. Il pouvait même percevoir faiblement cette vie depuis l'espace.
 
-Dans son esprit, tout sur cette planète de cultivation contenait cette lumière. Celle-ci se propageait progressivement comme une étincelle dans une prairie, envahissant l'esprit de Wang Lin.
+Dans son esprit, tout sur cette planète de culture contenait cette lumière. Celle-ci se propageait progressivement comme une étincelle dans une prairie, envahissant l'esprit de Wang Lin.
 
 Il ouvrit les yeux.
 
-À l'instant même où ses yeux s'ouvrirent, toute la lumière que son sens divin avait perçue convergea frénétiquement vers son corps. Le ciel et la terre émettaient cette clarté ; la végétation, les montagnes et les rivières brillaient sans discontinuer !
+À l'instant même où ses yeux s'ouvrirent, toute la lumière que son sens divin avait perçue convergea frénétiquement vers son corps. Le ciel et la terre émettaient cette clarté; la végétation, les montagnes et les rivières brillaient sans discontinuer!
 
-Même la lumière des étoiles provenant de l'espace ainsi que la montagne sur laquelle Wang Lin était assis libéraient de la lumière. Cette clarté venait de toutes les directions jusqu'à ce que Wang Lin devienne tel un soleil brûlant ! Une ombre gigantesque se forma sous l'effet de cette lumière !
+Même la lumière des étoiles provenant de l'espace ainsi que la montagne sur laquelle Wang Lin était assis libéraient de la lumière. Cette clarté venait de toutes les directions jusqu'à ce que Wang Lin devienne tel un soleil brûlant! Une ombre gigantesque se forma sous l'effet de cette lumière!
 
 Cette lumière et cette ombre étaient à l'extérieur, tandis que Wang Lin était au centre. L'illumination brillait dans ses yeux, bien qu'ils conservent une pointe de confusion.
 
-« Est-ce la vitalité... ? » Il leva la main et fit un geste silencieux. La lumière et l'ombre disparurent, et tout revint à la normale.
+« Est-ce la vitalité...? » Il leva la main et fit un geste silencieux. La lumière et l'ombre disparurent, et tout revint à la normale.
 
 Il n'avait pas encore complètement compris ce qu'était cette lumière... C'était comme si une barrière l'empêchait de saisir sa véritable nature. S'il ne parvenait pas à franchir cet obstacle, il ne serait jamais éclairé sur ce qu'elle représentait.
 
-Wang Lin ignorait que cette barrière était la porte du troisième étape. Très peu de personnes pouvaient ressentir cette barrière, et encore moins étaient capables de la franchir au cours de leur vie !
+Wang Lin ignorait que cette barrière était la porte du troisième étape. Très peu de personnes pouvaient ressentir cette barrière, et encore moins étaient capables de la franchir au cours de leur vie!
 
 Les trois sorts que le Maître Dao Bleu Rêve avait enseignés à Wang Lin possédaient chacun une signification profonde...
 
 Lorsque la lumière et l'ombre disparurent, le regard de Wang Lin se posa sur l'épée de glace et la sphère vortex qui n'avaient pas changé depuis le départ du Maître Dao Bleu Rêve.
 
-En contemplant ces deux objets, Wang Lin prit une grande inspiration. Parmi les trois sorts, ce sort de Dao était le seul restant !
+En contemplant ces deux objets, Wang Lin prit une grande inspiration. Parmi les trois sorts, ce sort de Dao était le seul restant!
 
 Sa main droite s'avança et la sphère tourbillonnante vola dans sa paume. Ses yeux s'illuminèrent alors qu'il commençait à l'observer.
 
-Cette sphère avait été formée par le Maître Dao Bleu Rêve grâce au sort de Dao. Elle combinait « Invoquer le Vent » et « Appeler la Pluie » en un sort plus puissant qui contenait son propre monde !
+Cette sphère avait été formée par le Maître Dao Bleu Rêve grâce au sort de Dao. Elle combinait « Invoquer le Vent » et « Appeler la Pluie » en un sort plus puissant qui contenait son propre monde!
 
-Cette fusion était précisément le pouvoir du sort de Dao que le Maître Dao Bleu Rêve souhaitait transmettre à Wang Lin !
+Cette fusion était précisément le pouvoir du sort de Dao que le Maître Dao Bleu Rêve souhaitait transmettre à Wang Lin!
 
 Alors qu'il observait attentivement la petite sphère entre ses doigts, les cinq essences apparurent progressivement dans les yeux de Wang Lin. Les essences commencèrent à pivoter, puis un gaz invisible s'échappa de la sphère pour pénétrer dans le regard de Wang Lin. La sphère devint de plus en plus petite et, quelques jours plus tard, elle se dissipa complètement.
 
@@ -88,15 +88,15 @@ Wang Lin ferma les yeux et commença sa compréhension.
 
 Les sorts de Dao étaient très différents des sorts ordinaires. Qu'il s'agisse de sorts classiques ou d'aptitudes, ils pouvaient être clairement expliqués, qu'ils soient offensifs ou défensifs, et leurs effets pouvaient être observés.
 
-Comme le Sceau du Renversement Céleste et le Bouclier de Lumière et d'Ombre, tout était visible !
+Comme le Sceau du Renversement Céleste et le Bouclier de Lumière et d'Ombre, tout était visible!
 
 Les sorts de Dao étaient invisibles et impossibles à expliquer. Wang Lin avait été confronté à un sort de Dao pour la première fois dans le Royaume aux Sept Couleurs face au vieil homme, et il n'avait pu y résister du tout. Sans le Domaine de Ji et la Perle Défiant le Ciel, il n'aurait eu aucune chance.
 
-La deuxième fois qu'il entra en contact avec un sort de Dao fut lorsqu'il pénétra dans le domaine du Dao avec l'aide du Seigneur du Royaume Scellé. Il avait compris son propre sort de Dao, mais celui-ci était difficile à expliquer. Bien qu'incomplet, le sort de Dao de Wang Lin provoquait une étrange ondulation qui blessait l'ennemi sans que celui-ci ne s'en aperçoive. À l'extérieur du Secte Démon, il avait pu blesser un Ancien du Secte Démon sans que ce dernier ne s'en rende compte.
+La deuxième fois qu'il entra en contact avec un sort de Dao fut lorsqu'il pénétra dans le domaine du Dao avec l'aide du Seigneur du Royaume Scellé. Il avait compris son propre sort de Dao, mais celui-ci était difficile à expliquer. Bien qu'incomplet, le sort de Dao de Wang Lin provoquait une étrange ondulation qui blessait l'ennemi sans que celui-ci ne s'en aperçoive. À l'extérieur de la Secte Démon, il avait pu blesser un Ancien de la Secte Démon sans que ce dernier ne s'en rende compte.
 
 À présent, c'était la troisième fois qu'il entrait en contact avec un sort de Dao. Son esprit était immergé dans un état étrange où il sentait qu'il pouvait transformer n'importe quel sort en n'importe quelle forme ou apparence.
 
-Comparé aux deux précédents, ce sort de Dao ne prit pas longtemps à Wang Lin pour être compris. Les sorts de Dao étaient tous ainsi : soit on les comprend, soit on ne les comprendra jamais, même après mille ans !
+Comparé aux deux précédents, ce sort de Dao ne prit pas longtemps à Wang Lin pour être compris. Les sorts de Dao étaient tous ainsi: soit on les comprend, soit on ne les comprendra jamais, même après mille ans!
 
 Les yeux clos, la main droite de Wang Lin s'étira et l'épée de glace vint se loger dans sa paume. Bien qu'il eût les yeux fermés, il sentait que ce qu'il tenait n'était pas une épée, mais des nuages...
 
@@ -108,10 +108,10 @@ Le brouillard était comme une petite tempête dans la paume de Wang Lin, puis i
 
 Wang Lin ouvrit les yeux et regarda avec un sourire le nuage blanc qui s'éloignait au loin.
 
-« Ce sort peut fusionner d'autres sorts. Le premier que je dois fusionner est la Déformation Spatiale ! Bien que ce sort soit puissant et me permette de me déplacer instantanément à travers l'espace infini, il possède un défaut fatal. Une fois que l'énergie d'origine du monde est perturbée, il devient inutilisable... La femme en blanc attend aux abords du Clan Soie Bleue. Ce n'est qu'en me défaissant totalement de son suivi que je pourrai agir à ma guise dans l'Ancien Système Stellaire ! »
+« Ce sort peut fusionner d'autres sorts. Le premier que je dois fusionner est la Déformation Spatiale! Bien que ce sort soit puissant et me permette de me déplacer instantanément à travers l'espace infini, il possède un défaut fatal. Une fois que l'énergie d'origine du monde est perturbée, il devient inutilisable... La femme en blanc attend aux abords du Clan Soie Bleue. Ce n'est qu'en me défaissant totalement de son suivi que je pourrai agir à ma guise dans l'Ancien Système Stellaire! »
 
-« Ensuite, j'absorberai suffisamment de Flammes Joss pour compléter mes cinq essences ! Le feu du Clan des Oiseaux de Feu et le tonnerre du Clan du Tonnerre Dispersé seront d'excellentes sources de nutriments pour moi ! »
+« Ensuite, j'absorberai suffisamment de Flammes Joss pour compléter mes cinq essences! Le feu du Clan des Oiseaux de Feu et le tonnerre du Clan du Tonnerre Dispersé seront d'excellentes sources de nutriments pour moi! »
 
 « Les marques entre les sourcils des habitants de l'Ancien Système Stellaire sont étranges. Elles semblent capables de se dévorer mutuellement et d'évoluer constamment vers une forme de perfection... »
 
-« Ce que je veux savoir, c'est à quel clan appartient ce Souverain machiavélique ! » Les yeux de Wang Lin s'illuminèrent. L'âme originelle de ce vieil homme aux cheveux blancs du Clan Lunaire se trouvait dans son espace de stockage. Toutes les réponses s'y trouvaient peut-être.
+« Ce que je veux savoir, c'est à quel clan appartient ce Souverain machiavélique! » Les yeux de Wang Lin s'illuminèrent. L'âme originelle de ce vieil homme aux cheveux blancs du Clan Lunaire se trouvait dans son espace de stockage. Toutes les réponses s'y trouvaient peut-être.

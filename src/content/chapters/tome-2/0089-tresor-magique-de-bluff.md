@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 89 - Bluffing Magic Treasure
 slug: tresor-magique-de-bluff
 ---
-Les yeux de Wang Lin s'assombrirent alors qu'il déclarait d'un ton glacial : « Je suis ici pour cultiver ; à moins que ce ne soit absolument nécessaire, je ne souhaite pas me battre. Si vous battez en retraite et ne me dérangez plus jamais, je vous laisserai partir et oublierai cette affaire. »
+Les yeux de Wang Lin s'assombrirent alors qu'il déclarait d'un ton glacial: « Je suis ici pour cultiver; à moins que ce ne soit absolument nécessaire, je ne souhaite pas me battre. Si vous battez en retraite et ne me dérangez plus jamais, je vous laisserai partir et oublierai cette affaire. »
 
 L'homme étrange afficha une expression perplexe et proféra quelques mots incompréhensibles. Il était clair qu'il ne comprenait pas Wang Lin, et que Wang Lin ne le comprenait pas non plus.
 
@@ -16,9 +16,9 @@ Wang Lin agita rapidement sa main droite pour tracer des signes sur le mur bris�
 
 Le doigt de Wang Lin dessina promptement une esquisse des ruines, puis, d'un geste sec, il traça une ligne qui divisait la scène en deux.
 
-Ensuite, Wang Lin pointa l'homme étrange du doigt, désigna la moitié droite du dessin, puis se désigna lui-même en pointant la partie gauche. Après cela, son doigt se déplaça lentement de gauche à droite, laissant une marque sur le mur tout en fixant l'inconnu. Ses yeux étaient empreints d'une intention meurtrière ; ses intentions étaient limpides.
+Ensuite, Wang Lin pointa l'homme étrange du doigt, désigna la moitié droite du dessin, puis se désigna lui-même en pointant la partie gauche. Après cela, son doigt se déplaça lentement de gauche à droite, laissant une marque sur le mur tout en fixant l'inconnu. Ses yeux étaient empreints d'une intention meurtrière; ses intentions étaient limpides.
 
-« Si vous approchez encore de moi, je gaspillerai mon pouvoir spirituel pour vous tuer ! »
+« Si vous approchez encore de moi, je gaspillerai mon pouvoir spirituel pour vous tuer! »
 
 L'homme étrange fut surpris. Il hésita un instant en se frottant la poitrine, le regard chargé de crainte. Il fixa l'épée volante avec effroi et poussa un cri de mots étranges.
 
@@ -28,7 +28,7 @@ L'homme ramassa quelques fragments du mur brisé. Il les fixa avec une pointe de
 
 Le visage de Wang Lin se détendit légèrement. Il tendit la main dans le vide et, soudainement, toutes les pierres à côté de l'homme se déplacèrent selon un ordre précis. Puis, sa main droite forma un sceau et projeta une lueur. Rapidement, une brume se forma autour de l'amas de pierres.
 
-Wang Lin fixa l'étranger et demanda calmement : « Est-ce la restriction dont vous parliez ? »
+Wang Lin fixa l'étranger et demanda calmement: « Est-ce la restriction dont vous parliez? »
 
 L'homme afficha instantanément une expression d'excitation en agitant les mains et en se frappant la poitrine. Soudain, un symbole sur son corps s'illumina et il ouvrit les bras. Le sol trembla brusquement et le pan de terre sur lequel reposait la formation rocheuse s'éleva dans les airs, laissant derrière lui un immense gouffre.
 
@@ -36,13 +36,13 @@ La petite formation de confusion flottait désormais dans les airs comme une pet
 
 Wang Lin fixa la silhouette qui s'éloignait. Ce n'était pas qu'il n'avait pas envisagé de tuer cet homme, mais le talisman jaune qu'il portait était trop puissant. À moins d'une nécessité absolue, il ne voulait pas s'engager dans un combat à mort.
 
-Alors qu'il était plongé dans ses pensées, son expression changea soudainement. L'épée volante revint à sa hâte tandis que son regard se remplissait d'intention meurtrière. L'homme étrange était de retour !
+Alors qu'il était plongé dans ses pensées, son expression changea soudainement. L'épée volante revint à sa hâte tandis que son regard se remplissait d'intention meurtrière. L'homme étrange était de retour!
 
-Wang Lin fixa la silhouette devant lui et dit d'une voix glaciale : « Tu cherches la mort. »
+Wang Lin fixa la silhouette devant lui et dit d'une voix glaciale: « Tu cherches la mort. »
 
 L'homme s'arrêta net. Il tenait un objet rond dans sa main. Il agita les mains pour tenter de s'expliquer. Voyant que le regard de Wang Lin restait impitoyable, il lança l'objet vers lui.
 
-Wang Lin fit quelques pas de recul. L'homme n'avait pas utilisé beaucoup de force ; l'objet rond roula un peu avant de s'immobiliser devant Wang Lin.
+Wang Lin fit quelques pas de recul. L'homme n'avait pas utilisé beaucoup de force; l'objet rond roula un peu avant de s'immobiliser devant Wang Lin.
 
 Après avoir lancé l'objet, l'étranger adressa un sourire à Wang Lin et repartit.
 
@@ -52,31 +52,31 @@ C'était une perle ne mesurant qu'un dixième de la taille d'un poing. Elle éta
 
 De faibles éclats de pouvoir spirituel s'échappèrent de la perle.
 
-« C’est un trésor ? » Il était stupéfait. Il tendit la main dans le vide et la perle s'éleva dans les airs. Après l'avoir inspectée, il la saisit sans hésiter. Il la scruta avec son Sens Divin et y injecta du pouvoir spirituel.
+« C’est un trésor? » Il était stupéfait. Il tendit la main dans le vide et la perle s'éleva dans les airs. Après l'avoir inspectée, il la saisit sans hésiter. Il la scruta avec son Sens Divin et y injecta du pouvoir spirituel.
 
-Soudain, une fumée blanche jaillit de la perle. La fumée s'éleva et prit la forme d'un vieil homme. Ce dernier avait les cheveux d'une grue, la peau d'un poulet, le bec d'un aigle et la tête d'un harrier. Il dégageait une aura dangereuse. Il regarda Wang Lin avec désinvolture et afficha un sourire sarcastique : « Oses-tu affronter ce vieil homme ? »
+Soudain, une fumée blanche jaillit de la perle. La fumée s'éleva et prit la forme d'un vieil homme. Ce dernier avait les cheveux d'une grue, la peau d'un poulet, le bec d'un aigle et la tête d'un harrier. Il dégageait une aura dangereuse. Il regarda Wang Lin avec désinvolture et afficha un sourire sarcastique: « Oses-tu affronter ce vieil homme? »
 
 Wang Lin fut interdit et recula de quelques pas. Après un examen attentif, il remarqua que l'entité n'était qu'au 15e niveau de Condensation de Qi. Il se frotta le nez, ses yeux s'illuminant tandis qu'il injectait rapidement davantage de pouvoir spirituel dans la perle de pierre.
 
-Sous l'apport d'énergie, le pouvoir du vieil homme augmenta rapidement jusqu'à atteindre le milieu de l'Établissement des Fondations. Les cheveux du vieil homme s'agitèrent sans vent et son corps dégagea une immense aura de combat. L'homme flotta dans les airs et répéta : « Oses-tu affronter ce vieil homme ? »
+Sous l'apport d'énergie, le pouvoir du vieil homme augmenta rapidement jusqu'à atteindre le milieu de l'Établissement des Fondations. Les cheveux du vieil homme s'agitèrent sans vent et son corps dégagea une immense aura de combat. L'homme flotta dans les airs et répéta: « Oses-tu affronter ce vieil homme? »
 
 Wang Lin était totalement stupéfait. Ignorant l'utilité réelle de cette perle, il décida d'y injecter encore plus de pouvoir spirituel.
 
-Les yeux du vieil homme brillèrent intensément et son aura s'intensifia brusquement. Ses mouvements provoquèrent des rugissements tonitruants alors que sa cultivation atteignait un niveau tel que Wang Lin ne pouvait même plus en déterminer le stade. La puissance du vieil homme avait atteint ce degré qui inspire la terreur d'un simple regard. L'homme expira et libéra l'aura d'un expert hors pair. Il plaça ses mains derrière son dos et tonna : « Ceux qui sont en dessous du stade de la Formation du Noyau n'ont pas le droit de me combattre. Dégagez ! »
+Les yeux du vieil homme brillèrent intensément et son aura s'intensifia brusquement. Ses mouvements provoquèrent des rugissements tonitruants alors que sa culture atteignait un niveau tel que Wang Lin ne pouvait même plus en déterminer le stade. La puissance du vieil homme avait atteint ce degré qui inspire la terreur d'un simple regard. L'homme expira et libéra l'aura d'un expert hors pair. Il plaça ses mains derrière son dos et tonna: « Ceux qui sont en dessous du stade de la Formation du Noyau n'ont pas le droit de me combattre. Dégagez! »
 
 Wang Lin retira son pouvoir spirituel, et le vieil homme disparut aussitôt pour redevenir une fumée blanche. La fumée retourna dans la perle et, dans un craquement sec, une nouvelle fissure apparut sur la pierre.
 
-Wang Lin fixa la perle de pierre, incapable de prononcer un mot. Il était totalement convaincu par l'effet de cet objet. C'était un trésor magique illusionnaire dont les illusions étaient presque indiscernables de la réalité. Le vieil homme, quelle que fût sa façon de parler, dégageait une aura de maître parfaite, tout comme cette ultime réplique : « Ceux qui sont en dessous du stade de la Formation du Noyau n'ont pas le droit de me combattre. Dégagez ! »
+Wang Lin fixa la perle de pierre, incapable de prononcer un mot. Il était totalement convaincu par l'effet de cet objet. C'était un trésor magique illusionnaire dont les illusions étaient presque indiscernables de la réalité. Le vieil homme, quelle que fût sa façon de parler, dégageait une aura de maître parfaite, tout comme cette ultime réplique: « Ceux qui sont en dessous du stade de la Formation du Noyau n'ont pas le droit de me combattre. Dégagez! »
 
 L'aura et l'expression avaient atteint leur apogée. Wang Lin était persuadé que même lui n'aurait pu déceler la supercherie. Après tout, aux yeux de la plupart des gens, ce vieil homme possédait l'aura d'un grand maître.
 
-Et avec l'augmentation de sa propre cultivation, il pourrait injecter plus de pouvoir spirituel dans la perle, augmentant ainsi la puissance du vieil homme. C'était là une méthode infaillible pour intimider autrui.
+Et avec l'augmentation de sa propre culture, il pourrait injecter plus de pouvoir spirituel dans la perle, augmentant ainsi la puissance du vieil homme. C'était là une méthode infaillible pour intimider autrui.
 
-Wang Lin rangea le trésor et marmonna pour lui-même : « Cet étrange être à la peau bleue est vraiment intéressant. Il a dû se sentir mal après avoir brisé la petite formation de confusion, alors il m'a offert ce trésor. »
+Wang Lin rangea le trésor et marmonna pour lui-même: « Cet étrange être à la peau bleue est vraiment intéressant. Il a dû se sentir mal après avoir brisé la petite formation de confusion, alors il m'a offert ce trésor. »
 
 De cet échange bref, il comprit immédiatement que l'étranger ne savait pas utiliser les trésors magiques et qu'il devait en exister d'autres au sein des ruines. Désormais, cette cité dévastée était devenue un véritable trésor aux yeux de Wang Lin.
 
-« Cet endroit possède une lumière mystérieuse qui guérit les blessures, un trésor magique illusionnaire et un étrange être bleu... Quels autres secrets recèle ce lieu ? » Wang Lin se frotta le menton. Comme la lumière du jour régnait encore, il replaça les formations. Il s'assit au centre, but un peu de liquide d'esprit Yin, puis commença sa cultivation.
+« Cet endroit possède une lumière mystérieuse qui guérit les blessures, un trésor magique illusionnaire et un étrange être bleu... Quels autres secrets recèle ce lieu? » Wang Lin se frotta le menton. Comme la lumière du jour régnait encore, il replaça les formations. Il s'assit au centre, but un peu de liquide d'esprit Yin, puis commença sa culture.
 
 Deux mois s'écoulèrent.
 
@@ -86,13 +86,13 @@ Les yeux de Wang Lin brillèrent. Il avait déjà terminé l'étude de la Métho
 
 Les trois points clés de cette progression étaient le dantian dans son abdomen, la mer de Qi dans sa poitrine et le méridien ancestral.
 
-Ces trois emplacements devaient chacun être percé trois fois pour former des noyaux froids. En termes plus simples, pour le premier niveau, le dantian devait être ouvert ; pour atteindre le deuxième niveau, l'ouverture du dantian devait être brisée puis rouverte.
+Ces trois emplacements devaient chacun être percé trois fois pour former des noyaux froids. En termes plus simples, pour le premier niveau, le dantian devait être ouvert; pour atteindre le deuxième niveau, l'ouverture du dantian devait être brisée puis rouverte.
 
 Le principe de la Méthode de l'Inframonde consistait à briser d'abord, pour ensuite se régénérer et acquérir une puissance accrue.
 
 Wang Lin réfléchit un instant, puis fit circuler l'énergie Yin dans son dantian afin de lancer sa première percée.
 
-Sous son contrôle, l'énergie Yin tourbillonna de plus en plus vite, provoquant une douleur fulgurante dans son abdomen. Wang Lin connaissait parfaitement cette technique ; il savait que plus la douleur était vive, plus le moment de la percée était proche.
+Sous son contrôle, l'énergie Yin tourbillonna de plus en plus vite, provoquant une douleur fulgurante dans son abdomen. Wang Lin connaissait parfaitement cette technique; il savait que plus la douleur était vive, plus le moment de la percée était proche.
 
 Ce type de douleur était au-delà de ce qu'un être normal pouvait endurer. C'était comme si quelqu'un lui transperçait l'estomac avec une épée en la faisant tournoyer. En quelques respirations seulement, Wang Lin fut couvert de sueur froide.
 

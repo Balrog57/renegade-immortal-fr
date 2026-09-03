@@ -10,7 +10,7 @@ Les deux individus n'avaient pas de liquide vert sur le corps, mais ils dégagea
 
 Ce sang ne fut pas projeté vers Wang Lin, mais au sol, à l'extérieur de la vallée.
 
-Après cela, ils s'élancèrent pour retourner dans la vallée. Wang Lin resta calme ; il captura les deux hommes avec désinvolture avant de les rejeter sur le côté.
+Après cela, ils s'élancèrent pour retourner dans la vallée. Wang Lin resta calme; il captura les deux hommes avec désinvolture avant de les rejeter sur le côté.
 
 Puis, il observa le sol couvert de leur sang et vit un brouillard sanguin apparaître lentement. D'abord ténu, il devint bientôt très épais, recouvrant rapidement toute la zone située à l'extérieur de la vallée.
 
@@ -18,17 +18,17 @@ Wang Lin resta assis en position du lotus, observant calmement la vallée sans m
 
 Lorsque ce brouillard sanguin atteignit son apogée, un rugissement retentit de l'intérieur de la vallée. Une silhouette noire en sortit pour s'avancer dans le brouillard. Cette figure dégageait une sensation étrange.
 
-« Rendez les membres de ma tribu et fuyez le territoire de mon clan ! Sinon, mourez ! »
+« Rendez les membres de ma tribu et fuyez le territoire de mon clan! Sinon, mourez! »
 
 Une voix glaciale émana de la silhouette noire au cœur du brouillard sanguin.
 
 L'expression de Wang Lin resta impassible tandis qu'il laissait échapper un reniflement méprisant. Il se leva et fit un pas en avant. À cet unique pas, d'innombrables ondulations apparurent autour de lui. Ces ondes vibrèrent violemment en se propageant, et Wang Lin s'élança.
 
-D'un seul pas, les ondulations chargèrent avec frénésie ; le brouillard sanguin commença à grésiller comme de l'eau bouillante versée sur de la glace, puis se dissipa à une vitesse fulgurante.
+D'un seul pas, les ondulations chargèrent avec frénésie; le brouillard sanguin commença à grésiller comme de l'eau bouillante versée sur de la glace, puis se dissipa à une vitesse fulgurante.
 
 Toute cette séquence ne dura même pas trois respirations. Après ces trois respirations, le brouillard avait totalement disparu. Il ne restait plus qu'un homme vêtu d'une robe noire, fixant Wang Lin avec stupeur alors que celui-ci s'approchait.
 
-L'homme allait battre en retraite quand Wang Lin tendit la main ; son corps fut projeté en avant malgré lui et于 atterrit devant lui.
+L'homme allait battre en retraite quand Wang Lin tendit la main; son corps fut projeté en avant malgré lui et atterrit devant lui.
 
 Wang Lin le regarda froidement et fit un geste de la main droite. Il projeta l'individu sur le côté, le capturant ainsi avec les six autres.
 
@@ -42,7 +42,7 @@ Au matin du quatrième jour, la formation entourant la vallée commença à gron
 
 Il était suivi par plus d'une dizaine de personnes torse nu. Bien qu'ils paraissent très maigres et chétifs, leurs yeux brillaient d'intelligence.
 
-Le corps du vieil homme aux cheveux blancs semblait extrêmement affaibli. Il sortit de la vallée et dit doucement : « Cultivateur étranger, vous êtes ici depuis plusieurs jours déjà. Nous avons été imprudents plus tôt et j'espère que vous nous pardonnerez. Ce vieil homme s'appelle Ouyang Hua, je suis l'Ancien de cette vallée. Et si vous rendiez les membres de ma tribu afin que nous puissions discuter longuement ? »
+Le corps du vieil homme aux cheveux blancs semblait extrêmement affaibli. Il sortit de la vallée et dit doucement: « Cultivateur étranger, vous êtes ici depuis plusieurs jours déjà. Nous avons été imprudents plus tôt et j'espère que vous nous pardonnerez. Ce vieil homme s'appelle Ouyang Hua, je suis l'Ancien de cette vallée. Et si vous rendiez les membres de ma tribu afin que nous puissions discuter longuement? »
 
 --------------
 
@@ -52,19 +52,19 @@ Wang Lin, l'expression sereine, était assis en position du lotus face au vieil 
 
 Les prisonniers avaient déjà été libérés et étaient retournés dans la vallée.
 
-La voix d'Ouyang Hua était monocorde lorsqu'il reprit : « Ce vieil homme ne connaît pas l'étendue exacte de ce lieu, mais je sais qu'une cité extrêmement vaste se trouve à 15 millions de kilomètres d'ici. C'est l'Ancienne Cité Démoniaque ! C'est là que j'ai commencé mon apprentissage, et c'est là que j'ai acquis ma longue vie. Cultivateur étranger, j'ignore ce que vous cherchez, mais il est certain que ma petite tribu ne pourra vous l'offrir. »
+La voix d'Ouyang Hua était monocorde lorsqu'il reprit: « Ce vieil homme ne connaît pas l'étendue exacte de ce lieu, mais je sais qu'une cité extrêmement vaste se trouve à 15 millions de kilomètres d'ici. C'est l'Ancienne Cité Démoniaque! C'est là que j'ai commencé mon apprentissage, et c'est là que j'ai acquis ma longue vie. Cultivateur étranger, j'ignore ce que vous cherchez, mais il est certain que ma petite tribu ne pourra vous l'offrir. »
 
-Le regard de Wang Lin resta calme lorsqu'il demanda lentement : « Savez-vous d'où je viens ? »
+Le regard de Wang Lin resta calme lorsqu'il demanda lentement: « Savez-vous d'où je viens? »
 
 « Dès votre apparition à l'extérieur de la vallée, j'ai su que vous n'étiez pas de cette terre. Il faut dire que vous et vos compagnons ne venez qu'une fois tous les 5 000 ans, et chaque fois que vous apparaissez, vous apportez avec vous un bain de sang sans fin... C'est pourquoi je n'ai pas salué votre arrivée. » Ouyang Hua soupira doucement.
 
-Wang Lin demanda d'un ton serein : « Avez-vous des nouvelles d'autres étrangers ? »
+Wang Lin demanda d'un ton serein: « Avez-vous des nouvelles d'autres étrangers? »
 
-Ouyang Hua répondit sans hésiter : « Aucune pour le moment, et j'espère qu'il n'y en aura pas à l'avenir. Étranger, il n'y a rien pour vous ici. J'ai dit ce que j'avais à dire, vous devriez donc partir. Rendez-vous à cette Ancienne Cité Démoniaque ; vous y trouverez peut-être ce que vous cherchez. »
+Ouyang Hua répondit sans hésiter: « Aucune pour le moment, et j'espère qu'il n'y en aura pas à l'avenir. Étranger, il n'y a rien pour vous ici. J'ai dit ce que j'avais à dire, vous devriez donc partir. Rendez-vous à cette Ancienne Cité Démoniaque; vous y trouverez peut-être ce que vous cherchez. »
 
-Wang Lin demanda calmement : « Et cette chose dont vous dites sans cesse que j'en ai besoin ? Qu'est-ce que c'est, exactement ? »
+Wang Lin demanda calmement: « Et cette chose dont vous dites sans cesse que j'en ai besoin? Qu'est-ce que c'est, exactement? »
 
-Le visage d'Ouyang Hua s'assombrit. Il se leva, fixa Wang Lin et déclara : « Étranger, j'ai dit tout ce qu'il y avait à dire. Bien que vous possédiez certain talent, si je n'avais pas refusé de me battre avec vous, je ne vous aurais certainement pas laissé partir après que vous avez capturé les membres de ma tribu. Ne vous méprenez pas ! Si vous n'êtes pas parti d'ici dans trois respirations, ne me reprochez pas d'être impitoyable ! »
+Le visage d'Ouyang Hua s'assombrit. Il se leva, fixa Wang Lin et déclara: « Étranger, j'ai dit tout ce qu'il y avait à dire. Bien que vous possédiez certain talent, si je n'avais pas refusé de me battre avec vous, je ne vous aurais certainement pas laissé partir après que vous avez capturé les membres de ma tribu. Ne vous méprenez pas! Si vous n'êtes pas parti d'ici dans trois respirations, ne me reprochez pas d'être impitoyable! »
 
 Les yeux de Wang Lin devinrent glacials alors qu'il fixait l'Ancien. Il agita la paume dans les airs et une lumière verte s'accumula dans sa main. Cette lueur brilla violemment et, d'un geste du doigt, elle vola vers la vallée.
 
@@ -74,19 +74,19 @@ Wang Lin laissa échapper un reniflement froid, frappa son sac de stockage et le
 
 Son regard glacial dégageait une pression infinie.
 
-« Brise la formation ! » La voix de Wang Lin sembla résonner à travers toute la région désolée. Sur cet ordre, le gaz de restriction environnant se précipita pour attaquer la formation de la vallée.
+« Brise la formation! » La voix de Wang Lin sembla résonner à travers toute la région désolée. Sur cet ordre, le gaz de restriction environnant se précipita pour attaquer la formation de la vallée.
 
 L'expression d'Ouyang Hua changea radicalement, devenant extrêmement sombre alors qu'il contemplait Wang Lin. Il eut un ricanement, puis son corps vacilla et se désintégra incroyablement en une multitude de particules de lumière.
 
 Le regard de Wang Lin restait froid. Il avait déjà remarqué que l'Ouyang Hua devant lui n'était pas son véritable corps, mais une simple illusion. S'il n'avait pas étudié la formation pendant plusieurs jours pour en comprendre les rouages au point de pouvoir presque la briser, il n'aurait jamais rendu les membres de la tribu aussi facilement.
 
-Sa main droite traça un sceau qu'il pointa vers la formation et murmura : « Explose ! »
+Sa main droite traça un sceau qu'il pointa vers la formation et murmura: « Explose! »
 
 Une série de grondements ébranla toute la vallée. La formation commença à trembler violemment, comme si des dragons s'y déchaînaient, et se mit à émettre une lueur verte éclatante.
 
-Simultanément, la voix séculaire d'Ouyang Hua retentit de l'intérieur de la vallée : « Étranger, je vous accorde trois respirations pour partir. Si vous refusez, j'activerai la formation d'attaque ! À ce moment-là, votre mort sera certaine ! »
+Simultanément, la voix séculaire d'Ouyang Hua retentit de l'intérieur de la vallée: « Étranger, je vous accorde trois respirations pour partir. Si vous refusez, j'activerai la formation d'attaque! À ce moment-là, votre mort sera certaine! »
 
-Wang Lin cracha un mot : « Rassemblement ! »
+Wang Lin cracha un mot: « Rassemblement! »
 
 À cet ordre, le gaz de restriction environnant commença immédiatement à bouger et à exploser, créant une puissante onde de choc qui percuta la formation.
 
@@ -102,19 +102,19 @@ Dès leur apparition, ces ondes furent attirées par la force mystérieuse produ
 
 Cette illusion avait une forme humaine mais mesurait des dizaines de pieds de haut. Seule sa silhouette était visible, ses traits demeurant indistincts. La figure était entièrement composée de lumière verte.
 
-Dès que l'illusion apparut, la voix d'Ouyang Hua retentit aussitôt : « Étranger, vous avez attiré cela sur vous ! Illusion verte, tuez-le et rapportez son âme en sacrifice pour la Nuit Démoniaque de ce jour ! »
+Dès que l'illusion apparut, la voix d'Ouyang Hua retentit aussitôt: « Étranger, vous avez attiré cela sur vous! Illusion verte, tuez-le et rapportez son âme en sacrifice pour la Nuit Démoniaque de ce jour! »
 
-À ces mots, un rugissement inhumain jaillit de l'illusion. Ce cri n'était pas assourdissant, mais il fit changer les couleurs du ciel et fit instantanément trembler le sol !
+À ces mots, un rugissement inhumain jaillit de l'illusion. Ce cri n'était pas assourdissant, mais il fit changer les couleurs du ciel et fit instantanément trembler le sol!
 
-Bien que ce ne fût qu'un instant, cela fit plisser les yeux de Wang Lin. Il esquissa un rictus, sa main droite traçant un sceau, et hurla : « Lance de Restriction ! »
+Bien que ce ne fût qu'un instant, cela fit plisser les yeux de Wang Lin. Il esquissa un rictus, sa main droite traçant un sceau, et hurla: « Lance de Restriction! »
 
-La main droite de Wang Lin s'étira et des filaments de brouillard noir de restriction s'agitèrent comme des dragons. Si l'on levait les yeux, on voyait le brouillard noir recouvrir la voûte céleste tout entière !
+La main droite de Wang Lin s'étira et des filaments de brouillard noir de restriction s'agitèrent comme des dragons. Si l'on levait les yeux, on voyait le brouillard noir recouvrir la voûte céleste tout entière!
 
 Au milieu des hurlements émanant du brouillard, on aurait dit qu'une armée démoniaque sortait des enfers pour descendre sur terre. Le gaz noir environnant poussa un cri perçant en se rassemblant rapidement autour du bras de Wang Lin.
 
-Enfin, une lance de neuf mètres de long et aussi épaisse que son bras apparut dans sa main !
+Enfin, une lance de neuf mètres de long et aussi épaisse que son bras apparut dans sa main!
 
-Des éclairs noirs parcouraient la lance et le tonnerre grondait de l'intérieur, la rendant encore plus redoutable. Une lueur spectrale brillait à la pointe de l'arme ; sous le soleil de midi, elle était particulièrement frappante.
+Des éclairs noirs parcouraient la lance et le tonnerre grondait de l'intérieur, la rendant encore plus redoutable. Une lueur spectrale brillait à la pointe de l'arme; sous le soleil de midi, elle était particulièrement frappante.
 
 Presque au même instant qu'Ouyang Hua achevait sa phrase, Wang Lin lança la lance. Celle-ci jaillit comme un éclair noir vers l'illusion verte.
 

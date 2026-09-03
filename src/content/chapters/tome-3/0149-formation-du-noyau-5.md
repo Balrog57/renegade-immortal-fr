@@ -36,23 +36,23 @@ La grotte trembla de nouveau sous la chute de nouveaux débris. Il ne restait qu
 
 Qian Kun continuait d'écraser la petite montagne sur la formation. Son regard balaya les autres cultivateurs et il constata qu'ils attaquaient tous la barrière avec une excitation manifeste.
 
-Ses lèvres se tordirent en un sourire vicieux : « Grosse tête, nous pouvons te céder cette fille, mais une fois que cette formation sera brisée, tu devras nous laisser jouer avec elle d'abord. »
+Ses lèvres se tordirent en un sourire vicieux: « Grosse tête, nous pouvons te céder cette fille, mais une fois que cette formation sera brisée, tu devras nous laisser jouer avec elle d'abord. »
 
-Le cultivateur à la grosse tête marqua une pause, puis esquissa un sourire amer. « Grand Ancien, puisque vous l'avez dit, comment oserais-je contredire votre volonté ? »
+Le cultivateur à la grosse tête marqua une pause, puis esquissa un sourire amer. « Grand Ancien, puisque vous l'avez dit, comment oserais-je contredire votre volonté? »
 
-Qian Kun ricana. Il contrôla la montagne pour qu'elle s'écrase de nouveau et déclara : « Ce gamin n'est qu'au stade pseudo-Formation du Noyau, mais il possède des techniques capables de tuer un expert de la Formation du Noyau. Il n'est pas simple. Mais aujourd'hui, sa mort est certaine. » Sur ces mots, ses yeux s'illuminèrent de convoitise : « Je veux surtout cette flamme bleue. C'est indubitablement un trésor rare. »
+Qian Kun ricana. Il contrôla la montagne pour qu'elle s'écrase de nouveau et déclara: « Ce gamin n'est qu'au stade pseudo-Formation du Noyau, mais il possède des techniques capables de tuer un expert de la Formation du Noyau. Il n'est pas simple. Mais aujourd'hui, sa mort est certaine. » Sur ces mots, ses yeux s'illuminèrent de convoitise: « Je veux surtout cette flamme bleue. C'est indubitablement un trésor rare. »
 
 Le cultivateur à la grosse tête se sentit envahi par une atmosphère lugubre. Lorsqu'il avait aperçu la jeune fille pour la première fois, ce n'était qu'un bref instant, mais son désir s'était éveillé et il avait laissé échapper ces paroles. Il pensait que personne ne l'oserait, mais il n'imaginait pas que le Grand Ancien, qui n'avait jamais porté d'intérêt aux femmes, réagirait ainsi. Pour évacuer sa frustration, il attaqua avec rage en utilisant son trésor.
 
-Le brouillard généré par la formation était devenu très ténu. Un seul des dix dragons de mille mètres ne subsistait plus, et il n'atteignait plus que trente mètres de long. Qian Kun agita la main ; le sceau reprit sa forme originelle pour retourner entre les mains de Kun Sang.
+Le brouillard généré par la formation était devenu très ténu. Un seul des dix dragons de mille mètres ne subsistait plus, et il n'atteignait plus que trente mètres de long. Qian Kun agita la main; le sceau reprit sa forme originelle pour retourner entre les mains de Kun Sang.
 
-Après avoir rendu le sceau, Qian Kun poussa un rugissement et jaillit vers le dragon. Il referma ses mains et, lorsqu'il les rouvrit, un filet électrique enveloppa la créature de brume. Dans un éclat de rire, il hurla : « Brise-toi ! »
+Après avoir rendu le sceau, Qian Kun poussa un rugissement et jaillit vers le dragon. Il referma ses mains et, lorsqu'il les rouvrit, un filet électrique enveloppa la créature de brume. Dans un éclat de rire, il hurla: « Brise-toi! »
 
 Le dragon de brouillard poussa un cri déchirant avant de se dissiper. Avec lui, le brouillard qui composait la formation des neuf squelettes disparut. Bien que puissante, la formation fut brisée après trois jours de résistance sous l'assaut combiné de dix cultivateurs de la Formation du Noyau.
 
 Si Li Muwan n'avait pas été occupée à raffiner sa pilule et qu'elle avait pu contrôler la formation, celle-ci ne serait pas tombée si facilement.
 
-La formation brisée exposa l'entrée d'une grotte délabrée. Les dix cultivateurs de la Formation du Noyau du Secte de l'Éradication du Mal s'élancèrent, mais alors qu'ils approchaient à moins de vingt mètres, des éclairs tombèrent du ciel. Bien que peu puissants individuellement, leur nombre était tel qu'ils semblaient menaçants.
+La formation brisée exposa l'entrée d'une grotte délabrée. Les dix cultivateurs de la Formation du Noyau de la Secte de l'Éradication du Mal s'élancèrent, mais alors qu'ils approchaient à moins de vingt mètres, des éclairs tombèrent du ciel. Bien que peu puissants individuellement, leur nombre était tel qu'ils semblaient menaçants.
 
 Les centaines de formations de base que Wang Lin avait disposées s'activèrent. Cependant, n'étant que des protections élémentaires, elles furent systématiquement balayées par les rugissements furieux des experts de la Formation du Noyau.
 
@@ -64,19 +64,19 @@ Une silhouette exquise apparut à l'entrée de la cavité. Ses vêtements étaie
 
 Même Qian Kun ne put s'empêcher de plisser les yeux. Il tenta pourtant de voir au-delà d'elle, mais l'intérieur de la grotte était plongé dans une obscurité totale.
 
-Li Muwan fixa les cultivateurs démoniaques. D'un geste de la main, elle fit apparaître le Fourneau de Pilules des Cent Bêtes et demanda froidement : « Est-ce pour cela que vous êtes ici ? »
+Li Muwan fixa les cultivateurs démoniaques. D'un geste de la main, elle fit apparaître le Fourneau de Pilules des Cent Bêtes et demanda froidement: « Est-ce pour cela que vous êtes ici? »
 
-Qian Kun esquissa un sourire. Kun Song, qui avait été le premier à poursuivre Wang Lin, fixa le fourneau en riant : « Je ne pensais pas que ce gamin possédait réellement un fourneau, et qu'il s'agissait même du Fourneau des Cent Bêtes, celui-là même qui coûte 100 000 pierres spirituelles de haute qualité au Pavillon de Raffinage des Trésors. Tu as raison ; notre objectif initial était ce fourneau. Petite fille, remets-le nous. » Fort de cette évidence, il tendit la main pour s'en emparer devant l'assemblée.
+Qian Kun esquissa un sourire. Kun Song, qui avait été le premier à poursuivre Wang Lin, fixa le fourneau en riant: « Je ne pensais pas que ce gamin possédait réellement un fourneau, et qu'il s'agissait même du Fourneau des Cent Bêtes, celui-là même qui coûte 100 000 pierres spirituelles de haute qualité au Pavillon de Raffinage des Trésors. Tu as raison; notre objectif initial était ce fourneau. Petite fille, remets-le nous. » Fort de cette évidence, il tendit la main pour s'en emparer devant l'assemblée.
 
-Kun Song et l'autre ancien qui traquait Wang Lin joignirent les mains en signe de respect : « Grand Ancien, ce fourneau nous appartiendra à tous les deux. À l'avenir, nous ne manquerons pas de vous envoyer des présents pour vous remercier. Qu'en dites-vous ? »
+Kun Song et l'autre ancien qui traquait Wang Lin joignirent les mains en signe de respect: « Grand Ancien, ce fourneau nous appartiendra à tous les deux. À l'avenir, nous ne manquerons pas de vous envoyer des présents pour vous remercier. Qu'en dites-vous? »
 
-Le regard de Qian Kun glissa sur le fourneau, puis il hocha silencieusement la tête. Le cultivateur au grand crâne esquissa un sourire perfide en tendant la main vers Li Muwan : « Petite fille, une fois que tu auras servi mes compagnons de secte, tu deviendras mon propre fourneau de cultivation personnel. »
+Le regard de Qian Kun glissa sur le fourneau, puis il hocha silencieusement la tête. Le cultivateur au grand crâne esquissa un sourire perfide en tendant la main vers Li Muwan: « Petite fille, une fois que tu auras servi mes compagnons de secte, tu deviendras mon propre fourneau de culture personnel. »
 
 Le visage de Li Muwan devint livide. Alors qu'elle s'apprêtait à mettre fin à ses jours, le cultivateur s'interrompit brusquement dans un cri de douleur.
 
 Il cracha une quantité massive de sang, puis d'autres fluides jaillirent de tous ses orifices. Son corps fut projeté en arrière par une force colossale. Mais avant qu'il ne puisse toucher le sol, une autre puissance le saisit et le tira violemment. Sa tête explosa et son noyau doré fila devant Li Muwan pour s'engouffrer dans la grotte.
 
-« À partir de cet instant, je serai l'être le plus puissant sous le stade de l'Âme Naissante. S'il n'existe aucun cultivateur de l'Âme Naissante dissimulant son niveau de cultivation, alors vous pouvez tous... mourir ! »
+« À partir de cet instant, je serai l'être le plus puissant sous le stade de l'Âme Naissante. S'il n'existe aucun cultivateur de l'Âme Naissante dissimulant son niveau de culture, alors vous pouvez tous... mourir! »
 
 Une voix glaciale émana des profondeurs de la grotte. Puis, une silhouette sombre s'avança et apparut devant l'assemblée.
 
@@ -86,13 +86,13 @@ Un sentiment de rencontre avec un prédateur naturel envahit le cœur de chaque 
 
 Cette perturbation provoqua un chaos tel dans leurs esprits qu'ils furent au bord de l'effondrement. Ce tumulte rugissait en eux comme le tonnerre, frappant contre leurs tempes.
 
-L'âme de Pu Lin, déjà endommagée par l'attaque du Domaine de Ji, n'avait pas eu le temps de se régénérer malgré ses efforts de suppression. À cet instant, son âme vola en éclats ; il cracha un flot de sang avant de s'effondrer. Son corps tressaillit violemment sur le sol et, à chaque spasme, du sang jaillissait de ses orifices.
+L'âme de Pu Lin, déjà endommagée par l'attaque du Domaine de Ji, n'avait pas eu le temps de se régénérer malgré ses efforts de suppression. À cet instant, son âme vola en éclats; il cracha un flot de sang avant de s'effondrer. Son corps tressaillit violemment sur le sol et, à chaque spasme, du sang jaillissait de ses orifices.
 
 Le cœur de Qian Kun trembla. Sous le choc, le filet électrique qu'il tenait se brisa. Le visage décomposé, il recula de plusieurs pas dans une tentative désespérée de fuite. L'idée même de voler la flamme bleue s'était évaporée.
 
 Il avait peur. En tant que cultivateur du stade intermédiaire de la Formation du Noyau à la Ville de Nan Dou, il n'avait jamais connu la crainte. Il avait déjà croisé des experts du stade avancé, émissaires des terres intérieures de la Mer des Démons qui venaient chaque année collecter des ressources. Bien qu'il ne puisse les vaincre, il ne les avait jamais redoutés.
 
-C'était la première fois depuis son ascension au stade de la Formation du Noyau, et la dernière, qu'il ressentait une telle terreur. En conséquence, il décida de s'enfuir sans hésiter. Normalement, il n'aurait jamais été le premier à fuir ; il aurait attendu que les autres partent pour choisir une direction sûre.
+C'était la première fois depuis son ascension au stade de la Formation du Noyau, et la dernière, qu'il ressentait une telle terreur. En conséquence, il décida de s'enfuir sans hésiter. Normalement, il n'aurait jamais été le premier à fuir; il aurait attendu que les autres partent pour choisir une direction sûre.
 
 Mais en cet instant, il avait la certitude que s'il ne s'échappait pas immédiatement, sa mort serait inévitable.
 

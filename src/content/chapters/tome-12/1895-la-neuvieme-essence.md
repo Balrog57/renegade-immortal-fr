@@ -10,7 +10,7 @@ Il décida d'attendre. Il lui restait encore près de soixante ans à vivre. Il 
 
 Quatre-vingts ans étaient suffisants pour une vie entière. Wang Lin passa ces quatre-vingts années dans le Temple du Scorpion Vert.
 
-Durant cette période, il ne put absorber aucune énergie ni pratiquer la cultivation. Il ne pouvait qu'attendre sous la protection de la Perle Défiant le Ciel. À force d'attendre en silence, il semblait se transformer en vieillard. Beaucoup de choses et de souvenirs commençaient à s'estomper.
+Durant cette période, il ne put absorber aucune énergie ni pratiquer la culture. Il ne pouvait qu'attendre sous la protection de la Perle Défiant le Ciel. À force d'attendre en silence, il semblait se transformer en vieillard. Beaucoup de choses et de souvenirs commençaient à s'estomper.
 
 C'était comme si une couche de brouillard l'empêchait de voir clair, ou plus précisément, comme si ses souvenirs étaient scellés.
 
@@ -24,13 +24,13 @@ Certains mènent une vie ordinaire, et ce n'est qu'en contemplant les étoiles a
 
 Quelqu'un pourrait peut-être subvertir le monde entier simplement pour retrouver une silhouette... Même s'il ne s'agissait que d'un reflet, il allait défier le monde...
 
-Le temps passa. Cette fois, ce ne furent pas quarante ans, mais trente... Après que Wang Lin eut enduré avec détermination cent dix ans, le vieil homme à la robe verte prit une décision !
+Le temps passa. Cette fois, ce ne furent pas quarante ans, mais trente... Après que Wang Lin eut enduré avec détermination cent dix ans, le vieil homme à la robe verte prit une décision!
 
-Il ne pouvait plus attendre. Il lui restait moins de trente ans d'espérance de vie et il n'était plus nécessaire de continuer à tester Wang Lin. Il ne croyait pas qu'un être puisse patienter ainsi pendant cent dix ans. Ce n'était plus de la cultivation, mais une marche vers la mort !
+Il ne pouvait plus attendre. Il lui restait moins de trente ans d'espérance de vie et il n'était plus nécessaire de continuer à tester Wang Lin. Il ne croyait pas qu'un être puisse patienter ainsi pendant cent dix ans. Ce n'était plus de la culture, mais une marche vers la mort!
 
 Il constata que le corps de Wang Lin était devenu totalement inutile. À moins d'avoir pris des dispositions préalables, il aurait été détruit par ces scorpions.
 
-Si l'âme originelle était présente, une fois le corps physique détruit, elle serait envahie et dévorée par les scorpions. Il ne croyait pas qu'on puisse endurer une telle attente face à la mort !
+Si l'âme originelle était présente, une fois le corps physique détruit, elle serait envahie et dévorée par les scorpions. Il ne croyait pas qu'on puisse endurer une telle attente face à la mort!
 
 En ce jour de la cent dixième année, le vieil homme à la robe verte se leva. Sa toux était plus intense encore alors qu'il marchait vers l'espace où se trouvait Wang Lin, accompagné des deux Messagers du Démon Vert.
 
@@ -42,21 +42,21 @@ Dans l'espace verdoyant, la silhouette frêle du vieil homme émergea des ondula
 
 Après un long silence, sa voix résonna de nouveau dans cet espace vert.
 
-« Si tu peux m'entendre, si tu as vraiment tenu bon, alors j'espère qu'après avoir reçu cette immense fortune, tu ne rendras pas la vie trop difficile au Continent du Démon Vert... Si tu es capable de cela, même si ton esprit est toujours intact, ce vieil homme te remettra cette fortune sans l'ombre d'une hésitation ! »
+« Si tu peux m'entendre, si tu as vraiment tenu bon, alors j'espère qu'après avoir reçu cette immense fortune, tu ne rendras pas la vie trop difficile au Continent du Démon Vert... Si tu es capable de cela, même si ton esprit est toujours intact, ce vieil homme te remettra cette fortune sans l'ombre d'une hésitation! »
 
 Le vieil homme murmura, ses paroles empreintes d'une profonde lassitude.
 
 « Je suis déjà très vieux et je mourrai dans quelques décennies. Ces dernières années ont été épuisantes... La mission de ma famille est de garder ce lieu... »
 
-« Après ma mort, j'espère que tu pourras promettre de recueillir toutes les cendres enterrées ici pour les ramener au Continent Central, car c'est là que se trouve le foyer de ma famille... » Les paroles du vieil homme ressemblaient à ses derniers mots ; elles dégageaient une sincérité indicible.
+« Après ma mort, j'espère que tu pourras promettre de recueillir toutes les cendres enterrées ici pour les ramener au Continent Central, car c'est là que se trouve le foyer de ma famille... » Les paroles du vieil homme ressemblaient à ses derniers mots; elles dégageaient une sincérité indicible.
 
-Mais !
+Mais!
 
-Dans sa main droite, dissimulé sous sa robe, se trouvait un jade. Ce jade était vert et ne nécessitait aucune cultivation pour être utilisé. Seule chaque génération de Ji Si pouvait s'en servir. Son rôle principal, outre la capacité de destruction, était de détecter les fluctuations mentales à proximité.
+Dans sa main droite, dissimulé sous sa robe, se trouvait un jade. Ce jade était vert et ne nécessitait aucune culture pour être utilisé. Seule chaque génération de Ji Si pouvait s'en servir. Son rôle principal, outre la capacité de destruction, était de détecter les fluctuations mentales à proximité.
 
-Si l'esprit de Wang Lin montrait le moindre signe d'activité, il n'hésiterait pas à l'exterminer avec le jade ; il ne serait pas aussi bienveillant que ses paroles !
+Si l'esprit de Wang Lin montrait le moindre signe d'activité, il n'hésiterait pas à l'exterminer avec le jade; il ne serait pas aussi bienveillant que ses paroles!
 
-C'était son ultime test !
+C'était son ultime test!
 
 Longtemps après avoir fini de parler, le jade dans sa main ne réagit aucunement, et le vieil homme se détendit. Il rangea le jade et observa la masse de scorpions verts. Soudain, il mordit le bout de sa langue et cracha une bouffée de sang.
 
@@ -66,7 +66,7 @@ Dès que le sang apparut, il se répandit dans l'espace en dessous. Tous les sco
 
 À cet instant, tous les poils verts tombèrent et une lumière jaune enveloppa sa main droite. Son bras fondit lentement pour laisser s'échapper trois perles d'un jaune terreux.
 
-« Avec ces trois Perles de Terre Meng, tu devrais être capable de former l'essence terrestre ! » Le souffle du vieil homme était court lorsqu'il agita la main gauche et que les trois perles volèrent vers Wang Lin. L'une pénétra entre ses sourcils, la seconde dans sa poitrine, et la dernière dans son dantian.
+« Avec ces trois Perles de Terre Meng, tu devrais être capable de former l'essence terrestre! » Le souffle du vieil homme était court lorsqu'il agita la main gauche et que les trois perles volèrent vers Wang Lin. L'une pénétra entre ses sourcils, la seconde dans sa poitrine, et la dernière dans son dantian.
 
 Lorsque ces trois perles pénétrèrent le corps de Wang Lin, celui-ci trembla. Une lumière éblouissante d'un jaune terreux jaillit de lui.
 
@@ -74,17 +74,17 @@ Alors que cette lumière se propageait, les scorpions environnants sifflèrent e
 
 Une fois enseveli sous la terre, Wang Lin devint une statue de boue et resta immobile.
 
-Le temps passa. Le vieil homme à la robe verte ne partit pas ; il s'assit et observa Wang Lin avec une expression solennelle. Le rêve de sa famille, poursuivi durant d'innombrables années, était sur le point de se réaliser, ce qui était crucial pour lui.
+Le temps passa. Le vieil homme à la robe verte ne partit pas; il s'assit et observa Wang Lin avec une expression solennelle. Le rêve de sa famille, poursuivi durant d'innombrables années, était sur le point de se réaliser, ce qui était crucial pour lui.
 
 Trois jours plus tard, la fine couche de terre recouvrant le corps de Wang Lin n'avait pas bougé. Une pointe de surprise apparut dans les yeux du vieil homme.
 
-« Trois Perles de Terre Meng ne suffisent pas... Elles permettent seulement à l'essence terrestre en son corps d'atteindre un stade de petite complétude... » Le vieil homme fronça les sourcils et pressa sa main gauche entre ses propres sourcils. Par une méthode spéciale, il en extraira trois grains de sable !
+« Trois Perles de Terre Meng ne suffisent pas... Elles permettent seulement à l'essence terrestre en son corps d'atteindre un stade de petite complétude... » Le vieil homme fronça les sourcils et pressa sa main gauche entre ses propres sourcils. Par une méthode spéciale, il en extraira trois grains de sable!
 
 Ces trois grains étaient rouge sombre, comme s'ils étaient imprégnés de sang.
 
-Contemplant ces grains dans sa paume, le vieil homme soupira. Sa famille avait déployé des efforts colossaux et consacré d'innombrables années et ressources pour rassembler ces trois grains de sable. La rumeur disait que ces grains faisaient partie des neuf grains de sable chargés d'essence terrestre créés par l'Ancêtre Céleste lors de la formation des continents !
+Contemplant ces grains dans sa paume, le vieil homme soupira. Sa famille avait déployé des efforts colossaux et consacré d'innombrables années et ressources pour rassembler ces trois grains de sable. La rumeur disait que ces grains faisaient partie des neuf grains de sable chargés d'essence terrestre créés par l'Ancêtre Céleste lors de la formation des continents!
 
-Outre ces trois grains, cinq autres furent absorbés par des êtres pour l'essence terrestre, et le dernier fut transformé en le continent où fut bâtie la Cité Impériale !
+Outre ces trois grains, cinq autres furent absorbés par des êtres pour l'essence terrestre, et le dernier fut transformé en le continent où fut bâtie la Cité Impériale!
 
 Cet objet était d'une valeur inestimable, et très peu de gens l'avaient vu de près. Le vieil homme n'hésita pas et lança un grain de sable vers Wang Lin.
 
@@ -94,7 +94,7 @@ Cette sphère libéra une essence terrestre d'une puissance extrême et persista
 
 Cependant, dès que l'effet s'estompa, le vieil homme lança le deuxième grain de sable. Un nouveau fracas tonnerre retentit du corps de Wang Lin, et l'essence terrestre recommença à circuler.
 
-Cette fois, elle effectua neuf cycles. Une fois le neuvième cycle achevé, une masse colossale d'essence terrestre jaillit du corps de Wang Lin. La neuvième essence venait de s'ajouter à son être !
+Cette fois, elle effectua neuf cycles. Une fois le neuvième cycle achevé, une masse colossale d'essence terrestre jaillit du corps de Wang Lin. La neuvième essence venait de s'ajouter à son être!
 
 Mais ce n'était pas fini. Après la formation de cette neuvième essence, la puissance de l'essence terrestre n'était pas épuisée. Elle se précipita rapidement pour tenter de former un corps véritable d'essence pour cette neuvième essence.
 
@@ -102,10 +102,10 @@ Le vieil homme se leva avec exaltation et agita sa main gauche, projetant le tro
 
 Son essence terrestre s'étendit aussitôt pour absorber toute la puissance du troisième grain de sable. Les signes d'un troisième corps véritable d'essence apparurent.
 
-Toutefois, sans la volonté de Wang Lin, ce corps véritable ne pouvait se former totalement. Si l'âme originelle de Wang Lin sortait de la protection de la Perle Défiant le Ciel, il pourrait prendre possession des corps véritables d'essence terrestre et de tonnerre. Il deviendrait alors un cultivateur possédant trois corps véritables d'essence !
+Toutefois, sans la volonté de Wang Lin, ce corps véritable ne pouvait se former totalement. Si l'âme originelle de Wang Lin sortait de la protection de la Perle Défiant le Ciel, il pourrait prendre possession des corps véritables d'essence terrestre et de tonnerre. Il deviendrait alors un cultivateur possédant trois corps véritables d'essence!
 
-Avec trois corps véritable d'essence, même s'il restait au sommet du stade du Vide Spirituel, sa force serait décuplée !
+Avec trois corps véritable d'essence, même s'il restait au sommet du stade du Vide Spirituel, sa force serait décuplée!
 
-De surcroît, Wang Lin possédait désormais neuf essences. Dès que son âme originelle apparaîtrait, il pourrait utiliser ces neuf essences pour percer le stade du Vide Arcanique !
+De surcroît, Wang Lin possédait désormais neuf essences. Dès que son âme originelle apparaîtrait, il pourrait utiliser ces neuf essences pour percer le stade du Vide Arcanique!
 
-« Le corps de cet homme possède également trois essences éthérées et deux essences spéciales. Les quatre autres sont corporelles... Je n'ai aucune méthode pour former des corps véritables d'essence pour les essences éthérées ou spéciales, mais je possède un moyen pour la quatrième essence corporelle ! » Le vieil homme était transporté par l'excitation.
+« Le corps de cet homme possède également trois essences éthérées et deux essences spéciales. Les quatre autres sont corporelles... Je n'ai aucune méthode pour former des corps véritables d'essence pour les essences éthérées ou spéciales, mais je possède un moyen pour la quatrième essence corporelle! » Le vieil homme était transporté par l'excitation.

@@ -6,13 +6,13 @@ bookTitle: Clean Sweep
 en: Chapter 271 - 10 Years To Soul Formation
 slug: 10-ans-avant-la-formation-de-lame
 ---
-La première personne que Wang Lin avait tuée était son maître, Sun Dazhu !
+La première personne que Wang Lin avait tuée était son maître, Sun Dazhu!
 
 Alors que sa main s'activait, des copeaux de bois tombaient sur le sol. Peu après, le moment de la mort de Sun Dazhu, ce regard de terreur et de désespoir, fut parfaitement capturé dans la sculpture.
 
 Le cœur de Wang Lin était d'un calme absolu tandis qu'il contemplait l'œuvre de Sun Dazhu. Si Sun Dazhu n'avait pas été si avide du calice de Wang Lin, il ne serait pas mort. C'était le karma. Là où la vie existe, la mort règne également.
 
-La deuxième sculpture représentait un homme d'âge moyen. Les yeux de cet homme étaient injectés de sang, ses lèvres très fines et son visage empreint d'une grande méchanceté. À ce stade, il tenait une épée volante à la main ; l'arme paraissait d'un tranchant redoutable. Une intention meurtrière émanait de cette sculpture.
+La deuxième sculpture représentait un homme d'âge moyen. Les yeux de cet homme étaient injectés de sang, ses lèvres très fines et son visage empreint d'une grande méchanceté. À ce stade, il tenait une épée volante à la main; l'arme paraissait d'un tranchant redoutable. Une intention meurtrière émanait de cette sculpture.
 
 C'était le maître de Zhang Hu et le disciple du vieil homme Jimo, la deuxième personne que Wang Lin avait assassinée.
 
@@ -48,7 +48,7 @@ Teng Li, qui l'avait traqué, finit par mourir sous ses coups, marquant le débu
 
 La mort de ses parents. Le sourire de Teng Huayuan, son corps détruit, et Situ Nan aidant son âme à s'échapper vers le champ de bataille étranger.
 
-Cela mena à quatre cents ans de massacres. Afin d'augmenter son niveau de cultivation pour pouvoir revenir se venger, il était devenu un homme sans cœur, insensible et sang-froid.
+Cela mena à quatre cents ans de massacres. Afin d'augmenter son niveau de culture pour pouvoir revenir se venger, il était devenu un homme sans cœur, insensible et sang-froid.
 
 Hou Fen, la Mer des Démons, et la terre de l'Ancien Dieu. Les scènes de tous ces lieux défilèrent devant ses yeux. L'ordre de tuer dix mille démons. Hormis le massacre de la famille Teng, ce fut le moment où il avait tué le plus.
 
@@ -66,7 +66,7 @@ La main de Wang Lin ne s'était pas arrêtée un instant alors qu'il sculptait l
 
 Les images défilaient dans son esprit avec une célérité croissante. Peu à peu, il revit les trente années passées à se transformer en mortel. Naissance et mort, les scènes de la vie s'imprimant lentement dans l'esprit de Wang Lin.
 
-Bien plus tard, il n'eut plus aucun souvenir en tête. Il ne restait désormais que deux mots : « Vie » et « Mort ».
+Bien plus tard, il n'eut plus aucun souvenir en tête. Il ne restait désormais que deux mots: « Vie » et « Mort ».
 
 La vie et la mort, les mutations qui surviennent dans la réincarnation céleste. Wang Lin avait compris le sens de la mort au fil de ses quatre cents ans de tueries, et lors de ses trente années de vie mortelle, il était venu à comprendre la vie.
 
@@ -74,7 +74,7 @@ Bien qu'il ait échoué auparavant en tentant de saisir le cycle de la réincarn
 
 Mais l'intuition ne signifie pas la compréhension.
 
-On ne peut dire que l'état d'esprit de Wang Lin avait atteint un point tel qu'il pouvait contrôler sa cultivation. Il y avait une phrase que l'on prononçait souvent dans l'ancien monde de la cultivation :
+On ne peut dire que l'état d'esprit de Wang Lin avait atteint un point tel qu'il pouvait contrôler sa culture. Il y avait une phrase que l'on prononçait souvent dans l'ancien monde de la culture:
 
 « Ce que tu vois comme une montagne est une montagne, et ce que tu vois comme de l'eau est de l'eau. »
 
@@ -106,13 +106,13 @@ Bien qu'il n'ait pas encore atteint le stade de la Formation de l'Âme, il s'en 
 
 C'était comme si une force mystérieuse dans les cieux l'attirait vers elle.
 
-Ce sentiment signifiait qu'il était sur le point d'atteindre la Formation de l'Âme. Désormais, il n'avait plus besoin de chercher un domaine ou de comprendre les lois célestes ; il lui suffisait de trouver un endroit pour s'isoler en cultivation fermée pendant dix ans pour atteindre ce stade.
+Ce sentiment signifiait qu'il était sur le point d'atteindre la Formation de l'Âme. Désormais, il n'avait plus besoin de chercher un domaine ou de comprendre les lois célestes; il lui suffisait de trouver un endroit pour s'isoler en culture fermée pendant dix ans pour atteindre ce stade.
 
 Wang Lin s'arrêta au bout du chemin et observa attentivement la rue déserte. Il avait vécu dans cette vieille rue pendant plus de trente ans. Il en avait gravé chaque détail, jusqu'au moindre brin d'herbe, dans son esprit. Une pointe de tristesse lui serra le cœur.
 
 Après avoir contemplé la scène un long moment, il en fixa l'image dans sa mémoire. Il poussa un soupir et disparut dans la nuit.
 
-Dans une ville située à 10 000 kilomètres au nord, se trouvait une importante concentration de mortels. Des maisons simples étaient parsemées dans la région, abritant de nombreuses familles.
+Dans une ville située à 5 000 kilomètres au nord, se trouvait une importante concentration de mortels. Des maisons simples étaient parsemées dans la région, abritant de nombreuses familles.
 
 Ils avaient tous été rassemblés ici pour aider au débloiement de la neige. Da Niu vivait dans l'une de ces demeures.
 

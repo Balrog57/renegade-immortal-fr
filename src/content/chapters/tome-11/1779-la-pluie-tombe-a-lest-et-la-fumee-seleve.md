@@ -1,18 +1,18 @@
 ---
 n: 1779
-title: "La pluie tombe à l'est et la fumée s'élève !"
+title: "La pluie tombe à l'est et la fumée s'élève!"
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1779 - The Rain Falls to the East and the Smoke Rises!"
 slug: la-pluie-tombe-a-lest-et-la-fumee-seleve
 ---
-Chapitre 1779 - La pluie tombe à l'est et la fumée s'élève !
+Chapitre 1779 - La pluie tombe à l'est et la fumée s'élève!
 
 Au cœur du monde de la grotte, à l'intérieur du fourneau entouré d'une brume noire, se trouvait la formation des Cinq Fleurs et des Huit Portes.
 
-Les cinq fleurs avaient éclos et seule la troisième avait fané, mais les huit portes étaient intégrées au sein de la cinquième fleur. Cela pouvait être n'importe quoi dans ce monde : un brin d'herbe, un arbre, une personne ou une bête ; tout pouvait constituer une porte.
+Les cinq fleurs avaient éclos et seule la troisième avait fané, mais les huit portes étaient intégrées au sein de la cinquième fleur. Cela pouvait être n'importe quoi dans ce monde: un brin d'herbe, un arbre, une personne ou une bête; tout pouvait constituer une porte.
 
-Par conséquent, trouver la véritable porte parmi les huit cachées dans la cinquième fleur était une tâche d'une difficulté extrême !
+Par conséquent, trouver la véritable porte parmi les huit cachées dans la cinquième fleur était une tâche d'une difficulté extrême!
 
 Wang Lin n'avait aucune piste, mais il devait néanmoins pénétrer dans la cinquième fleur, le dernier niveau de cette grotte.
 
@@ -22,9 +22,9 @@ Le ciel n'était pas bleu mais semblait couvert de nuages sombres, derrière les
 
 Un vent chargé d'humidité balayait la terre, soulevant des couches de poussière qui s'éparpillaient vers l'immense chaîne de montagnes. Le hurlement du vent faisait bruisser une multitude de feuilles.
 
-De nombreux pavillons et palais de jade étaient érigés au sein de la chaîne de montagnes. Plus de mille édifices se superposaient aux reliefs montagneux. De loin, il était difficile de dire si ces palais avaient été ajoutés à la montagne ou sculptés directement dans la roche !
+De nombreux pavillons et palais de jade étaient érigés au sein de la chaîne de montagnes. Plus de mille édifices se superposaient aux reliefs montagneux. De loin, il était difficile de dire si ces palais avaient été ajoutés à la montagne ou sculptés directement dans la roche!
 
-Chaque palais et chaque pavillon était unique. Ils s'étendaient à travers la chaîne de montagnes, tels des temples célestes suspendus !
+Chaque palais et chaque pavillon était unique. Ils s'étendaient à travers la chaîne de montagnes, tels des temples célestes suspendus!
 
 Une fine couche de nuages enveloppait les montagnes, les faisant apparaître et disparaître, ce qui ajoutait une part de mystère. Des centaines de grues volaient à travers les brumes comme si elles jouaient.
 
@@ -38,11 +38,11 @@ Cela faisait plus de deux mois qu'il se trouvait dans la cinquième fleur, et il
 
 L'eau était si limpide qu'on pouvait y voir son reflet. Il portait une robe bleue qui émettait une faible lueur verte, dotée d'une certaine capacité de protection. À sa taille pendait un cordon rouge auquel était attaché un jeton de jade.
 
-Ce jade était d'une clarté cristalline et n'avait rien d'ordinaire ; lorsqu'il scintillait, il était d'une beauté saisissante.
+Ce jade était d'une clarté cristalline et n'avait rien d'ordinaire; lorsqu'il scintillait, il était d'une beauté saisissante.
 
 Cependant, le reflet de Wang Lin dans la rivière différait grandement de son apparence habituelle. Son visage présentait des lèvres rouges, des dents blanches, des sourcils en forme d'épée et des yeux semblables à des étoiles. Ses yeux étaient particulièrement profonds, comme s'ils contenaient une puissance infinie. Devant un tel regard, les hommes étaient condamnés à la déférence et les femmes à l'admiration.
 
-Il avait l'apparence d'un jeune homme d'environ 18 ou 19 ans. C'était l'être le plus beau que Wang Lin ait jamais vu de sa vie. Pourtant, si l'on ajoutait au visage le poids du temps et la mélancolie de l'existence, il devenait extrêmement similaire à la statue que Wang Lin avait prise à Greed !
+Il avait l'apparence d'un jeune homme d'environ 18 ou 19 ans. C'était l'être le plus beau que Wang Lin ait jamais vu de sa vie. Pourtant, si l'on ajoutait au visage le poids du temps et la mélancolie de l'existence, il devenait extrêmement similaire à la statue que Wang Lin avait prise à Greed!
 
 En contemplant son reflet dans la rivière, Wang Lin gardait une expression étrange, même après deux mois passés ici.
 
@@ -50,7 +50,7 @@ En contemplant son reflet dans la rivière, Wang Lin gardait une expression étr
 
 « Continent Astral Immortel... Cet endroit est le Continent Astral Immortel. Je ne m'attendais pas à fouler le sol du Continent Astral Immortel par l'intermédiaire des souvenirs du Souverain aux Sept Couleurs. » Wang Lin leva les yeux vers les neuf soleils et esquissa un sourire amer.
 
-Ce monde appartenait au Souverain aux Sept Couleurs ; il était façonné par ses souvenirs. On pourrait dire que tout ici n'était qu'une illusion, mais ce sont des choses qui possèdent une existence propre.
+Ce monde appartenait au Souverain aux Sept Couleurs; il était façonné par ses souvenirs. On pourrait dire que tout ici n'était qu'une illusion, mais ce sont des choses qui possèdent une existence propre.
 
 « Les sectes du Continent Astral Immortel ne sont pas comparables à celles du monde de la grotte... » Wang Lin toucha la robe dao qu'il portait. La protection qu'elle offrait pouvait bloquer l'attaque à pleine puissance d'un cultivateur Ascendant.
 
@@ -58,25 +58,25 @@ Ce monde appartenait au Souverain aux Sept Couleurs ; il était façonné par se
 
 « Je ne parviens pas non plus à fusionner avec elle. » Wang Lin effleura l'eau d'un geste nonchalant pour en disperser quelques gouttes. Mais, à cet instant, il fronça de nouveau les sourcils.
 
-« Su Dao ! Tu as du cran. La cloche a sonné deux fois et tu n'es pas encore allé rendre hommage au Maître qui vient de sortir de sa cultivation isolée ! » Une voix perçante résonna derrière Wang Lin. Un jeune homme d'environ vingt ans descendait la montagne, vêtu de la même robe bleue que lui. Il fixait Wang Lin d'un regard glacial.
+« Su Dao! Tu as du cran. La cloche a sonné deux fois et tu n'es pas encore allé rendre hommage au Maître qui vient de sortir de sa culture isolée! » Une voix perçante résonna derrière Wang Lin. Un jeune homme d'environ vingt ans descendait la montagne, vêtu de la même robe bleue que lui. Il fixait Wang Lin d'un regard glacial.
 
-« Je suis venu te chercher pour te ramener, sur ordre du Frère Aîné, afin que tu sois puni selon les règles de la secte ! » Le jeune homme ricana en s'approchant. Il tendit la main vers les cheveux de Wang Lin, semblant vouloir le traîner de force jusqu'à la salle.
+« Je suis venu te chercher pour te ramener, sur ordre du Frère Aîné, afin que tu sois puni selon les règles de la secte! » Le jeune homme ricana en s'approchant. Il tendit la main vers les cheveux de Wang Lin, semblant vouloir le traîner de force jusqu'à la salle.
 
 Alors que sa main approchait, Wang Lin se retourna et lui lança un regard glacial. Ce regard fit trembler le jeune homme, comme si les yeux de Wang Lin étaient deux lames de sabre transperçant son âme.
 
-L'expression du jeune homme changea soudainement et il resta figé, tel une proie pétrifiée. Cela ne dura qu'un instant ; dès que Wang Lin détourna les yeux, le garçon put enfin respirer. Il recula de plusieurs pas, manquant de tomber, et regarda Wang Lin avec une peur inédite.
+L'expression du jeune homme changea soudainement et il resta figé, tel une proie pétrifiée. Cela ne dura qu'un instant; dès que Wang Lin détourna les yeux, le garçon put enfin respirer. Il recula de plusieurs pas, manquant de tomber, et regarda Wang Lin avec une peur inédite.
 
 « Toi... Toi... »
 
 Dans le monde de la cinquième fleur, Wang Lin avait pris l'apparence du jeune Souverain Céleste aux Sept Couleurs et avait acquis ses souvenirs de jeunesse. Il savait que le jeune Souverain était alors un être faible de caractère, bien loin de l'ambition et de la cruauté qu'il acquerra plus tard.
 
-À cet âge, le Souverain Céleste aux Sept Couleurs était très talentueux et aurait dû être protégé par la secte. Cependant, son maître était constamment en cultivation isolée, et son talent suscitait bien des jalousies. Sa vie au sein de la secte était loin d'être paisible.
+À cet âge, le Souverain Céleste aux Sept Couleurs était très talentueux et aurait dû être protégé par la secte. Cependant, son maître était constamment en culture isolée, et son talent suscitait bien des jalousies. Sa vie au sein de la secte était loin d'être paisible.
 
 Le jeune homme devant lui faisait partie de ceux qui le harcelaient régulièrement. Ils ne l'attaquaient jamais ouvertement, agissant toujours dans l'ombre, utilisant souvent les règles de la secte comme prétexte pour le punir.
 
 Le Souverain Céleste aux Sept Couleurs n'attira l'attention de l'Ancêtre que plus de dix ans plus tard, avant d'être progressivement soutenu par la secte.
 
-Toutefois, Wang Lin n'était pas Su Dao, et il n'avait pas l'intention de laisser l'histoire se répéter. Alors que le jeune homme reculait, terrifié, Wang Lin fit un pas en avant et se posta devant lui. Le visage du garçon pâlit et ses yeux se remplirent d'effroi ; il ne pouvait concevoir un tel changement.
+Toutefois, Wang Lin n'était pas Su Dao, et il n'avait pas l'intention de laisser l'histoire se répéter. Alors que le jeune homme reculait, terrifié, Wang Lin fit un pas en avant et se posta devant lui. Le visage du garçon pâlit et ses yeux se remplirent d'effroi; il ne pouvait concevoir un tel changement.
 
 Il était parti depuis un certain temps et n'était revenu qu'hier. Il ne s'attendait pas à ce que ce Su Dao devienne soudainement une personne différente. Auparavant, Su Dao se laissait harceler comme bon leur semblait.
 
@@ -84,11 +84,11 @@ Il était parti depuis un certain temps et n'était revenu qu'hier. Il ne s'atte
 
 Mais malgré ses efforts, la poigne de fer de Wang Lin ne faiblit pas d'un iota.
 
-Wang Lin maintint le jeune homme par le cou et le rapprocha de lui. Il le fixa et déclara, mot pour mot : « Ne me provoque plus. Il n'y aura pas de prochaine fois. »
+Wang Lin maintint le jeune homme par le cou et le rapprocha de lui. Il le fixa et déclara, mot pour mot: « Ne me provoque plus. Il n'y aura pas de prochaine fois. »
 
 La vision du jeune homme devenait floue et il était terrifié au-delà de toute mesure. Incapable même de hocher la tête, son expression montrait qu'il n'oserait plus jamais songer à provoquer Wang Lin.
 
-Wang Lin relâcha lentement sa prise et sourit. Il tapota la tête du jeune homme et lui dit : « Suis-moi vers le sommet de la montagne. » Sur ces mots, il se détourna pour marcher vers la grande salle située au sommet.
+Wang Lin relâcha lentement sa prise et sourit. Il tapota la tête du jeune homme et lui dit: « Suis-moi vers le sommet de la montagne. » Sur ces mots, il se détourna pour marcher vers la grande salle située au sommet.
 
 Le jeune homme porta la main à son cou et haleta pour reprendre son souffle. Il lui fallut un moment pour se remettre. Ses yeux étaient empreints de peur et de respect. À cet instant précis, il avait senti la mort et savait que ce Su Dao l'aurait réellement tué. Tremblant, il suivit rapidement Wang Lin.
 

@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 809 - This Lowly Ones Inferior Clan
 slug: le-clan-inferieur-de-cet-humble-serviteur
 ---
-Une âme originelle de dragon antique était absolument prodigieuse aux yeux de ces gens !
+Une âme originelle de dragon antique était absolument prodigieuse aux yeux de ces gens!
 
 Lorsque l'ancêtre posa le regard sur l'âme originelle de Wang Lin, ses yeux trahirent une expression complexe. Il poussa un soupir, s'avança et joignit les mains. « Haut... Haut Céleste, cet humble serviteur souhaiterait vous demander... »
 
@@ -14,19 +14,19 @@ Wang Lin ne da aucune attention au vieil homme. Il atteignit le char de guerre. 
 
 Cette scène fit plisser les yeux de l'assistance qui observa la scène avec une attention accrue.
 
-À cet instant, les yeux de Xu Liguo tournèrent. Il s'élança immédiatement dans les airs, pointa les membres du Clan des Immortels Choisis et cria : « Mon maître raffine un trésor ! À moins que vous ne passiez sur mon cadavre, vous ne ferez pas le moindre pas dans cette zone ! »
+À cet instant, les yeux de Xu Liguo tournèrent. Il s'élança immédiatement dans les airs, pointa les membres du Clan des Immortels Délaissés et cria: « Mon maître raffine un trésor! À moins que vous ne passiez sur mon cadavre, vous ne ferez pas le moindre pas dans cette zone! »
 
 Ses paroles étaient empreintes de force, d'autant plus que l'expression de Xu Liguo suggérait qu'il préférait mourir plutôt que de laisser quiconque troubler son maître. Il dégageait une aura puissante qui se propageait comme une tempête.
 
-L'ancêtre recula rapidement de quelques pas et dit respectueusement : « Nous ne nous approcherons pas à moins de mille pieds. Nous avons simplement quelques questions... »
+L'ancêtre recula rapidement de quelques pas et dit respectueusement: « Nous ne nous approcherons pas à moins de mille pieds. Nous avons simplement quelques questions... »
 
-Avant que le vieil homme n'ait pu achever sa phrase, Xu Liguo hurla : « Silence ! À moins que vous ne passiez sur mon corps, vous ne perturberez pas mon maître, pas même un peu ! Ma vie entière m'a été donnée par mon maître. C'est lui qui m'a sauvé de l'abîme. C'est lui qui m'a enseigné les sorts et m'a permis d'obtenir mon héritage. C'est mon maître qui m'a donné ma puissance actuelle. Si vous voulez troubler mon maître, moi, Xu Liguo, je ne vous le permettrai jamais !!! »
+Avant que le vieil homme n'ait pu achever sa phrase, Xu Liguo hurla: « Silence! À moins que vous ne passiez sur mon corps, vous ne perturberez pas mon maître, pas même un peu! Ma vie entière m'a été donnée par mon maître. C'est lui qui m'a sauvé de l'abîme. C'est lui qui m'a enseigné les sorts et m'a permis d'obtenir mon héritage. C'est mon maître qui m'a donné ma puissance actuelle. Si vous voulez troubler mon maître, moi, Xu Liguo, je ne vous le permettrai jamais!!! »
 
-Les paroles de Xu Liguo étaient empreintes d'exaltation et son regard révélait une détermination à s'opposer à n'importe qui, aussi puissant soit-il, si l'on tentait de nuire à son maître. Il était prêt à mourir sans même sourciller. C'était un véritable héros !
+Les paroles de Xu Liguo étaient empreintes d'exaltation et son regard révélait une détermination à s'opposer à n'importe qui, aussi puissant soit-il, si l'on tentait de nuire à son maître. Il était prêt à mourir sans même sourciller. C'était un véritable héros!
 
-Le corps de l'ancêtre trembla ; ces mots prenaient une tout autre résonance à ses oreilles. En vérité, tout leur clan n'était que serviteur des Célestes.
+Le corps de l'ancêtre trembla; ces mots prenaient une tout autre résonance à ses oreilles. En vérité, tout leur clan n'était que serviteur des Célestes.
 
-« Cet individu connaît le sens de la loyauté, et mon clan comprend également cela ! » Le vieil homme regarda Xu Liguo avec respect et pensa : « Je ne m'attendais pas à ce que cet esprit soit si loyal. Le Haut Céleste a de la chance d'avoir un subordonné aussi fidèle ! »
+« Cet individu connaît le sens de la loyauté, et mon clan comprend également cela! » Le vieil homme regarda Xu Liguo avec respect et pensa: « Je ne m'attendais pas à ce que cet esprit soit si loyal. Le Haut Céleste a de la chance d'avoir un subordonné aussi fidèle! »
 
 Ta Shan se tenait aux côtés du vieil homme en observant Xu Liguo. Il éprouvait des sentiments très complexes face à cette situation.
 
@@ -40,15 +40,15 @@ Pendant ce temps, le Char de Guerre Divin sous l'âme originelle de Wang Lin ém
 
 Sous cet éclat noir, quiconque posait les yeux sur Wang Lin en ressentait le frisson.
 
-Cette scène provoqua un immense choc chez les membres du Clan des Immortels Choisis. Ils étaient incapables de garder leur calme.
+Cette scène provoqua un immense choc chez les membres du Clan des Immortels Délaissés. Ils étaient incapables de garder leur calme.
 
-Xu Liguo continuait de jouer la comédie de la droiture. Profitant du fait que les autres ne regardaient pas, il jeta un coup d'œil furtif à Wang Lin et pensa : « Qu'est-ce qu'il y a de si extraordinaire ? Ton vieux Xu peut faire tout aussi bien. Ce n'est que dévorer des runes ; moi, je dévore même des gens ! » Xu Liguo était rempli de mépris, mais ses yeux ne manifestaient que du respect. Son visage était empreint d'admiration et son corps en tremblait même.
+Xu Liguo continuait de jouer la comédie de la droiture. Profitant du fait que les autres ne regardaient pas, il jeta un coup d'œil furtif à Wang Lin et pensa: « Qu'est-ce qu'il y a de si extraordinaire? Ton vieux Xu peut faire tout aussi bien. Ce n'est que dévorer des runes; moi, je dévore même des gens! » Xu Liguo était rempli de mépris, mais ses yeux ne manifestaient que du respect. Son visage était empreint d'admiration et son corps en tremblait même.
 
 En apparence, il ressemblait à un serviteur fidèle, transporté par l'exaltation face au sortilège de son maître.
 
-Lorsque Ta Shan vit l'expression de Xu Liguo, il poussa un soupir et son cœur se troubla davantage. Quant à l'ancêtre, il hocha discrètement la tête, trouvant la loyauté de Xu Liguo tout à fait respectable !
+Lorsque Ta Shan vit l'expression de Xu Liguo, il poussa un soupir et son cœur se troubla davantage. Quant à l'ancêtre, il hocha discrètement la tête, trouvant la loyauté de Xu Liguo tout à fait respectable!
 
-En vérité, ces membres du Clan des Immortels Choisis vivaient ici sans aucun contact avec l'extérieur depuis bien trop longtemps. Bien qu'ils ne fussent pas stupides, ils n'étaient pas comparables à Xu Liguo.
+En vérité, ces membres du Clan des Immortels Délaissés vivaient ici sans aucun contact avec l'extérieur depuis bien trop longtemps. Bien qu'ils ne fussent pas stupides, ils n'étaient pas comparables à Xu Liguo.
 
 Xu Liguo était extrêmement rusé et doué pour s'adapter aux changements. Ses près de mille ans d'expérience lui avaient permis de perfectionner son art. Si quelqu'un pouvait facilement percer à jour ses intentions, alors il ne serait pas Xu Liguo.
 
@@ -56,41 +56,41 @@ Le temps passa lentement. Après plusieurs heures, l'âme originelle de Wang Lin
 
 Les yeux de l'âme originelle de Wang Lin brillèrent d'un éclat vif et les deux dernières runes furent absorbées. Une décision cruciale s'imposait désormais à lui.
 
-« Dois-je la raffiner en un trésor lié à ma vie ? » Tandis que Wang Lin méditait silencieusement, les sept runes fusionnèrent pour former une rune unique près de sa poitrine. Dès l'apparition de cette rune, la lumière noire accumulée par le char de guerre se concentra sur la poitrine de Wang Lin.
+« Dois-je la raffiner en un trésor lié à ma vie? » Tandis que Wang Lin méditait silencieusement, les sept runes fusionnèrent pour former une rune unique près de sa poitrine. Dès l'apparition de cette rune, la lumière noire accumulée par le char de guerre se concentra sur la poitrine de Wang Lin.
 
-« Char de Guerre Divin, libération du sceau ! » Ce message transmis par Sens Divin se propagea comme un coup de tonnerre et toute la lumière noire sembla s'engouffrer dans le corps de Wang Lin. Soudain, d'innombrables épines se mirent à briller et une ombre illusoire prit rapidement forme.
+« Char de Guerre Divin, libération du sceau! » Ce message transmis par Sens Divin se propagea comme un coup de tonnerre et toute la lumière noire sembla s'engouffrer dans le corps de Wang Lin. Soudain, d'innombrables épines se mirent à briller et une ombre illusoire prit rapidement forme.
 
-C'était une bête spirituelle haute de près de mille pieds. Dès son apparition, elle poussa un rugissement qui fit pâlir tous les membres du Clan des Immortels Choisis. Les plantes entre leurs sourcils clignotèrent frénétiquement et ils ne purent s'empêcher de reculer. Seuls les quelques individus dotés d'une cultivation puissante purent tenir un instant avant d'être eux aussi contraints de battre en retraite.
+C'était une bête spirituelle haute de près de mille pieds. Dès son apparition, elle poussa un rugissement qui fit pâlir tous les membres du Clan des Immortels Délaissés. Les plantes entre leurs sourcils clignotèrent frénétiquement et ils ne purent s'empêcher de reculer. Seuls les quelques individus dotés d'une culture puissante purent tenir un instant avant d'être eux aussi contraints de battre en retraite.
 
 Les poils de la puce se hérissèrent et elle poussa des rugissements. De même, le ventre du crapaud tonnerre se gonfla alors qu'il préparait son sortilège le plus puissant.
 
-Seul Xu Liguo luttait encore pour hurler : « À moins que vous ne passiez sur mon corps... »
+Seul Xu Liguo luttait encore pour hurler: « À moins que vous ne passiez sur mon corps... »
 
 Cependant, avant qu'il n'ait pu finir, la grande bête tourna la tête vers lui. Xu Liguo fut si terrifié qu'il en avala la seconde moitié de sa phrase.
 
-« Ton grand-père Xu possède l'héritage de l'esprit de l'épée antique. Une fois que j'aurai fini de l'absorber, nous verrons bien qui aura peur ! » Bien qu'il maudît intérieurement, Xu Liguo recula prestement. Il était si rapide qu'en un clin d'œil, il se trouvait déjà loin de là.
+« Ton grand-père Xu possède l'héritage de l'esprit de l'épée antique. Une fois que j'aurai fini de l'absorber, nous verrons bien qui aura peur! » Bien qu'il maudît intérieurement, Xu Liguo recula prestement. Il était si rapide qu'en un clin d'œil, il se trouvait déjà loin de là.
 
 L'expression de Wang Lin demeura neutre tandis qu'il fixait la bête devant lui. Son âme originelle retourna dans son corps, puis son corps s'élança dans les airs.
 
 Alors que la bête spirituelle rugissait, elle détourna son regard de Xu Liguo pour se précipiter sur Wang Lin. Elle était d'une rapidité fulgurante. À l'instant même où elle bougea, elle se trouvait déjà devant lui, tentant de le dévorer.
 
-Le regard de Wang Lin était calme et il ne recula pas. Au contraire, alors que la bête s'approchait, il prononça doucement : « Effondrement ! »
+Le regard de Wang Lin était calme et il ne recula pas. Au contraire, alors que la bête s'approchait, il prononça doucement: « Effondrement! »
 
 Un fracas retentit et la bête spirituelle se brisa en d'innombrables fragments qui envahirent l'espace, mais elle se reforma immédiatement. Ses yeux étaient emplis de haine et elle poussa un autre rugissement avant de charger de nouveau vers Wang Lin.
 
-La voix de Wang Lin resta sereine : « Effondrement ! »
+La voix de Wang Lin resta sereine: « Effondrement! »
 
 Cette fois, dès que la bête spirituelle chargea en rugissant, son corps s'effondra.
 
 « Après avoir fusionné les sept runes, si vous la raffinez en un trésor lié à votre vie, vous pourrez naturellement la contrôler. Cependant, si vous choisissez de ne pas la raffiner ainsi, les sept runes pourront être utilisées pour provoquer l'effondrement de la bête spirituelle à sept reprises. Cela vous donnera sept chances de faire plier la bête. »
 
-« Si la bête spirituelle ne s'est toujours pas soumise après sept tentatives, alors vous devrez impérativement la raffiner en un trésor lié à votre vie, faute de quoi il sera impossible d'utiliser ce trésor ! » Ces paroles du jade céleste apparurent dans l'esprit de Wang Lin.
+« Si la bête spirituelle ne s'est toujours pas soumise après sept tentatives, alors vous devrez impérativement la raffiner en un trésor lié à votre vie, faute de quoi il sera impossible d'utiliser ce trésor! » Ces paroles du jade céleste apparurent dans l'esprit de Wang Lin.
 
 Après que la bête spirituelle s'est effondrée deux fois, son regard devint plus féroce encore. Elle poussa un rugissement violent, son corps se reforma et elle chargea une nouvelle fois. Cette fois, sa masse se divisa en une multitude de segments pour attaquer Wang Lin de toutes parts.
 
-Wang Lin fronça légèrement les sourcils. C'était un homme cruel et décisif. Après mille ans de cultivation, il avait développé sa propre manière d'agir. Il était évident que la bête ne s'était pas encore soumise car il ne l'avait pas assez éprouvée !
+Wang Lin fronça légèrement les sourcils. C'était un homme cruel et décisif. Après mille ans de culture, il avait développé sa propre manière d'agir. Il était évident que la bête ne s'était pas encore soumise car il ne l'avait pas assez éprouvée!
 
-Le regard de Wang Lin se glaça et il dit calmement : « Effondrement ! Effondrement ! Effondrement ! »
+Le regard de Wang Lin se glaça et il dit calmement: « Effondrement! Effondrement! Effondrement! »
 
 À peine ces trois mots prononcés, la bête qui accrochait fut instantanément brisée et repoussée. Aussitôt après, un second effondrement survint.
 
@@ -98,7 +98,7 @@ Un gémissement de douleur émana du chaos, et à cet instant précis, un troisi
 
 Si les effondrements n'avaient pas été successifs, elle aurait pu les endurer, mais cette triple attaque provoqua la peur au plus profond de son cœur.
 
-Dès l'apparition de cette crainte, son corps commença à se reformer avec une certaine hésitation. À ce moment-là, le regard de Wang Lin devint glacial et il ordonna calmement : « Effondrement ! »
+Dès l'apparition de cette crainte, son corps commença à se reformer avec une certaine hésitation. À ce moment-là, le regard de Wang Lin devint glacial et il ordonna calmement: « Effondrement! »
 
 Dans un fracas assourdissant, la bête qui venait de se reconstituer s'effondra une fois de plus. La peur qui l'habitait décupla de façon incontrôlable, finissant par saturer son esprit.
 
@@ -116,4 +116,4 @@ Ce papillon était d'une beauté telle que Wang Lin en plissa les yeux.
 
 C'était un homme vêtu d'une robe bleue, le regard glacial.
 
-« Que fait un humble serviteur de ce royaume ici ? »
+« Que fait un humble serviteur de ce royaume ici? »

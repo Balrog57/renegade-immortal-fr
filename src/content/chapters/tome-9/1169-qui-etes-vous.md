@@ -1,12 +1,12 @@
 ---
 n: 1169
-title: Qui êtes-vous ?
+title: Qui êtes-vous?
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1169 - Who Are You
 slug: qui-etes-vous
 ---
-Chapitre 1169 - Qui êtes-vous ?
+Chapitre 1169 - Qui êtes-vous?
 
 « Tous les quelques centaines d'années, la région de rang 9 forme une armée de cultivateurs pour aider à combattre les bêtes féroces issues du système stellaire mystérieux... Peut-être que bientôt Qianmei devra elle aussi s'en aller. » Les cheveux bleus de Li Qianmei flottaient et elle en saisit quelques mèches de sa main droite tout en souriant.
 
@@ -30,7 +30,7 @@ Wang Lin vit cette scène et entendit ces mots. Il ne pouvait pas se retourner e
 
 Il l'écouta lui parler des secrets de la région de rang 9. Il l'écouta parler de la guerre contre les bêtes féroces. Il l'écouta lui demander de l'accompagner pour son départ.
 
-Wang Lin réfléchit un instant avant de hocher la tête et de murmurer : « Je le ferai. »
+Wang Lin réfléchit un instant avant de hocher la tête et de murmurer: « Je le ferai. »
 
 Li Qianmei sourit. Lorsqu'elle souriait, ses yeux étaient comme des croissants de lune.
 
@@ -40,29 +40,29 @@ Cela lui permettait d'éviter d'être reconnue. La Li Qianmei aux cheveux noirs 
 
 La Secte du Jade Précieux avait placé de nombreux disciples autour de Peng Lai pour accueillir les cultivateurs arrivants. Après avoir payé les frais, ils ouvraient la formation pour permettre l'accès.
 
-C'était la première fois que Wang Lin voyait une planète de cultivation depuis son arrivée dans la Mer des Nuages, même s'il ne s'agissait que de la moitié d'une seule. Cependant, contrairement au choc ressenti par les autres cultivateurs devant une telle vision, Wang Lin restait extrêmement calme.
+C'était la première fois que Wang Lin voyait une planète de culture depuis son arrivée dans la Mer des Nuages, même s'il ne s'agissait que de la moitié d'une seule. Cependant, contrairement au choc ressenti par les autres cultivateurs devant une telle vision, Wang Lin restait extrêmement calme.
 
-Dans la Mer des Nuages, la majorité des cultivateurs n'avaient jamais vu de planète de cultivation auparavant, seulement des continents flottants. La stupeur de voir une planète pour la première fois se lisait sans peine sur leurs visages.
+Dans la Mer des Nuages, la majorité des cultivateurs n'avaient jamais vu de planète de culture auparavant, seulement des continents flottants. La stupeur de voir une planète pour la première fois se lisait sans peine sur leurs visages.
 
-Pourtant, pour Wang Lin, une planète de cultivation n'avait rien d'extraordinaire. Il était né sur une planète de cultivation, il avait accepté son maître sur une planète de cultivation et, à Allheaven, il possédait même sa propre planète de cultivation.
+Pourtant, pour Wang Lin, une planète de culture n'avait rien d'extraordinaire. Il était né sur une planète de culture, il avait accepté son maître sur une planète de culture et, à Allheaven, il possédait même sa propre planète de culture.
 
 Sans parler du vaste champ d'étoiles au sein de la Secte Divine de l'Oiseau Vermillon.
 
-Les cultivateurs de la Secte du Jade Précieux affichaient une certaine fierté car ils possédaient une véritable planète de cultivation. Mais face à Wang Lin, leur orgueil était dérisoire.
+Les cultivateurs de la Secte du Jade Précieux affichaient une certaine fierté car ils possédaient une véritable planète de culture. Mais face à Wang Lin, leur orgueil était dérisoire.
 
 Alors que chaque cultivateur payait ses pierres spirituelles pour entrer, ce fut enfin le tour de Wang Lin et Li Qianmei. Les cultivateurs postés ici étaient principalement au stade Yin et Yang. Cependant, celui qui les dirigeait était étonnamment au stade du Scryer de Nirvana.
 
-« La Secte du Jade Précieux porte bien son nom pour avoir un cultivateur Scryer de Nirvana chargé d'accueillir les gens. » Wang Lin secoua intérieurement la tête. Il voyait facilement clair dans les manœuvres de la secte ; ils faisaient simplement une démonstration de puissance.
+« La Secte du Jade Précieux porte bien son nom pour avoir un cultivateur Scryer de Nirvana chargé d'accueillir les gens. » Wang Lin secoua intérieurement la tête. Il voyait facilement clair dans les manœuvres de la secte; ils faisaient simplement une démonstration de puissance.
 
 Après avoir payé les pierres spirituelles, Wang Lin et Li Qianmei pénétrèrent sur le continent de Peng Lai.
 
-Li Qianmei sourit et murmura : « Cette enchère est bien meilleure que la précédente. La dernière fois que je suis venue, ils avaient un cultivateur Purificateur de Nirvana pour accueillir les gens. J'ai cru que j'allais dans une autre secte de rang 9, oubliant que nous ne sommes que dans la région de rang 5. »
+Li Qianmei sourit et murmura: « Cette enchère est bien meilleure que la précédente. La dernière fois que je suis venue, ils avaient un cultivateur Purificateur de Nirvana pour accueillir les gens. J'ai cru que j'allais dans une autre secte de rang 9, oubliant que nous ne sommes que dans la région de rang 5. »
 
 Wang Lin secoua silencieusement la tête.
 
 Bien que l'on puisse juger la Secte du Jade Précieux sans vergogne, Peng Lai était magnifique. La terre était verdoyante et les mortels des capitales levaient respectueusement les yeux vers les cultivateurs qui passaient en volant, une pointe d'envie dans le regard.
 
-Il y avait même des montagnes et des rivières majestueuses ; c'était un véritable festin pour les yeux.
+Il y avait même des montagnes et des rivières majestueuses; c'était un véritable festin pour les yeux.
 
 Le lieu de l'enchère se trouvait dans la partie est de Peng Lai. C'était un spectacle grandiose où des pierres flottaient dans les airs, surmontées de pavillons construits au sommet.
 
@@ -86,17 +86,17 @@ Même le jeune maître de la Secte du Dao Pourpre n'avait pas cent morceaux de j
 
 De même, dans la Mer des Nuages, il existait une ressource encore plus précieuse appelée « cristal originel ». Tout comme les jades célestes étaient nécessaires pour atteindre le stade Ascendant et que les cultivateurs Yin et Yang les utilisaient pour leurs formations et leurs trésors, les cristaux originels étaient d'une importance capitale pour les cultivateurs du deuxième niveau.
 
-Les cristaux originels n'existaient que dans la Mer des Nuages et étaient choyés par ces derniers. Leur absorption permettait de restaurer rapidement l'énergie originelle et pouvait augmenter considérablement la vitesse de cultivation.
+Les cristaux originels n'existaient que dans la Mer des Nuages et étaient choyés par ces derniers. Leur absorption permettait de restaurer rapidement l'énergie originelle et pouvait augmenter considérablement la vitesse de culture.
 
 De plus, si l'on utilisait un cristal originel pour créer une formation ou raffiner un trésor, leur puissance en était décuplée.
 
 Cependant, les cristaux originels étaient aussi rares que les jades célestes. La seule différence résidait dans le fait que les jades célestes se trouvaient dans le Royaume Céleste du Vent, les rendant presque impossibles à obtenir. Quant aux cristaux originels, ils étaient principalement contrôlés par les sectes de rang 8 ou supérieur, et surtout par celles de rang 9.
 
-Tout cela était dû au mode de formation des cristaux originels. Ils ne pouvaient être extraits ; ils se formaient grâce à des bêtes de rang 12 capables de se transformer en brume. Lorsqu'une telle bête vivait longtemps dans la brume stellaire, un cristal originel finissait par se former. Seules les sectes et les cultivateurs possédant des bêtes de rang 12 pouvaient donc récolter ces cristaux.
+Tout cela était dû au mode de formation des cristaux originels. Ils ne pouvaient être extraits; ils se formaient grâce à des bêtes de rang 12 capables de se transformer en brume. Lorsqu'une telle bête vivait longtemps dans la brume stellaire, un cristal originel finissait par se former. Seules les sectes et les cultivateurs possédant des bêtes de rang 12 pouvaient donc récolter ces cristaux.
 
 Toutefois, les bêtes de rang 12 étaient rares, et seules quelques-unes possédaient la capacité de se transformer en brume. Par conséquent, seules les sectes de rang 8 ou plus en étaient dotées.
 
-Si une bête originelle apparaissait dans la région inférieure, une lutte massive éclaterait pour s'en emparer. Après tout, une bête originelle représentait des cristaux originels !
+Si une bête originelle apparaissait dans la région inférieure, une lutte massive éclaterait pour s'en emparer. Après tout, une bête originelle représentait des cristaux originels!
 
 Wang Lin entra dans une cité située sur l'une des pierres flottantes avec Li Qianmei. La ville était ouverte et grouillait de cultivateurs. Certains avaient même payé la Secte du Jade Précieux pour installer leurs propres étals et commercer.
 
@@ -106,30 +106,30 @@ L'endroit était très vivant et les bruits de marchandage emplissaient la ville
 
 Cela faisait très longtemps que Wang Lin n'avait pas visité un marché de ce genre. En traversant la cité, son regard se posa sur un étal non loin de là.
 
-« Compagnon Cultivateur, je n'ai pas autant de jades célestes. Et si j'ajoutais une pilule ? » Un vieil homme était assis derrière l'étal. Il affichait une expression sombre en faisant face à un homme d'âge moyen.
+« Compagnon Cultivateur, je n'ai pas autant de jades célestes. Et si j'ajoutais une pilule? » Un vieil homme était assis derrière l'étal. Il affichait une expression sombre en faisant face à un homme d'âge moyen.
 
 Ces mots provenaient de l'homme d'âge moyen.
 
-« Je peux raffiner mes propres pilules ; elles sont inutiles. Soixante-dix jades célestes pour un cristal originel, c'est ma limite. » Le regard du vieil homme devint glacial en parlant. Puis, il ne prêta plus aucune attention à l'interlocuteur.
+« Je peux raffiner mes propres pilules; elles sont inutiles. Soixante-dix jades célestes pour un cristal originel, c'est ma limite. » Le regard du vieil homme devint glacial en parlant. Puis, il ne prêta plus aucune attention à l'interlocuteur.
 
 Dans la Mer des Nuages, les cultivateurs pouvaient librement échanger des jades célestes et des cristaux originels selon un taux déterminé. En entendant cela, Wang Lin toucha inconsciemment son sac de rangement. Bien qu'il fût vide, Wang Lin ressentit une sensation étrange. Lui-même ignorait combien de jades célestes il possédait dans son espace de stockage...
 
 À cet instant précis, une voix pleine de surprise retentit au loin.
 
-« Qianmei ! C'est vraiment toi ! »
+« Qianmei! C'est vraiment toi! »
 
 Trois cultivateurs suivirent la voix. L'homme en tête avait environ trente ans. Il portait une chemise verte et était plutôt beau. D'une silhouette svelte, ses yeux brillaient d'étonnement alors qu'il s'approchait. Les deux compagnons qui le suivaient étaient également très séduisants. Leurs cultures fluctuaient, révélant qu'ils n'étaient pas de faibles combattants.
 
-Li Qianmei fronça légèrement les sourcils mais se détendit rapidement en disant : « Ainsi, c'est le Compagnon Cultivateur Yang. »
+Li Qianmei fronça légèrement les sourcils mais se détendit rapidement en disant: « Ainsi, c'est le Compagnon Cultivateur Yang. »
 
-L'homme en vert s'approcha et, sans même accorder un regard à Wang Lin, sourit à Qianmei. « Nous ne nous sommes vus que quelques mois, mais tu me manques déjà. Heureusement que nous nous retrouvons aujourd'hui. Qianmei, cet endroit est bruyant ; que dirais-tu d'aller dans la ville intérieure ? » La voix de l'homme était douce et empreinte d'un certain charme.
+L'homme en vert s'approcha et, sans même accorder un regard à Wang Lin, sourit à Qianmei. « Nous ne nous sommes vus que quelques mois, mais tu me manques déjà. Heureusement que nous nous retrouvons aujourd'hui. Qianmei, cet endroit est bruyant; que dirais-tu d'aller dans la ville intérieure? » La voix de l'homme était douce et empreinte d'un certain charme.
 
 « Merci pour votre gentillesse, Compagnon Cultivateur Yang, mais je vous prie de m'excuser. » La voix de Li Qianmei était calme, mais glaciale.
 
 « Qianmei, tu... » L'homme en vert fit quelques pas de plus, s'apprêtant à poursuivre.
 
-« Compagnon Cultivateur Yang, surveillez votre langage ! "Qianmei" n'est pas un nom que vous pouvez prononcer ainsi ! » Li Qianmei fronça les sourcils, manifestant sa colère. Ce Yang Yu était l'une des personnes qu'elle avait interrogées, et elle n'était pas satisfaite de ses réponses.
+« Compagnon Cultivateur Yang, surveillez votre langage! "Qianmei" n'est pas un nom que vous pouvez prononcer ainsi! » Li Qianmei fronça les sourcils, manifestant sa colère. Ce Yang Yu était l'une des personnes qu'elle avait interrogées, et elle n'était pas satisfaite de ses réponses.
 
 Yang Yu haussa les sourcils. Il avait naturellement remarqué la présence de Wang Lin aux côtés de Li Qianmei. S'il n'osait pas provoquer Li Qianmei, il se moquait éperdument du reste du monde.
 
-Yang Yu fixa Wang Lin et demanda froidement : « Qui es-tu ? »
+Yang Yu fixa Wang Lin et demanda froidement: « Qui es-tu? »

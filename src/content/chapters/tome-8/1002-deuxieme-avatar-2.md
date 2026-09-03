@@ -6,13 +6,13 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1002 - Second Avatar (2)
 slug: deuxieme-avatar-2
 ---
-« Si j'avais eu cent ans de plus, j'aurais pu achever le Sortilège de la Division Démoniaque… Malheureusement, ce sens démoniaque est trop faible et le corps principal a été dévoré. Ce sens démoniaque est comme un arbre sans racines et pourrait se dissiper à tout moment… La Tour du Démon s'est effondrée, je ne peux plus rester ! Je n'ose pas pénétrer dans un autre pays démon pour absorber l'énergie démoniaque… »
+« Si j'avais eu cent ans de plus, j'aurais pu achever le Sortilège de la Division Démoniaque… Malheureusement, ce sens démoniaque est trop faible et le corps principal a été dévoré. Ce sens démoniaque est comme un arbre sans racines et pourrait se dissiper à tout moment… La Tour du Démon s'est effondrée, je ne peux plus rester! Je n'ose pas pénétrer dans un autre pays démon pour absorber l'énergie démoniaque… »
 
-Ce sens démoniaque volait prudemment vers l'avant ; cependant, il était bien trop faible et pouvait être anéanti à tout instant.
+Ce sens démoniaque volait prudemment vers l'avant; cependant, il était bien trop faible et pouvait être anéanti à tout instant.
 
 Alors qu'il planait dans le ciel, il se dissipait lentement. Finalement, il fut sur le point de s'effondrer, et même ses souvenirs devinrent flous. Il était sur le point de disparaître complètement.
 
-Juste au moment où il allait s'évanouir à jamais, il sentit vaguement une énergie démoniaque sous lui. La Tribu du Raffinement des Âmes se trouvait juste là, en dessous !
+Juste au moment où il allait s'évanouir à jamais, il sentit vaguement une énergie démoniaque sous lui. La Tribu du Raffinement des Âmes se trouvait juste là, en dessous!
 
 Il n'y avait pas beaucoup de membres de la Tribu du Raffinement des Âmes à cette époque, seulement quelques centaines de milliers de personnes. La plupart d'entre eux étaient dispersés, cherchant des lieux contenant des fragments d'âme. Seules quelques dizaines de milliers de personnes restaient sur les terres de la tribu.
 
@@ -24,7 +24,7 @@ Au fil du temps, le Démon des Nuages s'installa lentement dans la statue. Il av
 
 Il n'était même pas le corps original, mais seulement un fragment de sens démoniaque. Toute l'énergie démoniaque provenant de la vénération des membres de la Tribu du Raffinement des Âmes était imprégnée de pensées concernant un homme nommé « Wang Lin ».
 
-Au début, il y résista, mais lorsque le nombre de membres de la tribu dépassa le million, il commença peu à peu à ressentir que son nom était Wang Lin sous cette adoration constante ; il se sentait être leur ancêtre.
+Au début, il y résista, mais lorsque le nombre de membres de la tribu dépassa le million, il commença peu à peu à ressentir que son nom était Wang Lin sous cette adoration constante; il se sentait être leur ancêtre.
 
 Il passa des centaines d'années avec de telles pensées. Alors que la Tribu du Raffinement des Âmes grandissait pour atteindre des millions d'individus, cette vénération perpétuelle le fit complètement abandonner son passé, au point qu'il finit par croire qu'il était Wang Lin.
 
@@ -34,11 +34,11 @@ Wang Lin leva sa main droite et regarda le démon ancien qui lui ressemblait tra
 
 En combinant ses propres spéculations, Wang Lin acquit une compréhension détaillée de ce qui s'était produit.
 
-Après avoir réfléchi un instant, les yeux de Wang Lin s'illuminèrent ; il fixa le démon ancien et murmura : « Pour qu'un démon ancien soit livré sur un plateau à ma porte, ce serait dommage de ne pas l'accepter… Puisque même lui pense être moi, alors… qu'il devienne mon deuxième avatar ! »
+Après avoir réfléchi un instant, les yeux de Wang Lin s'illuminèrent; il fixa le démon ancien et murmura: « Pour qu'un démon ancien soit livré sur un plateau à ma porte, ce serait dommage de ne pas l'accepter… Puisque même lui pense être moi, alors… qu'il devienne mon deuxième avatar! »
 
-« Mon corps original est un dieu antique, mon premier avatar est un cultivateur, et mon deuxième avatar est un démon ancien. Je me demande si je pourrai créer un troisième avatar qui soit un diable ancien ! Le moment venu, lorsqu'ils fusionneront tous… je me demande si je pourrai revenir à l'Ordre Antique ! » Le cœur de Wang Lin battait la chamade alors qu'il regardait le démon ancien qui s'était offert à lui, et il sourit.
+« Mon corps original est un dieu antique, mon premier avatar est un cultivateur, et mon deuxième avatar est un démon ancien. Je me demande si je pourrai créer un troisième avatar qui soit un diable ancien! Le moment venu, lorsqu'ils fusionneront tous… je me demande si je pourrai revenir à l'Ordre Antique! » Le cœur de Wang Lin battait la chamade alors qu'il regardait le démon ancien qui s'était offert à lui, et il sourit.
 
-Son corps vacilla et il quitta la statue. Son sens divin et sa cultivation retournèrent dans son propre corps. Il regarda la statue noire devant lui et son sourire s'élargit.
+Son corps vacilla et il quitta la statue. Son sens divin et sa culture retournèrent dans son propre corps. Il regarda la statue noire devant lui et son sourire s'élargit.
 
 Il prit une profonde inspiration et s'assit, la main posée sur ses genoux. Puis, il expulsa de l'énergie d'origine essentielle qui enveloppa la statue de pierre avant d'y placer des restrictions.
 
@@ -50,11 +50,11 @@ Cependant, si l'entité n'était pas plus faible que lui, il ne pouvait pas reco
 
 En somme, c'était le premier obstacle à surmonter.
 
-Puisqu'il ne pouvait pas l'imposer par la force, il devait le raffiner lentement, jour après jour, y consacrant énormément de temps pour une faible chance de succès. De plus, même en cas de réussite, un défaut subsistait : le risque que l'avatar finisse par se rebeller.
+Puisqu'il ne pouvait pas l'imposer par la force, il devait le raffiner lentement, jour après jour, y consacrant énormément de temps pour une faible chance de succès. De plus, même en cas de réussite, un défaut subsistait: le risque que l'avatar finisse par se rebeller.
 
-Toutefois, ce n'était pas une difficulté majeure pour Wang Lin, car ce démon ancien croyait déjà être Wang Lin ; peu de raffinage était donc nécessaire. Tout ce que Wang Lin avait à faire, c'était d'intégrer son sens divin et de s'assurer que le démon ancien sache qui était l'original !
+Toutefois, ce n'était pas une difficulté majeure pour Wang Lin, car ce démon ancien croyait déjà être Wang Lin; peu de raffinage était donc nécessaire. Tout ce que Wang Lin avait à faire, c'était d'intégrer son sens divin et de s'assurer que le démon ancien sache qui était l'original!
 
-Cela ne fut pas difficile pour lui. Il possédait un niveau de cultivation supérieur à celui du démon ancien et il était un dieu antique.
+Cela ne fut pas difficile pour lui. Il possédait un niveau de culture supérieur à celui du démon ancien et il était un dieu antique.
 
 Néanmoins, Wang Lin resta prudent durant les quelques jours restants. Non seulement il intégra complètement son sens divin au démon ancien, mais il laissa également une empreinte sur le sceau. De plus, il plaça une quantité massive de restrictions à l'intérieur de l'avatar. Si celui-ci venait jamais à se rebeller, Wang Lin pourrait instantanément le soumettre d'une simple pensée.
 
@@ -62,7 +62,7 @@ S'il s'était arrêté là, cela n'aurait pas été conforme au style de Wang Li
 
 En regardant la statue de pierre devant lui, il avait l'impression qu'elle ne faisait qu'un avec lui.
 
-« Il est regrettable que ce deuxième avatar n'ait pas de corps physique et doive résider dans cette statue. Il ne peut pas s'en séparer pour le moment, et s'il attaque, il utilise principalement son sens démoniaque ! Il est aussi très faible, seulement au stade avancé de l'Ascendant. »
+« Il est regrettable que ce deuxième avatar n'ait pas de corps physique et doive résider dans cette statue. Il ne peut pas s'en séparer pour le moment, et s'il attaque, il utilise principalement son sens démoniaque! Il est aussi très faible, seulement au stade avancé de l'Ascendant. »
 
 « Cependant, c'est un fragment de sens démoniaque. S'il dispose d'assez d'énergie démoniaque, il grandira et atteindra le niveau d'un démon ancien… » Les yeux de Wang Lin brillèrent. Il savait qu'il ne pouvait pas précipiter les choses et qu'il devait agir avec patience.
 
@@ -102,15 +102,15 @@ Wang Lin la saisit et en prit une gorgée.
 
 « Bien sûr qu'il a changé. Les descendants de ce vieil homme n'ont pas le talent de leur ancêtre, ils ne peuvent donc recréer le même goût qu'autrefois. » Une voix calme s'éleva derrière lui, empreinte d'épuisement.
 
-Wang Lin ne se retourna pas et soupira : « Nous ne nous sommes pas vus depuis des centaines d'années. L'Empereur Démon n'est plus aussi insouciant qu'avant ! »
+Wang Lin ne se retourna pas et soupira: « Nous ne nous sommes pas vus depuis des centaines d'années. L'Empereur Démon n'est plus aussi insouciant qu'avant! »
 
 Un soupir répondit à son propre soupir. Un homme d'âge moyen, vêtu de pourpre, s'assit aux côtés de Wang Lin. Il était extrêmement beau, laissant entrevoir ce qu'il avait été autrefois. Cependant, ses cheveux étaient désormais parsemés de mèches blanches et il paraissait vieilli.
 
 « Bois donc, goûte-le. » L'homme sortit une cruche de vin et la tendit à Wang Lin.
 
-Wang Lin la prit et en but une gorgée. Il sourit : « C'est le vin d'autrefois ! »
+Wang Lin la prit et en but une gorgée. Il sourit: « C'est le vin d'autrefois! »
 
-« Je savais que tu reviendrais, alors j'en ai gardé beaucoup pour boire avec toi ! » L'homme d'âge moyen fit un geste de la main et une autre cruche apparut. Il prit une longue gorgée avant de sourire : « Frère Wang, te sens-tu mélancolique sans la musique de la cithare d'autrefois ? »
+« Je savais que tu reviendrais, alors j'en ai gardé beaucoup pour boire avec toi! » L'homme d'âge moyen fit un geste de la main et une autre cruche apparut. Il prit une longue gorgée avant de sourire: « Frère Wang, te sens-tu mélancolique sans la musique de la cithare d'autrefois? »
 
 Le son de la cithare commença alors à s'élever au loin, portant en lui une trace de solitude et de tristesse. Un instant plus tard, un grand navire descendit la rivière.
 

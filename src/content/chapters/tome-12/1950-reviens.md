@@ -1,26 +1,26 @@
 ---
 n: 1950
-title: "Reviens !"
+title: "Reviens!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1950 - Come Again!"
 slug: reviens
 ---
-Chapitre 1950 - Reviens !
+Chapitre 1950 - Reviens!
 
-Pour les cultivateurs, treize ans n'étaient qu'un éclair. Durant ces treize dernières années, Wang Lin avait appréhendé l'essence de l'Origine Absolue ; il possédédait désormais une essence spéciale supplémentaire !
+Pour les cultivateurs, treize ans n'étaient qu'un éclair. Durant ces treize dernières années, Wang Lin avait appréhendé l'essence de l'Origine Absolue; il possédédait désormais une essence spéciale supplémentaire!
 
 Quant à l'essence de la Fin Absolue, après treize ans passés à contempler la nuit dévorer la lumière plus de 4 000 fois, Wang Lin ne l'avait pas encore pleinement maîtrisée, mais il en avait acquis une certaine compréhension grâce au Bassin Dong Lin.
 
 Au cours de ces treize années de compréhension, cette voix basse n'était jamais réapparue.
 
-Wang Lin était assis à l'extérieur, sur l'autel bordant le Bassin Dong Lin. Son niveau de cultivation était resté inchangé durant ces treize dernières années, mais pour une raison quelconque, alors qu'il observait les levers et couchers de soleil, ses cheveux s'étaient lentement allongés.
+Wang Lin était assis à l'extérieur, sur l'autel bordant le Bassin Dong Lin. Son niveau de culture était resté inchangé durant ces treize dernières années, mais pour une raison quelconque, alors qu'il observait les levers et couchers de soleil, ses cheveux s'étaient lentement allongés.
 
 Après un long moment, il ouvrit les yeux. Son œil gauche abritait un soleil levant, tandis que son œil droit était empli de ténèbres. Ces deux yeux étranges donnaient à Wang Lin une apparence très singulière.
 
-« L'essence de l'Origine Absolue peut fusionner avec les essences de Massacre et de Restriction pour devenir la quatrième essence au sein du corps véritable d'essence de tonnerre. Quant à l'essence de la Fin Absolue... je ne l'ai pas encore totalement comprise et n'en ai acquis qu'une compréhension partielle, mais je peux tout de même la fusionner. Peut-être que ma cultivation connaîtra une percée car mon corps véritable d'essence de tonnerre possédera alors cinq essences... » L'expression de Wang Lin était calme. La raison pour laquelle il s'était rendu à la Secte Dong Lin était de trouver l'opportunité de franchir un nouveau palier dans sa cultivation.
+« L'essence de l'Origine Absolue peut fusionner avec les essences de Massacre et de Restriction pour devenir la quatrième essence au sein du corps véritable d'essence de tonnerre. Quant à l'essence de la Fin Absolue... je ne l'ai pas encore totalement comprise et n'en ai acquis qu'une compréhension partielle, mais je peux tout de même la fusionner. Peut-être que ma culture connaîtra une percée car mon corps véritable d'essence de tonnerre possédera alors cinq essences... » L'expression de Wang Lin était calme. La raison pour laquelle il s'était rendu à la Secte Dong Lin était de trouver l'opportunité de franchir un nouveau palier dans sa culture.
 
-Une fois cette opportunité saisie et son niveau de cultivation augmenté, il pourrait se rendre à l'Épreuve Empyrée afin de parachever ses préparatifs avant de partir pour la capitale impériale.
+Une fois cette opportunité saisie et son niveau de culture augmenté, il pourrait se rendre à l'Épreuve Empyrée afin de parachever ses préparatifs avant de partir pour la capitale impériale.
 
 Alors que Wang Lin restait assis là, une ombre se dessina sur son corps. Des éclairs jaillirent tandis que son corps véritable d'essence de tonnerre sortait de l'ombre pour s'asseoir face à lui.
 
@@ -44,13 +44,13 @@ Wang Lin observa la scène un instant, sans toutefois s'en inquiéter. Son œil 
 
 D'un geste de la main, le soleil noir vola vers son corps véritable d'essence de tonnerre et commença à fusionner avec lui.
 
-Cependant, au moment même où le soleil noir fusionnait avec le corps véritable d'essence de tonnerre, le Sens Divin de Wang Lin se déploya soudainement. Il exerça une pression puissante sur le corps véritable afin que l'essence fusionne selon sa volonté !
+Cependant, au moment même où le soleil noir fusionnait avec le corps véritable d'essence de tonnerre, le Sens Divin de Wang Lin se déploya soudainement. Il exerça une pression puissante sur le corps véritable afin que l'essence fusionne selon sa volonté!
 
-Bien que le soleil noir ne fût pas riche en essence, il fut sans doute immédiatement absorbé par le tonnerre de massacre en raison de sa similitude avec la destruction. Le tonnerre de massacre changea une fois de plus !
+Bien que le soleil noir ne fût pas riche en essence, il fut sans doute immédiatement absorbé par le tonnerre de massacre en raison de sa similitude avec la destruction. Le tonnerre de massacre changea une fois de plus!
 
 Le tonnerre de massacre était une existence capable de détruire le monde et de déchirer le vide. Après avoir intégré l'essence de la Fin Absolue, une aura destructrice se propagea depuis le corps véritable d'essence de tonnerre, et même le Sens Divin de Wang Lin sentit qu'il ne pouvait plus la contenir.
 
-Massacrer toute vie et détruire un monde. Déchirer la lumière afin que la nuit enveloppe le monde et transforme tout en ruines. Telle était la puissance totale du corps véritable d'essence de tonnerre que Wang Lin avait forgé !
+Massacrer toute vie et détruire un monde. Déchirer la lumière afin que la nuit enveloppe le monde et transforme tout en ruines. Telle était la puissance totale du corps véritable d'essence de tonnerre que Wang Lin avait forgé!
 
 Cependant, cette force était piégée à l'intérieur du corps d'essence par l'essence de Restriction, tel un sceau. Si cette force s'échappait, elle engendrerait une calamité terrifiante.
 
@@ -68,17 +68,17 @@ Dès l'instant où il avait accidentellement créé le tonnerre de massacre, il 
 
 Au sein du corps véritable d'essence, les quatre essences spéciales s'étaient fusionnées pour résister à cette force. Lorsqu'elles parvinrent enfin à ne former qu'une seule entité, le corps véritable d'essence ouvrit les yeux. Son œil gauche était de lumière et son œil droit de ténèbres. Il avança vers Wang Lin et se superposa à lui comme une silhouette transparente. Puis, il s'assit et fusionna avec Wang Lin.
 
-À cet instant précis, le niveau de cultivation de Wang Lin bondit soudainement du stade initial de la Tribulation du Vide au stade intermédiaire. Tandis que sa cultivation progressait, le monde changea de teinte et les nuages au-dessus de lui se dispersèrent. Le ciel au-dessus de la Secte Dong Lin oscillait entre l'obscurité et la clarté. Il alternait ainsi entre ombre et lumière jusqu'à ce qu'un grondement sourd émane du corps de Wang Lin. Une puissante bourrasque fit fouetter ses cheveux et ses vêtements. Il avait percé le stade intermédiaire de la Tribulation du Vide !
+À cet instant précis, le niveau de culture de Wang Lin bondit soudainement du stade initial de la Tribulation du Vide au stade intermédiaire. Tandis que sa culture progressait, le monde changea de teinte et les nuages au-dessus de lui se dispersèrent. Le ciel au-dessus de la Secte Dong Lin oscillait entre l'obscurité et la clarté. Il alternait ainsi entre ombre et lumière jusqu'à ce qu'un grondement sourd émane du corps de Wang Lin. Une puissante bourrasque fit fouetter ses cheveux et ses vêtements. Il avait percé le stade intermédiaire de la Tribulation du Vide!
 
-Wang Lin se redressa brusquement, et les bouleversements mondiaux disparurent sans laisser de trace. Tout revint à la normale : plus de vent, plus de mouvement, seul régnait le silence.
+Wang Lin se redressa brusquement, et les bouleversements mondiaux disparurent sans laisser de trace. Tout revint à la normale: plus de vent, plus de mouvement, seul régnait le silence.
 
 Il resta là un long moment avant de bouger enfin. Le Dragon Marin d'Or Exalté, dont l'admiration pour Wang Lin ne cessait de croître, s'avança, permettant à Wang Lin de poser le pied sur sa tête.
 
-Liu Jinbiao déglutit, regardant lui aussi Wang Lin avec une crainte respectueuse. Cette fascination était la même qu'il avait ressentie dans le monde des grottes ; elle n'avait pas changé ici, sur le Continent Astral Immortel. Il grimpa rapidement sur le dos du dragon marin et se tint respectueusement derrière Wang Lin.
+Liu Jinbiao déglutit, regardant lui aussi Wang Lin avec une crainte respectueuse. Cette fascination était la même qu'il avait ressentie dans le monde des grottes; elle n'avait pas changé ici, sur le Continent Astral Immortel. Il grimpa rapidement sur le dos du dragon marin et se tint respectueusement derrière Wang Lin.
 
-Sa cultivation s'était largement rétablie durant ces treize dernières années grâce à ses souvenirs et au fait d'avoir apaisé le dragon marin pour obtenir son aide.
+Sa culture s'était largement rétablie durant ces treize dernières années grâce à ses souvenirs et au fait d'avoir apaisé le dragon marin pour obtenir son aide.
 
-Le dragon marin s'éleva dans les airs, portant Wang Lin sur sa tête. Ce dernier regarda vers le bas, vers la Secte Dong Lin et le Bassin Dong Lin en contrebas. Après un instant, il joignit ses mains et s'inclina devant le Bassin !
+Le dragon marin s'éleva dans les airs, portant Wang Lin sur sa tête. Ce dernier regarda vers le bas, vers la Secte Dong Lin et le Bassin Dong Lin en contrebas. Après un instant, il joignit ses mains et s'inclina devant le Bassin!
 
 « Bien que mon Aîné soit déjà mort, la grâce qu'il m'a témoignée est une dette que je n'oublierai jamais. » Le regard de Wang Lin se posa sur le Temple Dong Lin, et pendant un instant, il vit l'image du vieil homme solitaire et triste.
 
@@ -87,37 +87,35 @@ Wang Lin poussa un soupir, et sous ses ordres, le dragon marin s'élança vers l
 Derrière lui, un soupir chargé de décennies de solitude et de tristesse, mêlé à une volonté de fer encore plus puissante, résonna...
 
 À cause de sa solitude, il avait créé un rêve issu de ses souvenirs pour l'accompagner.
-
 À cause de son chagrin, il était resté dans cette secte moribonde, se remémorant le passé tout en montant une garde silencieuse.
-
-À cause de sa persévérance, même après des dizaines de milliers d'années, la haine et la folie profondément enfouies restaient gravées en lui, à l'instar de ces mots sur la stèle de pierre !
+À cause de sa persévérance, même après des dizaines de milliers d'années, la haine et la folie profondément enfouies restaient gravées en lui, à l'instar de ces mots sur la stèle de pierre!
 
 Wang Lin partit.
 
-Cependant, il ne quitta pas le Continent du Grand Sage ; il se contenta de s'installer au sommet d'une montagne. Avec le Dragon Marin d'Or Exalté pour garde, il dressa des restrictions autour de lui. Alors que le soleil se levait à l'est, il ferma les yeux.
+Cependant, il ne quitta pas le Continent du Grand Sage; il se contenta de s'installer au sommet d'une montagne. Avec le Dragon Marin d'Or Exalté pour garde, il dressa des restrictions autour de lui. Alors que le soleil se levait à l'est, il ferma les yeux.
 
-« Je vais tenter l'Épreuve Empyrée ! Autrefois, j'avais franchi le quatrième palais. Je me demande combien je pourrai en traverser cette fois... » Wang Lin ferma les yeux et apaisa les violentes fluctuations causées par sa progression de cultivation. Après trois mois, il s'était familiarisé avec son nouveau niveau. Il leva la main droite et fit un geste, faisant apparaître des sorts.
+« Je vais tenter l'Épreuve Empyrée! Autrefois, j'avais franchi le quatrième palais. Je me demande combien je pourrai en traverser cette fois... » Wang Lin ferma les yeux et apaisa les violentes fluctuations causées par sa progression de culture. Après trois mois, il s'était familiarisé avec son nouveau niveau. Il leva la main droite et fit un geste, faisant apparaître des sorts.
 
-« Au stade initial de la Tribulation du Vide, en raison des limites de ma cultivation, je ne pouvais fusionner que treize sorts. Maintenant que je suis au stade intermédiaire, combien puis-je en fusionner... Et combien pourrais-je en combiner avec l'aide des corps véritables d'essence et des essences... » Les yeux de Wang Lin s'illuminèrent d'anticipation.
+« Au stade initial de la Tribulation du Vide, en raison des limites de ma culture, je ne pouvais fusionner que treize sorts. Maintenant que je suis au stade intermédiaire, combien puis-je en fusionner... Et combien pourrais-je en combiner avec l'aide des corps véritables d'essence et des essences... » Les yeux de Wang Lin s'illuminèrent d'anticipation.
 
 Après une profonde inspiration, Wang Lin ferma les yeux et son Sens Divin se concentra au sommet de sa tête. Il projeta un corps invisible qui s'élança vers le ciel.
 
-« Cette fois, je dois me faire un nom en un seul mouvement ! Cette fois, je dois forcer tous les Exaltés Empyrés à lever les yeux pour me regarder... Cette fois, je deviendrai le premier parmi les Exaltés Empyrés !
+« Cette fois, je dois me faire un nom en un seul mouvement! Cette fois, je dois forcer tous les Exaltés Empyrés à lever les yeux pour me regarder... Cette fois, je deviendrai le premier parmi les Exaltés Empyrés!
 
-« Cette fois, je deviendrai le 49e Ascendant Empyré ! Cette fois, j'utiliserai la puissance de l'armure d'âme du Taureau Céleste ! »
+« Cette fois, je deviendrai le 49e Ascendant Empyré! Cette fois, j'utiliserai la puissance de l'armure d'âme du Taureau Céleste! »
 
-Le Sens Divin de Wang Lin s'éleva vers les cieux telle une colonne de gaz invisible. Il continua sa montée jusqu'à ce que son esprit frémisse. Lorsque sa vision redevint claire, il reconnut l'Épreuve Empyrée !
+Le Sens Divin de Wang Lin s'éleva vers les cieux telle une colonne de gaz invisible. Il continua sa montée jusqu'à ce que son esprit frémisse. Lorsque sa vision redevint claire, il reconnut l'Épreuve Empyrée!
 
-Il vit les palais flottant dans le ciel et les centaines d'Exaltés Empyrés assis devant le premier palais !
+Il vit les palais flottant dans le ciel et les centaines d'Exaltés Empyrés assis devant le premier palais!
 
-De même, ces Exaltés Empyrés aperçurent Wang Lin, qui venait d'atteindre l'ancien réseau de transfert !
+De même, ces Exaltés Empyrés aperçurent Wang Lin, qui venait d'atteindre l'ancien réseau de transfert!
 
-« L'Exalté Empyré aux cheveux blancs ! »
+« L'Exalté Empyré aux cheveux blancs! »
 
 « Je me souviens qu'il avait franchi les quatre premiers étages d'affilée autrefois. Je pensais qu'il tenterait le cinquième palais, mais il avait abandonné et était parti... »
 
 « Il savait probablement qu'il ne pourrait pas passer et s'était retiré de lui-même. Cette fois, il doit avoir acquis une nouvelle compréhension et trouvé la confiance nécessaire pour franchir le cinquième palais... »
 
-« C'est lui ! » Devant le premier palais se tenait un homme d'âge moyen vêtu de noir. Son air arrogant semblait faire fuir quiconque autour de lui ; il fut le premier à voir arriver Wang Lin.
+« C'est lui! » Devant le premier palais se tenait un homme d'âge moyen vêtu de noir. Son air arrogant semblait faire fuir quiconque autour de lui; il fut le premier à voir arriver Wang Lin.
 
-Il s'appelait Zhu Lin ! Autrefois, il avait franchi le septième palais mais s'était arrêté au huitième.
+Il s'appelait Zhu Lin! Autrefois, il avait franchi le septième palais mais s'était arrêté au huitième.

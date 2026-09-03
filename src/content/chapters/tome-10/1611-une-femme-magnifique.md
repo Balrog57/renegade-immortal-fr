@@ -8,7 +8,7 @@ slug: une-femme-magnifique
 ---
 La voix de Li Muwan portait une tendresse qui caressa les oreilles de Wang Lin. Cette douceur apaisa le cœur de ce dernier. Son vieux visage sembla soudainement rajeunir. Il regarda Li Muwan et oublia le passage du temps.
 
-Wang Lin avait gravé dans son esprit les paroles de Li Muwan prononcées lors de cette vie onirique ; il ne pourrait jamais les oublier. Cette existence de rêve semblait se superposer au présent, et la vallée où ils avaient vécu ensemble durant de nombreuses années se matérialisait.
+Wang Lin avait gravé dans son esprit les paroles de Li Muwan prononcées lors de cette vie onirique; il ne pourrait jamais les oublier. Cette existence de rêve semblait se superposer au présent, et la vallée où ils avaient vécu ensemble durant de nombreuses années se matérialisait.
 
 Dans la vallée, les fleurs s'épanouissaient et flétrissaient au fil des jours et des ans. Seules leurs silhouettes semblaient devenir des existences éternelles. Le son de la cithare était si enivrant qu'il ne souhaitait plus jamais se réveiller.
 
@@ -18,7 +18,7 @@ Dans la vallée, il avait regardé les cheveux de Li Muwan blanchir, jusqu'à ce
 
 Il se souvenait de la manière dont il avait serré Li Muwan contre lui, poussant un cri de désespoir déchirant vers le ciel.
 
-« Même si le Ciel veut que tu meures, je te ramènerai ! »
+« Même si le Ciel veut que tu meures, je te ramènerai! »
 
 Cette voix résonnait toujours dans l'esprit de Wang Lin. Elle émanait du rêve et était devenue sa force.
 
@@ -36,7 +36,7 @@ Wang Lin savait que son cœur était déjà mort ce jour-là, cette année-là, 
 
 *Le ciel coloré semble manquer d'une couleur. Je passerai ma vie à la chercher...*
 
-Wang Lin leva la tête vers les cieux. Un oiseau blanc semblait tournoyer dans l'azur tandis qu'il se demandait doucement : « Es-tu prête à couper les liens... Peux-tu les couper... »
+Wang Lin leva la tête vers les cieux. Un oiseau blanc semblait tournoyer dans l'azur tandis qu'il se demandait doucement: « Es-tu prête à couper les liens... Peux-tu les couper... »
 
 La trente et unième année après avoir quitté Zhao, Wang Lin et Li Muwan étaient assis sur un rocher, entourés de cultivateurs s'étendant sur des milliers de kilomètres. Wang Lin tenait Li Muwan avec un sourire, contemplant le monde à ses côtés.
 
@@ -52,7 +52,7 @@ Li Muwan était encore très jeune. Elle soutint doucement Wang Lin pour l'aider
 
 Au loin, Liu Mei observait silencieusement Wang Lin et Li Muwan. La confusion dans ses yeux s'était intensifiée au fil des années, pour finalement se muer en une douleur indicible qui la contraignait à baisser la tête.
 
-La voix de Wang Lin devint plus voilée par l'âge lorsqu'il murmura : « Te souviens-tu encore de notre demeure... »
+La voix de Wang Lin devint plus voilée par l'âge lorsqu'il murmura: « Te souviens-tu encore de notre demeure... »
 
 Des larmes perlèrent dans les yeux de Li Muwan et elle hocha la tête.
 
@@ -82,7 +82,7 @@ La vallée était déserte, envahie par les mauvaises herbes. Quelques fleurs sa
 
 Li Muwan fit de même. Après un long moment, elle afficha un sourire radieux.
 
-« Wang Lin, ne réfléchissons pas au fait que ceci est un rêve. Vivons simplement ici, d'accord ? »
+« Wang Lin, ne réfléchissons pas au fait que ceci est un rêve. Vivons simplement ici, d'accord? »
 
 « D'accord. »
 
@@ -90,7 +90,7 @@ Le temps s'écoula lentement. Les mauvaises herbes de la vallée disparurent et 
 
 Wang Lin se tenait là, un bâton à la main, tandis que la musique jouait. Son apparence était encore plus vieillie, son visage marqué par de nombreux sillons et sa peau tachetée de taches brunes.
 
-C'étaient les marques de la vieillesse. Chaque tache ressemblait aux cernes d'un arbre ; elles étaient les empreintes du temps.
+C'étaient les marques de la vieillesse. Chaque tache ressemblait aux cernes d'un arbre; elles étaient les empreintes du temps.
 
 Il portait toujours sa robe blanche et écoutait la musique de Li Muwan avec un sourire. Il regardait la femme, dont les mains reposaient sur l'instrument.
 
@@ -98,7 +98,7 @@ Le visage de la femme n'était plus aussi jeune qu'à leurs débuts. Tout comme 
 
 Li Muwan avait utilisé un sort pour vieillir son apparence. Elle ne voulait pas que Wang Lin vieillisse seul tandis qu'elle resterait jeune. Elle voulait être comme lui, être une mortelle. Ils compteraient ensemble les cheveux blancs de l'autre en passant le reste de leurs jours unis.
 
-Comment Wang Lin aurait-il pu ignorer ses intentions ? Il ne l'en empêcha pas ; il se contenta de regarder sa femme avec tendresse.
+Comment Wang Lin aurait-il pu ignorer ses intentions? Il ne l'en empêcha pas; il se contenta de regarder sa femme avec tendresse.
 
 Sa femme.
 
@@ -112,7 +112,7 @@ Il la regardait, elle jouait. C'était comme s'il n'existait rien d'autre dans c
 
 Une année, puis une autre.
 
-L'oiseau blanc ne réapparut jamais ; c'était comme s'il avait quitté le rêve.
+L'oiseau blanc ne réapparut jamais; c'était comme s'il avait quitté le rêve.
 
 Sous leurs regards croisés et au son de la cithare, Wang Lin et Li Muwan vécurent le renouveau de la vie au printemps, les feuilles de saule dansant dans l'air en été et les feuilles mortes roulant au sol en automne.
 
@@ -134,7 +134,7 @@ Li Muwan, la tête couverte de cheveux blancs, soutint Wang Lin pour sortir de l
 
 Cet endroit était un rêve, mais pas seulement un rêve. Il avait été façonné par le sort Dao de Wang Lin avec l'aide des Fruits du Dao. Le temps à l'intérieur du rêve s'écoulait au même rythme qu'à l'extérieur.
 
-À l'extérieur du rêve, c'était l'Alliance de Cultivation, les quatre grands systèmes stellaires, et la bataille finale entre les Royaumes Intérieur et Extérieur !
+À l'extérieur du rêve, c'était l'Alliance des Cultivateurs, les quatre grands systèmes stellaires, et la bataille finale entre les Royaumes Intérieur et Extérieur!
 
 Durant ces plusieurs dizaines d'années, les Royaumes Intérieur et Extérieur se déchiraient comme l'eau et le feu. Le Royaume Extérieur avait propagé la nouvelle de la mort du Seigneur du Royaume Scellé et utilisait toute sa puissance pour envahir le Royaume Intérieur.
 
@@ -146,4 +146,4 @@ Alors que l'agonie s'accentuait, la rumeur de la mort du Seigneur du Royaume Sce
 
 En conséquence, la nouvelle de la mort du Seigneur du Royaume Scellé ne pouvait plus être contenue. Elle infligea un coup irrémédiable aux cultivateurs du Royaume Intérieur.
 
-Il y a un mois, le Brilliant Void fut confronté à un choix déchirant. Devaient-ils abandonner et se replier vers Allheaven pour la bataille finale, ou rester dans le fief du Seigneur du Royaume Scellé ? Rester sur la planète Suzaku et se battre jusqu'à la mort ?!
+Il y a un mois, le Brilliant Void fut confronté à un choix déchirant. Devaient-ils abandonner et se replier vers Allheaven pour la bataille finale, ou rester dans le fief du Seigneur du Royaume Scellé? Rester sur la planète Suzaku et se battre jusqu'à la mort?!

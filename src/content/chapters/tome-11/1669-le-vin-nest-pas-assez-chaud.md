@@ -12,13 +12,13 @@ Des runes complexes, tracées d'un rouge vif, ornaient ces peaux. Elles scintill
 
 Outre ces chars de guerre, des rugissements résonnaient au loin. Derrière les 100 000 cultivateurs, une gigantesque tablette de pierre était transportée par un millier de cultivateurs torse nu.
 
-Ces tablettes de pierre mesuraient environ dix mille pieds de haut et dégageaient une aura ancestrale. Plus impressionnant encore étaient les neuf chaînes entourant la tablette : au bout de chaque chaîne pendait un cercueil.
+Ces tablettes de pierre mesuraient environ dix mille pieds de haut et dégageaient une aura ancestrale. Plus impressionnant encore étaient les neuf chaînes entourant la tablette: au bout de chaque chaîne pendait un cercueil.
 
 Chaque cercueil était haut de plusieurs milliers de pieds. De loin, l'ensemble ressemblait à une pieuvre, offrant un spectacle terrifiant.
 
-Telle était la nouvelle force que le Royaume Extérieur avait rassemblée. Ce serait la bataille décisive pour tuer Wang Lin et détruire cette formation !
+Telle était la nouvelle force que le Royaume Extérieur avait rassemblée. Ce serait la bataille décisive pour tuer Wang Lin et détruire cette formation!
 
-Le Royaume Extérieur avait perdu trop de cultivateurs ; les forces réunies ici représentaient son ultime recours !
+Le Royaume Extérieur avait perdu trop de cultivateurs; les forces réunies ici représentaient son ultime recours!
 
 Wang Lin observa ces féroces cultivateurs du Royaume Extérieur postés devant la formation, et la froideur dans ses yeux s'intensifia. En voyant cela, le visage de Xi Zifeng pâlit.
 
@@ -34,7 +34,7 @@ Des grondements tonitruants résonnèrent à l'extérieur de la formation. Les 1
 
 Dès que les 100 000 âmes originelles furent sorties, cinq cultivateurs de la troisième étape s'avancèrent. Ils étaient les derniers de leur rang encore présents dans le Royaume Extérieur, hormis quelques rares exceptions.
 
-Ces cinq experts n'avaient pas participé à la guerre contre le Royaume Intérieur, restant en réserve pour protéger le Royaume Extérieur. Cependant, l'ordre du Conseil Souverain était tombé : même si le Royaume Extérieur devait périr, ils devaient mourir au combat.
+Ces cinq experts n'avaient pas participé à la guerre contre le Royaume Intérieur, restant en réserve pour protéger le Royaume Extérieur. Cependant, l'ordre du Conseil Souverain était tombé: même si le Royaume Extérieur devait périr, ils devaient mourir au combat.
 
 Les cinq s'assirent en ligne. Ils savaient à quel point Wang Lin était puissant. Même en attaquant de concert, ils pourraient ne pas être de taille face au Seigneur du Domaine Scellé, Wang Lin.
 
@@ -42,13 +42,13 @@ Toutefois, avec l'appui des 100 000 âmes originelles et du secret antique du Co
 
 Des grondements sourds retentirent. La puissance des cinq fusionna pour déferler sur l'homme en tête de file.
 
-Ce dernier était un vieillard aux cheveux blancs. L'expression grave, il sentit la puissance des quatre cultivateurs derrière lui affluer en lui ; ses cheveux s'agitèrent sans qu'aucun vent ne soufflât. Ses yeux brillèrent d'un éclat inédit.
+Ce dernier était un vieillard aux cheveux blancs. L'expression grave, il sentit la puissance des quatre cultivateurs derrière lui affluer en lui; ses cheveux s'agitèrent sans qu'aucun vent ne soufflât. Ses yeux brillèrent d'un éclat inédit.
 
-« Par ma cultivation et mon lignage, j'invoque l'ancien sort ! Dao brise-ciel, un seul Dao éteint le vide ! » rugit le vieillard en pointant le ciel du doigt. Une lumière aveuglante jaillit, faisant apparaître une épée de 100 000 pieds !
+« Par ma culture et mon lignage, j'invoque l'ancien sort! Dao brise-ciel, un seul Dao éteint le vide! » rugit le vieillard en pointant le ciel du doigt. Une lumière aveuglante jaillit, faisant apparaître une épée de 100 000 pieds!
 
 Une fois l'épée manifestée, les 100 000 âmes originelles s'y précipitèrent, lui conférant une aura colossale.
 
-« Tranche ! » hurla le vieillard aux cheveux blancs en abattant sa main droite vers la formation des trois essences de Wang Lin.
+« Tranche! » hurla le vieillard aux cheveux blancs en abattant sa main droite vers la formation des trois essences de Wang Lin.
 
 L'épée de 100 000 pieds, chargée des 100 000 âmes originelles et de toute la puissance des cinq cultivateurs de la troisième étape, se transforma, par ce sort antique, en une force capable de fendre les cieux qui s'abattit sur sa cible.
 
@@ -70,15 +70,15 @@ Alors qu'elle se brisait, les 100 000 âmes originelles se dispersèrent, perdan
 
 Ses mains formèrent un sceau et pointèrent vers le ciel. Sa voix rauque résonna à travers le système stellaire.
 
-D'un visage féroce, il rugit : « 100 000 âmes originelles, 100 000 cultivateurs, condensez toute votre force vitale ! Condensez vos innombrables années de vie ! Nous, les 100 000 cultivateurs, sacrifions toute notre essence en échange d'un coup issu des temps anciens pour détruire cette formation et tuer cet homme ! » Le vieillard et ses quatre compagnons crachèrent du sang.
+D'un visage féroce, il rugit: « 100 000 âmes originelles, 100 000 cultivateurs, condensez toute votre force vitale! Condensez vos innombrables années de vie! Nous, les 100 000 cultivateurs, sacrifions toute notre essence en échange d'un coup issu des temps anciens pour détruire cette formation et tuer cet homme! » Le vieillard et ses quatre compagnons crachèrent du sang.
 
 Simultanément, les corps des 100 000 cultivateurs expulsèrent du sang. Jeunes ou d'âge mûr, ils vieillirent instantanément. Ceux qui étaient déjà vieux exhalèrent une odeur de décomposition.
 
-Une attaque consumant la force vitale de 100 000 cultivateurs était capable d'atteindre les sommets !
+Une attaque consumant la force vitale de 100 000 cultivateurs était capable d'atteindre les sommets!
 
-« À l'aube du monde, tout n'était que ténèbres, sans lumière ni vie. Le Souverain Céleste Antique descendit et créa la vie. Il appela la lumière du monde ancien pour illuminer ce monde ! »
+« À l'aube du monde, tout n'était que ténèbres, sans lumière ni vie. Le Souverain Céleste Antique descendit et créa la vie. Il appela la lumière du monde ancien pour illuminer ce monde! »
 
-« J'offre cent mille vies en sacrifice pour invoquer l'ancien pacte et convoquer cette lumière primordiale ! Cette lumière a engendré toute forme de vie, mais elle fut aussi la cause de sa destruction ! » hurla le vieillard d'une voix déformée.
+« J'offre cent mille vies en sacrifice pour invoquer l'ancien pacte et convoquer cette lumière primordiale! Cette lumière a engendré toute forme de vie, mais elle fut aussi la cause de sa destruction! » hurla le vieillard d'une voix déformée.
 
 Alors que ses paroles se propageaient, les 100 000 âmes originelles convergèrent avec frénésie, formant un brouillard si dense qu'il devint impossible de les distinguer. Ce brouillard commença à tourbillonner, accélérant jusqu'à former un vortex gigantesque. Son centre ressemblait à un trou noir menant vers un autre monde.
 
@@ -90,17 +90,17 @@ Les innombrables âmes tourmentées poussèrent des hurlements de douleur. Un ga
 
 Au loin, dans le Système Stellaire Antique, le Souverain observa la scène. Malgré la distance, il pouvait encore percevoir les contours de cette bataille.
 
-« Ce vieillard se moque éperdument de la vie des cultivateurs des grottes. Même moi, j'aurais du mal à contrer ce sort forgé par la force vitale de 100 000 hommes. Je veux voir si tu utiliseras ton arc ou non ! »
+« Ce vieillard se moque éperdument de la vie des cultivateurs des grottes. Même moi, j'aurais du mal à contrer ce sort forgé par la force vitale de 100 000 hommes. Je veux voir si tu utiliseras ton arc ou non! »
 
 Wang Lin, debout au sein de la formation, contemplait l'aura émanant du rayon de lumière jailli du trou noir. Il avait déjà ressenti cette aura par le passé.
 
 Le regard serein, il pointa vers le Royaume Extérieur.
 
-« Parasol Brûleur de Monde, déploie-toi pour consumer le monde ! » Dans le Royaume Extérieur, un gigantesque parasol de feu s'ouvrit. Dès son apparition, la lumière dorée fut repoussée par une flamme destructrice qui se propagea.
+« Parasol Brûleur de Monde, déploie-toi pour consumer le monde! » Dans le Royaume Extérieur, un gigantesque parasol de feu s'ouvrit. Dès son apparition, la lumière dorée fut repoussée par une flamme destructrice qui se propagea.
 
-« Dao aux sept couleurs, transmute les cieux et la terre ! » Tandis que la lumière dorée et le feu rouge s'entrechoquaient, les paroles de Wang Lin résonnèrent. Des lueurs rouges, orangées, jaunes, vertes, bleues et indigo surgirent du vide pour former une Lance aux Sept Couleurs !
+« Dao aux sept couleurs, transmute les cieux et la terre! » Tandis que la lumière dorée et le feu rouge s'entrechoquaient, les paroles de Wang Lin résonnèrent. Des lueurs rouges, orangées, jaunes, vertes, bleues et indigo surgirent du vide pour former une Lance aux Sept Couleurs!
 
-« Cette lumière antique a percé le ciel, je la briserai donc avec cette Lance aux Sept Couleurs. Le Parasol Brûleur de Monde colmatera la brèche. Cette lumière a peut-être engendré toute vie, mais elle ne pourra pas m'effacer ! » Le parasol et la Lance aux Sept Couleurs entrèrent en collision dans une explosion titanesque.
+« Cette lumière antique a percé le ciel, je la briserai donc avec cette Lance aux Sept Couleurs. Le Parasol Brûleur de Monde colmatera la brèche. Cette lumière a peut-être engendré toute vie, mais elle ne pourra pas m'effacer! » Le parasol et la Lance aux Sept Couleurs entrèrent en collision dans une explosion titanesque.
 
 Wang Lin agita ses manches et se tourna vers Xi Zifeng. Il saisit la cruche de vin sur le petit pot et en but une gorgée.
 

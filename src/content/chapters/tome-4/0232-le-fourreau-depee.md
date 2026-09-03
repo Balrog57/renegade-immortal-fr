@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 232 - Sword Sheath
 slug: le-fourreau-depee
 ---
-Le vieil homme fut pétrifié par les paroles de Wang Lin. En se retournant, il ne vit que des rangées d'éclairs rouges ; ce furent les dernières choses qu'il contempla avant de mourir.
+Le vieil homme fut pétrifié par les paroles de Wang Lin. En se retournant, il ne vit que des rangées d'éclairs rouges; ce furent les dernières choses qu'il contempla avant de mourir.
 
 Le Domaine de Ji jaillit et déchira instantanément le corps du vieil homme. Alors que son Âme Naissante s'apprêtait à s'échapper, la paume de Wang Lin frappa sa poitrine. Une vague d'énergie spirituelle s'engouffra dans le corps du vieil homme, piégeant l'Âme Naissante à l'intérieur. Ce dernier ne put que regarder, impuissant, Wang Lin saisir son Âme Naissante pour la dévorer.
 
@@ -18,19 +18,18 @@ Les quatre qui s'apprêtaient à tendre une embuscade à Wang Lin furent ébranl
 
 Mais ces quatre-là avaient eu le tort de chercher à importuner Wang Lin. Sans même que celui-ci ne bouge, son Domaine de Ji les rattrapa instantanément et les acheva.
 
-Wang Lin avait consommé une grande quantité d'Énergie Naissante pour permettre à son Domaine de Ji de tuer cinq personnes d'affilée. Il s'empara rapidement des Âmes Naissantes des quatre cultivateurs et les dévora. La tactique divine de l'Ancien Dieu absorba promptement ces âmes. Wang Lin put ainsi reconstituer toute l'Énergie Naissante consommée et augmenta même légèrement son niveau de cultivation.
+Wang Lin avait consommé une grande quantité d'Énergie Naissante pour permettre à son Domaine de Ji de tuer cinq personnes d'affilée. Il s'empara rapidement des Âmes Naissantes des quatre cultivateurs et les dévora. La tactique divine de l'Ancien Dieu absorba promptement ces âmes. Wang Lin put ainsi reconstituer toute l'Énergie Naissante consommée et augmenta même légèrement son niveau de culture.
 
 Après cela, Wang Lin rassembla tous leurs sacs de rangement et les ouvrit un par un. Il vérifia d'abord que la tablette de jade contenant la carte était intacte et poussa un soupir de soulagement. Bien que les autres sacs contenaient quelques trésors magiques, une seule chose attira l'attention de Wang Lin.
 
-À l'instant où il vit cet objet, son énergie spirituelle frémit sous le coup de l'émotion. Après un moment, il se calma et fixa l'objet qu'il tenait dans sa main : un fourreau d'épée.
+À l'instant où il vit cet objet, son énergie spirituelle frémit sous le coup de l'émotion. Après un moment, il se calma et fixa l'objet qu'il tenait dans sa main: un fourreau d'épée.
 
-Un fourreau d'apparence ordinaire !
-
-Mais un fourreau dégageant une aura antique !
+Un fourreau d'apparence ordinaire!
+Mais un fourreau dégageant une aura antique!
 
 Wang Lin prit une profonde inspiration et l'examina attentivement. Une expression étrange se dessina sur son visage. Ce fourreau ressemblait trait pour trait à celui qu'il avait possédé autrefois, mais il savait que ce n'était pas le même.
 
-Le fourreau de l'époque avait été affiné par le Noyau Froid de Wang Lin ; s'il l'avait tenu une fois de plus, il l'aurait su sans l'ombre d'un doute. Bien qu'il soit identique en apparence, Wang Lin savait que ce n'était pas celui-là.
+Le fourreau de l'époque avait été affiné par le Noyau Froid de Wang Lin; s'il l'avait tenu une fois de plus, il l'aurait su sans l'ombre d'un doute. Bien qu'il soit identique en apparence, Wang Lin savait que ce n'était pas celui-là.
 
 L'autre preuve qui l'en assurait était que, l'ayant utilisé maintes fois, il savait qu'une gravure singulière ornait le milieu du fourreau original. Bien que ce présent fourreau possède également une gravure étrange, elle différait de la première.
 
@@ -44,7 +43,7 @@ L'expression de Wang Lin changea brusquement lorsqu'il ressentit une intention m
 
 Le cuir chevelu de Wang Lin en fut engourdi. Il regarda le fourreau et prit une grande inspiration. Puis, il rangea soigneusement l'objet dans son sac de rangement, n'osant plus y toucher.
 
-Avec son niveau de cultivation actuel, il pouvait aisément comprendre qu'une quantité phénoménale d'intention meurtrière était scellée dans ce fourreau. En forçant l'épée à entrer, il n'en avait libéré qu'une infime partie, et pourtant cette fraction était déjà si puissante que Wang Lin ne pouvait même imaginer la force que contenait réellement l'objet.
+Avec son niveau de culture actuel, il pouvait aisément comprendre qu'une quantité phénoménale d'intention meurtrière était scellée dans ce fourreau. En forçant l'épée à entrer, il n'en avait libéré qu'une infime partie, et pourtant cette fraction était déjà si puissante que Wang Lin ne pouvait même imaginer la force que contenait réellement l'objet.
 
 Par conséquent, il était d'autant plus certain que ce fourreau n'était pas celui de jadis. Le précédent avait la capacité d'augmenter la puissance d'une épée volante, mais la différence de gain de puissance entre un enfoncement aux un cinquième et aux trois cinquièmes était abyssale.
 
@@ -52,21 +51,19 @@ Après une longue réflexion, la curiosité de Wang Lin fut piquée. Il pressent
 
 ***
 
-À l'intérieur d'un volcan dans le pays de Hou Fen. Ce volcan avait été transformé de volcan actif en volcan éteint par des cultivateurs ; il ne contenait plus aucune lave.
+À l'intérieur d'un volcan dans le pays de Hou Fen. Ce volcan avait été transformé de volcan actif en volcan éteint par des cultivateurs; il ne contenait plus aucune lave.
 
 On trouvait en son sein de nombreuses pièces, grandes et petites, et chaque pièce abritait un cultivateur. Ces individus étaient les survivants de la destruction du pays de Hou Fen.
 
 À l'époque, Hou Fen avait été attaquée par Xuanwu ainsi que par plusieurs autres nations. Les quatre grands secteurs avaient été expulsés, et c'est aussi à ce moment que Li Muwan fut contrainte de quitter son foyer.
 
-Sous ce volcan se trouvait un édifice complet : le Temple du Dieu de la Guerre. Il avait fallu plusieurs cultivateurs de l'Âme Naissante pour déplacer cette structure lors de l'attaque. Le temple renfermait les restes d'innombrables ancêtres du culte et de nombreuses techniques sacrées.
+Sous ce volcan se trouvait un édifice complet: le Temple du Dieu de la Guerre. Il avait fallu plusieurs cultivateurs de l'Âme Naissante pour déplacer cette structure lors de l'attaque. Le temple renfermait les restes d'innombrables ancêtres du culte et de nombreuses techniques sacrées.
 
-À cet instant, parmi les multiples salles de cristal, l'une d'elles se mit à briller. Immédiatement, une main desséchée s'éleva et un corps décharné sortit de la pièce.
-
-Une fois dehors, il pressa le sol de sa main droite. Soudain, une énergie verte convergea depuis tout le temple pour pénétrer son corps. Lentement, ses muscles et sa peau commencèrent à se régénérer.
+À cet instant, parmi les multiples salles de cristal, l'une d'elles se mit à briller. Immédiatement, une main desséchée s'éleva et un corps décharné sortit de la pièce. Une fois dehors, il pressa le sol de sa main droite. Soudain, une énergie verte convergea depuis tout le temple pour pénétrer son corps. Lentement, ses muscles et sa peau commencèrent à se régénérer.
 
 Peu de temps après, un jeune homme dégageant une atmosphère sinistre apparut. Il était très beau, mais portait en lui une pointe de malveillance. Ses yeux brillaient d'une lueur antique tandis qu'il reprenait lentement conscience.
 
-Il réfléchit un moment et murmura : « Trois mille ans de guérison, et je peux enfin rétablir ma cultivation à 30 %. » Il serra le poing droit, fronça les sourcils et se dit : « C'est presque équivalent à la Transformation de l'Âme. Bien que ce ne soit pas suffisant, avec l'aide du disque stellaire, cela devrait me permettre de m'échapper de cette planète. Ma récupération sera bien plus rapide si je retourne sur ma planète natale. »
+Il réfléchit un moment et murmura: « Trois mille ans de guérison, et je peux enfin rétablir ma culture à 30 %. » Il serra le poing droit, fronça les sourcils et se dit: « C'est presque équivalent à la Transformation de l'Âme. Bien que ce ne soit pas suffisant, avec l'aide du disque stellaire, cela devrait me permettre de m'échapper de cette planète. Ma récupération sera bien plus rapide si je retourne sur ma planète natale. »
 
 Il prit une profonde inspiration et tâta sa taille, mais son expression devint soudainement étrange lorsqu'il ne sentit rien. Il regarda sa ceinture, resta stupéfait un instant, puis son visage s'assombrit.
 
@@ -74,17 +71,15 @@ Sans dire un mot, il agita la main et un écran de cristal apparut devant lui. L
 
 Le jeune homme fixa l'image de Wang Lin. Il ferma les yeux et déploya son Sens Divin. À mesure que son Sens Divin s'étendait, il put ressentir les fluctuations d'énergie spirituelle provenant du sac de rangement.
 
-Il ouvrit les yeux et son corps disparut de la pièce. Il réapparut dans le ciel au-dessus de la Mer des Démons et cria : « Technique de recherche d'âmes fantomatiques ! »
+Il ouvrit les yeux et son corps disparut de la pièce. Il réapparut dans le ciel au-dessus de la Mer des Démons et cria: « Technique de recherche d'âmes fantomatiques! »
 
 Soudain, d'innombrables lueurs vertes jaillirent de son corps. Chaque lueur prit la forme du jeune homme et se propagea dans toutes les directions. Le corps du jeune homme disparut en un éclair.
 
-Quant à Wang Lin, il se tenait actuellement sur le dos de la bête moustique, tenant un morceau de jade dans sa main : la tablette contenant la carte.
+Quant à Wang Lin, il se tenait actuellement sur le dos de la bête moustique, tenant un morceau de jade dans sa main: la tablette contenant la carte.
 
-Wang Lin était très anxieux. Il aurait voulu que sa vitesse soit multipliée par dix, par cent, par mille ! Il aurait voulu être instantanément de retour au pays de Zhao. Mais la réalité était cruelle.
+Wang Lin était très anxieux. Il aurait voulu que sa vitesse soit multipliée par dix, par cent, par mille! Il aurait voulu être instantanément de retour au pays de Zhao. Mais la réalité était cruelle. Après avoir obtenu la carte, il découvrit qu'il était extrêmement loin de Zhao. S'il se contentait de voler, il lui faudrait plusieurs années pour atteindre son pays natal.
 
-Après avoir obtenu la carte, il découvrit qu'il était extrêmement loin de Zhao. S'il se contentait de voler, il lui faudrait plusieurs années pour atteindre son pays natal.
-
-Ce n'était manifestement pas ce que Wang Lin souhaitait ; il devait donc utiliser les anciens réseaux de transfert. Heureusement, la carte contenait des informations détaillées sur ces réseaux. Après un certain temps, Wang Lin traça un itinéraire pour retourner à Zhao. Sur cette route, il devait passer par trois réseaux de transfert anciens : un dans la Mer des Démons et deux sur le continent où se trouvait Zhao.
+Ce n'était manifestement pas ce que Wang Lin souhaitait; il devait donc utiliser les anciens réseaux de transfert. Heureusement, la carte contenait des informations détaillées sur ces réseaux. Après un certain temps, Wang Lin traça un itinéraire pour retourner à Zhao. Sur cette route, il devait passer par trois réseaux de transfert anciens: un dans la Mer des Démons et deux sur le continent où se trouvait Zhao.
 
 La direction vers laquelle Wang Lin se dirigeait était celle du réseau de transfert. La carte indiquait que l'intégrité du réseau n'était pas élevée, mais qu'il restait utilisable. Cependant, Wang Lin ignorait si les informations de la carte étaient encore d'actualité ou si le réseau existait toujours et s'il était encore fonctionnel.
 
@@ -92,7 +87,7 @@ Ces questions en tête, il pressa la bête moustique sous ses pieds pour accél�
 
 Ce réseau de transfert se trouvant à la lisière de la mer intérieure, il croisa de nombreuses créatures en chemin. Il avait déjà rencontré plusieurs bêtes sauvages de haut rang et même une bête désolée. Fort heureusement, son Sens Divin était si puissant qu'il les détectait toujours à l'avance pour les contourner.
 
-Un mois après ce voyage incessant, Wang Lin arriva enfin au réseau de transfert ancien. Sous lui s'étendait une plaine couverte de nombreuses plantes aquatiques. Nourries par la pluie noire, ces plantes évoluaient en bêtes et leurs capacités offensives avaient considérablement augmenté. Elles agitaient leurs feuilles rouges d'avant en arrière ; vue d'en haut, la scène semblait pittoresque, mais Wang Lin, en déployant son Sens Divin, découvrit un océan d'ossements sous la végétation. Des restes de cultivateurs et de bêtes sauvages jonchaient le sol.
+Un mois après ce voyage incessant, Wang Lin arriva enfin au réseau de transfert ancien. Sous lui s'étendait une plaine couverte de nombreuses plantes aquatiques. Nourries par la pluie noire, ces plantes évoluaient en bêtes et leurs capacités offensives avaient considérablement augmenté. Elles agitaient leurs feuilles rouges d'avant en arrière; vue d'en haut, la scène semblait pittoresque, mais Wang Lin, en déployant son Sens Divin, découvrit un océan d'ossements sous la végétation. Des restes de cultivateurs et de bêtes sauvages jonchaient le sol.
 
 Wang Lin réfléchit un instant. En étendant son Sens Divin, il finit par localiser le réseau de transfert. Il sauta du dos de la bête moustique et atteignit l'emplacement en un clin d'œil.
 

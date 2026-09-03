@@ -26,33 +26,33 @@ Ainsi, l'essence originelle du feu et du tonnerre fusionna. Dès qu'elle approch
 
 Un grondement de tonnerre résonna sans fin. Les bords de l'épée brisée commencèrent à fondre, mais à cet instant précis, une énergie de massacre glaciale surgit pour résister aux flammes.
 
-Wang Lin n'était pas étranger à ce phénomène, car cela se produisait systématiquement lorsqu'il affinait cette épée auparavant. Cependant, il n'avait pas de temps à perdre aujourd'hui ; il devait affiner cette épée pour qu'elle lui appartienne pleinement. Il pourrait alors cultiver à nouveau l'Art Céleste du Massacre, car c'était un sort défensif extrêmement puissant.
+Wang Lin n'était pas étranger à ce phénomène, car cela se produisait systématiquement lorsqu'il affinait cette épée auparavant. Cependant, il n'avait pas de temps à perdre aujourd'hui; il devait affiner cette épée pour qu'elle lui appartienne pleinement. Il pourrait alors cultiver à nouveau l'Art Céleste du Massacre, car c'était un sort défensif extrêmement puissant.
 
-S'il n'avait pas terminé sa première transformation, Wang Lin n'aurait pas été confiant, mais à présent, il en était sûr à 70 % !
+S'il n'avait pas terminé sa première transformation, Wang Lin n'aurait pas été confiant, mais à présent, il en était sûr à 70 %!
 
 Il détourna son regard de l'épée qu'il affinait, prit une profonde inspiration et forma un sceau de ses deux mains. La flamme dans son œil droit devint si ardente qu'elle semblait pouvoir embraser les cieux. Wang Lin pointa le ciel, et sa seconde âme originelle fit de même. À cet instant, un feu d'une puissance inimaginable jaillit de l'âme originelle de Wang Lin. Il s'échappa par sa main droite pour former une mer de flammes dans la voûte céleste.
 
-« Flammes, rassemblez-vous ! » ordonna Wang Lin d'une voix basse. Dès qu'il parla, toute l'énergie originelle du feu de la planète trembla et convergea vers lui.
+« Flammes, rassemblez-vous! » ordonna Wang Lin d'une voix basse. Dès qu'il parla, toute l'énergie originelle du feu de la planète trembla et convergea vers lui.
 
-Ce n'était pas seulement la planète de cultivation qui réagissait, mais tout le champ d'étoiles en feu. Une fois la masse d'énergie originelle du feu rassemblée, Wang Lin pointa l'épée brisée. L'énergie projetée se rua sur l'arme, multipliant par plusieurs la vitesse à laquelle l'épée fondait.
+Ce n'était pas seulement la planète de culture qui réagissait, mais tout le champ d'étoiles en feu. Une fois la masse d'énergie originelle du feu rassemblée, Wang Lin pointa l'épée brisée. L'énergie projetée se rua sur l'arme, multipliant par plusieurs la vitesse à laquelle l'épée fondait.
 
 Pourtant, de la même manière, l'énergie de massacre émanant de l'épée s'intensifia pour contrer les flammes.
 
 Wang Lin fixa l'épée un instant et son œil droit étincela. La seconde âme originelle, nichée au sein de l'âme du dragon de tonnerre, s'élança. Elle jaillit de l'œil droit de Wang Lin et fondit sur l'épée brisée.
 
-À cet instant, Wang Lin forma un sceau complexe et expulsa un artefact : le Sceau Céleste des 18 Enfers !
+À cet instant, Wang Lin forma un sceau complexe et expulsa un artefact: le Sceau Céleste des 18 Enfers!
 
-« Arsenal Magique, Maître du Vide, Vraie-Vision, apparaissez ! » Après avoir lancé l'invocation, il agita la main droite et des éclats de lumière entourèrent le Sceau Céleste des 18 Enfers. Ces éclats se rassemblèrent rapidement pour former les silhouettes de deux âmes !
+« Arsenal Magique, Maître du Vide, Vraie-Vision, apparaissez! » Après avoir lancé l'invocation, il agita la main droite et des éclats de lumière entourèrent le Sceau Céleste des 18 Enfers. Ces éclats se rassemblèrent rapidement pour former les silhouettes de deux âmes!
 
-C'étaient Maître du Vide et le Vraie-Vision, formés par la fusion de leurs deux avatars !
+C'étaient Maître du Vide et le Vraie-Vision, formés par la fusion de leurs deux avatars!
 
-Dès l'apparition de ces deux âmes captives, elles se précipitèrent sur l'épée brisée. Elles encerclèrent l'arme avec la seconde âme originelle de Wang Lin pour accélérer son affinage ! Simultanément, Wang Lin leva sa main gauche et pressa le volcan. La terre commença à gronder, la fumée noire s'intensifia et une vague de chaleur jaillit soudainement des entrailles du volcan.
+Dès l'apparition de ces deux âmes captives, elles se précipitèrent sur l'épée brisée. Elles encerclèrent l'arme avec la seconde âme originelle de Wang Lin pour accélérer son affinage! Simultanément, Wang Lin leva sa main gauche et pressa le volcan. La terre commença à gronder, la fumée noire s'intensifia et une vague de chaleur jaillit soudainement des entrailles du volcan.
 
 De la lave rougeja également avec cette onde thermique. Mais d'un geste de la main gauche, Wang Lin fit couler le magma comme de l'eau pour entourer l'épée brisée. Il forma une sphère de magma de cent pieds de large, faisant grimper la température intérieure à un niveau extrême.
 
 Cette fois, Wang Lin était prêt à tout pour affiner totalement cette épée de massacre du Vraie-Vision en robe grise. Il utilisait sa seconde âme originelle, Maître du Vide, le Vraie-Vision, l'énergie originelle du feu planétaire et enfin la lave pour créer une enveloppe destinée à accélérer le processus.
 
-Wang Lin se tenait sous cette sphère de cent pieds tout en contrôlant l'énergie originelle du feu qui y pénétrait. Le temps s'écoula lentement ; douze heures s'étaient déjà écoulées depuis le début de l'opération.
+Wang Lin se tenait sous cette sphère de cent pieds tout en contrôlant l'énergie originelle du feu qui y pénétrait. Le temps s'écoula lentement; douze heures s'étaient déjà écoulées depuis le début de l'opération.
 
 Wang Lin ne pouvait maintenir cette méthode d'affinage intense très longtemps. Si cela perdurait, non seulement son énergie originelle ne pourrait plus suivre, mais il consumerait également l'énergie originelle céleste obtenue en dévorant ces dizaines de Célestes.
 
@@ -68,7 +68,7 @@ Wang Lin fixa le trident, mais soudain, son expression changea et il leva les ye
 
 « Je dois encore lui donner des explications concernant cette affaire... » soupira Wang Lin avant de ranger le trident et de disparaître.
 
-Non loin de la planète où se trouvait Wang Lin, une autre planète subsistait. C'était également l'une des planètes principales du Secte Divine de l'Oiseau Vermillon. Cette planète était parsemée de montagnes rouge feu et possédait une grande beauté.
+Non loin de la planète où se trouvait Wang Lin, une autre planète subsistait. C'était également l'une des planètes principales de la Secte Divin de l'Oiseau Vermillon. Cette planète était parsemée de montagnes rouge feu et possédait une grande beauté.
 
 À cet instant, une femme était agenouillée sur le plus haut sommet. Elle était magnifique, mais son visage portait une expression d'amertume alors qu'elle restait immobile en prière.
 
@@ -78,15 +78,15 @@ Un jeune homme vêtu de noir était assis près de la statue. Il affichait un vi
 
 « Je vous en prie, laissez-moi entrer... » dit la femme d'une voix brisée par les larmes en s'adressant au jeune homme.
 
-Le jeune homme noir ouvrit les yeux et répondit froidement : « Non ! »
+Le jeune homme noir ouvrit les yeux et répondit froidement: « Non! »
 
 Le corps de la femme trembla et elle s'apprêtait à répliquer quand, soudain, un soupir résonna dans le ciel. Des ondulations apparurent sur le sommet de la montagne et Wang Lin en sortit.
 
-Dès l'apparition de Wang Lin, le jeune homme noir fut pris d'un mélange d'excitation et de respect. Il se leva et dit : « Treize salue le Maître. »
+Dès l'apparition de Wang Lin, le jeune homme noir fut pris d'un mélange d'excitation et de respect. Il se leva et dit: « Treize salue le Maître. »
 
 En voyant Wang Lin, l'expression de la femme devint encore plus amère, mais elle garda le silence.
 
-Wang Lin adressa un signe de tête à Treize et dit doucement à la femme : « Ling Er, emmène-moi rencontrer ton arri-grand-père. »
+Wang Lin adressa un signe de tête à Treize et dit doucement à la femme: « Ling Er, emmène-moi rencontrer ton arri-grand-père. »
 
 « Arri-grand-père... il... il ne va plus durer longtemps. » Les larmes coulèrent sur les joues de Ling Er.
 
@@ -96,7 +96,7 @@ Le corps originel de Wang Lin ouvrit les yeux, révélant lui aussi une profonde
 
 Nul ne vit que Wang Lin était assis sur des ossements. C'était un spectacle sinistre...
 
-Un vieil homme aux cheveux blancs, paraissant très âgé, buvait du vin sur les remparts d'une ville du Secte Divine de l'Oiseau Vermillon. Un éclat de folie brillait dans ses yeux.
+Un vieil homme aux cheveux blancs, paraissant très âgé, buvait du vin sur les remparts d'une ville de la Secte Divin de l'Oiseau Vermillon. Un éclat de folie brillait dans ses yeux.
 
 « Deuxième frère, troisième frère, votre grand frère vous a fait du tort. Je suis désolé... » L'homme déversait le vin dans sa bouche, laissant le liquide s'écouler du coin de ses lèvres pour se mêler à ses larmes.
 
@@ -110,6 +110,6 @@ Wang Lin soupira et s'approcha du vieil homme. Il s'assit sur le rempart, saisit
 
 Trois jeunes hommes vêtus de jaune marchaient devant elles. Ils tenaient chacun un encens étrange, attirant soigneusement ce troupeau de bêtes moustiques.
 
-L'un d'eux s'exclama, les yeux brillants de cupidité : « Je n'aurais jamais cru trouver des bêtes moustiques géantes dans ce Système Stellaire de l'Alliance ! Si nous ramenons ces monstres à l'Ancien, notre récompense sera immense ! »
+L'un d'eux s'exclama, les yeux brillants de cupidité: « Je n'aurais jamais cru trouver des bêtes moustiques géantes dans ce Système Stellaire de l'Alliance! Si nous ramenons ces monstres à l'Ancien, notre récompense sera immense! »
 
 Sa façon de parler différait de celle des habitants de l'Alliance, comme s'il venait d'un monde extérieur au Système Stellaire.

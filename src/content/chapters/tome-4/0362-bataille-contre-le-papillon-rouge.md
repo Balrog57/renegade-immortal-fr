@@ -3,16 +3,16 @@ n: 362
 title: Bataille contre le Papillon Rouge
 book: 4
 bookTitle: Clean Sweep
-en: Chapter 362 - Battle with Red Butterfly
+en: Chapter 362 - Battle with Papillon Rouge
 slug: bataille-contre-le-papillon-rouge
 ---
-Wang Lin dit : « Entrez ! »
+Wang Lin dit: « Entrez! »
 
 Sans le moindre bruit, la porte s'ouvrit et un jeune garçon vêtu de noir entra dans la pièce.
 
-Il portait un plateau de fruits. Après être entré, il ne daigna même pas regarder Wang Lin ; il posa le plateau, puis se détourna pour partir.
+Il portait un plateau de fruits. Après être entré, il ne daigna même pas regarder Wang Lin; il posa le plateau, puis se détourna pour partir.
 
-Wang Lin dit : « Attendez un instant ! »
+Wang Lin dit: « Attendez un instant! »
 
 Le garçon s'arrêta, se retourna et fixa Wang Lin.
 
@@ -26,7 +26,7 @@ Le garçon adressa un sourire discret à Wang Lin avant de se retourner pour sor
 
 Pour une raison quelconque, Wang Lin éprouva un sentiment d'inquiétude dans cette grotte immortelle.
 
-En observant les fruits sur le plateau, il réfléchit un instant avant de se remettre à sa cultivation. Sa main droite restait posée sur son sac de rangement afin de pouvoir riposter en cas de danger imminent.
+En observant les fruits sur le plateau, il réfléchit un instant avant de se remettre à sa culture. Sa main droite restait posée sur son sac de rangement afin de pouvoir riposter en cas de danger imminent.
 
 Le temps passa et, en un clin d'œil, trois jours s'écoulèrent. Durant cette période, seul le garçon vint dans sa chambre. Le matin du deuxième jour, Wang Lin sortit, mais découvrit que tous les serviteurs avaient perdu la moitié de leur langue, les rendant incapables de parler.
 
@@ -34,13 +34,13 @@ De plus, une grande partie de la zone était recouverte de puissantes restrictio
 
 Il y avait quelque chose de sinistre dans cet endroit.
 
-Wang Lin médita un moment, puis renonça à ses réflexions. Il se concentra sur sa cultivation afin de rester dans les meilleures conditions possibles pour l'affrontement contre le Papillon Rouge.
+Wang Lin médita un moment, puis renonça à ses réflexions. Il se concentra sur sa culture afin de rester dans les meilleures conditions possibles pour l'affrontement contre le Papillon Rouge.
 
-Dix jours passèrent sans aucune distraction. Ce jour-là, alors qu'il était en pleine cultivation, il ouvrit soudainement les yeux et vit un homme d'âge mûr assis face à lui. L'homme versa une tasse de thé et regarda Wang Lin.
+Dix jours passèrent sans aucune distraction. Ce jour-là, alors qu'il était en pleine culture, il ouvrit soudainement les yeux et vit un homme d'âge mûr assis face à lui. L'homme versa une tasse de thé et regarda Wang Lin.
 
 Cet homme était élégant, sans être extrêmement beau. Il n'avait pas de barbe, mais présentait une légère barbe de quelques jours. Ses yeux étaient brillants, bien que semblant voilés par une sorte de brume. Bien qu'il ne parlât pas, il dégageait une aura de majesté.
 
-Le regard de Wang Lin resta calme. Il n'était nullement surpris que cet homme ait pu entrer sans qu'il s'en aperçoive. De nombreuses personnes possédant un niveau de cultivation supérieur au sien se trouvaient ici. Il n'était plus un jeune garçon débutant en cultivation ; il ne se laissait pas facilement impressionner.
+Le regard de Wang Lin resta calme. Il n'était nullement surpris que cet homme ait pu entrer sans qu'il s'en aperçoive. De nombreuses personnes possédant un niveau de culture supérieur au sien se trouvaient ici. Il n'était plus un jeune garçon débutant en culture; il ne se laissait pas facilement impressionner.
 
 L'homme d'âge mûr prit une gorgée de thé et tapota doucement la table du bout des doigts, sans dire un mot.
 
@@ -54,7 +54,7 @@ Pourtant, Wang Lin demeurait parfaitement serein.
 
 Après un long moment, l'homme d'âge mûr se leva et, sans même accorder un regard à Wang Lin, quitta la pièce. Il n'avait pas prononcé une seule syllabe de tout ce temps.
 
-Une fois qu'il fut parti, Wang Lin se leva et s'approcha de la table où l'homme siégeait précédemment. Du thé y était renversé, formant deux caractères :
+Une fois qu'il fut parti, Wang Lin se leva et s'approcha de la table où l'homme siégeait précédemment. Du thé y était renversé, formant deux caractères:
 
 « Perdre, mourir. »
 
@@ -66,7 +66,7 @@ L'homme d'âge mûr devait être au moins au stade de la Transformation de l'Âm
 
 Le message laissé par cet homme était limpide. S'il perdait la bataille contre le Papillon Rouge, la seule issue qui lui resterait serait la mort.
 
-Wang Lin prit une profonde inspiration, ferma les yeux et reprit sa cultivation.
+Wang Lin prit une profonde inspiration, ferma les yeux et reprit sa culture.
 
 Quelques jours plus tard, le jour du grand combat arriva.
 
@@ -90,7 +90,7 @@ Cependant, la brise légère qui faisait flotter sa manche vide entachait l'imag
 
 Sa beauté, à l'instar de son talent, était empreinte d'arrogance et de cruauté.
 
-Autour du périmètre de l'autel, des cercles de lumière blanche accueillaient des sièges. De nombreuses personnes y étaient déjà assises : hommes et femmes, jeunes et vieux. Il s'agissait d'émissaires de différents pays de cultivation.
+Autour du périmètre de l'autel, des cercles de lumière blanche accueillaient des sièges. De nombreuses personnes y étaient déjà assises: hommes et femmes, jeunes et vieux. Il s'agissait d'émissaires de différents pays de culture.
 
 Bien qu'ils ne fussent pas cent, ils s'en rapprochaient. Malgré leur nombre, un silence absolu régnait.
 
@@ -104,19 +104,19 @@ Il s'agissait de quatre vieillards aux cheveux blancs.
 
 La grue atteignit l'autel et poussa un cri. Le jeune homme en blanc sauta et atterrit sur l'autel.
 
-C'était Wang Lin !
+C'était Wang Lin!
 
 Le Papillon Rouge baissa les yeux vers sa manche vide avant de lever la tête. Son regard devint glacial, trahissant une haine profonde. En tant que fille choisie par le ciel, elle n'avait jamais connu la défaite jusqu'à sa rencontre avec Wang Lin.
 
 Non seulement Wang Lin était le premier à l'avoir vaincue, mais il lui avait même arraché un bras. Si Wang Lin l'avait battue lors d'un combat direct, bien qu'elle l'aurait détesté, sa haine n'aurait pas été aussi viscérale.
 
-Mais ce jour-là, Wang Lin avait frappé alors qu'elle était au plus bas, tentant de briser son cœur taoïste. Durant toutes ces années, son niveau de cultivation n'avait pas progressé. Tout cela était de la faute de Wang Lin.
+Mais ce jour-là, Wang Lin avait frappé alors qu'elle était au plus bas, tentant de briser son cœur taoïste. Durant toutes ces années, son niveau de culture n'avait pas progressé. Tout cela était de la faute de Wang Lin.
 
 Seul en le tuant pourrait-elle restaurer son cœur taoïste.
 
 L'expression de Wang Lin resta imperturbable alors qu'il fixait calmement le Papillon Rouge.
 
-L'un des vieillards assis sur les quatre sièges intérieurs regarda froidement Wang Lin et le Papillon Rouge et déclara : « Je suis l'Ancien du Mont Suzaku, Gong Sunpo, et je serai le juge de ce combat. »
+L'un des vieillards assis sur les quatre sièges intérieurs regarda froidement Wang Lin et le Papillon Rouge et déclara: « Je suis l'Ancien du Mont Suzaku, Gong Sunpo, et je serai le juge de ce combat. »
 
 Sa main droite traça un sceau, puis pointa vers l'avant. Une porte de lumière apparut soudainement sur l'autel devant eux.
 
@@ -132,9 +132,9 @@ En entrant dans la porte de lumière, Wang Lin comprit qu'il s'agissait d'une ma
 
 Les environs étaient d'un calme plat et aucune lumière ne filtrait du ciel. Une aura oppressante imprégnait l'air.
 
-De gigantesques chênes séculaires poussaient partout. À dix pieds de lui, un immense python rouge le fixait froidement en tirant la langue.
+De gigantesques chênes séculaires poussaient partout. À 33 mètres de lui, un immense python rouge le fixait froidement en tirant la langue.
 
-Un cri retentit depuis le ciel : « Ceng Niu ! »
+Un cri retentit depuis le ciel: « Ceng Niu! »
 
 Wang Lin s'élança dans les airs et vit un rayon de lumière rouge foncer vers lui. Avant même qu'elle n'atteigne sa cible, une aura glaciale s'était déjà propagée.
 
@@ -152,7 +152,7 @@ Alors que le géant de glace lançait son coup, le Papillon Rouge arracha un pé
 
 Wang Lin laissa échapper un reniflement méprisant. Il agita sa main droite et le drapeau de restriction apparut dans sa paume. Un gaz de restriction s'en échappa sous la forme de dragons qui s'entrelacèrent pour fusionner en un poing gigantesque, venant percuter celui du géant de glace.
 
-Bang !
+Bang!
 
 L'onde de choc fit chuter de nombreux arbres en contrebas. Même le python fut projeté au sol, se tortillant sous l'effet des multiples blessures infligées par les vibrations de l'impact.
 
@@ -160,4 +160,4 @@ Le choc colossal fit reculer le géant de glace d'un pas. Des fissures apparuren
 
 La main de Wang Lin trembla. Le poing formé par la restriction se brisa et, lorsque les vibrations atteignirent le drapeau de restriction, celui-ci se fissura à son tour.
 
-« Voici un trésor que mon pays de Xue Yu a affiné pendant cinq cents ans : le Dieu de Glace ! Ceng Niu, tu vas mourir sans aucun doute ! » Les yeux du Papillon Rouge devinrent encore plus glacials tandis qu'elle bougeait la main, et le pétale de rose flottant commença soudainement à se métamorphoser.
+« Voici un trésor que mon pays de Xue Yu a affiné pendant cinq cents ans: le Dieu de Glace! Ceng Niu, tu vas mourir sans aucun doute! » Les yeux du Papillon Rouge devinrent encore plus glacials tandis qu'elle bougeait la main, et le pétale de rose flottant commença soudainement à se métamorphoser.

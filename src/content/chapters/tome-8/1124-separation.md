@@ -6,13 +6,13 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1124 - Parting
 slug: separation
 ---
-Wang Lin partit avec Zhou Ru. Ses sentiments complexes envers Liu Mei et les souvenirs du passé restaient enfouis au plus profond de son esprit ; il ne voulait jamais y toucher.
+Wang Lin partit avec Zhou Ru. Ses sentiments complexes envers Liu Mei et les souvenirs du passé restaient enfouis au plus profond de son esprit; il ne voulait jamais y toucher.
 
 En fin de compte, Mu Bingmei ne vit pas Wang Ping. Wang Lin ne voulut pas deviner ses pensées et s'en alla. C'était comme si une barrière les avait séparés en deux mondes dès l'activation de la formation. Ils semblaient si éloignés que même les rêves ne pouvaient franchir un tel abîme.
 
 Si la distance la plus grande au monde n'était pas la vie et la mort, mais le fait d'être oublié, alors cette distance semblait bien moins infinie que celle qui séparait Wang Lin de Mu Bingmei. Il semblait que l'ultime éloignement soit l'incapacité d'oublier...
 
-Vouloir oublier sans y parvenir ; vouloir chercher sans direction possible. Seul le passage du temps restait, s'écoulant dans les ténèbres de l'éternité.
+Vouloir oublier sans y parvenir; vouloir chercher sans direction possible. Seul le passage du temps restait, s'écoulant dans les ténèbres de l'éternité.
 
 Tandis que Mu Bingmei contemplait la silhouette qui disparaissait dans la lumière crue, des larmes coulèrent à nouveau. Elle voulait voir Wang Ping, elle voulait toucher son enfant et le serrer contre elle...
 
@@ -36,7 +36,7 @@ Wang Lin raccompagna Zhou Ru vers le nouveau Royaume Céleste de la Pluie. Les y
 
 Après avoir quitté Zhou Ru, Wang Lin pensa à Wang Ping et Li Muwan.
 
-« Sois sage ici et ne gaspille pas ta cultivation. Tu... as bien grandi. » Wang Lin regarda cette jeune fille pleine de vie, et la tendresse dans son regard s'intensifia.
+« Sois sage ici et ne gaspille pas ta culture. Tu... as bien grandi. » Wang Lin regarda cette jeune fille pleine de vie, et la tendresse dans son regard s'intensifia.
 
 « Oncle... » Zhou Ru semblait faite d'eau tant les larmes coulaient sans cesse sur ses joues. Elle agrippa fermement le vêtement de Wang Lin, comme lorsqu'elle était enfant. Elle craignait que si elle lâchait prise, Wang Lin ne revienne jamais.
 
@@ -46,65 +46,65 @@ Wang Lin réprima peu à peu la douleur de son cœur et regarda tendrement Zhou 
 
 « Si... qu'oncle ne revient jamais, petite Ru Er, tu pourras aller retrouver ton maître. » Wang Lin ferma les yeux et se détourna. Il se dégagea des mains de Zhou Ru et disparut.
 
-« Oncle... » Les larmes de Zhou Ru tombèrent sur ses vêtements. Derrière elle, Hu Juan poussa un soupir, prit la main de la jeune fille et dit doucement : « Ton oncle reviendra. »
+« Oncle... » Les larmes de Zhou Ru tombèrent sur ses vêtements. Derrière elle, Hu Juan poussa un soupir, prit la main de la jeune fille et dit doucement: « Ton oncle reviendra. »
 
 Dans la région orientale, après le retour de l'Empereur Divin du Dragon Azure, les Quatre Sectes Divines subirent une transformation radicale. Les quatre entités n'étaient plus qu'une seule et unique secte.
 
-Il n'y aurait plus quatre Empereurs Divins, mais un seul, nommé le Souverain Divin !
+Il n'y aurait plus quatre Empereurs Divins, mais un seul, nommé le Souverain Divin!
 
-De nombreux désaccords avaient éclaté au sein des Quatre Sectes Divines face à cette initiative du Secte Divine du Dragon Azure. Cependant, toutes les voix d'opposition s'éteignirent devant la puissance de l'Empereur Divin du Dragon Azure.
+De nombreux désaccords avaient éclaté au sein des Quatre Sectes Divines face à cette initiative de la Secte Divin du Dragon Azure. Cependant, toutes les voix d'opposition s'éteignirent devant la puissance de l'Empereur Divin du Dragon Azure.
 
 Les Trésors Sacrés des Sectes Divins de la Tortue Noire et du Tigre Blanc n'étaient plus la propriété des sectes, mais passèrent entre les mains de l'Empereur Divin du Dragon Azure. Les méthodes pour les utiliser n'étaient plus un secret pour les autres membres.
 
-La silhouette de Wang Lin apparut dans la région orientale peu après que l'intégration fut achevée. Dès son apparition, il fut repéré par les membres du Secte Divine du Dragon Azure.
+La silhouette de Wang Lin apparut dans la région orientale peu après que l'intégration fut achevée. Dès son apparition, il fut repéré par les membres de la Secte Divin du Dragon Azure.
 
-Wang Lin observa calmement l'escouade de gardes du Secte Divine du Dragon Azure ; ces cultivateurs baissèrent immédiatement la tête. Wang Lin ne dit mot et passa lentement devant eux.
+Wang Lin observa calmement l'escouade de gardes de la Secte Divin du Dragon Azure; ces cultivateurs baissèrent immédiatement la tête. Wang Lin ne dit mot et passa lentement devant eux.
 
 Ce n'est que lorsque Wang Lin fut loin que les patrouilleurs se regardèrent. L'un d'eux sortit aussitôt un jade pour rapporter l'affaire aux anciens.
 
-L'un des membres de la patrouille s'exclama avec mécontentement : « Il n'est plus l'Empereur Divin, pourquoi lui témoignons-nous tant de respect ? »
+L'un des membres de la patrouille s'exclama avec mécontentement: « Il n'est plus l'Empereur Divin, pourquoi lui témoignons-nous tant de respect? »
 
 De retour dans la région orientale, Wang Lin réalisa que l'atmosphère était étrange. Tous les membres des Quatre Sectes Divines qui le croisaient affichaient des expressions singulières, mais personne ne l'arrêta.
 
-Peu de temps après, un champ d'étoiles rouge apparut devant lui : c'était là le domaine du Secte Divine de l'Oiseau Vermillon. Pourtant, alors qu'il s'apprêtait à y entrer, il s'arrêta et fit volte-face.
+Peu de temps après, un champ d'étoiles rouge apparut devant lui: c'était là le domaine de la Secte Divin de l'Oiseau Vermillon. Pourtant, alors qu'il s'apprêtait à y entrer, il s'arrêta et fit volte-face.
 
-Il vit sept rayons de lumière converger pour se transformer en sept individus. Parmi eux se trouvaient deux membres du Secte de l'Oiseau Vermillon, un du Secte du Tigre Blanc et quatre du Secte du Dragon Azure. Tous étaient des anciens dont le niveau de cultivation n'était guère négligeable.
+Il vit sept rayons de lumière converger pour se transformer en sept individus. Parmi eux se trouvaient deux membres de la Secte de l'Oiseau Vermillon, un de la Secte du Tigre Blanc et quatre de la Secte du Dragon Azure. Tous étaient des anciens dont le niveau de culture n'était guère négligeable.
 
 Le regard de Wang Lin restait serein. Il connaissait bien ces sept personnes, car ils avaient tous participé au sauvetage de l'Empereur Divin du Dragon Azure. Lorsque les deux anciens de l'Oiseau Vermillon aperçurent Wang Lin, ils furent saisis de honte et détournèrent les yeux.
 
-« Wang Lin, le Souverain Divin du Dragon Azure vous invite ! » L'homme qui prit la parole appartenait au Secte Divine du Dragon Azure. Il regarda Wang Lin d'un air désolé. Il ignorait les raisons des changements opérés par l'Empereur Divin, mais il n'était pas qualifié pour s'y opposer.
+« Wang Lin, le Souverain Divin du Dragon Azure vous invite! » L'homme qui prit la parole appartenait à la Secte Divin du Dragon Azure. Il regarda Wang Lin d'un air désolé. Il ignorait les raisons des changements opérés par l'Empereur Divin, mais il n'était pas qualifié pour s'y opposer.
 
-Wang Lin demanda lentement : « Les personnes que j'ai laissées au Secte de l'Oiseau Vermillon sont-elles en sécurité ? » En entendant les paroles du vieil homme, il spécula immédiatement sur la situation.
+Wang Lin demanda lentement: « Les personnes que j'ai laissées à la Secte de l'Oiseau Vermillon sont-elles en sécurité? » En entendant les paroles du vieil homme, il spécula immédiatement sur la situation.
 
 Cet homme ne l'avait pas appelé « Empereur Divin ». Cela devait être dû aux décrets de l'Empereur Divin du Dragon Azure et à ce titre étrange de « Souverain Divin ». Conjugué à toutes les anomalies observées, Wang Lin devint prudent.
 
-« Elles sont toutes en sécurité. » L'homme qui répondit était un ancien du Secte de l'Oiseau Vermillon.
+« Elles sont toutes en sécurité. » L'homme qui répondit était un ancien de la Secte de l'Oiseau Vermillon.
 
 Wang Lin regarda l'ancien et se souvint que c'était lui qui lui avait demandé ce qu'il comptait faire après être devenu Empereur Divin. Il hocha la tête sans parler, puis s'avança dans le champ d'étoiles ardent.
 
-Les membres du Secte du Dragon Azure froncèrent les sourcils et suivirent Wang Lin dans les flammes stellaires.
+Les membres de la Secte du Dragon Azure froncèrent les sourcils et suivirent Wang Lin dans les flammes stellaires.
 
-L'ancien du Secte du Dragon Azure lança d'une voix grave en poursuivant Wang Lin : « Wang Lin, le Souverain Divin veut vous voir ! »
+L'ancien de la Secte du Dragon Azure lança d'une voix grave en poursuivant Wang Lin: « Wang Lin, le Souverain Divin veut vous voir! »
 
 Wang Lin l'ignora. En pénétrant dans le champ d'étoiles ardent, il projeta son Sens Divin avec l'aide des flammes. Il utilisa la courbure spatiale pour se déplacer rapidement et balayer l'ensemble de la zone.
 
 Cependant, il ne trouva aucune trace de Big Head ou de ses compagnons. L'expression de Wang Lin s'assombrit instantanément. Il se retourna et fixa froidement les sept anciens qui le traquaient.
 
-« Où sont-ils ?! » Wang Lin les fixa intensément avant de se calmer de force. Il savait que la colère ne résoudrait rien ; il devait rester lucide.
+« Où sont-ils?! » Wang Lin les fixa intensément avant de se calmer de force. Il savait que la colère ne résoudrait rien; il devait rester lucide.
 
-« Wang Lin, le Souverain Divin veut vous voir. Dois-je le répéter une troisième fois ? »
+« Wang Lin, le Souverain Divin veut vous voir. Dois-je le répéter une troisième fois? »
 
-Wang Lin répondit avec lenteur : « Sans moi, le Souverain Divin du Dragon Azure serait encore scellé dans le Royaume Céleste de la Pluie ! »
+Wang Lin répondit avec lenteur: « Sans moi, le Souverain Divin du Dragon Azure serait encore scellé dans le Royaume Céleste de la Pluie! »
 
-« Vous... » L'ancien du Secte du Dragon Azure le fixa, son visage devenant de plus en plus lugubre.
+« Vous... » L'ancien de la Secte du Dragon Azure le fixa, son visage devenant de plus en plus lugubre.
 
-« Si ce n'était pas pour l'ancien Empereur Divin de l'Oiseau Vermillon, votre Secte du Dragon Azure aurait disparu depuis longtemps. Si votre Souverain Divin veut me voir, qu'il vienne ici ! » Wang Lin ne quitterait pas ce champ d'étoiles ardent. Les flammes monstrueuses qui l'entouraient pouvaient considérablement accroître sa puissance.
+« Si ce n'était pas pour l'ancien Empereur Divin de l'Oiseau Vermillon, votre Secte du Dragon Azure aurait disparu depuis longtemps. Si votre Souverain Divin veut me voir, qu'il vienne ici! » Wang Lin ne quitterait pas ce champ d'étoiles ardent. Les flammes monstrueuses qui l'entouraient pouvaient considérablement accroître sa puissance.
 
-L'ancien du Secte du Dragon Azure éclata d'un rire furieux, mais son entourage resta silencieux.
+L'ancien de la Secte du Dragon Azure éclata d'un rire furieux, mais son entourage resta silencieux.
 
 « L'Empereur Divin de l'Oiseau Vermillon est mort pour les Quatre Sectes Divines. Ce vieil homme l'admirait profondément pour cela. » À cet instant, un vide antique apparut. Il semblait contenir la puissance d'un sortilège si puissant que même le champ d'étoiles ardent parut se suspendre.
 
-L'expression des sept anciens devint immédiatement solennelle. Ils reculèrent de quelques pas et joignirent les mains à l'unisson : « Salutations, Souverain Divin. »
+L'expression des sept anciens devint immédiatement solennelle. Ils reculèrent de quelques pas et joignirent les mains à l'unisson: « Salutations, Souverain Divin. »
 
 Des éclats de lumière verte surgirent dans le monde et se condensèrent rapidement. Les flammes environnantes semblèrent être écartées par une paire de mains gigantesques, ouvrant un passage.
 
@@ -114,10 +114,10 @@ Comparé à son état pitoyable dans le Royaume Céleste de la Pluie, l'Empereur
 
 « Je présume que vous êtes revenu pour rendre le Trésor Sacré. » L'Empereur Divin du Dragon Azure tendit la main et regarda calmement Wang Lin. Ses yeux étaient d'une froideur absolue, dépourvus de toute émotion.
 
-« Où sont mes amis ? » Wang Lin recula de quelques pas en contemplant l'Empereur Divin. Il sentait son corps sur le point de s'effondrer sous cette pression, mais il se força à l'endurer.
+« Où sont mes amis? » Wang Lin recula de quelques pas en contemplant l'Empereur Divin. Il sentait son corps sur le point de s'effondrer sous cette pression, mais il se força à l'endurer.
 
 L'Empereur Divin du Dragon Azure esquissa un sourire, mais ce fut un sourire d'une froideur extrême.
 
 « Je ne les ai pas maltraités. Tous les étrangers ont été envoyés sur une planète à la lisière des Quatre Sectes Divines. »
 
-« Je peux renoncer à mon identité d'Empereur Divin de l'Oiseau Vermillon, je peux vous donner le Trésor Sacré, je peux partir et ne jamais revenir, mais je vais emporter une chose avec moi ! » Wang Lin n'avait jamais eu l'intention de garder le Trésor Sacré. Il agita la main droite vers le vide, et une pierre blanche incandescente apparut, contenant une goutte de sang sacré.
+« Je peux renoncer à mon identité d'Empereur Divin de l'Oiseau Vermillon, je peux vous donner le Trésor Sacré, je peux partir et ne jamais revenir, mais je vais emporter une chose avec moi! » Wang Lin n'avait jamais eu l'intention de garder le Trésor Sacré. Il agita la main droite vers le vide, et une pierre blanche incandescente apparut, contenant une goutte de sang sacré.

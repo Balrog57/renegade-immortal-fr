@@ -14,7 +14,7 @@ Peu à peu, une quantité croissante de fragments de pierre s'accumula autour de
 
 Wang Lin s'élança dans la zone vide, porté par l'immense masse de pierres tourbillonnant autour de lui. Une fois profondément engagé dans cet espace blanc, il ralentit et avança calmement. Aucun signe de danger ne se manifestait.
 
-Cependant, cela n'amoindrit en rien sa prudence ; au contraire, cela le rendit plus vigilant. Après avoir passé tant de temps dans cet endroit étrange, Wang Lin ne croyait pas qu'un lieu aussi paisible puisse exister sans raison.
+Cependant, cela n'amoindrit en rien sa prudence; au contraire, cela le rendit plus vigilant. Après avoir passé tant de temps dans cet endroit étrange, Wang Lin ne croyait pas qu'un lieu aussi paisible puisse exister sans raison.
 
 Il soupçonnait plutôt que ce calme n'était qu'une illusion de sécurité, provoquée par la présence d'une créature extrêmement puissante à proximité.
 
@@ -30,11 +30,11 @@ Le talisman de niveau Âme Naissante trembla violemment dans sa main avant de se
 
 Cette créature, semblable à une faille spatiale, n'avait pas ouvert la bouche lorsque les pierres étaient passées, mais avait attendu son tour. Elle semblait avoir fait de Wang Lin sa cible.
 
-Wang Lin réfléchit un instant. En regardant la distance qu'il restait à parcourir, il réalisa qu'il n'était qu'à mi-chemin. Un sourire amer lui échappa : ce talisman était le seul dont il disposait. Cela prouvait que la puissance de cette gueule surpassait l'attaque d'un cultivateur de niveau Âme Naissante.
+Wang Lin réfléchit un instant. En regardant la distance qu'il restait à parcourir, il réalisa qu'il n'était qu'à mi-chemin. Un sourire amer lui échappa: ce talisman était le seul dont il disposait. Cela prouvait que la puissance de cette gueule surpassait l'attaque d'un cultivateur de niveau Âme Naissante.
 
 Si Wang Lin avait été touché par cette créature, il aurait été, au bas mot, gravement blessé, sinon mort.
 
-Il prit une profonde inspiration. Après une courte réflexion, il sortit sans hésiter une grande quantité de trésors défensifs de son sac de rangement. C'étaient des objets qu'il avait récupérés sur les cultivateurs qu'il avait éliminés ; comme ils étaient de faible qualité, il les considérait comme de simples consommables.
+Il prit une profonde inspiration. Après une courte réflexion, il sortit sans hésiter une grande quantité de trésors défensifs de son sac de rangement. C'étaient des objets qu'il avait récupérés sur les cultivateurs qu'il avait éliminés; comme ils étaient de faible qualité, il les considérait comme de simples consommables.
 
 Après un moment d'hésitation, il reprit sa progression, soutenu par son anneau de pierres. Cette fois, il fut encore plus prudent, avançant avec son sens divin constamment déployé. Il se fit la promesse de reculer immédiatement au moindre signe suspect.
 
@@ -50,15 +50,15 @@ Il soupira et sortit de nouveaux trésors défensifs. Après les avoir activés,
 
 Il prit une profonde inspiration et serra les dents en avançant lentement, son sens divin scrutant méticuleusement chaque recoin. Trois jours plus tard, Wang Lin était totalement épuisé et tous les trésors défensifs de son sac de rangement avaient été consumés.
 
-Durant ces trois jours, il avait frôlé la mort à maintes reprises. Une fois, la moitié de son corps s'était retrouvée dans une gueule ; s'il n'était pas entré dans la perle défiant le ciel à temps, il serait déjà mort.
+Durant ces trois jours, il avait frôlé la mort à maintes reprises. Une fois, la moitié de son corps s'était retrouvée dans une gueule; s'il n'était pas entré dans la perle défiant le ciel à temps, il serait déjà mort.
 
-Par chance, la perle défiant le ciel n'avait pas été engloutie par la créature, ce qui lui permit de ressortir sans être prisonnier de sa gueule. Toutefois, Wang Lin craignait désormais d'y pénétrer : si la perle elle-même était dévorée, même s'il survivait sur l'instant, il ne pourrait échapper à son destin une fois le temps écoulé à l'intérieur.
+Par chance, la perle défiant le ciel n'avait pas été engloutie par la créature, ce qui lui permit de ressortir sans être prisonnier de sa gueule. Toutefois, Wang Lin craignait désormais d'y pénétrer: si la perle elle-même était dévorée, même s'il survivait sur l'instant, il ne pourrait échapper à son destin une fois le temps écoulé à l'intérieur.
 
-Voyant qu'il restait moins de dix kilomètres, Wang Lin prit une grande inspiration et pressa le pas. Soudain, une gueule commença à s'ouvrir devant lui. Au moment où il allait esquiver, son sens divin lui hurla un danger imminent. Ce qu'il redoutait le plus se produisait.
+Voyant qu'il restait moins de 5 kilomètres, Wang Lin prit une grande inspiration et pressa le pas. Soudain, une gueule commença à s'ouvrir devant lui. Au moment où il allait esquiver, son sens divin lui hurla un danger imminent. Ce qu'il redoutait le plus se produisait.
 
 Des arcs de lumière apparurent tout autour de lui. Les créatures ouvraient toutes leurs gueules simultanément. Accablé par la frustration, Wang Lin fouilla frénétiquement dans son sac jusqu'à ce qu'il tombe sur un morceau de jade blanc d'apparence très ordinaire.
 
-C'était la formation défensive que Li Muwan lui avait offerte en cadeau de départ pour sa cultivation en isolement. Sans hésiter, Wang Lin lança le jade. Sa décision était prise : si la situation devenait désespérée, il n'aurait d'autre choix que d'entrer dans la perle défiant le ciel. Même si l'espace où se trouvait la perle finissait par être dévoré, c'était son ultime recours.
+C'était la formation défensive que Li Muwan lui avait offerte en cadeau de départ pour sa culture en isolement. Sans hésiter, Wang Lin lança le jade. Sa décision était prise: si la situation devenait désespérée, il n'aurait d'autre choix que d'entrer dans la perle défiant le ciel. Même si l'espace où se trouvait la perle finissait par être dévoré, c'était son ultime recours.
 
 Au moment où il lança le jade, les gueules environnantes s'ouvrirent totalement pour l'engloutir. Mais à cet instant précis, un anneau de lumière verte apparut aux côtés de Wang Lin. La lumière se propagea soudainement et un dragon vert jaillit du jade. À l'apparition du dragon, les gueules commencèrent à dévorer l'anneau lumineux qui s'était étendu.
 
@@ -74,19 +74,19 @@ Après une réflexion, il leva la tête et sauta sur un pilier de pierre. Il l'�
 
 Après plusieurs jours, la vitesse de Wang Lin accrut encore. En quittant cette zone étrange, il avait l'impression d'être entré dans un autre monde. Il ne croisa plus ces créatures semblables à des failles spatiales, et ce qui était plus surprenant encore, c'est qu'il ne rencontra aucune créature puissante, pas même de dragon.
 
-Sa vitesse augmenta donc naturellement. Néanmoins, il ne se débarrassa pas des pierres qui l'entouraient ; la prudence avant tout. Wang Lin était si précautionneux que, tant qu'il n'était pas certain à cent pour cent d'être en sécurité, il refusait de jeter ces rochers.
+Sa vitesse augmenta donc naturellement. Néanmoins, il ne se débarrassa pas des pierres qui l'entouraient; la prudence avant tout. Wang Lin était si précautionneux que, tant qu'il n'était pas certain à cent pour cent d'être en sécurité, il refusait de jeter ces rochers.
 
 À mesure qu'il gagnait en vitesse, sa destination approchait. Après un certain temps, Wang Lin remarqua que les piliers de pierre environnants étaient de la même taille que celui sur lequel il s'était appuyé à son entrée.
 
-Ce vide était d'une immensité sans nom. Wang Lin ne croyait pas pouvoir localiser précisément l'anneau de lumière ovale ; il ne pouvait donc qu'utiliser la taille des piliers pour estimer sa position.
+Ce vide était d'une immensité sans nom. Wang Lin ne croyait pas pouvoir localiser précisément l'anneau de lumière ovale; il ne pouvait donc qu'utiliser la taille des piliers pour estimer sa position.
 
 Un jour, alors qu'il se tenait au sommet d'un pilier en forme de cône, ses yeux s'illuminèrent. Il avait volé horizontalement parmi des piliers de cette dimension pendant très longtemps, et il venait enfin de repérer l'anneau de lumière ovale.
 
-Dans le vide, au-dessus de lui, flottait un immense anneau de lumière ovale. Il ressentit une pointe de regret de ne pas avoir passé les épreuves. S'il les avait accomplies, il aurait pu pénétrer dans le corps de l'Ancien Dieu. Il y aurait certainement trouvé des trésors précieux, mais après avoir survécu aux dangers de ce lieu, Wang Lin savait qu'avec son niveau de cultivation actuel, il n'aurait eu aucune chance de s'y maintenir en vie.
+Dans le vide, au-dessus de lui, flottait un immense anneau de lumière ovale. Il ressentit une pointe de regret de ne pas avoir passé les épreuves. S'il les avait accomplies, il aurait pu pénétrer dans le corps de l'Ancien Dieu. Il y aurait certainement trouvé des trésors précieux, mais après avoir survécu aux dangers de ce lieu, Wang Lin savait qu'avec son niveau de culture actuel, il n'aurait eu aucune chance de s'y maintenir en vie.
 
 Il poussa un soupir de regret et s'élança vers l'anneau de lumière. Cependant, au moment où il allait le toucher, des éclairs violets apparurent. Les décharges s'entrecroisèrent pour former un motif concave et rhombique.
 
-Wang Lin fut surpris. Il ne pouvait plus avancer ; une force puissante semblait faire obstacle à sa progression. Ses yeux brillèrent alors qu'il fixait ce motif concave. Cette cavité était juste assez grande pour accueillir une pierre spirituelle de qualité supérieure.
+Wang Lin fut surpris. Il ne pouvait plus avancer; une force puissante semblait faire obstacle à sa progression. Ses yeux brillèrent alors qu'il fixait ce motif concave. Cette cavité était juste assez grande pour accueillir une pierre spirituelle de qualité supérieure.
 
 Il recula immédiatement. Au même instant, le motif disparaquit et les éclairs violets retournèrent au sein de l'anneau de lumière.
 

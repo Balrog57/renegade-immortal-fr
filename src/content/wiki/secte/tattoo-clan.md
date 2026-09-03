@@ -12,20 +12,20 @@ sections: ["{\"heading\":\"Planète Suzaku\",\"body\":\"Sur Suzaku, il existe un
 
 Le **Clan du Tatouage** (Tattoo Clan) est un clan antique dont la méthode de cultivation repose sur le pouvoir des tatouages. Il est étroitement lié au **Clan de l'Immortel Banni** (Forsaken Immortal Clan) de la Planète Suzaku et au **Clan de l'Immortel Élu** (Chosen Immortal Clan) du Domaine Ouest du Système Stellaire d'Allheaven.
 
-Sur la Planète Suzaku, la branche du Clan du Tatouage fut créée par **Tuo Sen** : les sauvages le prirent pour un dieu et reçurent de lui la méthode de cultivation par tatouages. Dans le Système Stellaire d'Allheaven, une tribu apparentée — le Clan de l'Immortel Élu — pratique la même méthode et garde le **Four Yin Mystérieux** (Mysterious Yin Furnace) à l'intérieur de la **Bête des Enfers** (Nether Beast), sous l'autorité du **Roi Céleste Insouciant** (Celestial King Carefree).
+Sur la Planète Suzaku, la branche du Clan du Tatouage fut créée par **Tuo Sen**: les sauvages le prirent pour un dieu et reçurent de lui la méthode de cultivation par tatouages. Dans le Système Stellaire d'Allheaven, une tribu apparentée — le Clan de l'Immortel Élu — pratique la même méthode et garde le **Four Yin Mystérieux** (Mysterious Yin Furnace) à l'intérieur de la **Bête des Enfers** (Nether Beast), sous l'autorité du **Roi Céleste Insouciant** (Celestial King Carefree).
 
 ### Fiche signalétique
 
-- **Nom :** Clan du Tatouage (Tattoo Clan)
-- **Méthode de cultivation :** Tatouages (power of tattoos)
-- **Branches :** Clan de l'Immortel Banni (Planète Suzaku), Clan de l'Immortel Élu (Domaine Ouest, Allheaven)
-- **Créateur de la branche de Suzaku :** Tuo Sen
-- **Autorité (branche d'Allheaven) :** Roi Céleste Insouciant (Celestial King Carefree)
-- **Mission (branche d'Allheaven) :** Garder le Four Yin Mystérieux dans la Bête des Enfers
-- **Systèmes stellaires :** Système Stellaire de l'Alliance, Système Stellaire d'Allheaven
-- **Domaine :** Domaine Ouest (Western Domain / Strange Domain)
-- **Monde :** Monde de la Grotte de Wang Lin
-- **Royaume :** Royaume Scellé
+- **Nom:** Clan du Tatouage (Tattoo Clan)
+- **Méthode de cultivation:** Tatouages (power of tattoos)
+- **Branches:** Clan de l'Immortel Banni (Planète Suzaku), Clan de l'Immortel Élu (Domaine Ouest, Allheaven)
+- **Créateur de la branche de Suzaku:** Tuo Sen
+- **Autorité (branche d'Allheaven):** Roi Céleste Insouciant (Celestial King Carefree)
+- **Mission (branche d'Allheaven):** Garder le Four Yin Mystérieux dans la Bête des Enfers
+- **Systèmes stellaires:** Système Stellaire de l'Alliance, Système Stellaire d'Allheaven
+- **Domaine:** Domaine Ouest (Western Domain / Strange Domain)
+- **Monde:** Monde de la Grotte de Wang Lin
+- **Royaume:** Royaume Scellé
 
 ## Planète Suzaku
 

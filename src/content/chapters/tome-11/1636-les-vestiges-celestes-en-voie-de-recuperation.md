@@ -14,21 +14,21 @@ Lorsque son Sens Divin revint du neuvième soleil, il ouvrit les yeux. L'éclat 
 
 Il se souvint du Royaume aux Sept Couleurs, dans le Vide Brillant, où il avait vu Qing Shui et le Daoïste aux Sept Couleurs. Il avait perçu toute la vie de Qing Shui, et le regard étrange du Daoïste aux Sept Couleurs lui semblait encore d'une vivacité frappante.
 
-« Ce regard pourrait expliquer vaguement pourquoi le destin de Qing Shui ne se trouve pas dans le neuvième soleil... Quant à Situ... Je sais beaucoup de choses sur lui... Son talent est prodigieux, et chaque fois que je le vois, son niveau de cultivation a considérablement augmenté... Serait-ce la raison pour laquelle son destin n'est pas dans le neuvième soleil ? » Wang Lin méditait silencieusement en contemplant la terre en contrebas. Il pressentait quelque chose, mais ces pensées restaient voilées par une brume qu'il ne parvenait pas à percer.
+« Ce regard pourrait expliquer vaguement pourquoi le destin de Qing Shui ne se trouve pas dans le neuvième soleil... Quant à Situ... Je sais beaucoup de choses sur lui... Son talent est prodigieux, et chaque fois que je le vois, son niveau de culture a considérablement augmenté... Serait-ce la raison pour laquelle son destin n'est pas dans le neuvième soleil? » Wang Lin méditait silencieusement en contemplant la terre en contrebas. Il pressentait quelque chose, mais ces pensées restaient voilées par une brume qu'il ne parvenait pas à percer.
 
-« Il y a aussi l'Omniscient. Il est toujours insaisissable, et je ne parviens toujours pas à deviner ses pensées. Peut-être est-il le seul à les connaître... Même avec ma cultivation de niveau intermédiaire du Vide Spirituel, je le crains encore... Il possède bien trop de secrets, ce qui le rend terrifiant ! » Wang Lin fixa le neuvième soleil devant lui, une lueur de froideur traversant son regard.
+« Il y a aussi l'Omniscient. Il est toujours insaisissable, et je ne parviens toujours pas à deviner ses pensées. Peut-être est-il le seul à les connaître... Même avec ma culture de niveau intermédiaire du Vide Spirituel, je le crains encore... Il possède bien trop de secrets, ce qui le rend terrifiant! » Wang Lin fixa le neuvième soleil devant lui, une lueur de froideur traversant son regard.
 
-« Le destin de Wan Er est différent de celui de Situ et des autres. Des traces de son destin existent ici, indiquant qu'il devrait être présent, mais je ne parviens pas à le trouver. Qui a donc dérobé le destin de Wan Er ?! »
+« Le destin de Wan Er est différent de celui de Situ et des autres. Des traces de son destin existent ici, indiquant qu'il devrait être présent, mais je ne parviens pas à le trouver. Qui a donc dérobé le destin de Wan Er?! »
 
 La froideur dans les yeux de Wang Lin devint plus intense, jusqu'à devenir monstrueuse. Finalement, il leva les yeux vers le ciel et son regard se mua en une intention meurtrière.
 
-« Wan Er n'est qu'une femme ordinaire, son destin n'aurait donc pas dû attirer l'attention, et pourtant on le lui a pris. Peu importe qui est le coupable, je, Wang Lin, jure ici, dans le Royaume Céleste Antique, que je le récupérerai. Si quelqu'un ose altérer son destin, fût-ce le Continent Astral Immortel, je me vengerai et laverai le Continent Astral Immortel de son sang, comme je l'ai fait pour la famille Teng !!! »
+« Wan Er n'est qu'une femme ordinaire, son destin n'aurait donc pas dû attirer l'attention, et pourtant on le lui a pris. Peu importe qui est le coupable, je, Wang Lin, jure ici, dans le Royaume Céleste Antique, que je le récupérerai. Si quelqu'un ose altérer son destin, fût-ce le Continent Astral Immortel, je me vengerai et laverai le Continent Astral Immortel de son sang, comme je l'ai fait pour la famille Teng!!! »
 
-La limite ultime de Wang Lin était Wan Er. Apprendre que le destin de Wan Er avait été volé lui fit l'effet d'un poignard lui arrachant le cœur de la poitrine. Sous une telle douleur, Wang Lin aurait sombré dans la folie !
+La limite ultime de Wang Lin était Wan Er. Apprendre que le destin de Wan Er avait été volé lui fit l'effet d'un poignard lui arrachant le cœur de la poitrine. Sous une telle douleur, Wang Lin aurait sombré dans la folie!
 
 Plus on comprend, plus la souffrance est grande. À cet instant, Wang Lin était dans cet état. Peut-être que s'il avait eu le choix, il aurait préféré ne rien savoir, redevenir un mortel et simplement vivre sa vie.
 
-Cependant, puisqu'il savait, il n'avait plus de voie de retraite. Le destin de Wan Er ayant été dérobé, il se devait de le recouvrer. Lui permettre d'échapper à son destin, tout comme lui l'avait fait, était la première étape pour provoquer son éveil !
+Cependant, puisqu'il savait, il n'avait plus de voie de retraite. Le destin de Wan Er ayant été dérobé, il se devait de le recouvrer. Lui permettre d'échapper à son destin, tout comme lui l'avait fait, était la première étape pour provoquer son éveil!
 
 Wang Lin l'avait compris en voyant les destins à l'intérieur du neuvième soleil. Ce qu'il allait faire, c'était ressusciter Li Muwan et permettre son éveil.
 
@@ -46,11 +46,11 @@ Wang Lin se posa au sommet d'une statue de Dieu Ancien. Ses cheveux blancs flott
 
 Ce Dieu Ancien était déjà mort, mais une puissance étrange subsistait en lui. C'était cette force qui permettait à la statue de s'éveiller à tout instant pour devenir une marionnette dépourvue de conscience, agissant comme un messager des cieux.
 
-« Les trois clans anciens sont devenus les gardiens de cette grotte. Pathétique, pitoyable, odieux ! » Wang Lin secoua la tête et frappa la statue de son pied droit. Au moment où il s'élança dans les airs, un grondement de tonnerre émana de l'autel. D'innombrables fissures se propagèrent depuis l'endroit où il avait frappé, recouvrant instantanément la statue.
+« Les trois clans anciens sont devenus les gardiens de cette grotte. Pathétique, pitoyable, odieux! » Wang Lin secoua la tête et frappa la statue de son pied droit. Au moment où il s'élança dans les airs, un grondement de tonnerre émana de l'autel. D'innombrables fissures se propagèrent depuis l'endroit où il avait frappé, recouvrant instantanément la statue.
 
 Dans un fracas assourdissant, la statue s'effondra en une multitude de fragments qui se dispersèrent sur le sol.
 
-« Poussière retourne à la poussière, terre retourne à la terre. Puisque vous êtes morts depuis longtemps, ne cherchez plus à tenir bon. Mourir sur le champ de bataille est le seul destin digne de gens comme nous ! » Wang Lin agita ses manches et avança. Partout où il passait, qu'il s'agisse d'une statue de Dieu Ancien, de Démon Ancien ou de Diable Ancien, elles toutes s'effondraient.
+« Poussière retourne à la poussière, terre retourne à la terre. Puisque vous êtes morts depuis longtemps, ne cherchez plus à tenir bon. Mourir sur le champ de bataille est le seul destin digne de gens comme nous! » Wang Lin agita ses manches et avança. Partout où il passait, qu'il s'agisse d'une statue de Dieu Ancien, de Démon Ancien ou de Diable Ancien, elles toutes s'effondraient.
 
 « Si je ne vous détruis pas tous aujourd'hui, vous vous réveillerez dans le futur pour troubler le monde en tant que marionnettes... » Wang Lin soupira et fit un geste de la main droite. Une statue de Diable Ancien s'écroula, éparpillant ses débris.
 
@@ -86,12 +86,12 @@ Cette aura émanait entièrement de cette main droite flétrie. Cette main sembl
 
 Le cri strident devint plus intense, et la main desséchée agrippa le bord du vortex comme pour s'en extraire. Le rugissement se fit plus clair, terrifiant, capable de briser la terre.
 
-« Tu as perturbé le sommeil d'un être céleste, tu as détruit l'embryon destiné à ma guérison, tu as commis un crime capital... Peu importe d'où tu viens, tu vas mourir, mourir, mourir... Non seulement tu vas mourir, mais toute ta lignée périra ! Puisque tu as détruit mon embryon de guérison, c'est toi qui deviendras mon embryon... Tu... »
+« Tu as perturbé le sommeil d'un être céleste, tu as détruit l'embryon destiné à ma guérison, tu as commis un crime capital... Peu importe d'où tu viens, tu vas mourir, mourir, mourir... Non seulement tu vas mourir, mais toute ta lignée périra! Puisque tu as détruit mon embryon de guérison, c'est toi qui deviendras mon embryon... Tu... »
 
-« Trop bruyant ! » Avant que la voix ne puisse achever sa phrase, Wang Lin laissa échapper un reniflement méprisant et l'interrompit. Il fit un pas en avant et sa main droite fendit l'air comme l'éclair pour saisir la main desséchée. Dans un éclair de froideur, Wang Lin tira violemment l'être hors du vortex.
+« Trop bruyant! » Avant que la voix ne puisse achever sa phrase, Wang Lin laissa échapper un reniflement méprisant et l'interrompit. Il fit un pas en avant et sa main droite fendit l'air comme l'éclair pour saisir la main desséchée. Dans un éclair de froideur, Wang Lin tira violemment l'être hors du vortex.
 
-« Tu te débattais avec tant de douleur, laisse-moi t'aider à sortir ! Sors d'ici, bordel ! » Wang Lin poussa un rugissement et tira de toutes ses forces. La statue s'effondra totalement et une silhouette mince et nue fut extraite du vortex. Il la projeta sans ménagement au sol.
+« Tu te débattais avec tant de douleur, laisse-moi t'aider à sortir! Sors d'ici, bordel! » Wang Lin poussa un rugissement et tira de toutes ses forces. La statue s'effondra totalement et une silhouette mince et nue fut extraite du vortex. Il la projeta sans ménagement au sol.
 
-La terre trembla sous l'impact et une onde de choc se propagea, creusant un trou gigantesque dans le sol. Wang Lin s'élança immédiatement dans cette fosse !
+La terre trembla sous l'impact et une onde de choc se propagea, creusant un trou gigantesque dans le sol. Wang Lin s'élança immédiatement dans cette fosse!
 
 « Tant qu'il y a quelqu'un de vivant, cela me convient. Peu importe que tu sois un être céleste ou un cultivateur, je prendrai ta mémoire. »

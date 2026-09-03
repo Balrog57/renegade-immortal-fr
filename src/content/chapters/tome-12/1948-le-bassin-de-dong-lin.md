@@ -8,13 +8,13 @@ slug: le-bassin-de-dong-lin
 ---
 Wang Lin ouvrit soudainement les yeux. Ils étaient injectés de sang. Ses vêtements étaient trempés de sueur et son visage était pâle, comme s'il avait perdu toute force. Un sentiment d'épuisement se propagea dans tout son corps.
 
-« Maître ! » Liu Jinbiao s'approcha rapidement, le regard empreint de choc et de panique.
+« Maître! » Liu Jinbiao s'approcha rapidement, le regard empreint de choc et de panique.
 
-« Combien de temps mes yeux sont-ils restés fermés ? » La respiration de Wang Lin était rauque, comme si chaque souffle lui coûtait un effort immense. Il semblait n'être plus qu'un mortel ; après un long moment, il leva la main pour signaler qu'il allait bien.
+« Combien de temps mes yeux sont-ils restés fermés? » La respiration de Wang Lin était rauque, comme si chaque souffle lui coûtait un effort immense. Il semblait n'être plus qu'un mortel; après un long moment, il leva la main pour signaler qu'il allait bien.
 
-Liu Jinbiao hésita un instant avant de dire la vérité : « Vous... Vous avez simplement fermé les yeux et vous avez semblé cesser d'exister. Je me suis retourné pour vous regarder, et puis vous... vous vous êtes réveillé... »
+Liu Jinbiao hésita un instant avant de dire la vérité: « Vous... Vous avez simplement fermé les yeux et vous avez semblé cesser d'exister. Je me suis retourné pour vous regarder, et puis vous... vous vous êtes réveillé... »
 
-« Un instant ? » Wang Lin fut surpris. Il avait utilisé le Dao des Rêves de nombreuses fois, mais il y était toujours resté immergé pendant une longue période, jamais seulement un instant. Il regarda Liu Jinbiao et réfléchit en silence.
+« Un instant? » Wang Lin fut surpris. Il avait utilisé le Dao des Rêves de nombreuses fois, mais il y était toujours resté immergé pendant une longue période, jamais seulement un instant. Il regarda Liu Jinbiao et réfléchit en silence.
 
 L'image floue issue du Dao des Rêves apparut dans son esprit. Il ne parvenait pas à distinguer l'apparence de l'autre personne, rien qu'un contour... Il se souvenait vaguement qu'une silhouette était apparue... Mais en y réfléchissant attentivement, tout restait trouble, comme si ses souvenirs étaient erronés.
 
@@ -24,21 +24,21 @@ Il eut la sensation que quelqu'un avait altéré sa mémoire. Son esprit trembla
 
 Après un long moment, Wang Lin reprit peu à peu ses esprits. Il resta assis là, contemplant la Secte Dong Lin, et ses yeux brillèrent lentement.
 
-« Un jour, je découvrirai quel secret se cache en son sein ! »
+« Un jour, je découvrirai quel secret se cache en son sein! »
 
 Le regard de Wang Lin s'illumina et il s'avança dans le bassin de Dong Lin. Lorsqu'il s'y assit, l'eau lui arriva à la taille. Une vague de froid envahit son corps.
 
-À l'intérieur du bassin, Wang Lin prit une profonde inspiration et cessa de songer aux secrets de la Secte Dong Lin. Il commença à faire circuler sa cultivation et sembla fusionner avec le bassin.
+À l'intérieur du bassin, Wang Lin prit une profonde inspiration et cessa de songer aux secrets de la Secte Dong Lin. Il commença à faire circuler sa culture et sembla fusionner avec le bassin.
 
 Il avait déjà ressenti cette sensation auparavant. Cependant, maintenant qu'il était réellement intégré, Wang Lin entra soudainement dans un état étrange.
 
-Cet état ressemblait à celui qu'il avait connu lorsqu'il créa la Nuit Brisée ; pourtant, il y pénétrait cette fois par la force, grâce à l'assistance du bassin.
+Cet état ressemblait à celui qu'il avait connu lorsqu'il créa la Nuit Brisée; pourtant, il y pénétrait cette fois par la force, grâce à l'assistance du bassin.
 
 Dans cet état, Wang Lin était plongé dans une profonde confusion. Il semblait qu'une éternité s'était écoulée, ou peut-être seulement un instant.
 
-Wang Lin ouvrit les yeux, le regard encore embrumé. Il reprit ses esprits un moment plus tard et observa le bassin sous lui : il avait perdu 30 % de son eau.
+Wang Lin ouvrit les yeux, le regard encore embrumé. Il reprit ses esprits un moment plus tard et observa le bassin sous lui: il avait perdu 30 % de son eau.
 
-Avant même que Wang Lin ne pose la question, Liu Jinbiao dit : « Maître, trois respirations se sont écoulées entre le moment où vous avez fermé les yeux et votre réveil. »
+Avant même que Wang Lin ne pose la question, Liu Jinbiao dit: « Maître, trois respirations se sont écoulées entre le moment où vous avez fermé les yeux et votre réveil. »
 
 Wang Lin hocha la tête.
 
@@ -46,19 +46,19 @@ Wang Lin hocha la tête.
 
 « L'ancêtre de la Secte Dong Lin a dit que le bassin de Dong Lin est lié au cultivateur étranger scellé ici. Il y aurait une chance de comprendre l'essence spéciale que ce cultivateur possédait... »
 
-« Je n'ai même pas pu distinguer son essence et j'ai échoué dès la première tentative... L'ancêtre de la Secte Dong Lin a dit qu'on ne dispose que de deux chances pour entrer dans le bassin de Dong Lin, et que l'on mourra à la troisième... Pourquoi mourrait-on ? Si je parvenais à comprendre cela, je pourrais peut-être essayer encore quelques fois... » Wang Lin médita ainsi, assis dans le bassin, avant de refermer les yeux.
+« Je n'ai même pas pu distinguer son essence et j'ai échoué dès la première tentative... L'ancêtre de la Secte Dong Lin a dit qu'on ne dispose que de deux chances pour entrer dans le bassin de Dong Lin, et que l'on mourra à la troisième... Pourquoi mourrait-on? Si je parvenais à comprendre cela, je pourrais peut-être essayer encore quelques fois... » Wang Lin médita ainsi, assis dans le bassin, avant de refermer les yeux.
 
 Dès qu'il les ferma, il bascula de nouveau dans cet état étrange. Cette fois, Wang Lin sembla sombrer dans la confusion. Tout devint flou et même son esprit s'embroua.
 
 Il sentit vaguement une force étrange pénétrer son corps, mais il ne pouvait que la ressentir sans jamais parvenir à la saisir.
 
-Après un temps indéterminé, le Wang Lin confus aperçut soudain un rayon de lumière dans son œil gauche. Cette lumière était très faible — si l'on n'y prêtait pas attention, elle était invisible. Ce reflet attira immédiatement l'attention de Wang Lin, mais il ne pouvait le percevoir que par l'œil gauche ; sa vision de l'œil droit demeurait trouble et inutile.
+Après un temps indéterminé, le Wang Lin confus aperçut soudain un rayon de lumière dans son œil gauche. Cette lumière était très faible — si l'on n'y prêtait pas attention, elle était invisible. Ce reflet attira immédiatement l'attention de Wang Lin, mais il ne pouvait le percevoir que par l'œil gauche; sa vision de l'œil droit demeurait trouble et inutile.
 
 Ce changement étrange fit trembler le cœur de Wang Lin, mais il resta concentré sur cette lueur.
 
 Cependant, la lumière était très lointaine. Avant qu'il ne puisse la saisir clairement, il fut arraché à cet état.
 
-Dès qu'il ouvrit les yeux, les paroles de Liu Jinbiao parvinrent à ses oreilles :
+Dès qu'il ouvrit les yeux, les paroles de Liu Jinbiao parvinrent à ses oreilles:
 
 « Maître, cette fois, cela a duré cinq respirations... »
 
@@ -66,19 +66,19 @@ Wang Lin regarda le ciel au loin et resta pensif un long moment. La lumière qu'
 
 « Mon œil gauche pouvait voir, mais pas le droit... Ce bassin de Dong Lin est plus complexe que je ne l'imaginais. » Wang Lin regarda le bassin. Il restait désormais moins de 30 % d'eau.
 
-« Je me demande si l'eau réapparaîtra une fois épuisée... De plus, j'ai tenté de comprendre deux fois et j'ai échoué à chaque fois. Lors de la troisième tentative, je me demande quel danger m'attend. » Wang Lin réfléchit, puis fit un geste de la main droite. Le Dragon de Mer de l'Exaltation Dorée apparut et plana autour de lui ; il avait beaucoup rétréci.
+« Je me demande si l'eau réapparaîtra une fois épuisée... De plus, j'ai tenté de comprendre deux fois et j'ai échoué à chaque fois. Lors de la troisième tentative, je me demande quel danger m'attend. » Wang Lin réfléchit, puis fit un geste de la main droite. Le Dragon de Mer de l'Exaltation Dorée apparut et plana autour de lui; il avait beaucoup rétréci.
 
 Le dragon tourna immédiatement un regard féroce vers Liu Jinbiao, poussant un grognement sourd avec un air de fierté.
 
 Liu Jinbiao fut sursauté. En voyant le dragon de mer, il eut un haut-le-cœur, mais son regard changea et un sourire apparut au coin de ses lèvres. On ignorait quelles pensées traversaient alors son esprit.
 
-Wang Lin ne prêta pas attention à cela. Il envoya une instruction mentale au dragon de mer : s'il arrivait quoi que ce soit de suspect, il devait l'extraire immédiatement du bassin. Puis, il ferma les yeux et s'immergea pour la troisième fois dans cet état étrange.
+Wang Lin ne prêta pas attention à cela. Il envoya une instruction mentale au dragon de mer: s'il arrivait quoi que ce soit de suspect, il devait l'extraire immédiatement du bassin. Puis, il ferma les yeux et s'immergea pour la troisième fois dans cet état étrange.
 
 Alors que Wang Lin pénétrait dans cet état et que la force mystérieuse de l'eau entrait en lui, une force de rejet se manifesta. Elle se mua en un rugissement qui résonna dans son esprit.
 
-Ce rugissement était assourdissant, empreint de folie et d'une immense frustration !
+Ce rugissement était assourdissant, empreint de folie et d'une immense frustration!
 
-« Lian Yunjue, tu es méprisable ! » Cette voix résonna violemment dans l'esprit de Wang Lin. Elle sembla se transformer en un coup de tonnerre fracassant, faisant trembler tout son corps. Il eut l'impression que cette voix allait briser son esprit.
+« Lian Yunjue, tu es méprisable! » Cette voix résonna violemment dans l'esprit de Wang Lin. Elle sembla se transformer en un coup de tonnerre fracassant, faisant trembler tout son corps. Il eut l'impression que cette voix allait briser son esprit.
 
 Sous l'interférence de ce vacarme, il fut incapable de s'immerger et ne put rien comprendre.
 
@@ -88,9 +88,9 @@ Une fois hors du bassin, la voix dans l'esprit de Wang Lin disparut. Il ouvrit l
 
 « Il est bel et bien impossible de comprendre une troisième fois. Si je ne m'étais pas préparé à l'avance et si je n'avais pas été averti par l'ancêtre de la Secte Dong Lin, même sans danger immédiat, il m'aurait fallu un effort colossal pour m'en extraire. » Wang Lin fronça les sourcils en observant le peu d'eau restant dans le bassin et poursuivit sa réflexion.
 
-« Pourquoi les deux premières tentatives étaient-elles différentes de la troisième... Cette voix provenait de la force mystérieuse qui est entrée dans mon corps après un cycle... Serait-ce la clé ? La force vérifie combien de fois je suis entré dans le bassin ? »
+« Pourquoi les deux premières tentatives étaient-elles différentes de la troisième... Cette voix provenait de la force mystérieuse qui est entrée dans mon corps après un cycle... Serait-ce la clé? La force vérifie combien de fois je suis entré dans le bassin? »
 
-« Alors, comment juge-t-elle le nombre de tentatives de compréhension ? Et aussi, ce Lian Yunjue, ce nom de famille Lian... Pourrait-il s'agir de l'ancêtre du fou, le nom de l'Ancêtre Céleste ? » Les yeux de Wang Lin brillèrent. Tandis qu'il méditait, l'eau commença lentement à remplir le bassin jusqu'à ce que tout le niveau initial soit retrouvé.
+« Alors, comment juge-t-elle le nombre de tentatives de compréhension? Et aussi, ce Lian Yunjue, ce nom de famille Lian... Pourrait-il s'agir de l'ancêtre du fou, le nom de l'Ancêtre Céleste? » Les yeux de Wang Lin brillèrent. Tandis qu'il méditait, l'eau commença lentement à remplir le bassin jusqu'à ce que tout le niveau initial soit retrouvé.
 
 « Jinbiao, descends et essaie. » Wang Lin était certain de pouvoir protéger Liu Jinbiao même si celui-ci tentait une troisième fois. Il l'avertit des dangers auxquels il devait faire attention.
 
@@ -106,14 +106,14 @@ Wang Lin surveillait Liu Jinbiao de près tandis que le temps s'écoulait lentem
 
 Tout en tremblant, l'œil gauche de Liu Jinbiao brillait d'un éclat intense. Même pour Wang Lin, cela revenait à fixer le soleil.
 
-« J'ai touché la lumière et une voix a résonné dans mon cœur, me murmurant le nom de cette lumière. C'est le commencement absolu... Le début de toute chose... Mais mon niveau de cultivation n'est pas assez élevé ; je n'ai pu comprendre qu'un fragment avant de ne plus pouvoir supporter l'intensité. » Liu Jinbiao prit une grande inspiration et regarda le bassin de Dong Lin.
+« J'ai touché la lumière et une voix a résonné dans mon cœur, me murmurant le nom de cette lumière. C'est le commencement absolu... Le début de toute chose... Mais mon niveau de culture n'est pas assez élevé; je n'ai pu comprendre qu'un fragment avant de ne plus pouvoir supporter l'intensité. » Liu Jinbiao prit une grande inspiration et regarda le bassin de Dong Lin.
 
-« Maître, je pense que si j'ai pu comprendre une troisième fois, c'est grâce à mon Dao de la Tromperie. À cet instant, je me suis menti à moi-même en me faisant croire que c'était ma première immersion... En agissant ainsi, j'ai trompé le contrôle du bassin. Depuis mon réveil de la réincarnation, je peux exercer mon Dao de la Tromperie sur les autres. Le Maître veut-il essayer ? » Liu Jinbiao semblait avoir saisi quelque chose et tourna son regard vers Wang Lin.
+« Maître, je pense que si j'ai pu comprendre une troisième fois, c'est grâce à mon Dao de la Tromperie. À cet instant, je me suis menti à moi-même en me faisant croire que c'était ma première immersion... En agissant ainsi, j'ai trompé le contrôle du bassin. Depuis mon réveil de la réincarnation, je peux exercer mon Dao de la Tromperie sur les autres. Le Maître veut-il essayer? » Liu Jinbiao semblait avoir saisi quelque chose et tourna son regard vers Wang Lin.
 
-Wang Lin réfléchit un instant puis secoua la tête. Il possédait déjà une compréhension du Dao de la Tromperie et avait également progressé dans le Dao des Rêves. Il connaissait la méthode ; avec son niveau de cultivation, il n'avait nul besoin de l'aide de Liu Jinbiao.
+Wang Lin réfléchit un instant puis secoua la tête. Il possédait déjà une compréhension du Dao de la Tromperie et avait également progressé dans le Dao des Rêves. Il connaissait la méthode; avec son niveau de culture, il n'avait nul besoin de l'aide de Liu Jinbiao.
 
 D'un pas assuré, Wang Lin s'immergea dans le bassin pour la quatrième fois. Lorsque la force étrange pénétra son corps, il utilisa le Dao de la Tromperie pour duper l'eau et plongea dans cet état mystérieux.
 
 Bientôt, il vit la lumière dans son œil gauche... La clarté se rapprochait de plus en plus de lui.
 
-Une voix basse murmura alors dans l'esprit de Wang Lin : « J'ai parcouru le monde, j'ai contemplé des centaines de millions de levers de soleil et j'ai saisi l'essence du commencement absolu... »
+Une voix basse murmura alors dans l'esprit de Wang Lin: « J'ai parcouru le monde, j'ai contemplé des centaines de millions de levers de soleil et j'ai saisi l'essence du commencement absolu... »

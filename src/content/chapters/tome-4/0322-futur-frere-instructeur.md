@@ -18,11 +18,11 @@ Et s'il faisait cela, il perdrait définitivement toute chance d'obtenir l'épé
 
 Une fois les épées passées, le vieil homme les suivit rapidement.
 
-Normalement, le vide était un lieu extrêmement périlleux, mais avec ces vagues d'épées traversant l'espace, toutes les créatures les évitaient. Par conséquent, le vide devint soudainement très sûr ; à moins d'une poignée de malchanceux, tant que l'on suivait les épées célestes, les risques de danger n'étaient guère élevés.
+Normalement, le vide était un lieu extrêmement périlleux, mais avec ces vagues d'épées traversant l'espace, toutes les créatures les évitaient. Par conséquent, le vide devint soudainement très sûr; à moins d'une poignée de malchanceux, tant que l'on suivait les épées célestes, les risques de danger n'étaient guère élevés.
 
 Ainsi, nombre de cultivateurs qui s'étaient montrés prudents en suivant les lames dans le vide commencèrent à se détendre et à les suivre de beaucoup plus près.
 
-Outre les créatures étranges qui y résidaient, il existait un autre danger : s'orienter. Cependant, avec les épées pour ouvrir la voie, nul besoin de chercher ; il suffisait de suivre leur trace.
+Outre les créatures étranges qui y résidaient, il existait un autre danger: s'orienter. Cependant, avec les épées pour ouvrir la voie, nul besoin de chercher; il suffisait de suivre leur trace.
 
 Toutefois, la vitesse des épées célestes était si prodigieuse que tout le monde ne pouvait les suivre. En conséquence, les cultivateurs dispersés dans le vide se répartissaient selon leurs capacités.
 
@@ -36,7 +36,7 @@ Parmi ces hommes, certains possédaient des techniques puissantes. Cependant, d�
 
 Le front de ces hommes était couvert de sueur froide alors que les trois épées captives libéraient une énergie tranchante déchaînée et luttaient avec frénésie.
 
-Un vieil homme au visage pâle s'exclama : « Tenez bon ! D'après mes calculs, si nous parvenons à les retenir assez longtemps, elles seront à nous ! »
+Un vieil homme au visage pâle s'exclama: « Tenez bon! D'après mes calculs, si nous parvenons à les retenir assez longtemps, elles seront à nous! »
 
 Les autres maugréaient secrètement dans leur cœur, tout en affichant des expressions d'excitation.
 
@@ -44,7 +44,7 @@ Les autres maugréaient secrètement dans leur cœur, tout en affichant des expr
 
 Cependant, ces épées libérèrent de puissants hymnes. Le groupe qui passait s'arrêta soudainement, fit demi-tour et se dirigea droit sur eux.
 
-Leurs visages changèrent instantanément ; le vieil homme abandonna brusquement ses efforts pour retenir les lames et prit la fuite. La barrière déjà instable s'effondra subitement.
+Leurs visages changèrent instantanément; le vieil homme abandonna brusquement ses efforts pour retenir les lames et prit la fuite. La barrière déjà instable s'effondra subitement.
 
 Alors que les épées passaient, la chair et le sang volèrent en éclats.
 
@@ -52,7 +52,7 @@ Peu de temps après le passage des lames, les cultivateurs restants, y compris l
 
 Une lueur diffuse passa rapidement. Les deux sacs de rangement qui n'avaient pas été détruits par les épées disparurent.
 
-Au loin, cette lueur se mua en une boussole stellaire sur laquelle Chi Hu tenait deux sacs de rangement. Il les posa de côté et dit : « Frère Ceng, voici notre 37e sac. Notre récolte en chemin est excellente. »
+Au loin, cette lueur se mua en une boussole stellaire sur laquelle Chi Hu tenait deux sacs de rangement. Il les posa de côté et dit: « Frère Ceng, voici notre 37e sac. Notre récolte en chemin est excellente. »
 
 Wang Lin sourit. Tout au long du trajet, ils avaient vu de nombreuses personnes tenter d'intercepter les épées, sans jamais y parvenir. Certains sacs furent détruits par les lames, mais ceux qui restaient intacts tombaient entre leurs mains.
 
@@ -66,41 +66,41 @@ Ils se transformèrent à nouveau en une lueur diffuse pour rattraper rapidement
 
 À cet instant, un homme d'âge moyen au visage sombre se tenait sur un disque tout en poursuivant les épées célestes. Il suivait aussi près que possible, refusant de les perdre de vue. Soudain, il aperçut Wang Lin et Chi Hu au loin et remarqua la boussole stellaire sous eux. Ses yeux s'illuminèrent instantanément. D'un bond, le disque disparut alors qu'il se projetait vers eux.
 
-« Camarades cultivateurs, auriez-vous une place pour moi ? » Bien que ses paroles fussent polies, son approche était extrêmement agressive.
+« Camarades cultivateurs, auriez-vous une place pour moi? » Bien que ses paroles fussent polies, son approche était extrêmement agressive.
 
-Les yeux de Chi Hu brillèrent et il murmura : « Stade avancé de la Formation de l'Âme ! »
+Les yeux de Chi Hu brillèrent et il murmura: « Stade avancé de la Formation de l'Âme! »
 
-Wang Lin resta calme et dit : « C'est au frère Chi Hu de décider si nous devons fuir ou combattre. » Wang Lin n'utilisait pas la vitesse maximale de la boussole. S'il l'activait pleinement, il pourrait facilement semer un cultivateur au stade avancé de la Formation de l'Âme.
+Wang Lin resta calme et dit: « C'est au frère Chi Hu de décider si nous devons fuir ou combattre. » Wang Lin n'utilisait pas la vitesse maximale de la boussole. S'il l'activait pleinement, il pourrait facilement semer un cultivateur au stade avancé de la Formation de l'Âme.
 
-Chi Hu laissa échapper un rire, se redressa, craqua ses articulations et déclara : « Le frère Ceng a osé combattre Red Butterfly, qui n'était qu'au début de la Formation de l'Âme. Moi, Chi Hu, au milieu de la Formation de l'Âme, je veux aussi défier un cultivateur au stade avancé ! Une fois le combat terminé, nous fuirons ! » Il sauta de la boussole et hurla : « Si tu veux chevaucher cette boussole, montre-moi d'abord ta force ! »
+Chi Hu laissa échapper un rire, se redressa, craqua ses articulations et déclara: « Le frère Ceng a osé combattre Papillon Rouge, qui n'était qu'au début de la Formation de l'Âme. Moi, Chi Hu, au milieu de la Formation de l'Âme, je veux aussi défier un cultivateur au stade avancé! Une fois le combat terminé, nous fuirons! » Il sauta de la boussole et hurla: « Si tu veux chevaucher cette boussole, montre-moi d'abord ta force! »
 
-Le visage de l'homme d'âge moyen resta sombre, empreint d'un certain dédain. Loin de s'arrêter, il accéléra encore et lança : « Ainsi, ce sont des membres du Clan des Démons Géants. Dégagez ! »
+Le visage de l'homme d'âge moyen resta sombre, empreint d'un certain dédain. Loin de s'arrêter, il accéléra encore et lança: « Ainsi, ce sont des membres du Clan des Démons Géants. Dégagez! »
 
 Sur ces mots, il pointa simplement son doigt.
 
-*Siii !*
+*Siii!*
 
 Un gaz gris se mua en une épée qui chargea vers Chi Hu. Dès l'apparition de ce gaz, une intention meurtrière envahit l'air.
 
-« Un domaine de mort ? » D'un seul regard, Wang Lin reconnut le type de domaine utilisé par cet homme. Il n'avait jamais vu une intention meurtrière aussi puissante que celle de son corps original.
+« Un domaine de mort? » D'un seul regard, Wang Lin reconnut le type de domaine utilisé par cet homme. Il n'avait jamais vu une intention meurtrière aussi puissante que celle de son corps original.
 
-« Domaine de mort ! » rugit Chi Hu en frappant sa poitrine du poing. Une soudaine vague de fierté émana de lui tandis que son corps se mettait à crépiter. Sa stature s'élargit brusquement, devenant un géant de plusieurs dizaines de pieds de haut. La hache sur son front scintillait frénétiquement.
+« Domaine de mort! » rugit Chi Hu en frappant sa poitrine du poing. Une soudaine vague de fierté émana de lui tandis que son corps se mettait à crépiter. Sa stature s'élargit brusquement, devenant un géant de plusieurs dizaines de pieds de haut. La hache sur son front scintillait frénétiquement.
 
-Cette hache était un trésor crucial de son clan. Elle différait grandement de la boussole stellaire qui n'avait que peu d'utilités. Ce n'était pas un objet solide ; bien qu'elle eût été brisée lorsque Zhou Yi l'utilisa pour combattre Red Butterfly, elle pouvait se reformer. Cependant, chaque fragmentation l'affaiblissait légèrement.
+Cette hache était un trésor crucial de son clan. Elle différait grandement de la boussole stellaire qui n'avait que peu d'utilités. Ce n'était pas un objet solide; bien qu'elle eût été brisée lorsque Zhou Yi l'utilisa pour combattre Papillon Rouge, elle pouvait se reformer. Cependant, chaque fragmentation l'affaiblissait légèrement.
 
 Dès que la hache apparut, Chi Hu s'empara de l'air tel un dieu démon et abattit son coup sur le gaz gris.
 
-*Bang !*
+*Bang!*
 
-Le gaz gris s'effondra et la hache dans la main de Chi Hu trembla ; il dut reculer de quelques pas. La puissance injectée dans ce coup fit saillir les veines de son bras. Il rit et lança : « C'était amusant ! Recommence ! »
+Le gaz gris s'effondra et la hache dans la main de Chi Hu trembla; il dut reculer de quelques pas. La puissance injectée dans ce coup fit saillir les veines de son bras. Il rit et lança: « C'était amusant! Recommence! »
 
-L'homme d'âge moyen s'interrompit. Il ricana en frappant son sac de rangement, d'où surgit une roche dorée. Il pointa la pierre qui se transforma soudainement en liquide. Il serra le poing pour lui donner une forme de diamant, puis la projeta en criant : « Essaie donc de toucher à ça ! »
+L'homme d'âge moyen s'interrompit. Il ricana en frappant son sac de rangement, d'où surgit une roche dorée. Il pointa la pierre qui se transforma soudainement en liquide. Il serra le poing pour lui donner une forme de diamant, puis la projeta en criant: « Essaie donc de toucher à ça! »
 
 En voyant cette pierre dorée, le cœur de Wang Lin se glaça. Toutes sortes d'impulsions meurtrières parasitèrent son esprit, faisant sursauter son âme.
 
-Les yeux de Wang Lin se fixèrent sur la roche et il dit : « Chi Hu, partons ! »
+Les yeux de Wang Lin se fixèrent sur la roche et il dit: « Chi Hu, partons! »
 
-Chi Hu rit. Sans un mot, il fit volte-face et remonta sur la boussole en disant : « Je ne peux pas te battre, alors j'arrête de jouer ! »
+Chi Hu rit. Sans un mot, il fit volte-face et remonta sur la boussole en disant: « Je ne peux pas te battre, alors j'arrête de jouer! »
 
 L'homme d'âge moyen ricana et pointa à nouveau le doigt, propulsant la roche dorée en forme de diamant encore plus vite vers la boussole stellaire.
 
@@ -110,22 +110,22 @@ L'expression de l'homme d'âge moyen changea brusquement alors qu'il rattrapait 
 
 Après un long moment, les yeux de l'homme s'illuminèrent. Il s'arrêta, fixa l'endroit où la boussole avait disparu et eut un reniflement méprisant.
 
-« Le Maître avait prédit que l'épée céleste de la Pluie s'éveillerait et que la Secte de l'Épée Da Lou tenterait de s'en emparer. Il m'a chargé de les stopper pour ne pas rompre l'équilibre des pouvoirs sur Tian Yun. Dommage, j'aurais vraiment aimé m'amuser avec ces deux juniors. Humph, bien que la Secte de l'Épée Da Lou soit du même rang que ma Secte Tian Yun, tant que le Maître agit, il n'y a aucune inquiétude à avoir ! »
+« Le Maître avait prédit que l'épée céleste de la Pluie s'éveillerait et que la Secte de l'Épée Da Lou tenterait de s'en emparer. Il m'a chargé de les stopper pour ne pas rompre l'équilibre des pouvoirs sur Tian Yun. Dommage, j'aurais vraiment aimé m'amuser avec ces deux juniors. Humph, bien que la Secte de l'Épée Da Lou soit du même rang que ma Secte Tian Yun, tant que le Maître agit, il n'y a aucune inquiétude à avoir! »
 
 L'homme lança un regard froid vers l'horizon avant de s'éloigner.
 
 « Le junior assis au centre de la boussole semblait reconnaître ce métal. Il semble posséder une certaine connaissance... »
 
-Chi Hu, assis en position de lotus sur la boussole, demanda : « Frère Ceng, qu'était cette roche dorée en forme de diamant ? Pourquoi ne m'as-tu pas laissé combattre ? Bien que cet homme fût au stade avancé de la Formation de l'Âme, mon Clan des Démons Géants est spécial. Je ne pouvais peut-être pas le vaincre, mais je n'avais pas peur ! »
+Chi Hu, assis en position de lotus sur la boussole, demanda: « Frère Ceng, qu'était cette roche dorée en forme de diamant? Pourquoi ne m'as-tu pas laissé combattre? Bien que cet homme fût au stade avancé de la Formation de l'Âme, mon Clan des Démons Géants est spécial. Je ne pouvais peut-être pas le vaincre, mais je n'avais pas peur! »
 
-Tout en dirigeant la boussole stellaire, Wang Lin répondit : « Lorsqu'une personne tue trop, son aura meurtrière se transforme en intention de tuer. Lorsque l'on tue encore davantage, celle-ci se condense en liquide. Et quand elle devient encore plus dense, elle se mue en cristal. C'est le cristal d'intention meurtrière. À moins que tu ne cultives toi-même un domaine de mort, il endommagera ton âme originelle dès l'instant où tu le toucheras ! »
+Tout en dirigeant la boussole stellaire, Wang Lin répondit: « Lorsqu'une personne tue trop, son aura meurtrière se transforme en intention de tuer. Lorsque l'on tue encore davantage, celle-ci se condense en liquide. Et quand elle devient encore plus dense, elle se mue en cristal. C'est le cristal d'intention meurtrière. À moins que tu ne cultives toi-même un domaine de mort, il endommagera ton âme originelle dès l'instant où tu le toucheras! »
 
 Chi Hu commença à réfléchir. Il se remémora ses propres émotions lorsqu'il avait vu la pierre apparaître et hocha la tête.
 
-Wang Lin pensa intérieurement : *La cultivation de cet homme est un peu plus élevée que celle de Red Butterfly, surtout son domaine de mort. Même Red Butterfly devrait déployer d'énormes efforts pour le contenir. Je me demande simplement si mon corps original serait capable de supporter une telle attaque. Je me demande également quelle quantité d'énergie spirituelle supplémentaire mon corps originel nécessite pour franchir la troisième transformation. Une fois revenu à Suzaku, je me demande si sa cultivation augmentera grâce à ces jades célestes.*
+Wang Lin pensa intérieurement: *La culture de cet homme est un peu plus élevée que celle de Papillon Rouge, surtout son domaine de mort. Même Papillon Rouge devrait déployer d'énormes efforts pour le contenir. Je me demande simplement si mon corps original serait capable de supporter une telle attaque. Je me demande également quelle quantité d'énergie spirituelle supplémentaire mon corps originel nécessite pour franchir la troisième transformation. Une fois revenu à Suzaku, je me demande si sa culture augmentera grâce à ces jades célestes.*
 
 La boussole stellaire était extrêmement rapide. Elle fit demi-tour et reprit la poursuite des épées célestes. Au loin, un fragment de royaume céleste apparut enfin.
 
 Ils virent une quantité infinie d'énergie d'épée irradier du fragment. Cette lumière donnait à quiconque l'approchait la sensation d'être transpercé avant même le contact.
 
-D'innombrables épées célestes affluaient. C'était ici que se trouvait l'esprit de l'épée céleste de la Pluie !
+D'innombrables épées célestes affluaient. C'était ici que se trouvait l'esprit de l'épée céleste de la Pluie!

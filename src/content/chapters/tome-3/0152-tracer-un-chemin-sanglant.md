@@ -16,25 +16,25 @@ L'essence de sang de l'âme est une sorte de restriction, mais bien plus directe
 
 Par conséquent, s'emparer de l'essence de sang de l'âme d'autrui n'est qu'une mesure temporaire, et de nombreux cultivateurs évitent de le faire. Après tout, il existe des milliers de restrictions capables d'accomplir exactement la même chose.
 
-Il existe également un autre point crucial : l'essence de sang de l'âme ne peut être extraite que si le cultivateur consent volontairement à le faire. Autrement, à moins de posséder une technique d'une puissance absolue, il est impossible de la lui arracher par la force.
+Il existe également un autre point crucial: l'essence de sang de l'âme ne peut être extraite que si le cultivateur consent volontairement à le faire. Autrement, à moins de posséder une technique d'une puissance absolue, il est impossible de la lui arracher par la force.
 
 Shang Guanmo était lui aussi acculé. Il savait que Wang Lin ne lui pardonnerait pas facilement et qu'il placerait probablement une restriction sur lui. S'il avait imploré Wang Lin de l'accepter comme disciple, c'était simplement pour offrir à ce dernier une raison de le laisser vivre.
 
 Mais il n'aurait jamais pu imaginer que cela ne ferait aucun effet à Wang Lin. Ce n'est qu'à ce moment-là qu'il fut contraint de livrer son essence de sang de l'âme. Ce n'est qu'après avoir vu Wang Lin l'accepter que son cœur finit par s'apaiser quelque peu.
 
-Wang Lin lui lança un regard glacial avant de se retourner et de dire froidement à Mu Nan : « Continue de montrer le chemin. »
+Wang Lin lui lança un regard glacial avant de se retourner et de dire froidement à Mu Nan: « Continue de montrer le chemin. »
 
-Après avoir tué le Premier Ancien du Secte du Mal, Wang Lin savait qu'il devrait les exterminer. S'il n'avait tué qu'un disciple, cela n'aurait été qu'un incident mineur, mais puisqu'il avait tué un Ancien, ils viendraient certainement le traquer. Il n'était plus le jeune villageois naïf d'autrefois ; il avait énormément grandi.
+Après avoir tué le Premier Ancien de la Secte du Mal, Wang Lin savait qu'il devrait les exterminer. S'il n'avait tué qu'un disciple, cela n'aurait été qu'un incident mineur, mais puisqu'il avait tué un Ancien, ils viendraient certainement le traquer. Il n'était plus le jeune villageois naïf d'autrefois; il avait énormément grandi.
 
-Tout ce qui s'était produit après la mort de Teng Li avait beaucoup appris à Wang Lin. Puisqu'il en avait déjà tué un, autant en tuer dix. Puisqu'il en avait déjà tué dix, autant anéantir le Secte du Mal.
+Tout ce qui s'était produit après la mort de Teng Li avait beaucoup appris à Wang Lin. Puisqu'il en avait déjà tué un, autant en tuer dix. Puisqu'il en avait déjà tué dix, autant anéantir la Secte du Mal.
 
-Seule l'éradication totale du Secte du Mal lui permettrait d'éviter de nouveaux problèmes à l'avenir. Fort de cette conviction, il saisit Li Muwan et s'élança rapidement. Simultanément, sa technique d'attraction forma deux mains gigantesques qui saisirent Mu Nan et Mu Bei pour les projeter en avant.
+Seule l'éradication totale de la Secte du Mal lui permettrait d'éviter de nouveaux problèmes à l'avenir. Fort de cette conviction, il saisit Li Muwan et s'élança rapidement. Simultanément, sa technique d'attraction forma deux mains gigantesques qui saisirent Mu Nan et Mu Bei pour les projeter en avant.
 
-Le visage des deux frères était livide, mais ils n'osèrent émettre la moindre plainte ; ils retrouvèrent rapidement leur équilibre et continuèrent de guider le groupe, la tête basse.
+Le visage des deux frères était livide, mais ils n'osèrent émettre la moindre plainte; ils retrouvèrent rapidement leur équilibre et continuèrent de guider le groupe, la tête basse.
 
 Quant à Shang Guanmo, il essuya la sueur froide qui perla sur son front et suivit précipitamment. Il maudissait amèrement dans son cœur, mais n'osait rien laisser paraître, craignant que ce démon ne décide de l'éliminer à nouveau.
 
-« Un sortilège de mort... la technique qu'il a utilisée doit être un sortilège de mort ! Maîtriser une technique aussi vile prouve qu'il n'est pas un homme ordinaire. » Shang Guanmo continuait d'évaluer Wang Lin du regard, l'observant secrètement.
+« Un sortilège de mort... la technique qu'il a utilisée doit être un sortilège de mort! Maîtriser une technique aussi vile prouve qu'il n'est pas un homme ordinaire. » Shang Guanmo continuait d'évaluer Wang Lin du regard, l'observant secrètement.
 
 Li Muwan ressentit une émotion complexe. Elle n'aurait jamais cru que Wang Lin atteindrait réellement le stade de la Formation du Noyau. Il avait prouvé, tout au long de son parcours, qu'il tenait parole.
 
@@ -50,17 +50,17 @@ La première fois qu'elle avait rencontré Wang Lin, ils l'avaient pris pour Sun
 
 « C'est un homme sans cœur... » Li Muwan observa Wang Lin en soupirant. Après toutes ces années, elle savait qu'il n'aurait aucune intention pervertie à son égard. Après tout, à ses yeux, elle n'était qu'un fourneau à pilules.
 
-Une amertume envahit le cœur de Li Muwan. Cette amertume devint de plus en plus forte, se propageant dans tout son corps. Wang Lin fronça les sourcils en la regardant et dit froidement : « Ne t'inquiète pas. Une fois que j'aurai réglé les affaires ici, je te ramènerai à l'Alliance Hou Fen. »
+Une amertume envahit le cœur de Li Muwan. Cette amertume devint de plus en plus forte, se propageant dans tout son corps. Wang Lin fronça les sourcils en la regardant et dit froidement: « Ne t'inquiète pas. Une fois que j'aurai réglé les affaires ici, je te ramènerai à l'Alliance Hou Fen. »
 
-Le visage de Li Muwan devint encore plus pâle ; elle mordit sa lèvre inférieure et hocha la tête.
+Le visage de Li Muwan devint encore plus pâle; elle mordit sa lèvre inférieure et hocha la tête.
 
 Un silence s'installa entre eux. Bientôt, les deux guides s'arrêtèrent brusquement. Leurs expressions étaient sombres et inquiétantes alors que les silhouettes de plus d'une centaine de cultivateurs émergèrent du brouillard devant eux. Chacun d'eux fixait le grand mot rouge « Punir » qui surplombait la tête de Wang Lin. La cupidité brillait dans leurs yeux, mais derrière cette convoitise se cachait une pointe de terreur.
 
-Wang Lin lança un regard glacial au groupe et déclara calmement : « Continuez à montrer le chemin. Si quelqu'un ose barrer notre route, tuez-le ! »
+Wang Lin lança un regard glacial au groupe et déclara calmement: « Continuez à montrer le chemin. Si quelqu'un ose barrer notre route, tuez-le! »
 
-Shang Guanmo comprit que c'était sa chance de prouver sa valeur. Il s'élança et se posta devant Mu Nan et Mu Bei. Il leur adressa un sourire et lança : « Un groupe de moins que rien au stade de l'Établissement des Fondations. Écoutez bien : quiconque osera bloquer notre passage mourra ! »
+Shang Guanmo comprit que c'était sa chance de prouver sa valeur. Il s'élança et se posta devant Mu Nan et Mu Bei. Il leur adressa un sourire et lança: « Un groupe de moins que rien au stade de l'Établissement des Fondations. Écoutez bien: quiconque osera bloquer notre passage mourra! »
 
-Alors qu'ils progressaient, tous les cultivateurs s'écartèrent. Aucun n'avait l'intention d'agir initialement ; ils voulaient simplement voir quel genre d'individu avait activé l'Ordre de la Centaine de Jours du Massacre des Dix Mille Démons.
+Alors qu'ils progressaient, tous les cultivateurs s'écartèrent. Aucun n'avait l'intention d'agir initialement; ils voulaient simplement voir quel genre d'individu avait activé l'Ordre de la Centaine de Jours du Massacre des Dix Mille Démons.
 
 Les dix corps emportés par le tendon de dragon derrière Wang Lin firent frissonner l'assistance. Même s'ils avaient voulu agir, ils auraient hésité devant un tel spectacle.
 
@@ -70,7 +70,7 @@ En chemin, Wang Lin croisait régulièrement ces individus. En raison de cette a
 
 De nombreux cultivateurs les suivaient également avec des intentions malveillantes.
 
-Le cœur de Mu Nan et de Mu Bei tremblait. En chemin, ils rencontrèrent de nombreuses personnes ayant un niveau de cultivation supérieur au leur. Même certains vieux briscards qui ne montraient jamais le bout de leur nez les suivaient de près.
+Le cœur de Mu Nan et de Mu Bei tremblait. En chemin, ils rencontrèrent de nombreuses personnes ayant un niveau de culture supérieur au leur. Même certains vieux briscards qui ne montraient jamais le bout de leur nez les suivaient de près.
 
 Cela les déstabilisait profondément. Et si ces deux-là étaient troublés, même Shang Guanmo était nerveux. Si cela continuait, l'attention de cultivateurs extérieurs à la zone de Nan Dou finirait par être attirée. Après cela, rien ne garantissait qu'un cultivateur de l'Âme Naissante n'apparaîtrait.
 
@@ -78,7 +78,7 @@ Il était très inquiet et se demandait secrètement pourquoi ce démon n'avait 
 
 La présence innombrable des cultivateurs qui les entouraient effraya un peu Li Muwan, mais en regardant Wang Lin, elle retrouva quelque peu son calme.
 
-Les yeux de Wang Lin devinrent encore plus glacials ; il s'arrêta soudainement et fixa les cultivateurs environnants avec un sourire sinistre. Sa voix froide se propagea à la foule : « Quiconque restera ici après trois respirations mourra ! »
+Les yeux de Wang Lin devinrent encore plus glacials; il s'arrêta soudainement et fixa les cultivateurs environnants avec un sourire sinistre. Sa voix froide se propagea à la foule: « Quiconque restera ici après trois respirations mourra! »
 
 Sur ce, il ferma les yeux. Après une respiration, il les rouvrit, leurs pupilles parcourues d'éclairs rouges. Il passa de la main qui tenait le bras de Li Muwan à celle qui soutenait sa taille. Sans même avoir le temps de savourer cette sensation de douceur, il chargea brusquement en arrière.
 
@@ -92,7 +92,7 @@ Le visage de Wang Lin était d'une froideur impitoyable. À chaque fois que son 
 
 Chaque fois qu'un corps tombait du ciel, le tendon de dragon derrière lui créait une nouvelle branche pour ramener le cadavre.
 
-La vitesse de Wang Lin ne ralentit pas ; au contraire, il devint encore plus rapide. Ses cibles principales étaient les cultivateurs au stade de la Formation du Noyau. Quant aux cultivateurs à l'Établissement des Fondations, ils n'étaient que des victimes collatérales.
+La vitesse de Wang Lin ne ralentit pas; au contraire, il devint encore plus rapide. Ses cibles principales étaient les cultivateurs au stade de la Formation du Noyau. Quant aux cultivateurs à l'Établissement des Fondations, ils n'étaient que des victimes collatérales.
 
 À cet instant, aucune trace de cupidité ne subsistait dans l'esprit des cultivateurs environnants. La convoitise avait été remplacée par la terreur pure. À chaque mort, le mot « Punir » devenait de plus en plus rouge, jusqu'à ressembler à une flamme éclatante dans les ténèbres. Il était si rouge qu'on aurait dit qu'il pouvait saigner.
 
@@ -102,4 +102,4 @@ En seulement une heure, la majorité des fuyards furent éliminés par l'épée 
 
 Plus de 1 000 cadavres étaient déjà entremêlés dans le tendon de dragon derrière lui. Le tendon ressemblait à une cape de mort flottant derrière Wang Lin.
 
-À ce moment précis, dans le brouillard à mille kilomètres de là, se tenaient sept ou huit vieux cultivateurs démoniaques. Aucun d'eux ne parla, mais l'effroi qui se lisait dans leurs yeux devenait de plus en plus manifeste.
+À ce moment précis, dans le brouillard à 500 kilomètres de là, se tenaient sept ou huit vieux cultivateurs démoniaques. Aucun d'eux ne parla, mais l'effroi qui se lisait dans leurs yeux devenait de plus en plus manifeste.

@@ -20,7 +20,7 @@ Soudain, l'énergie de l'épée jaillit du fourreau, formant une lame gigantesqu
 
 L'homme chétif resta de nouveau stupéfait, laissant l'énergie de l'épée percuter son corps. Ce dernier ne put finalement plus résister à l'accumulation des dégâts et commença à s'effondrer.
 
-Mais alors que son corps était sur le point de se désagréger, il sembla soudainement réaliser quelque chose. Il lutta pour former un sceau de sa main gauche presque brisée et prononça un mot dont le son rappelait le frottement des os : « Condense ! »
+Mais alors que son corps était sur le point de se désagréger, il sembla soudainement réaliser quelque chose. Il lutta pour former un sceau de sa main gauche presque brisée et prononça un mot dont le son rappelait le frottement des os: « Condense! »
 
 Soudain, le corps qui allait s'effondrer brilla d'un éclat doré et retrouva une condition parfaite.
 
@@ -28,11 +28,11 @@ Wang Lin prit une profonde inspiration en fixant l'individu, incapable de dire u
 
 Les yeux de l'homme chétif s'illuminèrent tandis qu'il dévorait Wang Lin du regard avec une puissante soif de combat. Son poing se serra et devint une ombre floue alors qu'il frappait vers Wang Lin.
 
-Le regard de Wang Lin s'intensifia et il recula immédiatement. Mais il réalisa vite que toute l'énergie spirituelle environnante semblait avoir été aspirée par une force mystérieuse. Cela créait même un pouvoir d'emprisonnement ; Wang Lin sentit rapidement sa vitesse chuter drastiquement sous cette pression.
+Le regard de Wang Lin s'intensifia et il recula immédiatement. Mais il réalisa vite que toute l'énergie spirituelle environnante semblait avoir été aspirée par une force mystérieuse. Cela créait même un pouvoir d'emprisonnement; Wang Lin sentit rapidement sa vitesse chuter drastiquement sous cette pression.
 
 À cet instant, le cœur de Wang Lin se calma promptement. Il sortit précipitamment le miroir de bronze et le pointa vers Teng One, mais la lumière verte émise par l'objet n'eut aucun effet sur lui. Le poing de Teng One percuta le miroir de bronze. L'artefact se fissura et projeta des éclats de lumière.
 
-Grâce à cette lueur, l'emprisonnement qui l'entourait faiblit et il s'échappa rapidement de la zone. Simultanément, son cœur se serra alors qu'il hurlait : « Explose ! »
+Grâce à cette lueur, l'emprisonnement qui l'entourait faiblit et il s'échappa rapidement de la zone. Simultanément, son cœur se serra alors qu'il hurlait: « Explose! »
 
 De nombreuses fissures apparurent soudainement sur l'Ancien Miroir de Bronze, puis celui-ci explosa.
 
@@ -50,7 +50,7 @@ Les deux volèrent très vite, l'un à la suite de l'autre. Wang Lin ne filait p
 
 Bien qu'il ignorât la nature exacte de ce sang, les souvenirs du Dieu Ancien contenaient quelque chose de similaire.
 
-En vérité, ce sang doré n'avait rien d'exceptionnel en soi ; il était simplement semblable au sang d'un Dieu Ancien, ou plus précisément, il contenait une trace du sang d'un Dieu Ancien.
+En vérité, ce sang doré n'avait rien d'exceptionnel en soi; il était simplement semblable au sang d'un Dieu Ancien, ou plus précisément, il contenait une trace du sang d'un Dieu Ancien.
 
 Hormis le moment où il avait reformé son corps, aucune des attaques de Teng One ne dégageait la moindre fluctuation d'énergie spirituelle. Ses coups étaient purement physiques.
 
@@ -58,15 +58,15 @@ Cette méthode n'appartenait plus à un cultivateur. Cet homme était comme une 
 
 Teng One était également perplexe face aux techniques de Wang Lin, mais au milieu de cette confusion, une lueur de compréhension semblait poindre. Cet homme devait avoir cultivé une technique extrêmement singulière pour devenir ainsi sous son influence.
 
-Il existait trop de méthodes dans le monde de la cultivation pour que Wang Lin les connaisse toutes, mais ses suppositions étaient très justes. La méthode que Teng One pratiquait ressemblait énormément à la façon dont les Dieux Anciens entraînaient leurs corps.
+Il existait trop de méthodes dans le monde de la culture pour que Wang Lin les connaisse toutes, mais ses suppositions étaient très justes. La méthode que Teng One pratiquait ressemblait énormément à la façon dont les Dieux Anciens entraînaient leurs corps.
 
 Cette méthode n'appartenait pas à Zhao, mais au messager de la Tour Céleste.
 
 En cultivant cette voie, le sens divin et l'âme fusionnent avec le corps, ce qui expliquait pourquoi le Domaine de Ji de Wang Lin avait perdu sa capacité de mise à mort instantanée.
 
-Wang Lin fixa le sang doré dans sa main, les yeux brillants. La méthode de cultivation de cet homme n'était pas celle d'une marionnette, mais une imitation de celle des Dieux Anciens.
+Wang Lin fixa le sang doré dans sa main, les yeux brillants. La méthode de culture de cet homme n'était pas celle d'une marionnette, mais une imitation de celle des Dieux Anciens.
 
-Une lueur froide traversa le regard de Wang Lin alors qu'il frappait sa sacoche pour invoquer un brouillard sombre. Ce dernier se transforma en deux marionnettes : deux marionnettes de l'Âme Naissante obtenues auprès du vieil homme Ji Mo.
+Une lueur froide traversa le regard de Wang Lin alors qu'il frappait sa sacoche pour invoquer un brouillard sombre. Ce dernier se transforma en deux marionnettes: deux marionnettes de l'Âme Naissante obtenues auprès du vieil homme Ji Mo.
 
 Wang Lin fit glisser son doigt droit et deux gouttes de sang tombèrent sur les marionnettes. Soudain, leurs yeux brillèrent d'un rouge éclatant alors qu'elles chargeaient Teng One.
 
@@ -92,7 +92,7 @@ Cette silhouette était immense, sa tête touchant presque les cieux. En se soli
 
 Une quantité colossale d'énergie spirituelle s'assembla.
 
-Les deux cinquièmes restants perdirent également leur énergie progressivement, mais la quantité de sang utilisée était trop infime pour que le géant puisse prendre une forme physique ; il resta dans un état illusoire.
+Les deux cinquièmes restants perdirent également leur énergie progressivement, mais la quantité de sang utilisée était trop infime pour que le géant puisse prendre une forme physique; il resta dans un état illusoire.
 
 Le front de Wang Lin était trempé de sueur. L'usage de cette technique pesait lourdement sur son corps, et l'étoile violette sur son front scintillait frénétiquement. En même temps, Wang Lin lutta pour pointer sa main droite vers Teng One qui, sentant le danger, tentait de s'enfuir.
 
@@ -108,15 +108,15 @@ Simultanément, l'immense figure s'inclina devant Wang Lin, s'avança vers le so
 
 Punnan Zi, qui était en plein vol, s'arrêta net, son expression changeant radicalement. Il déploya précipitamment son sens divin pour vérifier.
 
-Au même moment, à la Tour Céleste au centre de Zhao, un homme gras ouvrit les yeux en pleine cultivation et fixa la direction de Wang Lin avec incrédulité.
+Au même moment, à la Tour Céleste au centre de Zhao, un homme gras ouvrit les yeux en pleine culture et fixa la direction de Wang Lin avec incrédulité.
 
-« Ceci... ceci est la Technique d'Ouverture du Ciel du Clan des Démons Géants ! »
+« Ceci... ceci est la Technique d'Ouverture du Ciel du Clan des Démons Géants! »
 
 Quant à Wang Lin, il rangea soigneusement la goutte de sang doré dans sa sacoche et s'assit immédiatement en tailleur. Il sortit des fioles de jade et les vida dans sa bouche, activant rapidement la méthode du Dieu Ancien pour les digérer. La marionnette restante se tenait là, confuse, aux côtés de Wang Lin, prête à attaquer toute menace approchante.
 
 Un jour plus tard, Wang Lin ouvrit les yeux et prit une profonde inspiration. Sans toutes ces pilules, l'usage de la technique du Dieu Ancien lui aurait coûté au moins une quinzaine de jours de récupération.
 
-Il se leva et observa la marionnette qui avait subi quelques dommages. Selon les informations du jade, elle serait capable de s'auto-réparer ; Wang Lin traça alors un sceau qu'il pressa sur le front de la marionnette, laquelle se mua en fumée pour retourner dans sa sacoche. Wang Lin regarda vers l'endroit où Teng One avait péri avec une expression complexe. La famille Teng était bien plus puissante qu'il ne l'avait imaginé. S'il ne parvenait pas à utiliser la technique du Dieu Ancien comme prévu, il devrait recourir à son ultime recours.
+Il se leva et observa la marionnette qui avait subi quelques dommages. Selon les informations du jade, elle serait capable de s'auto-réparer; Wang Lin traça alors un sceau qu'il pressa sur le front de la marionnette, laquelle se mua en fumée pour retourner dans sa sacoche. Wang Lin regarda vers l'endroit où Teng One avait péri avec une expression complexe. La famille Teng était bien plus puissante qu'il ne l'avait imaginé. S'il ne parvenait pas à utiliser la technique du Dieu Ancien comme prévu, il devrait recourir à son ultime recours.
 
 La foudre de rétribution divine était une chose qu'il ne voulait absolument pas utiliser, car si il s'en servait maintenant, il y avait de fortes chances que sa vengeance soit interrompue prématurément.
 

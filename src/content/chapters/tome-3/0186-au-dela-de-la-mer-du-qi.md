@@ -6,13 +6,13 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 186 - Beyond the Qi Sea
 slug: au-dela-de-la-mer-du-qi
 ---
-Wang Lin se précipita rapidement vers la sortie. En un instant, il atteignit la zone située à moins de trente pieds du vortex de sortie.
+Wang Lin se précipita rapidement vers la sortie. En un instant, il atteignit la zone située à moins de 99 mètres du vortex de sortie.
 
 Mais alors qu'il approchait, directement au-dessus de l'issue du troisième essai, une faille longue de milliers de pieds s'ouvrit, libérant une lueur rouge sang.
 
 Wang Lin fut stupéfait, mais son visage resta impassible. Il utilisa immédiatement la technique que l'Empereur Ancestral lui avait transmise sur le vortex. Malgré l'apparition de la faille, il continua de charger vers le tourbillon. Des éclairs violets surgirent, l'aspirant dans les profondeurs du vortex.
 
-Au moment où il pénétra dans le vortex, Wang Lin vit clairement de grands démons émerger de la faille ; leurs yeux brillaient d'une extase sauvage alors qu'ils se jetaient sur lui.
+Au moment où il pénétra dans le vortex, Wang Lin vit clairement de grands démons émerger de la faille; leurs yeux brillaient d'une extase sauvage alors qu'ils se jetaient sur lui.
 
 Le cœur de Wang Lin rata un battement. N'importe lequel de ces démons pouvait l'anéantir d'un simple revers de main. Fort de cette pensée, il disparut dans le vortex.
 
@@ -36,19 +36,19 @@ Le corps entier des épines trembla et se mit à tourbillonner, entraîné par l
 
 Peu après, Wang Lin s'engagea sans hésiter dans le réseau de transfert. À l'instant où son corps y pénétra, un rayon de lumière rouge jaillit sur le côté pour recouvrir l'intégralité du dispositif.
 
-[Note du traducteur : Le réseau émet ceci]
+[Note du traducteur: Le réseau émet ceci]
 
-« Le temps nécessaire pour franchir le troisième essai a dépassé la limite prévue, mais vous avez obtenu une qualification lors du deuxième essai. Emplacement : au-delà de la Mer du Qi. »
+« Le temps nécessaire pour franchir le troisième essai a dépassé la limite prévue, mais vous avez obtenu une qualification lors du deuxième essai. Emplacement: au-delà de la Mer du Qi. »
 
 Sous les rayons fluctuants de la lumière rouge sang, le corps de Wang Lin commença à se distordre jusqu'à disparaître totalement. La lueur rouge finit par se dissiper, rendant à l'endroit son aspect normal.
 
 À cet instant précis, les cercles illusoires que Wang Lin avait laissés derrière lui se dispersèrent dans toutes les directions, créant des restrictions qui encerclèrent tout le réseau de transfert. Sous l'impulsion soudaine de ces cercles, les épines volèrent vers le dispositif, pénétrèrent les vaisseaux sanguins et y diffusèrent leur toxine.
 
-En un instant, le réseau cessa d'émettre une lumière rouge pour projeter une lueur noire ; toutefois, cette obscurité ne dura pas et la lueur redevint lentement rouge.
+En un instant, le réseau cessa d'émettre une lumière rouge pour projeter une lueur noire; toutefois, cette obscurité ne dura pas et la lueur redevint lentement rouge.
 
 Simultanément, à l'entrée du quatrième royaume, de nombreux démons de la Mer Sanguine apparurent et accoururent vers le réseau de transfert.
 
-L'un des cultivateurs démons inspecta le dispositif et déclara : « Le réseau a été détruit. Il faudra trois heures pour sa restauration. »
+L'un des cultivateurs démons inspecta le dispositif et déclara: « Le réseau a été détruit. Il faudra trois heures pour sa restauration. »
 
 « Peu importe. Le corps est immense. Le dévoreur d'âmes ne pourra pas pénétrer dans la Mer de la Connaissance. Tant qu'il n'y entre pas, il ne pourra pas s'échapper. »
 
@@ -62,7 +62,7 @@ C'était un lieu des plus étranges. Le ciel était bleu, tout comme le sol. On 
 
 Wang Lin resta stupéfait un instant avant de retrouver son calme. Juste avant d'être transféré, il se souvenait que la voix avait mentionné une destination aux confins de la Mer du Qi.
 
-Grâce à cela, Wang Lin comprit qu'il se trouvait dans le quatrième royaume. Cependant, ce dernier ne présentait aucun obstacle ; il ne servait que de zone de transfert.
+Grâce à cela, Wang Lin comprit qu'il se trouvait dans le quatrième royaume. Cependant, ce dernier ne présentait aucun obstacle; il ne servait que de zone de transfert.
 
 Wang Lin en conclut qu'il était déjà entré dans le corps de l'Ancien Dieu, juste au-delà de la Mer du Qi.
 
@@ -70,7 +70,7 @@ Il réfléchit un instant et soupira. Il n'aurait jamais cru être le premier pa
 
 Avant le troisième essai, Wang Lin nourrissait encore l'espoir d'atteindre ce lieu, mais désormais, il sentait que cet endroit n'était pas le paradis de trésors et de pilules immortelles décrit par Duanmu.
 
-Surtout après avoir vu ces démons tels que le Bossu Meng à la sortie du troisième essai ; cela lui avait laissé un poids oppressant sur le cœur. Wang Lin pressentait qu'il venait d'entrer dans un lieu où il n'était pas censé mettre les pieds.
+Surtout après avoir vu ces démons tels que le Bossu Meng à la sortie du troisième essai; cela lui avait laissé un poids oppressant sur le cœur. Wang Lin pressentait qu'il venait d'entrer dans un lieu où il n'était pas censé mettre les pieds.
 
 En particulier l'extase pure et nue dans les yeux de ces démons lorsqu'ils le regardaient. Il était perspicace, et après analyse, il comprit que cela devait être lié aux paroles de cette immense âme qui ressemblait à un Dévoreur d'Âmes.
 
@@ -96,7 +96,7 @@ Au fur et à mesure qu'il effectuait les signes, l'énergie spirituelle dans son
 
 Les yeux de Wang Lin tremblèrent alors qu'il fixait l'endroit où le tourbillon s'était formé.
 
-« Quelle technique maléfique ! » murmura-t-il avec un ricanement amer. Le vortex généré par cette technique tournait dans le sens inverse des aiguilles d'une montre, alors que tous les vortex de sortie tournaient dans le sens horaire.
+« Quelle technique maléfique! » murmura-t-il avec un ricanement amer. Le vortex généré par cette technique tournait dans le sens inverse des aiguilles d'une montre, alors que tous les vortex de sortie tournaient dans le sens horaire.
 
 Sans une observation attentive, la différence passait inaperçue. Quant à savoir si l'usage de cette technique pouvait réellement créer une issue, Wang Lin n'en était pas certain. En revanche, il était sûr que si deux tourbillons se rencontraient, les conséquences seraient désastreuses.
 

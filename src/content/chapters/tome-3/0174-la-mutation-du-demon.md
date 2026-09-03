@@ -12,7 +12,7 @@ Sa majesté de dévoreur d'âmes se manifesta soudainement avec éclat. Sans par
 
 La petite bête commença à se débattre en émettant ses propres rugissements, mais comparés au cri de Wang Lin, ils étaient empreints d'impuissance. La petite créature finit par supplier de grâce par le regard.
 
-Le dragon formé par le Domaine Ji de Wang Lin fixa froidement la petite créature pendant un long moment avant de finalement retourner dans son corps. Il agita ensuite la main et sortit un étendard d'âmes. Le démon n'hésita pas une seconde : il se transforma en brume rouge pour s'engouffrer dans l'étendard.
+Le dragon formé par le Domaine Ji de Wang Lin fixa froidement la petite créature pendant un long moment avant de finalement retourner dans son corps. Il agita ensuite la main et sortit un étendard d'âmes. Le démon n'hésita pas une seconde: il se transforma en brume rouge pour s'engouffrer dans l'étendard.
 
 Wang Lin laissa une parcelle de son Sens Divin dans l'étendard avant de le ranger dans son sac de rangement. Puis, d'un revers de main, des fils apparurent dans toute la pièce. C'était une contre-mesure qu'il avait mise en place contre le démon.
 
@@ -36,25 +36,25 @@ Quelques jours plus tard, l'expression de Wang Lin changea. À travers son Sens 
 
 À chaque mouvement du nuage noir, les tornades noires tentaient d'esquiver. Celles qui n'étaient pas assez rapides se dispersaient en d'innombrables petites créatures et étaient aussitôt dévorées par le nuage. Wang Lin remit la pilule dans sa bouche tout en fixant le nuage noir, s'enfonçant encore plus profondément.
 
-Peu de temps après, le nuage passa. Derrière lui se trouvait la tornade reine. Elle tournait actuellement à une vitesse folle pour générer le maximum de vent ; c'était elle qui propulsait le nuage noir si rapidement.
+Peu de temps après, le nuage passa. Derrière lui se trouvait la tornade reine. Elle tournait actuellement à une vitesse folle pour générer le maximum de vent; c'était elle qui propulsait le nuage noir si rapidement.
 
 La tornade reine poussa le nuage noir au-delà de la position de Wang Lin et s'éloigna dans les profondeurs. Peu après, la tornade reine revint. Cette fois, elle se déplaçait encore plus vite, poussant des hurlements tonitruants avant de disparaître à nouveau.
 
 Une fois le calme revenu, Wang Lin continua sa progression lente. Il eut un ricanement amer. Ce nuage noir devait avoir été créé par Hunchback Meng. Sans la tornade reine pour le repousser, les petites créatures auraient énormément souffert une fois le nuage dispersé.
 
-Après réflexion, ses yeux s'illuminèrent. Hunchback Meng devait posséder de nombreux trésors et pilules ; si ces petites créatures parvenaient à le tuer, Wang Lin pourrait peut-être s'en emparer. En songeant aux richesses d'un puissant cultivateur de la Formation de l'Âme, le cœur de Wang Lin se mit à battre plus vite. Cependant, il chassa rapidement cette idée. Comparés aux trésors, sa vie était bien plus précieuse.
+Après réflexion, ses yeux s'illuminèrent. Hunchback Meng devait posséder de nombreux trésors et pilules; si ces petites créatures parvenaient à le tuer, Wang Lin pourrait peut-être s'en emparer. En songeant aux richesses d'un puissant cultivateur de la Formation de l'Âme, le cœur de Wang Lin se mit à battre plus vite. Cependant, il chassa rapidement cette idée. Comparés aux trésors, sa vie était bien plus précieuse.
 
 Après un soupir, Wang Lin abandonna ces pensées irréalistes et reprit sa marche. Toutefois, après avoir confirmé la position de Hunchback Meng, il ne marcha plus en ligne droite, mais fit un détour.
 
 Une demi-lune plus tard, il traversa une zone remplie de tornades noires qui le stupéfia dès qu'il les perçut par son Sens Divin.
 
-Le groupe de tornades était extrêmement dense. Le nombre de petites créatures là devait excéder les cent millions. Wang Lin en eut le vertige. Cela le rendit encore plus prudent ; il passa un mois entier à contourner ce groupe de tourbillons.
+Le groupe de tornades était extrêmement dense. Le nombre de petites créatures là devait excéder les cent millions. Wang Lin en eut le vertige. Cela le rendit encore plus prudent; il passa un mois entier à contourner ce groupe de tourbillons.
 
 La plupart des tornades noires avaient été attirées par Hunchback Meng, ainsi, bien qu'il y eût quelques frayeurs en chemin, le danger réel restait limité. Wang Lin se trouvait alors à l'intérieur d'une tour noire tout en surveillant la position de Hunchback Meng.
 
 Après un ricanement intérieur, il quitta la tour et poursuivit sa route. Au loin, il pouvait distinguer un vortex gigantesque dans le ciel.
 
-Ce vortex était identique à celui du vide. Il menait clairement au second essai !
+Ce vortex était identique à celui du vide. Il menait clairement au second essai!
 
 Wang Lin prit une profonde inspiration et marcha vers le vortex. À ce stade, il ne pouvait plus utiliser la technique d'évasion terrestre car la force de résistance souterraine était trop intense. Même en utilisant 100 % de son énergie spirituelle, il ne pourrait absolument pas se déplacer avec cette technique.
 
@@ -82,13 +82,13 @@ Après ce cri, toutes les tornades s'interrompirent et cessèrent de tourner, r�
 
 Les yeux du second démon devinrent rouges alors qu'il poussait un autre cri. Les petites créatures commencèrent toutes à reculer, le regard empreint de terreur face au nouveau venu.
 
-Wang Lin était surpris. Ses yeux brillèrent tandis qu'il réfléchissait. Quant à Xu Liguo, il se sentait profondément humilié. On pouvait dire que retrouver la mémoire n'était pas toujours une bénédiction ; au moins, il ne ressentait pas cette honte avant cela. À cet instant, il pensa secrètement : « C'est trop honteux ! J'ai été sauvé par mon petit frère... Peu importe, j'étais le premier à suivre ce démon. Non, si ça continue, chaque petit frère que ce démon créera sera plus fort que moi. Non, je ne peux pas laisser cela arriver ! »
+Wang Lin était surpris. Ses yeux brillèrent tandis qu'il réfléchissait. Quant à Xu Liguo, il se sentait profondément humilié. On pouvait dire que retrouver la mémoire n'était pas toujours une bénédiction; au moins, il ne ressentait pas cette honte avant cela. À cet instant, il pensa secrètement: « C'est trop honteux! J'ai été sauvé par mon petit frère... Peu importe, j'étais le premier à suivre ce démon. Non, si ça continue, chaque petit frère que ce démon créera sera plus fort que moi. Non, je ne peux pas laisser cela arriver! »
 
 Le démon serra les dents et chargea l'une des tornades. Après avoir saisi quelques petites créatures, il commença à les dévorer.
 
-Les petites créatures paniquèrent et tentèrent de s'enfuir, mais le second démon poussa un autre cri. Elles n'osèrent plus bouger ; la peur dans leurs yeux s'intensifia.
+Les petites créatures paniquèrent et tentèrent de s'enfuir, mais le second démon poussa un autre cri. Elles n'osèrent plus bouger; la peur dans leurs yeux s'intensifia.
 
-Plus Wang Lin observait, plus son regard s'illuminait. Une idée lui vint soudainement : le second démon devait être perçu comme une mutation par ces créatures. Il devait exister un lien mystérieux entre eux pour provoquer une telle réaction.
+Plus Wang Lin observait, plus son regard s'illuminait. Une idée lui vint soudainement: le second démon devait être perçu comme une mutation par ces créatures. Il devait exister un lien mystérieux entre eux pour provoquer une telle réaction.
 
 Si cela était vrai, la raison pour laquelle les Sens Divins de ces petites créatures pouvaient fusionner devenait logique. Ses yeux brillèrent alors qu'il émergeait de sous terre.
 
@@ -98,7 +98,7 @@ Bien que les petites créatures fussent prudentes à sa vue, elles ne paniquère
 
 Xu Liguo sourit immédiatement, affichant une expression de soumission envers le second démon. Il recracha rapidement toutes les âmes qu'il avait dévorées et retourna prestement vers Wang Lin. Une fois derrière lui, son visage se mua en un masque de haine alors qu'il lançait un regard féroce au second démon.
 
-Il grommela intérieurement : « Tu attends ! Attends seulement ! Pousse-moi trop loin et je me battrai contre toi à mort ! »
+Il grommela intérieurement: « Tu attends! Attends seulement! Pousse-moi trop loin et je me battrai contre toi à mort! »
 
 Wang Lin ne da même pas un regard à Xu Liguo. Il tenait secrètement la pierre de jade que Li Muwan lui avait donnée. Son Sens Divin se déploya pour inspecter les petites créatures une à une. Finalement, il découvrit qu'une dizaine d'entre elles étaient des mutants, car elles possédaient des Sens Divins bien plus puissants.
 

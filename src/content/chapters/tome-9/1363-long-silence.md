@@ -10,7 +10,7 @@ La capitale mortelle était vaste et la population dense. Les habitants de la zo
 
 Il existait une substance appelée « cristaux mortels » qui servait de monnaie aux mortels, leur valeur variant selon leur taille.
 
-Bien que les cristaux mortels fussent inutiles pour les cultivateurs, leur rareté et leur beauté en faisaient la monnaie d'échange privilégiée des mortels. Avec le niveau de cultivation de Wang Lin, il était très facile d'en obtenir.
+Bien que les cristaux mortels fussent inutiles pour les cultivateurs, leur rareté et leur beauté en faisaient la monnaie d'échange privilégiée des mortels. Avec le niveau de culture de Wang Lin, il était très facile d'en obtenir.
 
 Alors qu'il se trouvait dans la capitale, une partie de son âme originelle quitta son corps pour s'enfoncer sous terre. Personne ne remarqua rien tandis qu'il découvrait un filon de cristaux mortels caché dans les profondeurs.
 
@@ -18,7 +18,7 @@ Il en fit le tour et raffina une partie du filon. Lorsque cette fraction de son 
 
 Traversant la ville sans utiliser le moindre sort, il atteignit progressivement la partie ouest. Les maisons y étaient innombrables et les rues étaient en ruines. Même les habitations semblaient vieilles et délabrées, comme si elles n'avaient pas été entretenues depuis des lustres.
 
-Cependant, un détail étrange frappait l'observateur : presque chaque maison arborait une branche de feuilles suspendue sous son toit. Cela semblait être une coutume unique à cet endroit.
+Cependant, un détail étrange frappait l'observateur: presque chaque maison arborait une branche de feuilles suspendue sous son toit. Cela semblait être une coutume unique à cet endroit.
 
 Les passants portaient des vêtements simples et marchaient d'un pas rapide.
 
@@ -28,7 +28,7 @@ La demeure se situait au milieu de la rue, avec un grand arbre devant. Sous cet 
 
 Le crépuscule tomba et le ciel s'assombrit. L'heure du dîner avait sonné. Les familles étaient animées, discutant et riant aux éclats. Des enfants jouaient dans la rue, lançant de petits cailloux les uns vers les autres.
 
-Assis au seuil de sa maison, Wang Lin souriait en contemplant la scène. Lors de l'achat de la demeure, de nombreux voisins étaient venus à sa rencontre. Wang Lin se montra très aimable envers eux ; la plupart comprirent qu'il n'était qu'un étudiant venu passer les examens. Ne pouvant s'offrir une auberge, il avait acheté cette maison pour étudier en vue des épreuves de l'année suivante.
+Assis au seuil de sa maison, Wang Lin souriait en contemplant la scène. Lors de l'achat de la demeure, de nombreux voisins étaient venus à sa rencontre. Wang Lin se montra très aimable envers eux; la plupart comprirent qu'il n'était qu'un étudiant venu passer les examens. Ne pouvant s'offrir une auberge, il avait acheté cette maison pour étudier en vue des épreuves de l'année suivante.
 
 À mesure que le ciel s'obscurcissait, les travailleurs fatigués rentraient chez eux et le calme s'installa.
 
@@ -36,7 +36,7 @@ La lumière lunaire émergea peu à peu. Sous l'arbre, un homme regardait ses de
 
 « Petit enfant, la nuit est froide, voici une cruche de vin de riz pour toi. Bois-en un peu tard dans la nuit pendant tes études pour réchauffer ton corps. Si tu deviens riche plus tard, tu pourras me rembourser. » Il tendit la cruche à Wang Lin avant de repartir avec ses ouvriers.
 
-Wang Lin tint la cruche et constata qu'elle était encore à moitié pleine. Il sourit dans la direction de l'homme et son cœur s'apaisa. Comparé à la cruauté du monde de la cultivation, il préférait nettement cet environnement.
+Wang Lin tint la cruche et constata qu'elle était encore à moitié pleine. Il sourit dans la direction de l'homme et son cœur s'apaisa. Comparé à la cruauté du monde de la culture, il préférait nettement cet environnement.
 
 Le clair de lune gagna en intensité tandis qu'un vent glacial s'élevait. Le vent résonnait dans la rue et les branches suspendues aux maisons commencèrent à bruisser.
 
@@ -54,13 +54,13 @@ Une fois la lampe allumée, sa lueur vacillante rendit la pièce bien plus chale
 
 La silhouette de Wang Lin, baignée par la lumière, commença à se tordre...
 
-Dans l'esprit de Wang Lin, une scène terrifiante se jouait. Huit anciens dragons de tonnerre rugissaient avec fureur, tentant désespérément de s'échapper de son âme originelle. Cependant, celle-ci agissait comme une cage impénétrable ; malgré leurs efforts, ils ne pouvaient même pas l'ébranler !
+Dans l'esprit de Wang Lin, une scène terrifiante se jouait. Huit anciens dragons de tonnerre rugissaient avec fureur, tentant désespérément de s'échapper de son âme originelle. Cependant, celle-ci agissait comme une cage impénétrable; malgré leurs efforts, ils ne pouvaient même pas l'ébranler!
 
-Même pour un cultivateur du niveau de Wang Lin, raffiner et absorber huit anciens dragons de tonnerre n'était pas une mince affaire. Pourtant, outre l'essence du tonnerre, il possédait également l'essence du feu !
+Même pour un cultivateur du niveau de Wang Lin, raffiner et absorber huit anciens dragons de tonnerre n'était pas une mince affaire. Pourtant, outre l'essence du tonnerre, il possédait également l'essence du feu!
 
 Tandis que les huit dragons se débattaient, un feu bleu surgit dans son âme originelle et les encercla. Une fois les créatures prises au piège, le feu commença leur raffinage.
 
-L'Oiseau Vermillon tournait autour des huit anciens dragons de tonnerre, crachant parfois des flammes pour accroître sa puissance durant le processus !
+L'Oiseau Vermillon tournait autour des huit anciens dragons de tonnerre, crachant parfois des flammes pour accroître sa puissance durant le processus!
 
 L'âme originelle de Wang Lin était déjà composée de la moitié d'un ancien dragon de tonnerre. Le tonnerre saturait son âme, et un neuvième dragon, forgé par sa propre essence spirituelle, apparut. Il gravitait autour des huit autres, attendant l'instant propice pour les dévorer.
 
@@ -72,7 +72,7 @@ Un bruit ténu provenant de l'extérieur s'éleva, devenant progressivement plus
 
 « La vague de froid arrive, fermez la porte et éteignez la lumière... » Une voix murmura, puis s'effaça, laissant place au silence.
 
-Cependant, sitôt cette personne partie, Wang Lin ouvrit soudainement les yeux, et son regard brilla intensément. Sa main se tendit et la cruche de vin vola vers sa paume. Il prit une grande gorgée !
+Cependant, sitôt cette personne partie, Wang Lin ouvrit soudainement les yeux, et son regard brilla intensément. Sa main se tendit et la cruche de vin vola vers sa paume. Il prit une grande gorgée!
 
 Le vin épicé descendit dans son abdomen et une chaleur envahit son corps, laissant un arrière-goût piquant sur ses lèvres. Wang Lin referma alors les yeux. Son énergie originelle jaillit, et davantage de flammes apparurent dans son âme originelle.
 
@@ -80,9 +80,9 @@ La puissance du feu pénétra son âme, rendant la mer de flammes encore plus mo
 
 Durant cette période, la mer de feu entra en éruption et brûla avec une intensité accrue. Alors que les flammes faisaient rage, l'un des huit anciens dragons se mit à hurler de douleur.
 
-L'ancien dragon de tonnerre trembla, puis s'effondra soudainement. À l'instant même de sa chute, le neuvième dragon, celui formé par l'âme originelle de Wang Lin, chargea tel un éclair et l'inhala !
+L'ancien dragon de tonnerre trembla, puis s'effondra soudainement. À l'instant même de sa chute, le neuvième dragon, celui formé par l'âme originelle de Wang Lin, chargea tel un éclair et l'inhala!
 
-L'âme du dragon effondré, ayant perdu toute résistance après avoir été totalement raffinée par Wang Lin, devint une partie intégrante de lui !
+L'âme du dragon effondré, ayant perdu toute résistance après avoir été totalement raffinée par Wang Lin, devint une partie intégrante de lui!
 
 À l'intérieur de la maison, le visage de Wang Lin prit des teintes rosées, comme s'il avait consommé un élixir hautement nutritif. Bien que ses yeux fussent clos, une faible marque de tonnerre scintillait sous ses paupières.
 
@@ -92,7 +92,7 @@ Seule la marque de tonnerre de Wang Lin émettait encore une faible lueur...
 
 Il ne restait plus que sept des huit obstinés dragons de tonnerre, qui se débattaient avec acharnement. La mer de feu, autrefois divisée en huit parts, ne comptait plus que sept secteurs, ce qui rendit le brasier enduré par chaque dragon encore plus impitoyable.
 
-Sous cette chaleur intense, les sept anciens dragons hurlèrent de misère. Il ne fallut pas longtemps pour qu'un autre dragon s'effondre et soit absorbé par Wang Lin !
+Sous cette chaleur intense, les sept anciens dragons hurlèrent de misère. Il ne fallut pas longtemps pour qu'un autre dragon s'effondre et soit absorbé par Wang Lin!
 
 L'âme originelle de Wang Lin chargea les six dragons restants. Il fendit les flammes et entama une bataille frénétique pour les dévorer un à un.
 
@@ -102,4 +102,4 @@ Des grondements de tonnerre s'échappèrent des nuages d'orage et une fine pluie
 
 Wang Lin ouvrit les yeux, assis en méditation.
 
-« J'ai dévoré et absorbé sept des huit anciens dragons de tonnerre. Il n'en reste plus qu'un ! » Les yeux de Wang Lin s'illuminèrent d'un éclat vif.
+« J'ai dévoré et absorbé sept des huit anciens dragons de tonnerre. Il n'en reste plus qu'un! » Les yeux de Wang Lin s'illuminèrent d'un éclat vif.

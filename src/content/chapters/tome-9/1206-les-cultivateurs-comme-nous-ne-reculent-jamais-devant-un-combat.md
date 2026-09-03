@@ -1,20 +1,20 @@
 ---
 n: 1206
-title: "Les cultivateurs comme nous ne reculent jamais devant un combat !"
+title: "Les cultivateurs comme nous ne reculent jamais devant un combat!"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: "Chapter 1206 - Cultivators Like Us Never Shrink From a Fight!"
 slug: les-cultivateurs-comme-nous-ne-reculent-jamais-devant-un-combat
 ---
-Chapitre 1206 - Les cultivateurs comme nous ne reculent jamais devant un combat !
+Chapitre 1206 - Les cultivateurs comme nous ne reculent jamais devant un combat!
 
-La scène vue à travers les yeux de la statue se dissipa. À l'instant même où elle disparut, un éclair jaillit de la formation. Il semblait briser le vide, les cieux et le temps, fonçant droit vers l'œil droit de Wang Lin !
+La scène vue à travers les yeux de la statue se dissipa. À l'instant même où elle disparut, un éclair jaillit de la formation. Il semblait briser le vide, les cieux et le temps, fonçant droit vers l'œil droit de Wang Lin!
 
-Des grondements tonitruants résonnèrent dans son esprit et il recula de plusieurs dizaines de pieds. Puis, il fixa la statue de pierre avec une expression féroce !
+Des grondements tonitruants résonnèrent dans son esprit et il recula de plusieurs dizaines de pieds. Puis, il fixa la statue de pierre avec une expression féroce!
 
 La statue de pierre s'effondra soudainement en un tas de gravats, soulevant une immense poussière...
 
-« Le Royaume Extérieur... » Pour une raison quelconque, lorsque Wang Lin vit cette scène à travers la statue, son sang commença à bouillir !
+« Le Royaume Extérieur... » Pour une raison quelconque, lorsque Wang Lin vit cette scène à travers la statue, son sang commença à bouillir!
 
 Lorsqu'il avait vu la bataille entre Allheaven et l'Alliance, d'innombrables cultivateurs étaient morts, mais il n'avait pas ressenti cela. Lorsqu'il fut témoin de la grande calamité causée par un trésor entraînant la mort de cultivateurs sans nombre, il n'avait pas ressenti cela non plus. Il avait vu les grandes factions au sein de l'Alliance se livrer bataille, mais il n'avait pas ressenti cela.
 
@@ -22,9 +22,9 @@ Pourtant, à cet instant, sans même savoir pourquoi, en voyant cette scène —
 
 Les cris des êtres célestes avant leur trépas semblaient résonner à ses oreilles.
 
-« Je refuse que cela se produise ! Je refuse que cela se produise ! Un jour viendra où une future génération de cultivateurs brisera cette formation et fera disparaître tous vous, les étrangers ! Des rivières de sang couleront dans votre Royaume Extérieur ! »
+« Je refuse que cela se produise! Je refuse que cela se produise! Un jour viendra où une future génération de cultivateurs brisera cette formation et fera disparaître tous vous, les étrangers! Des rivières de sang couleront dans votre Royaume Extérieur! »
 
-Fixant la statue effondrée, le motif d'éclair dans l'œil droit de Wang Lin continuait de scintiller. Après un long moment, il se retourna et vola vers la montagne entourée par la Restriction Temporelle !
+Fixant la statue effondrée, le motif d'éclair dans l'œil droit de Wang Lin continuait de scintiller. Après un long moment, il se retourna et vola vers la montagne entourée par la Restriction Temporelle!
 
 Lorsque Wang Lin absorba le motif d'éclair, le jeune homme portant la marque de l'éclair du Royaume Extérieur devint extrêmement pâle et son corps commença à trembler légèrement.
 
@@ -34,17 +34,17 @@ Les deux personnes à ses côtés n'avaient manifestement pas eu une réaction a
 
 Quant à celui portant le motif de feu, ses yeux brillaient et il ne cachait pas son avidité. Ce qu'il convoitait était la puissance du feu qu'il avait perçue lorsque l'esprit de Wang Lin avait balayé les lieux.
 
-Après un long moment, les trois apparurent à l'endroit où la statue de pierre s'était effondrée. En contemplant les débris, le jeune homme au motif d'éclair devint encore plus pâle, mais son expression trahissait aussi une immense colère. Il pouvait sentir que cette statue était son ancêtre. Bien qu'il ignorât pourquoi elle se trouvait ici, l'esprit de tonnerre laissé par l'ancêtre avait été arraché de force par quelqu'un peu de temps auparavant !
+Après un long moment, les trois apparurent à l'endroit où la statue de pierre s'était effondrée. En contemplant les débris, le jeune homme au motif d'éclair devint encore plus pâle, mais son expression trahissait aussi une immense colère. Il pouvait sentir que cette statue était son ancêtre. Bien qu'il ignorât pourquoi elle se trouvait ici, l'esprit de tonnerre laissé par l'ancêtre avait été arraché de force par quelqu'un peu de temps auparavant!
 
-Cependant, une fois la colère dissipée, il fut envahi par une terreur encore plus grande !
+Cependant, une fois la colère dissipée, il fut envahi par une terreur encore plus grande!
 
-« Que faisons-nous ? » demanda le jeune homme au motif d'éclair à ses deux compagnons.
+« Que faisons-nous? » demanda le jeune homme au motif d'éclair à ses deux compagnons.
 
-Celui au motif de feu déclara lentement : « Si nous libérons tous nos trois sceaux pour atteindre notre puissance maximale, il sera possible de tuer cet individu... »
+Celui au motif de feu déclara lentement: « Si nous libérons tous nos trois sceaux pour atteindre notre puissance maximale, il sera possible de tuer cet individu... »
 
-Le jeune homme au motif d'éclair hésita un instant, puis murmura : « Et si nous partions rapporter cette fissure spatiale aux Anciens pour qu'ils s'en occupent... J'ai un mauvais pressentiment. »
+Le jeune homme au motif d'éclair hésita un instant, puis murmura: « Et si nous partions rapporter cette fissure spatiale aux Anciens pour qu'ils s'en occupent... J'ai un mauvais pressentiment. »
 
-« La richesse ne s'obtient que par le danger ! » Le jeune homme au motif de croissant lunaire sembla avoir pris sa décision et serra les dents.
+« La richesse ne s'obtient que par le danger! » Le jeune homme au motif de croissant lunaire sembla avoir pris sa décision et serra les dents.
 
 Le jeune homme au motif d'éclair réfléchit silencieusement. Un instant plus tard, il afficha un regard féroce et n'hésita plus. Il chercha des traces de tonnerre et s'élança. Les deux autres suivirent, et ils disparurent dans la brume.
 
@@ -54,9 +54,9 @@ Cependant, cette restriction avait été brisée il y a seulement quelques mois,
 
 Cette fissure était l'ouverture que Maître Ashen Pine et la vieille femme en vert avaient créée.
 
-« Je n'ai qu'à rouvrir cette fissure ! Ce ne devrait pas être difficile ! » La main de Wang Lin forma des sceaux et d'innombrables Restrictions d'Annihilation s'envolèrent. Elles se posèrent sur la Restriction Temporelle et l'écran de lumière commença à onduler.
+« Je n'ai qu'à rouvrir cette fissure! Ce ne devrait pas être difficile! » La main de Wang Lin forma des sceaux et d'innombrables Restrictions d'Annihilation s'envolèrent. Elles se posèrent sur la Restriction Temporelle et l'écran de lumière commença à onduler.
 
-Wang Lin ne cilla même pas, étendant son Sens Divin pour observer attentivement. Peu après, ses yeux se rétrécirent lorsqu'il retrouva l'ouverture d'autrefois !
+Wang Lin ne cilla même pas, étendant son Sens Divin pour observer attentivement. Peu après, ses yeux se rétrécirent lorsqu'il retrouva l'ouverture d'autrefois!
 
 Bien que cette fissure se soit refermée, la Restriction Temporelle n'avait que quelques mois d'existence. À moins que des millénaires ne s'écoulent, ce défaut subsisterait.
 
@@ -64,7 +64,7 @@ C'était là l'un des inconvénients d'une Restriction Temporelle.
 
 Après avoir localisé la faille, la main droite de Wang Lin s'étira et l'épée cristalline apparut. Dès son apparition, l'aura d'un trésor de niveau Pseudo Nirvana Void se dégagea. Dans un éclat de lumière, l'épée fonça vers la fissure.
 
-Un grondement tonitruant retentit immédiatement et des ondulations violentes parcoururent la Restriction Temporelle. Une fine fêlure apparut à mesure que l'épée approchait. À cet instant, l'épée cristalline s'engouffra dans la faille et, sous le contrôle de Wang Lin, une énergie d'épée infinie se propagea, provoquant un fracas encore plus assourdissant !
+Un grondement tonitruant retentit immédiatement et des ondulations violentes parcoururent la Restriction Temporelle. Une fine fêlure apparut à mesure que l'épée approchait. À cet instant, l'épée cristalline s'engouffra dans la faille et, sous le contrôle de Wang Lin, une énergie d'épée infinie se propagea, provoquant un fracas encore plus assourdissant!
 
 À ce moment précis, Wang Lin bondit et tendit sa main droite vers les airs. Le trident apparut soudainement, dégageant une lueur noire et abyssale. Wang Lin s'abattit sur la fissure tel un météore.
 
@@ -80,13 +80,13 @@ Il atteignit bientôt le sommet de la montagne et balaya son trident. Un grondem
 
 Il connaissait l'emplacement exact grâce aux souvenirs de Maître Ashen Pine et parce que son esprit avait parcouru cet endroit lorsqu'il comprenait le Dao.
 
-La fissure s'ouvrit et Wang Lin entra directement à l'intérieur ! Peu après son entrée, les trois jeunes du Royaume Extérieur apparurent devant la barrière. Ils se regardèrent, serrèrent les dents, puis pénétrèrent dans la faille ouverte par Wang Lin pour se diriger vers la montagne.
+La fissure s'ouvrit et Wang Lin entra directement à l'intérieur! Peu après son entrée, les trois jeunes du Royaume Extérieur apparurent devant la barrière. Ils se regardèrent, serrèrent les dents, puis pénétrèrent dans la faille ouverte par Wang Lin pour se diriger vers la montagne.
 
-Lorsque Wang Lin pénétra dans l'espace mystérieux, il vit immédiatement la tablette de pierre géante ! Ses yeux se rétrécirent alors qu'il avançait, son regard fixé sur le bas de la tablette. Il y vit un demi-squelette cloué à la pierre par deux clous aux sept couleurs !
+Lorsque Wang Lin pénétra dans l'espace mystérieux, il vit immédiatement la tablette de pierre géante! Ses yeux se rétrécirent alors qu'il avançait, son regard fixé sur le bas de la tablette. Il y vit un demi-squelette cloué à la pierre par deux clous aux sept couleurs!
 
 Une lumière noire semblait errer faiblement autour du squelette, et les inscriptions sur les os dégageaient une étrange attraction capable de rendre fou.
 
-Wang Lin s'approcha pas à pas. Il scella son Sens Divin et ne regarda pas le squelette ; au lieu de cela, son regard se posa sur la tablette de pierre. Elle était faite d'un matériau inconnu et exhalait une aura antique.
+Wang Lin s'approcha pas à pas. Il scella son Sens Divin et ne regarda pas le squelette; au lieu de cela, son regard se posa sur la tablette de pierre. Elle était faite d'un matériau inconnu et exhalait une aura antique.
 
 Après l'avoir examinée attentivement, Wang Lin fronça les sourcils. Il avait l'impression que ce matériau lui était familier, sans pouvoir se rappeler où il l'avait déjà vu.
 
@@ -96,7 +96,7 @@ Ses yeux s'illuminèrent et il n'hésita pas à ouvrir son espace de stockage. L
 
 Finalement, la lumière dorée jaillit du squelette pour fusionner avec le mot « Bataille ». À cet instant, une clarté d'or pur remplit le vide.
 
-Le mot doré « Bataille » vola directement vers Wang Lin et se logea entre ses sourcils ! L'esprit de Wang Lin trembla.
+Le mot doré « Bataille » vola directement vers Wang Lin et se logea entre ses sourcils! L'esprit de Wang Lin trembla.
 
 « Ce vieil homme est Zhan Xingye. Je sais que le Souverain tentera de me forcer à céder dans le futur. Cependant, en tant que cultivateur du Système Stellaire d'Allheaven, je préférerais mourir plutôt que de servir les gens du Royaume Extérieur. Que celui qui hérite de mon Dao comprenne cette intention de combat et se fraye un chemin vers le Royaume Extérieur par le massacre. Qu'il offre leur sang à mon esprit... »
 
@@ -104,15 +104,15 @@ Le cœur de Wang Lin fut envahi par une intention de bataille monstrueuse, et d'
 
 Alors que Wang Lin était en pleine compréhension, une distorsion apparut dans l'espace et les trois jeunes firent irruption. Le jeune au motif de feu dévora Wang Lin du regard. À cette distance, il pouvait sentir la féroce énergie d'origine du feu qui émanait de lui.
 
-« Si je le dévore, je pourrai évoluer ! »
+« Si je le dévore, je pourrai évoluer! »
 
 Le jeune au motif d'éclair fut stupéfait en voyant Wang Lin. Il ressentait son puissant tonnerre, mais voyait aussi que l'homme était dans un état mystérieux.
 
-« Une opportunité céleste ! »
+« Une opportunité céleste! »
 
 Seul le jeune au motif de croissant lunaire réprima le choc en voyant le dos de Wang Lin. Ses pupilles se rétractèrent et un souvenir lointain refit surface dans son cœur.
 
-« C'était bien lui ! »
+« C'était bien lui! »
 
 Les trois chargèrent Wang Lin simultanément, portés par une puissante intention meurtrière. Ils formèrent tous des sceaux et frappèrent impitoyablement leur front avec la paume de leur main.
 
@@ -120,8 +120,8 @@ Trois craquements retentirent et leurs corps subirent des transformations choqua
 
 Le jeune au motif de feu se vit soudainement pousser une paire d'ailes enflammées et une corne unique apparut sur son front. Son expression trahissait la douleur, mais restait féroce.
 
-Le jeune au motif de croissant lunaire fut le plus étrange. Son corps ne changea guère, mais sa peau prit la couleur de la lune. Cette teinte cristalline offrait un contraste saisissant avec la lumière dorée !
+Le jeune au motif de croissant lunaire fut le plus étrange. Son corps ne changea guère, mais sa peau prit la couleur de la lune. Cette teinte cristalline offrait un contraste saisissant avec la lumière dorée!
 
-Cependant, alors qu'ils chargeaient pour l'atteindre, Wang Lin se retourna soudainement. Ses yeux retrouvèrent leur clarté et révélèrent une pointe de dédain ! C'était le même mépris que les cultivateurs du Royaume Extérieur éprouvaient envers ceux du Domaine Scellé.
+Cependant, alors qu'ils chargeaient pour l'atteindre, Wang Lin se retourna soudainement. Ses yeux retrouvèrent leur clarté et révélèrent une pointe de dédain! C'était le même mépris que les cultivateurs du Royaume Extérieur éprouvaient envers ceux du Domaine Scellé.
 
-« Je suis un héros, tant dans la vie que dans la mort. Les cultivateurs comme nous ne reculent jamais devant un combat ! » Les derniers mots de Zhan Xingye face au Souverain résonnèrent dans l'esprit de Wang Lin !
+« Je suis un héros, tant dans la vie que dans la mort. Les cultivateurs comme nous ne reculent jamais devant un combat! » Les derniers mots de Zhan Xingye face au Souverain résonnèrent dans l'esprit de Wang Lin!

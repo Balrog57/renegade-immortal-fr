@@ -6,17 +6,17 @@ bookTitle: The Mediocre Youth
 en: Chapter 30 - Wang Hao
 slug: wang-hao
 ---
-« Dois-je être encore plus déraisonnable ? » Pour quitter la maison des corvées, Wang Lin était prêt à tout. Il voulait vraiment tester les limites de la patience des anciens.
+« Dois-je être encore plus déraisonnable? » Pour quitter la maison des corvées, Wang Lin était prêt à tout. Il voulait vraiment tester les limites de la patience des anciens.
 
-En privé, parmi les disciples honoraires, en plus des qualificatifs de « déchet » et de « sans vergogne », il s'était vu attribuer un autre titre : le Roi au Cœur Noir. Comparé au surnom du disciple Liu, « frelon », cela se situait à un tout autre niveau.
+En privé, parmi les disciples honoraires, en plus des qualificatifs de « déchet » et de « sans vergogne », il s'était vu attribuer un autre titre: le Roi au Cœur Noir. Comparé au surnom du disciple Liu, « frelon », cela se situait à un tout autre niveau.
 
-Après avoir pratiqué pendant un an dans l'espace de rêve, l'énergie spirituelle dans son corps avait décuplé. Il avait atteint la limite du premier niveau. Peu importe ses efforts de cultivation, son énergie spirituelle n'augmentait plus. Ainsi, une nuit, il entreprit d'utiliser le chant pour accéder au deuxième niveau.
+Après avoir pratiqué pendant un an dans l'espace de rêve, l'énergie spirituelle dans son corps avait décuplé. Il avait atteint la limite du premier niveau. Peu importe ses efforts de culture, son énergie spirituelle n'augmentait plus. Ainsi, une nuit, il entreprit d'utiliser le chant pour accéder au deuxième niveau.
 
 Après tant d'échecs, ses efforts ne furent pas vains puisqu'il finit par percer et atteindre ce second stade.
 
-Les pores de sa peau suintaient une graisse noire. Après s'être lavé, Wang Lin s'observa : ses yeux brillaient comme des éclairs. Son apparence était radicalement différente de celle d'autrefois.
+Les pores de sa peau suintaient une graisse noire. Après s'être lavé, Wang Lin s'observa: ses yeux brillaient comme des éclairs. Son apparence était radicalement différente de celle d'autrefois.
 
-Il se frotta le menton et songea : « Il ne me reste plus que le chant pour le troisième niveau. Si je retourne voir Sun Dazhu pour lui demander les chants des niveaux suivants et qu'il découvre que j'ai atteint le deuxième niveau, il me questionnera certainement sur la manière dont j'y suis parvenu. Si je ne peux pas l'expliquer correctement, cela m'attirera de gros ennuis. »
+Il se frotta le menton et songea: « Il ne me reste plus que le chant pour le troisième niveau. Si je retourne voir Sun Dazhu pour lui demander les chants des niveaux suivants et qu'il découvre que j'ai atteint le deuxième niveau, il me questionnera certainement sur la manière dont j'y suis parvenu. Si je ne peux pas l'expliquer correctement, cela m'attirera de gros ennuis. »
 
 Après avoir réfléchi un moment sans trouver de solution satisfaisante, il ne put s'empêcher de froncer les sourcils.
 
@@ -24,11 +24,11 @@ Dans un soupir, Wang Lin commença à pratiquer la Technique d'Attraction de For
 
 Un autre mois s'écoula. Le comportement de Wang Lin à la maison des corvées ne cessait d'irriter les disciples honoraires. L'hiver était arrivé et la secte commençait à se préparer pour la compétition annuelle des disciples internes.
 
-Cette année marquait la compétition des disciples honoraires du Secte Heng Yue, un événement qui n'avait lieu que tous les dix ans. Si l'un d'eux se classait parmi les trois premiers, il deviendrait un disciple interne. Tous les disciples honoraires affinaient leurs techniques de combat et complotaient secrètement.
+Cette année marquait la compétition des disciples honoraires de la Secte Heng Yue, un événement qui n'avait lieu que tous les dix ans. Si l'un d'eux se classait parmi les trois premiers, il deviendrait un disciple interne. Tous les disciples honoraires affinaient leurs techniques de combat et complotaient secrètement.
 
 Par conséquent, les tâches liées à la maison des corvées subissaient des retards, car chacun était trop occupé.
 
-Wang Lin était très déçu de devoir encore s'occuper de la maison des corvées. Quant à la compétition des disciples internes, il n'avait nullement l'intention d'y participer. S'il avait du temps libre, pourquoi ne pas le consacrer plutôt à sa cultivation dans l'espace de rêve ?
+Wang Lin était très déçu de devoir encore s'occuper de la maison des corvées. Quant à la compétition des disciples internes, il n'avait nullement l'intention d'y participer. S'il avait du temps libre, pourquoi ne pas le consacrer plutôt à sa culture dans l'espace de rêve?
 
 Ce jour-là, la neige commença à tomber sur la montagne Heng Yue. De loin, le paysage ressemblait à un royaume de givre.
 
@@ -38,32 +38,32 @@ En regardant vers sa demeure, il se remémora l'époque où ses parents maintena
 
 Il s'asseyait près du foyer pour lire. Son père sculptait à ses côtés, tandis que sa mère préparait les légumes marinés. Parfois, fatigué de sa lecture, il s'asseyait près de son père pour le regarder travailler. Lorsqu'il était d'humeur enjouée, il allait l'aider. Il y avait tant de joie entre eux.
 
-Wang Lin se souvint également des toupies en bois sous son lit ; il les sortait parfois pour jouer sur la glace avec les enfants du voisinage.
+Wang Lin se souvint également des toupies en bois sous son lit; il les sortait parfois pour jouer sur la glace avec les enfants du voisinage.
 
-En pensant à tout cela, Wang Lin prit une profonde inspiration. Un cultivateur doit rompre tous ses liens mortels, et ces souvenirs n'étaient que des distractions susceptibles de perturber sa cultivation. Wang Lin ferma les yeux. Lorsqu'il les rouvrit, son esprit était limpide. Il ne pouvait rompre tous ses liens avec le monde mortel ; il choisit donc de les enfouir profondément dans son cœur.
+En pensant à tout cela, Wang Lin prit une profonde inspiration. Un cultivateur doit rompre tous ses liens mortels, et ces souvenirs n'étaient que des distractions susceptibles de perturber sa culture. Wang Lin ferma les yeux. Lorsqu'il les rouvrit, son esprit était limpide. Il ne pouvait rompre tous ses liens avec le monde mortel; il choisit donc de les enfouir profondément dans son cœur.
 
 Alors qu'il était plongé dans ses souvenirs, son expression changea soudainement. Étant désormais au deuxième niveau de la Condensation de Qi, il avait éveillé sa capacité de Sens Divin. Tout cela était décrit dans l'ouvrage sur les Trois Niveaux de la Condensation de Qi.
 
-Grâce à un balayage de son Sens Divin, il perçut que Wang Hao se dirigeait vers lui. Un instant plus tard, la porte s'ouvrit. Wang Hao entra, coiffé d'un bonnet et vêtu d'un manteau de cuir. Il regarda Wang Lin avec surprise et dit : « Frère Tie Zhu, n'as-tu pas froid ? Tu es si peu vêtu et tu restes dehors ainsi. »
+Grâce à un balayage de son Sens Divin, il perçut que Wang Hao se dirigeait vers lui. Un instant plus tard, la porte s'ouvrit. Wang Hao entra, coiffé d'un bonnet et vêtu d'un manteau de cuir. Il regarda Wang Lin avec surprise et dit: « Frère Tie Zhu, n'as-tu pas froid? Tu es si peu vêtu et tu restes dehors ainsi. »
 
-Wang Lin eut un petit rire : « J'avais calculé que tu viendrais me voir, alors je suis sorti pour t'accueillir, petit coquin. » Il ne ressentait aucune fraîcheur. Depuis qu'il avait atteint le deuxième niveau de la Condensation de Qi, il sentait que son corps était bien plus vigoureux qu'auparavant.
+Wang Lin eut un petit rire: « J'avais calculé que tu viendrais me voir, alors je suis sorti pour t'accueillir, petit coquin. » Il ne ressentait aucune fraîcheur. Depuis qu'il avait atteint le deuxième niveau de la Condensation de Qi, il sentait que son corps était bien plus vigoureux qu'auparavant.
 
-Wang Hao eut un sourire en coin. Il entra et observa attentivement Wang Lin avant de dire : « Frère Tie Zhu, comment se fait-il que je te trouve un peu différent d'il y a quelques mois ? »
+Wang Hao eut un sourire en coin. Il entra et observa attentivement Wang Lin avant de dire: « Frère Tie Zhu, comment se fait-il que je te trouve un peu différent d'il y a quelques mois? »
 
-Répondit Wang Lin : « C'est naturel. J'ai atteint le deuxième niveau de la Condensation de Qi ; je peux désormais me considérer comme un immortel ! »
+Répondit Wang Lin: « C'est naturel. J'ai atteint le deuxième niveau de la Condensation de Qi; je peux désormais me considérer comme un immortel! »
 
-La bouche de Wang Hao se crispa. Il entra dans la pièce et rétorqua : « Ne te vante pas. Nos talents sont à peu près de même niveau. J'ai bénéficié de l'aide de pilules immortelles et je n'ai toujours pas atteint le premier niveau. Alors toi, atteindre le deuxième ? Impossible. »
+La bouche de Wang Hao se crispa. Il entra dans la pièce et rétorqua: « Ne te vante pas. Nos talents sont à peu près de même niveau. J'ai bénéficié de l'aide de pilules immortelles et je n'ai toujours pas atteint le premier niveau. Alors toi, atteindre le deuxième? Impossible. »
 
-Wang Lin ne chercha pas à se justifier. Parfois, dire la vérité ne suffisait pas à être cru, et mentir risquait d'éveiller des soupçons. De toute façon, ses liens avec Wang Hao n'étaient pas profonds ; mieux valait rester sur ses gardes. Accorder sa confiance au premier regard n'était pas dans les habitudes de Wang Lin.
+Wang Lin ne chercha pas à se justifier. Parfois, dire la vérité ne suffisait pas à être cru, et mentir risquait d'éveiller des soupçons. De toute façon, ses liens avec Wang Hao n'étaient pas profonds; mieux valait rester sur ses gardes. Accorder sa confiance au premier regard n'était pas dans les habitudes de Wang Lin.
 
-« Wang Hao, comment se fait-il que tu aies le temps de me rendre visite aujourd'hui ? La maison des pilules n'est-elle pas trop occupée ? » Wang Lin retourna à l'intérieur et versa une tasse d'eau chaude à son visiteur.
+« Wang Hao, comment se fait-il que tu aies le temps de me rendre visite aujourd'hui? La maison des pilules n'est-elle pas trop occupée? » Wang Lin retourna à l'intérieur et versa une tasse d'eau chaude à son visiteur.
 
-Wang Hao prit la tasse, souffla sur l'eau quelques fois, puis en prit une gorgée. Il sourit : « Tu n'es pas allé chercher tes provisions à la maison des pilules ces derniers mois. J'ai gardé ta part et je suis venu te la livrer aujourd'hui. » Tout en parlant, il sortit un petit paquet et le posa sur la table.
+Wang Hao prit la tasse, souffla sur l'eau quelques fois, puis en prit une gorgée. Il sourit: « Tu n'es pas allé chercher tes provisions à la maison des pilules ces derniers mois. J'ai gardé ta part et je suis venu te la livrer aujourd'hui. » Tout en parlant, il sortit un petit paquet et le posa sur la table.
 
 Un léger sourire apparut sur les lèvres de Wang Lin. Sans même regarder le paquet, il fixa Wang Hao du regard. Il ne croyait pas un instant que Wang Hao soit venu uniquement pour une livraison.
 
-Intimidé par ce regard, Wang Hao finit par dire, embarrassé : « Tie Zhu, j'ai entendu dire que tu t'en sortais très bien à la maison des corvées ces derniers mois. »
+Intimidé par ce regard, Wang Hao finit par dire, embarrassé: « Tie Zhu, j'ai entendu dire que tu t'en sortais très bien à la maison des corvées ces derniers mois. »
 
-Wang Lin se servit de l'eau. Il en prit une gorgée et dit : « Wang Hao, dis ce que tu as à dire. Si je peux t'aider, je le ferai sans hésiter ! »
+Wang Lin se servit de l'eau. Il en prit une gorgée et dit: « Wang Hao, dis ce que tu as à dire. Si je peux t'aider, je le ferai sans hésiter! »
 
-L'expression de Wang Hao devint malaisée. Il se rapprocha et murmura d'un ton mystérieux : « Frère Tie Zhu, j'ai toujours su que tu étais quelqu'un d'intelligent. Pour être honnête, je sais que tu possèdes beaucoup de talismans permettant aux disciples honoraires de rendre visite à leur famille. Peux-tu m'en prêter quelques-uns ? »
+L'expression de Wang Hao devint malaisée. Il se rapprocha et murmura d'un ton mystérieux: « Frère Tie Zhu, j'ai toujours su que tu étais quelqu'un d'intelligent. Pour être honnête, je sais que tu possèdes beaucoup de talismans permettant aux disciples honoraires de rendre visite à leur famille. Peux-tu m'en prêter quelques-uns? »

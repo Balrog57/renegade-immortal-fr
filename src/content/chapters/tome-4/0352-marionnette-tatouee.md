@@ -10,7 +10,7 @@ Grâce à cette hésitation, Wang Lin sentit la pression autour de lui se relâc
 
 Les yeux du vieil homme s'animèrent d'une lueur mystérieuse avant qu'il ne se lance à la poursuite de Wang Lin.
 
-Wang Lin soupira intérieurement ; bien qu'il eût passé énormément de temps à affiner ce parchemin, il ne savait toujours pas comment s'en servir. Plus tôt, il n'avait véritablement aucun autre moyen de faire face au vieil homme, ce qui l'avait contraint à sortir le parchemin, sans savoir s'il devait l'utiliser, le déchirer ou le jeter.
+Wang Lin soupira intérieurement; bien qu'il eût passé énormément de temps à affiner ce parchemin, il ne savait toujours pas comment s'en servir. Plus tôt, il n'avait véritablement aucun autre moyen de faire face au vieil homme, ce qui l'avait contraint à sortir le parchemin, sans savoir s'il devait l'utiliser, le déchirer ou le jeter.
 
 Cependant, la pause du vieil homme en voyant le parchemin avait permis à Wang Lin de modifier ses plans et de profiter de cet instant pour s'échapper rapidement.
 
@@ -22,25 +22,25 @@ Dès que la faille se manifesta, elle commença à se résorber. Wang Lin s'y en
 
 À l'instant précis où il pénétra dans la faille, le vieil homme arriva. Ce dernier laissa échapper un grognement et s'engouffra lui aussi dans la brèche pour poursuivre sa proie.
 
-Dès son entrée dans la faille, un vent violent frappa le corps de Wang Lin. D'innombrables micro-organismes étaient portés par cette bourrasque ; chaque impact sur sa peau déclenchait une douleur fulgurante. Même son âme originelle vacillait, telle une flamme dans la tempête.
+Dès son entrée dans la faille, un vent violent frappa le corps de Wang Lin. D'innombrables micro-organismes étaient portés par cette bourrasque; chaque impact sur sa peau déclenchait une douleur fulgurante. Même son âme originelle vacillait, telle une flamme dans la tempête.
 
 Bien qu'il connût les dangers des failles spatiales, Wang Lin en fut profondément ébranlé. Mais le véritable péril consistait à s'égarer dans le vide et à ne jamais retrouver la sortie.
 
-Dans ce néant, un vent glacial pouvait éteindre une âme originelle. L'obscurité y était totale ; il ne pouvait rien distinguer.
+Dans ce néant, un vent glacial pouvait éteindre une âme originelle. L'obscurité y était totale; il ne pouvait rien distinguer.
 
 Le vent glacial redoublait de force. Wang Lin frappa rapidement son sac de rangement pour en sortir la boussole stellaire. Il s'assit dessus et s'élança à toute vitesse, utilisant son énergie spirituelle pour chasser l'air glacé qui s'était infiltré dans son corps.
 
-C'était précisément la raison pour laquelle il avait choisi la faille spatiale : seul dans le vide pouvait-il utiliser la boussole stellaire. C'était son unique moyen de se déplacer plus vite que le vieil homme et d'échapper à sa poursuite.
+C'était précisément la raison pour laquelle il avait choisi la faille spatiale: seul dans le vide pouvait-il utiliser la boussole stellaire. C'était son unique moyen de se déplacer plus vite que le vieil homme et d'échapper à sa poursuite.
 
 Le vieil homme, entré à son tour dans la faille, agita la main pour qu'un tatouage apparaisse sur la brèche, l'empêchant ainsi de se refermer.
 
-Le vieil homme murmura pour lui-même : « Ce parchemin ressemble étrangement au trésor sacré de mon clan, au onzième étage... » Le vent glacial n'avait aucun effet sur lui. Lorsqu'il frappait son corps, non seulement il ne ressentait aucun inconfort, mais cela lui procurait une sensation agréable.
+Le vieil homme murmura pour lui-même: « Ce parchemin ressemble étrangement au trésor sacré de mon clan, au onzième étage... » Le vent glacial n'avait aucun effet sur lui. Lorsqu'il frappait son corps, non seulement il ne ressentait aucun inconfort, mais cela lui procurait une sensation agréable.
 
 Après une brève réflexion, le vieil homme reprit sa poursuite.
 
-Assis sur la boussole, Wang Lin se concentrait de toutes ses forces sur sa maîtrise. Il progressait à une vitesse fulgurante sans rencontrer aucune forme de vie ; c'était comme si cet endroit n'était qu'un vide noir et infini.
+Assis sur la boussole, Wang Lin se concentrait de toutes ses forces sur sa maîtrise. Il progressait à une vitesse fulgurante sans rencontrer aucune forme de vie; c'était comme si cet endroit n'était qu'un vide noir et infini.
 
-Cela différait nettement du vide qu'il avait connu jusqu'alors. Le sentiment de danger pesant derrière lui persistait ; le vieil homme le talonnait sans relâche.
+Cela différait nettement du vide qu'il avait connu jusqu'alors. Le sentiment de danger pesant derrière lui persistait; le vieil homme le talonnait sans relâche.
 
 L'expression de Wang Lin devint sombre alors qu'il poussait la boussole stellaire dans ses derniers retranchements.
 
@@ -62,7 +62,7 @@ L'esprit continua de rugir tout en lançant des regards féroces vers Wang Lin.
 
 Wang Lin leva les yeux vers la créature et traça un autre sceau. Bientôt, les pointes du char de guerre se mirent à émettre une lueur noire.
 
-Wang Lin se retourna pour se concentrer sur le contrôle de la boussole stellaire. Il savait que l'activation du char demandait du temps ; d'après son expérience, cela prendrait le temps qu'une tige d'encens mettrait à brûler.
+Wang Lin se retourna pour se concentrer sur le contrôle de la boussole stellaire. Il savait que l'activation du char demandait du temps; d'après son expérience, cela prendrait le temps qu'une tige d'encens mettrait à brûler.
 
 Peu après, l'esprit bestial eut fini d'absorber la lumière noire émanant des pointes. La bête grandit en taille. Durant ce processus, elle tenta de dévorer Wang Lin à plusieurs reprises, mais fut systématiquement retenue par les chaînes.
 
@@ -74,7 +74,7 @@ Au même instant, une puissante force d'âme se propagea. Dès que Wang Lin per�
 
 Les chaînes retenant l'esprit bestial disparurent soudainement, mais le lien entre la créature et Wang Lin demeura.
 
-L'esprit bestial fixa avec fureur le vieil homme à la silhouette voûtée. La bête voulait tout dévorer ; ce n'était qu'après avoir assouvi cet appétit qu'elle pourrait apaiser sa rage.
+L'esprit bestial fixa avec fureur le vieil homme à la silhouette voûtée. La bête voulait tout dévorer; ce n'était qu'après avoir assouvi cet appétit qu'elle pourrait apaiser sa rage.
 
 L'expression du vieil homme changea instantanément et il s'interrompit. Il toucha rapidement les tatouages sur son corps, qui s'envolèrent soudainement pour léviter à quelques centimètres de sa peau.
 
@@ -82,13 +82,13 @@ C'est à ce moment précis que l'esprit bestial fondit sur lui en poussant un ru
 
 Ce qui l'arrêta, c'étaient divers tatouages brillant d'un éclat sauvage.
 
-Toutefois, le Char de Guerre du Dieu Massacreur était si puissant que le vieil homme fut repoussé sur mille pieds. Ses yeux devinrent injectés de sang alors qu'il laissait échapper un rugissement ; les tatouages s'écartèrent de son corps, passant de trois à cinq pouces de distance.
+Toutefois, le Char de Guerre du Dieu Massacreur était si puissant que le vieil homme fut repoussé sur mille pieds. Ses yeux devinrent injectés de sang alors qu'il laissait échapper un rugissement; les tatouages s'écartèrent de son corps, passant de trois à cinq pouces de distance.
 
 L'esprit bestial rugit tout en étant lentement repoussé.
 
 Les yeux du vieil homme devinrent encore plus rouges alors qu'il s'apprêtait à écarter la bête. Mais Wang Lin ricana. Il sortit son épée céleste et l'abattit sur le vieil homme.
 
-« Tant qu'il est immobile, je prendrai sa vie ! »
+« Tant qu'il est immobile, je prendrai sa vie! »
 
 Wang Lin était coutumier de ce genre de manœuvres. Alors que l'épée descendait, un rayon de lumière noire fut projeté.
 
@@ -110,11 +110,11 @@ Voyant que la bête était sur le point de le dévorer, les yeux du vieil homme 
 
 Le bracelet libéra instantanément des ondes de lumière spectrale et un tatouage apparut.
 
-Ce tatouage était brisé, incomplet ; certaines parties manquaient même manifestement. Pourtant, ce motif fit frissonner Wang Lin jusqu'aux os.
+Ce tatouage était brisé, incomplet; certaines parties manquaient même manifestement. Pourtant, ce motif fit frissonner Wang Lin jusqu'aux os.
 
 Dès l'apparition du tatouage, le vide environnant fut baigné d'une lumière verte.
 
-Le vieil homme déclara d'une voix lente : « Voici mon tatouage d'illumination. C'est en l'étudiant que j'ai pu atteindre le stade des sept feuilles. Maintenant que tu l'as vu, junior, tu peux mourir en paix ! »
+Le vieil homme déclara d'une voix lente: « Voici mon tatouage d'illumination. C'est en l'étudiant que j'ai pu atteindre le stade des sept feuilles. Maintenant que tu l'as vu, junior, tu peux mourir en paix! »
 
 Le tatouage brilla une fois, provoquant chez l'esprit bestial l'exhalaison d'un gaz vert sur tout son corps. La bête poussa un rugissement et regarda le tatouage avec une profonde réticence dans les yeux.
 

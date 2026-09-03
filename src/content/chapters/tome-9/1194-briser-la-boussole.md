@@ -22,11 +22,11 @@ Au moment où les runes chutèrent, Wang Lin serra les dents et tendit sa main g
 
 Un fracas tonitruant retentit et Wang Lin cracha du sang. De nombreuses runes percutèrent son corps, laissant des empreintes profondes, et chaque impact faisait trembler son être.
 
-Ses yeux étaient empreints de folie. C'était là le tempérament de Wang Lin : plus le moment était critique et dangereux, plus il restait calme, tout en laissant poindre une pointe de démence.
+Ses yeux étaient empreints de folie. C'était là le tempérament de Wang Lin: plus le moment était critique et dangereux, plus il restait calme, tout en laissant poindre une pointe de démence.
 
-Le calme et la folie n'étaient pas contradictoires. Un jugement serein, mais des actions insensées !
+Le calme et la folie n'étaient pas contradictoires. Un jugement serein, mais des actions insensées!
 
-La boussole devait être détruite, sans quoi elle continuerait de traquer Wang Lin et de le mettre en danger. De plus, avec un tel objet à ses trousses, il resterait à la merci des deux ennemis présents dans ce lieu !
+La boussole devait être détruite, sans quoi elle continuerait de traquer Wang Lin et de le mettre en danger. De plus, avec un tel objet à ses trousses, il resterait à la merci des deux ennemis présents dans ce lieu!
 
 Alors que sa main gauche agrippait le trident, la folie dans son regard s'intensifia. Il savait qu'il ne lui restait plus beaucoup de temps avant de perdre connaissance. Ses blessures s'aggravant, il risquait de sombrer à tout instant. Il devait briser cette boussole et trouver un endroit pour se soigner.
 
@@ -34,23 +34,23 @@ Le temps pressait. Wang Lin prit une profonde inspiration, l'intention de combat
 
 Le tonnerre grondait tandis que les éclairs serpentaient sur le sol. La terre craquait sous la progression fulgurante de la foudre. Les vestiges de son pouvoir d'Ancien Dieu quittèrent sa main droite pour se rassembler dans le trident qu'il tenait du bras gauche.
 
-À cet instant, un rugissement qui défiait les cieux retentit et Wang Lin s'élança ! Une mer de flammes surgit soudainement et une silhouette d'oiseau vermillon enveloppa Wang Lin. C'était comme si l'homme avait pris le contrôle de tous les feux du monde pour charger la boussole !
+À cet instant, un rugissement qui défiait les cieux retentit et Wang Lin s'élança! Une mer de flammes surgit soudainement et une silhouette d'oiseau vermillon enveloppa Wang Lin. C'était comme si l'homme avait pris le contrôle de tous les feux du monde pour charger la boussole!
 
 Au moment de son assaut, le tonnerre rugit et s'éleva dans les airs avec lui. La foudre monta à ses côtés pour former une montagne de tonnerre.
 
-Une montagne faite de foudre !
+Une montagne faite de foudre!
 
-Wang Lin se trouvait au sommet de cette cime ! La montagne de tonnerre grandit jusqu'à se condenser autour du corps de Wang Lin, comme s'il l'avait totalement absorbée.
+Wang Lin se trouvait au sommet de cette cime! La montagne de tonnerre grandit jusqu'à se condenser autour du corps de Wang Lin, comme s'il l'avait totalement absorbée.
 
-Porté par la puissance du tonnerre et du feu, Wang Lin était tel un météore enflammé. Il brandissait son trident en chargeant, traçant son propre chemin de cultivation défiant les cieux !
+Porté par la puissance du tonnerre et du feu, Wang Lin était tel un météore enflammé. Il brandissait son trident en chargeant, traçant son propre chemin de culture défiant les cieux!
 
 Sa vitesse devint de plus en plus fulgurante. Dès que les innombrables runes apparurent autour de la boussole, il fut sur elle. Le bruit de sa percée dans le ciel s'intensifia jusqu'à devenir un rugissement capable d'ébranler la terre.
 
-« Neuf Transformations Mystérieuses ! » Les yeux de Wang Lin devinrent injectés de sang alors qu'il se divisait soudainement en neuf parties avant de fusionner à nouveau en une seule. Une aura bien plus puissante que la précédente descendit sur son corps au sein de ce Royaume aux Sept Couleurs !
+« Neuf Transformations Mystérieuses! » Les yeux de Wang Lin devinrent injectés de sang alors qu'il se divisait soudainement en neuf parties avant de fusionner à nouveau en une seule. Une aura bien plus puissante que la précédente descendit sur son corps au sein de ce Royaume aux Sept Couleurs!
 
 Le cri du Vermillon résonna et la silhouette de Wang Lin devint éblouissante alors qu'il percutait la boussole. Un fracas assourdissant retentit. La boussole en rotation trembla et commença à s'effondrer. D'abord de simples fissures apparurent, puis elles se propagèrent jusqu'à recouvrir l'objet entier.
 
-Puis, dans un grand fracas, elle vola en éclats !
+Puis, dans un grand fracas, elle vola en éclats!
 
 Alors que les innombrables fragments se dispersaient, une silhouette rouge jaillit de la boussole brisée. Elle ne daigna même pas regarder en arrière avant de disparaître à l'horizon.
 
@@ -60,17 +60,17 @@ Les nombreux Perdus qui erraient alentour s'arrêtèrent tous. Ils levèrent la 
 
 Dans une montagne de la région extérieure du Royaume aux Sept Couleurs se trouvait une grotte cachée. Un homme robuste y était assis. Son visage était pâle et ses vêtements étaient tachés de sang. Ses yeux s'ouvrirent brusquement, et le grondement ainsi que les fluctuations qu'il ressentit le firent haleter.
 
-C'était Chen Tianjun !
+C'était Chen Tianjun!
 
-La vieille femme était piégée par la restriction à l'extérieur de la vallée et ne pouvait s'échapper rapidement. Elle devait subir les attaques incessantes des restrictions ; son visage était blême, mais ses yeux brûlaient d'une volonté farouche. Ses mains formaient continuellement des sceaux pour envoyer des contre-restrictions, mais la puissance de ce lieu dépassait l'entendement. La Restriction de la Vie et de la Mort s'était totalement fusionnée avec la restriction de l'Annihilation, lui échappant totalement. Elle subissait des assauts constants et ses blessures ne cessaient de s'aggraver.
+La vieille femme était piégée par la restriction à l'extérieur de la vallée et ne pouvait s'échapper rapidement. Elle devait subir les attaques incessantes des restrictions; son visage était blême, mais ses yeux brûlaient d'une volonté farouche. Ses mains formaient continuellement des sceaux pour envoyer des contre-restrictions, mais la puissance de ce lieu dépassait l'entendement. La Restriction de la Vie et de la Mort s'était totalement fusionnée avec la restriction de l'Annihilation, lui échappant totalement. Elle subissait des assauts constants et ses blessures ne cessaient de s'aggraver.
 
 Au moment où le rugissement céleste retentit, la vieille femme leva soudainement les yeux, perplexe et incertaine.
 
 Ce fracas résonna à travers tout le Royaume aux Sept Couleurs et franchit la chaîne de montagnes semblable à un mur. Il se propagea dans la brume, la faisant vibrer. Les nombreux Éveillés cessèrent leur chant pour la première fois, regardant autour d'eux avec stupeur.
 
-Dans la brume, entre les sourcils de l'immense statue marquée par un éclair sur le front, flottait un nuage de brouillard aux sept couleurs. L'âme originelle affaiblie de Maître Ashen Pine s'y trouvait pour se soigner. Lorsque le grondement survint, il leva brusquement la tête, saisi d'effroi !
+Dans la brume, entre les sourcils de l'immense statue marquée par un éclair sur le front, flottait un nuage de brouillard aux sept couleurs. L'âme originelle affaiblie de Maître Ashen Pine s'y trouvait pour se soigner. Lorsque le grondement survint, il leva brusquement la tête, saisi d'effroi!
 
-Cette fois, il fut véritablement terrifié !
+Cette fois, il fut véritablement terrifié!
 
 Il avait prévu que Wang Lin serait puissant, mais il n'avait jamais imaginé qu'il pourrait l'égaler et les blesser tous deux si gravement. En repensant à tous les trésors qu'il avait dépensés, il sentit son cœur saigner, particulièrement pour ces trois perles. Les perdre lui était une douleur atroce, tout comme la perte de l'épée de cristal. Cependant, comparé au clou aux sept couleurs, ces objets étaient insignifiants.
 
@@ -90,10 +90,10 @@ Le sens divin de Wang Lin devenait flou alors qu'il progressait rapidement. Il s
 
 Xu Liguo avait accompli sa tâche lorsque Wang Lin tuait Noble Money et avait été mis de côté par ce dernier. Maintenant qu'il était là, il s'apprêtait à se vanter, mais il vit immédiatement que les yeux de Wang Lin étaient clos et que son visage était d'un gris cendré. Ses yeux ne purent s'empêcher de dévier.
 
-Cependant, à cet instant précis, un reniflement froid retentit. Le corps de Xu Liguo trembla et il afficha aussitôt une expression de flatterie. Il savait déjà la puissance de cette femme-cadavre d'argent ; il n'oserait pas l'offenser.
+Cependant, à cet instant précis, un reniflement froid retentit. Le corps de Xu Liguo trembla et il afficha aussitôt une expression de flatterie. Il savait déjà la puissance de cette femme-cadavre d'argent; il n'oserait pas l'offenser.
 
-« Garde ! » ordonna la femme en argent d'une voix glaciale, avant de s'asseoir aux côtés de Wang Lin. En le regardant, une pointe de confusion et de tendresse perçait dans ses yeux.
+« Garde! » ordonna la femme en argent d'une voix glaciale, avant de s'asseoir aux côtés de Wang Lin. En le regardant, une pointe de confusion et de tendresse perçait dans ses yeux.
 
-Xu Liguo obtempéra aussitôt. Après avoir remarqué que la femme en argent ne lui prêtait plus attention et ne contemplait que le démon, il commença à feindre la garde. Pourtant, il pestait intérieurement :
+Xu Liguo obtempéra aussitôt. Après avoir remarqué que la femme en argent ne lui prêtait plus attention et ne contemplait que le démon, il commença à feindre la garde. Pourtant, il pestait intérieurement:
 
-« Qu'est-ce qu'il a de si beau, ce démon ? C'est votre Grand-père Xu qui est élégant, gracieux et magnifique. Hélas, je suis juste trop séduisant, et je n'y peux rien... » Xu Liguo soupirait dans son cœur, affichant une expression de grand regret.
+« Qu'est-ce qu'il a de si beau, ce démon? C'est votre Grand-père Xu qui est élégant, gracieux et magnifique. Hélas, je suis juste trop séduisant, et je n'y peux rien... » Xu Liguo soupirait dans son cœur, affichant une expression de grand regret.

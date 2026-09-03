@@ -10,7 +10,7 @@ L'âme errante luttait alors qu'elle se précipitait vers la matrice de transfer
 
 À mesure que l'âme errante se rapprochait, l'agitation au sein du groupe s'intensifia. L'âme errante percuta la barrière de protection lumineuse de la matrice de transfert.
 
-L'expression de Wang Lin resta impassible, mais il poussa un soupir intérieur. Dès que l'âme errante toucha la barrière, elle se mua en fumée. Les personnes à l'intérieur de la formation commencèrent à exulter ; elles se sentaient désormais investies d'une confiance nouvelle, persuadées que cette matrice pouvait les protéger.
+L'expression de Wang Lin resta impassible, mais il poussa un soupir intérieur. Dès que l'âme errante toucha la barrière, elle se mua en fumée. Les personnes à l'intérieur de la formation commencèrent à exulter; elles se sentaient désormais investies d'une confiance nouvelle, persuadées que cette matrice pouvait les protéger.
 
 « Nouveau dévoreur d'âmes, c'est inutile. Cette matrice de transfert est la porte vers le monde des vivants. Toute forme de vie spirituelle qui la touche sera instantanément anéantie par la loi du monde. »
 
@@ -22,7 +22,7 @@ Le regard de Wang Lin s'illumina lorsqu'il remarqua un détail concernant la bar
 
 Quant à la manière dont ces lignes noires surgissaient, Wang Lin était trop loin pour le voir. Son visage se voila de doute.
 
-Sans un mot, il déploya son sens divin, captura plus de mille âmes errantes et les projeta vers la matrice de transfert. Ces âmes s'élancèrent avec rapidité. Des cris retentirent parmi les occupants de la matrice. Les visages des cultivateurs pâlissaient de terreur. Lorsqu'il n'y avait qu'une ou deux âmes errantes, l'effroi était palpable ; quand elles étaient une dizaine, la panique s'installait ; mais face à plus de mille âmes errantes, le mot "peur" était impuissant ; il fallait plutôt parler de terreur absolue.
+Sans un mot, il déploya son sens divin, captura plus de mille âmes errantes et les projeta vers la matrice de transfert. Ces âmes s'élancèrent avec rapidité. Des cris retentirent parmi les occupants de la matrice. Les visages des cultivateurs pâlissaient de terreur. Lorsqu'il n'y avait qu'une ou deux âmes errantes, l'effroi était palpable; quand elles étaient une dizaine, la panique s'installait; mais face à plus de mille âmes errantes, le mot "peur" était impuissant; il fallait plutôt parler de terreur absolue.
 
 Certains fermèrent les yeux par désespoir, mais la plupart placèrent leurs derniers espoirs dans la barrière. Ils se préparèrent néanmoins au suicide si celle-ci venait à faillir, car ils préféraient mourir plutôt que d'être dévorés.
 
@@ -38,13 +38,13 @@ Le regard de Wang Lin devint glacial. Il projeta une nouvelle vague de son sens 
 
 À cet instant, les cultivateurs dans la matrice s'étaient enfin un peu apaisés, mais ils furent instantanément plongés dans un nouveau chaos. Ce n'était pas par manque de confiance envers la barrière, mais par l'effroi que les âmes errantes leur avaient inspiré tout au long du voyage.
 
-C'était comme être entouré d'une meute de loups affamés : même si vous étiez protégé par un brasier, la peur ne vous quitterait pas.
+C'était comme être entouré d'une meute de loups affamés: même si vous étiez protégé par un brasier, la peur ne vous quitterait pas.
 
 Sous le commandement de Wang Lin, les deux mille âmes errantes chargèrent. L'âme errante qui avait subi une mutation et qui l'avait suivi manifesta un regard implorant, n'osant point avancer.
 
 Wang Lin fixa cette âme. Bien que les âmes errantes possèdent une certaine intelligence, c'était la première qu'il voyait supplier ainsi. Son regard devint de plus en plus froid.
 
-L'âme errante poussa un cri. Incapable de supporter la pression du sens divin de Wang Lin, elle se précipita en avant. Dès son élan, elle se distingua nettement des autres ; les âmes errantes s'écartèrent sur son passage. Bien que leur crainte ne fût pas aussi grande que celle qu'ils éprouvaient envers Wang Lin, elles redoutaient visiblement cette entité.
+L'âme errante poussa un cri. Incapable de supporter la pression du sens divin de Wang Lin, elle se précipita en avant. Dès son élan, elle se distingua nettement des autres; les âmes errantes s'écartèrent sur son passage. Bien que leur crainte ne fût pas aussi grande que celle qu'ils éprouvaient envers Wang Lin, elles redoutaient visiblement cette entité.
 
 Au moment où les quelque deux mille âmes errantes percutèrent la barrière, des lignes noires surgirent et les anéantirent toutes. C'est précisément à cet instant que l'âme errante mutée atteignit la cible.
 
@@ -78,9 +78,9 @@ Xu Hao et Ge Yang avaient été particulièrement malchanceux. Juste après avoi
 
 Face à une telle détermination, leur survie était impossible. Ils furent rapidement dévorés. Comme ils n'avaient pas eu le temps de fouiller le sac de Mai Liang, cela signifiait au moins que son butin était intact.
 
-En examinant les trois sacs de rangement, Wang Lin fut stupéfait. Pierres spirituelles, trésors magiques ou matériaux rares : tout y était. Il fallait dire que cela représentait cinquante ans de travail pour ces deux-là.
+En examinant les trois sacs de rangement, Wang Lin fut stupéfait. Pierres spirituelles, trésors magiques ou matériaux rares: tout y était. Il fallait dire que cela représentait cinquante ans de travail pour ces deux-là.
 
-Rien qu'en pierres spirituelles de qualité moyenne, ils en possédaient plus de deux mille. Wang Lin prit une pierre et se remémora une formation qu'il avait passé tant de temps à étudier dans le monde de la décomposition : la Formation de Destruction de la Carapace de la Tortue Mystérieuse. Cette formation n'avait aucune capacité offensive, mais sa défense était exceptionnelle. C'était aussi l'une des rares formations capables de suivre son utilisateur lors de ses déplacements.
+Rien qu'en pierres spirituelles de qualité moyenne, ils en possédaient plus de deux mille. Wang Lin prit une pierre et se remémora une formation qu'il avait passé tant de temps à étudier dans le monde de la décomposition: la Formation de Destruction de la Carapace de la Tortue Mystérieuse. Cette formation n'avait aucune capacité offensive, mais sa défense était exceptionnelle. C'était aussi l'une des rares formations capables de suivre son utilisateur lors de ses déplacements.
 
 Une telle protection mobile exigeait une quantité colossale de pierres spirituelles. Wang Lin se dit qu'une fois qu'il aurait réuni suffisamment de ressources, il devrait mettre en place plusieurs de ces formations.
 
@@ -94,11 +94,11 @@ En observant les quarante-neuf symboles flottant devant lui, il ne put s'empêch
 
 Wang Lin sortit une autre pierre spirituelle pour servir de noyau à la formation. D'un geste de la main, il fit descendre les symboles un à un sur la pierre. À chaque contact, le symbole s'illuminait.
 
-Une fois les quarante-neuf symboles déposés, la pierre devint cristalline. Wang Lin la saisit ; elle était désormais le cœur de sa formation. Il pressa son doigt contre son front et une couche invisible enveloppa son corps. À moins d'un examen extrêmement attentif, on n'en percevrait aucune trace.
+Une fois les quarante-neuf symboles déposés, la pierre devint cristalline. Wang Lin la saisit; elle était désormais le cœur de sa formation. Il pressa son doigt contre son front et une couche invisible enveloppa son corps. À moins d'un examen extrêmement attentif, on n'en percevrait aucune trace.
 
 Peu après, il créa une seconde formation. À force de pratique, ses erreurs diminuaient et sa maîtrise augmentait. La deuxième ne lui coûta que soixante pierres spirituelles de qualité moyenne.
 
-Le temps s'écoulait lentement et, en un clin d'œil, l'instant de l'ouverture approchait. Tous les occupants de la matrice étaient sur le qui-vive, n'aspirant qu'à une chose : quitter ce lieu terrifiant.
+Le temps s'écoulait lentement et, en un clin d'œil, l'instant de l'ouverture approchait. Tous les occupants de la matrice étaient sur le qui-vive, n'aspirant qu'à une chose: quitter ce lieu terrifiant.
 
 Durant ces quelques jours, l'effondrement du champ de bataille étranger s'était intensifié. Les failles spatiales apparaissaient de plus en plus fréquemment et gagnaient en dimension à chaque occurrence. De pans entiers du champ de bataille commençaient à s'effondrer dans le néant.
 

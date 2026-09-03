@@ -8,15 +8,15 @@ slug: le-chagrin-de-xu-yun
 ---
 Tenant le petit drapeau doré, Wang Lin ferma lentement les yeux. Son regard brilla tandis qu'il méditait.
 
-« Utiliser des âmes féminines pour nourrir un Yin extrême est une erreur fondamentale ! Autrefois, l'Omniscient avait utilisé le corps au Yin extrême de Bai Wei pour en extraire le Yang extrême à son apogée. C'était là la méthode correcte. »
+« Utiliser des âmes féminines pour nourrir un Yin extrême est une erreur fondamentale! Autrefois, l'Omniscient avait utilisé le corps au Yin extrême de Bai Wei pour en extraire le Yang extrême à son apogée. C'était là la méthode correcte. »
 
-« Pour obtenir un Yin extrême véritable, il faut le saisir au sommet du Yang extrême ! »
+« Pour obtenir un Yin extrême véritable, il faut le saisir au sommet du Yang extrême! »
 
 Après avoir contemplé le drapeau doré, Wang Lin secoua la tête. D'un simple coup d'œil, il comprit que toutes ces innombrables âmes de femmes avaient été ajoutées tardivement, et ce, depuis peu de temps.
 
-« C’est une véritable absurdité ! » Wang Lin agita sa main droite, déclenchant une tempête à l'intérieur du drapeau doré. Son sens divin percuta les formations qui emprisonnaient ces âmes féminines et les brisa net.
+« C’est une véritable absurdité! » Wang Lin agita sa main droite, déclenchant une tempête à l'intérieur du drapeau doré. Son sens divin percuta les formations qui emprisonnaient ces âmes féminines et les brisa net.
 
-Au moment où les formations se déchirèrent, les âmes misérables s'échappèrent, leurs yeux emplis de confusion. Cependant, elles étaient toutes des figures talentueuses au sein de leurs propres sectes avant d'être tuées et scellées dans le drapeau par Rudy ; elles retrouvèrent donc rapidement la raison et se prosternèrent silencieusement devant Wang Lin. Elles laissèrent transparaître des traces d'amertume, de libération et de gratitude en se dissipant.
+Au moment où les formations se déchirèrent, les âmes misérables s'échappèrent, leurs yeux emplis de confusion. Cependant, elles étaient toutes des figures talentueuses au sein de leurs propres sectes avant d'être tuées et scellées dans le drapeau par Rudy; elles retrouvèrent donc rapidement la raison et se prosternèrent silencieusement devant Wang Lin. Elles laissèrent transparaître des traces d'amertume, de libération et de gratitude en se dissipant.
 
 Ce qui les attendait était peut-être la réincarnation dans une autre vie, ou peut-être le néant.
 
@@ -32,7 +32,7 @@ Ce flacon de jade était chaud et animait un cycle thermique interne. Une énerg
 
 Les trois pilules étaient de taille similaire et émettaient toutes une lueur pourpre. Une aura féroce émanait de leur cœur.
 
-Après avoir retiré son sens divin, le regard de Wang Lin se posa sur le troisième objet : un bâton d'encens de la taille d'un bras de nourrisson. Il n'était pas étranger à cet article. Dans l'Alliance, il l'avait vu dans les souvenirs de la bête moustique. Les cultivateurs de la Mer Nuageuse utilisaient cet encens pour confondre les bêtes moustiques et les détourner des Quatre Sectes Divines.
+Après avoir retiré son sens divin, le regard de Wang Lin se posa sur le troisième objet: un bâton d'encens de la taille d'un bras de nourrisson. Il n'était pas étranger à cet article. Dans l'Alliance, il l'avait vu dans les souvenirs de la bête moustique. Les cultivateurs de la Mer Nuageuse utilisaient cet encens pour confondre les bêtes moustiques et les détourner des Quatre Sectes Divines.
 
 Le temps s'écoula lentement et la saison des pluies s'estompa, laissant le soleil régner sur le continent de Mo Luo. Wang Lin semblait s'être accoutumé à la vie au sein de la Secte de l'Origine et passait tout son temps à étudier l'alchimie.
 
@@ -40,23 +40,23 @@ Xu Yun se montrait très respectueuse envers cet homme nommé Ceng Niu qui vivai
 
 Chaque fois qu'elle songeait à la silhouette de Wang Lin et à la grâce de ses mouvements, elle se sentait tendue. À cet instant, elle observait Wang Lin avec perplexité.
 
-« Ceci est de l'Herbe Ning Shui. C'est un ingrédient pour la création de pilules. La plupart des pilules de ma Secte de l'Origine nécessitent cela... » Lorsqu'un cultivateur de la Mer Nuageuse atteignait un certain niveau de cultivation, il acquérait une compréhension certaine de l'alchimie, étroitement liée aux méthodes de la Mer Nuageuse. Ce qui la déconcertait, c'était que Ceng Niu semblait ignorer tout ce qui était pourtant considéré comme du bon sens.
+« Ceci est de l'Herbe Ning Shui. C'est un ingrédient pour la création de pilules. La plupart des pilules de ma Secte de l'Origine nécessitent cela... » Lorsqu'un cultivateur de la Mer Nuageuse atteignait un certain niveau de culture, il acquérait une compréhension certaine de l'alchimie, étroitement liée aux méthodes de la Mer Nuageuse. Ce qui la déconcertait, c'était que Ceng Niu semblait ignorer tout ce qui était pourtant considéré comme du bon sens.
 
-Pour que Wang Lin puisse affiner des pilules, il devait d'abord mémoriser les noms et les propriétés de toutes les herbes. Certaines plantes qu'il connaissait de l'Alliance portaient des noms différents ici ; Xu Yun était donc devenue la cible privilégiée des interrogations de Wang Lin.
+Pour que Wang Lin puisse affiner des pilules, il devait d'abord mémoriser les noms et les propriétés de toutes les herbes. Certaines plantes qu'il connaissait de l'Alliance portaient des noms différents ici; Xu Yun était donc devenue la cible privilégiée des interrogations de Wang Lin.
 
 « Ceci est de l'Herbe Nuage d'Encre, un composant essentiel de la Pilule de Carence de Nuage. »
 
 L'expression de Wang Lin restait froide et calme. Il avait utilisé un temps très court pour mémoriser toutes les herbes de ce jardin.
 
-Wang Lin inspecta les alentours et demanda : « Y a-t-il de la Fleur de Brume ? » Le jade qu'il avait vu dans le temple taoïste indiquait que pour affiner une pilule de rang 6 ou supérieur, outre l'âme de bête, trois herbes encore plus cruciales étaient nécessaires. L'une d'elles était la Fleur de Brume.
+Wang Lin inspecta les alentours et demanda: « Y a-t-il de la Fleur de Brume? » Le jade qu'il avait vu dans le temple taoïste indiquait que pour affiner une pilule de rang 6 ou supérieur, outre l'âme de bête, trois herbes encore plus cruciales étaient nécessaires. L'une d'elles était la Fleur de Brume.
 
-« La Fleur de Brume ne pousse que sur les continents enveloppés par le brouillard stellaire. La rumeur veut que plus le brouillard est dense, plus on trouve de Fleurs de Brume. Dans la Secte de l'Origine, je n'en connais que trois exemplaires séchés, et ils sont tous chez l'Oncle-Maître Li. » Après avoir expliqué cela, Xu Yun ajouta :
+« La Fleur de Brume ne pousse que sur les continents enveloppés par le brouillard stellaire. La rumeur veut que plus le brouillard est dense, plus on trouve de Fleurs de Brume. Dans la Secte de l'Origine, je n'en connais que trois exemplaires séchés, et ils sont tous chez l'Oncle-Maître Li. » Après avoir expliqué cela, Xu Yun ajouta:
 
 « Le talent alchimique de l'Oncle-Maître Li est considéré comme inégalé dans toute la Secte de l'Origine. »
 
 Wang Lin hocha la tête et cessa de prêter attention à Xu Yun. Au lieu de cela, il rassembla quelques herbes selon la méthode d'alchimie qu'il avait lue et retourna dans sa demeure.
 
-En voyant Wang Lin emporter ces herbes, le cœur de Xu Yun se serra, mais elle n'osa pas le laisser paraître. Alors que Wang Lin regagnait sa chambre, elle s'exclama précipitamment : « Ceci... Cela nécessite que vous alliez dans la salle d'alchimie de la cour est. Non seulement on y trouve un fourneau, mais il y a aussi du feu terrestre et des formations de protection. Ainsi, même si le fourneau explose, il n'y aura aucun danger. »
+En voyant Wang Lin emporter ces herbes, le cœur de Xu Yun se serra, mais elle n'osa pas le laisser paraître. Alors que Wang Lin regagnait sa chambre, elle s'exclama précipitamment: « Ceci... Cela nécessite que vous alliez dans la salle d'alchimie de la cour est. Non seulement on y trouve un fourneau, mais il y a aussi du feu terrestre et des formations de protection. Ainsi, même si le fourneau explose, il n'y aura aucun danger. »
 
 « Ce n'est pas nécessaire. » Wang Lin ne se retourna même pas en entrant dans la pièce.
 
@@ -66,21 +66,21 @@ Les disciples de la secte le savaient tous et n'osaient pas venir ici pour cueil
 
 Si la pilule explosait, non seulement la maison serait détruite, mais le jardin lui-même en subirait les conséquences. Xu Yun frappa le sol de frustration, mais n'osa pas s'avancer pour l'interrompre.
 
-« Hmph, s'il refuse d'aller dans la salle d'alchimie, c'est qu'il doit avoir son propre fourneau. Il ne sait que s'appuyer sur sa cultivation élevée pour intimider une junior comme moi. Quel tyran ! » Plus Xu Yun y pensait, plus sa colère grandissait. Elle finit par s'asseoir dehors pour attendre. Si la pilule explosait, elle ferait de son mieux pour protéger les herbes. Une grande partie de l'affection qu'elle portait autrefois à Wang Lin s'était évaporée.
+« Hmph, s'il refuse d'aller dans la salle d'alchimie, c'est qu'il doit avoir son propre fourneau. Il ne sait que s'appuyer sur sa culture élevée pour intimider une junior comme moi. Quel tyran! » Plus Xu Yun y pensait, plus sa colère grandissait. Elle finit par s'asseoir dehors pour attendre. Si la pilule explosait, elle ferait de son mieux pour protéger les herbes. Une grande partie de l'affection qu'elle portait autrefois à Wang Lin s'était évaporée.
 
-« Arrogant, quel arrogant ! » En repensant au visage de Wang Lin, sa colère redoublait.
+« Arrogant, quel arrogant! » En repensant au visage de Wang Lin, sa colère redoublait.
 
-« Bien que l'alchimie ait un lien avec la cultivation, cela n'influe pas tant sur le résultat. Ce qui importe, c'est l'expérience et d'innombrables tentatives. Quel que soit le niveau de cultivation, le taux de réussite lors d'un premier essai ne peut être élevé ! » Xu Yun fronça les sourcils, tentant de se calmer tout en restant en garde, impuissante.
+« Bien que l'alchimie ait un lien avec la culture, cela n'influe pas tant sur le résultat. Ce qui importe, c'est l'expérience et d'innombrables tentatives. Quel que soit le niveau de culture, le taux de réussite lors d'un premier essai ne peut être élevé! » Xu Yun fronça les sourcils, tentant de se calmer tout en restant en garde, impuissante.
 
 Wang Lin ne se souciait guère du mécontentement de Xu Yun. De retour dans sa chambre, il s'assit et agita la main. Toutes les herbes qu'il avait cueillies flottèrent dans l'air. Son œil gauche s'illumina et des flammes commencèrent immédiatement à y brûler.
 
-L'alchimie ne nécessite pas forcément de fourneau ! Un fourneau sert avant tout à empêcher les principes médicinaux de s'échapper et à mieux condenser la chaleur pour que la pilule prenne forme.
+L'alchimie ne nécessite pas forcément de fourneau! Un fourneau sert avant tout à empêcher les principes médicinaux de s'échapper et à mieux condenser la chaleur pour que la pilule prenne forme.
 
 Rien de tout cela n'était un obstacle pour Wang Lin.
 
 Le feu du monde obéissait à sa volonté. À cet instant, des flammes blanches apparurent et encerclèrent Wang Lin. Le feu commença à se condenser jusqu'à former une sphère incandescente.
 
-Le regard de Wang Lin demeura calme tandis qu'il tendait la main droite. Les herbes en suspension se séparèrent en plusieurs groupes : une partie fut mise de côté, l'autre fut projetée dans la boule de feu.
+Le regard de Wang Lin demeura calme tandis qu'il tendait la main droite. Les herbes en suspension se séparèrent en plusieurs groupes: une partie fut mise de côté, l'autre fut projetée dans la boule de feu.
 
 C'était la première fois que Wang Lin affinait une pilule dans la Mer Nuageuse. Bien qu'il ne s'agisse que d'une pilule de rang 3, il se montrait extrêmement sérieux. Il fixa la sphère de feu et son regard en perça l'intimité.
 
@@ -100,8 +100,8 @@ Dès que la main de Wang Lin quitta la sphère, la pilule inachevée trembla et 
 
 Cependant, celle-ci fut contenue par la boule de feu qui l'enveloppait. On entendit quelques bruits étouffés, mais la sphère ne rompit pas.
 
-« Une explosion de pilule ! » Dehors, Xu Yun entendit les sons sourds et se leva brusquement, le cœur battant. Pourtant, après avoir attendu un moment, l'explosion ne vint pas. Elle ne vit que Wang Lin sortir d'un air sombre, emportant encore plus d'herbes avec lui.
+« Une explosion de pilule! » Dehors, Xu Yun entendit les sons sourds et se leva brusquement, le cœur battant. Pourtant, après avoir attendu un moment, l'explosion ne vint pas. Elle ne vit que Wang Lin sortir d'un air sombre, emportant encore plus d'herbes avec lui.
 
-Xu Yun finit par réagir et frappa le sol de rage. Elle aurait voulu exiger justice auprès de Wang Lin, mais en repensant à son expression austère de tout à l'heure, elle fut saisie de crainte. Elle ne put que se plaindre intérieurement :
+Xu Yun finit par réagir et frappa le sol de rage. Elle aurait voulu exiger justice auprès de Wang Lin, mais en repensant à son expression austère de tout à l'heure, elle fut saisie de crainte. Elle ne put que se plaindre intérieurement:
 
-« Quel tyran ! Hmph, cette pilule finira par exploser, c'est certain ! »
+« Quel tyran! Hmph, cette pilule finira par exploser, c'est certain! »

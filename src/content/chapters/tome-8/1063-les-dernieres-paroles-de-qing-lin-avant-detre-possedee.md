@@ -6,9 +6,9 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1063 - Qing Lins Words Before Being Possessed
 slug: les-dernieres-paroles-de-qing-lin-avant-detre-possedee
 ---
-Le Maître du Vide fixa Wang Lin. Après avoir été contraint de réprimer sa colère pendant si longtemps, il ne pouvait plus se contenir. À cet instant, oubliant qu'il ne devait pas perdre son sang-froid aussi facilement compte tenu de la chute de sa cultivation, il chargea Wang Lin.
+Le Maître du Vide fixa Wang Lin. Après avoir été contraint de réprimer sa colère pendant si longtemps, il ne pouvait plus se contenir. À cet instant, oubliant qu'il ne devait pas perdre son sang-froid aussi facilement compte tenu de la chute de sa culture, il chargea Wang Lin.
 
-« Petit bâtard, je vais te dépécer vivant aujourd'hui ! »
+« Petit bâtard, je vais te dépécer vivant aujourd'hui! »
 
 Wang Lin recula rapidement, le regard devenu glacial.
 
@@ -18,11 +18,11 @@ Les yeux de l'Omniscient s'illuminèrent. Il s'élança et sa main droite toucha
 
 Un fracas retentit lors de la collision entre les deux énergies. L'Omniscient profita de cette force pour reculer sans hésitation.
 
-Ce changement soudain ébranla l'esprit du Maître du Vide. Cependant, cela ne le détourna pas de son intention de tuer Wang Lin ; il se déplaça même plus rapidement encore.
+Ce changement soudain ébranla l'esprit du Maître du Vide. Cependant, cela ne le détourna pas de son intention de tuer Wang Lin; il se déplaça même plus rapidement encore.
 
 L'homme sur la gourde, voyant que même l'Omniscient avait été repoussé, vit son visage se transformer en une expression d'horreur. Il recula sans hésiter, mais il était déjà trop tard.
 
-Le tourbillon du brouillard noir atteignit son apogée dans un fracas de grondements assourdissants. Puis, un gémissement étouffé retentit alors que Bei Lou était impitoyablement projeté hors du brouillard noir, projetant des éclaboussures de sang partout. L'énergie démoniaque dispersée autour de Bei Lou se rassembla rapidement ; ses yeux étaient empreints d'une rancœur dense.
+Le tourbillon du brouillard noir atteignit son apogée dans un fracas de grondements assourdissants. Puis, un gémissement étouffé retentit alors que Bei Lou était impitoyablement projeté hors du brouillard noir, projetant des éclaboussures de sang partout. L'énergie démoniaque dispersée autour de Bei Lou se rassembla rapidement; ses yeux étaient empreints d'une rancœur dense.
 
 Derrière lui, le brouillard noir se contracta brusquement et, en un instant, il se rétracta pour redevenir l'ancien démon blindé.
 
@@ -32,9 +32,9 @@ L'horreur se lut dans les yeux de l'homme sur la gourde alors qu'il tentait de r
 
 Une énergie d'une acuité inimaginable fit changer radicalement l'expression de l'homme. Sans avoir le temps de réfléchir, il utilisa la gourde sous ses pieds comme bouclier et frappa l'objet de sa paume droite.
 
-Pourtant, au moment même où un sort jaillissait de la gourde, la lame passa en éclair ; la gourde émit un craquement sinistre avant de se fendre en deux. En regardant en bas, l'homme fut terrifié de constater que son corps était déjà tranché en deux.
+Pourtant, au moment même où un sort jaillissait de la gourde, la lame passa en éclair; la gourde émit un craquement sinistre avant de se fendre en deux. En regardant en bas, l'homme fut terrifié de constater que son corps était déjà tranché en deux.
 
-Même son âme originelle n'eut pas le temps de s'échapper ; elle fut détruite par la lame alors qu'elle résidait encore dans son corps.
+Même son âme originelle n'eut pas le temps de s'échapper; elle fut détruite par la lame alors qu'elle résidait encore dans son corps.
 
 Tout cela se produisit en un instant. L'Ancien Démon Ta Jia ne marqua aucune pause après avoir dépassé l'homme sur la gourde. Le corps de ce dernier s'effondra soudainement...
 
@@ -42,13 +42,13 @@ Cette scène fit pousser un cri de stupeur chez tous les spectateurs. L'homme en
 
 Des gouttes de sang dégoulinaient de la lame. L'ancien démon afficha une expression hideuse avant de poursuivre Bei Lou.
 
-« Bei Lou, autrefois, je ne t'ai pas tué parce que nos ancêtres appartenaient au même clan, mais puisque tu es venu chercher la mort, ce démon ne peut que combler ton désir ! »
+« Bei Lou, autrefois, je ne t'ai pas tué parce que nos ancêtres appartenaient au même clan, mais puisque tu es venu chercher la mort, ce démon ne peut que combler ton désir! »
 
-« Foutaises ! À l'époque, nous avions convenu que je prendrais le corps et que tu prendrais les souvenirs. Si tu n'avais pas trahi notre accord, ce corps m'aurait appartenu ! » rugit Bei Lou en reculant.
+« Foutaises! À l'époque, nous avions convenu que je prendrais le corps et que tu prendrais les souvenirs. Si tu n'avais pas trahi notre accord, ce corps m'aurait appartenu! » rugit Bei Lou en reculant.
 
-L'ancien démon blindé esquissa un sourire moqueur, la lame à la main : « C'est simplement que j'ai été un peu plus rapide. Si j'avais agi plus tard, nos rôles auraient été inversés ! » Sur ces mots, il abattit sa lame sur Bei Lou.
+L'ancien démon blindé esquissa un sourire moqueur, la lame à la main: « C'est simplement que j'ai été un peu plus rapide. Si j'avais agi plus tard, nos rôles auraient été inversés! » Sur ces mots, il abattit sa lame sur Bei Lou.
 
-« Révèle ta forme de démon pour ce démon ! »
+« Révèle ta forme de démon pour ce démon! »
 
 Une lame d'une taille phénoménale apparut dans le monde, comme si elle pouvait fendre le ciel en deux. Lorsque l'ancien démon frappa, un grondement tonitruant retentit.
 
@@ -56,7 +56,7 @@ Un rayon d'énergie tranchante, long de centaines de milliers de pieds, apparut 
 
 L'énergie de la lame pénétra le corps de Bei Lou et s'écrasa au sol. Un puissant fracas retentit alors que le sol s'effondrait, créant un ravin d'une profondeur inconnue.
 
-Le corps de Bei Lou fut tranché en deux et s'effondra en un amas de chair et de sang. Cependant, alors que son corps se désagrégeait, une lumière démoniaque verte jaillit dans les airs et se mua instantanément en un ancien démon de mille pieds de haut !
+Le corps de Bei Lou fut tranché en deux et s'effondra en un amas de chair et de sang. Cependant, alors que son corps se désagrégeait, une lumière démoniaque verte jaillit dans les airs et se mua instantanément en un ancien démon de mille pieds de haut!
 
 C'était le véritable corps de l'Ancien Démon Bei Lou. Dès qu'il apparut, il recula à une vitesse fulgurante. L'ancien démon laissa échapper un reniflement froid et le poursuivit de sa lame. Quant aux autres, il ne les considérait nullement comme des menaces. Hormis l'ancien démon, la seule autre présence méritant son attention était cette dégoûtante aura d'ancien dieu qu'il avait ressentie lors de son apparition.
 
@@ -70,7 +70,7 @@ Wang Lin changea immédiatement de direction sans s'arrêter. Il atteignit en un
 
 S'approchant d'elle, Wang Lin rassembla une énergie d'origine de feu dans sa main et la pressa entre les sourcils de la jeune femme sans hésiter. L'énergie de feu traversa son corps et la réveilla.
 
-« Aînée, je vous en prie, ouvrez rapidement le passage pour quitter cet endroit ! » Wang Lin n'eut pas le temps d'expliquer davantage et envoya un message rapide à Hu Juan dès qu'elle reprit connaissance.
+« Aînée, je vous en prie, ouvrez rapidement le passage pour quitter cet endroit! » Wang Lin n'eut pas le temps d'expliquer davantage et envoya un message rapide à Hu Juan dès qu'elle reprit connaissance.
 
 À son réveil, une trace de confusion passa dans les yeux de Hu Juan, mais elle se rétablit promptement. Elle se leva, ses mains formant un sceau, puis elle pointa le ciel. Un grondement résonna dans l'éther et six piliers de lumière s'abattirent à moins de cent pieds de Hu Juan.
 
@@ -80,7 +80,7 @@ Au même moment, l'homme en noir arriva également, paniqué. Il se précipita d
 
 Le corps du Maître du Vide fut encerclé par des épées d'eau. Alors qu'elles le transperçaient, il poussa un rugissement et une tempête de terre jaune surgit. Des bruits de collisions retentirent alors qu'il parvenait à bloquer les attaques, mais il cracha du sang. Cela le fit frissonner de froid et le tira de son état de démence.
 
-Tout ce qui s'était produit aurait semblé incroyable à n'importe qui d'autre. Comment avait-il pu perdre le contrôle de son intention meurtrière et attaquer en un tel moment de crise ? S'il avait été un tant soit peu négligent, il serait mort ici même.
+Tout ce qui s'était produit aurait semblé incroyable à n'importe qui d'autre. Comment avait-il pu perdre le contrôle de son intention meurtrière et attaquer en un tel moment de crise? S'il avait été un tant soit peu négligent, il serait mort ici même.
 
 Les yeux du Maître du Vide se remplirent de peur et d'amertume. Son corps vacilla et il chargea directement vers les piliers de lumière. Quant à l'Omniscient, il avait inexplicablement disparu, et nul ne savait où il s'était rendu.
 
@@ -88,7 +88,7 @@ Les yeux du Maître du Vide se remplirent de peur et d'amertume. Son corps vacil
 
 L'Ancien Démon Bei Lou, poursuivi par l'ancien démon, laissait échapper des rugissements de rage. Lorsqu'il vit que le réseau de transfert pour quitter les lieux s'était ouvert, il se précipita vers lui sans hésiter. Cependant, alors qu'il approchait, l'ancien démon qui le traquait afficha un regard sanguinaire. Il lâcha la lame qu'il tenait et ouvrit soudainement les bras.
 
-« Le Démon dévore tous les esprits ! » Alors qu'il criait, l'armure de l'ancien démon libéra une brume noire infinie qui envahit à nouveau le monde. Cette brume se mua en un mont géant qui tenta de dévorer impitoyablement Bei Lou en fuite.
+« Le Démon dévore tous les esprits! » Alors qu'il criait, l'armure de l'ancien démon libéra une brume noire infinie qui envahit à nouveau le monde. Cette brume se mua en un mont géant qui tenta de dévorer impitoyablement Bei Lou en fuite.
 
 Bei Lou poussa un gémissement de douleur avant que son corps ne s'effondre dans un fracas. La moitié de son être fut dévorée, et l'autre moitié retrouva la taille d'un homme ordinaire. Il disparut ensuite dans le réseau de transfert.
 
@@ -96,16 +96,16 @@ La brume noire absorba rapidement la moitié du corps spirituel de Bei Lou. Puis
 
 Le ciel fut déchiré alors qu'il chargeait vers les hauteurs.
 
-« Aucun d'entre vous ne pourra s'échapper ! »
+« Aucun d'entre vous ne pourra s'échapper! »
 
-Quant à Wang Lin et au Couple Céleste, les trois apparurent instantanément dans le palais du huitième étage. Hu Juan s'exclama rapidement : « Lorsque le Maître m'a parlé tout à l'heure, il n'a prononcé qu'une seule phrase ! "Temple du Royaume Céleste de la Pluie, Cristal d'Âme Originelle, le sang de Qing Shuang !" »
+Quant à Wang Lin et au Couple Céleste, les trois apparurent instantanément dans le palais du huitième étage. Hu Juan s'exclama rapidement: « Lorsque le Maître m'a parlé tout à l'heure, il n'a prononcé qu'une seule phrase! "Temple du Royaume Céleste de la Pluie, Cristal d'Âme Originelle, le sang de Qing Shuang!" »
 
 Les yeux de Wang Wei se rétrécirent. Avant qu'il ne puisse parler, l'homme en noir et le Maître du Vide émergèrent du réseau de transfert. Au même moment, le corps spirituel misérable de l'Ancien Démon Bei Lou apparut également.
 
 De plus, à cet instant précis, le sol sur lequel tout le monde se tenait s'effondra. Tandis que la terre cédait, des filaments d'énergie démoniaque jaillirent des fissures. Lorsque le sol fut totalement détruit, le dragon formé d'énergie démoniaque surgit. Il ouvrit une gueule capable de dévorer le monde et tenta d'engloutir tout le monde.
 
-À cet instant, Wang Lin répétait les paroles que Hu Juan venait de prononcer dans son esprit. Le sang de Qing Shuang... le sang de Qing Shuang !
+À cet instant, Wang Lin répétait les paroles que Hu Juan venait de prononcer dans son esprit. Le sang de Qing Shuang... le sang de Qing Shuang!
 
 Au moment où le dragon démoniaque arriva, Wang Lin frappa sa sacoche de rangement et la pagode céleste apparut. Sans se soucier de la valeur inestimable de la tour céleste, Wang Lin la frappa de la paume pour la faire s'effondrer, et le corps de Qing Shuang apparut devant lui.
 
-« Je suis désolé ! » Il adressa une excuse silencieuse à Zhou Yi. Wang Lin profita de chaque seconde pour percer l'index de Qing Shuang et en extraire une goutte de sang. Puis, il lança immédiatement cette goutte de sang sur le dragon démoniaque qui se dressait devant eux !
+« Je suis désolé! » Il adressa une excuse silencieuse à Zhou Yi. Wang Lin profita de chaque seconde pour percer l'index de Qing Shuang et en extraire une goutte de sang. Puis, il lança immédiatement cette goutte de sang sur le dragon démoniaque qui se dressait devant eux!

@@ -1,12 +1,12 @@
 ---
 n: 2000
-title: "La supplication des temps anciens !"
+title: "La supplication des temps anciens!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 2000 - The Plead From Ancient Times!"
 slug: la-supplication-des-temps-anciens
 ---
-Chapitre 2000 - La supplication des temps anciens !
+Chapitre 2000 - La supplication des temps anciens!
 
 La destruction du palais impérial et la chute de l'Empereur Céleste ne se propagèrent pas en raison de la suppression exercée par Jiu Di. Le palais en ruines retrouva son aspect normal, comme si rien ne s'était produit.
 
@@ -16,21 +16,21 @@ L'Empereur Céleste de cette génération, Lian Daozhen, se retirait fréquemmen
 
 Wu Feng retourna au Continent Nord et s'enferma immédiatement dans le glacier éternel. Il dispelsa silencieusement la malédiction ancestrale qui rongeait son corps.
 
-N'ayant jamais attaqué depuis qu'il avait été affecté par la malédiction, son combat serait bien plus facile que celui de Dao Yi ou de Jiu Di. De plus, il avait obtenu les oreilles de l'Ancêtre Céleste. Une fois la malédiction dissipée et les oreilles raffinées, son niveau de cultivation augmenterait considérablement.
+N'ayant jamais attaqué depuis qu'il avait été affecté par la malédiction, son combat serait bien plus facile que celui de Dao Yi ou de Jiu Di. De plus, il avait obtenu les oreilles de l'Ancêtre Céleste. Une fois la malédiction dissipée et les oreilles raffinées, son niveau de culture augmenterait considérablement.
 
-Dao Yi traîna son corps mutilé jusqu'au Secte Dao Yi, endurant une douleur intense tout en réprimant l'humiliation qui lui serrait le cœur. Il choisit immédiatement d'entrer en cultivation isolée.
+Dao Yi traîna son corps mutilé jusqu'à la Secte Dao Yi, endurant une douleur intense tout en réprimant l'humiliation qui lui serrait le cœur. Il choisit immédiatement d'entrer en cultivation isolée.
 
-Cependant, la malédiction ancestrale avait totalement éclaté en lui et ne pouvait être simplement expulsée. Mais Dao Yi était un Grand Empyréen, et il n'était pas aussi simple qu'il n'y paraissait. Gemini l'avait autrefois surnommé le « type au faux masque » !
+Cependant, la malédiction ancestrale avait totalement éclaté en lui et ne pouvait être simplement expulsée. Mais Dao Yi était un Grand Empyréen, et il n'était pas aussi simple qu'il n'y paraissait. Gemini l'avait autrefois surnommé le « type au faux masque »!
 
-Afin de dissiper la malédiction sans affecter sa cultivation future, il rassembla tous les Exaltés Empyréens ainsi que plusieurs Ascendants Empyréens. Il convoqua également de nombreux Exaltés Dorés et força la malédiction à se diviser entre eux tous !
+Afin de dissiper la malédiction sans affecter sa culture future, il rassembla tous les Exaltés Empyréens ainsi que plusieurs Ascendants Empyréens. Il convoqua également de nombreux Exaltés Dorés et força la malédiction à se diviser entre eux tous!
 
-La malédiction ancestrale était si puissante que les Exaltés Dorés moururent instantanément après l'avoir touchée. Même les Exaltés Empyréens poussèrent des hurlements misérables alors que leurs corps commençaient à pourrir. Bien qu'ils puissent tenir un peu plus longtemps, le dénouement resterait inévitablement la mort !
+La malédiction ancestrale était si puissante que les Exaltés Dorés moururent instantanément après l'avoir touchée. Même les Exaltés Empyréens poussèrent des hurlements misérables alors que leurs corps commençaient à pourrir. Bien qu'ils puissent tenir un peu plus longtemps, le dénouement resterait inévitablement la mort!
 
-Seuls les Ascendants Empyréens purent survivre grâce à leur puissante cultivation, mais le prix à payer fut immense.
+Seuls les Ascendants Empyréens purent survivre grâce à leur puissante culture, mais le prix à payer fut immense.
 
 Une fois que tous les Exaltés et Ascendants Empyréens sous les ordres de Dao Yi eurent aidé à porter le fardeau, Dao Yi chercha des cultivateurs du troisième niveau avec acharnement. Même s'ils ne pouvaient l'aider qu'à supporter une infime fraction de la malédiction, cela lui serait d'un immense secours.
 
-Cette méthode cruelle consistant à partager le poids de la malédiction ancestrale fit que le Secte Dao Yi manqua de devenir un secte morte...
+Cette méthode cruelle consistant à partager le poids de la malédiction ancestrale fit que la Secte Dao Yi manqua de devenir un secte morte...
 
 Jiu Di ramena Hai Zi au Mont de l'Empereur et entra immédiatement en cultivation isolée. Sa puissance lui permettait de dissiper lentement la malédiction par ses propres moyens. De plus, avec l'aide de Hai Zi, le pouvoir de la malédiction s'estomperait progressivement avec le temps.
 
@@ -46,7 +46,7 @@ Le Continent Est du clan céleste, le Continent du Taureau Céleste.
 
 Le Continent du Taureau Céleste, autrefois parsemé de montagnes, avait perdu beaucoup de ses reliefs lors de la guerre contre le Continent du Démon Vert. Cela avait profondément modifié son paysage.
 
-Cependant, la structure du pouvoir sur le continent ne changea guère. Le Grand Secte de l'Âme et le Secte Gui Yi demeuraient les plus puissants, entourés de nombreuses petites sectes.
+Cependant, la structure du pouvoir sur le continent ne changea guère. Le Grand Secte de l'Âme et la Secte Gui Yi demeuraient les plus puissants, entourés de nombreuses petites sectes.
 
 Les disciples envoyés à la cité ancestrale étaient retournés dans leurs sectes respectives. Ils avaient tous obtenu leur propre fortune et deviendraient l'avenir de leurs clans.
 
@@ -64,7 +64,7 @@ Fan Shanmeng et Fan Shanlu étaient toujours ses disciples. Ses griefs personnel
 
 Dans le Grand Secte de l'Âme, il y avait un autre Ancien nommé Du Qing. Son corps n'était pas fait de chair et de sang, mais d'un morceau de bois. Après avoir condensé son âme originelle à l'intérieur, il en fit son corps.
 
-Il avait été personnellement nommé Ancien par l'Illustre Taureau Vert, bien qu'il ne possédât pas le niveau de cultivation requis pour un tel rang. Sa vie était désormais très confortable, bien meilleure qu'auparavant.
+Il avait été personnellement nommé Ancien par l'Illustre Taureau Vert, bien qu'il ne possédât pas le niveau de culture requis pour un tel rang. Sa vie était désormais très confortable, bien meilleure qu'auparavant.
 
 Le temps s'écoulait. Au fil des innombrables levers et couchers de soleil, le Grand Secte de l'Âme semblait immuable, tout comme le Continent du Taureau Céleste. Les montagnes restaient les mêmes, et les pavillons étaient identiques à ceux d'autrefois.
 
@@ -78,21 +78,21 @@ Wang Lin regarda le Grand Secte de l'Âme avec une expression complexe. Il étai
 
 Dans un soupir, Wang Lin s'avança vers le Grand Secte de l'Âme.
 
-Son niveau de cultivation actuel étant bien supérieur à celui de l'Illustre Taureau Vert et de tous les membres du secte, personne ne remarqua son arrivée.
+Son niveau de culture actuel étant bien supérieur à celui de l'Illustre Taureau Vert et de tous les membres du secte, personne ne remarqua son arrivée.
 
 Au sein du Grand Secte de l'Âme, Wang Lin vit Du Qing et Yan Luan, cette dernière se tenant sur la montagne vêtue d'une robe rouge flamboyant. Il aperçut également Fan Shanmeng et Fan Shanlu.
 
-Sans s'arrêter, Wang Lin pénétra dans les profondeurs du Grand Secte de l'Âme. Il se dirigea vers le Pavillon des Écritures de l'Âme qu'il avait visité autrefois !
+Sans s'arrêter, Wang Lin pénétra dans les profondeurs du Grand Secte de l'Âme. Il se dirigea vers le Pavillon des Écritures de l'Âme qu'il avait visité autrefois!
 
 Ce pavillon avait dû être ouvert par l'Illustre Taureau Vert à l'époque. Pourtant, aujourd'hui, d'un seul pas, Wang Lin se trouvait déjà devant lui.
 
 C'était un édifice de sept étages enveloppé d'une fine couche de brume. Devant le pavillon trônaient deux grandes statues de bêtes d'un réalisme saisissant.
 
-La porte du pavillon était close et un silence absolu régnait. Trois grands caractères surplombaient l'entrée :
+La porte du pavillon était close et un silence absolu régnait. Trois grands caractères surplombaient l'entrée:
 
-Pavillon des Écritures de l'Âme !
+Pavillon des Écritures de l'Âme!
 
-Ce pavillon semblait comporter sept étages, mais en vérité, il y avait un huitième, un neuvième... et même un dixième ! L'Illustre Taureau Vert avait affirmé que même lui ne pouvait accéder au dixième étage. C'était là que reposait l'ancien ancêtre du Grand Secte de l'Âme.
+Ce pavillon semblait comporter sept étages, mais en vérité, il y avait un huitième, un neuvième... et même un dixième! L'Illustre Taureau Vert avait affirmé que même lui ne pouvait accéder au dixième étage. C'était là que reposait l'ancien ancêtre du Grand Secte de l'Âme.
 
 L'expression de Wang Lin resta calme alors qu'il levait les yeux vers le sommet de l'édifice. Il était venu chercher une réponse, pour découvrir ce que le génie du clan Dao Wang lui avait laissé.
 
@@ -100,7 +100,7 @@ Poussant la porte close, Wang Lin entra. Familier des lieux, il monta calmement 
 
 Des craquements résonnaient dans le silence du pavillon. Wang Lin franchit le deuxième étage, le troisième... jusqu'au huitième étage qu'il avait déjà atteint par le passé.
 
-Il n'avait nul besoin de briser les restrictions ; elles se dissipaient simplement sur son passage.
+Il n'avait nul besoin de briser les restrictions; elles se dissipaient simplement sur son passage.
 
 Contemplant l'escalier menant au neuvième étage, Wang Lin grimpa lentement. Quelques jades flottaient là, contenant les sorts les plus puissants du Grand Secte de l'Âme.
 
@@ -108,13 +108,13 @@ Le sort d'illusion multicouche complet qu'il recherchait se trouvait ici.
 
 Son regard balaya les jades un à un. Après avoir tout inspecté, il se dirigea vers l'escalier antique situé non loin de là.
 
-Ce passage menait au dixième étage !
+Ce passage menait au dixième étage!
 
-Au total, treize marches. Wang Lin leva le pied et monta pas à pas. Il atteignit enfin le sommet du Pavillon des Écritures de l'Âme : le dixième étage.
+Au total, treize marches. Wang Lin leva le pied et monta pas à pas. Il atteignit enfin le sommet du Pavillon des Écritures de l'Âme: le dixième étage.
 
 Dès qu'il pénétra dans cette ultime pièce, Wang Lin vit quelque chose qui le plongea dans une longue réflexion silencieuse. Il observa la scène avec un sentiment complexe pendant un long moment avant de laisser échapper un soupir.
 
-« Ainsi, c'est ce que tu m'as laissé... Quelque chose que tu voulais absolument que je vienne voir ici... Génie du clan Dao Wang... l'idée que tu m'utilises, comme je l'ai dit à Hai Zi, est pardonnée ! » Wang Lin ne regarda pas davantage le dixième étage, se retourna et partit.
+« Ainsi, c'est ce que tu m'as laissé... Quelque chose que tu voulais absolument que je vienne voir ici... Génie du clan Dao Wang... l'idée que tu m'utilises, comme je l'ai dit à Hai Zi, est pardonnée! » Wang Lin ne regarda pas davantage le dixième étage, se retourna et partit.
 
 Une fois Wang Lin parti, la véritable scène du dixième étage fut révélée.
 
@@ -130,4 +130,4 @@ Ce n'était pas un squelette ordinaire, mais une prison pour l'âme de cet homme
 
 La statue était celle de Wang Lin.
 
-Le squelette était l'ancien ancêtre du Grand Secte de l'Âme, le génie du clan Dao Wang !
+Le squelette était l'ancien ancêtre du Grand Secte de l'Âme, le génie du clan Dao Wang!

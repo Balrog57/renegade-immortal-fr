@@ -18,41 +18,41 @@ Les paroles de Xuan Luo résonnaient encore dans ses oreilles, persistant longte
 
 Wang Lin comprit vaguement que pour défier ainsi les lois du Continent Astral Immortel, Xuan Luo devait en payer un prix considérable.
 
-« Ce junior ignore qui décidera de quitter le monde des grottes et combien ils seront. Cependant, quoi qu'il advienne, ce junior n'oubliera jamais la bonté dont le Senior a fait preuve envers lui aujourd'hui ! »
+« Ce junior ignore qui décidera de quitter le monde des grottes et combien ils seront. Cependant, quoi qu'il advienne, ce junior n'oubliera jamais la bonté dont le Senior a fait preuve envers lui aujourd'hui! »
 
-Wang Lin s'inclina devant Xuan Luo. Une connexion invisible semblait se former entre eux ; une chose impossible à expliquer ou à concevoir, mais qui était bien là.
+Wang Lin s'inclina devant Xuan Luo. Une connexion invisible semblait se former entre eux; une chose impossible à expliquer ou à concevoir, mais qui était bien là.
 
-« Quant à Wan Er, si nous ne pouvons pas vivre ensemble, alors même si nous mourons ensemble au seuil du monde des grottes, je n'aurai aucun regret ! » Les paroles de Wang Lin étaient empreintes d'une détermination absolue. Le cri « sans regret » résonna à travers le système stellaire.
+« Quant à Wan Er, si nous ne pouvons pas vivre ensemble, alors même si nous mourons ensemble au seuil du monde des grottes, je n'aurai aucun regret! » Les paroles de Wang Lin étaient empreintes d'une détermination absolue. Le cri « sans regret » résonna à travers le système stellaire.
 
-Sans regret !
+Sans regret!
 
-Sans regret !!
+Sans regret!!
 
-Sans regret !!!
+Sans regret!!!
 
-Ces deux mots révélaient le cœur Dao de Wang Lin depuis plus de deux mille ans ! Ils témoignaient de cette rencontre fatidique aux abords de la Mer des Démons, il y a plus de deux millénaires.
+Ces deux mots révélaient le cœur Dao de Wang Lin depuis plus de deux mille ans! Ils témoignaient de cette rencontre fatidique aux abords de la Mer des Démons, il y a plus de deux millénaires.
 
-Ces mots libérèrent l'amour, le désir et la tristesse qui habitaient Wang Lin tandis qu'il rugissait !
+Ces mots libérèrent l'amour, le désir et la tristesse qui habitaient Wang Lin tandis qu'il rugissait!
 
-Hormis sa mère, aucune femme au monde ne pouvait remplacer Li Muwan dans son cœur. Il avait croisé d'innombrables beautés à travers les mondes, mais aucune n'était elle !
+Hormis sa mère, aucune femme au monde ne pouvait remplacer Li Muwan dans son cœur. Il avait croisé d'innombrables beautés à travers les mondes, mais aucune n'était elle!
 
-Il avait laissé d'innombrables ombres délicates danser autour de lui telles des papillons, mais aucune n'était elle, celle qui l'accompagnait au son de la musique du luth !
+Il avait laissé d'innombrables ombres délicates danser autour de lui telles des papillons, mais aucune n'était elle, celle qui l'accompagnait au son de la musique du luth!
 
-C'était un amour qui entravait Wang Lin depuis plus de deux mille ans, et il ne s'évanouirait pas avant le jour de sa propre mort ! Ils préféraient mourir ensemble plutôt que de vivre l'un sans l'autre !
+C'était un amour qui entravait Wang Lin depuis plus de deux mille ans, et il ne s'évanouirait pas avant le jour de sa propre mort! Ils préféraient mourir ensemble plutôt que de vivre l'un sans l'autre!
 
 Ces mots parvinrent aux oreilles du Maître Dao Bleu Rêve, dont le regard s'assombrit. Il fixa la direction du Royaume Céleste et médita en silence.
 
 Les yeux de Xuan Luo brillèrent tandis qu'il observait Wang Lin, qui lui rendit son regard. Ayant entendu les paroles de Wang Lin sur l'absence de regret, il hocha la tête.
 
-« Pour lancer le sort de réincarnation et contourner les lois du Continent Astral Immortel, je devrai me préparer un peu. Dans un mois, amène tous ceux qui souhaitent partir, et je lancerai le sort ! »
+« Pour lancer le sort de réincarnation et contourner les lois du Continent Astral Immortel, je devrai me préparer un peu. Dans un mois, amène tous ceux qui souhaitent partir, et je lancerai le sort! »
 
 « Quant à toi... c'est ton propre choix... » Xuan Luo ne chercha plus à le convaincre. Durant cette période d'épreuve, il avait beaucoup appris sur le caractère de Wang Lin. Une fois que celui-ci avait pris une décision, rien ne pouvait l'en détourner.
 
-« Ce Wang Lin répond parfaitement à mes exigences. Il préférerait attendre mille ans pour retrouver ses amis et réveiller leur mémoire. C'est une attitude droite ! Il ne veut pas partir seul mais avec tous ses compagnons — c'est un homme bienveillant ! »
+« Ce Wang Lin répond parfaitement à mes exigences. Il préférerait attendre mille ans pour retrouver ses amis et réveiller leur mémoire. C'est une attitude droite! Il ne veut pas partir seul mais avec tous ses compagnons — c'est un homme bienveillant! »
 
-« Il n'abandonnera pas son amante, même s'ils doivent mourir ensemble, et il ne le regrettera pas ! »
+« Il n'abandonnera pas son amante, même s'ils doivent mourir ensemble, et il ne le regrettera pas! »
 
-« Un être aussi noble et sentimental... Si je ne l'abandonne pas, il fera tout ce qui est en son pouvoir pour protéger mon Clan du Dao Antique pour l'éternité une fois que nous lui aurons témoigné notre gratitude ! » Une lueur mystérieuse traversa le regard de Xuan Luo, et il prit sa décision.
+« Un être aussi noble et sentimental... Si je ne l'abandonne pas, il fera tout ce qui est en son pouvoir pour protéger mon Clan du Dao Antique pour l'éternité une fois que nous lui aurons témoigné notre gratitude! » Une lueur mystérieuse traversa le regard de Xuan Luo, et il prit sa décision.
 
 Wang Lin fixa profondément Xuan Luo et s'inclina une troisième fois. Il se détourna et partit. Le Maître Dao Bleu Rêve le suivit tout en restant plongé dans ses pensées.
 
@@ -76,13 +76,13 @@ Le système stellaire gronda et, dans un rugissement de Wang Lin, la faille s'ou
 
 La seconde fleur gelée était le seul endroit qui n'avait pas succombé à l'effondrement. La terre demeurait figée et, bien que la puissance de Xuan Luo se soit dissipée, la glace persistait.
 
-Wang Lin se tint devant la faille et, par son Sens Divin, envoya un message dans le monde gelé : « Yun Na ! Je suis venu te chercher ! »
+Wang Lin se tint devant la faille et, par son Sens Divin, envoya un message dans le monde gelé: « Yun Na! Je suis venu te chercher! »
 
 À l'intérieur du monde gelé, sur la plateforme de pierre géante, Yun Na ouvrit lentement les yeux. Elle contempla la glace au loin et sourit.
 
 « Il est venu... » Fermant les yeux, un nuage de fumée s'échappa de ses sourcils et disparut dans la glace devant elle.
 
-Cette essence quitta son corps pour dériver vers Wang Lin. Bientôt, elle apparut à l'entrée d'Allheaven !
+Cette essence quitta son corps pour dériver vers Wang Lin. Bientôt, elle apparut à l'entrée d'Allheaven!
 
 Elle vit Wang Lin. Cependant, une couche de glace les séparait toujours.
 
@@ -92,7 +92,7 @@ Elle vit Wang Lin. Cependant, une couche de glace les séparait toujours.
 
 En observant l'âme de Yun Na prisonnière des glaces, Wang Lin comprit. Lorsqu'il était entré dans la seconde fleur la première fois, elle avait demandé de l'aide, mais n'avait pas séparé son âme de son corps de manière décisive. Elle avait attendu que Wang Lin franchisse les Cinq Fleurs et Huit Portes et qu'il ouvre la porte du monde des grottes avant d'opérer cette séparation.
 
-Il n'y avait rien d'anormal à cela ; après tout, séparer l'âme du corps était une opération cruciale. Elle devait être prudente.
+Il n'y avait rien d'anormal à cela; après tout, séparer l'âme du corps était une opération cruciale. Elle devait être prudente.
 
 Wang Lin respecterait sa promesse et ne s'attarda pas sur ce point. Devant la faille, il cracha une bouffée d'Énergie du Dao Antique sur la glace.
 
@@ -100,15 +100,15 @@ Bien que son souffle fût invisible, dès qu'il toucha la glace, des craquements
 
 À mesure que la glace cédait, l'âme de Yun Na émergeait morceau par morceau. Une fois l'effondrement total achevé, son âme reprit sa forme originelle, ayant profité des brèches créées par Wang Lin pour s'échapper.
 
-Elle contempla le système stellaire d'un regard serein. Ses yeux n'étaient pas troublés ; elle observait simplement la scène avec calme. Après un long moment, elle s'inclina devant Wang Lin.
+Elle contempla le système stellaire d'un regard serein. Ses yeux n'étaient pas troublés; elle observait simplement la scène avec calme. Après un long moment, elle s'inclina devant Wang Lin.
 
 « Merci de ton aide. »
 
-Le regard de Wang Lin se posa sur l'âme de Yun Na et il dit : « C'est ma promesse envers toi. Considère cela comme un échange pour ton aide passée. Cependant, à toi de décider si tu souhaites simplement partir vivre dans le monde des grottes ou rejoindre le Continent Astral Immortel ! C'est là que se trouve la véritable Secte Dong Lin et la patrie de ton Maître, le Souverain Céleste aux Sept Couleurs. »
+Le regard de Wang Lin se posa sur l'âme de Yun Na et il dit: « C'est ma promesse envers toi. Considère cela comme un échange pour ton aide passée. Cependant, à toi de décider si tu souhaites simplement partir vivre dans le monde des grottes ou rejoindre le Continent Astral Immortel! C'est là que se trouve la véritable Secte Dong Lin et la patrie de ton Maître, le Souverain Céleste aux Sept Couleurs. »
 
-« Si tu veux rester ici, alors va-t'en... Mais si tu veux aller sur le Continent Astral Immortel, tu devras subir l'épreuve amère d'une réincarnation de mille ans ! »
+« Si tu veux rester ici, alors va-t'en... Mais si tu veux aller sur le Continent Astral Immortel, tu devras subir l'épreuve amère d'une réincarnation de mille ans! »
 
-Yun Na écouta calmement les paroles de Wang Lin. Après une courte réflexion, elle contempla le système stellaire paisible et murmura :
+Yun Na écouta calmement les paroles de Wang Lin. Après une courte réflexion, elle contempla le système stellaire paisible et murmura:
 
 « La réincarnation est une bonne chose... Mille ans... Ce n'est pas si long... »
 
@@ -128,4 +128,4 @@ Cette Fan Shanlu était une femme pitoyable. Elle était la première concubine 
 
 Outre le fait de sauver Fan Shanlu, il y avait une chose que Wang Lin avait presque oubliée. Dans le dernier mois précédant son départ, un souvenir lui revint soudainement à l'esprit.
 
-Il avait autrefois promis à un petit personnage de lui offrir un corps doté d'un certain niveau de cultivation. L'âme de ce petit personnage reposait dans son espace de stockage depuis bien longtemps.
+Il avait autrefois promis à un petit personnage de lui offrir un corps doté d'un certain niveau de culture. L'âme de ce petit personnage reposait dans son espace de stockage depuis bien longtemps.

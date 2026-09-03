@@ -1,30 +1,30 @@
 ---
 n: 1973
-title: "L'Ascendant Empyréen aux cheveux blancs !"
+title: "L'Ascendant Empyréen aux cheveux blancs!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1973 - White-Haired Ascendant Empyrean!"
 slug: lascendant-empyreen-aux-cheveux-blancs
 ---
-Chapitre 1973 - L'Ascendant Empyréen aux cheveux blancs !
+Chapitre 1973 - L'Ascendant Empyréen aux cheveux blancs!
 
 « Ne flèches se dispersant en d'innombrables traits pour former une main... Cela atteint à peine la puissance d'un Empyréen Exalt ayant franchi le septième palais... Vous neuf devriez posséder la puissance d'un Empyréen Exalt ayant franchi le quatrième palais. »
 
-« Digne du Manoir Li, vos fondations sont profondes ! » dit lentement Wang Lin en avançant.
+« Digne du Manoir Li, vos fondations sont profondes! » dit lentement Wang Lin en avançant.
 
-« Et parmi vous trois se trouvent un Ascendant Empyréen du dixième palais et deux Empyréens Exalts du septième palais. Avec votre puissance combinée, vous pourriez atteindre le sommet du dixième palais. Je n'ai tué personne en chemin, mais si vous attaquez tous les trois, je ne me retiendrai pas ! » Le regard de Wang Lin balaya les centaines de personnes devant lui et s'arrêta sur trois emplacements distincts.
+« Et parmi vous trois se trouvent un Ascendant Empyréen du dixième palais et deux Empyréens Exalts du septième palais. Avec votre puissance combinée, vous pourriez atteindre le sommet du dixième palais. Je n'ai tué personne en chemin, mais si vous attaquez tous les trois, je ne me retiendrai pas! » Le regard de Wang Lin balaya les centaines de personnes devant lui et s'arrêta sur trois emplacements distincts.
 
-Alors que ses paroles résonnaient, trois vieillards apparurent à ces endroits. L'homme situé juste devant Wang Lin était l'Ascendant Empyréen !
+Alors que ses paroles résonnaient, trois vieillards apparurent à ces endroits. L'homme situé juste devant Wang Lin était l'Ascendant Empyréen!
 
-Ses cheveux étaient mi-noirs, mi-blancs. Il fixait Wang Lin avec un mélange de choc et d'hésitation dans les yeux. Il semblait avoir des conjectures sur le niveau de cultivation de Wang Lin, mais il en était incertain.
+Ses cheveux étaient mi-noirs, mi-blancs. Il fixait Wang Lin avec un mélange de choc et d'hésitation dans les yeux. Il semblait avoir des conjectures sur le niveau de culture de Wang Lin, mais il en était incertain.
 
 « Je ne souhaite pas me faire un ennemi du Manoir Li. Après tout, la relique de Li Guang m'a beaucoup aidé. » Wang Lin mentionna comment l'Arc de Li Guang l'avait aidé à échapper à de nombreux dangers dans le monde des grottes.
 
-« Toi qui ne t'es toujours pas montré, pourquoi ne sors-tu pas ? » Wang Lin leva soudainement la tête. Les témoins ne pouvaient percevoir son apparence, seulement la lumière dorée et monstrueuse émanant de ses yeux.
+« Toi qui ne t'es toujours pas montré, pourquoi ne sors-tu pas? » Wang Lin leva soudainement la tête. Les témoins ne pouvaient percevoir son apparence, seulement la lumière dorée et monstrueuse émanant de ses yeux.
 
 Cette lueur dorée contenait une pression colossale, plus puissante encore que celle de la cité ancestrale. Tous, qu'il s'agisse de l'Ascendant Empyréen ou des membres ordinaires de la famille, sentirent leur cœur trembler.
 
-Lorsque la pression atteint un certain seuil, elle se transforme en suppression. La lumière dorée du regard de Wang Lin était une véritable suppression. Il utilisait le pouvoir de l'épée de l'Ancêtre Céleste pour tout subjuguer !
+Lorsque la pression atteint un certain seuil, elle se transforme en suppression. La lumière dorée du regard de Wang Lin était une véritable suppression. Il utilisait le pouvoir de l'épée de l'Ancêtre Céleste pour tout subjuguer!
 
 Des grondements de tonnerre résonnèrent. Tandis que la vision dorée de Wang Lin se propageait, les arcs entre les mains des membres du Manoir Li volèrent en éclats.
 
@@ -48,13 +48,13 @@ Wang Lin leva la main droite et retira sa capuche, révélant ses cheveux d'un b
 
 Lorsque Wang Lin ôta sa capuche, un murmure de stupeur parcourut la foule. Tous les regards convergèrent vers lui.
 
-Au cours de cette année, les rumeurs concernant Wang Lin avaient balayé le Continent Astral Immortel. Ces rumeurs avaient agi comme une tempête sur la cité ancestrale ; quiconque était au courant les avait entendues maintes fois !
+Au cours de cette année, les rumeurs concernant Wang Lin avaient balayé le Continent Astral Immortel. Ces rumeurs avaient agi comme une tempête sur la cité ancestrale; quiconque était au courant les avait entendues maintes fois!
 
 Le Manoir Li était l'un des quatre rois de la cité ancestrale. Presque toute la famille s'était imprégnée du nom « Wang Lin » à force d'entendre parler de lui.
 
-Ils n'auraient jamais imaginé voir le plus puissant Ascendant Empyréen, l'homme numéro un sous les Grands Empyréens !
+Ils n'auraient jamais imaginé voir le plus puissant Ascendant Empyréen, l'homme numéro un sous les Grands Empyréens!
 
-Ce qui les terrifiait davantage encore était qu'ils avaient, en réalité, tenté de tuer cet homme !
+Ce qui les terrifiait davantage encore était qu'ils avaient, en réalité, tenté de tuer cet homme!
 
 « Donnez-moi des explications », dit calmement Wang Lin en observant le vieil homme sorti de la salle de pierre. Ce dernier était également un Ascendant Empyréen. Wang Lin estimait qu'il avait franchi le onzième palais et qu'il faisait partie des treize individus bloqués au douzième palais.
 
@@ -64,25 +64,25 @@ Ce qui les terrifiait davantage encore était qu'ils avaient, en réalité, tent
 
 Wang Lin resta silencieux, les yeux fixés sur le vieillard.
 
-« La renommée n'est pas usurpée... En effet, ce Wang Lin est digne d'être appelé le numéro un sous les Grands Empyréens. Je ne l'ai pas vu franchir les palais moi-même, j'ai donc pensé que les rumeurs étaient exagérées, car on disait qu'il bénéficiait de l'aide de l'armure de l'âme... Cependant, je n'aurais jamais imaginé que son simple regard puisse produire une telle pression ! » L'ancêtre de la famille Li songeait silencieusement sous le regard scrutateur de Wang Lin.
+« La renommée n'est pas usurpée... En effet, ce Wang Lin est digne d'être appelé le numéro un sous les Grands Empyréens. Je ne l'ai pas vu franchir les palais moi-même, j'ai donc pensé que les rumeurs étaient exagérées, car on disait qu'il bénéficiait de l'aide de l'armure de l'âme... Cependant, je n'aurais jamais imaginé que son simple regard puisse produire une telle pression! » L'ancêtre de la famille Li songeait silencieusement sous le regard scrutateur de Wang Lin.
 
-« Mon Manoir Li a été imprudent le premier... L'Ascendant Empyréen aux cheveux blancs doit être venu dans la capitale impériale pour la cérémonie de titre. Que diriez-vous de séjourner au Manoir Li ?
+« Mon Manoir Li a été imprudent le premier... L'Ascendant Empyréen aux cheveux blancs doit être venu dans la capitale impériale pour la cérémonie de titre. Que diriez-vous de séjourner au Manoir Li?
 
 Laissez les membres de mon manoir accompagner l'Ascendant Empyréen jusqu'au palais royal en guise d'escorte... Et puisque l'Ascendant Empyréen possède l'arc de l'ancêtre et que cet arc vous a aidé, vous n'êtes plus un étranger.
 
-Mon Manoir Li possède un Pavillon des Flèches qui renferme le Dao de la Flèche laissé par l'ancêtre. L'Ascendant Empyréen peut s'y instruire à sa guise. Qu'en dites-vous ? Pour nous racheter de notre impudence. » Le vieil homme joignit les mains et s'inclina devant Wang Lin.
+Mon Manoir Li possède un Pavillon des Flèches qui renferme le Dao de la Flèche laissé par l'ancêtre. L'Ascendant Empyréen peut s'y instruire à sa guise. Qu'en dites-vous? Pour nous racheter de notre impudence. » Le vieil homme joignit les mains et s'inclina devant Wang Lin.
 
-Il s'était humilié, mais personne au Manoir Li ne ressentit d'opprobre ; ils estimaient même que c'était la seule attitude possible. Après tout, ils faisaient face à l'homme le plus puissant sous les Grands Empyréens !
+Il s'était humilié, mais personne au Manoir Li ne ressentit d'opprobre; ils estimaient même que c'était la seule attitude possible. Après tout, ils faisaient face à l'homme le plus puissant sous les Grands Empyréens!
 
 Cet homme était convoité par les Grands Empyréens eux-mêmes. Bien que le Manoir Li fût l'un des quatre rois de la cité ancestrale et plus puissant que la plupart des sectes, il ne pouvait toujours pas résister à un seul coup de Wang Lin.
 
-Si eux blessaient Wang Lin, un Grand Empyréen interviendrait ; mais si Wang Lin les tuait, il y avait de fortes chances que les Grands Empyréens n'interviennent pas... C'était là le fossé qui séparait les forts des faibles sur le Continent Astral Immortel. L'Ascendant Empyréen Ming Dao quittait rarement le palais, mais lorsqu'il le faisait, nul n'osait lui manquer de respect !
+Si eux blessaient Wang Lin, un Grand Empyréen interviendrait; mais si Wang Lin les tuait, il y avait de fortes chances que les Grands Empyréens n'interviennent pas... C'était là le fossé qui séparait les forts des faibles sur le Continent Astral Immortel. L'Ascendant Empyréen Ming Dao quittait rarement le palais, mais lorsqu'il le faisait, nul n'osait lui manquer de respect!
 
-Même les quatre rois devaient témoigner un immense respect à l'Ascendant Empyréen Ming Dao. Après tout, il était pressenti pour devenir le futur sixième soleil !
+Même les quatre rois devaient témoigner un immense respect à l'Ascendant Empyréen Ming Dao. Après tout, il était pressenti pour devenir le futur sixième soleil!
 
 Désormais, Wang Lin avait subjugué l'Ascendant Empyréen Ming Dao. Si le Manoir Li avait su que l'arc se trouvait entre les mains de Wang Lin, ils auraient prétendu ne rien savoir et n'auraient jamais osé le réclamer.
 
-« Le Pavillon des Flèches ? » L'expression de Wang Lin changea. Il s'attendait à cela de la part du Manoir Li. Il percevait que, derrière la peur dans les yeux du vieil homme, se cachait une profonde nostalgie pour l'arc de son ancêtre.
+« Le Pavillon des Flèches? » L'expression de Wang Lin changea. Il s'attendait à cela de la part du Manoir Li. Il percevait que, derrière la peur dans les yeux du vieil homme, se cachait une profonde nostalgie pour l'arc de son ancêtre.
 
 Ne pouvant le reprendre par la force, ils traitaient Wang Lin avec respect dans l'espoir qu'il rende l'objet.
 
@@ -94,9 +94,9 @@ Les membres de la famille Li observèrent l'arc en silence. Certains l'avaient d
 
 « J'ai encore besoin de cet arc. Une fois mes affaires terminées, je le rendrai. » D'un geste de la main, Wang Lin fit disparaître l'arc dans son corps.
 
-Le vieil homme du Manoir Li soupira, mais ne fut pas déçu. Après tout, Wang Lin avait fait une promesse et affirmé son identité ; il n'y avait pas lieu de mentir. Cela signifiait qu'il avait l'intention de le rendre, il pouvait donc considérer cela comme un prêt pour le moment.
+Le vieil homme du Manoir Li soupira, mais ne fut pas déçu. Après tout, Wang Lin avait fait une promesse et affirmé son identité; il n'y avait pas lieu de mentir. Cela signifiait qu'il avait l'intention de le rendre, il pouvait donc considérer cela comme un prêt pour le moment.
 
-Surtout, l'arc avait été découvert par Wang Lin ; comment pourrait-il être restitué au seul motif qu'il appartenait à leur lignée des âges ? S'il s'était mis à la place de Wang Lin, il craignait qu'il n'aurait même pas fait une telle promesse.
+Surtout, l'arc avait été découvert par Wang Lin; comment pourrait-il être restitué au seul motif qu'il appartenait à leur lignée des âges? S'il s'était mis à la place de Wang Lin, il craignait qu'il n'aurait même pas fait une telle promesse.
 
 Wang Lin n'accepta pas de refuser l'hospitalité du Manoir Li. Sachant désormais que Xu Liguo se trouvait dans la cité ancestrale, il n'était pas pressé de déverrouiller sa mémoire. Il resta au Manoir Li pour étudier le Dao de la Flèche.
 
@@ -108,17 +108,17 @@ Cette pression enveloppa le domaine, poussant les membres de la famille Li à so
 
 Une lueur dorée jaillit et une silhouette émergea. L'individu portait une robe verte et affichait un air arrogant. Tenant un rouleau à la main, il surplombait les habitants du Manoir Li.
 
-« Où est Wang Lin ? Pourquoi ne venez-vous pas promptement recevoir l'édit ! »
+« Où est Wang Lin? Pourquoi ne venez-vous pas promptement recevoir l'édit! »
 
-« Lisez-le ! » La voix glaciale de Wang Lin résonna depuis les profondeurs du Pavillon des Flèches.
+« Lisez-le! » La voix glaciale de Wang Lin résonna depuis les profondeurs du Pavillon des Flèches.
 
 « Espèce de... » L'homme en robe verte fut stupéfait. Il était venu proclamer la volonté de l'Empereur Céleste, ce qui équivalait à la présence physique de l'Empereur lui-même, mais ce Wang Lin refusait même de montrer son visage.
 
 Après une hésitation, l'homme renifla avec mépris dans son cœur, mais n'osa manifester son agacement. Il déploya l'édit et commença sa lecture.
 
-Wang Lin n'écouta pas les détails ; il comprit simplement que l'Empereur Céleste lui ordonnait de se présenter au palais céleste dans sept jours pour la cérémonie de titre !
+Wang Lin n'écouta pas les détails; il comprit simplement que l'Empereur Céleste lui ordonnait de se présenter au palais céleste dans sept jours pour la cérémonie de titre!
 
-Wang Lin avait appris au Secte du Soleil Violet que chaque Ascendant Empyréen recevait personnellement son titre de la part de l'actuel Empereur Céleste. C'était une formalité, un symbole.
+Wang Lin avait appris à la Secte du Soleil Violet que chaque Ascendant Empyréen recevait personnellement son titre de la part de l'actuel Empereur Céleste. C'était une formalité, un symbole.
 
 Lors de la cérémonie, il existait une possibilité d'être défié, mais par le passé, cela était généralement ignoré. Après tout, les Ascendants Empyréens recevaient la reconnaissance de l'ombre de l'Ancêtre Céleste, et peu de gens se sentaient assez oisifs pour s'y risquer.
 

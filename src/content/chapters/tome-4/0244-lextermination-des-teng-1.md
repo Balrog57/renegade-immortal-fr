@@ -8,7 +8,7 @@ slug: lextermination-des-teng-1
 ---
 Non seulement Wang Lin n'avait pas eu à utiliser la foudre de la rétribution divine, mais il avait également obtenu une goutte de sang du Dieu Ancien. Bien que cette goutte ne fût guère pure et qu'elle disparût après une seule utilisation, elle était néanmoins suffisante pour lui sauver la vie une fois.
 
-Wang Lin agita la main et le drapeau de restriction lui revint. Il observa l'objet et décida qu'une fois l'affaire avec la famille Teng réglée, il devrait trouver un lieu capable de résister à la foudre de la rétribution divine afin d'y placer la dernière restriction sur le drapeau. Ainsi, celui-ci atteindrait son premier niveau de perfectionnement et sa puissance augmenterait considérablement ; il ne serait plus comme aujourd'hui, où il n'avait presque aucun effet sur l'ennemi.
+Wang Lin agita la main et le drapeau de restriction lui revint. Il observa l'objet et décida qu'une fois l'affaire avec la famille Teng réglée, il devrait trouver un lieu capable de résister à la foudre de la rétribution divine afin d'y placer la dernière restriction sur le drapeau. Ainsi, celui-ci atteindrait son premier niveau de perfectionnement et sa puissance augmenterait considérablement; il ne serait plus comme aujourd'hui, où il n'avait presque aucun effet sur l'ennemi.
 
 C'était la première fois que Wang Lin ressentait qu'il manquait cruellement de trésors magiques.
 
@@ -36,7 +36,7 @@ Une fois ces préparatifs terminés, Wang Lin prit un air sérieux et saisit un 
 
 Le mot « Lan » y était brodé.
 
-Wang Lin réfléchit un instant, puis l'énergie spirituelle dans son corps déferla. L'avatar qui faisait office d'Âme Naissante ouvrit les yeux ; des éclats de pression spirituelle émanèrent de son corps tandis que sa main droite se dirigeait lentement vers le sac.
+Wang Lin réfléchit un instant, puis l'énergie spirituelle dans son corps déferla. L'avatar qui faisait office d'Âme Naissante ouvrit les yeux; des éclats de pression spirituelle émanèrent de son corps tandis que sa main droite se dirigeait lentement vers le sac.
 
 Au moment où sa main toucha le sac, une force puissante lui opposa une résistance. Son cœur sombra lorsqu'il réalisa que l'Empereur Ancien n'était pas mort.
 
@@ -54,11 +54,11 @@ Wang Lin sortit la gaine. Il la contempla longuement, les sourcils froncés. Cet
 
 Après avoir hésité, Wang Lin sortit sa propre gaine. Au moment même où il allait comparer les deux objets, les symboles sur chacune des gaines se mirent à briller.
 
-Longtemps après, la lumière disparut lentement. Wang Lin fixa les deux gaines ; au fond de son cœur, il sentait qu'elles renfermaient un secret.
+Longtemps après, la lumière disparut lentement. Wang Lin fixa les deux gaines; au fond de son cœur, il sentait qu'elles renfermaient un secret.
 
 Il les observa encore un moment avant de les ranger. Il frappa ensuite le sac de l'Empereur Ancien, qui se changea en poussière.
 
-Wang Lin soupira. Après avoir déployé tant d'efforts pour ouvrir ce sac, n'y trouver qu'une telle chose le laissait perplexe : ne savait-il pas s'il devait s'en réjouir ou se sentir impuissant ?
+Wang Lin soupira. Après avoir déployé tant d'efforts pour ouvrir ce sac, n'y trouver qu'une telle chose le laissait perplexe: ne savait-il pas s'il devait s'en réjouir ou se sentir impuissant?
 
 Il hésita, puis reporta son attention sur les deux autres sacs de rangement. L'un appartenait au mystérieux momie du temple de bataille de Hou Fen.
 
@@ -74,9 +74,9 @@ Après un soupir, Wang Lin prit un autre sac de rangement et le scanna avec son 
 
 Mais dès que son énergie spirituelle toucha l'objet, son corps trembla et il sentit sa propre conscience s'éloigner. Un paysage familier apparut devant lui tandis qu'un jeune homme à l'allure maléfique volait à une vitesse que Wang Lin jugeait incroyable.
 
-Le jeune homme s'arrêta brusquement. Il leva la tête et, le regard glacial, il déclara : « Tu ne pourras pas t'échapper ! »
+Le jeune homme s'arrêta brusquement. Il leva la tête et, le regard glacial, il déclara: « Tu ne pourras pas t'échapper! »
 
-Les pensées de Wang Lin devinrent chaotiques. Il hésita un instant, les yeux durcis par la froideur. Bien qu'il ne puisse percevoir le niveau de cultivation du jeune homme, une telle vitesse indiquait que celui-ci était bien au-dessus de lui.
+Les pensées de Wang Lin devinrent chaotiques. Il hésita un instant, les yeux durcis par la froideur. Bien qu'il ne puisse percevoir le niveau de culture du jeune homme, une telle vitesse indiquait que celui-ci était bien au-dessus de lui.
 
 Wang Lin remarqua surtout que la terre sur laquelle ce jeune homme planait était la Mer des Démons. Il était évident que cet être maléfique était la momie de Hou Fen. Puisque Wang Lin avait pris son sac, il était venu le réclamer.
 
@@ -86,7 +86,7 @@ Le cœur de Wang Lin sombra. Il hésita un instant, puis augmenta immédiatement
 
 Le temps passa lentement. Bien que le sens divin sur le sac s'estompât progressivement, à ce rythme, il faudrait plusieurs centaines d'années pour l'éliminer totalement.
 
-Wang Lin réfléchit un moment. Ses yeux s'illuminèrent lorsqu'une idée lui vint, mais ce n'était pas encore le moment de la mettre en œuvre. Sachant qu'il manquait de temps, il se leva brusquement. Il regarda vers la Cité de la Famille Teng, le regard glacial, et murmura : « Teng Huayuan, j'arrive ! »
+Wang Lin réfléchit un moment. Ses yeux s'illuminèrent lorsqu'une idée lui vint, mais ce n'était pas encore le moment de la mettre en œuvre. Sachant qu'il manquait de temps, il se leva brusquement. Il regarda vers la Cité de la Famille Teng, le regard glacial, et murmura: « Teng Huayuan, j'arrive! »
 
 Ces derniers jours, presque tous les membres de la famille Teng s'étaient réfugiés à la Cité de la Famille Teng, pensant qu'il s'agissait du seul endroit sûr.
 
@@ -120,4 +120,4 @@ Simultanément, le nom de Wang Lin remplaça celui de Punnan Zi comme le premier
 
 Tôt le matin, à des dizaines de milliers de kilomètres de la Cité de la Famille Teng, Wang Lin volait sur sa bête-moustique. Bien que les cadavres derrière lui commençaient à pourrir, sous l'effet de sa technique, les têtes demeuraient en parfait état.
 
-Car Wang Lin avait fait une promesse : construire une tour faite des têtes des membres de la famille Teng.
+Car Wang Lin avait fait une promesse: construire une tour faite des têtes des membres de la famille Teng.

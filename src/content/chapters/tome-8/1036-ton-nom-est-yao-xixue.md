@@ -8,7 +8,7 @@ slug: ton-nom-est-yao-xixue
 ---
 La restriction florale de la Grotte de l'Empereur Céleste fut totalement activée par le combat entre Wang Lin et le démon du vent. Une main gigantesque saisit la Lance Tueuse de Dieux et tenta immédiatement de l'entraîner vers les profondeurs.
 
-Un éclair de froideur passa dans les yeux de Wang Lin et il hurla : « Effondre-toi ! »
+Un éclair de froideur passa dans les yeux de Wang Lin et il hurla: « Effondre-toi! »
 
 À sa suite, la lumière noire émanant de la Lance Tueuse de Dieux s'intensifia jusqu'à ressembler à un soleil noir. Même le bras formé par l'océan parut obscur sous cette radiance.
 
@@ -16,31 +16,31 @@ Au moment où cette lumière noire atteignit son apogée, un fracas assourdissan
 
 Pourtant, loin de se détendre, l'expression de Wang Lin devint plus grave encore. Même le démon du vent changea de visage en fixant l'océan.
 
-*Roar !!*
+*Roar!!*
 
 Un rugissement sourd émana de l'océan. Ce cri fit trembler les cieux et se mua en une onde sonore qui résonna aux quatre coins du monde. Les grondements tonitruants ne parvenaient pas à couvrir ce rugissement.
 
-Simultanément, l'océan s'agita violemment et commença à s'élever. Les pupilles de Wang Lin se rétractèrent ; la scène qui se déroulait devant lui le fit haleter.
+Simultanément, l'océan s'agita violemment et commença à s'élever. Les pupilles de Wang Lin se rétractèrent; la scène qui se déroulait devant lui le fit haleter.
 
-Ce n'était pas de l'eau s'élevant dans les airs, mais la silhouette humanoïde formée par l'océan qui se redressait !
+Ce n'était pas de l'eau s'élevant dans les airs, mais la silhouette humanoïde formée par l'océan qui se redressait!
 
 C'était un géant dont la taille était inestimable. Le simple fait qu'il se redresse donnait l'impression qu'il allait percer le firmament. Son corps colossal était composé d'eau, et en se levant, il révéla les profondeurs abyssales du fond marin.
 
-L'océan n'était plus là ; seul restait ce géant fait d'eau de mer.
+L'océan n'était plus là; seul restait ce géant fait d'eau de mer.
 
-Un géant des mers !
+Un géant des mers!
 
 Il était impossible de distinguer ses traits, si flous fussent-ils, mais ses grandes oreilles ne lui donnaient en rien l'apparence d'un cultivateur. Il fixa froidement le petit Wang Lin et le démon du vent dans le ciel. Puis, il leva lentement sa main, provoquant une vague monumentale, et tendit la paume vers Wang Lin.
 
 Avant même qu'elle ne soit proche, un grondement s'abattit sur lui comme une rafale de vent. Wang Lin recula immédiatement pour esquiver la paume approchante.
 
-« Une simple restriction formée par la rosée. Je ne te considère pas digne de mon attention ! » Deux boules de flammes apparurent dans les yeux de Wang Lin et le tatouage de l'Oiseau Vermillon sur son corps brilla d'un rouge éclatant.
+« Une simple restriction formée par la rosée. Je ne te considère pas digne de mon attention! » Deux boules de flammes apparurent dans les yeux de Wang Lin et le tatouage de l'Oiseau Vermillon sur son corps brilla d'un rouge éclatant.
 
 Au moment où la main du géant balayait l'espace, Wang Lin ouvrit les bras et une mer de flammes jaillit de son corps.
 
-Dès l'apparition de cette mer de feu, elle commença à déferler sur les environs tandis que l'énergie d'origine de Wang Lin déferlait. En un clin d'œil, elle emplit le ciel dans un fracas retentissant !
+Dès l'apparition de cette mer de feu, elle commença à déferler sur les environs tandis que l'énergie d'origine de Wang Lin déferlait. En un clin d'œil, elle emplit le ciel dans un fracas retentissant!
 
-La scène était d'une intensité extrême : le ciel était recouvert par une mer de flammes, et en dessous trônait un géant fait d'eau de mer !
+La scène était d'une intensité extrême: le ciel était recouvert par une mer de flammes, et en dessous trônait un géant fait d'eau de mer!
 
 Alors que le bras du géant se refermait, Wang Lin poussa un rugissement au cœur des flammes. Sa volonté s'infusa dans le feu, et toute la mer de flammes descendit du ciel sur le géant.
 
@@ -50,7 +50,7 @@ En un instant, la mer de flammes convergea de toutes les directions autour du g�
 
 Le géant des mers rugit à nouveau. Dans son cri, il semblait que toute l'eau de son corps bouillait, avant qu'il ne se disperse soudainement dans toutes les directions.
 
-On aurait dit que la mer cherchait à dévorer le ciel. De loin, on ne pouvait même pas dire que Wang Lin combattait, car on aurait cru assister à un affrontement entre l'océan et le firmament !
+On aurait dit que la mer cherchait à dévorer le ciel. De loin, on ne pouvait même pas dire que Wang Lin combattait, car on aurait cru assister à un affrontement entre l'océan et le firmament!
 
 La mer, majestueuse, chargea directement la mer de flammes céleste. En un instant, une vague monstrueuse, telle un mur reliant la terre au ciel, balaya les lieux. Elle forma un anneau qui commença à se contracter furieusement vers le centre.
 
@@ -58,19 +58,19 @@ Le fracas faisait trembler les cieux. À mesure que le mur d'eau se refermait, t
 
 Lors de sa contraction, un visage gigantesque apparut au sein du mur lorsqu'il fut à mille pieds de Wang Lin.
 
-C'était le visage du géant des mers. Dès son apparition, il poussa un rugissement et ouvrit la gueule. Il chargea alors Wang Lin pour le dévorer !
+C'était le visage du géant des mers. Dès son apparition, il poussa un rugissement et ouvrit la gueule. Il chargea alors Wang Lin pour le dévorer!
 
 La flamme dans les yeux de Wang Lin brûlait avec éclat et le tatouage de l'Oiseau Vermillon rayonnait à travers ses vêtements. D'une simple pensée, un cri d'Oiseau Vermillon jaillit de son corps.
 
-Ce cri était puissant et majestueux. À cet instant précis, le corps entier de Wang Lin commença à brûler ; l'Oiseau Vermillon rouge s'élança hors de lui et déploya ses ailes. Un instant, une mer de flammes indescriptible apparut !
+Ce cri était puissant et majestueux. À cet instant précis, le corps entier de Wang Lin commença à brûler; l'Oiseau Vermillon rouge s'élança hors de lui et déploya ses ailes. Un instant, une mer de flammes indescriptible apparut!
 
-Alors que la bouche du géant des mers approchait, une trace d'intention meurtrière brilla dans les yeux de Wang Lin, qui murmura doucement : « Flamme de l'Oiseau Vermillon ! »
+Alors que la bouche du géant des mers approchait, une trace d'intention meurtrière brilla dans les yeux de Wang Lin, qui murmura doucement: « Flamme de l'Oiseau Vermillon! »
 
-À ces mots, l'Oiseau Vermillon au-dessus de lui déploya soudainement ses ailes, et des flammes infinies éclatèrent, se propageant dans toutes les directions !
+À ces mots, l'Oiseau Vermillon au-dessus de lui déploya soudainement ses ailes, et des flammes infinies éclatèrent, se propageant dans toutes les directions!
 
 Ces flammes étaient sans limites et, tandis qu'elles s'étendaient, un rugissement de douleur monta du géant des mers, contraint de reculer.
 
-Même la vague muraille qui se trouvait à mille pieds de Wang Lin s'évapora instantanément au contact des flammes. L'eau se changea en brume et fut repoussée !
+Même la vague muraille qui se trouvait à mille pieds de Wang Lin s'évapora instantanément au contact des flammes. L'eau se changea en brume et fut repoussée!
 
 Elle recula plusieurs fois plus vite qu'elle ne s'était approchée. Cependant, les flammes de l'Oiseau Vermillon la poursuivaient de près. À ce moment-là, le mur d'eau se dissipa pour se condenser à nouveau en un géant des mers.
 
@@ -80,7 +80,7 @@ Dès que le géant se reforma, la flamme de l'Oiseau Vermillon descendit et l'en
 
 L'Oiseau Vermillon poussa un autre cri. Il se transforma en une boule de feu et chargea le géant tel un météore. Il perça l'eau de mer et s'engouffra à l'intérieur du colosse.
 
-Des rugissements de douleur continuaient de jaillir du géant des mers. Déjà entouré de flammes, il brûlait désormais de l'intérieur par l'impact de l'Oiseau Vermillon !
+Des rugissements de douleur continuaient de jaillir du géant des mers. Déjà entouré de flammes, il brûlait désormais de l'intérieur par l'impact de l'Oiseau Vermillon!
 
 Alors que le géant brûlait de part et d'autre, il agitait ses bras comme s'il se débattait. Cependant, il ne pouvait empêcher l'eau qui composait son corps de se transformer en une vapeur saturant le ciel.
 
@@ -92,7 +92,7 @@ Tandis que le géant se débattait en vain et que son corps continuait de se dis
 
 L'Oiseau Vermillon poussa un nouveau cri et poursuivit la goutte d'eau de près.
 
-La goutte était si rapide qu'elle atteignit instantanément Wang Lin. C'était manifestement son ultime combat avant la mort ! Mais Wang Lin ne paniqua pas ; une lueur bleue jaillit de son œil droit, et un bouclier de lumière azur apparut immédiatement devant lui !
+La goutte était si rapide qu'elle atteignit instantanément Wang Lin. C'était manifestement son ultime combat avant la mort! Mais Wang Lin ne paniqua pas; une lueur bleue jaillit de son œil droit, et un bouclier de lumière azur apparut immédiatement devant lui!
 
 Un rugissement tonitruant retentit lorsqu'un impact puissant frappa le bouclier azur. Celui-ci fut repoussé de quelques centimètres par la force du choc, mais il ne se fissura pas. Il bloqua l'attaque de la goutte d'eau.
 
@@ -100,15 +100,15 @@ Au même moment, l'Oiseau Vermillon s'approcha et enveloppa la goutte d'une chal
 
 Le cri du géant des mers résonnait encore dans le ciel. Cependant, lorsque la dernière goutte disparut, le firmament entier trembla comme s'il allait s'effondrer. À cet instant, le ciel sembla se déchirer et le fond marin se brisa pouce par pouce.
 
-Cet effondrement ne dura que quelques respirations avant que le ciel ne se rompe. Le fond marin vola également en éclats, révélant la verdure située en dessous !
+Cet effondrement ne dura que quelques respirations avant que le ciel ne se rompe. Le fond marin vola également en éclats, révélant la verdure située en dessous!
 
-Ce monde entier n'était qu'une goutte de rosée sur le pétale d'une fleur. Wang Lin sentit sa vision se troubler et, lorsqu'il retrouva la vue, il se trouvait dans le champ de fleurs où il était tombé auparavant !
+Ce monde entier n'était qu'une goutte de rosée sur le pétale d'une fleur. Wang Lin sentit sa vision se troubler et, lorsqu'il retrouva la vue, il se trouvait dans le champ de fleurs où il était tombé auparavant!
 
 Au moment où le monde océanique s'effondra, le démon du vent chargea à toute vitesse. Son but était de s'engouffrer dans une autre restriction pour s'échapper.
 
 Cependant, alors qu'elle s'élançait, la silhouette de Wang Lin apparut. Terrifiée, le démon du vent s'apprêtait à battre en retraite lorsqu'une voix froide pénétra ses oreilles.
 
-« Arrête ! »
+« Arrête! »
 
 Le corps du démon du vent se figea brusquement. Bien qu'elle ait repris ses esprits instantanément, cela fut suffisant pour Wang Lin. Il leva sa main droite et pointa une cicatrice sur le visage de la créature.
 
@@ -118,7 +118,7 @@ Dans un sifflement, la cicatrice disparut, révélant une peau blanche en dessou
 
 La main droite de Wang Lin ne s'arrêta pas. À chaque pression, une des cicatrices du démon du vent s'effaçait. Sa main était si rapide qu'elle laissait derrière elle de multiples images rémanentes.
 
-Avant que le sort d'Arrêt ne cesse d'agir, un autre fut utilisé. La peur envahit les yeux du démon du vent ; elle avait déjà deviné les intentions de Wang Lin.
+Avant que le sort d'Arrêt ne cesse d'agir, un autre fut utilisé. La peur envahit les yeux du démon du vent; elle avait déjà deviné les intentions de Wang Lin.
 
 Tandis que la main droite de Wang Lin continuait sa course, les innombrables cicatrices sur le visage du démon du vent disparurent lentement jusqu'à ce qu'il n'en reste plus aucune. À cet instant, le démon du vent retrouva sa beauté originelle.
 
@@ -138,9 +138,9 @@ En voyant ce regard, un frisson parcourut le cœur du démon du vent.
 
 Cependant, tu ne l'as pas fait. Peu m'importe que tu aies trompé Yao Xixue, mais tu as détruit la chance pour mon domaine de vie et de mort et mon domaine de karma d'évoluer... De plus, ton héritage n'est que des souvenirs, et le vrai "toi" est mort... Bien que tu te fasses appeler démon, tu n'es que Yao Xixue. Tu ne peux pas mourir, car tu n'es qu'un souvenir. »
 
-La lueur mystérieuse dans les yeux de Wang Lin devint encore plus intense. Puis il ouvrit la bouche et inspira profondément !
+La lueur mystérieuse dans les yeux de Wang Lin devint encore plus intense. Puis il ouvrit la bouche et inspira profondément!
 
-Wang Lin utilisa le sort d'engloutissement le plus impitoyable légué par Qing Shui ! Ce qu'il dévorait, c'était l'énergie démoniaque à l'intérieur de Yao Xixue !
+Wang Lin utilisa le sort d'engloutissement le plus impitoyable légué par Qing Shui! Ce qu'il dévorait, c'était l'énergie démoniaque à l'intérieur de Yao Xixue!
 
 La terreur dans les yeux du démon du vent atteignit son paroxysme lorsque cette force d'aspiration apparut. Elle sentit toute l'énergie démoniaque de son corps être aspirée dans la bouche de ce cultivateur.
 
@@ -160,6 +160,6 @@ L'actuelle Yao Xixue était impuissante, et cette terreur fut clairement perçue
 
 Wang Lin soupira, puis ouvrit la bouche d'où jaillit un rayon de lumière spectrale. Cela fit sursauter Yao Xixue qui poussa un cri et recula de nouveau. Son regard n'était plus prudent, mais empreint de terreur.
 
-Ayant perdu toute mémoire, elle était comme un mortel découvrant l'usage des sorts pour la première fois !
+Ayant perdu toute mémoire, elle était comme un mortel découvrant l'usage des sorts pour la première fois!
 
-Le Sceau Céleste des 18 Enfers apparut devant Wang Lin. Après avoir réfléchi un instant, il pointa la 14e couche. Il n'y avait qu'une seule âme dans cette 14e couche ! Cette âme était enveloppée d'un brouillard de sang et dégageait une quantité monstrueuse de ressentiment. C'était l'Ancêtre de Sang !
+Le Sceau Céleste des 18 Enfers apparut devant Wang Lin. Après avoir réfléchi un instant, il pointa la 14e couche. Il n'y avait qu'une seule âme dans cette 14e couche! Cette âme était enveloppée d'un brouillard de sang et dégageait une quantité monstrueuse de ressentiment. C'était l'Ancêtre de Sang!

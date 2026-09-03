@@ -8,13 +8,13 @@ slug: formation-de-scellement-celeste-en-neuf-etapes
 ---
 Il n'y avait qu'une seule ligne sur ce jade. Wang Lin réfléchit longuement, mais ne parvint toujours pas à en saisir pleinement le sens. À la lecture seule des mots, de nombreuses interprétations étaient possibles.
 
-Son regard balaya Maître Ashen Pine. Wang Lin savait que celui-ci était venu ici à plusieurs reprises et qu'il avait exploré de nombreuses grottes dans les environs. Maître Ashen Pine devait impérativement avoir obtenu ici des trésors rares, des méthodes de cultivation ou des informations précieuses.
+Son regard balaya Maître Ashen Pine. Wang Lin savait que celui-ci était venu ici à plusieurs reprises et qu'il avait exploré de nombreuses grottes dans les environs. Maître Ashen Pine devait impérativement avoir obtenu ici des trésors rares, des méthodes de culture ou des informations précieuses.
 
 Autrement, il ne serait pas aussi familier de cet endroit.
 
 Ils continuèrent leur progression sur l'étroit sentier de montagne, Maître Ashen Pine marchant prudemment en tête. Il ne possédait qu'une simple carte de la région au-delà de ce point et n'avait jamais emprunté ce chemin auparavant. Précédemment, il avait suivi une autre voie, et c'est là qu'il avait trouvé le jade et la carte contenant les informations qui l'avaient tant attiré.
 
-Ils descendirent le sentier étroit pendant plusieurs jours. Après avoir évité diverses bêtes de brume, ils atteignirent les profondeurs de la chaîne de montagnes. Une dernière montagne se dressait devant eux ; une fois ce passage franchi, ils découvriraient ce qui se cachait derrière elle.
+Ils descendirent le sentier étroit pendant plusieurs jours. Après avoir évité diverses bêtes de brume, ils atteignirent les profondeurs de la chaîne de montagnes. Une dernière montagne se dressait devant eux; une fois ce passage franchi, ils découvriraient ce qui se cachait derrière elle.
 
 La vieille femme en vert restait calme et ne regardait pas à droite ou à gauche, telle une moine en méditation. Wang Lin l'avait observée à plusieurs reprises, mais il ne parvenait pas à percer ses pensées.
 
@@ -32,11 +32,11 @@ La lumière aux sept couleurs couvrait toujours le ciel, rendant impossible de d
 
 Les yeux de Wang Lin s'illuminèrent et il scruta l'horizon. Il put voir une brume tourbillonner dans le ciel, quelques montagnes plus loin. Les fluctuations d'énergie originelle provenaient de là. Il ressentit également une puissance capable de secouer l'âme.
 
-Maître Ashen Pine regarda au loin et dit froidement : « C'est le sortilège de Chen Tianjun. »
+Maître Ashen Pine regarda au loin et dit froidement: « C'est le sortilège de Chen Tianjun. »
 
-Après un long moment, les fluctuations se dissipèrent et la brume se calma. C'était comme si rien ne s'était produit ; plus aucune fluctuation n'apparut.
+Après un long moment, les fluctuations se dissipèrent et la brume se calma. C'était comme si rien ne s'était produit; plus aucune fluctuation n'apparut.
 
-« Je crains que Chen Tianjun ne soit mort. Il n'a pas écouté nos conseils et il méritait sa fin ! Ce Royaume aux Sept Couleurs n'est pas un lieu où l'on peut circuler à la légère, le chemin change à chaque fois. À moins de connaître parfaitement cet endroit, on ne peut ni y entrer ni en sortir comme bon nous semble », ricana le vieil homme nommé Pang avec une pointe de moquerie dans les yeux.
+« Je crains que Chen Tianjun ne soit mort. Il n'a pas écouté nos conseils et il méritait sa fin! Ce Royaume aux Sept Couleurs n'est pas un lieu où l'on peut circuler à la légère, le chemin change à chaque fois. À moins de connaître parfaitement cet endroit, on ne peut ni y entrer ni en sortir comme bon nous semble », ricana le vieil homme nommé Pang avec une pointe de moquerie dans les yeux.
 
 « Bien, mettons de côté le cas de Chen Tianjun. Camarade cultivatrice Zhao, j'ai vérifié et il semble qu'il y ait des restrictions sur la voie. Quant à la manière de les briser, j'ai besoin de votre aide, Camarade Zhao. » Maître Ashen Pine fit quelques pas en arrière et joignit les mains en signe de respect envers la vieille femme.
 
@@ -54,9 +54,9 @@ Wang Lin, imperturbable, détourna le regard de la pierre. Il s'assit et commen�
 
 Le temps passa lentement. La vieille femme en vert ne bougeait pas, mais l'expression de ses yeux changeait drastiquement. Finalement, elle fronça les sourcils.
 
-« Maître Ashen Pine, êtes-vous certain qu'une restriction se trouve ici ? Pourquoi ne pas simplement escalader la montagne ? » demanda-t-elle en le regardant.
+« Maître Ashen Pine, êtes-vous certain qu'une restriction se trouve ici? Pourquoi ne pas simplement escalader la montagne? » demanda-t-elle en le regardant.
 
-Maître Ashen Pine réfléchit un instant avant de répondre : « Il n'y a pas qu'une seule bête féroce au sommet de cette montagne. D'après mes informations, il y en a sept ! Ce sont toutes des bêtes de rang 12. Nous sommes passés par un autre chemin auparavant et avons tenté l'ascension, mais nous avons subi de lourdes pertes. Finalement, nous n'avons pas pu passer. C'est alors que j'ai trouvé une carte indiquant un passage à travers la montagne, et l'entrée se trouve précisément ici ! »
+Maître Ashen Pine réfléchit un instant avant de répondre: « Il n'y a pas qu'une seule bête féroce au sommet de cette montagne. D'après mes informations, il y en a sept! Ce sont toutes des bêtes de rang 12. Nous sommes passés par un autre chemin auparavant et avons tenté l'ascension, mais nous avons subi de lourdes pertes. Finalement, nous n'avons pas pu passer. C'est alors que j'ai trouvé une carte indiquant un passage à travers la montagne, et l'entrée se trouve précisément ici! »
 
 La vieille femme en vert marqua une pause avant de reculer de deux pas. Ses mains tracèrent un sceau dans l'air. Des images rémanentes de ses mains apparurent, se superposant pour former une rune complexe. La rune vint soudainement se poser sur la roche montagneuse.
 
@@ -82,38 +82,38 @@ La plupart de ses rides disparurent instantanément. Son corps sembla soudaineme
 
 Elle ne s'arrêta que lorsqu'elle fut aux côtés de Wang Lin. Son visage retrouva immédiatement son aspect flétri.
 
-La vieille femme dit d'un ton amer : « Formation de Scellement Céleste en Neuf Étapes ! C'est une formation antique. Je l'ai vue dans des textes, mais jamais en réalité. Pour qu'un être puisse placer une telle restriction, sa maîtrise doit déjà être au sommet. »
+La vieille femme dit d'un ton amer: « Formation de Scellement Céleste en Neuf Étapes! C'est une formation antique. Je l'ai vue dans des textes, mais jamais en réalité. Pour qu'un être puisse placer une telle restriction, sa maîtrise doit déjà être au sommet. »
 
-« La Formation de Scellement Céleste en Neuf Étapes... » Wang Lin regarda la roche. Après le retrait de la vieille femme, tout était redevenu normal ; il était impossible d'y déceler la moindre anomalie.
+« La Formation de Scellement Céleste en Neuf Étapes... » Wang Lin regarda la roche. Après le retrait de la vieille femme, tout était redevenu normal; il était impossible d'y déceler la moindre anomalie.
 
-« Cette formation a été endommagée par le passage du temps, elle n'a donc plus de capacités offensives, mais son pouvoir de scellement reste intact. Avec ma cultivation, je ne peux faire que cinq pas. Au-delà, mon corps ne pourra pas supporter la pression. »
+« Cette formation a été endommagée par le passage du temps, elle n'a donc plus de capacités offensives, mais son pouvoir de scellement reste intact. Avec ma culture, je ne peux faire que cinq pas. Au-delà, mon corps ne pourra pas supporter la pression. »
 
-Maître Ashen Pine fronça les sourcils en observant la formation et demanda : « Comment pouvons-nous briser cette formation ? »
+Maître Ashen Pine fronça les sourcils en observant la formation et demanda: « Comment pouvons-nous briser cette formation? »
 
-La vieille femme en vert sortit quelques pilules qu'elle avala. Elle commença à cultiver avant de répondre : « Faites le dixième pas, et vous la briserez. »
+La vieille femme en vert sortit quelques pilules qu'elle avala. Elle commença à cultiver avant de répondre: « Faites le dixième pas, et vous la briserez. »
 
 Maître Ashen Pine réfléchit. Après un long moment, il serra les dents et fit un geste de la main. Une armure démoniaque noire apparut autour de lui. L'énergie démoniaque envahit l'espace, donnant à Maître Ashen Pine l'apparence d'un dieu démon.
 
-« Je veux voir combien de pas je peux accomplir avec ma cultivation et cette armure ! Camarade cultivatrice Zhao, ouvrez-la pour moi ! » Maître Ashen Pine n'avait plus le choix. Il était arrivé si loin qu'il ne pouvait se résoudre à abandonner. Il fit deux pas et chargea vers la roche.
+« Je veux voir combien de pas je peux accomplir avec ma culture et cette armure! Camarade cultivatrice Zhao, ouvrez-la pour moi! » Maître Ashen Pine n'avait plus le choix. Il était arrivé si loin qu'il ne pouvait se résoudre à abandonner. Il fit deux pas et chargea vers la roche.
 
 La vieille femme en vert forma un sceau et pointa l'avant. Une restriction s'élança pour atterrir sur la roche devant Maître Ashen Pine. Les ondulations réapparurent et la pierre devint de nouveau transparente.
 
-Sans hésiter, Maître Ashen Pine pénétra directement dans la roche. Sa puissance de cultivateur au stade intermédiaire du Briseur de Nirvana éclata, et dès qu'il entra dans la pierre, il fit quatre pas !
+Sans hésiter, Maître Ashen Pine pénétra directement dans la roche. Sa puissance de cultivateur au stade intermédiaire du Briseur de Nirvana éclata, et dès qu'il entra dans la pierre, il fit quatre pas!
 
-Chaque pas résonnait comme un coup de tonnerre. Le visage de Maître Ashen Pine devint livide alors que l'armure dégageait une énergie démoniaque dense. Après quatre pas, il marqua une pause, puis ses yeux s'illuminèrent et il fit, contre toute attente, trois pas supplémentaires !
+Chaque pas résonnait comme un coup de tonnerre. Le visage de Maître Ashen Pine devint livide alors que l'armure dégageait une énergie démoniaque dense. Après quatre pas, il marqua une pause, puis ses yeux s'illuminèrent et il fit, contre toute attente, trois pas supplémentaires!
 
-Après ces trois pas, le visage du maître était pâle et son corps tremblait légèrement. Cependant, il serra les dents et poussa un rugissement en faisant un autre pas !
+Après ces trois pas, le visage du maître était pâle et son corps tremblait légèrement. Cependant, il serra les dents et poussa un rugissement en faisant un autre pas!
 
-C'était le huitième pas !
+C'était le huitième pas!
 
-Dès que le cinquième pas fut posé (en comptant l'élan), des craquements furent entendus dans le corps de Maître Ashen Pine et du sang coula du coin de sa bouche. Ses yeux étaient injectés de sang. Mille ans de préparation, et il se retrouvait stoppé par une formation. Il refusait de céder !
+Dès que le cinquième pas fut posé (en comptant l'élan), des craquements furent entendus dans le corps de Maître Ashen Pine et du sang coula du coin de sa bouche. Ses yeux étaient injectés de sang. Mille ans de préparation, et il se retrouvait stoppé par une formation. Il refusait de céder!
 
-Rugissement !
+Rugissement!
 
 Maître Ashen Pine serra les dents et s'élança à nouveau. À cet instant, une lueur d'excitation brilla dans les yeux du vieil homme nommé Pang, tandis que ceux de la vieille femme en vert s'illuminèrent. Il était impossible de deviner ses pensées.
 
 Au moment où le neuvième pas fut posé, ce fut comme si Maître Ashen Pine avait percuté un mur. Une force colossale frappa son corps et il cracha du sang. Il fut éjecté de la pierre et parcourut plusieurs dizaines de pieds avant de s'arrêter.
 
-« Si je ne peux pas entrer, alors aucun d'entre eux ne pourra quitter ce Royaume aux Sept Couleurs ! » Son visage était pâle alors qu'il fixait la roche. Une lueur de folie et de férocité habitait ses yeux.
+« Si je ne peux pas entrer, alors aucun d'entre eux ne pourra quitter ce Royaume aux Sept Couleurs! » Son visage était pâle alors qu'il fixait la roche. Une lueur de folie et de férocité habitait ses yeux.
 
-Wang Lin se leva et épousseta ses vêtements. Il regarda l'armure démoniaque éparpillée autour de Maître Ashen Pine et dit calmement : « Laissez-moi essayer. »
+Wang Lin se leva et épousseta ses vêtements. Il regarda l'armure démoniaque éparpillée autour de Maître Ashen Pine et dit calmement: « Laissez-moi essayer. »

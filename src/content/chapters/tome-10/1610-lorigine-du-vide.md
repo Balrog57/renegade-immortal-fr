@@ -20,13 +20,13 @@ Wang Lin commença à résider ici.
 
 De cet emplacement, il pouvait contempler la secte où se trouvait Li Muwan et ressentir son existence.
 
-« Qu'est-ce que le karma ? Ne réfléchissez pas, ne méditez pas. Observez le soleil se lever et se coucher, voyez la pluie et la neige tomber, contemplez l'alternance des saisons. Ne vous demandez pas si cela est vrai ou faux, ne songez pas à la confusion entre la vie et la mort. Vivez simplement le reste de votre vie en silence... »
+« Qu'est-ce que le karma? Ne réfléchissez pas, ne méditez pas. Observez le soleil se lever et se coucher, voyez la pluie et la neige tomber, contemplez l'alternance des saisons. Ne vous demandez pas si cela est vrai ou faux, ne songez pas à la confusion entre la vie et la mort. Vivez simplement le reste de votre vie en silence... »
 
 Que ce soit à l'aube ou au crépuscule, une silhouette âgée était toujours assise sur un rocher, observant silencieusement les montagnes lointaines.
 
 « Tout karma dans la vie est une cause karmique tant que vous le nommez ainsi, et un effet karmique tant que vous le nommez ainsi... Pourquoi chercher à en trouver la raison... » Wang Lin demeurait serein, contemplant la montagne devant lui année après année.
 
-Il ne mangeait pas, car il n'y avait aucune nourriture. Il avait oublié la faim ; il avait tout oublié.
+Il ne mangeait pas, car il n'y avait aucune nourriture. Il avait oublié la faim; il avait tout oublié.
 
 Wang Lin observait le monde avec un sourire insaisissable. Durant ces années, il vit de nombreux cultivateurs quitter la secte, parmi lesquels se trouvait Li Muwan.
 
@@ -44,19 +44,19 @@ Ils s'asseyaient calmement aux côtés de Wang Lin, comme s'ils cherchaient le D
 
 Année après année, toujours plus de cultivateurs affluèrent de Hou Fen et de toutes les directions, venant de diverses sectes, comme si quelque chose les appelait au plus profond de leur cœur.
 
-Parmi ces cultivateurs, certains n'avaient même pas atteint le stade de l'Établissement des Fondations, d'autres étaient au stade de la Transformation de l'Âme, et l'un d'eux avait même franchi les cieux pour atteindre le stade d'Ascendant. Mais peu importait leur niveau de cultivation, ils n'existaient pas aux yeux de Wang Lin.
+Parmi ces cultivateurs, certains n'avaient même pas atteint le stade de l'Établissement des Fondations, d'autres étaient au stade de la Transformation de l'Âme, et l'un d'eux avait même franchi les cieux pour atteindre le stade d'Ascendant. Mais peu importait leur niveau de culture, ils n'existaient pas aux yeux de Wang Lin.
 
 Quel que soit leur rang, ils devaient simplement trouver une place sur la montagne. L'espace étant limité, il n'y avait point de lutte pour les places. Tous restaient assis en silence pour écouter Wang Lin, qui ne parlait peut-être qu'une fois par an.
 
 Lorsque Wang Lin se taisait, ils cultivaient. C'était comme si une force invisible, permettant à leurs esprits de poursuivre le monde, imprégnait les lieux.
 
-« Tout destin karmique se rassemble et finit par devenir un effet karmique. C'est cela, le karma. Durant les décennies passées à comprendre le karma, j'ai découvert qu'entre la cause et l'effet, il existe autre chose : le destin karmique. Si le destin karmique n'existe pas, alors le karma n'existe pas. » Wang Lin afficha un sourire en prenant la parole cette année-là.
+« Tout destin karmique se rassemble et finit par devenir un effet karmique. C'est cela, le karma. Durant les décennies passées à comprendre le karma, j'ai découvert qu'entre la cause et l'effet, il existe autre chose: le destin karmique. Si le destin karmique n'existe pas, alors le karma n'existe pas. » Wang Lin afficha un sourire en prenant la parole cette année-là.
 
 De plus en plus de cultivateurs s'entassaient sur la montagne. Bientôt, il n'y avait même plus de place au pied de celle-ci. Les dizaines de kilomètres entourant le mont de Wang Lin étaient saturés de pratiquants.
 
 Presque tous les cultivateurs de ce continent finirent par trouver leur chemin vers ce lieu, poussés par un sentiment étrange au fil des ans. La zone dans un rayon de centaines de kilomètres était couverte d'innombrables cultivateurs venus vénérer Wang Lin.
 
-Certains traversèrent la mer depuis d'autres continents ou utilisèrent des formations de téléportation. Parmi eux se trouvaient Dun Tian, Nian Tian et une multitude de disciples du Secte de l'Affinement de l'Âme.
+Certains traversèrent la mer depuis d'autres continents ou utilisèrent des formations de téléportation. Parmi eux se trouvaient Dun Tian, Nian Tian et une multitude de disciples de la Secte de l'Affinement de l'Âme.
 
 Il y avait aussi les cultivateurs de Xue Yue. Sous la conduite de la femme froide, ils étaient arrivés, attirés par cette sensation mystérieuse. Ils s'assirent en silence pour chercher le Dao.
 
@@ -72,11 +72,11 @@ Enfin, même Zhu Quezi brisa le vide pour arriver. Il médita longuement au-dess
 
 « Ma rencontre avec Liu Mei et la création de notre karma n'étaient que le fruit du destin karmique... »
 
-« Le lien entre moi et le Secte de l'Affinement de l'Âme est également une affaire de destin karmique. »
+« Le lien entre moi et la Secte de l'Affinement de l'Âme est également une affaire de destin karmique. »
 
-« Qu'il s'agisse de Red Butterfly ou de tout le reste dans ce monde, le karma est ainsi fait. Même dans ce monde, tout demeure réel. Destin, destin, destin... »
+« Qu'il s'agisse de Papillon Rouge ou de tout le reste dans ce monde, le karma est ainsi fait. Même dans ce monde, tout demeure réel. Destin, destin, destin... »
 
-« Ce destin est une force externe. Par son interférence, il crée une cause karmique qui, en se combinant, forme un effet karmique. Tel un homme et une femme engendrant un enfant : l'homme et la femme sont la cause, leur union est le destin, et l'enfant qu'ils donnent naissance est l'effet. » Wang Lin sourit et soupira doucement.
+« Ce destin est une force externe. Par son interférence, il crée une cause karmique qui, en se combinant, forme un effet karmique. Tel un homme et une femme engendrant un enfant: l'homme et la femme sont la cause, leur union est le destin, et l'enfant qu'ils donnent naissance est l'effet. » Wang Lin sourit et soupira doucement.
 
 À cet instant, une personne sortit de la secte située sur la montagne. Elle était restée la même, vêtue d'une robe blanche et d'un châle de soie verte sur les épaules, affichant une expression empreinte de douceur. C'était Li Muwan.
 
@@ -86,7 +86,7 @@ Il tendit sa main droite et appela Li Muwan. Le regard de Wang Lin était emprei
 
 Les yeux de Li Muwan étaient emplis de confusion, mais un sentiment surgit de son cœur, une sensation si familière qu'elle fit vibrer l'âme de Wang Lin. Cette familiarité semblait gravée dans son être, capable de traverser les cycles de la réincarnation.
 
-Même après des milliers ou des dizaines de milliers de cycles, même en buvant des milliers ou des dizaines de milliers de bols de la soupe d'oubli de Grand-mère Meng [1], elle ne l'oublierait pas ! Pourtant, un sceau semblait entraver ses souvenirs, comme pour les séparer à jamais.
+Même après des milliers ou des dizaines de milliers de cycles, même en buvant des milliers ou des dizaines de milliers de bols de la soupe d'oubli de Grand-mère Meng [1], elle ne l'oublierait pas! Pourtant, un sceau semblait entraver ses souvenirs, comme pour les séparer à jamais.
 
 Inconsciemment, elle s'approcha de Wang Lin, qui lui prit la main. Elle s'assit sur le rocher à ses côtés, sous le regard des innombrables cultivateurs présents dans un rayon de centaines de kilomètres.
 
@@ -94,11 +94,11 @@ Inconsciemment, elle s'approcha de Wang Lin, qui lui prit la main. Elle s'assit 
 
 Wang Lin sourit et posa sa main gauche entre les sourcils de Li Muwan.
 
-Ce geste ne semblait porter aucune puissance, mais au moment du contact, le sceau de son esprit vola en éclats. Le corps de Li Muwan trembla ; elle fut la première à réveiller ses souvenirs dans ce monde qu'il avait façonné.
+Ce geste ne semblait porter aucune puissance, mais au moment du contact, le sceau de son esprit vola en éclats. Le corps de Li Muwan trembla; elle fut la première à réveiller ses souvenirs dans ce monde qu'il avait façonné.
 
 « Wang Lin... » Les yeux de Li Muwan se remplirent de larmes qui coulèrent sur ses joues. Elle contempla le visage vieilli de Wang Lin et, en levant la main pour effleurer sa peau, ses larmes redoublèrent.
 
-Pourtant, ces larmes étaient empreintes de joie et de chaleur. Elle ne se souciait pas de la vieillesse de Wang Lin ; elle le serra tendrement contre elle.
+Pourtant, ces larmes étaient empreintes de joie et de chaleur. Elle ne se souciait pas de la vieillesse de Wang Lin; elle le serra tendrement contre elle.
 
 « Je n'existe pas, tout ceci n'existe pas, c'est pour cela que le mot "disparaître" existe... Cela contient le vrai et le faux, la vie et la mort... »
 

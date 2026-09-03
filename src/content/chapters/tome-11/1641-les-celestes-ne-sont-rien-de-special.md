@@ -6,11 +6,11 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1641 - Celestials Aren’t Anything Special
 slug: les-celestes-ne-sont-rien-de-special
 ---
-« Si le Souverain Céleste aux Sept Couleurs avait été gravement blessé et contraint à une cultivation en isolement, alors qui était ce Daoïste aux Sept Couleurs que j'ai vu dans le Domaine Brillant des Sept Couleurs... » Wang Lin se frotta les tempes et cessa de songer à ces pensées confuses. Il porta son regard au loin vers les quatre auras lointaines.
+« Si le Souverain Céleste aux Sept Couleurs avait été gravement blessé et contraint à une culture en isolement, alors qui était ce Daoïste aux Sept Couleurs que j'ai vu dans le Domaine Brillant des Sept Couleurs... » Wang Lin se frotta les tempes et cessa de songer à ces pensées confuses. Il porta son regard au loin vers les quatre auras lointaines.
 
 En vérité, il avait ressenti ces auras dès son entrée dans le Royaume Céleste Antique. La raison de sa présence ici, outre la destruction des statues, était de rencontrer l'une de ces quatre auras familières.
 
-Il commençait également à comprendre certaines choses. Il allait trouver cette personne qu'il connaissait et conclure un marché !
+Il commençait également à comprendre certaines choses. Il allait trouver cette personne qu'il connaissait et conclure un marché!
 
 Il fit un pas en avant et s'enfonça dans les profondeurs du Royaume Céleste Antique.
 
@@ -24,39 +24,39 @@ Wang Lin ne da même pas un regard à ces individus. Ces gens avaient peut-être
 
 Toutefois, si quiconque osait l'attaquer, Wang Lin n'aurait aucun mal à tuer quelques Célestes. En fait, il n'en avait pas encore assez tué. S'il n'avait pas d'autres projets, ces gens n'auraient eu aucune chance de survivre face à lui.
 
-Alors qu'il progressait, quatre statues gigantesques apparurent lentement devant lui. Ces quatre statues étaient aussi hautes que le ciel lui-même ; elles ressemblaient à quatre montagnes perçant les cieux !
+Alors qu'il progressait, quatre statues gigantesques apparurent lentement devant lui. Ces quatre statues étaient aussi hautes que le ciel lui-même; elles ressemblaient à quatre montagnes perçant les cieux!
 
 Derrière elles s'étendaient d'innombrables statues des trois anciens clans, aussi loin que l'œil pouvait voir.
 
 Un vortex tournait lentement entre les sourcils de chacune des quatre statues. Le regard de Wang Lin les balaya et il sentit quatre auras tyranniques en leur sein.
 
-Wang Lin reconnut très bien l'une de ces quatre auras ; elle provenait de l'Oiseau Vermillon !
+Wang Lin reconnut très bien l'une de ces quatre auras; elle provenait de l'Oiseau Vermillon!
 
 Cette aura ressemblait à celle de l'ancêtre de l'Oiseau Vermillon. Wang Lin avait éprouvé la même sensation lorsqu'il avait vu la première génération de l'Oiseau Vermillon dans les Terres Déchues.
 
-« Oiseau Vermillon... » Les yeux de Wang Lin se rétrécirent. L'aura de l'une des statues était presque identique à celle de la première génération de l'Oiseau Vermillon des Terres Déchues. Il était évident qu'il s'agissait d'un avatar !
+« Oiseau Vermillon... » Les yeux de Wang Lin se rétrécirent. L'aura de l'une des statues était presque identique à celle de la première génération de l'Oiseau Vermillon des Terres Déchues. Il était évident qu'il s'agissait d'un avatar!
 
-« Général de l'Oiseau Vermillon du Souverain Céleste aux Sept Couleurs, viens me voir ! » Wang Lin s'arrêta et flotta dans les airs en prononçant ces mots. Sa voix était calme et se propagea dans toutes les directions.
+« Général de l'Oiseau Vermillon du Souverain Céleste aux Sept Couleurs, viens me voir! » Wang Lin s'arrêta et flotta dans les airs en prononçant ces mots. Sa voix était calme et se propagea dans toutes les directions.
 
 Il resta là, dégageant une pression si puissante que c'était comme si les cieux eux-mêmes devaient se soumettre à ses pieds.
 
 Alors que les paroles de Wang Lin résonnaient, un silence s'installa. Les sept ou huit Célestes qui le suivaient s'arrêtèrent et le fixèrent d'un regard glacial.
 
-« Quel petit poupon arrogant. Tu as détruit de nombreux embryons sur ton chemin et tué plusieurs de mes Célestes. Tu es un descendant de l'Oiseau Vermillon, et de tels actes sont déjà considérés comme profondément maléfiques ! Ce vieux Tigre Blanc te donnera une leçon au nom de l'Oiseau Vermillon ! » Une voix sombre brisa le silence lorsqu'un vieil homme vêtu de blanc sortit de l'un des vortex. Son visage était marqué par les rides et son corps émanait une aura antique.
+« Quel petit poupon arrogant. Tu as détruit de nombreux embryons sur ton chemin et tué plusieurs de mes Célestes. Tu es un descendant de l'Oiseau Vermillon, et de tels actes sont déjà considérés comme profondément maléfiques! Ce vieux Tigre Blanc te donnera une leçon au nom de l'Oiseau Vermillon! » Une voix sombre brisa le silence lorsqu'un vieil homme vêtu de blanc sortit de l'un des vortex. Son visage était marqué par les rides et son corps émanait une aura antique.
 
 D'un seul pas, il quitta le vortex de la statue et chargea Wang Lin. Sa vitesse était telle qu'elle créait un sifflement dans l'air, semblable au rugissement d'un tigre féroce.
 
-Dans le champ de vision de Wang Lin, une ombre gigantesque, aussi vaste que le monde, apparut derrière le vieil homme. L'ombre représentait un tigre blanc colossal !
+Dans le champ de vision de Wang Lin, une ombre gigantesque, aussi vaste que le monde, apparut derrière le vieil homme. L'ombre représentait un tigre blanc colossal!
 
-Ce tigre géant avait un regard féroce et dégageait une pression capable de subjuguer le monde. Le vieil homme affichait une puissante cultivation du stade intermédiaire de l'Espace Arcane.
+Ce tigre géant avait un regard féroce et dégageait une pression capable de subjuguer le monde. Le vieil homme affichait une puissante culture du stade intermédiaire de l'Espace Arcane.
 
 L'expression de Wang Lin resta sereine tandis qu'il observait le vieillard. Sa main droite se crispa en un poing et il lança un coup vers lui. Lorsque les deux forces entrèrent en collision, un fracas tonitruant retentit, faisant trembler la terre.
 
 Finalement, le vieil homme aux cheveux blancs fut contraint de reculer de plusieurs pas. Ses yeux étaient désormais empreints d'effroi.
 
-Le corps de Wang Lin vacilla légèrement. Il ne recula pas, mais regarda calmement le vieillard et dit lentement :
+Le corps de Wang Lin vacilla légèrement. Il ne recula pas, mais regarda calmement le vieillard et dit lentement:
 
-« Si vos blessures étaient totalement guéries, vous seriez capable de me tenir tête, mais pour l'instant, vous n'êtes pas mon égal ! Faites un pas de plus, et je vous tue ! »
+« Si vos blessures étaient totalement guéries, vous seriez capable de me tenir tête, mais pour l'instant, vous n'êtes pas mon égal! Faites un pas de plus, et je vous tue! »
 
 La voix de Wang Lin était très légère. Elle n'était ni aussi tranchante que le vent, ni chargée d'une intention meurtrière manifeste. Il ne faisait que constater les faits avec calme. Lorsque ses paroles atteignirent l'oreille du vieil homme, celui-ci réfléchit en silence. Les attaques qu'ils venaient de lancer n'étaient que des tests, et le choc ressenti par le vieillard ne fit qu'accroître sa crainte envers Wang Lin.
 
@@ -66,18 +66,18 @@ Mais juste au moment où il allait faire un pas en avant, le regard calme de Wan
 
 Plus le regard de Wang Lin était serein, plus la pression exercée sur le vieillard était écrasante.
 
-« Je ne souhaite pas vous tuer. À mes yeux, le Royaume Céleste Antique n'a rien d'extraordinaire. Ce n'est qu'un groupe de cultivateurs infirmiers du Continent Astral Immortel qui se font appeler "Célestes" dans cette caverne pour contrôler les soi-disant "fourmis des royaumes inférieurs". C'est tout simplement ridicule ! »
+« Je ne souhaite pas vous tuer. À mes yeux, le Royaume Céleste Antique n'a rien d'extraordinaire. Ce n'est qu'un groupe de cultivateurs infirmiers du Continent Astral Immortel qui se font appeler "Célestes" dans cette caverne pour contrôler les soi-disant "fourmis des royaumes inférieurs". C'est tout simplement ridicule! »
 
-« À mes yeux, vous êtes tous comme des fourmis également ! »
+« À mes yeux, vous êtes tous comme des fourmis également! »
 
-L'expression du vieil homme devint encore plus sombre. Il n'était pas surpris que Wang Lin soit au courant, car il l'avait observé fouiller la mémoire de ce Céleste. Au départ, il avait ricané intérieurement ; il connaissait parfaitement le Souverain Céleste et estimait que personne ne pourrait briser son sceau.
+L'expression du vieil homme devint encore plus sombre. Il n'était pas surpris que Wang Lin soit au courant, car il l'avait observé fouiller la mémoire de ce Céleste. Au départ, il avait ricané intérieurement; il connaissait parfaitement le Souverain Céleste et estimait que personne ne pourrait briser son sceau.
 
 Cependant, il n'aurait jamais pu imaginer que Wang Lin parviendrait réellement à briser le sceau, à accéder aux souvenirs du Soldat Céleste et à découvrir la vérité sur ce lieu.
 
 C'est ce qui provoqua la peur du Tigre Blanc. C'est aussi cela qui fit naître une terreur indicible dans son cœur.
 
-Wang Lin ne prêta plus attention au vieil homme. Son regard se tourna vers le vortex entre les sourcils de la seconde statue. Il dit lentement : « Oiseau Vermillon, sors me voir. »
+Wang Lin ne prêta plus attention au vieil homme. Son regard se tourna vers le vortex entre les sourcils de la seconde statue. Il dit lentement: « Oiseau Vermillon, sors me voir. »
 
-« C'est la dernière fois que je le demande. Ne m'oblige pas à vous tuer et à fouiller votre âme ! » Wang Lin resta là, imperturbable, les yeux fixés sur le ciel.
+« C'est la dernière fois que je le demande. Ne m'oblige pas à vous tuer et à fouiller votre âme! » Wang Lin resta là, imperturbable, les yeux fixés sur le ciel.
 
 Une pression invisible émana de son corps et enveloppa tout l'espace environnant.

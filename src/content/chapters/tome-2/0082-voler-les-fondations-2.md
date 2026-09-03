@@ -8,13 +8,13 @@ slug: voler-les-fondations-2
 ---
 Toutes les sphères de foudre rugirent alors que l'épée géante s'abattait.
 
-Situ Nan n'attendit pas que Wang Lin lui donne la permission ; après avoir juré à plusieurs reprises, il les téléporta instantanément à nouveau.
+Situ Nan n'attendit pas que Wang Lin lui donne la permission; après avoir juré à plusieurs reprises, il les téléporta instantanément à nouveau.
 
 Teng Li fronça les sourcils. Il laissa échapper un grognement et agita sa main droite. L'épée volante suivit son mouvement et se lança à la poursuite de Wang Lin.
 
 Deux rayons arc-en-ciel se succédèrent dans le ciel. Les disciples de la famille Teng tentèrent de les suivre un moment avant d'abandonner, incapables de maintenir la cadence.
 
-Plus Teng Li poursuivait sa proie, plus il était stupéfait. Avec sa cultivation au stade avancé de l'Établissement des Fondations, chaque fois qu'il était sur le point de rattraper le gamin, celui-ci se téléportait.
+Plus Teng Li poursuivait sa proie, plus il était stupéfait. Avec sa culture au stade avancé de l'Établissement des Fondations, chaque fois qu'il était sur le point de rattraper le gamin, celui-ci se téléportait.
 
 L'attitude de Wang Lin ne faisait qu'accroître l'intérêt de Teng Li. La téléportation était une technique de niveau Âme Naissante. Pourtant, Wang Lin n'avait même pas atteint le stade de l'Établissement des Fondations et pouvait déjà s'en servir. Aux yeux de Teng Li, le garçon devait posséder un trésor capable de réaliser un tel prodige.
 
@@ -46,15 +46,15 @@ Une fois stoppée par l'armure, la lumière verte cligna et disparut sans laisse
 
 Wang Lin poussa un soupir secret, empreint de regret. L'épée verte réapparut dans sa main alors qu'il poursuivait sa fuite.
 
-Des perles de sueur apparurent sur le front de Teng Li. Ce qui venait de se passer était d'une dangerosité extrême. Même avec sa cultivation au stade avancé de l'Établissement des Fondations, s'il avait été touché, il aurait été gravement blessé. De plus, la lumière émanant de cette épée prouvait qu'il ne s'agissait pas d'un simple trésor. Il devinait que s'il avait été atteint, il serait mort sur le coup.
+Des perles de sueur apparurent sur le front de Teng Li. Ce qui venait de se passer était d'une dangerosité extrême. Même avec sa culture au stade avancé de l'Établissement des Fondations, s'il avait été touché, il aurait été gravement blessé. De plus, la lumière émanant de cette épée prouvait qu'il ne s'agissait pas d'un simple trésor. Il devinait que s'il avait été atteint, il serait mort sur le coup.
 
-Teng Li toucha l'armure que son grand-père lui avait offerte et se sentit chanceux, mais son désir de tuer Wang Lin ne fit que croître. Une lueur froide traversa ses yeux tandis qu'il murmurait pour lui-même : « En plus du trésor de téléportation, il possède aussi cette épée. Petit garnement, tous tes trésors m'appartiendront ! »
+Teng Li toucha l'armure que son grand-père lui avait offerte et se sentit chanceux, mais son désir de tuer Wang Lin ne fit que croître. Une lueur froide traversa ses yeux tandis qu'il murmurait pour lui-même: « En plus du trésor de téléportation, il possède aussi cette épée. Petit garnement, tous tes trésors m'appartiendront! »
 
-Trois jours plus tard, dans un désert. Wang Lin prit une gorgée de liquide spirituel et grommela : « Il n'y a plus assez de liquide spirituel. Je dois trouver un moyen d'en reconstituer rapidement. »
+Trois jours plus tard, dans un désert. Wang Lin prit une gorgée de liquide spirituel et grommela: « Il n'y a plus assez de liquide spirituel. Je dois trouver un moyen d'en reconstituer rapidement. »
 
-Situ Nan dit d'une voix faible : « Gamin, je ne peux plus tenir longtemps. J'ai trop utilisé la téléportation ces trois derniers jours et il ne me reste presque plus d'essence. »
+Situ Nan dit d'une voix faible: « Gamin, je ne peux plus tenir longtemps. J'ai trop utilisé la téléportation ces trois derniers jours et il ne me reste presque plus d'essence. »
 
-Wang Lin tourna la tête, le regard chargé d'intentions meurtrières, et dit froidement : « Il a encore rattrapé notre trace. » Il effleura son sac de rangement et l'épée verte apparut dans sa main.
+Wang Lin tourna la tête, le regard chargé d'intentions meurtrières, et dit froidement: « Il a encore rattrapé notre trace. » Il effleura son sac de rangement et l'épée verte apparut dans sa main.
 
 La couleur de l'épée était terne et elle présentait quelques éraflures. Durant ces trois jours, Wang Lin l'avait utilisée à maintes reprises, mais comme Teng Li était désormais sur ses gardes, il lui était difficile de lancer une attaque surprise. De plus, l'épée de Wang Lin ne pouvait entamer l'armure de Teng Li d'un pouce.
 
@@ -62,7 +62,7 @@ Après avoir lancé l'épée volante, Wang Lin déploya son Sens Divin et repér
 
 Après un court instant de réflexion, sans dire un mot, Wang Lin vola vers l'ouest. En un clin d'œil, il atteignit la forêt et descendit au sol.
 
-Wang Lin savait qu'il manquait de liquide spirituel et que Situ Nan ne pouvait plus se téléporter ; s'il restait en l'air, il serait capturé à coup sûr.
+Wang Lin savait qu'il manquait de liquide spirituel et que Situ Nan ne pouvait plus se téléporter; s'il restait en l'air, il serait capturé à coup sûr.
 
 Il valait mieux renoncer au vol et voyager à pied dans la forêt. Bien qu'il ignorât pourquoi ce bois était enveloppé de brume, il constata que lorsqu'il déployait son Sens Divin, ses perceptions devenaient troubles et ne lui permettaient de ressentir que les environs immédiats, dans un rayon d'une douzaine de mètres.
 
@@ -78,7 +78,7 @@ Il avait remarqué que Wang Lin sortait constamment une gourde et que, chaque fo
 
 L'envie de tuer Wang Lin devint plus pressante que jamais.
 
-Teng Li se tenait à l'extérieur de la forêt. Ses yeux étaient glacials, mais il éprouvait une certaine appréhension face à cet endroit. Il songea : « Cette jungle sauvage est très mystérieuse. Elle est perpétuellement enveloppée de brouillard et mon grand-père lui-même m'a conseillé de m'en tenir éloigné. Dois-je continuer la poursuite ou non ? »
+Teng Li se tenait à l'extérieur de la forêt. Ses yeux étaient glacials, mais il éprouvait une certaine appréhension face à cet endroit. Il songea: « Cette jungle sauvage est très mystérieuse. Elle est perpétuellement enveloppée de brouillard et mon grand-père lui-même m'a conseillé de m'en tenir éloigné. Dois-je continuer la poursuite ou non? »
 
 Après une courte réflexion, Teng Li prit sa décision. Les trésors de Wang Lin étaient tels qu'il était déterminé à les faire siens.
 
@@ -86,15 +86,15 @@ De nombreux arbres séculaires s'élançaient vers le ciel, chargés de feuillag
 
 Cet endroit était plongé dans la brume toute l'année. Des arbres étranges croissaient jusqu'à atteindre les cieux, et des bêtes aussi puissantes que des cultivateurs de niveau Âme Naissante y résidaient. Le moindre manque de prudence pouvait y coûter la vie.
 
-Wang Lin déploya son Sens Divin tout en se déplaçant rapidement à travers la forêt. Situ Nan cria soudainement : « Arrête ! Arrête-toi immédiatement ! »
+Wang Lin déploya son Sens Divin tout en se déplaçant rapidement à travers la forêt. Situ Nan cria soudainement: « Arrête! Arrête-toi immédiatement! »
 
 Le corps de Wang Lin s'immobilisa instantanément.
 
-Situ Nan prit une profonde inspiration et dit lentement : « Quel genre d'endroit est-ce là, pour que des Lianes Bleues s'y trouvent encore ? Ces lianes sont des vecteurs de désastre. Un pays de rang 2 a été anéanti par elles autrefois. »
+Situ Nan prit une profonde inspiration et dit lentement: « Quel genre d'endroit est-ce là, pour que des Lianes Bleues s'y trouvent encore? Ces lianes sont des vecteurs de désastre. Un pays de rang 2 a été anéanti par elles autrefois. »
 
-« Des Lianes Bleues ? » Wang Lin fut surpris.
+« Des Lianes Bleues? » Wang Lin fut surpris.
 
-Situ Nan reprit d'un ton sérieux : « Devant toi se trouve une vigne, et sur elle court une ligne bleue... Qu'est-ce que c'est ? Attends, ce n'est pas une Liane Bleue. Étrange... Wang Lin, ce n'est qu'une jeune pousse de Liane Bleue. Mieux vaut l'éviter, car une Liane Bleue adulte est un cauchemar pour les cultivateurs en dessous du stade de la Formation du Noyau. Cette chose est extrêmement sensible au sang et, chaque fois qu'elle dévore quelqu'un, elle évolue. Si elle parvient à atteindre le stade intermédiaire, même des cultivateurs de niveau Formation Spirituelle ne pourront lui résister. De plus, elle réagit violemment aux fluctuations d'énergie spirituelle ; n'utilise donc aucune technique pour l'attaquer. »
+Situ Nan reprit d'un ton sérieux: « Devant toi se trouve une vigne, et sur elle court une ligne bleue... Qu'est-ce que c'est? Attends, ce n'est pas une Liane Bleue. Étrange... Wang Lin, ce n'est qu'une jeune pousse de Liane Bleue. Mieux vaut l'éviter, car une Liane Bleue adulte est un cauchemar pour les cultivateurs en dessous du stade de la Formation du Noyau. Cette chose est extrêmement sensible au sang et, chaque fois qu'elle dévore quelqu'un, elle évolue. Si elle parvient à atteindre le stade intermédiaire, même des cultivateurs de niveau Formation Spirituelle ne pourront lui résister. De plus, elle réagit violemment aux fluctuations d'énergie spirituelle; n'utilise donc aucune technique pour l'attaquer. »
 
 Wang Lin observa les alentours avec gravité, son regard se posant sur une vigne au loin.
 

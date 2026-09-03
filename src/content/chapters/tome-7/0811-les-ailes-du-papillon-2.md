@@ -24,53 +24,53 @@ Le corps de l'ancêtre du clan immortel élu trembla. Une bourrasque de vent sou
 
 Le vieil homme leva inconsciemment la tête lorsqu'une goutte de sang chaud tomba sur son visage et glissa le long de sa joue. Ses yeux reflétaient une puissante indignation.
 
-Il murmura : « Pourquoi... Pourquoi... »
+Il murmura: « Pourquoi... Pourquoi... »
 
-À cet instant précis, un monstre de brume se précipita et entraîna le vieil homme dans les airs. Une force surgit du plus profond de son cœur et emplit tout son corps. Les yeux du vieil homme étaient noyés de tristesse alors qu'il fixait l'homme aux robes bleues et hurlait : « Pourquoi ?! »
+À cet instant précis, un monstre de brume se précipita et entraîna le vieil homme dans les airs. Une force surgit du plus profond de son cœur et emplit tout son corps. Les yeux du vieil homme étaient noyés de tristesse alors qu'il fixait l'homme aux robes bleues et hurlait: « Pourquoi?! »
 
 Au cri du vieil homme, les membres du clan qui n'avaient pas encore été tués luttèrent pour relever la tête. Leurs regards suivirent ceux de l'ancêtre et se posèrent sur l'homme aux robes bleues.
 
-Ces regards étaient empreints d'une tristesse et d'une colère infinies !
+Ces regards étaient empreints d'une tristesse et d'une colère infinies!
 
 « Votre mission est de nourrir les monstres de brume, et il n'y a aucune autre raison. Je ne vous laisserai pas tous mourir, car j'ai besoin que vous engendriez les générations futures... » La voix de l'homme aux robes bleues était d'un calme absolu.
 
-Soudain, l'un des monstres de brume fondit au loin. Sa cible : les enfants cachés à l'intérieur des bâtiments !
+Soudain, l'un des monstres de brume fondit au loin. Sa cible: les enfants cachés à l'intérieur des bâtiments!
 
 L'homme aux robes bleues fronça légèrement les sourcils, mais il ne les interrogea pas.
 
-Le vieil homme laissa échapper un sourire misérable alors que le monstre de brume se précipitait vers lui et qu'il était sur le point de s'effondrer. À ce moment précis, Wang Lin poussa un soupir et pointa le vide. Le monstre de brume qui allait dévorer le vieil homme s'effondra soudainement. L'homme fixa la créature qui fonçait vers les bâtiments ; il pouvait même entendre les enfants appeler dans la panique, criant après leurs parents...
+Le vieil homme laissa échapper un sourire misérable alors que le monstre de brume se précipitait vers lui et qu'il était sur le point de s'effondrer. À ce moment précis, Wang Lin poussa un soupir et pointa le vide. Le monstre de brume qui allait dévorer le vieil homme s'effondra soudainement. L'homme fixa la créature qui fonçait vers les bâtiments; il pouvait même entendre les enfants appeler dans la panique, criant après leurs parents...
 
 Les membres du clan immortel élu luttèrent pour se redresser. Des rugissements semblables à des grognements s'échappèrent de leurs bouches comme des possédés.
 
 Bien que ses genoux fussent brisés, les yeux de Ta Shan étaient injectés de sang alors qu'il luttait pour se lever. Même si ses os devaient se fracasser à nouveau, il devait rester debout.
 
-« Céleste... Céleste... Que croyez-vous que soit mon clan ?! Mon clan a gardé le Fourneau du Yin Mystérieux pendant d'innombrables années, et qu'avons-nous obtenu ?! Rien d'autre que ces monstres de brume et les morts innombrables de mes semblables !
+« Céleste... Céleste... Que croyez-vous que soit mon clan?! Mon clan a gardé le Fourneau du Yin Mystérieux pendant d'innombrables années, et qu'avons-nous obtenu?! Rien d'autre que ces monstres de brume et les morts innombrables de mes semblables!
 
-« Je sais enfin que ces monstres de brume étaient ce que mon clan devait garder. Que la mission de mon clan était de devenir la nourriture de ces monstres !
+« Je sais enfin que ces monstres de brume étaient ce que mon clan devait garder. Que la mission de mon clan était de devenir la nourriture de ces monstres!
 
-« Puisqu'il en est ainsi, je résisterai. Même si mon corps se brise, je ne céderai pas ! » Le rugissement de Ta Shan finit par déchirer sa gorge.
+« Puisqu'il en est ainsi, je résisterai. Même si mon corps se brise, je ne céderai pas! » Le rugissement de Ta Shan finit par déchirer sa gorge.
 
 Non seulement lui, mais tous les membres du clan immortel élu poussèrent des hurlements. Les plantes entre leurs sourcils brillèrent intensément alors qu'ils luttaient pour se tenir debout.
 
-L'expression de l'homme aux robes bleues resta froide et il déclara avec un soupçon de mépris : « Autrefois, votre clan a perdu et est devenu esclave. C'est votre destin ! Vous ne pouvez pas le changer ! »
+L'expression de l'homme aux robes bleues resta froide et il déclara avec un soupçon de mépris: « Autrefois, votre clan a perdu et est devenu esclave. C'est votre destin! Vous ne pouvez pas le changer! »
 
 Tout en parlant, il leva sa main droite et pressa le bas, provoquant une série d'explosions. Le sang jaillit du corps des membres du clan immortel élu, les empêchant de se relever.
 
-Seul Ta Shan chargea dans un rugissement. Au moment où il s'élança, des explosions résonnèrent dans son propre corps alors que ses os se brisaient, mais il continua sa course !
+Seul Ta Shan chargea dans un rugissement. Au moment où il s'élança, des explosions résonnèrent dans son propre corps alors que ses os se brisaient, mais il continua sa course!
 
-Les yeux de l'homme aux robes bleues s'illuminèrent et il pointa du doigt. Wang Lin soupira. À l'origine, il ne voulait pas s'immiscer. L'origine de cet homme aux robes bleues était très mystérieuse : c'était en réalité un être céleste !
+Les yeux de l'homme aux robes bleues s'illuminèrent et il pointa du doigt. Wang Lin soupira. À l'origine, il ne voulait pas s'immiscer. L'origine de cet homme aux robes bleues était très mystérieuse: c'était en réalité un être céleste!
 
 Cependant, dans un soupir, il ouvrit la bouche et le fragment s'envola. Dès son apparition, il fila entre Ta Shan et l'homme aux robes bleues.
 
 Les yeux de l'homme aux robes bleues brillèrent et son regard se fit glacial. Sa main droite traça un sceau et une rune chargée d'énergie spirituelle céleste fut projetée vers Wang Lin.
 
-« Je pensais que vous n'agiriez pas ! » L'homme d'âge mûr se pencha en avant, poursuivant la rune pour se précipiter vers Wang Lin.
+« Je pensais que vous n'agiriez pas! » L'homme d'âge mûr se pencha en avant, poursuivant la rune pour se précipiter vers Wang Lin.
 
 La main droite de Wang Lin pointa le fragment, le faisant pivoter pour qu'il percute l'homme aux robes bleues. Simultanément, Wang Lin apparut aux côtés de Ta Shan. Sa main gauche toucha ce dernier et injecta une part d'énergie originelle dans son corps.
 
 Le corps de Ta Shan fut immédiatement projeté vers le monstre de brume qui chargeait les bâtiments.
 
-Après cela, Wang Lin se retourna ; ses deux doigts formèrent une épée et tranchèrent aussitôt l'air. La rune qui arrivait s'effondra instantanément, se transformant en ondulations qui se dissipèrent rapidement.
+Après cela, Wang Lin se retourna; ses deux doigts formèrent une épée et tranchèrent aussitôt l'air. La rune qui arrivait s'effondra instantanément, se transformant en ondulations qui se dissipèrent rapidement.
 
 À ce moment, le fragment se posa et les yeux de l'homme aux robes bleues devinrent froids. Il forma un sceau, l'énergie spirituelle céleste à l'intérieur de son corps déferla, et une lance apparut dans sa main.
 
@@ -78,7 +78,7 @@ Cette lance était d'un blanc pur et exhalait une riche énergie spirituelle cé
 
 Un fracas retentit et l'homme aux robes bleues fut projeté en arrière. Son regard devint sérieux, mais le fragment fut également repoussé de plusieurs dizaines de pieds.
 
-Alors que l'homme d'âge mûr reculait, il cria : « Misérables esclaves, attaquez avec moi ! »
+Alors que l'homme d'âge mûr reculait, il cria: « Misérables esclaves, attaquez avec moi! »
 
 Lorsque sa voix atteignit les oreilles des membres du clan immortel élu qui luttaient, l'ordre devint un instinct auquel ils ne purent résister. Leurs yeux étaient remplis de tristesse et de lutte, mais leurs corps se précipitèrent tous vers Wang Lin.
 
@@ -90,11 +90,11 @@ Une intention meurtrière apparut dans les yeux de Wang Lin tandis qu'il pointai
 
 Le papillon ne bougea pas, ses ailes frémissant doucement, mais cette fois, le mouvement était plus vif. Une poudre multicolore tomba de ses ailes et commença à remplir lentement la zone.
 
-L'homme aux robes bleues s'arrêta net, le regard empreint de prudence. Il avait remarqué le papillon depuis longtemps ; c'était lui qui lui inspirait un sentiment d'effroi. Autrement, il aurait déjà attaqué au lieu d'attendre jusqu'ici.
+L'homme aux robes bleues s'arrêta net, le regard empreint de prudence. Il avait remarqué le papillon depuis longtemps; c'était lui qui lui inspirait un sentiment d'effroi. Autrement, il aurait déjà attaqué au lieu d'attendre jusqu'ici.
 
 Les membres du clan immortel élu furent projetés dans les airs sans aucun contrôle et volèrent vers Wang Lin. La lutte dans leurs yeux s'intensifia, mais ils ne pouvaient rien contre la puissance de l'empreinte d'esclave.
 
-Les yeux de Wang Lin brillèrent alors qu'il fixait le papillon. Il voulait découvrir le véritable pouvoir de ce troisième Char d'Extermination des Dieux. Le papillon quitta le côté de Wang Lin et s'élança en avant. Ses ailes marquèrent un instant de pause, puis battirent doucement à nouveau !
+Les yeux de Wang Lin brillèrent alors qu'il fixait le papillon. Il voulait découvrir le véritable pouvoir de ce troisième Char d'Extermination des Dieux. Le papillon quitta le côté de Wang Lin et s'élança en avant. Ses ailes marquèrent un instant de pause, puis battirent doucement à nouveau!
 
 Ce battement ne provoqua aucune perturbation physique, mais le visage de l'homme vigilant aux robes bleues, au loin, pâlit soudainement. Aucun vent ne soufflait autour de lui, et pourtant ses cheveux volèrent en arrière comme sous une légère brise.
 
@@ -108,17 +108,17 @@ Ses yeux étaient emplis d'horreur et même d'une trace de terreur. Il ne pouvai
 
 Le papillon réapparut une fois de plus et l'homme fut de nouveau projeté en arrière. Cela continua jusqu'à ce qu'il soit repoussé à plus de 10 000 pieds. La peur dans ses yeux avait atteint son paroxysme.
 
-Dans un ultime effort, l'homme aux robes bleues siffla : « Foudre, explose ! » Un grondement sourd émana de son corps et sa main droite se brisa, libérant une force destructrice.
+Dans un ultime effort, l'homme aux robes bleues siffla: « Foudre, explose! » Un grondement sourd émana de son corps et sa main droite se brisa, libérant une force destructrice.
 
 En utilisant cette explosion, il parvint à reprendre temporairement le contrôle de son corps, mais son visage était d'une pâleur cadavérique. Il était terrifié, et cette peur occupait presque tout son être.
 
-« Quel sortilège est-ce là !?! Quel genre de trésor est-ce là !?! » Il n'avait jamais vu un tel objet étrange de sa vie. Un simple battement d'ailes du papillon avait failli le faire s'effondrer.
+« Quel sortilège est-ce là!?! Quel genre de trésor est-ce là!?! » Il n'avait jamais vu un tel objet étrange de sa vie. Un simple battement d'ailes du papillon avait failli le faire s'effondrer.
 
 À cet instant, il chargea vers l'autel pour tenter de s'échapper.
 
 Les yeux de Wang Lin se rétrécirent et il prit une inspiration glacée. Il entretenait un lien mystérieux avec le Char d'Extermination des Dieux, et il sentait que ce char n'avait pas encore déployé son attaque la plus puissante.
 
-Juste à ce moment-là, le papillon multicolore à côté de Wang Lin battit doucement de son aile gauche !
+Juste à ce moment-là, le papillon multicolore à côté de Wang Lin battit doucement de son aile gauche!
 
 L'homme d'âge mûr qui s'enfuyait rapidement venait de franchir le seuil de l'autel. Soudain, son corps trembla et ses yeux se remplirent d'incrédulité. Son être commença à se dissiper en partant de ses pieds et, en un instant, il disparut totalement.
 
@@ -126,4 +126,4 @@ L'homme aux robes bleues était mort. Quelque part dans la Bête du Néant, au s
 
 À cet instant, il ouvrit soudainement les yeux et regarda droit devant lui, le regard chargé de choc.
 
-« Être capable de détruire mon avatar si facilement... Quel genre de trésor est-ce là ?! »
+« Être capable de détruire mon avatar si facilement... Quel genre de trésor est-ce là?! »

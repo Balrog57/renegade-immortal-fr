@@ -6,15 +6,15 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1651 - Method of Validation
 slug: methode-de-validation
 ---
-Les cultivateurs du Nirvana Void doivent dévorer des esprits du Dao pour solidifier leurs royaumes de Flamme Joss. Ils ont également besoin d'une quantité massive d'âmes de Flamme Joss. Cependant, ce royaume n'est qu'une force externe ; ce n'est qu'en atteignant le stade du Void Spirit que l'on peut intégrer le royaume de la Flamme Joss à son propre corps. Ce faisant, les âmes de la Flamme Joss se mettent à leur service, leur permettant ainsi d'utiliser des sorts surpuissants.
+Les cultivateurs du Nirvana Void doivent dévorer des esprits du Dao pour solidifier leurs royaumes de Flamme Joss. Ils ont également besoin d'une quantité massive d'âmes de Flamme Joss. Cependant, ce royaume n'est qu'une force externe; ce n'est qu'en atteignant le stade du Void Spirit que l'on peut intégrer le royaume de la Flamme Joss à son propre corps. Ce faisant, les âmes de la Flamme Joss se mettent à leur service, leur permettant ainsi d'utiliser des sorts surpuissants.
 
-Il est extrêmement difficile de progresser à travers les quatre royaumes du Void. Passer du Void Spirit au Void Arcane est l'étape la plus ardue, car elle nécessite une essence éthérée !
+Il est extrêmement difficile de progresser à travers les quatre royaumes du Void. Passer du Void Spirit au Void Arcane est l'étape la plus ardue, car elle nécessite une essence éthérée!
 
-Les essences se divisent en essences corporelles et éthérées. Les éléments, comme les cinq éléments, sont considérés comme des essences corporelles. Celles-ci sont faciles à obtenir et ne requièrent pas une grande compréhension ; il suffit d'en accumuler une quantité massive pour que l'essence se complète lentement.
+Les essences se divisent en essences corporelles et éthérées. Les éléments, comme les cinq éléments, sont considérés comme des essences corporelles. Celles-ci sont faciles à obtenir et ne requièrent pas une grande compréhension; il suffit d'en accumuler une quantité massive pour que l'essence se complète lentement.
 
 C'est ainsi que les essences de feu et de tonnerre de Wang Lin s'étaient complétées.
 
-Cependant, il restait les essences éthérées, telles que le karma, la vie et la mort, ou encore le vrai et le faux. Ces essences étaient extrêmement difficiles à obtenir car on ne pouvait pas les trouver : il fallait les comprendre.
+Cependant, il restait les essences éthérées, telles que le karma, la vie et la mort, ou encore le vrai et le faux. Ces essences étaient extrêmement difficiles à obtenir car on ne pouvait pas les trouver: il fallait les comprendre.
 
 La raison pour laquelle il y avait si peu de cultivateurs du Void Arcane — à peine une douzaine parmi des centaines de millions — résidait dans la difficulté d'obtenir une essence éthérée.
 
@@ -22,45 +22,45 @@ Si l'on possédait déjà une essence éthérée lors du franchissement de la Po
 
 Bien qu'il soit difficile de compléter une essence après avoir atteint la troisième étape, au fil des âges innombrables, de nombreux êtres étranges et des génies avaient tenté l'expérience. Ils finirent par élaborer une méthode.
 
-Cette méthode était très singulière, mais elle prouvait que tous les cultivateurs pensent de la même manière. Leur procédé consistait à faire cultiver leurs innombrables âmes de Flamme Joss. La vitesse de cultivation de ces âmes augmentait considérablement grâce à l'aide du cultivateur de la troisième étape. Ils créaient des montagnes, des rivières et des cycles, de sorte que les êtres vivant dans le royaume de la Flamme Joss ne se doutent même pas qu'ils évoluent dans un monde illusoire.
+Cette méthode était très singulière, mais elle prouvait que tous les cultivateurs pensent de la même manière. Leur procédé consistait à faire cultiver leurs innombrables âmes de Flamme Joss. La vitesse de culture de ces âmes augmentait considérablement grâce à l'aide du cultivateur de la troisième étape. Ils créaient des montagnes, des rivières et des cycles, de sorte que les êtres vivant dans le royaume de la Flamme Joss ne se doutent même pas qu'ils évoluent dans un monde illusoire.
 
 Cela permettait aux âmes de la Flamme Joss d'acquérir un pouvoir illusoire et, au fil des éons, une âme dotée d'une essence éthérée finissait par naître.
 
 Une fois l'essence éthérée née, elle était dévorée par le cultivateur de la troisième étape. Comme tout cela n'était qu'une illusion et que l'essence faisait originellement partie du corps du cultivateur, la dévoration était parfaite.
 
-De la même manière, puisque la cultivation de ces âmes de Flamme Joss n'était qu'une illusion, elles redevenaient des mortels ordinaires une fois leur royaume quitté.
+De la même manière, puisque la culture de ces âmes de Flamme Joss n'était qu'une illusion, elles redevenaient des mortels ordinaires une fois leur royaume quitté.
 
 Au fil des millénaires, quiconque tentait de découvrir si le monde dans lequel il vivait n'était que le royaume de Flamme Joss d'une existence puissante ne trouvait aucune réponse.
 
-Le seul moyen de le prouver était le suivant : si, en partant, toute votre cultivation disparaissait et que vous redeveniez un mortel, alors votre existence n'était qu'une Flamme Joss. En revanche, si votre cultivation restait inchangée après votre départ, alors tout était réel !
+Le seul moyen de le prouver était le suivant: si, en partant, toute votre culture disparaissait et que vous redeveniez un mortel, alors votre existence n'était qu'une Flamme Joss. En revanche, si votre culture restait inchangée après votre départ, alors tout était réel!
 
 Tandis que Wang Lin traversait la Rivière des Invocations, son Sens Divin revint de sa tête. Lorsqu'il avait saisi la tête pour la première fois, il avait utilisé la recherche d'âme et avait ainsi extrait de nombreux souvenirs de l'homme d'âge moyen.
 
 D'un revers de main, il ajouta une nouvelle tête aux dizaines de milliers qui le suivaient. C'était la première tête de cultivateur de la troisième étape, mais ce ne serait certainement pas la dernière.
 
-Il n'y avait plus aucun cultivateur de la troisième étape dans la Rivière des Invocations ; s'il y en avait eu, ils avaient fui depuis longtemps. Wang Lin se déplaça comme un éclair, balayant la Rivière des Invocations.
+Il n'y avait plus aucun cultivateur de la troisième étape dans la Rivière des Invocations; s'il y en avait eu, ils avaient fui depuis longtemps. Wang Lin se déplaça comme un éclair, balayant la Rivière des Invocations.
 
 Les planètes qu'il survolait devenaient des charniers. C'était comme si une tempête violente passait, arrachant d'innombrables têtes qui se mettaient à sa suite.
 
-Souvent, une lueur blanche surgissait près d'une planète ou d'une garnison, suivie de la mort. À mesure que Wang Lin progressait, les têtes s'accumulaient derrière lui : 10 000 ; 15 000 ; 20 000... jusqu'à atteindre près de 50 000 têtes !
+Souvent, une lueur blanche surgissait près d'une planète ou d'une garnison, suivie de la mort. À mesure que Wang Lin progressait, les têtes s'accumulaient derrière lui: 10 000; 15 000; 20 000... jusqu'à atteindre près de 50 000 têtes!
 
 Le chiffre de 50 000 peut paraître abstrait, mais le spectacle de toutes ces têtes aurait pu terrifier n'importe quel cultivateur. Ce n'était pas qu'un simple nombre, mais des têtes réelles et visibles. L'odeur du sang était si épaisse que même à distance, on pouvait distinctement la sentir.
 
-Lorsque Situ Nan et les milliers de cultivateurs arrivèrent, ils découvrirent une Rivière des Invocations reconquise et débarrassée des cultivateurs du Royaume Extérieur ! En volant vers l'avant, ils rencontrèrent des planètes teintées de pourpre par le sang. Un à un, les cultivateurs de la Rivière des Invocations suivirent les traces de Wang Lin.
+Lorsque Situ Nan et les milliers de cultivateurs arrivèrent, ils découvrirent une Rivière des Invocations reconquise et débarrassée des cultivateurs du Royaume Extérieur! En volant vers l'avant, ils rencontrèrent des planètes teintées de pourpre par le sang. Un à un, les cultivateurs de la Rivière des Invocations suivirent les traces de Wang Lin.
 
-Wang Lin avançait et ils le suivaient. Bien qu'une vaste distance les séparât, Wang Lin était tel une épée menant la charge. Tous les autres n'avaient d'autre choix que de le suivre !
+Wang Lin avançait et ils le suivaient. Bien qu'une vaste distance les séparât, Wang Lin était tel une épée menant la charge. Tous les autres n'avaient d'autre choix que de le suivre!
 
-Wang Lin quitta la Rivière des Invocations. Après avoir déterminé qu'aucun cultivateur du Royaume Extérieur ne subsistait, il pénétra dans la Mer Nuageuse tandis que les près de 50 000 têtes poussaient des hurlements lugubres !
+Wang Lin quitta la Rivière des Invocations. Après avoir déterminé qu'aucun cultivateur du Royaume Extérieur ne subsistait, il pénétra dans la Mer Nuageuse tandis que les près de 50 000 têtes poussaient des hurlements lugubres!
 
 La Mer Nuageuse était à l'origine le front de guerre, et une multitude de cultivateurs des deux camps y avaient péri. Dès son entrée, Wang Lin eut l'impression d'entendre les cris d'innombrables fantômes.
 
-Il ferma les yeux. Après un instant de sensation, il les rouvrit, révélant un regard chargé d'une intention meurtrière. Il avança, les 50 000 têtes flottant derrière lui ; une scène proprement terrifiante.
+Il ferma les yeux. Après un instant de sensation, il les rouvrit, révélant un regard chargé d'une intention meurtrière. Il avança, les 50 000 têtes flottant derrière lui; une scène proprement terrifiante.
 
-« 50 000 têtes suffisent pour former la formation de la Vie et de la Mort ! » Tandis que Wang Lin traversait la Mer Nuageuse, plus de la moitié des continents flottants d'autrefois avaient été déchirés et effondrés.
+« 50 000 têtes suffisent pour former la formation de la Vie et de la Mort! » Tandis que Wang Lin traversait la Mer Nuageuse, plus de la moitié des continents flottants d'autrefois avaient été déchirés et effondrés.
 
-Les continents restants étaient occupés par une masse de cultivateurs du Royaume Extérieur installés là depuis longtemps. La Mer Nuageuse étant la ligne de front, il ne restait presque plus de cultivateurs du Royaume Intérieur ; la quasi-totalité avait péri.
+Les continents restants étaient occupés par une masse de cultivateurs du Royaume Extérieur installés là depuis longtemps. La Mer Nuageuse étant la ligne de front, il ne restait presque plus de cultivateurs du Royaume Intérieur; la quasi-totalité avait péri.
 
-Toute la Mer Nuageuse était devenue le territoire du Royaume Extérieur !
+Toute la Mer Nuageuse était devenue le territoire du Royaume Extérieur!
 
 Le Sens Divin de Wang Lin se déploya et enveloppa instantanément la Mer Nuageuse. Tout ce qui s'y trouvait apparut clairement dans son esprit. En contemplant cette étrangère Mer Nuageuse, la colère de Wang Lin rugit comme une tempête.
 
@@ -72,11 +72,11 @@ Le Sens Divin de Wang Lin était comme une tempête balayant la Mer Nuageuse, te
 
 Au plus profond de la Mer Nuageuse se trouvait une planète rare. C'était autrefois la planète de la Secte Briseuse de Ciel, mais elle n'était plus que ruines. D'innombrables algues bleues et violettes y poussaient, atteignant des milliers de pieds de hauteur. De loin, on aurait dit que la planète avait poussé des poils.
 
-La planète entière était recouverte par ces algues. Au centre de cette étendue végétale se trouvaient d'immenses branches de plusieurs centaines de pieds d'épaisseur, et là trônait une fleur géante et violette !
+La planète entière était recouverte par ces algues. Au centre de cette étendue végétale se trouvaient d'immenses branches de plusieurs centaines de pieds d'épaisseur, et là trônait une fleur géante et violette!
 
-La fleur mesurait plus de 10 000 pieds de haut, et il était évident que les algues étaient nées d'elle ! La fleur n'avait pas encore éclos, mais un bourgeon d'environ 100 pieds de large trônait à son sommet.
+La fleur mesurait plus de 10 000 pieds de haut, et il était évident que les algues étaient nées d'elle! La fleur n'avait pas encore éclos, mais un bourgeon d'environ 100 pieds de large trônait à son sommet.
 
-Le bourgeon floral était circulaire et vaguement transparent ; une femme y était assise. Elle était d'une grande beauté et portait une robe légère. Assise là, elle cultivait.
+Le bourgeon floral était circulaire et vaguement transparent; une femme y était assise. Elle était d'une grande beauté et portait une robe légère. Assise là, elle cultivait.
 
 L'aura d'un cultivateur du Nirvana Void au stade intermédiaire émanait du bourgeon. Lorsque l'aura de Wang Lin balaya la Mer Nuageuse, la femme à l'intérieur du bourgeon ouvrit les yeux.
 
@@ -84,13 +84,13 @@ Son regard était empreint de choc. À l'instant où ses yeux s'ouvrirent, les a
 
 Loin de la planète, là où le brouillard recouvrait la brèche de la Formation de Scellement du Royaume, se trouvait un continent flottant gigantesque. D'innombrables cultivateurs du Royaume Extérieur s'y agitaient, transportant de lourdes pierres pour bâtir un temple.
 
-Ce temple avait déjà pris une forme rudimentaire et une statue trônait à son sommet. Cette statue possédait deux immenses ailes noires ; elle paraissait féroce et dégageait une impression de majesté.
+Ce temple avait déjà pris une forme rudimentaire et une statue trônait à son sommet. Cette statue possédait deux immenses ailes noires; elle paraissait féroce et dégageait une impression de majesté.
 
-Cette statue n'était pas celle d'un homme, mais celle d'une chauve-souris géante !
+Cette statue n'était pas celle d'un homme, mais celle d'une chauve-souris géante!
 
-Un vieil homme vêtu de rouge était assis sur la statue, et la marque entre ses sourcils représentait une chauve-souris noire ! Dès que le Sens Divin de Wang Lin balaya les lieux, le vieil homme ouvrit les yeux avec horreur. Il se leva brusquement et scruta le ciel, le visage blême.
+Un vieil homme vêtu de rouge était assis sur la statue, et la marque entre ses sourcils représentait une chauve-souris noire! Dès que le Sens Divin de Wang Lin balaya les lieux, le vieil homme ouvrit les yeux avec horreur. Il se leva brusquement et scruta le ciel, le visage blême.
 
-Au même moment, à Allheaven, les cultivateurs du Royaume Extérieur avaient rassemblé des centaines de milliers d'individus ainsi que plusieurs cultivateurs de la troisième étape pour préparer cette bataille. Certains de ces gens avaient participé au meurtre de Wang Lin !
+Au même moment, à Allheaven, les cultivateurs du Royaume Extérieur avaient rassemblé des centaines de milliers d'individus ainsi que plusieurs cultivateurs de la troisième étape pour préparer cette bataille. Certains de ces gens avaient participé au meurtre de Wang Lin!
 
 Ces centaines de milliers de cultivateurs du Royaume Extérieur formaient un cercle qui semblait couvrir l'espace infini. Ils paraissaient épuisés, mais leur férocité ne s'était pas émoussée.
 
@@ -98,7 +98,7 @@ Ils encerclaient une formation magnifique composée de 999 planètes. Des cultiv
 
 Au centre de la formation se trouvait un autel circulaire, enveloppé d'une brume qui le rendait à peine visible. Une personne était assise sur l'autel.
 
-Sur une planète de cultivation, une femme au regard indifférent mordit sa lèvre inférieure, tandis qu'un désespoir progressif envahissait ses yeux.
+Sur une planète de culture, une femme au regard indifférent mordit sa lèvre inférieure, tandis qu'un désespoir progressif envahissait ses yeux.
 
 Sur une autre planète, les longs et magnifiques cheveux de Mu Bingmei étaient attachés. Vêtue de blanc, son beau visage était empreint de confusion.
 

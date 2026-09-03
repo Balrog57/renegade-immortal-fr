@@ -8,7 +8,7 @@ slug: retour-a-zhao-pour-atteindre-le-stade-de-la-formation-de-lame
 ---
 Le jeune homme regarda le dos de son maître tandis qu'il s'éloignait. Une scène du passé envahit son esprit. Il se prosterna devant son maître avant de serrer les poings et de partir.
 
-« Moi, Chen Huan, je jure que j'anéantirai Xue Yu ! »
+« Moi, Chen Huan, je jure que j'anéantirai Xue Yu! »
 
 Wang Lin retourna à la tour de glace, l'esprit tourmenté. Bien qu'il ait obtenu un trésor puissant, il ne ressentait aucune joie, seulement une profonde mélancolie.
 
@@ -16,7 +16,7 @@ Wang Lin retourna à la tour de glace, l'esprit tourmenté. Bien qu'il ait obten
 
 Cette question résonna dans l'esprit de Wang Lin.
 
-Le cultivateur au stade de la Formation de l'Âme avancée de la Secte de l'Encre d'Eau utilisa le reste de sa cultivation pour s'élancer vers la statue de la fée des neiges du Temple Divin de la Neige et de la Glace. Tel un papillon de nuit se précipitant vers la flamme, il explosa contre la statue, laissant derrière lui une marque rouge indélébile.
+Le cultivateur au stade de la Formation de l'Âme avancée de la Secte de l'Encre d'Eau utilisa le reste de sa culture pour s'élancer vers la statue de la fée des neiges du Temple Divin de la Neige et de la Glace. Tel un papillon de nuit se précipitant vers la flamme, il explosa contre la statue, laissant derrière lui une marque rouge indélébile.
 
 Dans cette explosion, plusieurs autres cultivateurs au stade de la Formation de l'Âme furent également tués.
 
@@ -30,7 +30,7 @@ Durant cette année, Wang Lin continua de méditer sur le domaine de la vie et d
 
 Regarder la montagne comme une montagne, regarder la rivière comme une rivière.
 
-Cependant, Wang Lin remarqua que parfois, la montagne n'est plus une montagne et la rivière n'est plus une rivière. C'était comme si une autre couche de brume obstruait sa vision. Il ne pouvait pas la voir, mais il pouvait la ressentir ; lorsqu'il tendait la main, elle restait intangible.
+Cependant, Wang Lin remarqua que parfois, la montagne n'est plus une montagne et la rivière n'est plus une rivière. C'était comme si une autre couche de brume obstruait sa vision. Il ne pouvait pas la voir, mais il pouvait la ressentir; lorsqu'il tendait la main, elle restait intangible.
 
 Ce genre d'obstacle ne disparaîtrait pas avec le temps. Il lui faudrait une soudaine illumination pour percer ce voile.
 
@@ -52,7 +52,7 @@ On pourrait la décrire comme extrêmement mystérieuse et instable.
 
 C'est pourquoi les cultivateurs de Xue Yue sont tous impulsifs, dotés de personnalités capables de basculer radicalement en un instant. Leur but est de suivre leur propre volonté et d'agir selon leurs caprices afin de raffiner leur cœur au point de le rendre impénétrable aux influences extérieures.
 
-Plus Wang Lin étudiait cette technique, plus il percevait son véritable caractère terrifiant. Elle ne pouvait absolument pas être considérée comme une voie juste ; c'était indubitablement une voie déviante. Wang Lin sentait que cette méthode était très similaire à la cultivation du Seigneur Démon des Six Désirs.
+Plus Wang Lin étudiait cette technique, plus il percevait son véritable caractère terrifiant. Elle ne pouvait absolument pas être considérée comme une voie juste; c'était indubitablement une voie déviante. Wang Lin sentait que cette méthode était très similaire à la culture du Seigneur Démon des Six Désirs.
 
 Wang Lin n'avait aucune intention de pratiquer cette technique. Il se contenta de l'imiter en remplaçant les veines de sang de neige par de pures veines de sang. Il utilisait le sang, en conjonction avec son domaine de la vie et de la mort, pour acquérir la capacité de contrôler ses sculptures.
 
@@ -64,21 +64,21 @@ Il ignorait s'il déclencherait une rétribution divine en atteignant ce stade. 
 
 C'est pourquoi, ce jour-là, Wang Lin sortit de la tour de glace et partit.
 
-Avant son départ, Xue Yu avait publié un décret ordonnant à tous les cultivateurs du stade de la Formation du Noyau et au-delà de se rassembler au temple pour une conférence sur le Dao. La raison en était le retour de l'un des treize cultivateurs partis à Suzuka : il était le seul à avoir réussi à atteindre le stade de la Transformation de l'Âme.
+Avant son départ, Xue Yu avait publié un décret ordonnant à tous les cultivateurs du stade de la Formation du Noyau et au-delà de se rassembler au temple pour une conférence sur le Dao. La raison en était le retour de l'un des treize cultivateurs partis à Suzuka: il était le seul à avoir réussi à atteindre le stade de la Transformation de l'Âme.
 
 Quant à savoir si un seul des treize avait réussi ou si Suzuka avait joué un rôle, cela ne regardait pas les autres.
 
 Wang Lin partit en silence, sans que personne ne s'en aperçoive. Même le cultivateur au stade de la Formation du Noyau que Wang Lin avait piégé avait perdu la mémoire et retrouvé sa position d'origine.
 
-À la frontière de Xue Yu, Wang Lin se retourna pour observer attentivement les terres environnantes. Les scènes des dernières décennies défilèrent dans son esprit ; il poussa un soupir et reprit sa route.
+À la frontière de Xue Yu, Wang Lin se retourna pour observer attentivement les terres environnantes. Les scènes des dernières décennies défilèrent dans son esprit; il poussa un soupir et reprit sa route.
 
 L'objectif de Wang Lin était Zhao. Il avait décidé d'atteindre le stade de la Formation de l'Âme là-bas.
 
 S'il choisissait Zhao, c'était d'abord parce que c'était un lieu reculé, mais aussi parce qu'il ressentait une nostalgie de son foyer après avoir discuté avec ce cultivateur au stade de la Formation de l'Âme avancée de l'Alliance des Quatre Sectes.
 
-Tout le monde a un foyer. En avait-il un ?
+Tout le monde a un foyer. En avait-il un?
 
-Zhao pouvait être considéré comme son foyer, et il y avait une femme qui l'attendait de l'autre côté de la Mer des Démons ; cet endroit pouvait aussi être considéré comme son foyer...
+Zhao pouvait être considéré comme son foyer, et il y avait une femme qui l'attendait de l'autre côté de la Mer des Démons; cet endroit pouvait aussi être considéré comme son foyer...
 
 Il décida donc de retourner à Zhao pour boucler le cycle de sa naissance.
 
@@ -102,9 +102,9 @@ L'averse redoubit d'intensité jusqu'à ressembler à un véritable déluge. Wan
 
 À cet instant, des éclairs traversaient le firmament comme des serpents d'argent. C'était une vision magnifique.
 
-Le corps de Wang Lin atterrit lentement sur le sol. Il n'utilisa même pas de technique pour se protéger de l'averse ; il agita simplement la main vers un arbre voisin, et les feuilles se rassemblèrent pour former un parapluie végétal.
+Le corps de Wang Lin atterrit lentement sur le sol. Il n'utilisa même pas de technique pour se protéger de l'averse; il agita simplement la main vers un arbre voisin, et les feuilles se rassemblèrent pour former un parapluie végétal.
 
-Wang Lin marcha dans cette terre étrangère, abrité par son parapluie. Il ne lui restait que deux tableaux de transfert anciens avant d'atteindre Zhao. Le tableau de transfert de la région se situait à 40 000 kilomètres à l'est.
+Wang Lin marcha dans cette terre étrangère, abrité par son parapluie. Il ne lui restait que deux tableaux de transfert anciens avant d'atteindre Zhao. Le tableau de transfert de la région se situait à 20000 kilomètres à l'est.
 
 Le fracas de la pluie emplissait la forêt, conférant au paysage un certain charme, particulièrement au vieux temple que l'on apercevait au loin. Ce temple était manifestement désert. Sa peinture rouge d'origine avait terni et certaines parties étaient endommagées.
 
@@ -118,9 +118,9 @@ Après avoir observé le temple, il tourna le regard vers la porte, puis revint 
 
 Au bout d'un long moment, des cris retentirent au loin. Quelques hommes robustes, vêtus de capes imperméables, arrivèrent en criant.
 
-« Cette foutue météo ! Dès qu'il commence à pleuvoir, ça ne s'arrête plus ! »
+« Cette foutue météo! Dès qu'il commence à pleuvoir, ça ne s'arrête plus! »
 
-« Il y a un temple juste devant ; abritons-nous là un moment. Nous reprendrons notre route quand la pluie se calmera. »
+« Il y a un temple juste devant; abritons-nous là un moment. Nous reprendrons notre route quand la pluie se calmera. »
 
 En parlant, ils aperçurent Wang Lin à l'intérieur du temple. Ils s'arrêtèrent tous et se regardèrent avant de s'avancer silencieusement vers l'entrée.
 
@@ -134,4 +134,4 @@ Wang Lin secoua doucement la tête. Ces cinq mortels avaient brisé la solennit�
 
 Il vit un homme aux longs cheveux, vêtu d'une robe légère, faire de grands pas vers le temple. Bien que l'homme parût avancer lentement, il fut soudainement aux côtés de Wang Lin et entra dans le temple.
 
-En passant à sa hauteur, l'homme eut un souffle de surprise et s'arrêta net. Il observa attentivement Wang Lin, dévoilant ses dents blanches dans un sourire gracieux, et dit : « Je ne m'attendais pas à rencontrer un compagnon cultivateur dans un si petit temple. Je m'appelle Mo Zhi. Et vous ? »
+En passant à sa hauteur, l'homme eut un souffle de surprise et s'arrêta net. Il observa attentivement Wang Lin, dévoilant ses dents blanches dans un sourire gracieux, et dit: « Je ne m'attendais pas à rencontrer un compagnon cultivateur dans un si petit temple. Je m'appelle Mo Zhi. Et vous? »

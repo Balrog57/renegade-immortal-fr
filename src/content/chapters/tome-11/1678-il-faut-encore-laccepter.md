@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1678 - Still Should Accept It
 slug: il-faut-encore-laccepter
 ---
-Assis au centre de la formation circulaire, Wang Lin observait l'extérieur. Miao Yin et ses compagnons n'étaient pas partis ; ils pensaient qu'en unissant leurs forces, ils pourraient faire face à Blue Dream.
+Assis au centre de la formation circulaire, Wang Lin observait l'extérieur. Miao Yin et ses compagnons n'étaient pas partis; ils pensaient qu'en unissant leurs forces, ils pourraient faire face à Blue Dream.
 
 Li Qianmei affichait une expression nerveuse en regardant son père lutter contre les trois adversaires. L'inquiétude se lisait dans ses yeux.
 
@@ -14,7 +14,7 @@ Hors de la formation, le système stellaire tremblait. Blue Dream combattait seu
 
 Après avoir observé un instant, Wang Lin ferma les yeux et cessa de prêter attention à tout cela.
 
-Les grondements tonitruants n'atteignaient plus ses oreilles ; il se concentra sur sa cultivation. Il avait laissé une parcelle d'âme originelle autour de lui afin d'être alerté si quoi que ce soit arrivait.
+Les grondements tonitruants n'atteignaient plus ses oreilles; il se concentra sur sa culture. Il avait laissé une parcelle d'âme originelle autour de lui afin d'être alerté si quoi que ce soit arrivait.
 
 Durant les deux années de guérison, Wang Lin avait recouvré la majeure partie de ses blessures. Il avait passé l'essentiel de ce temps à comprendre le sort « Déchirer les Cieux » issu des huit gouttes de sang.
 
@@ -30,35 +30,35 @@ Après quelques coups d'œil, Wang Lin put ressentir la férocité de la bataill
 
 Le Maître Dao Blue Dream paraissait épuisé. Il semblait que même pour lui, affronter les trois d'entre eux n'était pas une mince affaire.
 
-« Miao Yin est gravement blessé, au point qu'il ne pourra pas retrouver son niveau de cultivation maximal avant cent ans. Son niveau a chuté au stade Spirit Void ; la prochaine fois que vous le croiserez, vous pourrez le tuer ! »
+« Miao Yin est gravement blessé, au point qu'il ne pourra pas retrouver son niveau de culture maximal avant cent ans. Son niveau a chuté au stade Spirit Void; la prochaine fois que vous le croiserez, vous pourrez le tuer! »
 
-« Les blessures de Nine Heaven sont légèrement moins graves que celles de Miao Yin, mais son royaume de flammes de Joss a été détruit par moi, ce qui a endommagé son esprit. À l'avenir, il ne sera plus de taille face à vous ! »
+« Les blessures de Nine Heaven sont légèrement moins graves que celles de Miao Yin, mais son royaume de flammes de Joss a été détruit par moi, ce qui a endommagé son esprit. À l'avenir, il ne sera plus de taille face à vous! »
 
-« Great Desolation a été le plus durement touché et s'est enfui en utilisant un sort secret. Il ne survivra pas plus de dix ans ! » Sur ces mots, il s'assit et ferma les yeux pour cultiver.
+« Great Desolation a été le plus durement touché et s'est enfui en utilisant un sort secret. Il ne survivra pas plus de dix ans! » Sur ces mots, il s'assit et ferma les yeux pour cultiver.
 
 L'expression de Li Qianmei était complexe. Elle avait été témoin des trois jours de combat, ayant observé son père lutter et affrontant des dangers mortels.
 
-Wang Lin réfléchit silencieusement et, après un long moment, prit la parole d'une voix lente :
+Wang Lin réfléchit silencieusement et, après un long moment, prit la parole d'une voix lente:
 
 « J'ai déjà une femme pour toute une vie... »
 
 Le Maître Dao Blue Dream ouvrit les yeux et fixa Wang Lin, le visage assombri.
 
-« Même avec mon aide, tu ne changeras pas d'avis... Ce vieux ne te demande pas d'abandonner ta femme, mais de faire une promesse à ma fille ! »
+« Même avec mon aide, tu ne changeras pas d'avis... Ce vieux ne te demande pas d'abandonner ta femme, mais de faire une promesse à ma fille! »
 
-« Cela ne devrait pas être difficile pour toi ! Si ce n'était pour ma fille, même si tu avais atteint le stade Spirit Void et possédais l'héritage ancestral, même si tu pouvais tuer des cultivateurs du stade Arcane Void, tu ne représenterais rien à mes yeux. »
+« Cela ne devrait pas être difficile pour toi! Si ce n'était pour ma fille, même si tu avais atteint le stade Spirit Void et possédais l'héritage ancestral, même si tu pouvais tuer des cultivateurs du stade Arcane Void, tu ne représenterais rien à mes yeux. »
 
-« Tu aurais pu brandir l'arc Li Guang pour terrasser ces vieux os ! Mais même si je meurs, je n'emmènerai pas mon clan Blue Silk dans le Royaume Intérieur ! »
+« Tu aurais pu brandir l'arc Li Guang pour terrasser ces vieux os! Mais même si je meurs, je n'emmènerai pas mon clan Blue Silk dans le Royaume Intérieur! »
 
-« Moi, Blue Dream, suis né dans le Système Stellaire Ancien. Je suis l'un des Cinq Maîtres de ce système. Penses-tu que je mentirais à un junior comme toi ? Qu'as-tu pour que je veuille te tromper ? Ce vieux a cultivé pendant d'innombrables années, je ne m'abaisserais pas à cela ! »
+« Moi, Blue Dream, suis né dans le Système Stellaire Ancien. Je suis l'un des Cinq Maîtres de ce système. Penses-tu que je mentirais à un junior comme toi? Qu'as-tu pour que je veuille te tromper? Ce vieux a cultivé pendant d'innombrables années, je ne m'abaisserais pas à cela! »
 
-« La Perle Défiant le Ciel est entre tes mains. Si j'avais été avide, je l'aurais prise depuis longtemps ! Tu n'avais même pas atteint la troisième étape à l'époque ; si ce vieux avait voulu te tuer, il l'aurait fait bien plus tôt. Si ce n'était pour ce qui lie Qianmei et toi, pourquoi aurais-je attendu jusqu'ici ? »
+« La Perle Défiant le Ciel est entre tes mains. Si j'avais été avide, je l'aurais prise depuis longtemps! Tu n'avais même pas atteint la troisième étape à l'époque; si ce vieux avait voulu te tuer, il l'aurait fait bien plus tôt. Si ce n'était pour ce qui lie Qianmei et toi, pourquoi aurais-je attendu jusqu'ici? »
 
-« La question entre toi et la Souveraine, la bataille entre les Royaumes Intérieur et Extérieur, ainsi que le conflit entre le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan... Je pourrais simplement protéger mon clan Blue Silk, et personne ne pourrait me forcer à prendre part à cette guerre. Il est probable qu'on me doive même des faveurs si je rejoins leur camp ! »
+« La question entre toi et la Souveraine, la bataille entre les Royaumes Intérieur et Extérieur, ainsi que le conflit entre le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan... Je pourrais simplement protéger mon clan Blue Silk, et personne ne pourrait me forcer à prendre part à cette guerre. Il est probable qu'on me doive même des faveurs si je rejoins leur camp! »
 
-« Pourtant, j'ai tout abandonné juste pour que tu fasses une promesse à ma fille. Wang Lin, ne me pousse pas à aller trop loin ! » Blue Dream fixa Wang Lin, la colère brillant dans ses yeux.
+« Pourtant, j'ai tout abandonné juste pour que tu fasses une promesse à ma fille. Wang Lin, ne me pousse pas à aller trop loin! » Blue Dream fixa Wang Lin, la colère brillant dans ses yeux.
 
-Tout ce qu'il avait accompli, il le disait vrai : tout était pour sa fille.
+Tout ce qu'il avait accompli, il le disait vrai: tout était pour sa fille.
 
 Li Qianmei versa des larmes. Elle comprenait enfin ce que son père avait fait pour elle, tout ce qu'il avait sacrifié...
 
@@ -68,11 +68,11 @@ Wang Lin afficha un regard tourmenté. Il se leva et joignit les mains en signe 
 
 « Ne dis rien de plus, tu... » Le Maître Dao Blue Dream vit les larmes de Li Qianmei et son cœur s'adoucit. Il fixa Wang Lin et avala ses paroles.
 
-« Ce vieux peut faire un pas en arrière. Je veux que tu me fasses une promesse. Si ta femme ressuscite, alors toi et ma fille deviendrez frère et sœur ; mais si ta femme ne peut finalement pas être ressuscitée, tu deviendras le partenaire de cultivation de ma fille ! C'est ma limite. Wang Lin, choisis sagement ! » L'expression du Maître Dao Blue Dream était glaciale.
+« Ce vieux peut faire un pas en arrière. Je veux que tu me fasses une promesse. Si ta femme ressuscite, alors toi et ma fille deviendrez frère et sœur; mais si ta femme ne peut finalement pas être ressuscitée, tu deviendras le partenaire de culture de ma fille! C'est ma limite. Wang Lin, choisis sagement! » L'expression du Maître Dao Blue Dream était glaciale.
 
 Wang Lin songea en silence. Il se leva et regarda au loin. Après un long moment, ses yeux étaient empreints de confusion alors que son regard dérivait vers Li Qianmei. Il vit ses larmes et la façon dont elle baissait la tête pour fuir son regard.
 
-« Tu... Laisse tomber, ce vieux ne veut pas de réponse immédiate. Réfléchis-y et reviens me trouver au sein du clan Blue Silk ! » Le Maître Dao Blue Dream se leva, décidant de ne plus cultiver ici. En voyant la tristesse dans le regard de sa fille, il ressentit un pincement au cœur. Il était venu avec l'espoir que tout s'arrangerait et que Wang Lin accepterait, mais cela se terminait ainsi.
+« Tu... Laisse tomber, ce vieux ne veut pas de réponse immédiate. Réfléchis-y et reviens me trouver au sein du clan Blue Silk! » Le Maître Dao Blue Dream se leva, décidant de ne plus cultiver ici. En voyant la tristesse dans le regard de sa fille, il ressentit un pincement au cœur. Il était venu avec l'espoir que tout s'arrangerait et que Wang Lin accepterait, mais cela se terminait ainsi.
 
 « Papa, partons... » Li Qianmei essuya ses larmes et se leva doucement pour rejoindre le Maître Dao Blue Dream.
 
@@ -86,7 +86,7 @@ Le cœur de Wang Lin trembla tandis qu'il contemplait Li Qianmei avec douleur et
 
 Cependant, Li Qianmei était différente de Mu Bingmei ou de Xi Zifeng. Elle avait énormément sacrifié pour Wang Lin.
 
-Ces dix années passées à maculer son existence de sang, tous ces événements... comment Wang Lin pouvait-il oublier ? Son obsession, son amour, son sourire et la clarté de ses yeux. Wang Lin n'avait pas un cœur de pierre ; comment resterait-il indifférent ?
+Ces dix années passées à maculer son existence de sang, tous ces événements... comment Wang Lin pouvait-il oublier? Son obsession, son amour, son sourire et la clarté de ses yeux. Wang Lin n'avait pas un cœur de pierre; comment resterait-il indifférent?
 
 « Rends-le-moi, je t'en prie... » Li Qianmei mordilla sa lèvre inférieure. Son visage était pâle, mais elle maintenait son sourire. Elle ne voulait pas verser d'incessantes larmes devant lui.
 
@@ -114,19 +114,19 @@ Elle serra doucement Wang Lin dans ses bras, et ses pleurs mouillèrent sa robe 
 
 Cependant, ses mains s'immobilisèrent brusquement car Wang Lin serrait fermement l'œuvre.
 
-Wang Lin ferma les yeux ; le tableau ne bougeait pas d'un iota malgré les efforts de Li Qianmei. Le visage de celle-ci devint livide lorsqu'elle vit Wang Lin ouvrir les yeux.
+Wang Lin ferma les yeux; le tableau ne bougeait pas d'un iota malgré les efforts de Li Qianmei. Le visage de celle-ci devint livide lorsqu'elle vit Wang Lin ouvrir les yeux.
 
 « Tu n'as plus besoin de ce tableau. » Sous la pression de Wang Lin, l'œuvre « S'oublier dans ce monde » se désintégra et se changea en poussière. Elle disparut de leurs mains.
 
-Wang Lin regarda Li Qianmei. Ses paroles étaient empreintes d'une détermination inébranlable lorsqu'il dit doucement :
+Wang Lin regarda Li Qianmei. Ses paroles étaient empreintes d'une détermination inébranlable lorsqu'il dit doucement:
 
-« À partir de maintenant, tu es ma femme ! »
+« À partir de maintenant, tu es ma femme! »
 
 « Wan Er est ma femme. Quand elle s'éveillera, nous nous marierons ensemble... »
 
 Li Qianmei fut stupéfaite, puis, après un long moment, les larmes jaillirent. Elle éclata en sanglots dans les bras de Wang Lin.
 
-Wang Lin serra Li Qianmei contre lui. Puisqu'il avait pris cette décision, il ne le regretterait pas. C'était la première femme qu'il acceptait depuis plus de 2 000 ans, en dehors de Li Muwan. Son nom était Li Qianmei !
+Wang Lin serra Li Qianmei contre lui. Puisqu'il avait pris cette décision, il ne le regretterait pas. C'était la première femme qu'il acceptait depuis plus de 2 000 ans, en dehors de Li Muwan. Son nom était Li Qianmei!
 
 « Frère, j'ai trois questions à te poser. Peux-tu m'aider à y répondre... »
 

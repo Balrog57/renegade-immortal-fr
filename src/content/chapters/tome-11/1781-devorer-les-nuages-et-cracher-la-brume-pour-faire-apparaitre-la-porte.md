@@ -6,35 +6,35 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1781 - Devouring the Clouds and Spitting Out the Fog to Make the Door Appear
 slug: devorer-les-nuages-et-cracher-la-brume-pour-faire-apparaitre-la-porte
 ---
-Le troisième esprit gardait un souvenir profond de la compétition qui s'était déroulée cinq mois auparavant. Lors de ce concours, après avoir obtenu le droit de cultiver l'Art Céleste du Dao des Nuages, et grâce à une cultivation déjà puissante pour sa génération, Zhou Li s'était hissé parmi les dix meilleurs. Il avait terminé à la neuvième place, remportant ainsi le privilège de cultiver dans le Bassin de Dong Lin.
+Le troisième esprit gardait un souvenir profond de la compétition qui s'était déroulée cinq mois auparavant. Lors de ce concours, après avoir obtenu le droit de cultiver l'Art Céleste du Dao des Nuages, et grâce à une culture déjà puissante pour sa génération, Zhou Li s'était hissé parmi les dix meilleurs. Il avait terminé à la neuvième place, remportant ainsi le privilège de cultiver dans le Bassin de Dong Lin.
 
 Quant à Su Dao, après avoir perdu l'accès à l'Art Céleste du Dao des Nuages, il devint encore plus timide. Sa personnalité se tordit et s'assombrit.
 
 Il avait échoué à la compétition. On pouvait dire que cet événement fut un tournant majeur dans la vie de Su Dao, une raison fondamentale de son changement de caractère.
 
-Au cours des années suivantes, Su Dao sombra dans le déclin et se raréfia, ne parlant plus guère à personne. Il s'enferma dans une cultivation en porte close jusqu'à ce qu'il rencontre par hasard son ancêtre. Ce dernier lui enseigna les voies, et il finit lentement par relever la tête.
+Au cours des années suivantes, Su Dao sombra dans le déclin et se raréfia, ne parlant plus guère à personne. Il s'enferma dans une culture en porte close jusqu'à ce qu'il rencontre par hasard son ancêtre. Ce dernier lui enseigna les voies, et il finit lentement par relever la tête.
 
-Malheureusement, cette période de grâce fut de courte durée. Une rencontre inattendue provoqua l'expulsion de Su Dao du Sect Dong Lin. Après cela, au fil des éternités, le Su Dao du Sect Dong Lin cessa d'exister. Ce qu'il restait n'était plus que le Souverain Céleste aux Sept Couleurs, qui lutta et, malgré lui, devint cruel et impitoyable jusqu'à ce qu'il fonde finalement le Sect des Sept Daos !
+Malheureusement, cette période de grâce fut de courte durée. Une rencontre inattendue provoqua l'expulsion de Su Dao de la Secte Dong Lin. Après cela, au fil des éternités, le Su Dao de la Secte Dong Lin cessa d'exister. Ce qu'il restait n'était plus que le Souverain Céleste aux Sept Couleurs, qui lutta et, malgré lui, devint cruel et impitoyable jusqu'à ce qu'il fonde finalement la Secte des Sept Daos!
 
 Quant à Zhou Li, le jour où le Souverain Céleste aux Sept Couleurs acheva son Dao, il captura Zhou Li et le tua avec cruauté.
 
 Tous ces événements défilaient dans l'esprit de Wang Lin comme des tableaux vivants. Assis près de la rivière qui coulait, il contemplait le courant comme s'il observait le temps s'écouler.
 
-C'était le troisième jour après que le maître de Su Dao lui eut enseigné l'Art Céleste du Dao des Nuages avant de se retirer en méditation. Quant à Zhou Li, il était également entré en cultivation close, et sa haine envers Su Dao était désormais identique à celle que Su Dao éprouvait pour lui autrefois.
+C'était le troisième jour après que le maître de Su Dao lui eut enseigné l'Art Céleste du Dao des Nuages avant de se retirer en méditation. Quant à Zhou Li, il était également entré en culture close, et sa haine envers Su Dao était désormais identique à celle que Su Dao éprouvait pour lui autrefois.
 
 La rivière continuait son cours, tandis que les souvenirs du troisième esprit s'effaçaient dans l'esprit de Wang Lin, remplacés par l'Art Céleste du Dao des Nuages.
 
-Le Sect Dong Lin était l'un des Neuf Sects et Treize Factions de cette région. Bien qu'il ne fût pas aussi puissant que le Sect du Soleil Pourpre, il était empreint d'un grand mystère ; ses disciples sortaient rarement.
+La Secte Dong Lin était l'un des Neuf Sectes et Treize Factions de cette région. Bien qu'il ne fût pas aussi puissant que la Secte du Soleil Pourpre, il était empreint d'un grand mystère; ses disciples sortaient rarement.
 
 Les trois grandes techniques du secte étaient célèbres sur le Continent Astral Immortel et se transmettaient depuis l'Antiquité.
 
-Parmi elles, l'Art Céleste du Dao des Nuages était particulièrement profond. Il se concentrait sur les nuages du monde, aussi éthéré que le Grand Dao lui-même. En s'intégrant aux nuages, on pouvait emprunter leur essence pour lancer les grands sorts du Dao des Nuages !
+Parmi elles, l'Art Céleste du Dao des Nuages était particulièrement profond. Il se concentrait sur les nuages du monde, aussi éthéré que le Grand Dao lui-même. En s'intégrant aux nuages, on pouvait emprunter leur essence pour lancer les grands sorts du Dao des Nuages!
 
-Former sa propre bête de nuage, capable de dévorer les nuages et de recracher la brume, constituait le premier sort de cet art ! Cette technique était dissimulée au sein de l'art introductif. Si l'on cultivait l'introduction jusqu'à son paroxysme, on pouvait en comprendre ce sort.
+Former sa propre bête de nuage, capable de dévorer les nuages et de recracher la brume, constituait le premier sort de cet art! Cette technique était dissimulée au sein de l'art introductif. Si l'on cultivait l'introduction jusqu'à son paroxysme, on pouvait en comprendre ce sort.
 
-Pour autrui, l'Art Céleste du Dao des Nuages exigerait énormément de temps et une compréhension hors du commun. Cependant, Wang Lin possédait déjà un niveau de cultivation élevé, ce que les anciens Zhou Li ou Su Dao ne pouvaient égaler.
+Pour autrui, l'Art Céleste du Dao des Nuages exigerait énormément de temps et une compréhension hors du commun. Cependant, Wang Lin possédait déjà un niveau de culture élevé, ce que les anciens Zhou Li ou Su Dao ne pouvaient égaler.
 
-De plus, le fait que Wang Lin ait lui-même compris sept essences rendait la cultivation de l'art introductif d'une simplicité absolue.
+De plus, le fait que Wang Lin ait lui-même compris sept essences rendait la culture de l'art introductif d'une simplicité absolue.
 
 Des volutes de fumée s'échappèrent de la rivière devant lui et volèrent vers lui. Après avoir tournoyé autour de lui à plusieurs reprises, elles pénétrèrent dans son corps.
 
@@ -52,19 +52,19 @@ Wang Lin resta assis près de la rivière, et un mois passa en un éclair. Duran
 
 Plus il cultivait l'art, plus des distorsions et des signes d'effondrement apparaissaient. Cependant, à moins qu'un événement radical ne vienne bouleverser la mémoire et provoquer un effondrement total, ces distorsions n'aideraient pas Wang Lin à trouver la véritable porte.
 
-Ce jour-là, les nuages autour de Wang Lin disparurent complètement. Une fois que tous les nuages furent absorbés dans son corps, il ouvrit les yeux. Son regard était semblable à celui des nuages : flou, mais empreint d'une force étrange capable de dissuader quiconque. Quiconque plongerait ses yeux dans les siens aurait l'impression d'être submergé par une brume dense et s'y perdrait.
+Ce jour-là, les nuages autour de Wang Lin disparurent complètement. Une fois que tous les nuages furent absorbés dans son corps, il ouvrit les yeux. Son regard était semblable à celui des nuages: flou, mais empreint d'une force étrange capable de dissuader quiconque. Quiconque plongerait ses yeux dans les siens aurait l'impression d'être submergé par une brume dense et s'y perdrait.
 
-« Cet art... n'est pas ordinaire ! » Wang Lin expulsa une bouffée d'air vicié. Cette expiration ressemblait à une brume grise qui se mouvait tel un dragon ; elle ne se dissipa lentement qu'après avoir parcouru plus de trente pieds.
+« Cet art... n'est pas ordinaire! » Wang Lin expulsa une bouffée d'air vicié. Cette expiration ressemblait à une brume grise qui se mouvait tel un dragon; elle ne se dissipa lentement qu'après avoir parcouru plus de trente pieds.
 
-« Les nuages ici ne sont pas assez denses pour cultiver cet art... Si je veux achever la partie introductive et modifier la mémoire, je dois trouver davantage de nuages à absorber. » Wang Lin se tenait là, le regard illuminé. Une image apparut dans son esprit : une carte qu'il avait lui-même tracée.
+« Les nuages ici ne sont pas assez denses pour cultiver cet art... Si je veux achever la partie introductive et modifier la mémoire, je dois trouver davantage de nuages à absorber. » Wang Lin se tenait là, le regard illuminé. Une image apparut dans son esprit: une carte qu'il avait lui-même tracée.
 
 Un mois plus tôt, lorsque le maître de Su Dao lui eut enseigné l'Art Céleste du Dao des Nuages, la modification de la mémoire originale avait fait apparaître les huit portes cachées.
 
 Toutefois, la sensation de ces huit portes s'était instantanément évanouie, ne laissant à Wang Lin qu'une carte approximative de leurs emplacements. Durant ce mois, en pratiquant l'art, les distorsions constantes lui avaient permis d'en dessiner lentement les contours. La position des huit portes devenait progressivement plus claire.
 
-Wang Lin se leva et s'élança dans les airs. Il quitta le petit cours d'eau pour réapparaître dans le ciel au-dessus du Sect Dong Lin. Enveloppé par un nuage blanc, il fonça en avant tel une masse nuageuse.
+Wang Lin se leva et s'élança dans les airs. Il quitta le petit cours d'eau pour réapparaître dans le ciel au-dessus de la Secte Dong Lin. Enveloppé par un nuage blanc, il fonça en avant tel une masse nuageuse.
 
-Art du Dao des Nuages, Éclat Infini !
+Art du Dao des Nuages, Éclat Infini!
 
 Dans le ciel, des nuages sombres recouvrirent la zone. Le tonnerre gronda et la pluie s'abattit sur la plaine en contrebas. Les nuages noirs couvraient une vaste étendue, surplombant une cité qui abritait d'innombrables mortels du Continent Astral Immortel.
 
@@ -78,9 +78,9 @@ Dès qu'il touchait un autre nuage, celui-ci se mettait à tourbillonner pour ê
 
 Sept autres jours s'écoulèrent. En un instant, cela faisait deux mois que Wang Lin avait appris l'Art Céleste du Dao des Nuages. Le nuage qui dérivait se contracta rapidement jusqu'à se diviser en sept dragons de nuages, révélant la silhouette qu'ils abritaient.
 
-Wang Lin poussa un profond soupir et ouvrit les yeux. Ses pupilles avaient disparu, remplacées par des nuages ; c'était un spectacle saisissant.
+Wang Lin poussa un profond soupir et ouvrit les yeux. Ses pupilles avaient disparu, remplacées par des nuages; c'était un spectacle saisissant.
 
-« En deux mois, j'ai réussi à cultiver la première partie du Dao des Nuages jusqu'au neuvième niveau, n'étant plus qu'à un pas de l'achèvement... Cependant, ce n'est pas là ma plus grande récolte. Le véritable gain est qu'en modifiant la mémoire durant ces deux mois, j'ai trouvé l'une des huit portes ! » Les yeux de Wang Lin brillaient d'une lumière mystérieuse qui, à travers les nuages de son regard, paraissait étrange.
+« En deux mois, j'ai réussi à cultiver la première partie du Dao des Nuages jusqu'au neuvième niveau, n'étant plus qu'à un pas de l'achèvement... Cependant, ce n'est pas là ma plus grande récolte. Le véritable gain est qu'en modifiant la mémoire durant ces deux mois, j'ai trouvé l'une des huit portes! » Les yeux de Wang Lin brillaient d'une lumière mystérieuse qui, à travers les nuages de son regard, paraissait étrange.
 
 Une porte apparut distinctement sur la carte qu'il avait tracée mentalement.
 
@@ -88,9 +88,9 @@ Une porte apparut distinctement sur la carte qu'il avait tracée mentalement.
 
 En un instant, Wang Lin pénétra dans la jungle et fonça vers la porte qu'il ressentait en son esprit.
 
-Peu après, il s'arrêta devant un arbre à l'aspect très ordinaire. Cet arbre mesurait plus de cent pieds de haut ; un homme paraissait minuscule en sa comparaison.
+Peu après, il s'arrêta devant un arbre à l'aspect très ordinaire. Cet arbre mesurait plus de cent pieds de haut; un homme paraissait minuscule en sa comparaison.
 
-L'arbre semblait avoir survécu durant des âges indéfinis ; il aurait fallu environ cinq hommes pour en faire le tour complet.
+L'arbre semblait avoir survécu durant des âges indéfinis; il aurait fallu environ cinq hommes pour en faire le tour complet.
 
 Un python géant de plus de mille pieds de long était enroulé autour du tronc. Il sortit sa langue, fixant Wang Lin d'un regard glacial.
 
@@ -104,6 +104,6 @@ Après avoir gravi quelques dizaines de pieds, le python sauta de l'arbre et att
 
 L'ombre d'une porte gigantesque apparut lentement sur le dos du python.
 
-Ce python était l'une des huit portes, et non l'arbre ! Wang Lin en eut la certitude limpide lorsque le reptile tenta de fuir.
+Ce python était l'une des huit portes, et non l'arbre! Wang Lin en eut la certitude limpide lorsque le reptile tenta de fuir.
 
 Fixant la porte qui se dessinait sur le dos du python, Wang Lin fit un pas en avant.

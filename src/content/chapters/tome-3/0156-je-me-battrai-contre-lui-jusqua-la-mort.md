@@ -24,7 +24,7 @@ Pourtant, la puissance du Sens Divin du stade Ji de Wang Lin n'était pas affect
 
 Cependant, il ignorait que la limite du stade Ji était le stade avancé de l'Âme Naissante. S'il souhaitait atteindre le stade de la Formation de l'Âme avec celui-ci, les chances étaient extrêmement faibles.
 
-Le propriétaire original du rouleau étant déjà mort, le sens divin qui y était imprimé avait disparu depuis longtemps. Wang Lin y avait imprimé son propre sens divin, mais le plus étrange était que le rouleau n'en semblait pas affecté ; il paraissait identique à ce qu'il était avant l'empreinte.
+Le propriétaire original du rouleau étant déjà mort, le sens divin qui y était imprimé avait disparu depuis longtemps. Wang Lin y avait imprimé son propre sens divin, mais le plus étrange était que le rouleau n'en semblait pas affecté; il paraissait identique à ce qu'il était avant l'empreinte.
 
 Un intérêt manifeste apparut dans les yeux de Wang Lin. S'il s'était agi d'un trésor ordinaire, il aurait pu l'utiliser librement après avoir effacé le sens divin du précédent propriétaire pour y graver le sien. Tant que ce n'était pas un trésor de niveau Âme Naissante, cela était toujours vrai.
 
@@ -36,11 +36,11 @@ En plus du jade, il y avait l'épée volante capable de téléportation. Selon s
 
 En y réfléchissant, il ne put s'empêcher de se remémorer le fourreau d'épée antique. Combiné à l'épée volante, il pouvait en accroître la puissance. Même Situ Nan n'avait pu percer son véritable mystère. Il devait être au moins au-delà du niveau Âme Naissante, peut-être un trésor de niveau Formation de l'Âme, voire de Transformation de l'Âme. Après tout, il y avait très peu de choses que Situ Nan ne pouvait pas déceler.
 
-Wang Lin laissa échapper un soupir. Le fourreau avait été détruit lorsque Teng Huayuan avait brisé son sac de rangement. Puis Wang Lin réalisa soudainement une anomalie : si ce trésor était réellement d'une telle qualité, Teng Huayuan n'aurait pas dû être capable de le détruire.
+Wang Lin laissa échapper un soupir. Le fourreau avait été détruit lorsque Teng Huayuan avait brisé son sac de rangement. Puis Wang Lin réalisa soudainement une anomalie: si ce trésor était réellement d'une telle qualité, Teng Huayuan n'aurait pas dû être capable de le détruire.
 
-S'il n'avait pas été détruit, alors où pouvait bien se trouver le fourreau ?
+S'il n'avait pas été détruit, alors où pouvait bien se trouver le fourreau?
 
-Les yeux de Wang Lin s'illuminèrent ; il posa le rouleau et se leva brusquement. Il fit quelques pas d'aller-retour avant de placer quelques matériaux de basse qualité dans un sac de rangement. Puis, il concentra une pointe d'énergie spirituelle sur son doigt et réduisit le sac en poussière.
+Les yeux de Wang Lin s'illuminèrent; il posa le rouleau et se leva brusquement. Il fit quelques pas d'aller-retour avant de placer quelques matériaux de basse qualité dans un sac de rangement. Puis, il concentra une pointe d'énergie spirituelle sur son doigt et réduisit le sac en poussière.
 
 Le regard de Wang Lin resta fixé sur le sac alors qu'il se désintégrait. Il essaya encore plusieurs fois avant qu'une lueur de compréhension n'apparaisse dans ses yeux.
 
@@ -62,31 +62,31 @@ La sueur perla sur le front de Wang Lin. Au moment où le cri avait retenti, il 
 
 Après avoir soigneusement rangé le rouleau, Wang Lin commença à méditer. Après un long moment, il sortit un Noyau Doré de son sac de rangement. Sa couleur s'était déjà assombrie. Il réfléchit encore un peu avant d'en sortir plus d'une centaine. Tous étaient ternes, exhalant une aura de mort.
 
-Autrefois, Wang Lin les aurait dévorés instantanément, mais sur le chemin de la présence, Li Muwan lui avait averti que si dévorer des Noyaux Dorés augmentait son niveau de cultivation, cela corromprait également son énergie spirituelle et désordonnerait ses flux internes. De plus, chaque noyau possédait des propriétés distinctes ; en absorber trop d'éléments opposés risquait de rendre son énergie spirituelle erratique, le faisant perdre le contrôle et sombrer dans la folie.
+Autrefois, Wang Lin les aurait dévorés instantanément, mais sur le chemin de la présence, Li Muwan lui avait averti que si dévorer des Noyaux Dorés augmentait son niveau de culture, cela corromprait également son énergie spirituelle et désordonnerait ses flux internes. De plus, chaque noyau possédait des propriétés distinctes; en absorber trop d'éléments opposés risquait de rendre son énergie spirituelle erratique, le faisant perdre le contrôle et sombrer dans la folie.
 
 Après avoir entendu cela, bien qu'il en fût réticent, Wang Lin renonça à l'idée de les consommer directement. Selon Li Muwan, ils n'auraient aucun effet négatif s'ils étaient d'abord raffinés via la méthode des cinq éléments.
 
-Toutefois, ce type de technique de raffinement était considéré comme une méthode démoniaque ; elle n'en avait fait que l'écho. Wang Lin réfléchit un instant avant de tous les placer dans un sac de rangement, en attendant de trouver la méthode de raffinage des cinq éléments.
+Toutefois, ce type de technique de raffinement était considéré comme une méthode démoniaque; elle n'en avait fait que l'écho. Wang Lin réfléchit un instant avant de tous les placer dans un sac de rangement, en attendant de trouver la méthode de raffinage des cinq éléments.
 
 Puis, Wang Lin sortit le tendon de dragon. D'un geste léger, le démon s'envola. Il fit le tour de la pièce une fois avant de regarder Wang Lin d'un air contrarié.
 
-La lueur rouge sur le démon était bien plus intense que la dernière fois. Wang Lin le fixa d'un regard glacial et demanda : « À quel point votre niveau de cultivation a-t-il été restauré ? »
+La lueur rouge sur le démon était bien plus intense que la dernière fois. Wang Lin le fixa d'un regard glacial et demanda: « À quel point votre niveau de culture a-t-il été restauré? »
 
-Le démon recula prudemment et répondit : « Je ne suis revenu qu'au stade avancé de l'Établissement des Fondations. Si ce n'était pas pour cette épée qui m'a volé, j'aurais pu atteindre la Formation du Noyau ! »
+Le démon recula prudemment et répondit: « Je ne suis revenu qu'au stade avancé de l'Établissement des Fondations. Si ce n'était pas pour cette épée qui m'a volé, j'aurais pu atteindre la Formation du Noyau! »
 
-Wang Lin ricana en le fixant intensément. Le démon sentit ses poils se hérisser sous ce regard. Il recula encore un peu et marmonna : « Je suis au sommet du stade avancé de l'Établissement des Fondations, à seulement un pas de la Formation du Noyau. » En disant cela, il maudit intérieurement le cultivateur, pensant que si Wang Lin continuait de le presser, il finirait par l'affronter de toutes ses forces. Mais ce n'était qu'une pensée ; le démon était convaincu que même en se donnant à fond, il n'obtiendrait rien de bon.
+Wang Lin ricana en le fixant intensément. Le démon sentit ses poils se hérisser sous ce regard. Il recula encore un peu et marmonna: « Je suis au sommet du stade avancé de l'Établissement des Fondations, à seulement un pas de la Formation du Noyau. » En disant cela, il maudit intérieurement le cultivateur, pensant que si Wang Lin continuait de le presser, il finirait par l'affronter de toutes ses forces. Mais ce n'était qu'une pensée; le démon était convaincu que même en se donnant à fond, il n'obtiendrait rien de bon.
 
 Les yeux de Wang Lin devinrent froids et sa main s'avança. Le démon poussa un cri. Il voulut esquiver, mais découvrit des formations l'encerclant déjà. Il ne put que regarder son corps être saisi et traîné vers Wang Lin.
 
 Wang Lin fouilla le corps du démon. Peu à peu, des éclats rouges apparurent jusqu'à ce qu'un Noyau Doré se manifeste dans la forme gazeuse de la créature.
 
-La colère du démon s'évapora instantanément. Il dit d'un ton embarrassé : « Qu'est-ce que c'est ? Quand ai-je formé mon noyau ? J'ai dû trop dévorer et l'ai formé sans m'en rendre compte... » En parlant, il croisa le regard glacial de Wang Lin et se tut aussitôt.
+La colère du démon s'évapora instantanément. Il dit d'un ton embarrassé: « Qu'est-ce que c'est? Quand ai-je formé mon noyau? J'ai dû trop dévorer et l'ai formé sans m'en rendre compte... » En parlant, il croisa le regard glacial de Wang Lin et se tut aussitôt.
 
-Wang Lin réfléchit un instant avant de demander soudainement : « Vous avez retrouvé la mémoire ? »
+Wang Lin réfléchit un instant avant de demander soudainement: « Vous avez retrouvé la mémoire? »
 
 Le démon trembla sur-le-champ. C'était son plus grand secret. Lorsqu'il avait atteint le stade de la Formation du Noyau, une pensée étrange était apparue dans son esprit, mais il n'avait pas osé en parler à Wang Lin. Maintenant que Wang Lin l'avait percé à jour, la terreur l'envahit.
 
-Il s'agitait intérieurement : « Devrais-je me jeter sur lui ? Me battre ? Non, je ne pense pas pouvoir le vaincre... J'ai décidé, je vais tout donner ! »
+Il s'agitait intérieurement: « Devrais-je me jeter sur lui? Me battre? Non, je ne pense pas pouvoir le vaincre... J'ai décidé, je vais tout donner! »
 
 Il venait de prendre sa décision et était prêt à passer à l'action lorsqu'il leva la tête et vit une lueur rouge dans les yeux de Wang Lin. Il comprit immédiatement que la situation devenait critique et laissa échapper un cri misérable de douleur. Une fumée verte s'échappa de son corps et même son Noyau Doré se rétracta.
 
@@ -96,4 +96,4 @@ Cela faisait de Wang Lin la plus grande faiblesse du démon. Après que celui-ci
 
 Il ne craignait personne, si ce n'est Wang Lin. Si Wang Lin l'avait maintenu ainsi pendant une demi-heure, son noyau fraîchement formé se serait brisé.
 
-Wang Lin dit calmement : « Crache toutes les âmes que tu as dévorées. »
+Wang Lin dit calmement: « Crache toutes les âmes que tu as dévorées. »

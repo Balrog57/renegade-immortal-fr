@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2059 - Seen Before
 slug: déjà-vu
 ---
-À qui appartenait cette silhouette, et quel était ce corps qu'il tenait... Wang Lin n'osait se poser ces questions ; il avait peur d'y songer...
+À qui appartenait cette silhouette, et quel était ce corps qu'il tenait... Wang Lin n'osait se poser ces questions; il avait peur d'y songer...
 
 Il s'assit silencieusement dans le temple et se remémora les 68 années qu'il y avait passées.
 
@@ -14,21 +14,21 @@ Il s'assit silencieusement dans le temple et se remémora les 68 années qu'il y
 
 Dans la cité impériale d'Ancient Shi, alors que les 27 halos brillaient intensément autour de la statue de l'Ancêtre Ancien, un immense tumulte retentit à travers toute la cité, et tous les regards se tournèrent vers la statue.
 
-« 18 ans. Cet homme a passé trois ans sur la première séparation de l'âme, et la seconde division a pris 15 ans. Il doit avoir opté pour une fragmentation complète et une fusion parfaite ! »
+« 18 ans. Cet homme a passé trois ans sur la première séparation de l'âme, et la seconde division a pris 15 ans. Il doit avoir opté pour une fragmentation complète et une fusion parfaite! »
 
-« La première fois, il avait réussi, mais lors de la seconde fusion, il y a manifestement eu un accident. Je me demande comment se déroulera sa troisième tentative ! »
+« La première fois, il avait réussi, mais lors de la seconde fusion, il y a manifestement eu un accident. Je me demande comment se déroulera sa troisième tentative! »
 
 « Si ce Wang Lin continue de se fragmenter totalement, alors sa troisième tentative sera extrêmement périlleuse. À sa place, je mettrais fin à cette troisième division prématurément afin de rester en vie. »
 
-Alors que tous les regards convergeaient vers le temple ancestral, Wang Lin prit une profonde inspiration. Il chassa toutes les pensées concernant cette silhouette et s'immergea pleinement dans la troisième séparation de son âme !
+Alors que tous les regards convergeaient vers le temple ancestral, Wang Lin prit une profonde inspiration. Il chassa toutes les pensées concernant cette silhouette et s'immergea pleinement dans la troisième séparation de son âme!
 
-Il sentait qu'après l'achèvement de cette seconde séparation, son âme originelle était devenue innombrablement plus puissante et sa cultivation s'était également renforcée. Si la troisième séparation réussissait et que son âme originelle réintégrait son corps, il sentait qu'il atteindrait un nouveau sommet !
+Il sentait qu'après l'achèvement de cette seconde séparation, son âme originelle était devenue innombrablement plus puissante et sa culture s'était également renforcée. Si la troisième séparation réussissait et que son âme originelle réintégrait son corps, il sentait qu'il atteindrait un nouveau sommet!
 
-Un sommet tel qu'il pourrait peut-être... surpasser le Gu Dao !
+Un sommet tel qu'il pourrait peut-être... surpasser le Gu Dao!
 
-Les yeux de Wang Lin s'illuminèrent d'un éclat déterminé. Il ferma les paupières et son immense ombre d'âme originelle, qui occupait presque tout le temple ancestral, entama la troisième séparation !
+Les yeux de Wang Lin s'illuminèrent d'un éclat déterminé. Il ferma les paupières et son immense ombre d'âme originelle, qui occupait presque tout le temple ancestral, entama la troisième séparation!
 
-C'était aussi la dernière fois !
+C'était aussi la dernière fois!
 
 « Trois ans, 15 ans... Combien de temps cela durera-t-il... » Wang Lin n'avait pas de réponse.
 
@@ -36,21 +36,21 @@ En un éclair, sept années s'étaient écoulées pour Wang Lin dans cette trois
 
 L'Empereur d'Ancient Shi avait presque terminé le transfert de pouvoir à Ji Du. Le jour où le nouvel empereur serait couronné approchait à grands pas.
 
-À mesure que ce jour approchait, les regards des habitants passèrent de la statue de l'Ancêtre Ancien au sujet le plus crucial d'Ancient Shi : l'ascension d'un nouvel empereur sur le trône !
+À mesure que ce jour approchait, les regards des habitants passèrent de la statue de l'Ancêtre Ancien au sujet le plus crucial d'Ancient Shi: l'ascension d'un nouvel empereur sur le trône!
 
 D'innombrables armées d'Ancient Shi étaient progressivement confiées à Ji Du afin qu'il puisse s'en imprégner. C'était l'une des préparations pour la grande guerre entre les Célestes et Ancient Shi qui éclaterait dans quelques centaines d'années.
 
 Cinq ans... Cinq ans... Cinq ans...
 
-Le temps passa invisiblement et les saisons se succédèrent. En un clin d'œil, 15 autres années s'écoulèrent. Cela faisait maintenant 22 ans que la troisième séparation de l'âme de Wang Lin avait commencé !
+Le temps passa invisiblement et les saisons se succédèrent. En un clin d'œil, 15 autres années s'écoulèrent. Cela faisait maintenant 22 ans que la troisième séparation de l'âme de Wang Lin avait commencé!
 
-Si l'on incluait les séparations précédentes, cela faisait 90 ans que Wang Lin était entré dans le temple ancestral !
+Si l'on incluait les séparations précédentes, cela faisait 90 ans que Wang Lin était entré dans le temple ancestral!
 
 Quatre-vingt-dix années suffisaient pour que bien des choses changent. C'était assez pour qu'un mortel achève sa vie ou pour qu'un nouvel empereur accède au trône. L'actuel Empereur d'Ancient Shi s'était déjà retiré dans l'ombre, laissant Ji Du agir en première ligne.
 
 Bien que la grande cérémonie n'eût pas encore eu lieu, tout à Ancient Shi était désormais administré par Ji Du. Bien qu'il ne portât pas encore la couronne, il revêtait déjà la robe royale.
 
-Pourtant, malgré cela, son habitude de contempler le temple ancestral chaque matin ne changeait jamais. Il croyait fermement que son parrain réussirait !
+Pourtant, malgré cela, son habitude de contempler le temple ancestral chaque matin ne changeait jamais. Il croyait fermement que son parrain réussirait!
 
 Dans le temple ancestral, l'immense ombre de l'âme originelle s'était déjà brisée en d'innombrables fragments et entrait dans la phase finale de son effondrement.
 
@@ -60,7 +60,7 @@ Wang Lin continuait d'endurer des décennies de douleur tandis que son âme orig
 
 À la 95e année, toute la cité d'Ancient Shi se préparait au couronnement du nouvel empereur prévu dans cinq ans. À ce stade, l'ombre surplombant Wang Lin n'était plus que poussière.
 
-Il commença alors à tenter la fusion !
+Il commença alors à tenter la fusion!
 
 En raison de l'accident survenu lors de la seconde séparation, Wang Lin se montrait extrêmement prudent. Il ne tentait pas de tout fusionner d'un coup, mais commençait par assembler des fragments jusqu'à atteindre la perfection.
 
@@ -74,7 +74,7 @@ Cependant, ces 30 % étaient plusieurs fois plus puissants que son âme après l
 
 Il ne restait que trois ans avant la centième année. Un peu plus de mille jours et nuits subsistaient.
 
-Durant ces quelques années, la cité impériale d'Ancient Shi était en pleine effervescence. Presque toutes les puissances d'Ancient Shi s'étaient rassemblées pour assister à l'événement le plus important de l'empire !
+Durant ces quelques années, la cité impériale d'Ancient Shi était en pleine effervescence. Presque toutes les puissances d'Ancient Shi s'étaient rassemblées pour assister à l'événement le plus important de l'empire!
 
 Le changement de règne avait rendu toute la cité extrêmement animée. Cependant, celui qui allait hériter du trône était devenu silencieux. Il s'était rendu seul au Temple Ancestral et s'était assis à l'extérieur pour cultiver.
 
@@ -90,7 +90,7 @@ Ji Du écoutait les rumeurs de la foule tout en restant assis en silence, les ye
 
 Ji Du resta là. Tandis que les jours et les nuits se succédaient, la 98e année passa. Puis vint la 99e, et enfin, la 100e année s'écoula silencieusement.
 
-En ce jour, après un siècle, tous les regards de la cité impériale convergèrent une fois de plus vers la statue de l'Ancêtre Ancien. Cependant, ils ne regardaient pas les halos, mais leur empereur !
+En ce jour, après un siècle, tous les regards de la cité impériale convergèrent une fois de plus vers la statue de l'Ancêtre Ancien. Cependant, ils ne regardaient pas les halos, mais leur empereur!
 
 La cité entière était plongée dans le silence et une foule immense entourait le palais. Ils attendaient l'apparition de leur nouveau souverain. Des milliers de personnes se pressaient sur la place.
 
@@ -98,15 +98,15 @@ Les émissaires des deux autres clans étaient arrivés en grande pompe. Les dig
 
 Au centre même de la place trônait un fourneau gigantesque.
 
-À l'intérieur du fourneau reposait une petite quantité de terre dans laquelle était planté un immense bâton d'encens. L'encens n'était pas encore allumé — le seul capable de l'allumer était Ji Du !
+À l'intérieur du fourneau reposait une petite quantité de terre dans laquelle était planté un immense bâton d'encens. L'encens n'était pas encore allumé — le seul capable de l'allumer était Ji Du!
 
 C'était l'encens du pouvoir impérial. Dès que le bâton serait allumé, la fumée se transformerait en tambour. Ji Du était également le seul à pouvoir frapper ce tambour. Une fois qu'il aurait résonné neuf fois, Ji Du recevrait la révérence de tout Ancient Shi.
 
-Tout le monde attendait ; même l'ancien Empereur d'Ancient Shi attendait.
+Tout le monde attendait; même l'ancien Empereur d'Ancient Shi attendait.
 
-Aux côtés de l'ancien Empereur se tenaient plusieurs personnes. L'un des vieillards hésita et murmura : « Le moment approche... Votre Majesté, ceci... »
+Aux côtés de l'ancien Empereur se tenaient plusieurs personnes. L'un des vieillards hésita et murmura: « Le moment approche... Votre Majesté, ceci... »
 
-« Continuez d'attendre ! Il n'y a pas de moment propice dans mon Ancient Shi. Lorsque le Prince Ji Du viendra prendre le trône, ce sera alors le moment le plus propice ! » déclara l'ancien Empereur d'une voix rauque.
+« Continuez d'attendre! Il n'y a pas de moment propice dans mon Ancient Shi. Lorsque le Prince Ji Du viendra prendre le trône, ce sera alors le moment le plus propice! » déclara l'ancien Empereur d'une voix rauque.
 
 Le vieil homme qui avait pris la parole hocha respectueusement la tête.
 

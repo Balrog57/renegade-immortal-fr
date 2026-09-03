@@ -8,7 +8,7 @@ slug: entree-dans-la-secte
 ---
 Au moment où le mot « Senior » fut prononcé, trois anneaux supplémentaires s'illuminèrent, portant le total à 43. Une fois ces 43 anneaux allumés, aucun autre ne s'anima, mais ils se mirent à briller en parfaite synchronie.
 
-L'attitude des huit jeunes changea de nouveau. Leurs visages, d'abord empreints de stupeur, furent envahis par un respect frisant la folie. Ils passèrent de la position agenouillée à une prosternation complète, les deux genoux au sol, tout en fixant avec précaution le réseau de transfert. Il faut dire que si 40 anneaux s'allument, cela signifie que le statut de la personne au sein de la Secte des Cadavres est extrêmement élevé ; si ce nombre dépasse 40, il s'agit d'un ancêtre de l'Âme Naissante.
+L'attitude des huit jeunes changea de nouveau. Leurs visages, d'abord empreints de stupeur, furent envahis par un respect frisant la folie. Ils passèrent de la position agenouillée à une prosternation complète, les deux genoux au sol, tout en fixant avec précaution le réseau de transfert. Il faut dire que si 40 anneaux s'allument, cela signifie que le statut de la personne au sein de la Secte des Cadavres est extrêmement élevé; si ce nombre dépasse 40, il s'agit d'un ancêtre de l'Âme Naissante.
 
 Comprenant cela, leur réaction était tout à fait logique.
 
@@ -26,11 +26,11 @@ Après un scan de son sens divin, Wang Lin se détendit légèrement. Les huit j
 
 L'être étrange, Adai, cessa également, pour une raison quelconque, d'observer les environs comme il l'avait fait dans le tunnel. Il se tenait derrière Wang Lin et fixait les symboles mystérieux sur les piliers de bois, semblant plongé dans ses pensées.
 
-Les huit personnes sur les piliers se redressèrent. L'un d'eux, arborant une expression singulière, demanda : « Senior, qui êtes-vous ? »
+Les huit personnes sur les piliers se redressèrent. L'un d'eux, arborant une expression singulière, demanda: « Senior, qui êtes-vous? »
 
-Wang Lin avait déjà planifié ses paroles durant le voyage. Gardant un calme imperturbable, il déclara froidement : « Je suis Wang Lin. Veuillez informer mon oncle-maître Ye Zizai que j'ai une affaire importante à lui confier. »
+Wang Lin avait déjà planifié ses paroles durant le voyage. Gardant un calme imperturbable, il déclara froidement: « Je suis Wang Lin. Veuillez informer mon oncle-maître Ye Zizai que j'ai une affaire importante à lui confier. »
 
-Le jeune homme fut déconcerté. Il regarda ses compagnons, puis reprit : « Senior, je ne peux rien faire pour vous. Laissez-moi vous conduire voir l'Ancien. »
+Le jeune homme fut déconcerté. Il regarda ses compagnons, puis reprit: « Senior, je ne peux rien faire pour vous. Laissez-moi vous conduire voir l'Ancien. »
 
 Wang Lin acquiesça. Il sortit de la formation et Adai le suivit.
 
@@ -40,7 +40,7 @@ Le jeune homme sauta du pilier de bois, suivi par son cercueil.
 
 Sans un mot, Wang Lin le suivit.
 
-En chemin, le jeune homme inspectait secrètement Wang Lin. Plus il l'observait, plus son respect grandissait. Après tout, la force est la seule loi dans le monde de la cultivation ; et face au niveau d'Établissement des Fondations de Wang Lin, il ne pouvait qu'être impressionné.
+En chemin, le jeune homme inspectait secrètement Wang Lin. Plus il l'observait, plus son respect grandissait. Après tout, la force est la seule loi dans le monde de la culture; et face au niveau d'Établissement des Fondations de Wang Lin, il ne pouvait qu'être impressionné.
 
 Adai, qui marchait derrière Wang Lin, captivait pourtant l'essentiel de l'attention du jeune homme.
 
@@ -48,23 +48,23 @@ De son côté, Wang Lin inspectait également le garçon, et plus particulièrem
 
 Un cadavre se trouvait dans le cercueil. Le corps, semblable à du bois sec, semblait dormir. Dès que Wang Lin posa son regard sur lui, la dépouille s'éveilla. Bien que ses yeux fussent voilés, ils étaient empreints d'une intention meurtrière.
 
-Le jeune homme sembla s'en apercevoir et frappa le cercueil. Le cadavre referma les yeux et le garçon sourit : « Senior, ce cadavre-poupée m'a été offert par mon maître. Il l'a obtenu sur le champ de bataille du monde extérieur. Il est extrêmement sensible au sens divin et déborde d'intention meurtrière. Il m'a fallu énormément de temps pour réussir à le raffiner. »
+Le jeune homme sembla s'en apercevoir et frappa le cercueil. Le cadavre referma les yeux et le garçon sourit: « Senior, ce cadavre-poupée m'a été offert par mon maître. Il l'a obtenu sur le champ de bataille du monde extérieur. Il est extrêmement sensible au sens divin et déborde d'intention meurtrière. Il m'a fallu énormément de temps pour réussir à le raffiner. »
 
-Wang Lin hocha la tête et répondit : « Votre cadavre-poupée possède un niveau de cultivation de l'étape initiale de l'Établissement des Fondations. Pas mal. »
+Wang Lin hocha la tête et répondit: « Votre cadavre-poupée possède un niveau de culture de l'étape initiale de l'Établissement des Fondations. Pas mal. »
 
-En entendant ces mots, le jeune homme fut secrètement stupéfait et son respect pour Wang Lin s'en trouva décuplé. Il fallait admettre que, bien que le cercueil fût conçu pour occulter le sens divin, Wang Lin avait été capable de voir clair instantanément. Manifestement, ce n'était pas un cultivateur ordinaire de l'Établissement des Fondations ; peut-être même un expert du stade avancé.
+En entendant ces mots, le jeune homme fut secrètement stupéfait et son respect pour Wang Lin s'en trouva décuplé. Il fallait admettre que, bien que le cercueil fût conçu pour occulter le sens divin, Wang Lin avait été capable de voir clair instantanément. Manifestement, ce n'était pas un cultivateur ordinaire de l'Établissement des Fondations; peut-être même un expert du stade avancé.
 
-Fort de cette pensée, il demanda avec une déférence accrue : « Senior, est-ce là votre cadavre-poupée ? »
+Fort de cette pensée, il demanda avec une déférence accrue: « Senior, est-ce là votre cadavre-poupée? »
 
 Wang Lin garda un visage impassible et acquiesça.
 
-Le jeune homme, la curiosité dévorante, fixa Adai avant de s'exclamer : « Senior, comment avez-vous fait pour que votre cadavre-poupée soit si intelligent ? Le seul autre aussi doté est le Flying Luo Sha de l'ancêtre Ze. »
+Le jeune homme, la curiosité dévorante, fixa Adai avant de s'exclamer: « Senior, comment avez-vous fait pour que votre cadavre-poupée soit si intelligent? Le seul autre aussi doté est le Flying Luo Sha de l'ancêtre Ze. »
 
 Wang Lin le regarda sans lui répondre.
 
 Le garçon continua d'observer Adai, ce qui finit par agacer le compagnon de Wang Lin, jusqu'à ce qu'Adai ne puisse plus se retenir et se mette à hurler sur le jeune homme.
 
-Surpris d'entendre Adai parler, le garçon demanda : « Senior, votre cadavre-poupée a-t-il déjà évolué au point de pouvoir s'exprimer ? »
+Surpris d'entendre Adai parler, le garçon demanda: « Senior, votre cadavre-poupée a-t-il déjà évolué au point de pouvoir s'exprimer? »
 
 Wang Lin fronça légèrement les sourcils. « Cet individu parle bien trop », pensa-t-il.
 
@@ -88,41 +88,41 @@ Dès que Wang Lin entra dans la grotte, le vieil homme ouvrit les yeux. Son rega
 
 Wang Lin utilisa son sens divin et découvrit que l'homme se trouvait au stade intermédiaire de l'Établissement des Fondations.
 
-À cet instant, le jeune homme entra précipitamment dans la grotte et s'adressa au vieil homme : « Ancien, ce senior vient d'arriver par le réseau magique. 43 anneaux se sont allumés à son arrivée, et il souhaite voir l'ancêtre Ye. »
+À cet instant, le jeune homme entra précipitamment dans la grotte et s'adressa au vieil homme: « Ancien, ce senior vient d'arriver par le réseau magique. 43 anneaux se sont allumés à son arrivée, et il souhaite voir l'ancêtre Ye. »
 
-À ces mots, l'expression du vieil homme changea brusquement. Il fixa Wang Lin avec un regard étrange et demanda : « Camarade cultivateur, qui, au sein de la secte des cadavres, vous a ouvert le tunnel ? »
+À ces mots, l'expression du vieil homme changea brusquement. Il fixa Wang Lin avec un regard étrange et demanda: « Camarade cultivateur, qui, au sein de la secte des cadavres, vous a ouvert le tunnel? »
 
-Wang Lin répondit calmement : « Wu Yu. »
+Wang Lin répondit calmement: « Wu Yu. »
 
-En entendant ce nom, le visage du vieil homme se décomposa. Il se leva et déclara : « L'ancêtre Wu Yu, qui a disparu depuis plusieurs centaines d'années... Quel est... quel est votre lien avec lui ? »
+En entendant ce nom, le visage du vieil homme se décomposa. Il se leva et déclara: « L'ancêtre Wu Yu, qui a disparu depuis plusieurs centaines d'années... Quel est... quel est votre lien avec lui? »
 
-Wang Lin regarda l'homme et répondit simplement : « Disciple. »
+Wang Lin regarda l'homme et répondit simplement: « Disciple. »
 
-Le vieil homme eut un souffle de surprise. Le statut de Wu Yu était extrêmement prestigieux au sein de la secte des cadavres. Si les paroles de Wang Lin étaient vraies, il ne pouvait se permettre de l'offenser. Changeant instantanément d'attitude, il sourit et dit : « Ainsi, c'est l'oncle-maître qui revient. Mon nom est Mu Rong. Et quel est le vôtre, Senior ? »
+Le vieil homme eut un souffle de surprise. Le statut de Wu Yu était extrêmement prestigieux au sein de la secte des cadavres. Si les paroles de Wang Lin étaient vraies, il ne pouvait se permettre de l'offenser. Changeant instantanément d'attitude, il sourit et dit: « Ainsi, c'est l'oncle-maître qui revient. Mon nom est Mu Rong. Et quel est le vôtre, Senior? »
 
-Wang Lin esquissa un léger sourire : « Je m'appelle Wang Lin. Quant au titre d'oncle-maître, je ne le mérite pas. »
+Wang Lin esquissa un léger sourire: « Je m'appelle Wang Lin. Quant au titre d'oncle-maître, je ne le mérite pas. »
 
-Mu Rong laissa échapper un rire. Il tourna la tête vers le jeune homme et, son expression se glaçant, ordonna : « Tu peux disposer. Je vais conduire l'oncle-maître Wang auprès de l'ancêtre Ye. »
+Mu Rong laissa échapper un rire. Il tourna la tête vers le jeune homme et, son expression se glaçant, ordonna: « Tu peux disposer. Je vais conduire l'oncle-maître Wang auprès de l'ancêtre Ye. »
 
 Le garçon accepta aussitôt, marmonnant quelques mots pour lui-même avant de s'éclipser rapidement.
 
-Une fois le jeune homme parti, Mu Rong invita Wang Lin à monter sur le pilier de pierre et demanda : « Frère Wang, pourquoi l'ancêtre n'est-il pas revenu avec vous ? »
+Une fois le jeune homme parti, Mu Rong invita Wang Lin à monter sur le pilier de pierre et demanda: « Frère Wang, pourquoi l'ancêtre n'est-il pas revenu avec vous? »
 
-Wang Lin répondit : « Le cadavre-poupée de mon maître a rencontré quelques problèmes, il s'en occupe. »
+Wang Lin répondit: « Le cadavre-poupée de mon maître a rencontré quelques problèmes, il s'en occupe. »
 
-Mu Rong acquiesça : « Le cadavre-poupée de l'ancêtre Wu Yu est presque aussi puissant que celui de l'ancêtre Ye. Plus un cadavre-poupée est puissant, plus il est complexe à maîtriser ; cependant, avec sa force, cela ne devrait pas poser trop de difficultés. » Il observa Wang Lin, tentant d'en sonder les secrets.
+Mu Rong acquiesça: « Le cadavre-poupée de l'ancêtre Wu Yu est presque aussi puissant que celui de l'ancêtre Ye. Plus un cadavre-poupée est puissant, plus il est complexe à maîtriser; cependant, avec sa force, cela ne devrait pas poser trop de difficultés. » Il observa Wang Lin, tentant d'en sonder les secrets.
 
-Hélas, le visage de Wang Lin demeura de marbre durant tout cet échange. Après une courte réflexion, Mu Rong reprit : « Veuillez patienter ici, frère Wang. Je contacte l'ancêtre Ye immédiatement. » Sur ces mots, il tapota sa sacoche de stockage et en sortit un morceau de jade. Il le tint avec gravité un instant, puis le lança.
+Hélas, le visage de Wang Lin demeura de marbre durant tout cet échange. Après une courte réflexion, Mu Rong reprit: « Veuillez patienter ici, frère Wang. Je contacte l'ancêtre Ye immédiatement. » Sur ces mots, il tapota sa sacoche de stockage et en sortit un morceau de jade. Il le tint avec gravité un instant, puis le lança.
 
 Le jade émit quelques éclats lumineux avant de s'engouffrer rapidement dans l'un des tunnels.
 
-Une fois l'acte accompli, Mu Rong reporta son attention sur Adai. Mais avant qu'il ne puisse parler, Wang Lin, contemplant les flammes bleues sur les piliers avec un air surpris, intervint : « Frère Mu, ces flammes Yin contiennent également de l'énergie Yan. Elles ne semblent pas ordinaires. »
+Une fois l'acte accompli, Mu Rong reporta son attention sur Adai. Mais avant qu'il ne puisse parler, Wang Lin, contemplant les flammes bleues sur les piliers avec un air surpris, intervint: « Frère Mu, ces flammes Yin contiennent également de l'énergie Yan. Elles ne semblent pas ordinaires. »
 
-Mu Rong eut un rire léger : « Frère Wang, cette Flamme du Seigneur Bleu a été créée en fusionnant les noyaux de plusieurs cultivateurs de la Formation du Noyau issus des sectes orthodoxes, il y a des centaines d'années. Après avoir été affinées par l'ancêtre Ye, elles sont devenues des trésors pour la secte des cadavres. Elles soutiennent grandement notre cultivation et sont particulièrement bénéfiques pour nos cadavres-poupées. »
+Mu Rong eut un rire léger: « Frère Wang, cette Flamme du Seigneur Bleu a été créée en fusionnant les noyaux de plusieurs cultivateurs de la Formation du Noyau issus des sectes orthodoxes, il y a des centaines d'années. Après avoir été affinées par l'ancêtre Ye, elles sont devenues des trésors pour la secte des cadavres. Elles soutiennent grandement notre culture et sont particulièrement bénéfiques pour nos cadavres-poupées. »
 
 Wang Lin fixa la flamme bleue. D'un geste de la main, il attira un fragment de la flamme vers lui. Il l'observa, puis y injecta une partie de son énergie Yin. Dans un crépitement, la flamme se mua en une petite sphère bleue flottant au creux de sa paume.
 
-Le sourire de Mu Rong s'élargit légèrement : « Frère Wang, transformer ce gaz en forme solide n'est point chose aisée sans une immense réserve d'énergie Yin. Il semble que l'ancêtre Wu Yu vous porte une véritable affection. »
+Le sourire de Mu Rong s'élargit légèrement: « Frère Wang, transformer ce gaz en forme solide n'est point chose aisée sans une immense réserve d'énergie Yin. Il semble que l'ancêtre Wu Yu vous porte une véritable affection. »
 
 Le dernier doute qui habitait Mu Rong à l'égard de Wang Lin s'évanouit après cette démonstration. Il ignorait qu'en dépit de la similitude entre l'énergie Yin de Wang Lin et la méthode pratiquée par la secte des cadavres, leurs natures étaient radicalement différentes.
 
@@ -130,4 +130,4 @@ Le dernier doute qui habitait Mu Rong à l'égard de Wang Lin s'évanouit après
 
 Les pupilles de Wang Lin se contractèrent. Sous le poids de cette présence, il ressentit un effroi indicible. Il tourna la tête vers Mu Rong, qui était déjà à genoux sur le sol.
 
-Une voix sinistre émana de la silhouette : « Es-tu le disciple du frère cadet apprenti Wu Yu ? »
+Une voix sinistre émana de la silhouette: « Es-tu le disciple du frère cadet apprenti Wu Yu? »

@@ -18,37 +18,37 @@ Au village de Nuage de Feu, les torches éclairaient les environs même durant l
 
 À l'intérieur de celle-ci reposait une perle de la taille d'un poing qui émettait une lueur douce.
 
-La cupidité illumina les yeux de l'homme lorsqu'il saisit la perle. Il marmonna : « Quelle magnifique perle ! Elle devrait valoir une fortune ! »
+La cupidité illumina les yeux de l'homme lorsqu'il saisit la perle. Il marmonna: « Quelle magnifique perle! Elle devrait valoir une fortune! »
 
 Après un moment, il remit la perle dans sa boîte et la referma. Puis, son regard se posa sur l'autre objet posé sur la table.
 
 C'était un sac gris. En le prenant, l'homme sentit qu'il était d'une légèreté déconcertante, comme s'il était vide. Ce qui le surprit le plus fut l'absence totale d'ouverture pour ce sac.
 
-« Qu'est-ce que c'est ? » L'homme réfléchit un instant avant de déployer toute sa force pour tenter de déchirer le tissu. Malgré tous ses efforts, même jusqu'à ce que les veines de son front saillissent, il ne parvint pas à l'entrouvrir.
+« Qu'est-ce que c'est? » L'homme réfléchit un instant avant de déployer toute sa force pour tenter de déchirer le tissu. Malgré tous ses efforts, même jusqu'à ce que les veines de son front saillissent, il ne parvint pas à l'entrouvrir.
 
-« Ceci... ne serait-ce pas la soie du ver de soie céleste ? Oui, cela doit l'être ; autrement, comment pourrais-je échouer ainsi ? La légende raconte que la soie du ver de soie céleste craint par-dessus tout l'eau. Humph, je ne crois pas que je sois incapable de brûler ceci ! » L'homme colossale plaça le sac dans la cheminée.
+« Ceci... ne serait-ce pas la soie du ver de soie céleste? Oui, cela doit l'être; autrement, comment pourrais-je échouer ainsi? La légende raconte que la soie du ver de soie céleste craint par-dessus tout l'eau. Humph, je ne crois pas que je sois incapable de brûler ceci! » L'homme colossale plaça le sac dans la cheminée.
 
-Il s'écoula un long moment sans qu'aucun changement ne survienne. L'homme resta stupéfait ; il ne ressentait même aucune chaleur émanant du sac.
+Il s'écoula un long moment sans qu'aucun changement ne survienne. L'homme resta stupéfait; il ne ressentait même aucune chaleur émanant du sac.
 
-« Hein ? Qu'est-ce que c'est que ce truc ? » L'homme sortit une grande lame, une pièce sur mesure pour laquelle il avait déboursé une fortune et qui était d'un tranchant redoutable. Il tenta de trancher le sac.
+« Hein? Qu'est-ce que c'est que ce truc? » L'homme sortit une grande lame, une pièce sur mesure pour laquelle il avait déboursé une fortune et qui était d'un tranchant redoutable. Il tenta de trancher le sac.
 
-Lorsque la lame glissa sur l'objet, l'homme fut pétrifié par la surprise. Il ramassa le sac et l'examina minutieusement avant de s'esclaffer : « Un trésor ! C'est un véritable trésor ! Si je le porte contre ma poitrine, il me sauvera certainement la vie en un moment critique. Je ne pensais pas que ce sale gosse possédait une telle merveille. Dommage qu'il n'y en ait qu'un seul ; si j'en trouvais d'autres et que je pouvais les assembler pour en faire une tenue complète, ce serait encore mieux ! »
+Lorsque la lame glissa sur l'objet, l'homme fut pétrifié par la surprise. Il ramassa le sac et l'examina minutieusement avant de s'esclaffer: « Un trésor! C'est un véritable trésor! Si je le porte contre ma poitrine, il me sauvera certainement la vie en un moment critique. Je ne pensais pas que ce sale gosse possédait une telle merveille. Dommage qu'il n'y en ait qu'un seul; si j'en trouvais d'autres et que je pouvais les assembler pour en faire une tenue complète, ce serait encore mieux! »
 
-Il plaça soigneusement le sac contre son torse, puis ses yeux brillèrent de malice : « Je me demande bien où ce petit morveux a déniché un tel trésor. Il faudra que j'aille lui demander. »
+Il plaça soigneusement le sac contre son torse, puis ses yeux brillèrent de malice: « Je me demande bien où ce petit morveux a déniché un tel trésor. Il faudra que j'aille lui demander. »
 
 Fort de cette pensée, il se leva et chargea vers la prison. Sur son passage, tous ceux qui le croisaient affichaient des sourires satisfaits.
 
 L'homme massif atteignit rapidement la prison.
 
-Deux hommes de main discutaient entre eux en montant la garde. En voyant l'homme arriver, ils s'inclinèrent aussitôt : « Salutations, grand patron ! »
+Deux hommes de main discutaient entre eux en montant la garde. En voyant l'homme arriver, ils s'inclinèrent aussitôt: « Salutations, grand patron! »
 
-L'homme renifla et demanda : « Où avez-vous jeté le sale gosse que nous avons ramené ? »
+L'homme renifla et demanda: « Où avez-vous jeté le sale gosse que nous avons ramené? »
 
-L'un d'eux répondit promptement : « Dans la cellule du nord. »
+L'un d'eux répondit promptement: « Dans la cellule du nord. »
 
-« Ouvrez la porte ! » ordonna l'homme.
+« Ouvrez la porte! » ordonna l'homme.
 
-Le garde se précipita vers une clôture métallique et la souleva en souriant : « Patron... »
+Le garde se précipita vers une clôture métallique et la souleva en souriant: « Patron... »
 
 Avant qu'il n'ait pu achever sa phrase, il s'effondra brusquement au sol. La clôture tomba à son tour. Un bruit de chute dans l'eau retentit derrière la grille, puis un jeune homme en émergea, flottant.
 
@@ -60,15 +60,15 @@ Cependant, il n'eut pas le temps de faire deux pas qu'une main invisible le sais
 
 Le sac vola vers le jeune homme.
 
-Ce jeune homme était Wang Lin. L'énergie spirituelle dans la cage aquatique avait enfin réussi à s'infiltrer par une brèche, lui permettant de reconstituer un peu de cultivation en son sein.
+Ce jeune homme était Wang Lin. L'énergie spirituelle dans la cage aquatique avait enfin réussi à s'infiltrer par une brèche, lui permettant de reconstituer un peu de culture en son sein.
 
 Toutefois, cette énergie était dérisoire. Après avoir surgi pour tuer ces deux hommes, il avait presque épuisé les réserves qu'il avait accumulées. Il se dépêcha de verser le reste de l'énergie spirituelle dans son sac.
 
-« Bête moustique ! »
+« Bête moustique! »
 
 Le sac émit une lueur verte et un rayon de lumière noire s'en échappa, se métamorphosant en une bête moustique de la taille d'une petite montagne.
 
-L'homme de main restant fut saisi par une terreur indicible ; soudain, une odeur d'urine monta dans l'air. Ses vêtements étaient trempés et il s'effondra, perdant connaissance de peur.
+L'homme de main restant fut saisi par une terreur indicible; soudain, une odeur d'urine monta dans l'air. Ses vêtements étaient trempés et il s'effondra, perdant connaissance de peur.
 
 À l'apparition de la bête, un rugissement retentit, se propageant instantanément à travers tout le village. Tous les autres bruits cessèrent net, ne laissant place qu'au cri furieux du moustique.
 
@@ -76,9 +76,9 @@ Son esprit étant lié à celui de Wang Lin, la bête fut prise d'une rage noire
 
 Une fois la bête libérée, Wang Lin poussa un soupir de soulagement. Bien qu'il fût dépourvu d'énergie spirituelle, la présence de la bête moustique lui assurait désormais une certaine sécurité.
 
-Le rugissement de la créature terrifia les villageois. Tous s'élancèrent, armes au poing, mais ils s'arrêtèrent net après quelques pas en découvrant ce monstre colossal. Ils prirent tous un souffle court, les genoux tremblants de terreur. Certains, plus timides, se mirent à hurler :
+Le rugissement de la créature terrifia les villageois. Tous s'élancèrent, armes au poing, mais ils s'arrêtèrent net après quelques pas en découvrant ce monstre colossal. Ils prirent tous un souffle court, les genoux tremblants de terreur. Certains, plus timides, se mirent à hurler:
 
-« Un monstre ! »
+« Un monstre! »
 
 Wang Lin, dont le corps était encore endolori, fixa froidement le sol et repéra l'homme balafré par des coups de couteau. Il le désigna du doigt, et la bête chargea l'individu de tout son poids.
 
@@ -86,19 +86,19 @@ Au moment de l'impact, l'homme poussa un cri déchirant avant que son corps ne s
 
 À cet instant, les villageois lâchèrent leurs armes. Leurs jambes chancelaient et la peur dans leurs yeux avait atteint son paroxysme.
 
-C'est alors qu'un homme s'avança de la foule. C'était un scribe. Malgré sa terreur, il s'efforça de garder contenance. Il s'inclina et dit d'une voix tremblante : « Immortel, je vous en prie, ne soyez pas en colère ! Nous ignorions votre identité, nous l'ignorions vraiment... »
+C'est alors qu'un homme s'avança de la foule. C'était un scribe. Malgré sa terreur, il s'efforça de garder contenance. Il s'inclina et dit d'une voix tremblante: « Immortel, je vous en prie, ne soyez pas en colère! Nous ignorions votre identité, nous l'ignorions vraiment... »
 
-Wang Lin le fixa du regard et demanda : « Dans quel pays sommes-nous ? »
+Wang Lin le fixa du regard et demanda: « Dans quel pays sommes-nous? »
 
-Le scribe répondit précipitamment : « Ce lieu se trouve dans la partie septentrionale du pays de Pilu. »
+Le scribe répondit précipitamment: « Ce lieu se trouve dans la partie septentrionale du pays de Pilu. »
 
-« Le pays de Pilu... Cela signifie que nous sommes dans le nord du continent Suzaku. » Wang Lin réfléchit un instant, puis ordonna : « Creusez cette prison pour laisser l'eau s'écouler ! De combien de jours avez-vous besoin ? »
+« Le pays de Pilu... Cela signifie que nous sommes dans le nord du continent Suzaku. » Wang Lin réfléchit un instant, puis ordonna: « Creusez cette prison pour laisser l'eau s'écouler! De combien de jours avez-vous besoin? »
 
-Le scribe s'exclama, la voix chevrotante : « Trois jours... Non, un seul ! Nous pouvons le faire en une journée ! »
+Le scribe s'exclama, la voix chevrotante: « Trois jours... Non, un seul! Nous pouvons le faire en une journée! »
 
-Wang Lin hocha la tête : « Commencez ! » Il ne demanda pas à la bête moustique d'intervenir ; il l'utilisa simplement comme garde du corps.
+Wang Lin hocha la tête: « Commencez! » Il ne demanda pas à la bête moustique d'intervenir; il l'utilisa simplement comme garde du corps.
 
-Le scribe se détendit légèrement. Il se retourna aussitôt et cria : « Tout le monde, venez ici et creusez cet endroit ! »
+Le scribe se détendit légèrement. Il se retourna aussitôt et cria: « Tout le monde, venez ici et creusez cet endroit! »
 
 Tous les villageois s'affairèrent, mais la terreur les paralysait au point qu'ils peinaient à déployer leur force. C'était particulièrement vrai pour les seize hommes qui avaient ramené Wang Lin.
 
@@ -110,28 +110,28 @@ Au bout d'une journée, l'écoulement cessa progressivement. Les villageois cess
 
 Wang Lin les ignora. Avec l'aide de la bête, il retourna dans la prison, qui ressemblait désormais à un puits profond.
 
-Installé au fond, il ferma les yeux pour entamer sa cultivation.
+Installé au fond, il ferma les yeux pour entamer sa culture.
 
 Le moustique restait aux côtés de Wang Lin pour le protéger. Quiconque tentait de s'approcher jouait avec sa vie.
 
 Après une très longue attente, sans recevoir le moindre ordre de Wang Lin, le scribe recula prudemment de quelques pas. Constatant l'absence de réaction de la bête moustique, il recula encore davantage. Les autres villageois suivirent le mouvement, et bientôt, plus personne ne rôdait à proximité.
 
-Alors que les villageois s'apprêtaient à fuir, la voix de Wang Lin résonna depuis le fond du puits :
+Alors que les villageois s'apprêtaient à fuir, la voix de Wang Lin résonna depuis le fond du puits:
 
-« Personne n'est autorisé à partir ! »
+« Personne n'est autorisé à partir! »
 
 Le scribe gémit intérieurement mais répondit respectueusement.
 
-Ainsi, le village de Nuage de Feu devint plus silencieux qu'il ne l'avait jamais été. Aucun bruit ne s'en échappait ; c'était comme si tout le village était mort. Les voyageurs et les escortes qui passaient par là étaient profondément troublés de ne plus voir les célèbres "18 Héros du Village de Nuage de Feu", d'ordinaire si arrogants, depuis deux mois.
+Ainsi, le village de Nuage de Feu devint plus silencieux qu'il ne l'avait jamais été. Aucun bruit ne s'en échappait; c'était comme si tout le village était mort. Les voyageurs et les escortes qui passaient par là étaient profondément troublés de ne plus voir les célèbres "18 Héros du Village de Nuage de Feu", d'ordinaire si arrogants, depuis deux mois.
 
 Un jour, Wang Lin ouvrit les yeux au fond du puits. Toutes ses blessures étaient guéries, mais le domaine et le sceau qui pesaient sur lui ne s'étaient pas affaiblis.
 
-« En deux mois, je n'ai récupéré qu'environ le second stade de la Condensation de Qi. Depuis que le domaine et le sceau ont fusionné, la barrière résultante est devenue trop puissante. Je dois trouver un lieu doté d'une plus grande concentration d'énergie spirituelle. Malheureusement, mon âme originelle est brisée ; je parviens à peine à empêcher ses fragments de se dissiper, ce qui m'empêche d'utiliser la perle transcendante. Autrement, avec l'énergie accumulée en son sein, ma récupération serait bien plus rapide. Heureusement, je possède quelques pierres spirituelles de haute qualité, je ne manquerai donc pas de ressources pour le moment. Ma priorité est de restaurer mon âme originelle afin de pouvoir libérer la perle. »
+« En deux mois, je n'ai récupéré qu'environ le second stade de la Condensation de Qi. Depuis que le domaine et le sceau ont fusionné, la barrière résultante est devenue trop puissante. Je dois trouver un lieu doté d'une plus grande concentration d'énergie spirituelle. Malheureusement, mon âme originelle est brisée; je parviens à peine à empêcher ses fragments de se dissiper, ce qui m'empêche d'utiliser la perle transcendante. Autrement, avec l'énergie accumulée en son sein, ma récupération serait bien plus rapide. Heureusement, je possède quelques pierres spirituelles de haute qualité, je ne manquerai donc pas de ressources pour le moment. Ma priorité est de restaurer mon âme originelle afin de pouvoir libérer la perle. »
 
 « Cet endroit n'est pas une veine spirituelle, et pourtant cette eau est chargée d'énergie spirituelle. C'est assez étrange. »
 
 Après réflexion, Wang Lin s'enfonça plus profondément dans l'eau. Lorsqu'il cultivait, il flottait à la surface sans couler.
 
-Sa cultivation s'étant légèrement stabilisée, il décida de mener une exploration. Toutefois, son niveau actuel étant trop bas, il se fit la promesse d'appeler la bête moustique en cas de danger.
+Sa culture s'étant légèrement stabilisée, il décida de mener une exploration. Toutefois, son niveau actuel étant trop bas, il se fit la promesse d'appeler la bête moustique en cas de danger.
 
 Bientôt, il plongea dans les profondeurs de l'eau cristalline. Mais malgré la clarté de l'eau, le fond du puits était recouvert d'une épaisse couche de boue noire.

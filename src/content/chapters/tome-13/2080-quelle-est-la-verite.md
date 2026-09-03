@@ -1,12 +1,12 @@
 ---
 n: 2080
-title: Quelle est la vérité ?
+title: Quelle est la vérité?
 book: 13
 bookTitle: Light of the coming end
 en: Chapter 2080 - What is the Truth
 slug: quelle-est-la-vérité
 ---
-Chapitre 2080 - Quelle est la vérité ?
+Chapitre 2080 - Quelle est la vérité?
 
 Mu Bingmei partit.
 
@@ -14,9 +14,9 @@ Elle quitta la grotte et la planète Suzaku, mais elle ne partit pas seule. Un h
 
 Il entendit faiblement les paroles de Mu Bingmei portées par le ciel.
 
-« Toi... Es-tu un avatar ou ton corps originel... ? »
+« Toi... Es-tu un avatar ou ton corps originel...? »
 
-Wang Lin regarda Mu Bingmei et dit doucement : « Je suis Wang Lin, et je suis à tes côtés. »
+Wang Lin regarda Mu Bingmei et dit doucement: « Je suis Wang Lin, et je suis à tes côtés. »
 
 Mu Bingmei regarda Wang Lin et un sourire s'épanouit progressivement sur son visage. Ce sourire était d'une beauté et d'un bonheur absolus.
 
@@ -24,15 +24,15 @@ Ils quittèrent la planète Suzaku, et nul ne sait où ils se rendirent.
 
 Après s'être transformés en un rayon de lumière, ils disparurent au loin. Dans un lieu reculé, on pouvait voir Wang Lin les contempler avec un sourire.
 
-Avatar ou corps originel ? Seul Wang Lin détenait la réponse.
+Avatar ou corps originel? Seul Wang Lin détenait la réponse.
 
-Peut-être que celle qui était partie était l'avatar de Wang Lin, et que celui qui les regardait partir était son corps originel. Ou peut-être... était-ce l'inverse !
+Peut-être que celle qui était partie était l'avatar de Wang Lin, et que celui qui les regardait partir était son corps originel. Ou peut-être... était-ce l'inverse!
 
 Il n'y avait aucune certitude.
 
 Treize partit également. Il avait passé sa vie à suivre les traces de Wang Lin. Désormais, Wang Lin le laissait s'envoler seul. Lorsqu'un oiseau grandit, il doit affronter seul le vent et la pluie. Ce n'est qu'en apercevant l'arc-en-ciel au cœur de la tempête qu'il pourra devenir un homme capable de soutenir le monde.
 
-Ils étaient tous partis... Seul Wang Lin resta sur la planète Suzaku. Avant d'entrer dans le rêve avec Liu Mei, il était allé voir ses parents ; désormais, il y retourna une dernière fois avant de rejoindre le foyer originel qu'il partageait avec Li Muwan.
+Ils étaient tous partis... Seul Wang Lin resta sur la planète Suzaku. Avant d'entrer dans le rêve avec Liu Mei, il était allé voir ses parents; désormais, il y retourna une dernière fois avant de rejoindre le foyer originel qu'il partageait avec Li Muwan.
 
 La vallée avait été perdue sous le poids du temps, mais il l'avait restaurée.
 
@@ -46,7 +46,7 @@ Wang Lin restait aux côtés de Li Muwan, tandis que des notes de cithare réson
 
 Dix ans, dix ans, dix ans... Wang Lin vécut dans cette vallée paisible pendant soixante-dix ans.
 
-Il accompagna Li Muwan. Ici, il avait tout oublié. Il ne se souciait plus de son niveau de cultivation, ne cherchait plus à comprendre les essences et ignorait les complots et les mensonges. Dans ses yeux, il n'y avait que Li Muwan. Dans son esprit, seule cette silhouette existait. Et à ses oreilles, seul le son de la cithare d'autrefois subsistait.
+Il accompagna Li Muwan. Ici, il avait tout oublié. Il ne se souciait plus de son niveau de culture, ne cherchait plus à comprendre les essences et ignorait les complots et les mensonges. Dans ses yeux, il n'y avait que Li Muwan. Dans son esprit, seule cette silhouette existait. Et à ses oreilles, seul le son de la cithare d'autrefois subsistait.
 
 Deux cents ans après le retour de Wang Lin dans le monde des grottes, un invité vint dans sa vallée. Cet invité était un homme chauve. Il ressemblait exactement à l'homme du passé, sans le moindre changement.
 
@@ -70,11 +70,11 @@ L'homme chauve acquiesça silencieusement.
 
 « Me tourmenter... » murmura Wang Lin. Il but du vin sans ajouter un mot.
 
-L'homme chauve secoua la tête et dit doucement : « Oublie cela... Tu n'y parviendras pas. Si tu continues ainsi, tu finiras par t'épuiser, et Wan Er aussi... »
+L'homme chauve secoua la tête et dit doucement: « Oublie cela... Tu n'y parviendras pas. Si tu continues ainsi, tu finiras par t'épuiser, et Wan Er aussi... »
 
-Wang Lin leva les yeux vers le ciel. Après un moment de réflexion, il demanda lentement : « Dois-je t'appeler "Mo Zhi" ou un autre nom ? »
+Wang Lin leva les yeux vers le ciel. Après un moment de réflexion, il demanda lentement: « Dois-je t'appeler "Mo Zhi" ou un autre nom? »
 
-Cet homme chauve était celui qui avait dit à Wang Lin : « Cœur mort, déjà oublié », dans ce temple sous la pluie autrefois !
+Cet homme chauve était celui qui avait dit à Wang Lin: « Cœur mort, déjà oublié », dans ce temple sous la pluie autrefois!
 
 « Mo Zhi... c'est toujours mon nom. » L'homme chauve soupira.
 
@@ -96,21 +96,21 @@ Wang Lin resta là, assis, à boire son vin. Il ne fit aucun commentaire sur les
 
 Il avait compris bien des choses depuis longtemps, mais il savait qu'il était lui-même, nommé Wang Lin. Né sur la planète Suzaku, fils d'un charpentier, ayant grandi dans un petit village de montagne.
 
-Pas à pas, il avait parcouru le chemin de la cultivation pour atteindre son état actuel.
+Pas à pas, il avait parcouru le chemin de la culture pour atteindre son état actuel.
 
 Ressusciter Li Muwan était sa propre décision, et non le fruit de l'influence ou de l'interférence d'une autre réincarnation. C'était son choix souverain.
 
-« Je suis moi... » Il n'y avait aucune confusion dans le regard de Wang Lin ; ses yeux étaient d'une clarté absolue.
+« Je suis moi... » Il n'y avait aucune confusion dans le regard de Wang Lin; ses yeux étaient d'une clarté absolue.
 
-« Que ce soit Mo Zhi ou Red Butterfly, même le maître de Mo Zhi et l'Tout-Voyant... Ils pensent tous que ce monde, le monde des grottes, le Royaume Céleste, n'ont été formés que par mon Dao onirique et ne sont pas réels... » murmura Wang Lin. Il avait depuis longtemps tiré des conclusions sur ces questions.
+« Que ce soit Mo Zhi ou Papillon Rouge, même le maître de Mo Zhi et l'Omniscient... Ils pensent tous que ce monde, le monde des grottes, le Royaume Céleste, n'ont été formés que par mon Dao onirique et ne sont pas réels... » murmura Wang Lin. Il avait depuis longtemps tiré des conclusions sur ces questions.
 
-« Cependant, est-ce vraiment ainsi ? » Wang Lin esquissa un léger sourire. Il se leva, leva les yeux vers le ciel, et son regard brilla d'un éclat intense.
+« Cependant, est-ce vraiment ainsi? » Wang Lin esquissa un léger sourire. Il se leva, leva les yeux vers le ciel, et son regard brilla d'un éclat intense.
 
-« Tout-Voyant, pensez-vous vraiment que j'ignore votre origine ? » Les yeux de Wang Lin s'illuminèrent alors qu'il scrutait l'immensité céleste. Il semblait capable de voir au-delà du ciel, au-delà du Royaume Céleste, par-delà les ténèbres infinies, pour percevoir une silhouette vêtue de noir, aux cheveux très longs, dégageant une aura de massacre et de destruction venant de loin.
+« Omniscient, pensez-vous vraiment que j'ignore votre origine? » Les yeux de Wang Lin s'illuminèrent alors qu'il scrutait l'immensité céleste. Il semblait capable de voir au-delà du ciel, au-delà du Royaume Céleste, par-delà les ténèbres infinies, pour percevoir une silhouette vêtue de noir, aux cheveux très longs, dégageant une aura de massacre et de destruction venant de loin.
 
 La destination de cette figure était le Continent Astral Immortel.
 
-« Tout-Voyant, la réponse à tout ne viendra pas de la vérité que vous me direz dans le Royaume Divin Immemorial, mais de la vérité que je vous dirai ! Je vous ferai connaître la véritable réalité ! » Wang Lin agita sa manche et un crâne apparut.
+« Omniscient, la réponse à tout ne viendra pas de la vérité que vous me direz dans le Royaume Divin Immemorial, mais de la vérité que je vous dirai! Je vous ferai connaître la véritable réalité! » Wang Lin agita sa manche et un crâne apparut.
 
 Ce crâne appartenait à Ji Qiong.
 
@@ -120,25 +120,25 @@ Le crâne scintilla et une courte ligne de mots s'y afficha avant de disparaîtr
 
 « Wan Er, tu te réveilleras... Car j'ai enfin trouvé la véritable voie... Et j'ai déjà commencé les préparatifs dans l'Ancien Temple Ancestral Shi. »
 
-Une trace de folie dansait dans les yeux de Wang Lin. Cette méthode était, en vérité, totalement insensée !
+Une trace de folie dansait dans les yeux de Wang Lin. Cette méthode était, en vérité, totalement insensée!
 
 Le temps passa et les saisons se succédèrent. Wang Lin resta dans la vallée, accompagnant Li Muwan durant toutes ces années. Une vie si paisible était extrêmement rare pour lui, hormis lorsqu'il redevenait mortel ou au sein de son Dao onirique.
 
 Tout en veillant sur Li Muwan, il se remémorait ses souvenirs, plongé dans son propre monde.
 
-Au fil des ans, Treize revint à plusieurs reprises. Chaque fois, il restait auprès de Wang Lin durant quelques mois avant de repartir mener sa propre vie et sa cultivation.
+Au fil des ans, Treize revint à plusieurs reprises. Chaque fois, il restait auprès de Wang Lin durant quelques mois avant de repartir mener sa propre vie et sa culture.
 
 Xu Liguo et Liu Jinbiao avaient utilisé une méthode inconnue pour retrouver Zhong Big Red. Les trois compères travaillaient ensemble, faisant ce qu'ils voulaient dans le monde des grottes, dans une immense joie.
 
-Leurs corps ayant été régénérés sur le Continent Astral Immortel, ils pouvaient partir et revenir à leur guise en empruntant la puissance de Wang Lin pour franchir la porte. Avec le niveau de cultivation actuel de Wang Lin, Zhong Big Red pouvait également le faire. Après avoir parcouru le monde des grottes, les trois hommes, accompagnés du dragon de mer qui s'était également pris d'affection pour l'endroit, quittèrent le monde des grottes. Ils commencèrent alors leur propre épopée légendaire sur le Continent Astral Immortel.
+Leurs corps ayant été régénérés sur le Continent Astral Immortel, ils pouvaient partir et revenir à leur guise en empruntant la puissance de Wang Lin pour franchir la porte. Avec le niveau de culture actuel de Wang Lin, Zhong Big Red pouvait également le faire. Après avoir parcouru le monde des grottes, les trois hommes, accompagnés du dragon de mer qui s'était également pris d'affection pour l'endroit, quittèrent le monde des grottes. Ils commencèrent alors leur propre épopée légendaire sur le Continent Astral Immortel.
 
 Cependant, avant leur départ, le groupe de Xu Liguo vint rendre visite à Wang Lin pour le servir et le flatter. Finalement, Wang Lin rit. Il laissa son aura et son empreinte sur eux pour assurer leur protection. Les trois partirent avec enthousiasme.
 
-Avec Wang Lin comme bouclier et la puissance de combat du dragon de mer, ils étaient convaincus de pouvoir tromper n'importe qui sur le Continent Astral Immortel !
+Avec Wang Lin comme bouclier et la puissance de combat du dragon de mer, ils étaient convaincus de pouvoir tromper n'importe qui sur le Continent Astral Immortel!
 
 Soixante ans après le départ de Xu Liguo et de sa troupe, Wang Lin sortit Li Muwan de la vallée et quitta la planète Suzaku. Ils abandonnèrent le monde des grottes pour se diriger vers le Continent Astral Immortel.
 
-Avant de partir, son Sens Divin balaya le Royaume Céleste ; il y vit les cultivateurs pratiquant le Dao qu'il avait laissé derrière lui. Il aperçut Treize et de nombreux anciens amis.
+Avant de partir, son Sens Divin balaya le Royaume Céleste; il y vit les cultivateurs pratiquant le Dao qu'il avait laissé derrière lui. Il aperçut Treize et de nombreux anciens amis.
 
 Il rétracta son Sens Divin et jeta un dernier regard sur le monde des grottes.
 

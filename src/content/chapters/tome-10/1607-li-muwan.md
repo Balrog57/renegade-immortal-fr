@@ -10,17 +10,17 @@ Wang Lin regarda la femme au visage froid, puis son regard se posa sur le bébé
 
 L'expression de la femme demeurait indifférente et ses yeux semblaient contenir les vents de l'hiver. Elle observa Wang Lin, puis le monde qui se trouvait derrière lui.
 
-« Votre nom est célèbre sur la planète Suzaku ; j'en ai même entendu parler jusqu'à Xue Yue. Monsieur est un érudit de grand renom qui a aidé de nombreux cultivateurs à comprendre les mystères du monde. »
+« Votre nom est célèbre sur la planète Suzaku; j'en ai même entendu parler jusqu'à Xue Yue. Monsieur est un érudit de grand renom qui a aidé de nombreux cultivateurs à comprendre les mystères du monde. »
 
 « Je suis venue aujourd'hui pour cet enfant. » La femme baissa les yeux vers le bébé endormi. Une pointe de douceur perça son regard glacial.
 
-La froideur de sa voix s'estompa légèrement alors qu'elle contemplait l'enfant dans ses bras : « Tout le monde dit que Monsieur a percé les secrets du monde, comprend le karma, est indifférent à la vie et à la mort, et marche entre le vrai et le faux. Pourriez-vous offrir à cet enfant sa propre voie ? »
+La froideur de sa voix s'estompa légèrement alors qu'elle contemplait l'enfant dans ses bras: « Tout le monde dit que Monsieur a percé les secrets du monde, comprend le karma, est indifférent à la vie et à la mort, et marche entre le vrai et le faux. Pourriez-vous offrir à cet enfant sa propre voie? »
 
-« Les deux parents de cet enfant sont morts à sa naissance. Je ne faisais que passer lorsque je l'ai vue ; elle était déjà raide, à l'agonie. Par pitié, j'ai regardé de plus près et j'ai découvert qu'elle possédait un talent exceptionnel. Elle porte en elle l'aura des cinq éléments. Si elle survit, elle sera un soleil pour la planète Suzaku ! »
+« Les deux parents de cet enfant sont morts à sa naissance. Je ne faisais que passer lorsque je l'ai vue; elle était déjà raide, à l'agonie. Par pitié, j'ai regardé de plus près et j'ai découvert qu'elle possédait un talent exceptionnel. Elle porte en elle l'aura des cinq éléments. Si elle survit, elle sera un soleil pour la planète Suzaku! »
 
 « Cependant, sa vie sera semée d'embûches. Je suis douée en divination et j'ai prédit que cet enfant ferait face à une grande calamité. Puisque je l'ai rencontrée, je me suis impliquée et je deviendrai celle qui l'aidera à surmonter cette épreuve. »
 
-« Plus elle grandit, plus la calamité de vie ou de mort devient manifeste. Ma cultivation est limitée, je ne peux donc utiliser mes sorts que pour freiner sa croissance, la maintenant dans l'état d'un nourrisson. »
+« Plus elle grandit, plus la calamité de vie ou de mort devient manifeste. Ma culture est limitée, je ne peux donc utiliser mes sorts que pour freiner sa croissance, la maintenant dans l'état d'un nourrisson. »
 
 « J'ai entendu dire que Monsieur était un homme de talent, alors je suis venue solliciter votre aide... » La voix de la femme resta froide tout en s'adoucissant.
 
@@ -28,7 +28,7 @@ La froideur de sa voix s'estompa légèrement alors qu'elle contemplait l'enfant
 
 Même après que le tonnerre s'est apaisé, les cris de l'enfant continuaient de résonner.
 
-Wang Lin regarda le bébé et dit doucement : « Laisse-moi la prendre. »
+Wang Lin regarda le bébé et dit doucement: « Laisse-moi la prendre. »
 
 La femme hésita un instant avant de confier l'enfant à Wang Lin. Il prit le bébé et la contempla.
 
@@ -40,9 +40,9 @@ C'était étrange. La fillette pleurait bruyamment dans les bras de la femme à 
 
 Le vieux visage de Wang Lin s'illumina d'un sourire et sa main droite caressa tendrement le nez de la petite fille. Celle-ci se mit immédiatement à rire joyeusement.
 
-Wang Lin demanda doucement : « Quel est son nom ? »
+Wang Lin demanda doucement: « Quel est son nom? »
 
-La femme réfléchit un instant avant de répondre : « Ses parents sont morts prématurément, je ne le sais donc pas non plus. Au fil des ans, je ne lui ai jamais donné de nom. Que diriez-vous de lui en donner un, Monsieur ? » Sa voix conservait une certaine froideur.
+La femme réfléchit un instant avant de répondre: « Ses parents sont morts prématurément, je ne le sais donc pas non plus. Au fil des ans, je ne lui ai jamais donné de nom. Que diriez-vous de lui en donner un, Monsieur? » Sa voix conservait une certaine froideur.
 
 Wang Lin observa la petite fille rayonnante de bonheur. Il ressentit vaguement une aura familière émanant d'elle. Après un long moment, il leva les yeux vers la pluie.
 
@@ -94,13 +94,13 @@ L'image représentait le cratère d'un volcan en pleine éruption. La montagne t
 
 Une lave infinie jaillissait et des colonnes de fumée s'élevaient, recouvrant le ciel de la vision.
 
-Il n'y avait aucun son ; ce n'était qu'une image. La scène du volcan en éruption força tous les passagers à s'agenouiller.
+Il n'y avait aucun son; ce n'était qu'une image. La scène du volcan en éruption força tous les passagers à s'agenouiller.
 
 De loin, l'image illusoire semblait fusionner avec le monde réel. Elle paraissait extrêmement concrète tout en dégageant une impression de brume, rendant impossible la distinction entre le vrai et le faux.
 
 Tandis que Wang Lin fixait ce monde illusoire, son esprit vacillait.
 
-« Vrai et faux... Vrai et faux... Les textes disent que la mer possède un esprit nommé Shen et que son souffle crée des mirages... Cette scène... Est-elle réelle ou est-ce une illusion ? Existe-t-elle vraiment quelque part ou n'est-ce qu'un songe ? »
+« Vrai et faux... Vrai et faux... Les textes disent que la mer possède un esprit nommé Shen et que son souffle crée des mirages... Cette scène... Est-elle réelle ou est-ce une illusion? Existe-t-elle vraiment quelque part ou n'est-ce qu'un songe? »
 
 « Esprit de la mer, ne sois pas en colère... Esprit de la mer, ne sois pas en colère... » Les mortels tremblaient et s'agenouillaient devant cette vision incompréhensible. Leurs cœurs étaient saisis d'effroi. Bien que ce ne fût pas la première fois qu'ils voyaient de tels phénomènes, ils restaient terrifiés.
 
@@ -110,9 +110,9 @@ Wang Lin, plongé dans sa contemplation, ne vit pas les mortels se relever pour 
 
 « Cela doit être faux. Cela n'existe pas, c'est une pure illusion. Une chose pareille ne peut apparaître dans ce monde. Ce n'est pas un événement qui se produit réellement quelque part... »
 
-« Il doit s'agir d'un immortel cultivant sous les mers, et ses sorts provoquent cela ! » murmura Wang Lin. Il avait percé la vérité du monde, mais ce qu'il voyait à présent dépassait l'entendement.
+« Il doit s'agir d'un immortel cultivant sous les mers, et ses sorts provoquent cela! » murmura Wang Lin. Il avait percé la vérité du monde, mais ce qu'il voyait à présent dépassait l'entendement.
 
-Wang Lin prit une profonde inspiration et murmura : « Faux... C'est faux... » Cependant, sa voix s'étrangla soudainement et ses yeux s'écarquillèrent. Sa main droite se leva inconsciemment pour désigner le volcan illusoire au loin, l'incrédulité ravageant son regard.
+Wang Lin prit une profonde inspiration et murmura: « Faux... C'est faux... » Cependant, sa voix s'étrangla soudainement et ses yeux s'écarquillèrent. Sa main droite se leva inconsciemment pour désigner le volcan illusoire au loin, l'incrédulité ravageant son regard.
 
 « Ceci... Elle... »
 

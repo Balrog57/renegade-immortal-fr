@@ -12,15 +12,15 @@ Ces huit Anciens dégageaient tous une aura antique. Dès leur apparition, ils f
 
 La colère dans les yeux de Wang Lin s'intensifia. Ces huit Anciens portaient tous un gaz noir entre leurs sourcils, bien qu'une lueur dorée protégeait leurs âmes.
 
-Wang Lin fit un pas en avant, pointa le doigt vers eux, et huit filaments de gaz noir et blanc jaillirent vers chacun d'eux. Le mélange de gaz les enveloppa et, à cet instant précis, il détruisit le gaz noir entre leurs sourcils !
+Wang Lin fit un pas en avant, pointa le doigt vers eux, et huit filaments de gaz noir et blanc jaillirent vers chacun d'eux. Le mélange de gaz les enveloppa et, à cet instant précis, il détruisit le gaz noir entre leurs sourcils!
 
-Le corps des huit Anciens trembla et ils retrouvèrent immédiatement la raison. La première chose qu'ils virent fut l'aspect furieux de Wang Lin. Ils frémirent et l'un d'eux s'exclama : « Ancêtre Wang Lin ! »
+Le corps des huit Anciens trembla et ils retrouvèrent immédiatement la raison. La première chose qu'ils virent fut l'aspect furieux de Wang Lin. Ils frémirent et l'un d'eux s'exclama: « Ancêtre Wang Lin! »
 
 Les sept autres affichèrent des expressions d'exaltation.
 
-À la suite de cette exclamation, un immense tumulte éclata sous leurs pieds. Les visages des cultivateurs se décomposèrent ; ils n'en croyaient pas leurs yeux.
+À la suite de cette exclamation, un immense tumulte éclata sous leurs pieds. Les visages des cultivateurs se décomposèrent; ils n'en croyaient pas leurs yeux.
 
-En revanche, les membres de la famille Wang arborèrent des expressions étranges ; seuls quelques-uns manifestèrent leur excitation.
+En revanche, les membres de la famille Wang arborèrent des expressions étranges; seuls quelques-uns manifestèrent leur excitation.
 
 À ce moment précis, la masse de brume noire qui émanait du vieil homme fusionna pour former un gigantesque python de plusieurs centaines de pieds de long. Il poussa un rugissement et chargea vers Wang Lin.
 
@@ -30,9 +30,9 @@ Une intention meurtrière traversa les yeux de Wang Lin. Il leva la main droite 
 
 Le torse de cet homme était nu et ses longs cheveux flottaient au vent. Ses pupilles se rétractèrent lorsqu'il aperçut Wang Lin suspendu dans les airs.
 
-« Tu oses invoquer des esprits vengeurs parmi les descendants de ma famille Wang ? Meurs ! » La voix de Wang Lin était d'une froideur absolue tandis qu'il avançait. Des éclairs jaillirent de son bras droit et foncèrent sur l'homme.
+« Tu oses invoquer des esprits vengeurs parmi les descendants de ma famille Wang? Meurs! » La voix de Wang Lin était d'une froideur absolue tandis qu'il avançait. Des éclairs jaillirent de son bras droit et foncèrent sur l'homme.
 
-L'expression de l'homme changea radicalement. Il pensait s'être parfaitement dissimulé, mais il avait été découvert et tentait désormais de battre en retraite. Son niveau de cultivation était bien supérieur à celui de quiconque sur la planète Suzaku ; il se trouvait au stade de l'Yin Illusoire. Pourtant, à cet instant, son cœur trembla. Il jeta un regard vers la salle, vers la femme en robe colorée qui se tenait aux côtés de l'homme d'âge mûr.
+L'expression de l'homme changea radicalement. Il pensait s'être parfaitement dissimulé, mais il avait été découvert et tentait désormais de battre en retraite. Son niveau de culture était bien supérieur à celui de quiconque sur la planète Suzaku; il se trouvait au stade de l'Yin Illusoire. Pourtant, à cet instant, son cœur trembla. Il jeta un regard vers la salle, vers la femme en robe colorée qui se tenait aux côtés de l'homme d'âge mûr.
 
 Le regard de la femme était glacial. En voyant Wang Lin attaquer l'homme, elle poussa un ricanement méprisant dans son cœur. Elle leva la main droite, prête à lancer un sortilège.
 
@@ -42,19 +42,19 @@ Cette disparition stupéfia l'homme, mais ses yeux s'illuminèrent et il s'écha
 
 Quant à la femme en robe colorée, elle fut également surprise, mais son expression changea brusquement. Elle s'élança soudainement, mais il était trop tard. La silhouette de Wang Lin apparut dans la salle, juste à côté d'elle. Des éclairs fulgurèrent dans ses yeux alors qu'il pointait le doigt avec rage. D'innombrables éclairs célestes semblaient percer le vide par des moyens incroyables pour se rassembler directement au bout de son index.
 
-Ce doigt, chargé de la puissance du tonnerre, s'abattit en plein milieu du dos de la femme !
+Ce doigt, chargé de la puissance du tonnerre, s'abattit en plein milieu du dos de la femme!
 
 Le corps de la femme trembla violemment et elle cracha une large bouffée de sang. Un python gigantesque s'enroulait au-dessus de sa tête, mais dès son apparition, il s'effondra, laissant la femme livide. Alors que le tonnerre était sur le point de détruire son corps et son âme originelle, un cri perçant de phénix retentit. Un phénix aux cinq couleurs apparut et intercepta le tonnerre de Wang Lin pour la protéger.
 
 Elle recula pour lancer un sortilège, mais Wang Lin fut encore une fois plus rapide qu'elle. Il réapparut à ses côtés et son doigt chargé d'éclairs descendit à nouveau.
 
-Tandis que le tonnerre grondait, la femme cracha davantage de sang et le phénix vacilla. Elle continua de reculer, mais sa vitesse ne pouvait rivaliser avec celle de Wang Lin. En un éclair, Wang Lin se déplaça tel un fantôme et pointa vers elle à quatre reprises !
+Tandis que le tonnerre grondait, la femme cracha davantage de sang et le phénix vacilla. Elle continua de reculer, mais sa vitesse ne pouvait rivaliser avec celle de Wang Lin. En un éclair, Wang Lin se déplaça tel un fantôme et pointa vers elle à quatre reprises!
 
 Le corps de la femme fut secoué par des tremblements violents. Ces attaques continues l'avaient gravement blessée, lui ôtant toute possibilité de riposte. Le dernier coup provoqua un cri misérable du phénix avant que celui-ci ne s'effondre.
 
-Les yeux de la femme devinrent alertes et elle s'écria : « Je suis l'un des sept phénix de la planète Feng Luan ! Oses-tu me tuer ?! »
+Les yeux de la femme devinrent alertes et elle s'écria: « Je suis l'un des sept phénix de la planète Feng Luan! Oses-tu me tuer?! »
 
-Cependant, Wang Lin ne s'arrêta pas et rejoignit sa position en un éclair. Une intention meurtrière brilla dans ses yeux alors qu'il levait la main droite. Un gaz noir et blanc entourait ses deux doigts lorsqu'il les pressa contre l'épaule droite de la femme !
+Cependant, Wang Lin ne s'arrêta pas et rejoignit sa position en un éclair. Une intention meurtrière brilla dans ses yeux alors qu'il levait la main droite. Un gaz noir et blanc entourait ses deux doigts lorsqu'il les pressa contre l'épaule droite de la femme!
 
 Le gaz noir et blanc s'engouffra dans son corps. Elle trembla et s'effondra aussitôt. Son âme originelle tenta de s'enfuir, mais elle fut scellée par le gaz noir et blanc et traînée vers Wang Lin.
 
@@ -62,7 +62,7 @@ Sans hésiter, Wang Lin pressa sa main droite sur l'âme originelle de la femme 
 
 Plus il voyait, plus son visage s'assombrissait. Finalement, son regard devint glacial et il écrasa sans pitié son âme originelle. Celle-ci se mua en énergie originelle, directement dévorée par Wang Lin.
 
-Il avait déjà compris que quelque chose clochait avec cette femme. Bien qu'elle ait tenté de dissimuler sa cultivation, Wang Lin pouvait clairement percevoir sa cultivation Corporelle Yang. Sans l'esprit du phénix pour la protéger, un seul coup de tonnerre aurait suffi à l'anéantir.
+Il avait déjà compris que quelque chose clochait avec cette femme. Bien qu'elle ait tenté de dissimuler sa culture, Wang Lin pouvait clairement percevoir sa culture Corporelle Yang. Sans l'esprit du phénix pour la protéger, un seul coup de tonnerre aurait suffi à l'anéantir.
 
 De nombreux membres de la famille Wang étaient présents ici, et Wang Lin vit que le gaz noir émanant d'eux était relié à la main de cette femme. Il était évident qu'elle contrôlait leur vie.
 
@@ -74,37 +74,37 @@ La brume noire disparut du reste des membres de la famille Wang, qui retrouvère
 
 L'éducation de chaque membre de la famille Wang consistait, dès l'enfance, à contempler le portrait de l'ancêtre de la lignée. L'apparence de Wang Lin était gravée dans leurs cœurs. Maintenant que leur esprit était clair, ils le reconnurent instantanément.
 
-Ils n'étaient pas étrangers à son nom avec toutes les rumeurs qui circulaient. Si tant de cultivateurs existaient dans la Grande Dynastie Wang, c'était parce que la famille Wang avait engendré Wang Lin !
+Ils n'étaient pas étrangers à son nom avec toutes les rumeurs qui circulaient. Si tant de cultivateurs existaient dans la Grande Dynastie Wang, c'était parce que la famille Wang avait engendré Wang Lin!
 
 « Ancêtre, nous avons eu tort... » Les huit vieillards étaient tous agenouillés au sol.
 
-Le regard de Wang Lin se posa sur la salle principale et s'arrêta sur l'homme d'âge mûr qui était également à genoux. Il dit froidement : « Vous avez effectivement eu tort ; vous n'avez même pas été capables de distinguer si quelqu'un appartenait ou non à la famille Wang ! »
+Le regard de Wang Lin se posa sur la salle principale et s'arrêta sur l'homme d'âge mûr qui était également à genoux. Il dit froidement: « Vous avez effectivement eu tort; vous n'avez même pas été capables de distinguer si quelqu'un appartenait ou non à la famille Wang! »
 
 L'expression de l'homme changea radicalement. Wang Lin laissa échapper un reniflement glacial, semblable à un coup de tonnerre dont l'écho résonna sans fin. L'homme d'âge mûr fut assommé par ce simple souffle.
 
 Les paroles de Wang Lin stupéfiaient tous les membres de la famille Wang. Leurs regards devinrent sombres en fixant l'homme qui venait de s'évanouir.
 
-Après avoir poussé un soupir, Wang Lin tourna son regard vers les cultivateurs environnants. Il joignit les mains et déclara : « Chers compagnons cultivateurs, je vous remercie tous d'avoir pris soin de ma famille Wang au fil des ans ! »
+Après avoir poussé un soupir, Wang Lin tourna son regard vers les cultivateurs environnants. Il joignit les mains et déclara: « Chers compagnons cultivateurs, je vous remercie tous d'avoir pris soin de ma famille Wang au fil des ans! »
 
 Les cultivateurs acceptèrent ses remerciements avec respect et célérité.
 
-Une fois les choses réglées, le Sens Divin de Wang Lin se projeta aux alentours ; il constata qu'il n'y avait plus personne de la planète Feng Luan sur place. Il se tourna vers le vieillard agenouillé et dit : « Je vous laisse gérer les affaires ici. Je reviendrai dans quelques jours ! » Le regard de Wang Lin était froid. Il avait appris énormément de cette femme de la planète Feng Luan, et il y avait désormais des comptes à régler.
+Une fois les choses réglées, le Sens Divin de Wang Lin se projeta aux alentours; il constata qu'il n'y avait plus personne de la planète Feng Luan sur place. Il se tourna vers le vieillard agenouillé et dit: « Je vous laisse gérer les affaires ici. Je reviendrai dans quelques jours! » Le regard de Wang Lin était froid. Il avait appris énormément de cette femme de la planète Feng Luan, et il y avait désormais des comptes à régler.
 
-« Planète Feng Luan, Secte des Cadavres... Vous osez songer à nuire aux descendants de ma famille Wang ? Ne me reprochez pas mon absence de pitié ! » Les yeux de Wang Lin étaient saturés d'intention meurtrière. Cette fois, il était véritablement furieux !
+« Planète Feng Luan, Secte des Cadavres... Vous osez songer à nuire aux descendants de ma famille Wang? Ne me reprochez pas mon absence de pitié! » Les yeux de Wang Lin étaient saturés d'intention meurtrière. Cette fois, il était véritablement furieux!
 
-Grâce aux souvenirs de la femme, Wang Lin savait qu'elle était bel et bien l'un des sept phénix. Cependant, elle était aussi une membre de la Secte des Cadavres envoyée ici pour occuper le poste de Grand Ancien. Elle avait le même rang que Sun Tai, mais son niveau de cultivation était bien plus élevé.
+Grâce aux souvenirs de la femme, Wang Lin savait qu'elle était bel et bien l'un des sept phénix. Cependant, elle était aussi une membre de la Secte des Cadavres envoyée ici pour occuper le poste de Grand Ancien. Elle avait le même rang que Sun Tai, mais son niveau de culture était bien plus élevé.
 
 La Secte des Cadavres. Wang Lin avait appris certains secrets sur elle par Sun Tai avant sa mort. L'une de leurs tâches consistait à collecter le ressentiment pour nourrir les esprits vengeurs.
 
 D'après les souvenirs de la femme, Wang Lin comprit que dans la Grande Dynastie Wang, presque chaque ville abritait des membres de la Secte des Cadavres. C'était comme un immense filet jeté sur la dynastie, engendrant et récoltant constamment du ressentiment pour nourrir ces esprits.
 
-Ce que Wang Lin allait faire, c'était d'anéantir ces gens. Mais il ne s'arrêterait pas à la Grande Dynastie Wang ; il allait déraciner la Secte des Cadavres de la planète Suzaku. Et en raison de ce qui était arrivé à ses descendants, il allait rendre visite à la Secte elle-même. Ce cadavre géant et ce faible Sens Divin étaient autant de choses qui attisaient sa curiosité.
+Ce que Wang Lin allait faire, c'était d'anéantir ces gens. Mais il ne s'arrêterait pas à la Grande Dynastie Wang; il allait déraciner la Secte des Cadavres de la planète Suzaku. Et en raison de ce qui était arrivé à ses descendants, il allait rendre visite à la Secte elle-même. Ce cadavre géant et ce faible Sens Divin étaient autant de choses qui attisaient sa curiosité.
 
 Il ignorait simplement si ce corps de Démon Géant subsistait encore après des centaines d'années.
 
 Au loin, le garçon à la grosse tête revint, tenant une personne dans sa main. Il affichait un sourire idiot en regardant Wang Lin.
 
-« Tue-le ! Donne-moi son âme originelle ! » L'expression de Wang Lin était glaciale tandis qu'il marchait vers l'horizon.
+« Tue-le! Donne-moi son âme originelle! » L'expression de Wang Lin était glaciale tandis qu'il marchait vers l'horizon.
 
 Ta Shan le suivit rapidement.
 

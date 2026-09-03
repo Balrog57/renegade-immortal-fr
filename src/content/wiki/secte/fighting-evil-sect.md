@@ -14,13 +14,13 @@ La **Secte de la Lutte contre le Mal** (Fighting Evil Sect) est une secte établ
 
 ### Fiche signalétique
 
-- **Nom :** Secte de la Lutte contre le Mal (Fighting Evil Sect)
-- **Localisation :** Mer des Diables (Sea of Devils), Planète Suzaku
-- **Chef de secte :** Cultivateur au stade de la Formation du Cœur (Core Formation, décédé)
-- **Cause de la chute du chef :** Tué par Wang Lin
-- **Système stellaire :** Système Stellaire de l'Alliance
-- **Monde :** Monde de la Grotte de Wang Lin
-- **Royaume :** Royaume Scellé
+- **Nom:** Secte de la Lutte contre le Mal (Fighting Evil Sect)
+- **Localisation:** Mer des Diables (Sea of Devils), Planète Suzaku
+- **Chef de secte:** Cultivateur au stade de la Formation du Cœur (Core Formation, décédé)
+- **Cause de la chute du chef:** Tué par Wang Lin
+- **Système stellaire:** Système Stellaire de l'Alliance
+- **Monde:** Monde de la Grotte de Wang Lin
+- **Royaume:** Royaume Scellé
 
 ## Histoire
 

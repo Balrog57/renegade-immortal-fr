@@ -8,9 +8,9 @@ slug: futur-empereur
 ---
 L'arrêt soudain de Wang Lin dans les airs attira l'attention des membres de l'Ancient Dao, et Ye Wei leva également les yeux vers lui.
 
-C'était un homme costaud ordinaire qui ne se distinguait guère de la foule. Son niveau de cultivation n'était que celui d'un dieu antique 8 étoiles, et il n'avait pas encore atteint le rang de seigneur.
+C'était un homme costaud ordinaire qui ne se distinguait guère de la foule. Son niveau de culture n'était que celui d'un dieu antique 8 étoiles, et il n'avait pas encore atteint le rang de seigneur.
 
-Il y avait une multitude de personnes comme lui au sein de l'Ancient Dao. Normalement, personne ne prêterait attention à un tel individu ; s'il n'avait pas été transporté ici par les innombrables réseaux de transfert, il serait passé totalement inaperçu.
+Il y avait une multitude de personnes comme lui au sein de l'Ancient Dao. Normalement, personne ne prêterait attention à un tel individu; s'il n'avait pas été transporté ici par les innombrables réseaux de transfert, il serait passé totalement inaperçu.
 
 L'homme restait très calme malgré les nombreux regards posés sur lui. Il fixa Wang Lin et fut submergé par l'émotion.
 
@@ -26,15 +26,15 @@ Wang Lin se tint devant Luo Chen et contempla ce visage familier.
 
 « Luo Chen salue l'Aîné... » soupira l'homme costaud en joignant les mains en signe de respect envers Wang Lin.
 
-« Toi... Quand t'es-tu séparé du Serpent Moongazer ? » demanda Wang Lin.
+« Toi... Quand t'es-tu séparé du Serpent Moongazer? » demanda Wang Lin.
 
-« Après avoir suivi Lord Xuan ici, ce dernier m'a aidé à me séparer du Serpent Moongazer », répondit calmement l'homme en fixant Wang Lin. Il se rappelait sa première rencontre avec le jeune homme et la faiblesse dont il faisait alors preuve. Désormais, Wang Lin était devenu un Grand Empyrée et avait même tué l'Empereur de l'Ancient Dao. L'Empereur Saint de l'Ancient Dao n'avait pu que regarder Wang Lin partir.
+« Après avoir suivi Lord Xuan ici, ce dernier m'a aidé à me séparer du Serpent Moongazer », répondit calmement l'homme en fixant Wang Lin. Il se rappelait sa première rencontre avec le jeune homme et la faiblesse dont il faisait alors preuve. Désormais, Wang Lin était devenu un Grand Empereur et avait même tué l'Empereur de l'Ancient Dao. L'Empereur Saint de l'Ancient Dao n'avait pu que regarder Wang Lin partir.
 
 La mer bleue se transformant en champs de mûriers — c'était une expression utilisée pour décrire un changement radical de paysage, mais en cet instant, c'était précisément ce que ressentait Luo Chen.
 
-D'une voix douce, Wang Lin demanda : « Pourquoi n'es-tu pas venu me chercher ? »
+D'une voix douce, Wang Lin demanda: « Pourquoi n'es-tu pas venu me chercher? »
 
-L'homme esquissa un sourire amer et secoua la tête. Il savait depuis longtemps que Wang Lin était arrivé dans la cité impériale de l'Ancient Dao et avait envisagé de le voir. Cependant, le statut de Wang Lin était trop élevé : il était l'unique disciple de Xuan Luo et le futur gardien de l'Ancient Dao, tandis que Luo Chen n'était qu'un membre insignifiant.
+L'homme esquissa un sourire amer et secoua la tête. Il savait depuis longtemps que Wang Lin était arrivé dans la cité impériale de l'Ancient Dao et avait envisagé de le voir. Cependant, le statut de Wang Lin était trop élevé: il était l'unique disciple de Xuan Luo et le futur gardien de l'Ancient Dao, tandis que Luo Chen n'était qu'un membre insignifiant.
 
 L'abîme qui les séparait l'en avait empêché.
 
@@ -42,7 +42,7 @@ Voyant ce sourire amer, Wang Lin médita en silence. Il devina vaguement les pen
 
 « Aide-moi pour une chose », dit doucement Wang Lin.
 
-« Seigneur, donnez-moi votre ordre ! » répondit Luo Chen, la voix empreinte de détermination, les mains jointes.
+« Seigneur, donnez-moi votre ordre! » répondit Luo Chen, la voix empreinte de détermination, les mains jointes.
 
 « Tu connais l'existence de Ye Mo... » commença Wang Lin en le regardant.
 
@@ -50,7 +50,7 @@ Luo Chen hocha la tête. À son arrivée dans l'Ancient Dao, il avait tout appri
 
 « Aide-moi à prendre soin des descendants de Ye Mo. » Wang Lin leva les yeux vers l'horizon de la cité impériale.
 
-« À vos ordres. Je réside actuellement dans le manoir de Lord Ye Mo », répondit promptement Luo Chen. Lorsqu'il était arrivé, il n'avait point de foyer ; il avait choisi de ne pas loger au Temple de l'Ancient Dao pour suivre sa lignée vers les descendants de Ye Mo. Bien que ceux-ci fassent partie de la famille royale, ils avaient décliné et ne possédaient plus qu'un seul manoir.
+« À vos ordres. Je réside actuellement dans le manoir de Lord Ye Mo », répondit promptement Luo Chen. Lorsqu'il était arrivé, il n'avait point de foyer; il avait choisi de ne pas loger au Temple de l'Ancient Dao pour suivre sa lignée vers les descendants de Ye Mo. Bien que ceux-ci fassent partie de la famille royale, ils avaient décliné et ne possédaient plus qu'un seul manoir.
 
 Les descendants de Ye Mo avaient néanmoins accepté de l'accueillir.
 
@@ -58,49 +58,49 @@ Un sourire apparut sur le visage de Wang Lin, un sourire chargé de souvenirs et
 
 Le corps de Luo Chen trembla sous l'éclat d'une lumière argentée aveuglante. La luminosité était telle qu'elle provoqua une douleur chez ceux qui tentaient de la regarder, les forçant à détourner les yeux.
 
-« Du sang de l'âme ! » s'exclama l'Ancêtre de l'Empereur Saint Ye Wei, dont l'expression changea radicalement.
+« Du sang de l'âme! » s'exclama l'Ancêtre de l'Empereur Saint Ye Wei, dont l'expression changea radicalement.
 
 Les yeux de Xuan Luo se plissèrent également. Il observa Wang Lin et Luo Chen, affichant une expression complexe avant de laisser échapper un soupir.
 
-Le corps de Luo Chen frémit ; il sentit un flux brûlant émaner de Wang Lin pour pénétrer sa lignée, la rendant d'une pureté incomparable. Il possédait déjà une trace de sang royal, mais à mesure que celle-ci se purifiait, il dégagea une pression de lignée comparable à celle de l'ancien Empereur de l'Ancient Dao !
+Le corps de Luo Chen frémit; il sentit un flux brûlant émaner de Wang Lin pour pénétrer sa lignée, la rendant d'une pureté incomparable. Il possédait déjà une trace de sang royal, mais à mesure que celle-ci se purifiait, il dégagea une pression de lignée comparable à celle de l'ancien Empereur de l'Ancient Dao!
 
 Après un long moment, Wang Lin retira sa main. Il avait infusé une partie de son sang de l'âme en Luo Chen, permettant à la lignée de ce dernier d'atteindre un niveau suffisant pour prétendre au titre d'Empereur de l'Ancient Dao.
 
-« Autrefois, tu m'as offert les étoiles de dieu antique... Aujourd'hui, tu protégeras les descendants de Ye Mo... Je te confère la lignée royale pour repayer ta dette ! » Wang Lin agita sa manche et s'élança dans le ciel avec Song Zhi. Il disparut en un clin d'œil, laissant les membres de l'Ancient Dao pétrifiés par le silence.
+« Autrefois, tu m'as offert les étoiles de dieu antique... Aujourd'hui, tu protégeras les descendants de Ye Mo... Je te confère la lignée royale pour repayer ta dette! » Wang Lin agita sa manche et s'élança dans le ciel avec Song Zhi. Il disparut en un clin d'œil, laissant les membres de l'Ancient Dao pétrifiés par le silence.
 
 Xuan Luo fixa longuement la direction prise par Wang Lin et poussa un soupir profond. Sans un mot pour Ye Wei, il tourna son regard vers Luo Chen.
 
-« Si je me souviens bien, ton nom est Luo Chen, n'est-ce pas ? »
+« Si je me souviens bien, ton nom est Luo Chen, n'est-ce pas? »
 
 « Luo Chen salue Lord Xuan. » La lumière argentée s'était dissipée, semblant se condenser à l'intérieur du corps de Luo Chen. En entendant la voix de Xuan Luo, il s'agenouilla avec un immense respect.
 
 Xuan Luo observa Luo Chen, semblant peser une décision. Un instant plus tard, son regard devint résolu et il acquiesça.
 
-« Je le choisis ! » déclara Xuan Luo en désignant Luo Chen du doigt, avant de regarder Ye Wei.
+« Je le choisis! » déclara Xuan Luo en désignant Luo Chen du doigt, avant de regarder Ye Wei.
 
 Ye Wei manifesta une certaine hésitation face à Luo Chen, puis, après un long silence, elle soupira.
 
-« Je vais poursuivre ma cultivation en reclusion. Quant au candidat royal, je laisse Lord Xuan décider. » Elle se détourna vers le cercueil baigné d'une lueur violette. Tandis que la lumière s'estompait, le cercueil s'enfonça de nouveau dans le sol.
+« Je vais poursuivre ma culture en reclusion. Quant au candidat royal, je laisse Lord Xuan décider. » Elle se détourna vers le cercueil baigné d'une lueur violette. Tandis que la lumière s'estompait, le cercueil s'enfonça de nouveau dans le sol.
 
-Jusqu'ici, le Grand Empyrée Gu Dao n'était jamais apparu. Même ses messagers restaient absents, comme s'ils évitaient délibérément la situation.
+Jusqu'ici, le Grand Empereur Gu Dao n'était jamais apparu. Même ses messagers restaient absents, comme s'ils évitaient délibérément la situation.
 
-Malgré l'appel de l'Empereur de l'Ancient Dao, le Grand Empyrée Gu Dao, gardien des familles royales, n'avait toujours pas agi. Les membres de l'Ancient Dao ne parlaient pas de ce silence, enterrant leur doute au plus profond de leurs cœurs.
+Malgré l'appel de l'Empereur de l'Ancient Dao, le Grand Empereur Gu Dao, gardien des familles royales, n'avait toujours pas agi. Les membres de l'Ancient Dao ne parlaient pas de ce silence, enterrant leur doute au plus profond de leurs cœurs.
 
-Wang Lin lui-même s'interrogeait sur cette absence. Il s'était préparé au pire : si le Grand Empyrée Gu Dao était apparu, il aurait tout donné pour invoquer son avatar dans le vide afin de l'affronter !
+Wang Lin lui-même s'interrogeait sur cette absence. Il s'était préparé au pire: si le Grand Empereur Gu Dao était apparu, il aurait tout donné pour invoquer son avatar dans le vide afin de l'affronter!
 
-Les chances d'échec étaient immenses, mais le combat était inévitable !
+Les chances d'échec étaient immenses, mais le combat était inévitable!
 
-Pourtant, Gu Dao demeurait invisible. À cet instant, Wang Lin se précipita vers la montagne fendue en deux par l'Ancien Ancêtre. Il réprima ses doutes : ce n'était pas le moment de spéculer. Même s'il continuait à y songer, il n'obtiendrait aucune réponse. L'essentiel était de rejoindre cette montagne désertique pour résoudre le mystère qui le tourmentait !
+Pourtant, Gu Dao demeurait invisible. À cet instant, Wang Lin se précipita vers la montagne fendue en deux par l'Ancien Ancêtre. Il réprima ses doutes: ce n'était pas le moment de spéculer. Même s'il continuait à y songer, il n'obtiendrait aucune réponse. L'essentiel était de rejoindre cette montagne désertique pour résoudre le mystère qui le tourmentait!
 
-Qui était cet énigmatique Enseignant Impérial de l'Ancient Dao ?!
+Qui était cet énigmatique Enseignant Impérial de l'Ancient Dao?!
 
 En volant, la main qui tenait Song Zhi s'illumina et il la rangea dans son espace de stockage. Ce voyage serait périlleux, et Wang Lin ne voulait pas qu'elle soit blessée.
 
 Une fois Song Zhi à l'abri, le regard de Wang Lin devint monstrueux et glacial avant qu'il ne disparaisse. Lorsqu'il réapparut, il se trouvait devant la montagne désertée, coupée en deux.
 
-Il leva sa main droite et frappa violemment la montagne en contrebas !
+Il leva sa main droite et frappa violemment la montagne en contrebas!
 
-Une empreinte de paume gigantesque surgit dans le ciel et s'abattit sur la montagne. Des grondements fracassants déchirèrent l'air alors que Wang Lin plongeait dans les décombres !
+Une empreinte de paume gigantesque surgit dans le ciel et s'abattit sur la montagne. Des grondements fracassants déchirèrent l'air alors que Wang Lin plongeait dans les décombres!
 
 La montagne trembla sous l'impact de sa paume, s'effondrant à une échelle massive comme si une part entière de la structure était effacée de l'existence. La formation géante située en dessous fut révélée, entourée d'une brume aux dix couleurs. Cette brume vacilla mais ne fut nullement endommagée par l'assaut de Wang Lin.
 
@@ -110,16 +110,16 @@ Lorsque la paume de Wang Lin toucha ce brouillard, celui-ci se transforma en une
 
 Wang Lin resta immobile devant le brouillard, le regard froid. Cette voix lui semblait familière mais étrangement étrangère, ce qui rendait difficile la confirmation de ses soupçons.
 
-« Est-ce là l'Enseignant Impérial de l'Ancient Dao, quelqu'un qui se cache ainsi ? Tu as pris l'âme de ma femme et tu as poussé l'Empereur de l'Ancient Dao à chercher un corps pour la fusionner, tout cela pour me cibler. Maintenant que je suis là, tu te caches derrière ce brouillard. As-tu peur que je te reconnaisse, ou es-tu quelqu'un que je connais ? » lança froidement Wang Lin.
+« Est-ce là l'Enseignant Impérial de l'Ancient Dao, quelqu'un qui se cache ainsi? Tu as pris l'âme de ma femme et tu as poussé l'Empereur de l'Ancient Dao à chercher un corps pour la fusionner, tout cela pour me cibler. Maintenant que je suis là, tu te caches derrière ce brouillard. As-tu peur que je te reconnaisse, ou es-tu quelqu'un que je connais? » lança froidement Wang Lin.
 
 Après un bref silence, un rire rauque s'éleva de la brume, faisant onduler les volutes colorées.
 
 « Tu as tant de doutes... Tu te demandes qui je suis, comment j'ai pris l'âme de Li Muwan, comment je l'ai conduite sur le Continent Astral Immortel, et quel est mon dessein derrière tout cela. »
 
-La voix rauque continua de résonner lentement :
+La voix rauque continua de résonner lentement:
 
 « Tu as tant de doutes... Entre. Si tu parviens à percer ce brouillard pour découvrir mon vrai visage, je pourrai t'aider à dissiper tes interrogations. »
 
-Le cœur de Wang Lin tressaillit, mais son expression resta impassible. Il leva silencieusement la main ; une fumée verte tourbillonna autour de ses doigts, formant des cercles qui furent projetés vers le brouillard.
+Le cœur de Wang Lin tressaillit, mais son expression resta impassible. Il leva silencieusement la main; une fumée verte tourbillonna autour de ses doigts, formant des cercles qui furent projetés vers le brouillard.
 
 Simultanément, les Daos Extrêmes du Métal, du Bois, de l'Eau et de la Terre apparurent aux côtés du sixième Dao Extrême, celui de la Vie et de la Mort. Ils se matérialisèrent devant Wang Lin pour former un tatouage noir et blanc englobant ces six énergies. D'un geste de la main, il projeta ce tatouage des six Daos Extrêmes vers la brume aux dix couleurs.

@@ -6,11 +6,11 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 111 - The Seven Tokens
 slug: les-sept-jetons
 ---
-Il y avait un total de sept jetons. Wang Lin en avait obtenu deux de la part de Li Shan, un du Secte Piao Miao, un du Secte He Huan et un du Secte Xuan Dao. Au total, il en possédait cinq.
+Il y avait un total de sept jetons. Wang Lin en avait obtenu deux de la part de Li Shan, un de la Secte Piao Miao, un de la Secte He Huan et un de la Secte Xuan Dao. Au total, il en possédait cinq.
 
-En faisant abstraction de celui appartenant au Secte des Cadavres, il en restait encore un.
+En faisant abstraction de celui appartenant à la Secte des Cadavres, il en restait encore un.
 
-Wang Lin réfléchit un moment. Il avait déjà localisé tous les secteurs de la Vallée Jue Ming, mais il n'avait toujours pas trouvé le dernier jeton. Bien sûr, cela n'excluait pas que quelqu'un puisse en avoir caché un quelque part. Il ne s'encombrerait pas à le chercher ; après tout, avec cinq des sept jetons en sa possession, sa place sur le champ de bataille étranger était déjà assurée.
+Wang Lin réfléchit un moment. Il avait déjà localisé tous les secteurs de la Vallée Jue Ming, mais il n'avait toujours pas trouvé le dernier jeton. Bien sûr, cela n'excluait pas que quelqu'un puisse en avoir caché un quelque part. Il ne s'encombrerait pas à le chercher; après tout, avec cinq des sept jetons en sa possession, sa place sur le champ de bataille étranger était déjà assurée.
 
 Une fois ses pensées sur le jeton apaisées, il commença à songer à la bataille qui se déroulerait dans deux mois.
 
@@ -30,7 +30,7 @@ Wang Lin avait le sentiment que depuis que son énergie spirituelle avait chang�
 
 Par conséquent, Wang Lin décida de mettre ce temps à profit pour raffiner à nouveau son épée.
 
-Ses deux mains formèrent un sceau tandis qu'il projetait de l'énergie spirituelle pour envelopper l'épée volante. Puis, Wang Lin frappa son sac de rangement et en sortit une gourde. L'épée volante était une arme raffinée par son propre sang ; il était donc disposé à y consacrer de nombreuses ressources. Il serra les dents et versa un tiers du liquide qui s'y trouvait.
+Ses deux mains formèrent un sceau tandis qu'il projetait de l'énergie spirituelle pour envelopper l'épée volante. Puis, Wang Lin frappa son sac de rangement et en sortit une gourde. L'épée volante était une arme raffinée par son propre sang; il était donc disposé à y consacrer de nombreuses ressources. Il serra les dents et versa un tiers du liquide qui s'y trouvait.
 
 Sous le contrôle de Wang Lin, le liquide spirituel chargé d'énergie Yin flotta dans l'air et se condensa en une unique goutte d'eau. Cette goutte libéra des ondes d'énergie Yin qui couvrirent la grotte de givre.
 
@@ -48,7 +48,7 @@ Le visage de Wang Lin devint livide, mais il n'hésita pas pour tracer un symbol
 
 À mesure que les symboles s'accumulaient, aidés par le sang essentiel, le liquide spirituel autour de l'épée vira au rouge sombre, tirant même sur le pourpre.
 
-Une fois la dernière goutte de sang rassemblée sur l'arme, Wang Lin se concentra et hurla : « Rassemble-toi ! »
+Une fois la dernière goutte de sang rassemblée sur l'arme, Wang Lin se concentra et hurla: « Rassemble-toi! »
 
 Dans un bourdonnement, l'épée volante trembla violemment, ses vibrations s'accélérant sans cesse. Sans céder à la panique, Wang Lin observa l'objet tout en continuant de former des sceaux de ses mains.
 
@@ -64,7 +64,7 @@ Une fois que cette évolution atteindrait sa phase finale, l'épée acquerrait l
 
 Wang Lin testa l'épée et découvrit qu'elle se déplaçait plusieurs fois plus vite qu'auparavant. Lorsqu'il utilisait toute sa puissance, elle était si rapide que ses yeux ne pouvaient plus la suivre. Conjuguée à sa capacité de téléportation, cette épée volante représentait une existence terrifiante.
 
-Au minimum, si un cultivateur au stade de la Formation du Noyau, dépourvu de trésor défensif actif, était frappé par l'épée, son salut ne serait pas garanti. C'était là le pouvoir du Royaume Ji appliqué à un trésor magique : il permettait à l'objet de briser ses limites pour atteindre un état extrême.
+Au minimum, si un cultivateur au stade de la Formation du Noyau, dépourvu de trésor défensif actif, était frappé par l'épée, son salut ne serait pas garanti. C'était là le pouvoir du Royaume Ji appliqué à un trésor magique: il permettait à l'objet de briser ses limites pour atteindre un état extrême.
 
 Cependant, face à un cultivateur de l'Âme Naissante, cela restait insuffisant. Après tout, Wang Lin n'était qu'au stade de l'Établissement des Fondations. Même avec le Royaume Ji, il était encore bien trop faible.
 
@@ -72,4 +72,4 @@ Le Royaume Ji ne révélerait sa véritable puissance que lorsque Wang Lin brise
 
 L'épée actuelle, petite et verte, était encore plus délicate. Des éclats de glace bleue apparaissaient et disparaissaient sur sa surface, lui conférant un aspect singulier.
 
-Wang Lin rangea à nouveau l'épée volante. Ses yeux s'illuminèrent lorsqu'il calcula le temps écoulé : il avait passé un mois à la raffiner. Il décida de consacrer le mois restant à cultiver à l'intérieur de la perle du ciel révolté. Il était confiant de pouvoir atteindre le stade intermédiaire de l'Établissement des Fondations d'ici la fin du mois.
+Wang Lin rangea à nouveau l'épée volante. Ses yeux s'illuminèrent lorsqu'il calcula le temps écoulé: il avait passé un mois à la raffiner. Il décida de consacrer le mois restant à cultiver à l'intérieur de la perle du ciel révolté. Il était confiant de pouvoir atteindre le stade intermédiaire de l'Établissement des Fondations d'ici la fin du mois.

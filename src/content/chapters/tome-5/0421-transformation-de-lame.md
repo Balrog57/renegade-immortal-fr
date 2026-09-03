@@ -36,7 +36,7 @@ Une fois les racines mortelles totalement éliminées, la première étape étai
 
 Bien qu'elle ne puisse remplacer le corps physique, une âme originelle corporelle est plusieurs fois plus puissante et possède la capacité de se protéger elle-même.
 
-On peut comparer cela ainsi : l'Âme Naissante est comme un nourrisson, tandis que l'âme originelle est ce même enfant qui grandit pour devenir un jeune homme. Ensuite, le stade de la Transformation de l'Âme apporte un changement mystérieux : le jeune homme devient un adulte puissant, armé de ses propres armes. À ce stade, l'âme originelle est infiniment plus puissante que celle d'un cultivateur au stade de la Formation de l'Âme.
+On peut comparer cela ainsi: l'Âme Naissante est comme un nourrisson, tandis que l'âme originelle est ce même enfant qui grandit pour devenir un jeune homme. Ensuite, le stade de la Transformation de l'Âme apporte un changement mystérieux: le jeune homme devient un adulte puissant, armé de ses propres armes. À ce stade, l'âme originelle est infiniment plus puissante que celle d'un cultivateur au stade de la Formation de l'Âme.
 
 La taille démesurée de l'âme de Situ Nan était le signe qu'il avait transcendé le stade de la Transformation de l'Âme. Même l'âme d'un cultivateur Ascendant possède la même dimension que celle d'un expert en Transformation de l'Âme. Ce n'est qu'en dépassant le stade de l'Ascendant que d'autres mutations surviendraient.
 
@@ -50,7 +50,7 @@ Même les jades qu'il venait de sortir tombèrent en poussière, leur essence é
 
 La sphère d'énergie changea progressivement de couleur. Initialement verte, elle brillait désormais d'un éclat doré.
 
-L'esprit de Wang Lin demeurait parfaitement lucide ; il observa donc calmement les transformations de son corps, comme s'il contemplait un étranger.
+L'esprit de Wang Lin demeurait parfaitement lucide; il observa donc calmement les transformations de son corps, comme s'il contemplait un étranger.
 
 Peu après, lorsque toute l'énergie spirituelle céleste fut absorbée, la sphère devint entièrement dorée. Si on l'extrayait de son corps, elle ressemblerait trait pour trait à un noyau doré.
 
@@ -74,11 +74,11 @@ Ce processus de transmutation dura un temps indéterminé. Durant toute cette p�
 
 Puis, un jour, son corps commença à exhaler un parfum. Cette fragrance était enivrante, comme si une herbe spirituelle venait d'être déterrée.
 
-Le parfum s'échappa de la grotte, faisant briller les yeux de Du Tian. Un éclat d'admiration passa dans son regard et il soupira : « La première étape de la Transformation de l'Âme — le raffinement du corps — est achevée. Place maintenant à la seconde : le raffinement de l'âme originelle. »
+Le parfum s'échappa de la grotte, faisant briller les yeux de Du Tian. Un éclat d'admiration passa dans son regard et il soupira: « La première étape de la Transformation de l'Âme — le raffinement du corps — est achevée. Place maintenant à la seconde: le raffinement de l'âme originelle. »
 
 Il exécuta un sceau manuel, et une lumière noire enveloppa immédiatement la grotte pour empêcher la fragrance de se propager.
 
-« Le parfum issu de la première étape de la Transformation de l'Âme attire les bêtes et les démons puissants qui cherchent à posséder ce corps. Cependant, ma Secte de l'Affinement de l'Âme est spécialisée dans les âmes ; si ces démons ne viennent pas, tant mieux, mais s'ils osent se présenter, ils serviront de nourriture au Drapeau d'Âmes au Milliard d'Âmes. »
+« Le parfum issu de la première étape de la Transformation de l'Âme attire les bêtes et les démons puissants qui cherchent à posséder ce corps. Cependant, ma Secte de l'Affinement de l'Âme est spécialisée dans les âmes; si ces démons ne viennent pas, tant mieux, mais s'ils osent se présenter, ils serviront de nourriture au Drapeau d'Âmes au Milliard d'Âmes. »
 
 « Je ne crains pas non plus les bêtes. La formation de protection de la Secte peut les tenir à distance. Aucune créature n'a encore réussi à m'effrayer. »
 
@@ -100,19 +100,19 @@ Le processus pour rendre une âme originelle corporelle est extrêmement long.
 
 À l'extérieur de la grotte, les yeux de Du Tian brillèrent alors qu'il agissait de sa main gauche. Une âme primaire dorée et pourpre s'élança, captura une âme noire errante et la traîna dans le drapeau d'âmes.
 
-Du Tian grommela : « C'est déjà la dix-neuvième. Malheureusement, ce ne sont que des fragments d'âmes de Formation de l'Âme. S'il y en avait une de Transformation de l'Âme, le drapeau gagnerait une nouvelle âme primaire. »
+Du Tian grommela: « C'est déjà la dix-neuvième. Malheureusement, ce ne sont que des fragments d'âmes de Formation de l'Âme. S'il y en avait une de Transformation de l'Âme, le drapeau gagnerait une nouvelle âme primaire. »
 
 Soudain, une lumière dorée et pourpre surgit au loin. La formation de protection ne l'arrêta pas, et elle chargea directement vers la grotte.
 
-Les yeux de Du Tian s'illuminèrent et il laissa échapper un rire. Il avait délibérément configuré la formation pour ne pas bloquer les âmes ; c'était ainsi qu'elles parvenaient à entrer.
+Les yeux de Du Tian s'illuminèrent et il laissa échapper un rire. Il avait délibérément configuré la formation pour ne pas bloquer les âmes; c'était ainsi qu'elles parvenaient à entrer.
 
-« Bien, viens ! » s'exclama Du Tian en bondissant dans les airs pour intercepter l'âme dorée et pourpre.
+« Bien, viens! » s'exclama Du Tian en bondissant dans les airs pour intercepter l'âme dorée et pourpre.
 
 La lumière vira brusquement pour esquiver la main de Du Tian et fonça vers la grotte.
 
-Voyant que le fragment d'âme allait pénétrer dans la caverne, Du Tian se déplaça avec célérité et apparut instantanément devant lui. Il ricana : « Hélas, tu n'as pas encore atteint le stade de la Transformation de l'Âme ; tu n'es qu'à la limite. Tu ne t'échapperas pas ! » Sa main traça un sceau et un vortex gigantesque se matérialisa.
+Voyant que le fragment d'âme allait pénétrer dans la caverne, Du Tian se déplaça avec célérité et apparut instantanément devant lui. Il ricana: « Hélas, tu n'as pas encore atteint le stade de la Transformation de l'Âme; tu n'es qu'à la limite. Tu ne t'échapperas pas! » Sa main traça un sceau et un vortex gigantesque se matérialisa.
 
-Du Tian hurla : « Vortex d'Âme ! » Le fragment d'âme poussa un cri de terreur et tenta de reculer, mais Du Tian avait déjà une longueur d'avance. « Capture ! » ordonna-t-il.
+Du Tian hurla: « Vortex d'Âme! » Le fragment d'âme poussa un cri de terreur et tenta de reculer, mais Du Tian avait déjà une longueur d'avance. « Capture! » ordonna-t-il.
 
 Une force de succion impétueuse émana du vortex, entraînant le fragment d'âme doré et pourpre vers son centre.
 
@@ -122,6 +122,6 @@ Le tonnerre de cette explosion résonna dans toute la secte. Même les trois mon
 
 Dans le ciel, une silhouette drapée de rouge apparut. Elle dégageait une aura d'une puissance inimaginable.
 
-À cet instant, le ciel perdit toutes ses couleurs ; seule cette silhouette semblait exister.
+À cet instant, le ciel perdit toutes ses couleurs; seule cette silhouette semblait exister.
 
-« Zhuque Zi ! » L'expression de Du Tian devint livide. N'ayant plus le temps de s'amuser avec ce fragment d'âme, il agita le Drapeau d'Âmes au Milliard d'Âmes pour l'emmagasiner précipitamment.
+« Zhuque Zi! » L'expression de Du Tian devint livide. N'ayant plus le temps de s'amuser avec ce fragment d'âme, il agita le Drapeau d'Âmes au Milliard d'Âmes pour l'emmagasiner précipitamment.

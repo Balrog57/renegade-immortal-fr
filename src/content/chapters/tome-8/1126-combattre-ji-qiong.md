@@ -10,21 +10,21 @@ slug: combattre-ji-qiong
 
 Ses pupilles se rétractèrent jusqu'à devenir de simples points noirs alors qu'il fixait la bête féroce qui ressemblait à un homme corpulent.
 
-« Ji Qiong ! » Les souvenirs de l'Ancien Dieu Tu Si traversèrent l'esprit de Wang Lin avant de se fixer sur le souvenir de cette bête féroce.
+« Ji Qiong! » Les souvenirs de l'Ancien Dieu Tu Si traversèrent l'esprit de Wang Lin avant de se fixer sur le souvenir de cette bête féroce.
 
-Après avoir reconnu cette créature, une sueur froide perla sur le front de Wang Lin. À mesure que son niveau de cultivation, sa compréhension des lois et son expérience augmentaient, Wang Lin comprit que les cultivateurs n'étaient pas les plus puissants. Il existait des bêtes féroces d'une puissance inimaginable.
+Après avoir reconnu cette créature, une sueur froide perla sur le front de Wang Lin. À mesure que son niveau de culture, sa compréhension des lois et son expérience augmentaient, Wang Lin comprit que les cultivateurs n'étaient pas les plus puissants. Il existait des bêtes féroces d'une puissance inimaginable.
 
-Il y avait même des bêtes si redoutables que même un Ancien Dieu à 8 étoiles ne voudrait pas les provoquer ! Comme l'essaim de bêtes moustiques ou l'autre souvenir dont Wang Lin venait de se remémorer.
+Il y avait même des bêtes si redoutables que même un Ancien Dieu à 8 étoiles ne voudrait pas les provoquer! Comme l'essaim de bêtes moustiques ou l'autre souvenir dont Wang Lin venait de se remémorer.
 
-C'était un vide ténébreux ; même les étoiles ne pouvaient éclairer cette zone. Une planète violette se trouvait au loin.
+C'était un vide ténébreux; même les étoiles ne pouvaient éclairer cette zone. Une planète violette se trouvait au loin.
 
-Une silhouette haute de plusieurs centaines de pieds s'éleva lentement. Cette forme n'était pas particulièrement massive, mais elle possédait 36 branches auxquelles étaient attachées 36 grandes têtes. Si l'on regardait de plus près, on verrait que chaque branche mesurait 10 000 pieds de long !
+Une silhouette haute de plusieurs centaines de pieds s'éleva lentement. Cette forme n'était pas particulièrement massive, mais elle possédait 36 branches auxquelles étaient attachées 36 grandes têtes. Si l'on regardait de plus près, on verrait que chaque branche mesurait 10 000 pieds de long!
 
-Par conséquent, le corps de cette étrange bête devenait insignifiant. Après s'être élevée de la planète violette, elle poussa un rugissement !
+Par conséquent, le corps de cette étrange bête devenait insignifiant. Après s'être élevée de la planète violette, elle poussa un rugissement!
 
 C'était le rugissement combiné des 36 têtes, et il était assourdissant. Même l'espace lui-même commença à se déchirer et à s'effondrer. C'était une scène spectaculaire.
 
-La bête ne rugissait pas vers le vide, mais vers un Ancien Dieu géant situé non loin de là !
+La bête ne rugissait pas vers le vide, mais vers un Ancien Dieu géant situé non loin de là!
 
 Peu de bêtes parmi les étoiles osaient rugir face à un Ancien Dieu, et encore moins osaient l'attaquer. Le Ji Qiong aux 36 têtes se précipita vers l'Ancien Dieu en rugissant.
 
@@ -32,7 +32,7 @@ La vision s'interrompit ici. Wang Lin regarda le Ji Qiong qui le fixait et recul
 
 L'une des têtes du Ji Qiong manifesta une hésitation. Elle regarda Wang Lin, puis le cadavre restant, comme si elle pesait le pour et le contre.
 
-Wang Lin fit un autre pas de recul tout en restant sur ses gardes. D'après les souvenirs de Tu Si, cette bête était extrêmement puissante. Wang Lin devait admettre qu'avec son niveau de cultivation actuel, il lui serait difficile de tuer ou de capturer une telle créature ; il ne pouvait donc que battre en retraite.
+Wang Lin fit un autre pas de recul tout en restant sur ses gardes. D'après les souvenirs de Tu Si, cette bête était extrêmement puissante. Wang Lin devait admettre qu'avec son niveau de culture actuel, il lui serait difficile de tuer ou de capturer une telle créature; il ne pouvait donc que battre en retraite.
 
 Cependant, il devait reculer avec prudence et lenteur. S'il allait trop vite, la bête féroce se lancerait immédiatement à sa poursuite.
 
@@ -48,7 +48,7 @@ C'était la tête d'un homme d'âge moyen. Ses cheveux étaient en désordre et 
 
 Après que Wang Lin eut reculé de dix pas, les 17 autres têtes s'étaient toutes abaissées, mais les yeux de l'homme d'âge moyen s'illuminèrent et il cracha un morceau de viande pourrie.
 
-Wang Lin fit un grand pas en arrière sans hésiter et se transforma en un rayon de lumière pour s'échapper. Au moment où il bougea, la tête de l'homme d'âge moyen poussa un cri perçant !
+Wang Lin fit un grand pas en arrière sans hésiter et se transforma en un rayon de lumière pour s'échapper. Au moment où il bougea, la tête de l'homme d'âge moyen poussa un cri perçant!
 
 Ce cri avait le pouvoir de percer même la roche et le métal alors qu'il résonnait dans le vide. Certains rochers flottants s'effondrèrent instantanément.
 
@@ -72,13 +72,13 @@ Le Ji Qiong était très rapide. S'il n'avait pas pu utiliser la téléportation
 
 Les rugissements du Ji Qiong devinrent encore plus colériques. L'une des têtes, celle d'une vieille femme, se mordit la langue et cracha un sang à l'odeur de poisson.
 
-Le sang s'agita et se transforma en deux runes rouge sang. L'une s'envola vers les cieux et l'autre vers la terre. À cet instant, une vague de lumière sanglante apparut et scella le ciel et la terre !
+Le sang s'agita et se transforma en deux runes rouge sang. L'une s'envola vers les cieux et l'autre vers la terre. À cet instant, une vague de lumière sanglante apparut et scella le ciel et la terre!
 
-Toute tentative de téléportation reviendrait à percuter une plaque de métal dans cette zone scellée !
+Toute tentative de téléportation reviendrait à percuter une plaque de métal dans cette zone scellée!
 
 Wang Lin était sur le point de se téléporter, son expression devint donc encore plus sombre. Sa main s'étendit pour ouvrir son espace de stockage. Alors que le Ji Qiong approchait, Wang Lin sortit un talisman jaune.
 
-Il le plaça sur sa poitrine sans hésiter ; le vent l'enveloppa et Wang Lin s'élança. Sa vitesse augmenta considérablement alors qu'il disparaissait dans un éclair de lumière spectrale.
+Il le plaça sur sa poitrine sans hésiter; le vent l'enveloppa et Wang Lin s'élança. Sa vitesse augmenta considérablement alors qu'il disparaissait dans un éclair de lumière spectrale.
 
 Les 18 têtes du Ji Qiong parurent surprises, mais elles poussèrent immédiatement un rugissement unifié. L'une des têtes, celle d'une jeune fille, poussa un cri féroce et un vent noir apparut autour de la bête. Ce vent créa une tempête qui chargea avec le Ji Qiong. Un grondement retentit alors que la bête poursuivait à nouveau Wang Lin.
 
@@ -88,9 +88,9 @@ En conséquence, la vitesse de la tempête fut multipliée par plusieurs. La dis
 
 À cet instant, Wang Lin était déjà très proche de l'entrée de la zone suivante. Il pouvait vaguement apercevoir un gigantesque vortex devant lui.
 
-Wang Lin savait qu'une fois entré dans le vortex, il pourrait quitter le vide et échapper à la terrifiante bête. Cependant, il n'avait pas le temps. Bien que la tempête semblât lointaine, elle se trouvait déjà à moins de mille pieds de lui !
+Wang Lin savait qu'une fois entré dans le vortex, il pourrait quitter le vide et échapper à la terrifiante bête. Cependant, il n'avait pas le temps. Bien que la tempête semblât lointaine, elle se trouvait déjà à moins de mille pieds de lui!
 
-Si cela continuait, le Ji Qiong le rattraperait avant qu'il ne puisse entrer dans le vortex !
+Si cela continuait, le Ji Qiong le rattraperait avant qu'il ne puisse entrer dans le vortex!
 
 En ce moment de crise, une lueur de froideur passa dans les yeux de Wang Lin. Sa main gauche forma un sceau et il agita la main. Une mer de flammes apparut immédiatement, formant une barrière. Il se retourna brusquement et, ce faisant, un éclair jaillit de son œil droit alors qu'il pointait le doigt.
 
@@ -104,11 +104,11 @@ Cependant, Wang Lin s'y était préparé. Le filet de foudre entoura immédiatem
 
 Les yeux de Wang Lin s'illuminèrent. Ses sorts de feu et de tonnerre étaient puissants, mais ils n'étaient pas suffisants pour blesser le Ji Qiong, seulement pour l'entraver. En fonction du temps pendant lequel ces sorts pourraient bloquer la bête, il aurait encore une chance d'entrer dans ce vortex et d'échapper à sa poursuite.
 
-Pourtant, Wang Lin n'était pas disposé à partir ainsi !
+Pourtant, Wang Lin n'était pas disposé à partir ainsi!
 
-« Si vous osez me poursuivre, alors vous devrez en payer le prix ! » Une froideur glaciale apparut dans ses yeux tandis que ses mains formaient un sceau. Puis son énergie originelle déferla et une sensation de fraîcheur envahit son corps.
+« Si vous osez me poursuivre, alors vous devrez en payer le prix! » Une froideur glaciale apparut dans ses yeux tandis que ses mains formaient un sceau. Puis son énergie originelle déferla et une sensation de fraîcheur envahit son corps.
 
-Une aura de massacre éclata soudainement de son corps, formant un réseau d'énergie de massacre. Il poussa un rugissement et pointa l'avant !
+Une aura de massacre éclata soudainement de son corps, formant un réseau d'énergie de massacre. Il poussa un rugissement et pointa l'avant!
 
 En un instant, cette énergie de massacre se rassembla avec frénésie jusqu'à ne former qu'un seul fil rouge sombre. Elle chargea le Ji Qiong en créant un tonnerre assourdissant sur son passage.
 

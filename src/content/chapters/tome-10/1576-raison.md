@@ -6,19 +6,19 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1576 - Reason
 slug: raison
 ---
-Il vit le ciel !
+Il vit le ciel!
 
-Le ciel était calme, sans nuages ni vent. C'était comme un tableau azur suspendu dans les airs ! Cependant, une déchirure gigantesque béait à gauche du firmament !
+Le ciel était calme, sans nuages ni vent. C'était comme un tableau azur suspendu dans les airs! Cependant, une déchirure gigantesque béait à gauche du firmament!
 
-Ce trou mesurait des dizaines de milliers de pieds de large ; c'était un spectacle terrifiant !
+Ce trou mesurait des dizaines de milliers de pieds de large; c'était un spectacle terrifiant!
 
 On aurait dit une feuille de papier percée d'un trou. Des débris jonchaient même les bords de la brèche.
 
-Dans ce vide, il aperçut quelque chose dont l'épaisseur atteignait des dizaines de milliers de pieds, et la partie dépassant du trou s'étendait sur des centaines de milliers de pieds. C'était une... flèche !
+Dans ce vide, il aperçut quelque chose dont l'épaisseur atteignait des dizaines de milliers de pieds, et la partie dépassant du trou s'étendait sur des centaines de milliers de pieds. C'était une... flèche!
 
 Cette flèche avait transpercé le ciel, mais elle restait à moitié coincée à l'intérieur.
 
-Sous ce ciel s'étendait une terre vaste. Il n'y avait aucune montagne, seulement une plaine dénuée de toute vie qui semblait s'étendre à l'infini. C'était comme si une force colossale avait balayé les lieux, ne laissant derrière elle que la mort... Wang Lin apparut au-dessus de cette terre et fixa directement la flèche !
+Sous ce ciel s'étendait une terre vaste. Il n'y avait aucune montagne, seulement une plaine dénuée de toute vie qui semblait s'étendre à l'infini. C'était comme si une force colossale avait balayé les lieux, ne laissant derrière elle que la mort... Wang Lin apparut au-dessus de cette terre et fixa directement la flèche!
 
 Le corps entier de Wang Lin fut saisi d'un tressaillement. Une aura glaciale émanait de la flèche et bombarda la zone située entre ses sourcils, faisant trembler violemment son être.
 
@@ -26,23 +26,23 @@ Le corps entier de Wang Lin fut saisi d'un tressaillement. Une aura glaciale ém
 
 « Li Guang a abattu mon œil gauche. Cet œil contenait toutes mes pensées et tous mes souvenirs de ma terre natale... » La voix dans l'esprit de Wang Lin devint de plus en plus forte, jusqu'à se transformer en un rugissement.
 
-« Rendez-moi mon œil gauche !! »
+« Rendez-moi mon œil gauche!! »
 
 Le corps de Wang Lin tremblait, son visage empreint de confusion et de tourment. La scène gravée dans sa mémoire était indélébile. Dans ce souvenir, Li Guang tenait l'arc de la main gauche et tirait la corde de la droite. La flèche s'était ensuite élancée dans un hurlement monstrueux.
 
 Cette flèche avait déchiré le vide et brisé l'ancien sort. Elle avait traversé son crâne, emportant son œil gauche avant de disparaître parmi les étoiles.
 
-Après un long moment, Wang Lin cracha une gorgée de sang. Son corps tremblait encore ; il recula de quelques pas avant de s'asseoir pour cultiver. Il pratiqua durant une période indéterminée, puis finit par expirer un souffle vicié. Il ouvrit les yeux et contempla la flèche dans le ciel avec une expression complexe.
+Après un long moment, Wang Lin cracha une gorgée de sang. Son corps tremblait encore; il recula de quelques pas avant de s'asseoir pour cultiver. Il pratiqua durant une période indéterminée, puis finit par expirer un souffle vicié. Il ouvrit les yeux et contempla la flèche dans le ciel avec une expression complexe.
 
 « L'œil gauche de Ye Mo n'est pas ici, il n'y a que cette flèche... » Wang Lin observa l'artillerie. Il devait admettre que son hypothèse n'était qu'à moitié correcte.
 
 Outre l'œil gauche de Ye Mo, qui possédait l'aura ancienne, et l'arc, qui portait l'énergie céleste, il restait une autre chose capable de contenir cette force de rejet.
 
-C'était la flèche !
+C'était la flèche!
 
 Wang Lin observa les traces de sang noir séché sur la flèche et sentit l'aura ancienne qui s'en dégageait. Ce sang provenait de l'œil gauche de Ye Mo...
 
-Il remarqua que la pointe de la flèche n'était pas acérée comme une épine, mais ronde comme un anneau ! Ce n'était pas une flèche perforante ; ce cercle ressemblait à un sceau.
+Il remarqua que la pointe de la flèche n'était pas acérée comme une épine, mais ronde comme un anneau! Ce n'était pas une flèche perforante; ce cercle ressemblait à un sceau.
 
 « Les trésors précieux doivent être cachés là où nul ne peut les trouver... Un trésor que l'on ne peut utiliser doit être particulièrement bien dissimulé... Car s'il est découvert, il pourrait causer la perte de tout votre clan... »
 
@@ -52,9 +52,9 @@ Diverses scènes défilèrent dans son esprit. Celles-ci se lièrent à ses prop
 
 Ye Mo avait utilisé son sort pour massacrer d'innombrables êtres avant lui. La flèche de Li Guang avait percé son œil gauche et l'avait arraché, avant de s'envoler vers les étoiles, dans le vide infini.
 
-Cette flèche était immense ; la puissance qu'elle renfermait pouvait transpercer l'œil gauche de Ye Mo, et bien plus encore que l'espace lui-même. Dans sa course, rien ne pouvait l'arrêter.
+Cette flèche était immense; la puissance qu'elle renfermait pouvait transpercer l'œil gauche de Ye Mo, et bien plus encore que l'espace lui-même. Dans sa course, rien ne pouvait l'arrêter.
 
-À cette époque, la Formation de Scellement du Royaume n'existait pas encore. En sa trajectoire, elle traversa plusieurs planètes de cultivation massives, les faisant s'effondrer avant de disparaître au loin.
+À cette époque, la Formation de Scellement du Royaume n'existait pas encore. En sa trajectoire, elle traversa plusieurs planètes de culture massives, les faisant s'effondrer avant de disparaître au loin.
 
 Cependant, tandis que la flèche filait, l'œil gauche tomba soit dans le Royaume Extérieur, soit dans le Royaume Intérieur. Il fut égaré dans l'immensité de l'espace, vers une destination inconnue.
 
@@ -78,7 +78,7 @@ L'océan fut projeté dans les airs avant de se dissiper. Le bassin qui le conte
 
 D'innombrables créatures périrent tragiquement, leur chair s'évaporant. Peut-être n'eurent-elles même pas le temps de pousser un cri avant de mourir.
 
-Quant à la végétation, elle fut inutile : elle se changea en cendres et fut emportée par la tempête.
+Quant à la végétation, elle fut inutile: elle se changea en cendres et fut emportée par la tempête.
 
 Il y eut aussi les cultivateurs qui auraient pu habiter ces lieux. Qu'il s'agisse d'un homme seul, d'une secte ou de multitudes... tous périrent dans cette bourrasque.
 
@@ -92,7 +92,7 @@ Peut-être que l'objectif de la fille du Souverain était de comploter contre Qi
 
 Après d'innombrables péripéties, le Clan du Tatou finit par trouver ce monde abritant la flèche. Cependant, ils découvrirent qu'ils ne pouvaient dissiper la force de rejet et qu'ils étaient incapables de la contrôler.
 
-Ils scellèrent donc l'endroit. Peut-être le Clan de l'Extermination des Sceaux les avait-il aidés. Finalement, ils laissèrent cette porte ici. Elle fut placée en un lieu ingénieux, utilisant le cercle pour former le premier sceau de la porte !
+Ils scellèrent donc l'endroit. Peut-être le Clan de l'Extermination des Sceaux les avait-il aidés. Finalement, ils laissèrent cette porte ici. Elle fut placée en un lieu ingénieux, utilisant le cercle pour former le premier sceau de la porte!
 
 Ils attendaient... Ils attendaient que le Souverain vienne personnellement chercher cette flèche...
 
@@ -110,12 +110,12 @@ Cette flèche resta là pour l'éternité, scellée par le Clan du Tatou durant 
 
 Wang Lin soupira. Il ne savait pas si ses déductions étaient exactes. Tout cela n'était que le résultat de liens tissés entre ses connaissances. Peut-être était-ce là la vérité...
 
-Tout en méditant silencieusement, Wang Lin fit un pas en avant. Il se retrouva ainsi aux côtés de la flèche qui dépassait du ciel. À côté d'elle, il paraissait minuscule ; tel un homme au pied d'une montagne.
+Tout en méditant silencieusement, Wang Lin fit un pas en avant. Il se retrouva ainsi aux côtés de la flèche qui dépassait du ciel. À côté d'elle, il paraissait minuscule; tel un homme au pied d'une montagne.
 
 Il prit une profonde inspiration et s'assit sur la gigantesque flèche. Puis, pointant le sang ancien séché, il ferma les yeux. Les étoiles divines anciennes entre ses sourcils tournèrent rapidement et il commença l'absorption.
 
-Il allait absorber le sang de l'œil gauche de Ye Mo !
+Il allait absorber le sang de l'œil gauche de Ye Mo!
 
-Ce sang contenait une énergie démoniaque très bien dissimulée. Cette énergie serait extrêmement utile à Wang Lin !
+Ce sang contenait une énergie démoniaque très bien dissimulée. Cette énergie serait extrêmement utile à Wang Lin!
 
 Tout en absorbant, Wang Lin agita la main gauche et son espace de stockage apparut. La statue démoniaque ancienne se matérialisa et il la saisit de sa main gauche.

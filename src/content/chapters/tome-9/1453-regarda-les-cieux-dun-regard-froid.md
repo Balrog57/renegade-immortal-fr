@@ -8,7 +8,7 @@ slug: regarda-les-cieux-dun-regard-froid
 ---
 Great Desolation agita la main et un vent aux effluves de poisson l'entoura. Les Flammes de Joss l'enveloppèrent également pour l'aider à résister au Dao Master Miao Yin.
 
-Tous deux étaient de puissants cultivateurs ; ainsi, bien qu'ils ne puissent utiliser que le stade initial de la cultivation du Nirvana Void, leur combat restait dangereux et capable de faire trembler les cieux.
+Tous deux étaient de puissants cultivateurs; ainsi, bien qu'ils ne puissent utiliser que le stade initial de la culture du Nirvana Void, leur combat restait dangereux et capable de faire trembler les cieux.
 
 L'expression de Great Desolation était sombre. Il avait découvert cette terre scellée le premier et avait déployé d'immenses efforts pour briser la restriction. Juste au moment où il allait réussir, le Dao Master Miao Yin était apparu. Ce dernier avait lancé une attaque sournoise, déclenchant alors cette bataille acharnée.
 
@@ -22,7 +22,7 @@ En peu de temps, ils avaient échangé des centaines de coups. Derrière chacun 
 
 La brume défilait autour de lui alors qu'il se rapprochait de la terre scellée. Après quelques heures, les yeux de Wang Lin s'illuminèrent et il scruta l'horizon. La brume devant lui semblait se distordre, comme si un autre monde s'y cachait.
 
-« Il y a bien une terre scellée. Il semble que l'itinéraire de la carte soit exact. Il me suffit de continuer vers le nord pour quitter la région extérieure et atteindre les profondeurs du tombeau ! » Wang Lin s'arrêta soudainement devant la terre scellée. Il fixa l'avant et commença à réfléchir.
+« Il y a bien une terre scellée. Il semble que l'itinéraire de la carte soit exact. Il me suffit de continuer vers le nord pour quitter la région extérieure et atteindre les profondeurs du tombeau! » Wang Lin s'arrêta soudainement devant la terre scellée. Il fixa l'avant et commença à réfléchir.
 
 « La fille du clan de l'Extermination des Sceaux... Je ne sais juste pas s'il y a un cultivateur du troisième pas à l'intérieur... Je dois rester prudent. » Wang Lin pointa sa main droite et une bête-moustique s'élança. Tandis que la créature s'envolait, Wang Lin y injecta un fragment de son Sens Divin, puis la bête chargea dans la brume.
 
@@ -32,37 +32,37 @@ Dans le ciel de la terre scellée, le Dao Master Miao Yin et Great Desolation po
 
 La bête-moustique apparut dans un coin et resta immobile. Le fragment de Sens Divin que Wang Lin y avait déposé perçut immédiatement tout. Pourtant, à cet instant précis, un rayon de lumière jaillit de la tempête vers la créature. La bête-moustique explosa instantanément, et même le fragment de Sens Divin de Wang Lin fut anéanti.
 
-« Aucun intrus n'est autorisé à entrer, disparaissez ! » La voix du Dao Master Miao Yin résonna.
+« Aucun intrus n'est autorisé à entrer, disparaissez! » La voix du Dao Master Miao Yin résonna.
 
 À l'extérieur de la terre scellée, le visage de Wang Lin pâlit légèrement, mais il se reprit rapidement. Une lueur de froideur traversa ses yeux.
 
-« Dao Master Miao Yin... La personne qui combat est imprégnée de poison et est également un cultivateur du troisième pas... C'était trop rapide, je n'ai pas pu voir son identité ! » Les yeux de Wang Lin brillèrent. Il avait également aperçu la terre en dessous, où près de 100 cultivateurs se livraient bataille, y compris la fille du clan de l'Extermination des Sceaux.
+« Dao Master Miao Yin... La personne qui combat est imprégnée de poison et est également un cultivateur du troisième pas... C'était trop rapide, je n'ai pas pu voir son identité! » Les yeux de Wang Lin brillèrent. Il avait également aperçu la terre en dessous, où près de 100 cultivateurs se livraient bataille, y compris la fille du clan de l'Extermination des Sceaux.
 
-« La cultivation du Dao Master Miao Yin est un peu étrange... Il semble n'être qu'au niveau de Maître Zimo... L'adversaire qu'il combat est de force comparable... » Wang Lin commença à méditer. Lorsqu'il vit la femme en blanc, il constata que son niveau de cultivation avait bien trop chuté par rapport à ce qu'elle était à l'extérieur du Tombeau de l'Ordre Ancien.
+« La culture du Dao Master Miao Yin est un peu étrange... Il semble n'être qu'au niveau de Maître Zimo... L'adversaire qu'il combat est de force comparable... » Wang Lin commença à méditer. Lorsqu'il vit la femme en blanc, il constata que son niveau de culture avait bien trop chuté par rapport à ce qu'elle était à l'extérieur du Tombeau de l'Ordre Ancien.
 
 Ayant revu le Maître Miao Yin une fois de plus, et constatant qu'il était lui aussi bien affaibli, tout comme la femme en blanc, ses spéculations s'accentuèrent. « Devrais-je parier... » Wang Lin fronça les sourcils.
 
-S'il se trompait, il ne pourrait absolument pas pénétrer dans la terre scellée. Les cinq Maîtres du Système Stellaire Ancien étaient trop puissants ! Wang Lin n'aurait aucune chance face à eux !
+S'il se trompait, il ne pourrait absolument pas pénétrer dans la terre scellée. Les cinq Maîtres du Système Stellaire Ancien étaient trop puissants! Wang Lin n'aurait aucune chance face à eux!
 
-Un instant plus tard, une lueur glaciale brilla dans les yeux de Wang Lin. Il chargea sans hésiter, suivi des bêtes-moustiques. « Je suis certain que sa cultivation est supprimée à l'intérieur du tombeau. Sinon, pourquoi détruirait-il mon Sens Divin pour me chasser ? En tant que l'un des cinq Maîtres, comment pourrait-il craindre quiconque, à moins qu'il n'y ait une inquiétude cachée ? Maintenant qu'il est engagé dans un combat, c'est l'occasion idéale. Bien que cette fille du clan de l'Extermination des Sceaux soit sa servante, je dois la capturer ! »
+Un instant plus tard, une lueur glaciale brilla dans les yeux de Wang Lin. Il chargea sans hésiter, suivi des bêtes-moustiques. « Je suis certain que sa culture est supprimée à l'intérieur du tombeau. Sinon, pourquoi détruirait-il mon Sens Divin pour me chasser? En tant que l'un des cinq Maîtres, comment pourrait-il craindre quiconque, à moins qu'il n'y ait une inquiétude cachée? Maintenant qu'il est engagé dans un combat, c'est l'occasion idéale. Bien que cette fille du clan de l'Extermination des Sceaux soit sa servante, je dois la capturer! »
 
 Wang Lin accéléra et plongea dans la distorsion. Il disparut, emportant avec lui les innombrables bêtes-moustiques.
 
 Un grondement monstrueux résonna dans la terre scellée, suivi d'une secousse violente qui fit apparaître une grande distorsion. De féroces bêtes-moustiques surgirent de cette faille, attirant immédiatement l'attention des cultivateurs en dessous.
 
-Les bêtes étaient légion ; elles apparurent en un éclair, couvrant le ciel. Tandis qu'elles emplissaient l'horizon, la distorsion s'intensifia, puis une plateforme de 30 000 pieds surgit soudainement ! Wang Lin se tenait sur la plateforme, ses cheveux blancs flottant au vent. Son apparition impromptue choqua les cultivateurs en contrebas. La fille du clan de l'Extermination des Sceaux leva les yeux et son visage pâlit en voyant Wang Lin. Cependant, cette peur se mua rapidement en intention meurtrière.
+Les bêtes étaient légion; elles apparurent en un éclair, couvrant le ciel. Tandis qu'elles emplissaient l'horizon, la distorsion s'intensifia, puis une plateforme de 30 000 pieds surgit soudainement! Wang Lin se tenait sur la plateforme, ses cheveux blancs flottant au vent. Son apparition impromptue choqua les cultivateurs en contrebas. La fille du clan de l'Extermination des Sceaux leva les yeux et son visage pâlit en voyant Wang Lin. Cependant, cette peur se mua rapidement en intention meurtrière.
 
-« Une plateforme de rang 3 ! Un autre cultivateur du troisième pas est-il arrivé ? »
+« Une plateforme de rang 3! Un autre cultivateur du troisième pas est-il arrivé? »
 
-« Le visage de cet homme m'est inconnu. Quel cultivateur du troisième pas s'est présenté dans un autre corps ? Ces bêtes féroces sont inédites ; pourraient-elles être une autre espèce issue du tombeau ? » Les quelque 100 cultivateurs fixaient Wang Lin et ses bêtes-moustiques.
+« Le visage de cet homme m'est inconnu. Quel cultivateur du troisième pas s'est présenté dans un autre corps? Ces bêtes féroces sont inédites; pourraient-elles être une autre espèce issue du tombeau? » Les quelque 100 cultivateurs fixaient Wang Lin et ses bêtes-moustiques.
 
 Wang Lin n'hésita pas une seconde. Dès son apparition, les bêtes-moustiques rugirent et chargèrent les cultivateurs.
 
 Sans même accorder un regard à la tempête, Wang Lin quitta la plateforme. Il fonça vers la jeune fille du clan de l'Extermination des Sceaux telle une flèche de tonnerre.
 
-« Maître, sauvez-moi ! » hurla la jeune fille en battant précipitamment en retraite. La douzaine de cultivateurs qui l'entouraient étaient les serviteurs du Dao Master Miao Yin ; ils déployèrent immédiatement leurs sorts pour la protéger durant sa fuite.
+« Maître, sauvez-moi! » hurla la jeune fille en battant précipitamment en retraite. La douzaine de cultivateurs qui l'entouraient étaient les serviteurs du Dao Master Miao Yin; ils déployèrent immédiatement leurs sorts pour la protéger durant sa fuite.
 
-Tout en reculant, la jeune fille traça rapidement un sceau. Sa marque de clan brilla alors qu'elle pointait Wang Lin du doigt : « En tant que descendante du clan de l'Extermination des Sceaux, je sacrifie mon âme... »
+Tout en reculant, la jeune fille traça rapidement un sceau. Sa marque de clan brilla alors qu'elle pointait Wang Lin du doigt: « En tant que descendante du clan de l'Extermination des Sceaux, je sacrifie mon âme... »
 
 Cependant, Wang Lin était trop rapide et se rapprocha instantanément. Une lueur d'intention meurtrière traversa les yeux d'un homme d'âge moyen qui, ayant remarqué que Wang Lin n'était pas un cultivateur du troisième pas, eut l'intention de lui barrer la route.
 
@@ -74,12 +74,12 @@ Wang Lin ne marqua aucun temps d'arrêt et poursuivit sa charge. Sa vitesse éta
 
 Gardant son calme, Wang Lin agita la main et la Flamme Éthérée réapparut. Les sept ou huit cultivateurs commencèrent à brûler, puis reculèrent précipitamment, n'osant plus entraver sa route... « Invoquez le grand sceau de mon clan... » Le visage de la jeune fille était livide. Elle fuyait frénétiquement, sa voix devenant aiguë et brisée par la panique.
 
-À peine quelques respirations s'étaient-elles écoulées depuis l'apparition de Wang Lin dans cette terre scellée. Il se trouvait désormais à moins de 1 000 pieds de la jeune fille. Entre eux, outre les cultivateurs qui fuyaient en hurlant, une dizaine d'individus restaient là, terrifiés par sa progression. À chaque pas de Wang Lin, ils reculaient. La distance de 300 pieds tomba à 200, puis 100, puis 30. « Comment un junior ose-t-il ! » Alors que Wang Lin n'était plus qu'à 30 pieds d'elle, le rugissement du Dao Master Miao Yin jaillit de la tempête, suivi d'un rire ancien qui semblait vouloir l'entraver. Les grondements s'intensifièrent au cœur du tourbillon. Le Dao Master Miao Yin poussa un grognement alors qu'un rayon de lumière perçait le monde. Ce rayon, dirigé vers Wang Lin, contenait la puissance de 100 000 âmes de Flammes de Joss. Tandis que la lumière convergeait, la voix de la jeune fille retentit :
+À peine quelques respirations s'étaient-elles écoulées depuis l'apparition de Wang Lin dans cette terre scellée. Il se trouvait désormais à moins de 1 000 pieds de la jeune fille. Entre eux, outre les cultivateurs qui fuyaient en hurlant, une dizaine d'individus restaient là, terrifiés par sa progression. À chaque pas de Wang Lin, ils reculaient. La distance de 300 pieds tomba à 200, puis 100, puis 30. « Comment un junior ose-t-il! » Alors que Wang Lin n'était plus qu'à 30 pieds d'elle, le rugissement du Dao Master Miao Yin jaillit de la tempête, suivi d'un rire ancien qui semblait vouloir l'entraver. Les grondements s'intensifièrent au cœur du tourbillon. Le Dao Master Miao Yin poussa un grognement alors qu'un rayon de lumière perçait le monde. Ce rayon, dirigé vers Wang Lin, contenait la puissance de 100 000 âmes de Flammes de Joss. Tandis que la lumière convergeait, la voix de la jeune fille retentit:
 
-« ... scellez l'essence de cet individu... »
+«... scellez l'essence de cet individu... »
 
 Wang Lin ne da même pas un regard à l'attaque. Un éclair jaillit dans son œil droit et le tatouage de foudre apparut derrière lui, entouré de neuf éclairs en rotation. Le feu aux neuf couleurs brûlait dans son œil gauche et s'intégra de manière inattendue au tatouage de foudre. Les essences de la foudre et du feu fusionnèrent pour former un parfait tatouage de foudre ardente. La lumière des 100 000 âmes de Flammes de Joss percuta le tatouage flamboyant. Un fracas tonitruant retentit et Wang Lin poussa un grognement. Utilisant cette force pour projeter sa course, ses doigts vinrent se poser entre les sourcils de la jeune fille du clan de l'Extermination des Sceaux.
 
 La jeune fille n'eut même pas le temps de terminer sa phrase que sa vision fut obscurcie par le doigt de Wang Lin. Dès l'impact entre ses sourcils, elle cracha un flot de sang. D'innombrables restrictions scellèrent tout son corps et, d'un revers de manche, Wang Lin la rangea dans son espace de stockage.
 
-Tout ce processus se déroula avec la fluidité de l'eau qui coule. Wang Lin se retourna et regarda les cieux d'un regard froid !
+Tout ce processus se déroula avec la fluidité de l'eau qui coule. Wang Lin se retourna et regarda les cieux d'un regard froid!

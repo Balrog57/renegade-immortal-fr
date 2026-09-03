@@ -1,12 +1,12 @@
 ---
 n: 767
-title: "Yin Illusoire !"
+title: "Yin Illusoire!"
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: "Chapter 767 - Illusory Yin!"
 slug: yin-illusoire
 ---
-Chapitre 767 - Yin Illusoire !
+Chapitre 767 - Yin Illusoire!
 
 Le tonnerre noir portait en lui la puissance des cieux et s'abattit sur le fragment. Une explosion fracassante retentit à travers celui-ci, et une immense fissure apparut.
 
@@ -14,7 +14,7 @@ Au plus profond de cette faille se trouvait Wang Lin, qui venait tout juste d'ou
 
 Le tonnerre descendit en ligne droite et percuta Wang Lin à une vitesse folle.
 
-Bang !
+Bang!
 
 Le corps de Wang Lin trembla violemment. Le tonnerre pénétra en lui et le balaya comme une tempête. Cependant, il fut rapidement contrecarré par le sang et la puissance du vieil homme mystérieux.
 
@@ -26,17 +26,17 @@ Une lueur mystérieuse brilla dans les yeux de Wang Lin. Il s'était éveillé. 
 
 Dès son éveil, il perçut le chaos qui régnait en lui. Sans cette rétribution divine, son corps aurait explosé bien avant.
 
-« Cette rétribution arrive au moment opportun ! » Les yeux de Wang Lin s'illuminèrent. C'était la première fois qu'il se réjouissait de l'arrivée d'une telle calamité. Sa main droite pressa le sol et il s'élança dans les airs sans la moindre hésitation.
+« Cette rétribution arrive au moment opportun! » Les yeux de Wang Lin s'illuminèrent. C'était la première fois qu'il se réjouissait de l'arrivée d'une telle calamité. Sa main droite pressa le sol et il s'élança dans les airs sans la moindre hésitation.
 
-L'épée céleste à ses côtés poussa immédiatement un cri : « Maître... Maître... emmenez-moi avec vous ! Je veux retourner dans le sac de rangement. Cet endroit est terrifiant... »
+L'épée céleste à ses côtés poussa immédiatement un cri: « Maître... Maître... emmenez-moi avec vous! Je veux retourner dans le sac de rangement. Cet endroit est terrifiant... »
 
 Alors que Wang Lin s'élevait, il agita sa main droite. L'épée céleste vola vers lui et fut rangée dans son sac de rangement. La montagne céleste fut également mise de côté.
 
-Au moment où il jaillit du fragment, tous les nuages environnants se mirent à bouillonner. Sous ce mouvement violent, une rétribution divine plus intense encore que celle des Terres de l'Esprit Démon apparut !
+Au moment où il jaillit du fragment, tous les nuages environnants se mirent à bouillonner. Sous ce mouvement violent, une rétribution divine plus intense encore que celle des Terres de l'Esprit Démon apparut!
 
 Sous la puissance de ces cieux, Wang Lin eut l'impression qu'une main gigantesque l'écrasait depuis le ciel. Des craquements sinistres résonnaient dans son corps.
 
-Simultanément, quatre éclairs noirs convergèrent depuis le haut, le bas, la droite et la gauche du fragment pour descendre avec fracas ! Les yeux de Wang Lin brillèrent intensément. Il ouvrit les bras, refusant même de tenter d'esquiver. Le tonnerre venu d'en haut s'abattit sur lui, suivi de près par ceux venant des flancs gauche et droit.
+Simultanément, quatre éclairs noirs convergèrent depuis le haut, le bas, la droite et la gauche du fragment pour descendre avec fracas! Les yeux de Wang Lin brillèrent intensément. Il ouvrit les bras, refusant même de tenter d'esquiver. Le tonnerre venu d'en haut s'abattit sur lui, suivi de près par ceux venant des flancs gauche et droit.
 
 Enfin, le tonnerre surgissant du dessous du fragment perça la structure pour frapper à son tour Wang Lin.
 
@@ -46,25 +46,25 @@ Le choc fut d'une intensité sans précédent, comme si une véritable tempête 
 
 Cette énergie était trop puissante. Sous l'impact, Wang Lin ne put s'empêcher de pousser un rugissement puissant. Son aura augmentait de façon effrénée. Tandis que son âme originelle dévorait cette énergie, elle acheva le processus crucial de transition entre le sommet du stade avancé de l'Ascendant et le stade Yin Illusoire.
 
-Qu'est-ce qu'une âme originelle ? Si la cultivation d'un individu n'a pas atteint le stade Yin Illusoire lors de ce processus vital, son âme originelle n'est en réalité qu'une illusion.
+Qu'est-ce qu'une âme originelle? Si la culture d'un individu n'a pas atteint le stade Yin Illusoire lors de ce processus vital, son âme originelle n'est en réalité qu'une illusion.
 
-Une véritable âme originelle est capable de dévorer l'énergie originelle pour renaître grâce à elle !
+Une véritable âme originelle est capable de dévorer l'énergie originelle pour renaître grâce à elle!
 
-Les anciens cultivateurs cultivaient le Qi, et ce Qi était l'énergie originelle. Une fois cette énergie cultivée assez longtemps, elle formait l'âme originelle !
+Les anciens cultivateurs cultivaient le Qi, et ce Qi était l'énergie originelle. Une fois cette énergie cultivée assez longtemps, elle formait l'âme originelle!
 
 Les cultivateurs actuels avaient reculé d'une étape. Ce n'est qu'en atteignant la seconde étape que les cultivateurs d'aujourd'hui pourraient rattraper les anciens.
 
-À cet instant, une puissante énergie originelle afflua dans son âme, provoquant une mutation fulgurante de celle-ci. Son âme originelle franchissait le pas décisif vers l'étape suivante !
+À cet instant, une puissante énergie originelle afflua dans son âme, provoquant une mutation fulgurante de celle-ci. Son âme originelle franchissait le pas décisif vers l'étape suivante!
 
-Le sommet du stade avancé de l'Ascendant était enfin brisé !
+Le sommet du stade avancé de l'Ascendant était enfin brisé!
 
-Au moment de la percée, Wang Lin sembla ressentir son propre Dao ! C'était comme si tout dans le monde devenait d'une clarté absolue.
+Au moment de la percée, Wang Lin sembla ressentir son propre Dao! C'était comme si tout dans le monde devenait d'une clarté absolue.
 
 Un rire s'échappa de sa bouche, un rire qui perça les nuages et se propagea vers le monde extérieur.
 
 L'Ancêtre du Sang observait les nuages, espérant que Wang Lin soit terrassé par la rétribution divine. Cependant, en entendant ce rire, son expression changea radicalement.
 
-« Yin Illusoire... » Le visage de l'Ancêtre du Sang s'assombrit et il murmura : « Il semble que la moitié de mon corps de sang contenait assez d'énergie originelle pour qu'il puisse temporairement résister à la rétribution et atteindre le stade Yin Illusoire... Mais cela reste encore... »
+« Yin Illusoire... » Le visage de l'Ancêtre du Sang s'assombrit et il murmura: « Il semble que la moitié de mon corps de sang contenait assez d'énergie originelle pour qu'il puisse temporairement résister à la rétribution et atteindre le stade Yin Illusoire... Mais cela reste encore... »
 
 Alors qu'il parlait, son expression se mua une fois de plus alors qu'il fixait les nuages tourbillonnants devant lui.
 
@@ -78,22 +78,22 @@ Wang Lin riait de plus belle tandis que son âme originelle jaillissait de son c
 
 Il engloutit successivement ces huit éclairs avant de retourner dans son corps, pour ensuite les relâcher. Le corps de sang et la puissance du vieil homme explosèrent à nouveau, lui offrant en échange encore plus d'énergie originelle.
 
-Le niveau de cultivation de Wang Lin grimpa en flèche sous l'impact de cette énergie libérée. Sa cultivation au stade Yin Illusoire se stabilisa et commença déjà à pousser vers le sommet de ce même stade !
+Le niveau de culture de Wang Lin grimpa en flèche sous l'impact de cette énergie libérée. Sa culture au stade Yin Illusoire se stabilisa et commença déjà à pousser vers le sommet de ce même stade!
 
-Les stades Yin Illusoire et Yang Corporel marquaient la transition entre la première et la seconde étape de la cultivation. Ils représentaient l'équilibre parfait entre le yin et le yang. Le stade Yin Illusoire concernait la mutation de l'âme originelle, tandis que le stade Yang Corporel consistait en la dissipation totale de l'énergie spirituelle céleste au profit de l'énergie originelle !
+Les stades Yin Illusoire et Yang Corporel marquaient la transition entre la première et la seconde étape de la culture. Ils représentaient l'équilibre parfait entre le yin et le yang. Le stade Yin Illusoire concernait la mutation de l'âme originelle, tandis que le stade Yang Corporel consistait en la dissipation totale de l'énergie spirituelle céleste au profit de l'énergie originelle!
 
 Ce processus était appelé transformation originelle. Il visait à élever un cultivateur au rang des anciens.
 
-Depuis la disparition des anciens et l'effondrement du Royaume Céleste, très peu de personnes avaient réussi à franchir ces deux royaumes lors de l'entrée dans le stade Yin et Yang ; mais tous ceux qui y étaient parvenus avaient accompli des exploits prodigieux et siégé au sommet de la seconde étape !
+Depuis la disparition des anciens et l'effondrement du Royaume Céleste, très peu de personnes avaient réussi à franchir ces deux royaumes lors de l'entrée dans le stade Yin et Yang; mais tous ceux qui y étaient parvenus avaient accompli des exploits prodigieux et siégé au sommet de la seconde étape!
 
 Même l'Omniscient avait mis 300 ans pour traverser ces deux royaumes. Ling Tianhou en avait mis 800, et l'Ancêtre du Sang près de 1 000 ans.
 
-Cela n'avait rien à voir avec le talent. La raison principale était l'énergie originelle !
+Cela n'avait rien à voir avec le talent. La raison principale était l'énergie originelle!
 
-À cet instant, Wang Lin progressait inexorablement dans cette voie ! La rétribution divine lui servait de nutriments, tandis que le corps de sang et la puissance du vieil homme étaient l'énergie originelle alimentant ce processus !
+À cet instant, Wang Lin progressait inexorablement dans cette voie! La rétribution divine lui servait de nutriments, tandis que le corps de sang et la puissance du vieil homme étaient l'énergie originelle alimentant ce processus!
 
 L'Ancêtre du Sang fixa les nuages devant lui, son intention meurtrière redoublant d'intensité.
 
-« Je suis venu pour le tuer, et je lui offre une fortune immense ! Je ne l'accepterai pas ! »
+« Je suis venu pour le tuer, et je lui offre une fortune immense! Je ne l'accepterai pas! »
 
 Au-dessus du fragment, niché dans les nuages, Wang Lin leva la tête. Ses yeux étaient limpides et empreints d'une pointe d'attente. Des grondements tonitruants déchirèrent les cieux alors qu'un éclair aux sept couleurs se condensait rapidement...

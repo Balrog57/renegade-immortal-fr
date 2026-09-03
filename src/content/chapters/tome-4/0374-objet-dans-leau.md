@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 374 - Object in the water
 slug: objet-dans-leau
 ---
-Les yeux de Wang Lin s'illuminèrent et ses mains formèrent un sceau pour activer une technique de bas niveau qu'il n'avait pas utilisée depuis longtemps : la technique d'attraction. La boue au sol fut soulevée et une odeur nauséabonde envahit rapidement l'eau, tandis que la boue se répandait comme de l'encre.
+Les yeux de Wang Lin s'illuminèrent et ses mains formèrent un sceau pour activer une technique de bas niveau qu'il n'avait pas utilisée depuis longtemps: la technique d'attraction. La boue au sol fut soulevée et une odeur nauséabonde envahit rapidement l'eau, tandis que la boue se répandait comme de l'encre.
 
 Il nagea prestement vers la surface du puits, tel un calmar, avec la boue qui le poursuivait comme si elle le traquait.
 
@@ -20,13 +20,13 @@ Au fond du puits, il vit une formation dotée de trois emplacements contenant de
 
 Le regard de Wang Lin se fit intense alors qu'il observait attentivement les lieux. « Pas étonnant que cet endroit regorge d'énergie spirituelle bien qu'il ne s'agisse pas d'une veine spirituelle. »
 
-Les trois pierres spirituelles de qualité supérieure étaient déjà devenues grises à force d'avoir été laissées là depuis on ne sait combien de temps, et elles étaient presque épuisées. Cependant, ce qui attira l'attention de Wang Lin n'était pas ces trois pierres, mais un autre objet !
+Les trois pierres spirituelles de qualité supérieure étaient déjà devenues grises à force d'avoir été laissées là depuis on ne sait combien de temps, et elles étaient presque épuisées. Cependant, ce qui attira l'attention de Wang Lin n'était pas ces trois pierres, mais un autre objet!
 
-C'était un squelette !
+C'était un squelette!
 
 À en juger par son apparence, il s'agissait d'une femme. Elle était clouée au fond du puits à l'aide de clous noirs.
 
-« Utiliser trois pierres spirituelles de qualité supérieure pour sceller ce squelette... quel homme riche ! » Wang Lin comprit immédiatement que cette formation servait au scellement.
+« Utiliser trois pierres spirituelles de qualité supérieure pour sceller ce squelette... quel homme riche! » Wang Lin comprit immédiatement que cette formation servait au scellement.
 
 Seul l'index droit du squelette était profondément enfoncé dans le sol.
 
@@ -44,23 +44,23 @@ Il regarda alors le parchemin s'envoler et s'ouvrir lentement. Le parchemin éta
 
 Une sphère de lumière violette, de la taille d'un poing, apparut devant le squelette et fut intégralement absorbée par le parchemin.
 
-Le squelette se brisa instantanément en une poussière grise, mais cette poussière ne se mélangea pas mystérieusement à l'eau ; elle recouvrit plutôt le fond du puits.
+Le squelette se brisa instantanément en une poussière grise, mais cette poussière ne se mélangea pas mystérieusement à l'eau; elle recouvrit plutôt le fond du puits.
 
 Tout cela se produisit avec une rapidité fulgurante. Une fois la lumière violette absorbée, le parchemin commença à descendre lentement et Wang Lin le rattrapa. Après avoir pesé la situation, il décida de ne pas enquêter davantage sur le parchemin et s'extirpa précipitamment de l'eau.
 
 Une fois sorti, Wang Lin était très perplexe. Après un moment de réflexion, il ouvrit lentement le parchemin.
 
-Il remarqua un changement dans l'obscurité du parchemin : un léger contour violet y brillait. Cependant, si l'on ne regardait pas de très près, cela restait totalement invisible.
+Il remarqua un changement dans l'obscurité du parchemin: un léger contour violet y brillait. Cependant, si l'on ne regardait pas de très près, cela restait totalement invisible.
 
-Après un long moment, Wang Lin fronça les sourcils. Il ne parvenait toujours pas à percer les mystères de ce parchemin. S'il s'agissait d'un trésor si important, pourquoi était-il entre les mains d'un cultivateur de la Formation du Noyau à l'époque ?
+Après un long moment, Wang Lin fronça les sourcils. Il ne parvenait toujours pas à percer les mystères de ce parchemin. S'il s'agissait d'un trésor si important, pourquoi était-il entre les mains d'un cultivateur de la Formation du Noyau à l'époque?
 
 Il réfléchit un instant avant de ranger le parchemin. Puis, il observa la prison et se mit à méditer.
 
-Le squelette sous le puits était très mystérieux. Pour être scellé avec trois pierres spirituelles de qualité supérieure, cet individu devait avoir été extrêmement puissant. Mais qui l'avait scellé là ?
+Le squelette sous le puits était très mystérieux. Pour être scellé avec trois pierres spirituelles de qualité supérieure, cet individu devait avoir été extrêmement puissant. Mais qui l'avait scellé là?
 
-Comparé au squelette, ce parchemin était encore plus énigmatique. Qu'était donc cette lumière violette ?
+Comparé au squelette, ce parchemin était encore plus énigmatique. Qu'était donc cette lumière violette?
 
-Les yeux de Wang Lin s'illuminèrent et il ordonna : « Bête moustique, amène ce scribe d'âge moyen ici ! »
+Les yeux de Wang Lin s'illuminèrent et il ordonna: « Bête moustique, amène ce scribe d'âge moyen ici! »
 
 La bête moustique chargea soudainement en poussant un rugissement qui fit trembler la neige sur la montagne. Heureusement, la couche de neige n'était pas assez épaisse pour déclencher une avalanche.
 
@@ -72,21 +72,21 @@ Il s'agissait du scribe d'âge moyen. En voyant cette gueule menaçante devant l
 
 La bête moustique apporta l'homme à Wang Lin et le jeta au sol. Lorsque le scribe reprit connaissance, son visage était livide et ses yeux étaient emplis de terreur.
 
-Wang Lin demanda : « Comment avez-vous trouvé cette prison aquatique ? »
+Wang Lin demanda: « Comment avez-vous trouvé cette prison aquatique? »
 
-Le scribe tremblait de tous ses membres en répondant : « I... Immortel, il y a très longtemps, ce n'était qu'une montagne déserte. Cette grotte n'est apparue qu'après un tremblement de terre, et cette prison aquatique est surgie en même temps. L'eau a toujours eu une odeur nauséabonde. À l'époque, le chef a jeté un œil et a pensé que cela ferait une bonne prison ; c'est ainsi que ce lieu est devenu une prison. »
+Le scribe tremblait de tous ses membres en répondant: « I... Immortel, il y a très longtemps, ce n'était qu'une montagne déserte. Cette grotte n'est apparue qu'après un tremblement de terre, et cette prison aquatique est surgie en même temps. L'eau a toujours eu une odeur nauséabonde. À l'époque, le chef a jeté un œil et a pensé que cela ferait une bonne prison; c'est ainsi que ce lieu est devenu une prison. »
 
 Wang Lin leva les yeux vers la montagne. Il y avait des traces d'effondrements passés, cet homme ne mentait donc pas.
 
-Tout devint clair : cette montagne avait été érigée pour sceller ce squelette. Puis, des années plus tard, un tremblement de terre avait ouvert une brèche dans le sceau, permettant au squelette de revoir la lumière du jour.
+Tout devint clair: cette montagne avait été érigée pour sceller ce squelette. Puis, des années plus tard, un tremblement de terre avait ouvert une brèche dans le sceau, permettant au squelette de revoir la lumière du jour.
 
-Mais qui était-elle exactement ?
+Mais qui était-elle exactement?
 
 Wang Lin fit un signe de la main droite pour ordonner au scribe de partir. Ses yeux brillaient tandis qu'il méditait sur ces faits, avant de les reléguer au second plan pour se concentrer sur sa propre récupération.
 
 Les pierres spirituelles de qualité supérieure dans l'eau étaient presque épuisées et leur puissance déclinait. Bien qu'il fallût encore d'innombrables années avant qu'elles ne soient totalement consumées, elles ne pouvaient plus satisfaire les besoins de Wang Lin.
 
-Il s'assit en position de lotus, frappa son sac de rangement pour faire apparaître trois pierres spirituelles de qualité supérieure, puis referma les yeux pour reprendre sa cultivation.
+Il s'assit en position de lotus, frappa son sac de rangement pour faire apparaître trois pierres spirituelles de qualité supérieure, puis referma les yeux pour reprendre sa culture.
 
 En un clin d'œil, trois mois passèrent. Cela faisait plus de six mois que Wang Lin avait quitté Chu.
 
@@ -94,9 +94,9 @@ En un clin d'œil, trois mois passèrent. Cela faisait plus de six mois que Wang
 
 Les bandits du village n'avaient pas quitté la montagne depuis plus de six mois, mais les réserves de nourriture étaient suffisantes pour qu'ils survivent à l'hiver.
 
-Durant ces trois mois, Wang Lin était resté immobile, concentrant toute son attention sur sa cultivation afin d'accumuler de l'énergie spirituelle en lui. Il se préparait à tenter de briser le domaine et le sceau d'un seul coup.
+Durant ces trois mois, Wang Lin était resté immobile, concentrant toute son attention sur sa culture afin d'accumuler de l'énergie spirituelle en lui. Il se préparait à tenter de briser le domaine et le sceau d'un seul coup.
 
-Grâce aux pierres spirituelles de qualité supérieure, sa cultivation avait atteint le 6ème niveau de la Condensation de Qi.
+Grâce aux pierres spirituelles de qualité supérieure, sa culture avait atteint le 6ème niveau de la Condensation de Qi.
 
 La bête moustique continuait de garder Wang Lin, bien qu'elle regardât parfois au loin, vers Chu. Au cours de ces trois mois, elle commença à regretter la grenouille tonnerre. Bien qu'elles fussent toujours en conflit, le manque de sa compagne se faisait sentir.
 
@@ -118,19 +118,19 @@ Wang Lin ouvrit soudainement les yeux, laissant paraître une pointe d'hésitati
 
 Dès l'apparition du jade, l'énergie spirituelle environnante faiblit pour lui céder la place.
 
-« Jade céleste... Avaler ce jade revient à ingérer du poison, mais le domaine et le sceau en moi sont aussi du poison. Utiliser le poison pour combattre le poison est le moyen le plus rapide de briser les sceaux de mon corps ! »
+« Jade céleste... Avaler ce jade revient à ingérer du poison, mais le domaine et le sceau en moi sont aussi du poison. Utiliser le poison pour combattre le poison est le moyen le plus rapide de briser les sceaux de mon corps! »
 
 Wang Lin réfléchit encore un instant, puis saisit le jade, en brisa un morceau de la taille de son pouce et le mit dans sa bouche.
 
-À l'instant où le jade céleste toucha sa langue, une puissante vague d'énergie spirituelle céleste déferla dans le corps de Wang Lin comme un déluge. L'énergie déjà présente fut immédiatement repoussée ; comparée à l'énergie céleste, elle n'était que dérisoire.
+À l'instant où le jade céleste toucha sa langue, une puissante vague d'énergie spirituelle céleste déferla dans le corps de Wang Lin comme un déluge. L'énergie déjà présente fut immédiatement repoussée; comparée à l'énergie céleste, elle n'était que dérisoire.
 
 Ayant déjà expérimenté l'ingestion de jade céleste par le passé, Wang Lin resta calme et contrôla cette vague pour attaquer le domaine et le sceau de thé.
 
-Une fois, deux fois, trois fois !
+Une fois, deux fois, trois fois!
 
 Chaque collision faisait trembler le corps de Wang Lin, mais faisait également vibrer la marque de thé. Finalement, de petites fissures commencèrent à apparaître sur celle-ci.
 
-Le sol où il était assis se fissurait également à chaque assaut. Les crevasses se propagèrent jusqu'aux maisons voisines ; celles qui furent touchées se transformèrent instantanément en poussière au moindre souffle de vent.
+Le sol où il était assis se fissurait également à chaque assaut. Les crevasses se propagèrent jusqu'aux maisons voisines; celles qui furent touchées se transformèrent instantanément en poussière au moindre souffle de vent.
 
 Une série de craquements résonna de l'intérieur du corps de Wang Lin. À ce stade, environ 10 % de la marque de thé sur son visage s'était fissurée et était tombée.
 

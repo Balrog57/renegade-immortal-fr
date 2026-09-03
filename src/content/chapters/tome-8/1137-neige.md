@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1137 - Snow
 slug: neige
 ---
-Cette planète abandonnée n'était pas déserte ; elle abritait de nombreuses cités mortelles. En raison de la rareté des cultivateurs en ces lieux, il y régnait une certaine paix. En ce moment même, l'hiver s'était installé sur cette planète et les flocons de neige tombaient du ciel. Dans certains villages, la neige ravissait les enfants qui jouaient avec elle.
+Cette planète abandonnée n'était pas déserte; elle abritait de nombreuses cités mortelles. En raison de la rareté des cultivateurs en ces lieux, il y régnait une certaine paix. En ce moment même, l'hiver s'était installé sur cette planète et les flocons de neige tombaient du ciel. Dans certains villages, la neige ravissait les enfants qui jouaient avec elle.
 
 Aujourd'hui était un jour de grande fête pour cette planète. L'origine de cette célébration s'était évanouie depuis longtemps dans le fleuve du temps, oubliée par la majorité des gens. Cependant, cette coutume avait été transmise inconsciemment jusqu'à devenir une habitude.
 
@@ -38,19 +38,19 @@ Il secoua la tête pour en chasser la neige. Wang Lin laissa échapper un long s
 
 Une fois la neige dissipée, une formation gigantesque apparut sur cette étendue de 10 000 pieds. Cette formation était extrêmement complexe et comportait divers blocs de pierre disposés en son sein.
 
-Après une courte réflexion silencieuse, Wang Lin poussa un soupir et se dirigea vers le centre de la formation. Sa main droite plongea dans le vide, ouvrant une faille vers son espace de stockage. D'une simple pensée, les pierres qu'il avait rassemblées en chemin sortirent l'une après l'autre. Elles lévitaient dans l'air ; il y en avait au moins une centaine.
+Après une courte réflexion silencieuse, Wang Lin poussa un soupir et se dirigea vers le centre de la formation. Sa main droite plongea dans le vide, ouvrant une faille vers son espace de stockage. D'une simple pensée, les pierres qu'il avait rassemblées en chemin sortirent l'une après l'autre. Elles lévitaient dans l'air; il y en avait au moins une centaine.
 
 D'un geste de la main droite, Wang Lin dispersa ces pierres pour qu'elles se posent à des emplacements précis.
 
-En un instant, la formation s'illumina et commença lentement à s'activer. À mesure que la puissance s'éveillait, la neige qui tombait ne pouvait plus s'approcher ; elle était repoussée par la force de la formation.
+En un instant, la formation s'illumina et commença lentement à s'activer. À mesure que la puissance s'éveillait, la neige qui tombait ne pouvait plus s'approcher; elle était repoussée par la force de la formation.
 
-Wang Lin s'assit au sol et médita en silence. Sa main droite se tendit pour saisir une âme originelle dans son espace de stockage. Les yeux de cette âme originelle étaient clos ; elle était inconsciente.
+Wang Lin s'assit au sol et médita en silence. Sa main droite se tendit pour saisir une âme originelle dans son espace de stockage. Les yeux de cette âme originelle étaient clos; elle était inconsciente.
 
 Tenant l'âme originelle, Wang Lin forma un sceau de la main gauche et pointa l'âme à plusieurs reprises. L'âme originelle trembla à chaque contact, avant d'être finalement projetée en l'air par Wang Lin. Elle commença à s'étirer et à se tordre jusqu'à former un vortex.
 
-Le vortex sifflait et des cris déchirants en émanaient. À ce moment précis, la formation au sol s'activa pleinement et un rugissement remplaça le vent. La formation brilla intensément, mais sa lumière ne s'élança pas vers le ciel ; elle fut aspirée dans le vortex.
+Le vortex sifflait et des cris déchirants en émanaient. À ce moment précis, la formation au sol s'activa pleinement et un rugissement remplaça le vent. La formation brilla intensément, mais sa lumière ne s'élança pas vers le ciel; elle fut aspirée dans le vortex.
 
-Alors que des bruits d'éclatement résonnaient, le vortex semblait s'ouvrir sans fin. Assis là, les mains formant un sceau, Wang Lin déclara calmement : « Que l'âme serve de guide ! »
+Alors que des bruits d'éclatement résonnaient, le vortex semblait s'ouvrir sans fin. Assis là, les mains formant un sceau, Wang Lin déclara calmement: « Que l'âme serve de guide! »
 
 Une lumière sanglante jaillit immédiatement du vortex. Sous l'effet des paroles de Wang Lin, la lumière pénétra dans le tourbillon. Il semblait que toute la puissance de la formation y soit aspirée, se transformant en poussière. Même les pierres furent réduites en cendres.
 
@@ -58,17 +58,17 @@ Le vortex céleste cessa de tourner et se mit à scintiller. L'intérieur était
 
 Wang Lin se leva et pénétra dans le vortex. Il jeta un dernier regard vers le sol. Bien qu'il s'agisse d'une planète étrangère, elle appartenait toujours au Système Stellaire de l'Alliance. Ce lieu portait en lui l'aura de sa maison, de sa famille, de ses amis et de son histoire.
 
-« Je ne sais pas quand je pourrai revenir... Peut-être que je ne reviendrai jamais... Heureusement, le vent et la neige sont là pour m'escorter... Cela me suffit ! » Wang Lin afficha un regard amer avant de laisser éclater un rire. Il s'enfonça dans les profondeurs du vortex, qui finit par disparaître sans laisser de trace.
+« Je ne sais pas quand je pourrai revenir... Peut-être que je ne reviendrai jamais... Heureusement, le vent et la neige sont là pour m'escorter... Cela me suffit! » Wang Lin afficha un regard amer avant de laisser éclater un rire. Il s'enfonça dans les profondeurs du vortex, qui finit par disparaître sans laisser de trace.
 
 Le vortex avait quitté les plaines de cette planète abandonnée, mais son rire continuait de résonner. Ce rire fut lentement étouffé par la neige.
 
 La zone dévastée de 10 000 pieds sur la plaine fut peu à peu comblée par la neige. Tout comme les empreintes de Wang Lin, tout disparut...
 
-Les quatre grands Royaumes Célestes possédaient chacun un système stellaire sous leur autorité. Le Royaume Céleste de la Pluie possédait l'Alliance, qui ne comptait qu'un seul pays de cultivation de rang 9. Le Royaume Céleste du Tonnerre possédait Allheaven, qui abritait des lignées détenant des héritages de l'Antiquité. Ces environnements disparates faisaient que les méthodes de cultivation et les orientations des cultivateurs de chaque système étaient radicalement différentes. Bien qu'ils fussent tous des cultivateurs, le fossé entre eux était immense.
+Les quatre grands Royaumes Célestes possédaient chacun un système stellaire sous leur autorité. Le Royaume Céleste de la Pluie possédait l'Alliance, qui ne comptait qu'un seul pays de culture de rang 9. Le Royaume Céleste du Tonnerre possédait Allheaven, qui abritait des lignées détenant des héritages de l'Antiquité. Ces environnements disparates faisaient que les méthodes de culture et les orientations des cultivateurs de chaque système étaient radicalement différentes. Bien qu'ils fussent tous des cultivateurs, le fossé entre eux était immense.
 
-Contrairement aux règles strictes de l'Alliance, Allheaven offrait plus de liberté. Cependant, toute cette liberté pouvait être sacrifiée pour l'honneur de la famille !
+Contrairement aux règles strictes de l'Alliance, Allheaven offrait plus de liberté. Cependant, toute cette liberté pouvait être sacrifiée pour l'honneur de la famille!
 
-L'honneur primait sur tout !
+L'honneur primait sur tout!
 
 La Mer Nuageuse, sous le Royaume Céleste du Vent, était bien différente de ces systèmes...
 
@@ -84,13 +84,13 @@ Nul ne connaissait l'origine de cette brume. Ce voile qui emplissait la Mer Nuag
 
 Contrairement à Allheaven et à l'Alliance, divisés selon les points cardinaux, la Mer Nuageuse n'obéissait pas à cette logique. La brume rendait la détermination des directions exactes presque impossible pour les cultivateurs.
 
-Le brouillard ne permettait pas non plus une division géographique classique ; le système était plutôt structuré selon la concentration de la brume. De l'intérieur vers l'extérieur, il y avait un total de neuf rangs !
+Le brouillard ne permettait pas non plus une division géographique classique; le système était plutôt structuré selon la concentration de la brume. De l'intérieur vers l'extérieur, il y avait un total de neuf rangs!
 
 Ces neuf rangs formaient en réalité neuf anneaux de formes irrégulières. L'anneau le plus externe correspondait au rang 1, et le plus interne au rang 9.
 
 Le continent de Mo Luo se situait dans le cinquième rang du brouillard. De loin, le continent semblait apparaître et disparaître par intermittence. En son centre s'élevait une tour noire imposante qui dégageait une douce lueur enveloppant la terre. Cette lumière empêchait le brouillard de pénétrer sur le continent et le repoussait constamment, maintenant ainsi la zone environnante limpide.
 
-Il n'était pas vrai que le Système Stellaire de la Mer Nuageuse manquait de véritables planètes de cultivation ; elles étaient simplement très rares. La plupart se concentraient dans les zones de rang 7 ou supérieur, et il y en avait moins de cent au total.
+Il n'était pas vrai que le Système Stellaire de la Mer Nuageuse manquait de véritables planètes de culture; elles étaient simplement très rares. La plupart se concentraient dans les zones de rang 7 ou supérieur, et il y en avait moins de cent au total.
 
 En dessous du rang 7, on trouvait principalement ces continents flottants. Chaque continent représentait une secte différente.
 

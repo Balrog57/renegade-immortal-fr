@@ -6,11 +6,11 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 722 - Heaven Defying Beads Shocking Change
 slug: le-changement-stupefiant-de-la-perle-defiant-le-ciel
 ---
-L'homme aux cheveux noirs caressa la grosse tête de la Bête du Tonnerre, et ses yeux trahirent une lueur étrange tandis qu'il murmurait : « Je me demande quel genre de trésors apparaîtront dans le Royaume Céleste du Tonnerre. Je crains que les messagers du Temple Céleste du Tonnerre ne s'affrontent violemment ! »
+L'homme aux cheveux noirs caressa la grosse tête de la Bête du Tonnerre, et ses yeux trahirent une lueur étrange tandis qu'il murmurait: « Je me demande quel genre de trésors apparaîtront dans le Royaume Céleste du Tonnerre. Je crains que les messagers du Temple Céleste du Tonnerre ne s'affrontent violemment! »
 
 Il afficha une expression sombre, puis la Bête du Tonnerre sous lui se transforma en un éclair et s'élança vers l'horizon.
 
-« La rumeur dit que la mystérieuse Perle Défiant le Ciel est apparue pour la première fois dans les profondeurs du champ d'astéroïdes du domaine sud. En raison de son apparition, le tonnerre ici a changé et a créé ce lac de tonnerre. C'est désormais le meilleur endroit pour cultiver des sorts liés au tonnerre ! »
+« La rumeur dit que la mystérieuse Perle Défiant le Ciel est apparue pour la première fois dans les profondeurs du champ d'astéroïdes du domaine sud. En raison de son apparition, le tonnerre ici a changé et a créé ce lac de tonnerre. C'est désormais le meilleur endroit pour cultiver des sorts liés au tonnerre! »
 
 Les yeux de l'homme s'illuminèrent et il accéléra encore sa course.
 
@@ -18,9 +18,9 @@ Wang Lin se trouvait à l'intérieur du lac de tonnerre, murmurant sans cesse le
 
 Le sort d'origine du tonnerre utilisait une méthode mystérieuse pour extraire l'énergie originelle du tonnerre céleste et en faire sa propre énergie.
 
-Ce type de sort était extrêmement rare ; seuls des cultivateurs de la deuxième étape possédaient une telle technique. Elle était souvent considérée comme un trésor que l'on ne cédait pas à la légère.
+Ce type de sort était extrêmement rare; seuls des cultivateurs de la deuxième étape possédaient une telle technique. Elle était souvent considérée comme un trésor que l'on ne cédait pas à la légère.
 
-Cette méthode consistait à faire pénétrer le tonnerre dans le corps. Si le niveau de cultivation n'était pas assez élevé, cela revenait à s'infliger des blessures au propre corps. La moindre imprudence pouvait endommager son âme originelle et, dans les cas graves, entraîner sa destruction immédiate.
+Cette méthode consistait à faire pénétrer le tonnerre dans le corps. Si le niveau de culture n'était pas assez élevé, cela revenait à s'infliger des blessures au propre corps. La moindre imprudence pouvait endommager son âme originelle et, dans les cas graves, entraîner sa destruction immédiate.
 
 Cependant, cette méthode ne pouvait être plus adaptée à Wang Lin. Son âme originelle était faite de tonnerre et son nouveau corps était également composé de tonnerre. Aux yeux de la Bête du Tonnerre, l'être entier de Wang Lin n'était que du tonnerre.
 
@@ -42,21 +42,21 @@ Toutefois, Wang Lin n'avait aucune inquiétude à avoir. Sa chair et son âme or
 
 Après un long moment, le filament de tonnerre finit par s'effondrer sous l'effet du sort d'origine du tonnerre, ne laissant derrière lui qu'une infime trace d'énergie originelle impure. La quantité était si faible qu'il était impossible de la détecter sans regarder avec une extrême attention.
 
-Pourtant, Wang Lin chérissait cette trace comme un trésor et en était profondément ému. Pour un cultivateur de la première étape, l'énergie originelle était un luxe absolu. Seuls les Ascendants avaient l'opportunité d'en obtenir, et il était impossible d'en gagner ou d'en récupérer davantage !
+Pourtant, Wang Lin chérissait cette trace comme un trésor et en était profondément ému. Pour un cultivateur de la première étape, l'énergie originelle était un luxe absolu. Seuls les Ascendants avaient l'opportunité d'en obtenir, et il était impossible d'en gagner ou d'en récupérer davantage!
 
 Générer de l'énergie originelle à partir du monde nécessitait des sorts de cultivateurs de la deuxième étape. Sans une série de coïncidences fortuites, Wang Lin n'aurait jamais pu accomplir cela.
 
 Il réprima l'extase et l'excitation qui l'animaient et fit circuler avec précaution l'énergie originelle impure vers son âme originelle. Une fois là, les impuretés seraient raffinées. Bien que l'énergie originelle restante en soit encore moins grande, elle deviendrait utilisable.
 
-C'était un moment extrêmement critique ; Wang Lin n'osait donc faire preuve de la moindre négligence. Il contrôla lentement son énergie impure pour l'introduire dans son âme originelle.
+C'était un moment extrêmement critique; Wang Lin n'osait donc faire preuve de la moindre négligence. Il contrôla lentement son énergie impure pour l'introduire dans son âme originelle.
 
-Cependant, à cet instant précis, un changement soudain survint !
+Cependant, à cet instant précis, un changement soudain survint!
 
 Ce changement prit Wang Lin totalement au dépourvu, ne lui laissant pas le temps de réagir. Dès que la trace d'énergie originelle impure toucha son âme originelle, elle devint comme un cheval sauvage et s'agita violemment.
 
-Elle perça son âme originelle, mais au lieu de fusionner avec elle, elle se précipita vers l'endroit où se trouvait la Perle Défiant le Ciel !
+Elle perça son âme originelle, mais au lieu de fusionner avec elle, elle se précipita vers l'endroit où se trouvait la Perle Défiant le Ciel!
 
-Cette infime trace d'énergie impure fusionna instantanément avec la Perle Défiant le Ciel !
+Cette infime trace d'énergie impure fusionna instantanément avec la Perle Défiant le Ciel!
 
 Un rugissement tonitruant, inaudible pour ceux de l'extérieur mais parfaitement clair pour Wang Lin, résonna à l'intérieur de son corps. C'était comme s'il avait été frappé sans pitié par une montagne immense. Le visage de Wang Lin pâlit instantanément, son âme originelle fut secouée et même son corps se mit à trembler incessamment.
 
@@ -76,19 +76,19 @@ D'innombrables dragons de tonnerre sifflaient de toutes les directions, chargean
 
 La Perle Défiant le Ciel tourna lentement, absorbant une quantité massive de tonnerre à chaque rotation. Une lumière violette commença à se former autour de la perle.
 
-Wang Lin connaissait trop bien cette scène ; il y a peu de temps, exactement la même chose s'était produite.
+Wang Lin connaissait trop bien cette scène; il y a peu de temps, exactement la même chose s'était produite.
 
-La lumière violette devint aveuglante et se propagea soudainement. La mystérieuse restriction réapparut ! Au même moment, l'immense porte surgit devant les yeux de Wang Lin.
+La lumière violette devint aveuglante et se propagea soudainement. La mystérieuse restriction réapparut! Au même moment, l'immense porte surgit devant les yeux de Wang Lin.
 
 Tout cela était d'une bizarrerie telle que Wang Lin en fut profondément ébranlé.
 
-Il ignorait que la perle céleste était apparue ici pour la première fois ! Tous les changements mystérieux qui s'étaient produits dans ce lieu avaient été causés par l'apparition de la Perle Défiant le Ciel.
+Il ignorait que la perle céleste était apparue ici pour la première fois! Tous les changements mystérieux qui s'étaient produits dans ce lieu avaient été causés par l'apparition de la Perle Défiant le Ciel.
 
 Wang Lin s'était retrouvé ici par inadvertance, ramenant la perle à son lieu d'origine. On pouvait dire que le karma était à l'œuvre.
 
 Cependant, ce n'était pas totalement accidentel. En réalité, lorsque Wang Lin fut blessé et qu'il chercha cet endroit, ce ne fut pas seulement en raison des caractéristiques du dragon de tonnerre. Une raison plus occulte résidait dans la Perle Défiant le Ciel elle-même.
 
-La perle était la seule chose qui s'était fusionnée avec l'âme originelle de Wang Lin et n'existant plus physiquement, elle avait la capacité d'influencer son âme originelle. En fait, ce sentiment de confort provenait de la Perle Défiant le Ciel !
+La perle était la seule chose qui s'était fusionnée avec l'âme originelle de Wang Lin et n'existant plus physiquement, elle avait la capacité d'influencer son âme originelle. En fait, ce sentiment de confort provenait de la Perle Défiant le Ciel!
 
 Si cela s'était arrêté là, ce n'aurait pas été un problème. La Perle Défiant le Ciel incomplète n'ayant pas encore reconnu de maître, elle n'aurait subi aucun changement même si Wang Lin l'avait ramenée ici.
 
@@ -96,34 +96,34 @@ Cependant, lorsque les cinq éléments furent complets, la Perle Défiant le Cie
 
 Cette activation signifiait que la perle avait reconnu son propriétaire.
 
-Après cela, Wang Lin avait absorbé la Perle Défiant le Ciel et était venu ici. Au moment où elle toucha le tonnerre de ce lieu, le changement se produisit !
+Après cela, Wang Lin avait absorbé la Perle Défiant le Ciel et était venu ici. Au moment où elle toucha le tonnerre de ce lieu, le changement se produisit!
 
 Si l'un de ces facteurs avait manqué, la Perle Défiant le Ciel n'aurait pas changé ainsi. Depuis les innombrables années de son existence, Wang Lin était le seul à avoir atteint cette étape.
 
-La porte géante apparut de nouveau. La lumière violette fit que le monde entier et même le lac de tonnerre prirent une teinte pourpre. Le tonnerre lui-même devint un tonnerre violet !
+La porte géante apparut de nouveau. La lumière violette fit que le monde entier et même le lac de tonnerre prirent une teinte pourpre. Le tonnerre lui-même devint un tonnerre violet!
 
 L'apparition de la porte fit ressurgir ce sentiment d'effroi dans son corps. Bien qu'il l'eût déjà affronté une fois, son corps tremblait encore légèrement, mais son regard restait inflexible.
 
 Alors que la lumière violette inondait tout, le bras géant devant la porte réapparut. Mais cette fois, cela fit rater un battement au cœur de Wang Lin.
 
-Dès l'apparition du bras, une immense quantité d'éclairs violets chargea vers lui. D'innombrables filaments de tonnerre enveloppèrent le bras comme s'ils l'avaient asservi !
+Dès l'apparition du bras, une immense quantité d'éclairs violets chargea vers lui. D'innombrables filaments de tonnerre enveloppèrent le bras comme s'ils l'avaient asservi!
 
 Les yeux de Wang Lin s'illuminèrent et il fixa le bras. Après avoir réfléchi un instant, il serra les dents, bondit dans les airs et chargea vers la porte géante.
 
-Si ce bras n'était pas verrouillé par le tonnerre, Wang Lin n'aurait jamais choisi d'entrer. Cependant, il sentait que s'il manquait cette chance unique, il ne pourrait plus jamais découvrir le secret qui se cachait derrière la porte !
+Si ce bras n'était pas verrouillé par le tonnerre, Wang Lin n'aurait jamais choisi d'entrer. Cependant, il sentait que s'il manquait cette chance unique, il ne pourrait plus jamais découvrir le secret qui se cachait derrière la porte!
 
-Bien que sa vitesse fût insuffisante, il se laissa une issue de secours : si le bras se libérait du tonnerre, il ferait immédiatement demi-tour pour fuir !
+Bien que sa vitesse fût insuffisante, il se laissa une issue de secours: si le bras se libérait du tonnerre, il ferait immédiatement demi-tour pour fuir!
 
-Il se rapprochait de plus en plus !
+Il se rapprochait de plus en plus!
 
 Le bras commença à bouger, mais le tonnerre qui l'entourait agissait comme une chaîne métallique le retenant. Cela ralentit sa progression.
 
-Les yeux de Wang Lin brillèrent alors qu'il augmentait sa vitesse, chargeant vers la porte tel un éclair. Au moment où il fut tout près, la porte s'entrouvrit légèrement !
+Les yeux de Wang Lin brillèrent alors qu'il augmentait sa vitesse, chargeant vers la porte tel un éclair. Au moment où il fut tout près, la porte s'entrouvrit légèrement!
 
 À l'instant même où l'ouverture se forma, le monde s'arrêta...
 
-Le corps de Wang Lin s'immobilisa également devant l'ouverture. Ses yeux s'écarquillèrent et, à cet instant, ce fut comme si son esprit était aspiré dans la porte !
+Le corps de Wang Lin s'immobilisa également devant l'ouverture. Ses yeux s'écarquillèrent et, à cet instant, ce fut comme si son esprit était aspiré dans la porte!
 
-Tout ce que Wang Lin vit le fit trembler violemment !
+Tout ce que Wang Lin vit le fit trembler violemment!
 
 C'était comme si son âme originelle avait quitté son corps, car il ne pouvait plus rien ressentir de sa propre existence. Tout son être semblait plongé dans un chaos infini...

@@ -6,11 +6,11 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 822 - Two Sticks of Incense
 slug: deux-batons-dencens
 ---
-Tenant l'âme originelle de l'homme d'âge moyen, Wang Lin regarda froidement les deux individus qui fuyaient dans des directions opposées. Il ne les poursuivit pas personnellement, mais une ombre surgit derrière lui : Ta Shan s'élança pour les traquer.
+Tenant l'âme originelle de l'homme d'âge moyen, Wang Lin regarda froidement les deux individus qui fuyaient dans des directions opposées. Il ne les poursuivit pas personnellement, mais une ombre surgit derrière lui: Ta Shan s'élança pour les traquer.
 
 Il n'y eut aucune difficulté à éliminer ces deux cultivateurs de l'Yin Illusoire terrifiés, grâce au corps céleste de Garde Corporelle Yang de Ta Shan.
 
-« Aîné, ayez pitié ; la cultivation de ce junior n'a pas été facile à acquérir. Aîné, pardonnez-moi... » L'homme d'âge moyen était mort de peur. Son âme originelle implorait sans cesse la clémence dans la main de Wang Lin.
+« Aîné, ayez pitié; la culture de ce junior n'a pas été facile à acquérir. Aîné, pardonnez-moi... » L'homme d'âge moyen était mort de peur. Son âme originelle implorait sans cesse la clémence dans la main de Wang Lin.
 
 L'expression de Wang Lin resta glaciale tandis qu'il pressait sa main gauche sur l'âme originelle de l'homme. L'énergie originelle afflua dans sa paume et il commença à fouiller les souvenirs de l'âme.
 
@@ -20,11 +20,11 @@ Il sentait clairement que son âme était violemment sondée par une main gigant
 
 Sous le joug de cette souffrance, un regret infini l'envahit. Ce regret se propagea lentement à travers son âme originelle, provoquant sa dissipation progressive.
 
-Parfois, des milliers d'années de cultivation pouvaient s'évanouir en poussière à cause d'un seul mauvais choix...
+Parfois, des milliers d'années de culture pouvaient s'évanouir en poussière à cause d'un seul mauvais choix...
 
 Lorsque Wang Lin eut extrait les souvenirs de l'homme, son regard devint plus glacial encore. À cet instant, il était comme une épée à moitié dégainée, une intention meurtrière monstrueuse s'accumulant en lui.
 
-Wang Lin murmura : « Ainsi en est-il ! »
+Wang Lin murmura: « Ainsi en est-il! »
 
 À ce moment-là, des bruits de craquement provinrent du lointain. À son retour, Ta Shan tenait dans chaque main une âme originelle et un sac.
 
@@ -36,7 +36,7 @@ Quant aux sacs des trois hommes, Wang Lin les inspecta et y trouva quelques tré
 
 La puissance d'un corps de Garde Céleste provenait principalement de rares trésors célestes mentionnés dans le jade céleste. Cependant, ces trésors avaient disparu depuis bien longtemps.
 
-Wang Lin ne pouvait donc que faire au mieux : il extrayait divers trésors pour s'en servir de matériaux afin de rendre la Garde Céleste de plus en plus puissante.
+Wang Lin ne pouvait donc que faire au mieux: il extrayait divers trésors pour s'en servir de matériaux afin de rendre la Garde Céleste de plus en plus puissante.
 
 Il y avait également deux morceaux de jade dans leurs sacs. D'après leurs souvenirs, ces jades servaient à contacter la famille Yao. On pouvait dire que la famille Yao avait déployé des forces considérables pour s'en prendre à lui.
 
@@ -44,23 +44,23 @@ Presque chaque cultivateur du Système Stellaire d'Allheaven ayant atteint la de
 
 Tenant les deux jades, l'expression de Wang Lin devint sombre. Il scruta l'horizon.
 
-« Yao... Les chefs des quatre grandes familles. Pour quelle raison me traquent-ils ? » Wang Lin réfléchissait silencieusement.
+« Yao... Les chefs des quatre grandes familles. Pour quelle raison me traquent-ils? » Wang Lin réfléchissait silencieusement.
 
 Il nourrissait de nombreux griefs contre les quatre grandes familles, particulièrement la famille Yao. Non seulement il y avait eu l'affaire de l'Ancêtre de Sang, mais aussi l'incident avec le jeune maître de la famille Yao, sans oublier l'affaire du Pavillon des Collections.
 
-« Ce ne devrait pas être l'Ancêtre de Sang... Il connaît mon vrai nom ; si cela venait de lui, le nom sur l'Ordre Céleste ne serait pas "Xu Mu", mais "Wang Lin". »
+« Ce ne devrait pas être l'Ancêtre de Sang... Il connaît mon vrai nom; si cela venait de lui, le nom sur l'Ordre Céleste ne serait pas "Xu Mu", mais "Wang Lin". »
 
-« Cependant, il est possible que puisque mon vrai nom n'a jamais été utilisé et que le nom de Xu Mu est bien plus connu, la famille Yao ait décidé d'utiliser Xu Mu pour l'Ordre Céleste ! »
+« Cependant, il est possible que puisque mon vrai nom n'a jamais été utilisé et que le nom de Xu Mu est bien plus connu, la famille Yao ait décidé d'utiliser Xu Mu pour l'Ordre Céleste! »
 
 « De même, le jeune maître de la famille Yao qui voulait tuer Li Yun est également mort de ma main. Avec la puissance de la famille Yao, ils doivent posséder des sorts leur permettant de connaître le décès de leurs membres. »
 
-« Il est peu probable que ce soit dû au Pavillon des Collections ; l'effondrement du Royaume Céleste du Tonnerre rend cela fort improbable. » Tandis qu'il méditait, son cœur était empreint d'une intention meurtrière.
+« Il est peu probable que ce soit dû au Pavillon des Collections; l'effondrement du Royaume Céleste du Tonnerre rend cela fort improbable. » Tandis qu'il méditait, son cœur était empreint d'une intention meurtrière.
 
-« L'Ordre Céleste... Cela me rappelle l'Ordre de Cent Jours des Dix Mille Démons ! » Les yeux de Wang Lin s'illuminèrent et il s'élança.
+« L'Ordre Céleste... Cela me rappelle l'Ordre de Cent Jours des Dix Mille Démons! » Les yeux de Wang Lin s'illuminèrent et il s'élança.
 
 Il se transforma en météore et fendit la voûte étoilée.
 
-« La famille Yao est trop vaste, il n'y a donc aucun endroit sûr dans le Système Stellaire d'Allheaven... De plus, il existe certainement des individus aussi puissants, voire plus que l'Ancêtre de Sang ! » Wang Lin fronça les sourcils, le cœur assombri.
+« La famille Yao est trop vaste, il n'y a donc aucun endroit sûr dans le Système Stellaire d'Allheaven... De plus, il existe certainement des individus aussi puissants, voire plus que l'Ancêtre de Sang! » Wang Lin fronça les sourcils, le cœur assombri.
 
 En volant, des ondulations apparurent sous ses pieds. La moitié de son corps fusionnait avec le monde, mais il n'utilisait pas la Déviation Spatiale. Il maintint cet état pour poursuivre sa route.
 
@@ -72,39 +72,39 @@ Simultanément, sept autres faisceaux de lumière surgirent de la gauche et de l
 
 Sept autres rayons de lumière accoururent également de derrière lui.
 
-Tout semblait bloqué. Le regard de Wang Lin devint glacial et il murmura : « Entre la réception de l'information et maintenant, seul le temps de la combustion de deux bâtons d'encens s'est écoulé. Il semble que les membres de la famille Yao soient dispersés à travers tout le Système Stellaire d'Allheaven ! »
+Tout semblait bloqué. Le regard de Wang Lin devint glacial et il murmura: « Entre la réception de l'information et maintenant, seul le temps de la combustion de deux bâtons d'encens s'est écoulé. Il semble que les membres de la famille Yao soient dispersés à travers tout le Système Stellaire d'Allheaven! »
 
 Le corps de Wang Lin ne bougea pas. Il balaya l'assemblée du regard et ses yeux se plissèrent.
 
-« Je me trompe ; ils ne peuvent pas tous être de la famille Yao, sinon elle serait bien trop nombreuse. Il est probable que la famille Yao ait envoyé ses membres à travers le Système Stellaire, puis qu'ils aient contacté les planètes de cultivation voisines pour me débusquer rapidement ! »
+« Je me trompe; ils ne peuvent pas tous être de la famille Yao, sinon elle serait bien trop nombreuse. Il est probable que la famille Yao ait envoyé ses membres à travers le Système Stellaire, puis qu'ils aient contacté les planètes de culture voisines pour me débusquer rapidement! »
 
-Après avoir confirmé ses soupçons, l'intention meurtrière envahit Wang Lin qui grommela : « Cela faisait longtemps que je n'avais pas massacré personne... Je ne peux peut-être pas tuer les anciens, mais je tuerai les jeunes dès qu'ils se présenteront ! »
+Après avoir confirmé ses soupçons, l'intention meurtrière envahit Wang Lin qui grommela: « Cela faisait longtemps que je n'avais pas massacré personne... Je ne peux peut-être pas tuer les anciens, mais je tuerai les jeunes dès qu'ils se présenteront! »
 
 L'intention meurtrière satura le corps de Wang Lin. Il n'avait jamais été un homme de bien. À cet instant, il était entouré de vingt-huit cultivateurs également portés par une soif de sang. Il était clair qu'ils étaient venus pour l'exécuter.
 
-D'un simple balayage de son Sens Divin, Wang Lin perçut clairement le niveau de cultivation des vingt-huit adversaires. Les sept sur la gauche étaient les plus faibles !
+D'un simple balayage de son Sens Divin, Wang Lin perçut clairement le niveau de culture des vingt-huit adversaires. Les sept sur la gauche étaient les plus faibles!
 
 Parmi ces sept rayons de lumière, quatre étaient des cultivateurs du Yin Illusoire et les trois restants étaient des cultivateurs au sommet de l'Ascendant, tous fonçant vers lui avec une intention meurtrière. Les ondulations autour de Wang Lin se propagèrent sur son corps alors qu'il fit un pas à gauche, le visage impassible.
 
 En un instant, la silhouette de Wang Lin disparut, provoquant un changement immédiat dans les expressions des cultivateurs qui le suivaient du regard. Au même moment, une ondulation apparut près des sept rayons de lumière de gauche, là où Wang Lin venait d'émerger.
 
-Dès son apparition, il leva deux doigts comme une épée et frappa impitoyablement !
+Dès son apparition, il leva deux doigts comme une épée et frappa impitoyablement!
 
 Un Coup Céleste surgit soudainement, fonçant tel une lame invisible. Les trois cultivateurs Ascendant au sommet poussèrent instantanément des gémissements de douleur alors que leurs corps s'effondraient, sans vie.
 
 Des bruits de craquements retentirent et un épais nuage de sang enveloppa la zone. Les expressions des quatre survivants changèrent radicalement et ils tentèrent immédiatement de se disperser. Cependant, aux yeux de Wang Lin, qui était au stade du Yang Corporel, ils étaient trop lents.
 
-Ses yeux brûlaient d'intention meurtrière alors qu'il pourchassait l'un des cultivateurs du Yin Illusoire. Il s'agissait d'un homme d'âge moyen. Face à la poursuite de Wang Lin, il afficha un regard féroce. Sa main traça un sceau et l'énergie originelle de son corps jaillit ; il s'apprêtait à lancer un sortilège.
+Ses yeux brûlaient d'intention meurtrière alors qu'il pourchassait l'un des cultivateurs du Yin Illusoire. Il s'agissait d'un homme d'âge moyen. Face à la poursuite de Wang Lin, il afficha un regard féroce. Sa main traça un sceau et l'énergie originelle de son corps jaillit; il s'apprêtait à lancer un sortilège.
 
 Wang Lin eut un sourire narquois. Son corps vacilla et il pointa le doigt vers l'avant. L'homme d'âge moyen s'immobilisa brusquement, laissant Wang Lin charger. Le pied de Wang Lin s'écrasa sur le front de l'homme comme s'il l'utilisait comme un tremplin.
 
 Un fracas retentit, le corps de l'homme explosa et son âme originelle s'échappa en panique. Cependant, une brume noire jaillit du drapeau d'âmes que Wang Lin avait sorti et enveloppa l'âme.
 
-Tout cela se produisit en un éclair : Wang Lin avait déjà tué quatre personnes !
+Tout cela se produisit en un éclair: Wang Lin avait déjà tué quatre personnes!
 
 L'odeur du sang imprégna l'air. À cet instant, les trois autres groupes s'approchèrent rapidement de lui. Des cris et des rugissements emplirent le ciel étoilé tandis que divers trésors magiques et sorts étaient déchaînés contre lui.
 
-Les attaques les plus puissantes provenaient de trois individus. C'étaient des hommes âgés dont la cultivation n'était pas inférieure à celle de Wang Lin. L'un d'eux était même légèrement au-dessus de lui, ayant atteint le sommet du stade du Yang Corporel.
+Les attaques les plus puissantes provenaient de trois individus. C'étaient des hommes âgés dont la culture n'était pas inférieure à celle de Wang Lin. L'un d'eux était même légèrement au-dessus de lui, ayant atteint le sommet du stade du Yang Corporel.
 
 Quelle que soit la force de Wang Lin, si les assauts de plus de vingt cultivateurs l'atteignaient, il serait gravement blessé, sinon mort. Pourtant, son regard restait calme. Ses yeux étaient glacials et l'intention meurtrière en lui ne cessait de croître.
 
@@ -118,6 +118,6 @@ Le corps du cultivateur s'effondra dans un fracas. Dès que son âme originelle 
 
 Tout s'était passé trop vite. Lorsque les cultivateurs environnants réagirent, Wang Lin s'était déjà volatilisé.
 
-Wang Lin avait entrevu le chemin vers la troisième étape et maîtrisait la Déviation Spatiale. Il pouvait être totalement invincible dans un tel combat !
+Wang Lin avait entrevu le chemin vers la troisième étape et maîtrisait la Déviation Spatiale. Il pouvait être totalement invincible dans un tel combat!
 
-C'était ainsi que le Seigneur Céleste Qing Shui luttait contre des centaines de cultivateurs sans subir le moindre dommage. Wang Lin avait réussi à apprendre cette technique de lui !
+C'était ainsi que le Seigneur Céleste Qing Shui luttait contre des centaines de cultivateurs sans subir le moindre dommage. Wang Lin avait réussi à apprendre cette technique de lui!

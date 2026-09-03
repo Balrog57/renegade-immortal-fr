@@ -6,23 +6,23 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 466 - Tuo Sens Killing Intent
 slug: lintention-meurtriere-de-tuo-sen
 ---
-Une fois que Qian Feng eut fini de parler, il brandit son épée. Une aura primordiale s'en dégagea ; une aura qui semblait émaner d'un esprit primordial.
+Une fois que Qian Feng eut fini de parler, il brandit son épée. Une aura primordiale s'en dégagea; une aura qui semblait émaner d'un esprit primordial.
 
 Dès l'apparition de l'épée de fer, même Zhuque Zi et Yunque Zi, qui se livraient à un combat au loin, furent stupéfaits.
 
 Les yeux de Wang Lin s'illuminèrent alors qu'il fixait intensément l'épée de fer. Pour être plus précis, il scrutait la rouille qui la recouvrait.
 
-« Il y a plusieurs gouttes de sang séché sur cette épée qui dégagent une aura très familière... le sang d'un Dieu Ancien ! C'est du véritable sang de Dieu Ancien, bien supérieur à l'aura émanant du sang du Clan des Démons Géants ! » Les yeux de Wang Lin brillèrent alors qu'il observait les taches de rouille.
+« Il y a plusieurs gouttes de sang séché sur cette épée qui dégagent une aura très familière... le sang d'un Dieu Ancien! C'est du véritable sang de Dieu Ancien, bien supérieur à l'aura émanant du sang du Clan des Démons Géants! » Les yeux de Wang Lin brillèrent alors qu'il observait les taches de rouille.
 
-« Ce n'est pas possible ! Comment un Dieu Ancien aurait-il pu être blessé si facilement ? Cette épée ne peut absolument pas être ordinaire ! » Le regard de Wang Lin devint sérieux et, cette fois, il fixa l'arme elle-même.
+« Ce n'est pas possible! Comment un Dieu Ancien aurait-il pu être blessé si facilement? Cette épée ne peut absolument pas être ordinaire! » Le regard de Wang Lin devint sérieux et, cette fois, il fixa l'arme elle-même.
 
-Au moment où l'épée de fer apparut, une silhouette émergea de la mer. Personne n'avait remarqué son apparition ; c'était comme s'il était devenu totalement invisible.
+Au moment où l'épée de fer apparut, une silhouette émergea de la mer. Personne n'avait remarqué son apparition; c'était comme s'il était devenu totalement invisible.
 
-C'était l'homme portant le masque. Ses yeux brillaient d'une lumière mystérieuse alors qu'il fixait l'épée de fer en murmurant : « C'est donc... »
+C'était l'homme portant le masque. Ses yeux brillaient d'une lumière mystérieuse alors qu'il fixait l'épée de fer en murmurant: « C'est donc... »
 
 Qian Feng avait été contraint d'utiliser cette épée. Elle était le plus grand secret de sa famille. Elle appartenait à l'ancien Suzaku, qui l'avait mystérieusement découverte et cachée secrètement au sein de la famille Qian.
 
-Lorsqu'il avait légué l'épée, l'ancien Suzaku avait déclaré : « Avec ma cultivation actuelle, je ne peux percer les secrets de cette épée. Générations futures, à moins qu'une catastrophe ne menace de détruire votre lignée, vous ne devez jamais l'utiliser ! »
+Lorsqu'il avait légué l'épée, l'ancien Suzaku avait déclaré: « Avec ma culture actuelle, je ne peux percer les secrets de cette épée. Générations futures, à moins qu'une catastrophe ne menace de détruire votre lignée, vous ne devez jamais l'utiliser! »
 
 Après que Qian Feng fut devenu le disciple de Zhuque Zi et juste avant la guerre contre le Clan des Immortels Délaissés, il s'était rendu secrètement sur le lieu où l'épée de fer était dissimulée pour s'en emparer.
 
@@ -36,13 +36,13 @@ La silhouette avait transpercé le cercle, laissant derrière elle une large br�
 
 Lorsque Wang Lin vit cette silhouette, son expression changea et il recula. Cependant, à cet instant précis, des vagues de rires sinistres émanèrent de la figure, d'où surgit une forme rougeoyante.
 
-Dès son apparition, l'individu agita nonchalamment la main vers Wang Lin. Ce dernier cracha une large bouchée de sang et son corps fut projeté comme une météorite. Il ne s'arrêta que dix mille pieds plus loin, où il vomit une nouvelle fois du sang, cette fois mêlé à des fragments de ses propres organes internes.
+Dès son apparition, l'individu agita nonchalamment la main vers Wang Lin. Ce dernier cracha une large bouchée de sang et son corps fut projeté comme une météorite. Il ne s'arrêta que 33 kilomètres plus loin, où il vomit une nouvelle fois du sang, cette fois mêlé à des fragments de ses propres organes internes.
 
 La figure rouge se mua en un homme aux cheveux rouges au corps semi-transparent, et à l'intérieur de ce corps se trouvait un petit singe.
 
 Des rayons de lumière rouge émanaient du petit singe pour donner forme à cette silhouette.
 
-Le cœur de Wang Lin se serra d'amertume lorsqu'il lâcha : « Tuo Sen ! »
+Le cœur de Wang Lin se serra d'amertume lorsqu'il lâcha: « Tuo Sen! »
 
 La silhouette bougea de nouveau et atteignit Qian Feng. Il tendit la main pour le projeter au loin, ce qui provoqua l'activation automatique de la Formation Suzaku pour tenter de l'arrêter.
 
@@ -52,11 +52,11 @@ Le visage de Qian Feng devint subitement livide. La destruction de la Formation 
 
 Après avoir projeté Qian Feng, la silhouette saisit l'épée de fer.
 
-Après un examen attentif, il se mit à rire follement : « C'est donc cela ! Le sang sur cette épée appartient à un membre de mon clan de rang neuf étoiles. Parfait ! Avec ceci et le Cristal de Planète de Cultivation, je suis certain à cent pour cent de pouvoir m'échapper ! »
+Après un examen attentif, il se mit à rire follement: « C'est donc cela! Le sang sur cette épée appartient à un membre de mon clan de rang neuf étoiles. Parfait! Avec ceci et le Cristal de Planète de Culture, je suis certain à cent pour cent de pouvoir m'échapper! »
 
 Wang Lin prit une profonde inspiration et tendit la main droite. Le Drapeau des Âmes d'un Milliard apparut dans sa paume et, d'un seul mouvement, tous les fragments d'âme environnants furent aspirés vers lui. La hache et les fourreaux volèrent également vers lui sous son commandement.
 
-La silhouette regarda Wang Lin avec un sourire de prédateur et dit : « Petit morveux, attends que j'obtienne le Cristal de Planète de Cultivation, et je reviendrai régler tes comptes ! »
+La silhouette regarda Wang Lin avec un sourire de prédateur et dit: « Petit morveux, attends que j'obtienne le Cristal de Planète de Culture, et je reviendrai régler tes comptes! »
 
 Sur ces mots, il passa sa main sur l'épée. La rouille commença à s'agiter comme si elle était vivante pour finir par former une goutte de sang rouge sombre.
 
@@ -68,19 +68,19 @@ Qian Feng, bien que gravement blessé par sa chute, réussit à stabiliser son c
 
 Les yeux de Wang Lin brillèrent. Il agita le drapeau dans sa main et se laissa envelopper par celui-ci pour charger vers Qian Feng.
 
-Wang Lin pensa : « Je dois utiliser la vie de Qian Feng pour échanger mon fragment d'âme, puis quitter le Tombeau de Suzaku à toute vitesse ! » Sa vitesse atteignit son paroxysme alors qu'il se précipitait sur sa proie. Qian Feng fut capturé par les innombrables fragments d'âme et entraîné par Wang Lin.
+Wang Lin pensa: « Je dois utiliser la vie de Qian Feng pour échanger mon fragment d'âme, puis quitter le Tombeau de Suzaku à toute vitesse! » Sa vitesse atteignit son paroxysme alors qu'il se précipitait sur sa proie. Qian Feng fut capturé par les innombrables fragments d'âme et entraîné par Wang Lin.
 
 Le corps de Wang Lin apparut devant Qian Feng et il pointa son doigt entre les sourcils de ce dernier.
 
 Le visage de Qian Feng était pâle et ses yeux brillaient d'une lueur de folie. Sa Formation Suzaku était détruite, son épée de fer lui avait été dérobée, son trésor était brisé et sa force vitale s'étiolait. Gravement blessé et affaibli, il se savait désormais à la merci de Wang Lin, condamné à une mort sans sépulture.
 
-« Même si je meurs, je t'emmènerai avec moi ! » Les yeux de Qian Feng étaient emplis de démence ; il était prêt à s'autodétruire.
+« Même si je meurs, je t'emmènerai avec moi! » Les yeux de Qian Feng étaient emplis de démence; il était prêt à s'autodétruire.
 
-Les yeux de Wang Lin s'illuminèrent et il murmura : « Fragment d'âme ! »
+Les yeux de Wang Lin s'illuminèrent et il murmura: « Fragment d'âme! »
 
 Le symbole violet gravé dans son esprit se mit immédiatement à briller, apparaissant entre lui et Qian Feng.
 
-*Pour extraire votre fragment d'âme du Cristal de Planète de Cultivation, vous devez sacrifier une vie en échange.*
+*Pour extraire votre fragment d'âme du Cristal de Planète de Culture, vous devez sacrifier une vie en échange.*
 
 À cet instant précis, alors que Qian Feng était sur le point d'exploser, il poussa un cri déchirant et ses yeux s'éteignirent. Le symbole violet émit une lueur démoniaque et deux fragments d'âme apparurent à sa surface.
 
@@ -92,7 +92,7 @@ Le corps de Wang Lin se mit à trembler. Il sentait une présence nouvelle en lu
 
 À l'inverse, Qian Feng, dont le regard s'était éteint, mourut avant même de pouvoir exploser. Quatre rayons de lumière jaillirent de son front avant de disparaître.
 
-Ces quatre rayons étaient les esprits élémentaires que Qian Feng avait dévorés chez Red Butterfly.
+Ces quatre rayons étaient les esprits élémentaires que Qian Feng avait dévorés chez Papillon Rouge.
 
 Le regard de Wang Lin devint glacial. D'un geste de la main, il captura l'un des esprits élémentaires tandis que les trois autres se dissipaient.
 
@@ -102,9 +102,9 @@ Zhuo Wutai et Zi Xin observaient la scène à distance. Ils échangèrent un reg
 
 La haine dans les yeux de Zi Xin s'évanouit. Elle regarda le corps de Qian Feng sombrer et se mit à rire d'un rire d'une monstruosité absolue.
 
-« Qian Feng ! » Les yeux de Zi Xin devinrent froids ; elle s'assit rapidement et ses mains formèrent un sceau mystérieux. Simultanément, des éclairs de lumière jaillirent de son front et plusieurs cultivateurs marion apparurent pour assurer sa protection.
+« Qian Feng! » Les yeux de Zi Xin devinrent froids; elle s'assit rapidement et ses mains formèrent un sceau mystérieux. Simultanément, des éclairs de lumière jaillirent de son front et plusieurs cultivateurs marion apparurent pour assurer sa protection.
 
-« Un fourneau de cultivation... en fin de compte, qui est le fourneau de qui... Wang Lin, tu n'as toujours pas compris... En tuant Qian Feng, tu as exaucé le vœu de Zi Xin ! Hélas, même moi, j'ignore quel genre de sort Yunque Zi a utilisé. Un tel sort est inouï... c'est tout simplement trop étrange. Même avec un fragment de l'héritage du Dragon Vert qui s'est éveillé en moi, je n'ai aucun souvenir d'une telle technique... » Zhuo Wutai afficha une expression complexe en observant Zi Xin.
+« Un fourneau de culture... en fin de compte, qui est le fourneau de qui... Wang Lin, tu n'as toujours pas compris... En tuant Qian Feng, tu as exaucé le vœu de Zi Xin! Hélas, même moi, j'ignore quel genre de sort Yunque Zi a utilisé. Un tel sort est inouï... c'est tout simplement trop étrange. Même avec un fragment de l'héritage du Dragon Vert qui s'est éveillé en moi, je n'ai aucun souvenir d'une telle technique... » Zhuo Wutai afficha une expression complexe en observant Zi Xin.
 
 Zi Xin dégageait alors une lumière arc-en-ciel et une aura puissante emplissait son corps. Cette aura était très similaire à celle de Qian Feng.
 
@@ -112,17 +112,17 @@ Wang Lin, enveloppé par le drapeau des âmes, s'apprêtait à s'extirper de cet
 
 Mais soudain, un bruit assourdissant retentit depuis la brume rouge libérée par Zhuque Zi. Une seconde plus tard, la silhouette d'Yunque Zi fut projetée hors de la brume. Du sang coulait de sa bouche, son regard était trouble et, lors de son atterrissage, il faillit s'effondrer.
 
-Au même moment, Zhuque Zi fut également expulsé. Son expression était affreuse. La vitalité qu'il affichait avait disparu ; il était désormais enveloppé d'une aura mortelle, la bouche pleine de sang.
+Au même moment, Zhuque Zi fut également expulsé. Son expression était affreuse. La vitalité qu'il affichait avait disparu; il était désormais enveloppé d'une aura mortelle, la bouche pleine de sang.
 
 Un rire dément résonna depuis l'intérieur de la brume rouge. Peu après, celle-ci se dissipa, révélant la silhouette rouge de Tuo Sen tenant le cristal blanc. Ses yeux projetaient une lueur écarlate.
 
-« Une fois libéré, je vous ferai goûter à ma véritable force ! » Tandis que Tuo Sen riait, son corps se changea en un éclair de foudre et chargea vers Wang Lin.
+« Une fois libéré, je vous ferai goûter à ma véritable force! » Tandis que Tuo Sen riait, son corps se changea en un éclair de foudre et chargea vers Wang Lin.
 
-« Wang Lin ! C'est maintenant ton tour ! » La voix de Tuo Sen était glaciale et, lorsqu'elle atteignit les oreilles de Wang Lin, elle le fit sursauter. Wang Lin, toujours protégé par le drapeau des âmes, tentait de s'enfuir rapidement.
+« Wang Lin! C'est maintenant ton tour! » La voix de Tuo Sen était glaciale et, lorsqu'elle atteignit les oreilles de Wang Lin, elle le fit sursauter. Wang Lin, toujours protégé par le drapeau des âmes, tentait de s'enfuir rapidement.
 
 Cependant, la vitesse de Tuo Sen était bien supérieure.
 
-En un clin d'œil, il rattrapa Wang Lin. Sa voix lugubre lui emboîta les mots :
+En un clin d'œil, il rattrapa Wang Lin. Sa voix lugubre lui emboîta les mots:
 
 « Tu ne peux pas t'échapper, Wang Lin. J'ai attendu si longtemps pour dévorer ton héritage d'intelligence... »
 
@@ -130,8 +130,8 @@ Le visage de Wang Lin s'assombrit. Il agita la main et la hache apparut dans sa 
 
 Un rayon d'énergie de hache, large de plusieurs centaines de pieds et saturé d'énergie spirituelle céleste, jaillit. Cette attaque semblait capable de fendre les cieux eux-mêmes.
 
-Pourtant, les yeux de la silhouette de Tuo Sen virèrent au rouge ; il leva la main et pointa doucement le rayon d'énergie, provoquant son effondrement immédiat.
+Pourtant, les yeux de la silhouette de Tuo Sen virèrent au rouge; il leva la main et pointa doucement le rayon d'énergie, provoquant son effondrement immédiat.
 
-Wang Lin recula précipitamment. Le visage totalement pâle, il rangea la hache, sortit le drapeau des âmes, le secoua et ordonna : « Fusion ! »
+Wang Lin recula précipitamment. Le visage totalement pâle, il rangea la hache, sortit le drapeau des âmes, le secoua et ordonna: « Fusion! »
 
 À cet instant, tous les fragments d'âme, à l'exception de ceux poursuivant Liu Mei, commencèrent une fusion frénétique. La vitesse fut telle que le processus fut achevé en un instant.

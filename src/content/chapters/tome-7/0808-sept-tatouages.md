@@ -6,9 +6,9 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 808 - Seven Tattoos
 slug: sept-tatouages
 ---
-C'était le dernier Char de Guerre Anti-Dieu que Wang Lin possédait, et aussi le plus puissant. Son dessein était de forger un trésor assez redoutable pour terrasser un dieu !
+C'était le dernier Char de Guerre Anti-Dieu que Wang Lin possédait, et aussi le plus puissant. Son dessein était de forger un trésor assez redoutable pour terrasser un dieu!
 
-Une pression écrasante émanait du Char de Guerre Anti-Dieu qui trônait devant lui. Les pointes qui jaillissaient du char dégageaient une aura ancestrale, et son apparence féroce suffisait à semer la terreur dans les cœurs. À l'époque, Wang Lin avait failli s'effondrer sous une telle pression ; il n'avait pas osé l'utiliser et s'était contenté d'utiliser le sort hérité pour le sceller.
+Une pression écrasante émanait du Char de Guerre Anti-Dieu qui trônait devant lui. Les pointes qui jaillissaient du char dégageaient une aura ancestrale, et son apparence féroce suffisait à semer la terreur dans les cœurs. À l'époque, Wang Lin avait failli s'effondrer sous une telle pression; il n'avait pas osé l'utiliser et s'était contenté d'utiliser le sort hérité pour le sceller.
 
 Cependant, aujourd'hui, Wang Lin se tenait calmement aux côtés du Char de Guerre Anti-Dieu. Au cours de ces centaines d'années, il avait énormément progressé.
 
@@ -20,21 +20,21 @@ Toutes les pointes diffusèrent une lueur noire avant de fusionner entre elles. 
 
 Sous les yeux de Wang Lin, la lumière noire se condensa pour former sept runes vacillantes.
 
-En contemplant ces sept runes au cœur de la lueur sombre, Wang Lin se remémora les paroles laissées par le créateur du Char de Guerre Anti-Dieu :
+En contemplant ces sept runes au cœur de la lueur sombre, Wang Lin se remémora les paroles laissées par le créateur du Char de Guerre Anti-Dieu:
 
-« Le troisième Char de Guerre Anti-Dieu est d'une puissance extrême, dépassant toutes mes espérances. Si son utilisateur parvient à en exploiter toute la force, il pourra aisément tuer un dieu céleste... Cependant, il demeure incomplet. Il requiert trois matériaux supplémentaires : l'Aile du Mystère Mystérieux, le Bois de Cultivation de l'Inframonde et l'Âme du Papillon Céleste !
+« Le troisième Char de Guerre Anti-Dieu est d'une puissance extrême, dépassant toutes mes espérances. Si son utilisateur parvient à en exploiter toute la force, il pourra aisément tuer un dieu céleste... Cependant, il demeure incomplet. Il requiert trois matériaux supplémentaires: l'Aile du Mystère Mystérieux, le Bois de Culture de l'Inframonde et l'Âme du Papillon Céleste!
 
-Je regrette de ne pas avoir pu trouver ces trois éléments. Puisse mon successeur les dénicher et apaiser mes regrets ! Pour que le troisième char reconnaisse son maître, vous devez fusionner avec les sept runes et les raffiner pour en faire votre trésor lié à la vie. Ce n'est qu'à cette condition que sa véritable puissance sera libérée. Autrement, même en fusionnant avec les runes, vous ne pourrez jamais l'utiliser pleinement ! Successeur, choisis toi-même ; choisis avec prudence et discernement... »
+Je regrette de ne pas avoir pu trouver ces trois éléments. Puisse mon successeur les dénicher et apaiser mes regrets! Pour que le troisième char reconnaisse son maître, vous devez fusionner avec les sept runes et les raffiner pour en faire votre trésor lié à la vie. Ce n'est qu'à cette condition que sa véritable puissance sera libérée. Autrement, même en fusionnant avec les runes, vous ne pourrez jamais l'utiliser pleinement! Successeur, choisis toi-même; choisis avec prudence et discernement... »
 
-L'expression de Wang Lin resta sereine. Lorsqu'il l'avait découvert la première fois, il n'y avait pas accordé d'importance particulière. Il existe un type de trésor pour lequel il faut être prudent, extrêmement prudent, lors de son affinage : le trésor lié à la vie.
+L'expression de Wang Lin resta sereine. Lorsqu'il l'avait découvert la première fois, il n'y avait pas accordé d'importance particulière. Il existe un type de trésor pour lequel il faut être prudent, extrêmement prudent, lors de son affinage: le trésor lié à la vie.
 
-Si le sens divin imprégné dans un trésor ordinaire est anéanti, cela ne cause au maximum qu'une blessure, sans entraîner la mort. Il en va de même pour les trésors nourris par l'âme originelle ; bien que l'utilisateur soit gravement blessé, sa destruction ne lui serait pas fatale.
+Si le sens divin imprégné dans un trésor ordinaire est anéanti, cela ne cause au maximum qu'une blessure, sans entraîner la mort. Il en va de même pour les trésors nourris par l'âme originelle; bien que l'utilisateur soit gravement blessé, sa destruction ne lui serait pas fatale.
 
 Le fragment et les épées que possédait Wang Lin étaient de ce genre.
 
-Toutefois, lorsqu'il s'agit d'un trésor lié à la vie, sa destruction peut avoir des conséquences tragiques : soit l'utilisateur subit de graves blessures et son âme originelle se fragmente, soit, dans les cas les plus critiques, il meurt tout simplement. Malgré ce risque, de nombreux cultivateurs choisissaient pourtant d'affiner des trésors liés à la vie.
+Toutefois, lorsqu'il s'agit d'un trésor lié à la vie, sa destruction peut avoir des conséquences tragiques: soit l'utilisateur subit de graves blessures et son âme originelle se fragmente, soit, dans les cas les plus critiques, il meurt tout simplement. Malgré ce risque, de nombreux cultivateurs choisissaient pourtant d'affiner des trésors liés à la vie.
 
-C'était parce qu'une fois le lien établi, la puissance du trésor décuplait et sa force croissait proportionnellement au niveau de cultivation de son détenteur.
+C'était parce qu'une fois le lien établi, la puissance du trésor décuplait et sa force croissait proportionnellement au niveau de culture de son détenteur.
 
 Wang Lin avait lu cela dans des chroniques anciennes. Autrefois, un cultivateur utilisait une simple épée volante comme trésor lié à la vie. Au fil de ses progrès, la puissance de l'épée avait augmenté jusqu'à atteindre un degré inimaginable.
 
@@ -48,21 +48,21 @@ Le crapaud émergea de la sacoche et atterrit au sol. Ses yeux exprimaient une n
 
 Une fois les deux bêtes libérées, Wang Lin réfléchit un instant avant de sortir l'épée céleste. D'un coup sec, il la fit vibrer et Xu Liguo fut éjecté de la lame. Ce dernier s'apprêtait à flatter Wang Lin, mais le regard sévère de ce dernier le coupa net.
 
-Wang Lin déclara calmement : « Je vais affiner un trésor. Que personne ne s'approche à moins de mille pieds ! »
+Wang Lin déclara calmement: « Je vais affiner un trésor. Que personne ne s'approche à moins de mille pieds! »
 
-Xu Liguo hocha la tête avec empressement en se tapotant la poitrine, l'air d'un subordonné dévoué : « Maître, soyez tranquille ! À moins que l'on ne marche sur mon cadavre, personne ne pourra vous approcher. Moi, Xu Liguo, j'ai consacré ma vie à la loyauté, je vis pour la loyauté. Personne ne peut égaler le grand Xu Liguo... »
+Xu Liguo hocha la tête avec empressement en se tapotant la poitrine, l'air d'un subordonné dévoué: « Maître, soyez tranquille! À moins que l'on ne marche sur mon cadavre, personne ne pourra vous approcher. Moi, Xu Liguo, j'ai consacré ma vie à la loyauté, je vis pour la loyauté. Personne ne peut égaler le grand Xu Liguo... »
 
-Voyant l'air de Wang Lin, Xu Liguo se tut rapidement et recula. Il lança quelques regards furtifs vers son maître et, constatant que celui-ci ne lui prêtait plus attention, il pensa : « Il semble que je n'aie pas assez pratiqué mes flatteries ces derniers temps ; je ne suis pas aussi naturel que d'habitude. Sinon, ce démon aurait froncé les sourcils après seulement quelques mots.
+Voyant l'air de Wang Lin, Xu Liguo se tut rapidement et recula. Il lança quelques regards furtifs vers son maître et, constatant que celui-ci ne lui prêtait plus attention, il pensa: « Il semble que je n'aie pas assez pratiqué mes flatteries ces derniers temps; je ne suis pas aussi naturel que d'habitude. Sinon, ce démon aurait froncé les sourcils après seulement quelques mots.
 
 À l'avenir, je dois m'entraîner davantage. Cette compétence est mon arme la plus redoutable. Même si je devais m'enfuir un jour, cette capacité me serait toujours utile. »
 
-Tout en prenant cette résolution, Xu Liguo erra dans la zone en marmonnant des paroles inaudibles pour les autres. Pourtant, quiconque s'approchait suffisamment pouvait distinguer ses propos :
+Tout en prenant cette résolution, Xu Liguo erra dans la zone en marmonnant des paroles inaudibles pour les autres. Pourtant, quiconque s'approchait suffisamment pouvait distinguer ses propos:
 
 « Le sort de Maître est prodigieux, digne d'un véritable être céleste. Le petit Xu Zi vous admire tant... »
 
 « Waouh, ce talent fait de Maître un pionnier. Quelle admiration... »
 
-« Oh, qu'est-ce que c'est que ça... C'est... C'est là la puissance du trésor de Maître ! Maître, vous êtes le cultivateur le plus puissant que le petit Xu Zi ait jamais connu. Vous suivre fut la meilleure décision de ma vie ! »
+« Oh, qu'est-ce que c'est que ça... C'est... C'est là la puissance du trésor de Maître! Maître, vous êtes le cultivateur le plus puissant que le petit Xu Zi ait jamais connu. Vous suivre fut la meilleure décision de ma vie! »
 
 Au fil de ses monologues, les yeux de Xu Liguo brillaient de plus en plus et son éloquence devenait de plus en plus fluide.
 
@@ -76,7 +76,7 @@ Une force violente secoua l'âme originelle de Wang Lin alors que la rune s'y d�
 
 Toutefois, la rune se montra très tenace. Au lieu de se briser, elle explosa avec une force décuplée.
 
-Si Wang Lin s'était trouvé au stade d'Ascendant, son âme originelle n'aurait pas pu supporter un tel assaut ; il serait resté enlisé dans une lutte d'usure interminable.
+Si Wang Lin s'était trouvé au stade d'Ascendant, son âme originelle n'aurait pas pu supporter un tel assaut; il serait resté enlisé dans une lutte d'usure interminable.
 
 Mais Wang Lin laissa échapper un grognement et une série d'explosions retentit au sein de son âme originelle. Chaque explosion multipliait par dix la puissance du tonnerre en lui. En un instant, le tonnerre dans son âme devint si colossal qu'il entra en collision directe avec la rune engloutie.
 
@@ -100,11 +100,11 @@ L'âme originelle de Wang Lin étant quelque peu affaiblie, il réintégra son c
 
 Le temps s'écoula. En un clin d'œil, cinq jours passèrent. Le corps de Wang Lin était resté immobile tandis que son âme originelle se rétablissait progressivement. Durant ces cinq jours, Ta Shan et l'Ancêtre s'étaient déplacés deux fois sur les lieux avec un grand groupe de membres du clan.
 
-Les hurlements de la bête moustique, le tonnerre du crapaud et l'expression diabolique de Xu Liguo les avaient dissuadés de s'approcher à moins de mille pieds ; ils restaient donc à l'écart, errant dans les environs.
+Les hurlements de la bête moustique, le tonnerre du crapaud et l'expression diabolique de Xu Liguo les avaient dissuadés de s'approcher à moins de mille pieds; ils restaient donc à l'écart, errant dans les environs.
 
-Xu Liguo regarda le Clan des Immortels Choisis en se léchant les lèvres, se remémorant avec nostalgie les jours heureux passés sur la planète Qing Ling.
+Xu Liguo regarda le Clan des Immortels Délaissés en se léchant les lèvres, se remémorant avec nostalgie les jours heureux passés sur la planète Qing Ling.
 
-Tempté par cette vue, il ne put contenir son envie et tenta d'attirer certains membres situés en bordure de la zone vers l'intérieur. Mais personne au sein du Clan des Immortels Choisis ne lui prêta attention.
+Tempté par cette vue, il ne put contenir son envie et tenta d'attirer certains membres situés en bordure de la zone vers l'intérieur. Mais personne au sein du Clan des Immortels Délaissés ne lui prêta attention.
 
 Tous étaient stupéfaits devant le Char de Guerre Anti-Dieu et discutaient entre eux. Pourtant, même l'Ancêtre, l'homme le plus érudit ici présent, ignorait ce qu'était un tel objet.
 

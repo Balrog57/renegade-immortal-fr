@@ -6,11 +6,11 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1559 - Thanks
 slug: remerciements
 ---
-La silhouette aux sept couleurs dit lentement : « Il reste encore six épines de scellement, tu peux continuer. »
+La silhouette aux sept couleurs dit lentement: « Il reste encore six épines de scellement, tu peux continuer. »
 
 Wang Lin réfléchit silencieusement et réprima la pensée qui l'assaillait. Sa main droite tendit vers la cinquième épine, située au niveau du dantian.
 
-« Cette cinquième épine scelle son origine ! » La voix éthérée de la silhouette aux sept couleurs résonna à l'oreille de Wang Lin.
+« Cette cinquième épine scelle son origine! » La voix éthérée de la silhouette aux sept couleurs résonna à l'oreille de Wang Lin.
 
 À l'instant où Wang Lin toucha l'épine, ses pouvoirs célestes et anciens jaillirent soudainement. Il eut l'impression que son corps allait se briser. Alors que ces deux forces affluaient dans son bras droit, il arracha l'épine avec une détermination implacable.
 
@@ -18,25 +18,25 @@ Un fracas tonitruant retentit lorsque Wang Lin extirpa l'épine. Cependant, le c
 
 Les yeux injectés de sang, Wang Lin s'approcha de Qing Shui. Le visage de ce dernier était déformé par une douleur extrême et des gémissements étouffés s'échappaient de sa bouche.
 
-Sans hésiter, après s'être approché, Wang Lin saisit les sixième et septième épines qui étaient plantées dans les jambes de Qing Shui !
+Sans hésiter, après s'être approché, Wang Lin saisit les sixième et septième épines qui étaient plantées dans les jambes de Qing Shui!
 
-Sans attendre que la silhouette aux sept couleurs ne parle, Wang Lin poussa un rugissement. Une lumière dorée jaillit de ses bras, imprégnés d'un pouvoir ancien. Le corps couvert de sang, il tira de toutes ses forces avec les deux mains !
+Sans attendre que la silhouette aux sept couleurs ne parle, Wang Lin poussa un rugissement. Une lumière dorée jaillit de ses bras, imprégnés d'un pouvoir ancien. Le corps couvert de sang, il tira de toutes ses forces avec les deux mains!
 
 Même un être aussi puissant que Qing Shui ne pouvait plus endurer la douleur, mais son cri misérable fut étouffé en un sifflement.
 
 Dans un fracas, Wang Lin arracha les deux épines. Du sang coulait désormais du coin de sa bouche. Cependant, la force de rejet à l'intérieur de Wang Lin avait atteint son paroxysme, déformant ses traits.
 
-« Pas mal ; il en reste trois. Cependant, ces trois dernières ne seront pas faciles à retirer. Si tu parviens à les extraire, je te ferai un cadeau. » La silhouette aux sept couleurs resta calme et tendit la main vers le nuage aux sept couleurs dans le ciel. Le nuage trembla, un fruit géant et jaune se forma, puis descendit lentement.
+« Pas mal; il en reste trois. Cependant, ces trois dernières ne seront pas faciles à retirer. Si tu parviens à les extraire, je te ferai un cadeau. » La silhouette aux sept couleurs resta calme et tendit la main vers le nuage aux sept couleurs dans le ciel. Le nuage trembla, un fruit géant et jaune se forma, puis descendit lentement.
 
 Une branche reliait encore le fruit. La silhouette aux sept couleurs coupa la tige et le fruit tomba.
 
 « Ceci est un cadeau pour toi. »
 
-Wang Lin regarda le Fruit du Dao et fronça les sourcils. La silhouette aux sept couleurs lui inspirait la même sensation que l'Tout-Voyant. Il ne pouvait deviner les intentions de cet être. Cette personne lui avait permis de sauver Qing Shui, lui avait révélé le secret des Anciens, et venait même de lui offrir un Fruit du Dao !
+Wang Lin regarda le Fruit du Dao et fronça les sourcils. La silhouette aux sept couleurs lui inspirait la même sensation que l'Omniscient. Il ne pouvait deviner les intentions de cet être. Cette personne lui avait permis de sauver Qing Shui, lui avait révélé le secret des Anciens, et venait même de lui offrir un Fruit du Dao!
 
-Rien de tout cela ne pouvait être fait sans raison ; il devait y avoir un piège !
+Rien de tout cela ne pouvait être fait sans raison; il devait y avoir un piège!
 
-Wang Lin réfléchit silencieusement avant de détourner son regard du Fruit du Dao. Il fixa la huitième épine, située à quelques centimètres entre les sourcils de Qing Shui !
+Wang Lin réfléchit silencieusement avant de détourner son regard du Fruit du Dao. Il fixa la huitième épine, située à quelques centimètres entre les sourcils de Qing Shui!
 
 Wang Lin percevait les deux autres épines, mais elles ne seraient pas simples à retirer.
 
@@ -48,7 +48,7 @@ Cette huitième épine se trouvait au niveau de la tête, au carrefour de la vie
 
 La main de Wang Lin marqua un temps d'arrêt lorsqu'elle fut à un centimètre de l'épine. Celle-ci était différente des sept autres. Bien qu'elles fussent toutes incrustées dans le corps de Qing Shui, la plupart des autres épines ne dépassaient que légèrement. En revanche, cette huitième épine était presque entièrement enfouie, avec seulement deux centimètres à l'extérieur.
 
-Deux centimètres, c'était très peu !
+Deux centimètres, c'était très peu!
 
 La main de Wang Lin ne pouvait s'arrêter, mais il ignorait ce qui arriverait à Qing Shui une fois l'épine retirée. Sa position était tout simplement trop périlleuse.
 
@@ -58,7 +58,7 @@ Wang Lin regarda Qing Shui et serra les dents. Sans plus hésiter, il saisit l'h
 
 Dès que Wang Lin toucha l'épine, des souvenirs distordus envahirent son esprit, le plongeant dans un état de chaos. Cet afflux massif d'images fit que l'esprit de Wang Lin sembla gonfler sous la douleur.
 
-Il ne pouvait pas examiner les souvenirs en détail. Sa main, agrippée à la huitième épine, l'arracha sans pitié sur quatre centimètres !
+Il ne pouvait pas examiner les souvenirs en détail. Sa main, agrippée à la huitième épine, l'arracha sans pitié sur quatre centimètres!
 
 Qing Shui serra les dents, refusant toujours de pousser un cri violent. Il tenait bon, des sifflements étouffés s'échappant entre ses dents serrées.
 
@@ -66,13 +66,13 @@ Quelques respirations courtes parurent une éternité pour Wang Lin et Qing Shui
 
 Finalement, l'épine plantée dans la tête de Qing Shui fut totalement extraite. Lorsque l'objet sortit, du sang coula de la bouche de Qing Shui. Libéré de son tourment, il tomba vers Wang Lin qui le rattrapa.
 
-Sa tête reposa sur l'épaule de Wang Lin. Son corps était si faible que Wang Lin pouvait à peine sentir son poids. Il n'entendit que ses paroles ténues :
+Sa tête reposa sur l'épaule de Wang Lin. Son corps était si faible que Wang Lin pouvait à peine sentir son poids. Il n'entendit que ses paroles ténues:
 
 « Merci... » Après cela, Qing Shui s'évanouit.
 
 « Frère aîné... » Wang Lin jeta l'épine et serra Qing Shui contre lui, des larmes coulant de ses yeux.
 
-« Pas mal ; cependant, les deux dernières épines sont bien plus difficiles que les précédentes. Oublie cela, prends ceci et pars. » La silhouette aux sept couleurs agita la main et le Fruit du Dao vola vers Wang Lin.
+« Pas mal; cependant, les deux dernières épines sont bien plus difficiles que les précédentes. Oublie cela, prends ceci et pars. » La silhouette aux sept couleurs agita la main et le Fruit du Dao vola vers Wang Lin.
 
 « J'ai dit que je t'offrais ce fruit, alors prends-le. »
 
@@ -80,17 +80,17 @@ Wang Lin, tenant Qing Shui, accepta le Fruit du Dao. Il lança un regard profond
 
 Wang Lin ressentait une crainte intense envers cet être. Il ignorait pourquoi il avait agi ainsi. Tout en méditant, il s'arrêta juste avant de franchir la limite et se tourna vers la silhouette au loin.
 
-« Pourquoi ? » demanda Wang Lin d'une voix rauque.
+« Pourquoi? » demanda Wang Lin d'une voix rauque.
 
 « Il n'est qu'un jeu. Si tu veux le sauver, emmène-le simplement. Quant au pourquoi... je veux voir si les cultivateurs spirituels peuvent traverser le merveilleux changement que ce petit garçon Zhan a connu s'ils ont de la chance... Peut-être pourrai-je utiliser cela pour le trouver... »
 
-« Que cherchez-vous ? » Wang Lin fronça les sourcils, incapable de saisir le sens de ces paroles.
+« Que cherchez-vous? » Wang Lin fronça les sourcils, incapable de saisir le sens de ces paroles.
 
 « Si tu le rencontres, tu sauras. » L'homme aux sept couleurs sourit et agita la main droite. Le corps de Wang Lin fut projeté en arrière, hors de son contrôle.
 
 Le choc se lisait dans les yeux de Wang Lin alors que son corps quittait progressivement le Royaume aux Sept Couleurs.
 
-Alors qu'il s'éloignait, il posa une dernière question : « Êtes-vous le Souverain Céleste ?! »
+Alors qu'il s'éloignait, il posa une dernière question: « Êtes-vous le Souverain Céleste?! »
 
 « Je le suis, et je ne le suis pas non plus... » La voix ténue résonna. Wang Lin réapparut à l'intérieur du Système Stellaire de la Brillance Vide, puis la faille menant au Royaume aux Sept Couleurs disparut lentement.
 
@@ -108,14 +108,14 @@ D'innombrables épines étaient enfouies dans sa chair. Bien qu'invisibles, la d
 
 Pourtant, même s'il pouvait choisir à nouveau, il le ferait sans l'ombre d'une hésitation, peu importe si cela contredisait ses plans ou paraissait stupide.
 
-S'il avait attendu toutes ces années pour sauver Qing Shui, c'était parce qu'avec son niveau de cultivation de l'époque, il n'avait aucune chance de réussir. Mais avec son niveau actuel, l'espoir était là. S'il avait attendu d'atteindre le troisième échelon, d'avoir une force encore plus grande, il ne saurait jamais si Qing Shui serait encore en vie...
+S'il avait attendu toutes ces années pour sauver Qing Shui, c'était parce qu'avec son niveau de culture de l'époque, il n'avait aucune chance de réussir. Mais avec son niveau actuel, l'espoir était là. S'il avait attendu d'atteindre le troisième échelon, d'avoir une force encore plus grande, il ne saurait jamais si Qing Shui serait encore en vie...
 
 Parfois, celui qui calcule tout froidement, chaque gain et chaque perte, est un être qui ignore ce que sont les émotions.
 
-Malgré le danger, il devait agir ! S'il s'était agi de lui, Wang Lin savait qu'avec la personnalité de Qing Shui, celui-ci aurait fait la même chose. Il aurait sauvé Wang Lin !
+Malgré le danger, il devait agir! S'il s'était agi de lui, Wang Lin savait qu'avec la personnalité de Qing Shui, celui-ci aurait fait la même chose. Il aurait sauvé Wang Lin!
 
 Cela suffisait.
 
-C'était une raison simple et un choix direct, mais combien d'hommes auraient pu agir ainsi ? La vie est précieuse, certes, mais il existe des choses plus importantes encore que la vie. Cependant, très peu de gens y croient encore.
+C'était une raison simple et un choix direct, mais combien d'hommes auraient pu agir ainsi? La vie est précieuse, certes, mais il existe des choses plus importantes encore que la vie. Cependant, très peu de gens y croient encore.
 
 Wang Lin n'était ni un gentleman, ni un cultivateur impitoyable. C'était un homme de chair, de sang et d'émotions.

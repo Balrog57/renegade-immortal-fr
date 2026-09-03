@@ -6,43 +6,43 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 706 - Pitiful Greed
 slug: une-cupidite-pitoyable
 ---
-Le Taoïste du Tonnerre hurla : « Xu Mu, tu n'as pas tenu ta promesse ! »
+Le Taoïste du Tonnerre hurla: « Xu Mu, tu n'as pas tenu ta promesse! »
 
 Le regard de Wang Lin était calme. Le Taoïste du Tonnerre était gravement blessé et son corps était presque dépourvu d'énergie. Pour survivre, il avait dû accepter les conditions de Wang Lin, ce qui avait offert à ce dernier une opportunité idéale pour raffiner un gardien céleste.
 
-La première condition pour raffiner une marionnette était que la personne raffinée soit consentante !
+La première condition pour raffiner une marionnette était que la personne raffinée soit consentante!
 
-Wang Lin dit calmement : « Je tiendrai ma promesse, mais cette seconde étape ne pourra aboutir que si tu es d'accord. Afin d'éviter tout accident, j'ai dû forcer ton âme originelle à sortir. » De sa main droite, il fit signe au gardien céleste et à la Bête du Tonnerre de s'emparer immédiatement du Taoïste du Tonnerre. Si celui-ci tentait quoi que ce soit, ils attaqueraient sans la moindre hésitation.
+Wang Lin dit calmement: « Je tiendrai ma promesse, mais cette seconde étape ne pourra aboutir que si tu es d'accord. Afin d'éviter tout accident, j'ai dû forcer ton âme originelle à sortir. » De sa main droite, il fit signe au gardien céleste et à la Bête du Tonnerre de s'emparer immédiatement du Taoïste du Tonnerre. Si celui-ci tentait quoi que ce soit, ils attaqueraient sans la moindre hésitation.
 
 Sans accorder un regard à l'âme originelle du Taoïste du Tonnerre, Wang Lin saisit le corps de ce dernier. Après avoir récupéré le sac de stockage, il cracha une nouvelle bouffée d'énergie originelle qui enveloppa le corps du Taoïste du Tonnerre.
 
-L'âme originelle du Taoïste du Tonnerre affichait une humeur extrêmement sombre alors qu'il fixait froidement Wang Lin. Il voulait voir quelle sorte d'empreinte ce Xu Mu allait laisser !
+L'âme originelle du Taoïste du Tonnerre affichait une humeur extrêmement sombre alors qu'il fixait froidement Wang Lin. Il voulait voir quelle sorte d'empreinte ce Xu Mu allait laisser!
 
 Le temps passa lentement tandis que Wang Lin continuait de déverser son énergie originelle. Cette énergie pénétrait le corps du Taoïste du Tonnerre comme des éclairs de foudre.
 
 En un éclair, plusieurs jours s'écoulèrent. Le corps du Taoïste du Tonnerre continua de se dessécher jusqu'à n'être presque plus que peau et os. Pourtant, le tonnerre bougeait à l'intérieur de lui, accompagné de flashs d'une lumière cuivrée au caractère extrêmement bizarre.
 
-L'âme originelle du Taoïste du Tonnerre observait la scène avec attention chaque jour, ses yeux empreints de choc constant. Au début, il ne comprenait pas les intentions de Wang Lin, mais après quelques jours, il comprit soudainement : ce Xu Mu allait le raffiner pour en faire une marionnette !
+L'âme originelle du Taoïste du Tonnerre observait la scène avec attention chaque jour, ses yeux empreints de choc constant. Au début, il ne comprenait pas les intentions de Wang Lin, mais après quelques jours, il comprit soudainement: ce Xu Mu allait le raffiner pour en faire une marionnette!
 
 Le choc dans son regard se mua en horreur, d'autant plus lorsqu'il observa la marionnette du gardien céleste à ses côtés. Bien qu'il ne soit actuellement qu'une âme originelle, il sentit un froid glacial l'envahir.
 
-« Serait-ce... cette marionnette qui a été raffinée par lui ?! Quelle est donc l'origine de cet homme pour connaître une méthode de raffinement aussi vicieuse ?! »
+« Serait-ce... cette marionnette qui a été raffinée par lui?! Quelle est donc l'origine de cet homme pour connaître une méthode de raffinement aussi vicieuse?! »
 
 Wang Lin ouvrit les yeux et contempla le corps momifié qui émettait une lueur cuivrée. Son regard laissa échapper une lueur mystérieuse.
 
-« C'est véritablement le corps d'un cultivateur de l'Yin Illusoire. Il a déjà atteint le rang cuivre sans aucun matériau métallique. Si j'y ajoute quelques trésors célestes, je suis convaincu qu'il pourra monter encore plus haut ! »
+« C'est véritablement le corps d'un cultivateur de l'Yin Illusoire. Il a déjà atteint le rang cuivre sans aucun matériau métallique. Si j'y ajoute quelques trésors célestes, je suis convaincu qu'il pourra monter encore plus haut! »
 
-Voyant Wang Lin ouvrir les yeux, l'âme originelle du Taoïste du Tonnerre s'écria immédiatement : « Xu Mu, que fais-tu ?! Ce vieil homme a promis d'être ton esclave, pas ta marionnette ! » Il avait déjà hurlé à maintes reprises, mais Wang Lin l'ignorait simplement et poursuivait son raffinage. Voir son propre corps ainsi transformé fit monter sa haine envers Wang Lin jusqu'à son paroxysme.
+Voyant Wang Lin ouvrir les yeux, l'âme originelle du Taoïste du Tonnerre s'écria immédiatement: « Xu Mu, que fais-tu?! Ce vieil homme a promis d'être ton esclave, pas ta marionnette! » Il avait déjà hurlé à maintes reprises, mais Wang Lin l'ignorait simplement et poursuivait son raffinage. Voir son propre corps ainsi transformé fit monter sa haine envers Wang Lin jusqu'à son paroxysme.
 
 Cependant, il n'osait pas agir avec imprudence. Le sceau posé sur son âme originelle, conjugué à la présence du gardien céleste, de la Bête du Tonnerre et des trois âmes primaires ultimes, signifiait qu'il mourrait au moindre mouvement de travers.
 
-« Trop bruyant ! » Wang Lin fronça les sourcils et fit un geste de la main. Deux rayons de l'énergie d'épée de Ling Tianhou jaillirent, remplissant instantanément la grotte. Cette énergie était imprégnée du domaine tyrannique de Ling Tianhou. Sous la pression de ces deux rayons, le Taoïste du Tonnerre se tut immédiatement. L'horreur dans ses yeux redoubla lorsqu'il vit l'éclat de cette énergie d'épée.
+« Trop bruyant! » Wang Lin fronça les sourcils et fit un geste de la main. Deux rayons de l'énergie d'épée de Ling Tianhou jaillirent, remplissant instantanément la grotte. Cette énergie était imprégnée du domaine tyrannique de Ling Tianhou. Sous la pression de ces deux rayons, le Taoïste du Tonnerre se tut immédiatement. L'horreur dans ses yeux redoubla lorsqu'il vit l'éclat de cette énergie d'épée.
 
-Son regard amer balaya les dangers qui l'entouraient. Sans compter qu'en l'état actuel, alors qu'il manquait cruellement d'énergie originelle, il n'oserait pas se précipiter même s'il l'avait retrouvée intégralement. Ce qu'il craignait par-dessus tout, c'étaient ces deux rayons d'énergie d'épée !
+Son regard amer balaya les dangers qui l'entouraient. Sans compter qu'en l'état actuel, alors qu'il manquait cruellement d'énergie originelle, il n'oserait pas se précipiter même s'il l'avait retrouvée intégralement. Ce qu'il craignait par-dessus tout, c'étaient ces deux rayons d'énergie d'épée!
 
 Une fois le Taoïste du Tonnerre réduit au silence, le Sens Divin de Wang Lin se déploya pour couvrir la planète entière. Après un long moment, ses yeux se plissèrent et il leva sa main droite. Les environs tremblèrent et la rivière des enfers apparut dans le ciel, à l'extérieur de la grotte.
 
-Wang Lin cria : « Rivière des enfers, aspire ! »
+Wang Lin cria: « Rivière des enfers, aspire! »
 
 La rivière des enfers suspendue dans les cieux libéra une puissance d'aspiration colossale. Cette force pénétra dans la terre et la planète abandonnée se mit à vaciller. Les secousses s'intensifièrent progressivement jusqu'à devenir un véritable tremblement de terre.
 
@@ -54,19 +54,19 @@ Wang Lin saisit l'une des sphères dorées, la pressa contre le front du Taoïst
 
 Lorsque la troisième sphère disparut dans le corps du Taoïste du Tonnerre, la lumière cuivrée s'estompa pour laisser place à une lueur argentée.
 
-« Rang argenté ! » Un sentiment de soulagement passa dans les yeux de Wang Lin, avant qu'il ne se pose sur l'âme originelle toujours sombre du Taoïste du Tonnerre.
+« Rang argenté! » Un sentiment de soulagement passa dans les yeux de Wang Lin, avant qu'il ne se pose sur l'âme originelle toujours sombre du Taoïste du Tonnerre.
 
-« Sois ma marionnette pendant trois mille ans et je te rendrai ta liberté. Qu'en dis-tu ? »
+« Sois ma marionnette pendant trois mille ans et je te rendrai ta liberté. Qu'en dis-tu? »
 
 Le Taoïste du Tonnerre réfléchit en silence.
 
-Wang Lin ajouta calmement : « Même si tu possèdes un sort de sauvetage, il ne sera pas plus rapide que mon énergie d'épée ! »
+Wang Lin ajouta calmement: « Même si tu possèdes un sort de sauvetage, il ne sera pas plus rapide que mon énergie d'épée! »
 
-Deux voies s'offraient au Taoïste du Tonnerre. La première consistait à prendre des risques et à résister, mais il savait que malgré la puissance de son sort de sauvetage, celui-ci ne pouvait rivaliser avec les deux rayons d'énergie d'épée. Si les deux attaquaient simultanément, il n'aurait aucune issue !
+Deux voies s'offraient au Taoïste du Tonnerre. La première consistait à prendre des risques et à résister, mais il savait que malgré la puissance de son sort de sauvetage, celui-ci ne pouvait rivaliser avec les deux rayons d'énergie d'épée. Si les deux attaquaient simultanément, il n'aurait aucune issue!
 
 La seconde était d'accepter et de devenir une marionnette... Il échangerait trois mille ans de sa vie contre sa liberté, et cela à la condition que Wang Lin tienne sa promesse et ne meure pas durant cette période... Le Taoïste du Tonnerre observa la marionnette qui n'avait pas prononcé un mot depuis le début.
 
-« Le corps de cette marionnette est extrêmement robuste ; il peut même combattre des trésors magiques à mains nues... Il ne devrait donc pas mourir au combat... »
+« Le corps de cette marionnette est extrêmement robuste; il peut même combattre des trésors magiques à mains nues... Il ne devrait donc pas mourir au combat... »
 
 À cet instant précis, sur la lointaine planète Yun Xia, un brouillard dense recouvrait tout. Une aura glaciale émanait de l'intérieur, forçant chaque cultivateur de passage à faire un détour.
 
@@ -80,4 +80,4 @@ Alors qu'il était sur le point de franchir la limite du brouillard, son visage 
 
 Cet homme s'appelait Cupidité. Saisi par le tentacule et entraîné rapidement vers le bas, il regarda le brouillard dense qui l'entourait, ses yeux révélant un désespoir total.
 
-« J'ai passé ma vie à chercher des trésors, et je n'aurais jamais cru qu'une telle chose m'arriverait... Wang Lin, tout cela est de ta faute ! Si tu n'étais pas venu dans ce maudit système stellaire d'Allheaven, comment se fait-il que ce vieux soit envoyé ici ?! Si je n'avais pas été envoyé ici, comment aurais-je pu pénétrer sur cette planète terrifiante ?! »
+« J'ai passé ma vie à chercher des trésors, et je n'aurais jamais cru qu'une telle chose m'arriverait... Wang Lin, tout cela est de ta faute! Si tu n'étais pas venu dans ce maudit système stellaire d'Allheaven, comment se fait-il que ce vieux soit envoyé ici?! Si je n'avais pas été envoyé ici, comment aurais-je pu pénétrer sur cette planète terrifiante?! »

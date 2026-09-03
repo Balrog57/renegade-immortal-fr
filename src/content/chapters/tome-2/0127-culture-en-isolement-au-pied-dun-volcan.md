@@ -8,7 +8,7 @@ slug: culture-en-isolement-au-pied-dun-volcan
 ---
 Du début à la fin, Wang Lin ne jeta pas un regard à la jeune femme. Celle-ci contemplait la direction dans laquelle il avait disparu, le regard empreint de confusion. Autrefois, Mai Liang l'avait sans cesse harcelée. Même lorsqu'elle lui criait dessus ou le frappait, il n'en revenait jamais.
 
-Elle et Mai Liang avaient grandi dans le même village. Leurs familles étaient très proches et leurs parents avaient arrangé leur mariage dès leur enfance. Plus tard, ils furent tous deux acceptés au Temple du Dieu de la Guerre. Plus elle regardait Mai Liang, plus elle le voyait comme un simple paysan, ce qui lui inspirait un profond dégoût. Ils étaient déjà fiancés, mais elle cachait soigneusement cette réalité. Elle s'était servie de cet engagement pour tromper Mai Liang et l'inciter à partir sur le champ de bataille étranger, lui faisant miroiter qu'à son retour, elle formerait un couple de cultivation avec lui.
+Elle et Mai Liang avaient grandi dans le même village. Leurs familles étaient très proches et leurs parents avaient arrangé leur mariage dès leur enfance. Plus tard, ils furent tous deux acceptés au Temple du Dieu de la Guerre. Plus elle regardait Mai Liang, plus elle le voyait comme un simple paysan, ce qui lui inspirait un profond dégoût. Ils étaient déjà fiancés, mais elle cachait soigneusement cette réalité. Elle s'était servie de cet engagement pour tromper Mai Liang et l'inciter à partir sur le champ de bataille étranger, lui faisant miroiter qu'à son retour, elle formerait un couple de culture avec lui.
 
 Mais voilà que Mai Liang était revenu et l'ignorait totalement. À ce propos, Xu Si éprouvait un sentiment étrange dans son cœur. Conjugué à cette sensation soudaine qui la fit frissonner, ce contraste saisissant laissa son esprit vide.
 
@@ -24,13 +24,13 @@ De retour vers les volcans, il découvrit une grotte naturelle. Il la scella imm
 
 Après avoir accompli tout cela, le visage de Wang Lin était d'une pâleur extrême. Il avait subi de lourdes blessures sur le champ de bataille étranger et son sens divin était totalement brisé. Il s'était échappé grâce à ce fragment de Sens Divin du Royaume Ji, puis, faisant fi de ses blessures, il avait utilisé ce fragment pour faciliter sa fuite et sa convalescence.
 
-Une fois la cultivation entamée, il prit une profonde inspiration, ferma les yeux pour nourrir son âme, et ses pensées plongèrent dans sa propre conscience.
+Une fois la culture entamée, il prit une profonde inspiration, ferma les yeux pour nourrir son âme, et ses pensées plongèrent dans sa propre conscience.
 
-La Mer de Conscience de Wang Lin était un océan doré, mais la majeure partie de cette mer était obstruée par un brouillard gris. Seule une infime portion n'était pas recouverte ; des épines de lumière noire repoussaient le brouillard.
+La Mer de Conscience de Wang Lin était un océan doré, mais la majeure partie de cette mer était obstruée par un brouillard gris. Seule une infime portion n'était pas recouverte; des épines de lumière noire repoussaient le brouillard.
 
 Une épée de trois pouces se tenait là, solitaire. Ces épines lumineuses émanaient de l'épée. En y regardant de plus près, on pouvait voir de profondes fissures sur la lame.
 
-De l'autre côté de la Mer de Conscience se trouvait un espace blanc. À l'intérieur flottait une perle grise. Le brouillard gris n'osait s'approcher à moins de dix pieds d'elle.
+De l'autre côté de la Mer de Conscience se trouvait un espace blanc. À l'intérieur flottait une perle grise. Le brouillard gris n'osait s'approcher à moins de 33 mètres d'elle.
 
 Dans la Mer de Conscience de Wang Lin, hormis ces deux points, tout le reste était noyé dans le brouillard gris.
 
@@ -38,7 +38,7 @@ Soudain, l'épais brouillard commença à bouillonner alors qu'un éclair rouge 
 
 Bien que le sens divin de Wang Lin ait été totalement effondré, il avait réussi à condenser un fragment de Sens Divin du Royaume Ji. C'était une forme de sens divin, mais sa qualité était bien supérieure à celle qu'il possédait auparavant.
 
-Bien que le sens divin de Wang Lin fût vaste, il ne représentait rien face aux lois du monde. Pourtant, avec ce simple fragment de Sens Divin du Royaume Ji, il avait pu résister à ces lois. Ce fragment lui avait permis de s'échapper ; sa puissance était manifestement hors du commun.
+Bien que le sens divin de Wang Lin fût vaste, il ne représentait rien face aux lois du monde. Pourtant, avec ce simple fragment de Sens Divin du Royaume Ji, il avait pu résister à ces lois. Ce fragment lui avait permis de s'échapper; sa puissance était manifestement hors du commun.
 
 Cet éclair rouge était ce fragment de Sens Divin du Royaume Ji.
 
@@ -66,15 +66,15 @@ Quant aux matériaux, il les avait triés en trois lots lors de la création des
 
 Ce morceau était manifestement une pièce d'armure. Wang Lin songea un instant. Sa faiblesse actuelle résidait dans sa piètre connaissance des matériaux. Actuellement, il possédait deux sacs remplis de ressources sans savoir quoi en faire. Il se sentait impuissant, comme s'il avait pénétré dans une montagne de trésors sans en reconnaître la moindre valeur.
 
-Ce morceau de métal était l'une des rares choses qu'il identifiait : c'était du fer raffiné.
+Ce morceau de métal était l'une des rares choses qu'il identifiait: c'était du fer raffiné.
 
-S'il connaissait le fer raffiné, c'était grâce aux échanges secrets entre les disciples intérieurs de la Secte Heng Yue. Il avait vu quelqu'un échanger un morceau de la taille d'un ongle ; c'était un matériau essentiel pour la fabrication d'épées volantes.
+S'il connaissait le fer raffiné, c'était grâce aux échanges secrets entre les disciples intérieurs de la Secte Heng Yue. Il avait vu quelqu'un échanger un morceau de la taille d'un ongle; c'était un matériau essentiel pour la fabrication d'épées volantes.
 
-Il rangea le sac et décida qu'une fois sa cultivation terminée, il consacrerait de grands efforts à acquérir des connaissances sur les matériaux.
+Il rangea le sac et décida qu'une fois sa culture terminée, il consacrerait de grands efforts à acquérir des connaissances sur les matériaux.
 
-Wang Lin lança le fer raffiné en l'air ; l'épée volante s'anima immédiatement et s'y planta. Un éclat de lumière verte perça le centre du métal. Le vert se propagea progressivement jusqu'à ce qu'un faisceau de Qi d'épée soit projeté.
+Wang Lin lança le fer raffiné en l'air; l'épée volante s'anima immédiatement et s'y planta. Un éclat de lumière verte perça le centre du métal. Le vert se propagea progressivement jusqu'à ce qu'un faisceau de Qi d'épée soit projeté.
 
-Wang Lin eut un sourire amer en regardant le morceau de fer. Il se sentait frustré de ne pas savoir comment raffiner les trésors magiques ; cela était tout ce qu'il pouvait faire pour l'instant.
+Wang Lin eut un sourire amer en regardant le morceau de fer. Il se sentait frustré de ne pas savoir comment raffiner les trésors magiques; cela était tout ce qu'il pouvait faire pour l'instant.
 
 Puis, par la pensée, il fit apparaître le morceau de fer derrière lui. Cependant, celui-ci était devenu bien plus petit et ses bords rougeoyaient tandis que du métal liquide s'égouttait au sol.
 
@@ -94,22 +94,22 @@ L'Âme Naissante était très terne, semblait léthargique et ses yeux étaient 
 
 Wang Lin versa deux larmes en s'inclinant devant ces deux lumières. Puis, il s'assit, sortit les quatre seaux, but une grande gorgée d'eau et commença à cultiver.
 
-Le corps de Wang Lin ne possédait plus aucune trace de cultivation ; il allait donc devoir tout recommencer depuis le stade de la Condensation de Qi. Cependant, que ce soit dans le corps de Wang Lin ou celui de Mai Liang, les deux avaient déjà expérimenté cette étape. Grâce à cela, Wang Lin récupérait sa cultivation avec facilité.
+Le corps de Wang Lin ne possédait plus aucune trace de culture; il allait donc devoir tout recommencer depuis le stade de la Condensation de Qi. Cependant, que ce soit dans le corps de Wang Lin ou celui de Mai Liang, les deux avaient déjà expérimenté cette étape. Grâce à cela, Wang Lin récupérait sa culture avec facilité.
 
 Le temps s'écoula et, en un clin d'œil, une année passa. Bien qu'une seule année se fût écoulée dans la réalité, sept ans s'étaient passés dans l'espace de rêve.
 
-Durant cette année, que ce soit dans l'espace de rêve ou à l'extérieur, Wang Lin consacra tout son temps à la cultivation. Il n'en sortait que pour renouveler son eau spirituelle.
+Durant cette année, que ce soit dans l'espace de rêve ou à l'extérieur, Wang Lin consacra tout son temps à la culture. Il n'en sortait que pour renouveler son eau spirituelle.
 
-Au cours de la troisième année dans l'espace de rêve, Wang Lin atteignit le 15e niveau de Condensation de Qi. Il passa ensuite deux années supplémentaires pour atteindre le stade de l'Établissement des Fondations. Durant la dernière année et demie, il finit par recouvrer sa cultivation et atteignit le stade intermédiaire de l'Établissement des Fondations.
+Au cours de la troisième année dans l'espace de rêve, Wang Lin atteignit le 15e niveau de Condensation de Qi. Il passa ensuite deux années supplémentaires pour atteindre le stade de l'Établissement des Fondations. Durant la dernière année et demie, il finit par recouvrer sa culture et atteignit le stade intermédiaire de l'Établissement des Fondations.
 
 Grâce à son seul Sens Divin du Royaume Ji, Wang Lin était l'ennemi naturel de tous les cultivateurs au stade de l'Établissement des Fondations. Il se sentait même capable de combattre des cultivateurs au début du stade de la Formation du Noyau. Il estimait qu'une fois parvenu au stade avancé de l'Établissement des Fondations, il aurait 70 % de chances de tuer un cultivateur au début de la Formation du Noyau.
 
-De même, s'il parvenait à former son propre noyau, il deviendrait le premier cultivateur de l'union de cultivation sous le stade de l'Âme Naissante.
+De même, s'il parvenait à former son propre noyau, il deviendrait le premier cultivateur de l'union de culture sous le stade de l'Âme Naissante.
 
 Telle était la puissance du Royaume Ji.
 
-La relation entre le Royaume Ji et Wang Lin était comparable à celle du poisson et de l'eau. Bien que le Royaume Ji fût puissant, sans aucune cultivation pour le soutenir, il ne pourrait perdurer. Seule l'augmentation de la cultivation permettrait au Royaume Ji de croître en force et en stabilité.
+La relation entre le Royaume Ji et Wang Lin était comparable à celle du poisson et de l'eau. Bien que le Royaume Ji fût puissant, sans aucune culture pour le soutenir, il ne pourrait perdurer. Seule l'augmentation de la culture permettrait au Royaume Ji de croître en force et en stabilité.
 
-Plus la cultivation est élevée, plus on peut puiser dans la puissance du Royaume Ji.
+Plus la culture est élevée, plus on peut puiser dans la puissance du Royaume Ji.
 
 Le Wang Lin actuel avait totalement fusionné avec le corps de Mai Liang au cours de ces sept années. Il n'y avait plus d'inconfort, mais la froideur émanant de son corps était devenue encore plus intense. C'était comme une montagne de glace millénaire que nul ne pourrait jamais faire fondre.

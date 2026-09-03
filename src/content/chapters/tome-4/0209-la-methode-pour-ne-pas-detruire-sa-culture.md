@@ -12,11 +12,11 @@ Quelques jours plus tard, Wang Lin retourna à la grotte souterraine qu'il avait
 
 Wang Lin prit une profonde inspiration et ferma lentement les yeux. Il guida l'énergie spirituelle chaotique dans son corps pour qu'elle circule le long de ses méridiens. Le temps s'écoula. Il fit lentement circuler son énergie spirituelle à travers son corps et son noyau afin d'en réparer les dommages.
 
-Peu à peu, son noyau se rétablit et sa cultivation retrouva le sommet du stade avancé de la Formation du Noyau.
+Peu à peu, son noyau se rétablit et sa culture retrouva le sommet du stade avancé de la Formation du Noyau.
 
 Simultanément, Wang Lin coupa brusquement la circulation de son pouvoir spirituel dans ses canaux. Ensuite, il rassembla l'énergie spirituelle de son corps et la projeta violemment contre la restriction du lotus.
 
-Lorsqu'il tentait de briser le stade de l'Âme Naissante et que son Royaume Ji avait attaqué son noyau, l'explosion qui s'était produite dans son corps avait desserré la restriction du lotus. Cette fois, Wang Lin attaquait délibérément la restriction ; elle était donc considérablement affaiblie.
+Lorsqu'il tentait de briser le stade de l'Âme Naissante et que son Royaume Ji avait attaqué son noyau, l'explosion qui s'était produite dans son corps avait desserré la restriction du lotus. Cette fois, Wang Lin attaquait délibérément la restriction; elle était donc considérablement affaiblie.
 
 Trois jours plus tard, Wang Lin, dont les yeux étaient restés clos durant tout ce temps, les ouvrit soudainement. Il fit un mouvement de doigt et tapota plusieurs points sur sa poitrine. À chaque contact, une ondulation d'énergie spirituelle émanait de son doigt.
 
@@ -50,13 +50,13 @@ Le seul problème résidait dans la percée vers le stade de l'Âme Naissante, c
 
 Après avoir quitté la grotte, Wang Lin atteignit sa vitesse maximale, son corps fendant l'espace telle une météorite.
 
-Le lendemain matin, Wang Lin arriva à l'ancienne grotte de cultivation où il avait atteint le stade de l'Âme Naissante avec Qiu Siping. Une fois sur place, il balaya les environs de son Sens Divin. Après s'être assuré qu'il n'y avait personne, il frappa son sac de rangement et son épée empoisonnée en sortit. D'un geste du doigt, l'épée créa un tourbillon et chargea dans les décombres.
+Le lendemain matin, Wang Lin arriva à l'ancienne grotte de culture où il avait atteint le stade de l'Âme Naissante avec Qiu Siping. Une fois sur place, il balaya les environs de son Sens Divin. Après s'être assuré qu'il n'y avait personne, il frappa son sac de rangement et son épée empoisonnée en sortit. D'un geste du doigt, l'épée créa un tourbillon et chargea dans les décombres.
 
-Bientôt, un tunnel fut creusé par la lame. En contemplant le passage ainsi formé, Wang Lin pensa : « Adieu, Mer des Démons ! »
+Bientôt, un tunnel fut creusé par la lame. En contemplant le passage ainsi formé, Wang Lin pensa: « Adieu, Mer des Démons! »
 
 Il se détourna et pénétra dans le tunnel.
 
-À l'intérieur, il trouva la salle abritant l'ancien réseau de transfert. Il ne pénétra pas dans la pièce ; au contraire, il fit un geste de la main pour provoquer l'effondrement du tunnel, scellant ainsi l'entrée.
+À l'intérieur, il trouva la salle abritant l'ancien réseau de transfert. Il ne pénétra pas dans la pièce; au contraire, il fit un geste de la main pour provoquer l'effondrement du tunnel, scellant ainsi l'entrée.
 
 Peu après, ses mains bougèrent pour former de nombreuses restrictions afin de recouvrir entièrement la grotte. Ce n'est qu'ensuite qu'il entra dans la salle de pierre.
 
@@ -84,7 +84,7 @@ Wang Lin toussa à plusieurs reprises. Il forma un sceau de la main pour créer 
 
 Il leva la tête et scruta les environs. La lumière vive du soleil frappa ses yeux, le faisant cligner des paupières. En observant son nouvel environnement, il comprit qu'il n'était plus dans la Mer des Démons. Les montagnes étaient parées de verdure et des bêtes volantes inconnues planaient dans le ciel.
 
-Wang Lin plissa les yeux. Cela faisait longtemps qu'il n'avait pas vu une telle clarté solaire. La Mer des Démons ne connaissait jamais de véritable soleil ; même durant ces derniers mois, le ciel était perpétuellement voilé par des nuages noirs déversant une pluie sombre sur la terre.
+Wang Lin plissa les yeux. Cela faisait longtemps qu'il n'avait pas vu une telle clarté solaire. La Mer des Démons ne connaissait jamais de véritable soleil; même durant ces derniers mois, le ciel était perpétuellement voilé par des nuages noirs déversant une pluie sombre sur la terre.
 
 Il prit une profonde inspiration, se tourna vers le réseau de transfert et sortit son épée empoisonnée. Il en coupa un fragment qu'il rangea dans son sac de rangement. Ce n'est qu'alors qu'il se sentit apaisé.
 
@@ -100,6 +100,6 @@ Une fois cela fait, si les conditions le permettaient, Wang Lin entamerait son p
 
 C'était un projet qui exigerait énormément de temps. Il devait préparer de nombreux éléments pour s'assurer que son plan aboutisse sans encombre.
 
-Détruire sa cultivation signifiait devoir tout recommencer, ce qu'il refusait catégoriquement. À l'inverse, ne pas détruire sa cultivation signifierait rester bloqué au stade avancé de la Formation du Noyau, incapable de mener sa vengeance.
+Détruire sa culture signifiait devoir tout recommencer, ce qu'il refusait catégoriquement. À l'inverse, ne pas détruire sa culture signifierait rester bloqué au stade avancé de la Formation du Noyau, incapable de mener sa vengeance.
 
-Son objectif était de franchir le stade de l'Âme Naissante sans sacrifier sa cultivation. Avec ces deux impératifs en tête, il ne restait qu'une seule méthode qui pourrait, tout au plus, fonctionner.
+Son objectif était de franchir le stade de l'Âme Naissante sans sacrifier sa culture. Avec ces deux impératifs en tête, il ne restait qu'une seule méthode qui pourrait, tout au plus, fonctionner.

@@ -1,26 +1,26 @@
 ---
 n: 402
-title: "La mort de l'ancêtre !"
+title: "La mort de l'ancêtre!"
 book: 4
 bookTitle: Clean Sweep
 en: "Chapter 402 - The ancestor dies!"
 slug: la-mort-de-lancetre
 ---
-Chapitre 402 - La mort de l'ancêtre !
+Chapitre 402 - La mort de l'ancêtre!
 
-L'ancêtre du Clan des Démons Géants laissa échapper un sourire amer. Comment pouvait-il résister à l'étendard des milliards d'âmes que même les cultivateurs Ascendants redoutaient ? Bien qu'il possédât la hache de l'ancêtre fondateur, son niveau de cultivation actuel ne lui permettait pas d'en déchaîner toute la puissance.
+L'ancêtre du Clan des Démons Géants laissa échapper un sourire amer. Comment pouvait-il résister à l'étendard des milliards d'âmes que même les cultivateurs Ascendants redoutaient? Bien qu'il possédât la hache de l'ancêtre fondateur, son niveau de culture actuel ne lui permettait pas d'en déchaîner toute la puissance.
 
-Ses yeux s'illuminèrent ; dans un rugissement, il projeta la hache vers Wang Lin.
+Ses yeux s'illuminèrent; dans un rugissement, il projeta la hache vers Wang Lin.
 
 La hache fendit tous les fragments d'âmes et fondit sur Wang Lin en un clin d'œil.
 
-Le regard de Wang Lin brilla. Il ne manifesta aucune inquiétude ; alors que la hache approchait, son épée céleste l'intercepta.
+Le regard de Wang Lin brilla. Il ne manifesta aucune inquiétude; alors que la hache approchait, son épée céleste l'intercepta.
 
-Boum !
+Boum!
 
 Un nouveau jet de sang jaillit de la bouche de Wang Lin, qui fut projeté en arrière de plusieurs dizaines de pieds. La hache fut repoussée et s'écrasa au sol.
 
-Le visage de l'ancêtre du Clan des Démons Géants était livide, ses yeux injectés de folie. Il lança un regard venimeux à Wang Lin, prit une profonde inspiration, puis son âme originelle trembla tandis qu'il hurlait : « Pouvoir de lignée ! »
+Le visage de l'ancêtre du Clan des Démons Géants était livide, ses yeux injectés de folie. Il lança un regard venimeux à Wang Lin, prit une profonde inspiration, puis son âme originelle trembla tandis qu'il hurlait: « Pouvoir de lignée! »
 
 S'il n'avait pas utilisé ce pouvoir jusqu'à présent, c'était parce que l'utiliser avant d'avoir achevé sa possession aurait infligé des dommages irréparables à son âme originelle. Son âme risquait fort de s'effondrer, ce qui reviendrait à un suicide.
 
@@ -36,21 +36,21 @@ Cette scène était identique à celle que Wang Lin avait vue lorsqu'il l'avait 
 
 À cet instant, d'innombrables fragments d'âmes enveloppèrent l'ancêtre du Clan des Démons Géants, s'acharnant à le dévorer. L'ancêtre laissa échapper un rire sinistre.
 
-« Tournez ! »
+« Tournez! »
 
 Le vortex géant entama soudain une rotation, générant une force d'aspiration inimaginable. Dès son apparition, certains fragments d'âmes gravitant autour de l'ancêtre poussèrent des cris déchirants avant d'être aspirés.
 
 Wang Lin sentit la puissante succion envelopper son corps, le projetant malgré lui vers le vortex.
 
-L'ancêtre du Clan des Démons Géants hurla : « Wang Lin, ce vieil homme risque de briser son âme originelle pour te piéger dans le vide ! » D'innombrables fragments d'âmes l'entouraient, et les douze fragments de niveau Transformation de l'Âme étaient déjà entrés dans son corps pour dévorer son âme originelle.
+L'ancêtre du Clan des Démons Géants hurla: « Wang Lin, ce vieil homme risque de briser son âme originelle pour te piéger dans le vide! » D'innombrables fragments d'âmes l'entouraient, et les douze fragments de niveau Transformation de l'Âme étaient déjà entrés dans son corps pour dévorer son âme originelle.
 
 Sa chair avait déjà été asséchée et son âme originelle était endommagée.
 
-Le regard de Wang Lin demeura calme. Alors qu'il était aspiré par le vortex, il fixa l'ancêtre du Clan des Démons Géants avec un sourire énigmatique et murmura : « Dévorez ! »
+Le regard de Wang Lin demeura calme. Alors qu'il était aspiré par le vortex, il fixa l'ancêtre du Clan des Démons Géants avec un sourire énigmatique et murmura: « Dévorez! »
 
 À ces mots, la voracité des fragments d'âmes redoubla de vitesse. L'ancêtre du Clan des Démons Géants poussa plusieurs gémissements de douleur avant que son âme originelle ne soit totalement dévorée.
 
-L'ancêtre de cette génération du Clan des Démons Géants était mort !
+L'ancêtre de cette génération du Clan des Démons Géants était mort!
 
 Cependant, le pouvoir de lignée avait déjà été activé et le corps de Wang Lin fut entraîné. Au moment où il pénétra dans le vortex, il tendit sa main droite, et tous les fragments d'âmes se lient rapidement pour former une chaîne afin de l'empêcher d'être aspiré.
 
@@ -58,11 +58,11 @@ Profitant du répit offert par cette chaîne d'âmes, il activa la formation qu'
 
 Ses yeux s'illuminèrent soudain en apercevant la hache géante à trois cents mètres de là. Il tendit la main vers elle, mais une force colossale s'opposa à sa prise.
 
-Wang Lin laissa échapper un cri de surprise. À cet instant, son corps était violemment entraîné dans le vortex. Il leva à nouveau la main et mobilisa toute l'énergie spirituelle de son être. « Collecte ! » cria-t-il.
+Wang Lin laissa échapper un cri de surprise. À cet instant, son corps était violemment entraîné dans le vortex. Il leva à nouveau la main et mobilisa toute l'énergie spirituelle de son être. « Collecte! » cria-t-il.
 
 La hache résista une ultime fois, mais Wang Lin parvint cette fois à la saisir fermement et la tira vers lui.
 
-La résistance de l'arme devint plus intense encore ; elle tentait de s'arracher de l'emprise de Wang Lin.
+La résistance de l'arme devint plus intense encore; elle tentait de s'arracher de l'emprise de Wang Lin.
 
 Les yeux de Wang Lin brillèrent. De sa main gauche, il commanda quelques âmes pourpre et dorées qui volèrent pour ramener la hache vers lui.
 
@@ -72,7 +72,7 @@ Peu après, le vortex se dissipa.
 
 Il ne restait plus au sol que le corps déchiqueté de l'ancêtre du Clan des Démons Géants.
 
-Depuis qu'il avait été contraint de sortir jusqu'à son dernier souffle, il n'avait eu aucune chance de lever les sceaux sur ses membres ; il n'avait pu que regarder la chute de son clan.
+Depuis qu'il avait été contraint de sortir jusqu'à son dernier souffle, il n'avait eu aucune chance de lever les sceaux sur ses membres; il n'avait pu que regarder la chute de son clan.
 
 La silhouette de Wang Lin apparut dans le vide, à l'extérieur de la planète Suzaku. Son visage était d'une pâleur cadavérique, sans la moindre trace de sang.
 
@@ -84,7 +84,7 @@ Wang Lin réfléchit un instant avant de frapper son sac de rangement pour en ex
 
 Le regard de Wang Lin s'anima et la boussole stellaire accéléra sa course.
 
-Une demi-lune plus tard, la planète Suzaku apparut dans son champ de vision. De là, elle semblait minuscule. À ses côtés se trouvait une planète encore plus petite ; c'était là que Wang Lin avait été accidentellement transporté lors de son retour du Royaume Céleste.
+Une demi-lune plus tard, la planète Suzaku apparut dans son champ de vision. De là, elle semblait minuscule. À ses côtés se trouvait une planète encore plus petite; c'était là que Wang Lin avait été accidentellement transporté lors de son retour du Royaume Céleste.
 
 Après une courte réflexion, il orienta la boussole stellaire vers cette petite planète.
 
@@ -94,11 +94,11 @@ La boussole perdant son effet dans le ciel, Wang Lin en descendit et la rangea.
 
 Il se déplaça ensuite avec la rapidité de l'éclair. Il disparut dès qu'il fit un mouvement, et lorsqu'il réapparut, il se trouvait déjà à cinq mille kilomètres de là.
 
-L'énergie spirituelle ici était bien plus faible que sur la planète Suzaku, et très impure, la rendant inapte à la cultivation.
+L'énergie spirituelle ici était bien plus faible que sur la planète Suzaku, et très impure, la rendant inapte à la culture.
 
 Wang Lin se déplaçait comme s'il connaissait parfaitement les lieux. Après une journée, il atteignit une haute montagne. Un scan de son sens divin lui permit de détecter un réseau de transfert au sommet.
 
-« La formation est toujours là ! » Wang Lin se tint devant l'ancien réseau de transfert et commença à méditer.
+« La formation est toujours là! » Wang Lin se tint devant l'ancien réseau de transfert et commença à méditer.
 
 Lorsqu'il avait été téléporté depuis le Royaume Céleste, il était apparu dans ce réseau, et c'était lui qui l'avait renvoyé chez lui.
 
@@ -106,36 +106,36 @@ Lorsqu'il avait été téléporté depuis le Royaume Céleste, il était apparu 
 
 Le corps originel s'enfonça dans le sol.
 
-Cette planète ne faisant qu'un dixième de la taille de Suzaku, le corps d'un ancien dieu à trois étoiles permettait à Wang Lin de supporter la pression du noyau. Il s'assit au milieu du magma et commença sa cultivation.
+Cette planète ne faisant qu'un dixième de la taille de Suzaku, le corps d'un ancien dieu à trois étoiles permettait à Wang Lin de supporter la pression du noyau. Il s'assit au milieu du magma et commença sa culture.
 
 Wang Lin frappa son sac de rangement et un rayon de lumière rouge en jaillit, se transformant en une hache géante devant lui.
 
 L'arme rougeoyait et dégageait une intention meurtrière redoutable. Wang Lin réfléchit un instant avant de tenter d'imprimer sa marque via son sens divin. Aussitôt, une force puissante résidant dans la hache repoussa son sens divin.
 
-« Intéressant ! » Les yeux de Wang Lin brillèrent. Il forma un sceau et son âme originelle quitta son corps. Il fixa la hache rouge et aspira. L'arme trembla avant de se transformer en un rayon de lumière pour être engloutie par l'âme originelle de Wang Lin.
+« Intéressant! » Les yeux de Wang Lin brillèrent. Il forma un sceau et son âme originelle quitta son corps. Il fixa la hache rouge et aspira. L'arme trembla avant de se transformer en un rayon de lumière pour être engloutie par l'âme originelle de Wang Lin.
 
-Désormais, deux objets résidaient dans l'âme originelle de Wang Lin : l'étendard des milliards d'âmes et la hache rouge.
+Désormais, deux objets résidaient dans l'âme originelle de Wang Lin: l'étendard des milliards d'âmes et la hache rouge.
 
 Son âme originelle réintégra son corps.
 
-« Il doit y avoir un esprit de hache à l'intérieur. Je ne le forcerai pas à sortir, mais je vais le supprimer avec l'étendard des milliards d'âmes et le raffiner par mon âme originelle. Voyons combien de temps cet esprit pourra tenir ! » Wang Lin ricana en sortant un sac.
+« Il doit y avoir un esprit de hache à l'intérieur. Je ne le forcerai pas à sortir, mais je vais le supprimer avec l'étendard des milliards d'âmes et le raffiner par mon âme originelle. Voyons combien de temps cet esprit pourra tenir! » Wang Lin ricana en sortant un sac.
 
 Ce sac appartenait à l'ancêtre du Clan des Démons Géants.
 
 Il le toucha pour y imprimer son propre sens divin, et les objets qu'il contenait apparurent instantanément dans son esprit.
 
-L'ancêtre possédait de nombreux trésors : des dizaines de jades célestes et même des pierres spirituelles de haute qualité.
+L'ancêtre possédait de nombreux trésors: des dizaines de jades célestes et même des pierres spirituelles de haute qualité.
 
-Il y avait naturellement quelques artefacts, mais bien que puissants, ils n'avaient rien d'exceptionnel. Après tout, pour le Clan des Démons Géants, leurs corps étaient leurs meilleures armes ; les trésors étaient donc peu utilisés.
+Il y avait naturellement quelques artefacts, mais bien que puissants, ils n'avaient rien d'exceptionnel. Après tout, pour le Clan des Démons Géants, leurs corps étaient leurs meilleures armes; les trésors étaient donc peu utilisés.
 
 Cependant, deux objets captèrent l'attention de Wang Lin.
 
 L'un était une bouteille de jade rouge à moitié vide contenant un liquide semblable à du sang. En le sentant, Wang Lin confirma qu'il s'agissait bien de sang. Cette substance lui était étrangement familière.
 
-En tenant la bouteille, il se souvint soudainement : lors de l'extermination de la famille Teng, il avait trouvé une fiole similaire sur Teng One.
+En tenant la bouteille, il se souvint soudainement: lors de l'extermination de la famille Teng, il avait trouvé une fiole similaire sur Teng One.
 
-« Ce sang contient une trace du lignage des anciens dieux. À l'époque, j'avais utilisé cette bouteille pour activer une capacité d'ancien dieu ! » Les yeux de Wang Lin s'illuminèrent.
+« Ce sang contient une trace du lignage des anciens dieux. À l'époque, j'avais utilisé cette bouteille pour activer une capacité d'ancien dieu! » Les yeux de Wang Lin s'illuminèrent.
 
-« Bien que mon corps originel soit devenu un ancien dieu par la pratique de la tactique de l'ancien dieu, cela reposait entièrement sur ma propre cultivation. À l'époque, je n'avais obtenu que l'héritage des connaissances et non celui du pouvoir ; certaines capacités me manquent donc encore. C'est un atout précieux, que je laisse mon corps originel l'absorber ou que je m'en serve pour déclencher une capacité. Quel que soit le prix de cette bataille, l'obtention de ceci en valait la peine ! »
+« Bien que mon corps originel soit devenu un ancien dieu par la pratique de la tactique de l'ancien dieu, cela reposait entièrement sur ma propre culture. À l'époque, je n'avais obtenu que l'héritage des connaissances et non celui du pouvoir; certaines capacités me manquent donc encore. C'est un atout précieux, que je laisse mon corps originel l'absorber ou que je m'en serve pour déclencher une capacité. Quel que soit le prix de cette bataille, l'obtention de ceci en valait la peine! »
 
 Wang Lin prit une profonde inspiration et rangea soigneusement la petite bouteille dans son sac de rangement.

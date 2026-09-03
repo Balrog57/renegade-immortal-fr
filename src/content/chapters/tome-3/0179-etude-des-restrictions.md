@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 179 - Studying Restrictions
 slug: etude-des-restrictions
 ---
-Ce n'était pas que Wang Lin n'ait pas envisagé de revenir sur ses pas après avoir obtenu les pierres spirituelles de qualité supérieure, mais la situation était trop périlleuse dans le premier essai ; sans le Bossu Meng pour lui ouvrir la voie, il ignorait s'il pourrait seulement en revenir. Même s'il déployait tous ses efforts pour réussir, le vortex ne le ramènerait pas. La seule issue qui lui resterait serait la mort, car il n'aurait aucune chance de réussir à nouveau le premier essai.
+Ce n'était pas que Wang Lin n'ait pas envisagé de revenir sur ses pas après avoir obtenu les pierres spirituelles de qualité supérieure, mais la situation était trop périlleuse dans le premier essai; sans le Bossu Meng pour lui ouvrir la voie, il ignorait s'il pourrait seulement en revenir. Même s'il déployait tous ses efforts pour réussir, le vortex ne le ramènerait pas. La seule issue qui lui resterait serait la mort, car il n'aurait aucune chance de réussir à nouveau le premier essai.
 
 La personnalité de Wang Lin ne lui permettait pas de prendre des risques facilement, surtout lorsque des enjeux qu'il ne pouvait se permettre de perdre étaient en jeu.
 
@@ -20,11 +20,11 @@ Après avoir soigneusement inspecté les environs, Wang Lin avança. Peu de temp
 
 Le ciel était sombre, dégageant une sensation d'oppression, comme si un rocher géant pesait sur le cœur. Wang Lin traversa prudemment l'interstice entre deux restrictions avant de pousser un soupir de soulagement.
 
-Il regarda autour de lui. Un parcours de seulement trois cents pieds lui avait pris plusieurs heures. Il devait s'assurer qu'aucun problème ne subsistait à chaque pas avant de le faire.
+Il regarda autour de lui. Un parcours de seulement trois 330 mètres lui avait pris plusieurs heures. Il devait s'assurer qu'aucun problème ne subsistait à chaque pas avant de le faire.
 
 Il leva les yeux vers la montagne qui semblait infinie. Il se demanda combien d'années il lui faudrait pour atteindre le sommet s'il continuait à ce rythme.
 
-Il laissa échapper un lourd soupir. Lors du premier essai, il avait réussi grâce à la chance, mais il semblait qu'il devrait compter sur ses propres forces pour ce second essai. Après avoir réfléchi un instant, son visage s'assombrit. Avec sa simple cultivation de Formation du Noyau, l'endroit était bien trop dangereux, mais s'il tentait de faire demi-tour, ce serait encore plus périlleux.
+Il laissa échapper un lourd soupir. Lors du premier essai, il avait réussi grâce à la chance, mais il semblait qu'il devrait compter sur ses propres forces pour ce second essai. Après avoir réfléchi un instant, son visage s'assombrit. Avec sa simple culture de Formation du Noyau, l'endroit était bien trop dangereux, mais s'il tentait de faire demi-tour, ce serait encore plus périlleux.
 
 S'il voulait vivre, il devait forcer le passage vers l'avant. Wang Lin réfléchit un instant, puis ses yeux s'illuminèrent. Il ne continua pas sa progression, mais fit volte-face et franchit avec précaution l'interstice entre les deux restrictions. Il recula ainsi jusqu'à atteindre de nouveau le pied de la montagne.
 
@@ -44,7 +44,7 @@ Pour réussir cet essai, il devait apprendre à maîtriser les restrictions de c
 
 C'est la raison pour laquelle Wang Lin était redescendu afin d'étudier la première restriction en détail.
 
-Les restrictions sont très différentes des formations. Les formations utilisent des méthodes extrêmement spécifiques pour produire un effet précis, et leurs composants sont complexes ; si l'on tente de les étudier par la force, on n'en acquiert qu'une compréhension élémentaire.
+Les restrictions sont très différentes des formations. Les formations utilisent des méthodes extrêmement spécifiques pour produire un effet précis, et leurs composants sont complexes; si l'on tente de les étudier par la force, on n'en acquiert qu'une compréhension élémentaire.
 
 Les restrictions sont considérées comme une forme de formation, mais elles sont bien plus polyvalentes, car elles peuvent changer selon la volonté de leur utilisateur. Les restrictions ressemblent d'une certaine manière au Sens Divin.
 
@@ -58,7 +58,7 @@ La seconde méthode consiste à l'étudier. Une fois que l'on comprend les princ
 
 Wang Lin employait la seconde méthode.
 
-Après avoir enregistré la première restriction sur le jade, il étudia attentivement ses notes. Heureusement, il avait appris les bases des formations lorsqu'il était un dévoreur d'âmes ; il n'était donc pas totalement démuni face à cette étude.
+Après avoir enregistré la première restriction sur le jade, il étudia attentivement ses notes. Heureusement, il avait appris les bases des formations lorsqu'il était un dévoreur d'âmes; il n'était donc pas totalement démuni face à cette étude.
 
 Le temps passa lentement. Dix jours plus tard, alors que Wang Lin observait la zone, sa main droite saisit soudainement l'herbe. Celle-ci se mit alors à bouger. Cependant, Wang Lin semblait s'y attendre et suivit le mouvement de l'herbe.
 
@@ -70,21 +70,21 @@ Dix respirations plus tard, la sueur perlait sur son front et il était totaleme
 
 Alors qu'il retirait sa main, Wang Lin commença soudainement à la mouvoir de nouveau. La lumière rouge faiblit progressivement jusqu'à finir par disparaître.
 
-Lorsqu'il retira complètement sa main droite, celle-ci était totalement engourdie. Wang Lin regarda l'herbe : elle était déjà revenue à son état normal, sans aucune anomalie.
+Lorsqu'il retira complètement sa main droite, celle-ci était totalement engourdie. Wang Lin regarda l'herbe: elle était déjà revenue à son état normal, sans aucune anomalie.
 
-La restriction ici consistait à tuer quiconque tentait d'entrer. Si un individu possédait un niveau de cultivation assez élevé pour forcer le passage, la lumière rouge apparaîtrait et le traquerait jusqu'à sa mort.
+La restriction ici consistait à tuer quiconque tentait d'entrer. Si un individu possédait un niveau de culture assez élevé pour forcer le passage, la lumière rouge apparaîtrait et le traquerait jusqu'à sa mort.
 
 Après avoir étudié la restriction pendant quelques jours, Wang Lin en eut une compréhension rudimentaire. Cette fois-ci, il ne s'agissait que d'une expérimentation. Il avait mené des tests similaires plus de dix fois au cours des derniers jours.
 
 La première fois qu'il avait essayé, il n'avait tenu que trois respirations avant d'être blessé par la lumière rouge. Désormais, il pouvait tenir dix respirations et était capable de stopper la lueur. Wang Lin pensait qu'avec un peu plus de temps, il pourrait percer la restriction.
 
-Cela signifiait que s'il pénétrait complètement dans la restriction, il pourrait y survivre pendant dix respirations ; s'il en sortait durant ce laps de temps, même la lumière rouge ne pourrait l'arrêter.
+Cela signifiait que s'il pénétrait complètement dans la restriction, il pourrait y survivre pendant dix respirations; s'il en sortait durant ce laps de temps, même la lumière rouge ne pourrait l'arrêter.
 
 Wang Lin était enthousiaste. Bien que cette restriction fût la plus simple de la montagne, il croyait avoir trouvé la bonne voie. Tant qu'il suivrait ce chemin, il ne serait pas impossible de quitter cet endroit.
 
 Si le but initial de Wang Lin en apprenant les restrictions était de s'échapper, il se trouvait désormais avec un nouvel objectif. Plus il approfondissait ses recherches, plus il se passionnait pour les restrictions. Il n'avait jamais réalisé à quel point elles pouvaient être puissantes.
 
-Par exemple, les restrictions présentes dans l'herbe ici : bien que Wang Lin puisse les traverser en toute sécurité, il ne pouvait pas en placer lui-même car il ne les maîtrisait pas encore totalement. Une fois qu'il les aurait parfaitement assimilées et qu'elles seraient devenues siennes, il pourrait alors les déployer.
+Par exemple, les restrictions présentes dans l'herbe ici: bien que Wang Lin puisse les traverser en toute sécurité, il ne pouvait pas en placer lui-même car il ne les maîtrisait pas encore totalement. Une fois qu'il les aurait parfaitement assimilées et qu'elles seraient devenues siennes, il pourrait alors les déployer.
 
 Bien que ce ne fût pas aussi puissant que l'original, la nature étrange de la restriction n'en serait pas moins redoutable.
 
@@ -96,7 +96,7 @@ Simultanément, des hurlements retentirent de toutes parts tandis qu'une pluie d
 
 Wang Lin resta calme et ne prêta aucune attention aux projectiles. Il continua d'avancer comme s'il marchait dans son propre jardin, alors que les armes convergeaient vers lui.
 
-Il agita négligemment sa main droite. Bien que le mouvement parût très lent, sa main atteignait mystérieusement les armes avant elles. Si un observateur extérieur avait vu cela, il en aurait été stupéfait : une telle prouesse n'était possible que pour quelqu'un ayant une compréhension totale de la restriction.
+Il agita négligemment sa main droite. Bien que le mouvement parût très lent, sa main atteignait mystérieusement les armes avant elles. Si un observateur extérieur avait vu cela, il en aurait été stupéfait: une telle prouesse n'était possible que pour quelqu'un ayant une compréhension totale de la restriction.
 
 Wang Lin ne possédait aucune technique spéciale, mais il savait que sa main serait plus rapide que les armes, et il devenait plus rapide par la simple pensée qu'il l'était.
 
@@ -116,7 +116,7 @@ Il laissa échapper un rire en franchissant la limite. Après tout ce temps, il 
 
 La restriction trembla soudainement, et le mouvement de l'herbe changea. Pour qui regarderait de près, le mouvement serait devenu bien plus complexe qu'auparavant.
 
-Wang Lin murmura pour lui-même : « Si quelqu'un apparaît derrière moi, il devra être prudent ! » Fort de sa compréhension, il venait d'y ajouter une couche supplémentaire.
+Wang Lin murmura pour lui-même: « Si quelqu'un apparaît derrière moi, il devra être prudent! » Fort de sa compréhension, il venait d'y ajouter une couche supplémentaire.
 
 Désormais, quiconque entrerait dans cette restriction, peu importe ses actions, déclencherait sa seconde restriction. Avec cet ajout, il y avait de fortes chances que quelqu'un meure dans cette étendue herbeuse.
 
@@ -132,21 +132,21 @@ Une fois cela accompli, Wang Lin commença à gravir la montagne.
 
 Son expression était sombre. À ses côtés se tenait le jeune homme qui l'accompagnait, lequel restait hébété, fixant simplement la brume.
 
-Le Seigneur Démoniaque des Six Désirs regarda le jeune homme, puis jeta un coup d'œil derrière lui avant de laisser échapper un sourire froid. La première épreuve qu'il avait affrontée était l'épreuve de la glace, qu'il connaissait parfaitement. Bien qu'il n'ait pas le trésor de l'Empereur Antique, comment n'aurait-il pas pu se préparer en mille ans ?
+Le Seigneur Démoniaque des Six Désirs regarda le jeune homme, puis jeta un coup d'œil derrière lui avant de laisser échapper un sourire froid. La première épreuve qu'il avait affrontée était l'épreuve de la glace, qu'il connaissait parfaitement. Bien qu'il n'ait pas le trésor de l'Empereur Antique, comment n'aurait-il pas pu se préparer en mille ans?
 
 À l'époque, il avait affirmé être capable de faire passer tout le monde à travers la seconde moitié de l'épreuve de la glace. S'il l'avait dit, c'est qu'il était sûr de lui à cent pour cent.
 
 En réalité, il y a cinq cents ans, il avait obtenu un trésor lui permettant d'utiliser une technique d'évasion aquatique, dont l'effet était similaire au bateau terrestre de Wang Qingyue.
 
-Par conséquent, grâce à sa cultivation et à sa connaissance de l'épreuve de la glace, il l'avait traversée aisément avec le jeune homme.
+Par conséquent, grâce à sa culture et à sa connaissance de l'épreuve de la glace, il l'avait traversée aisément avec le jeune homme.
 
-Quant au Chemin du Retour situé entre la première et la seconde épreuve, ce n'était pas un problème pour lui. Bien qu'il eût failli mourir lors de sa première visite, il maîtrisait désormais la Méthode de Cultivation Démoniaque des Six Désirs. La chose dont il craignait le moins était désormais ce qui jouait sur ses émotions, car il en avait longuement étudié les mécanismes.
+Quant au Chemin du Retour situé entre la première et la seconde épreuve, ce n'était pas un problème pour lui. Bien qu'il eût failli mourir lors de sa première visite, il maîtrisait désormais la Méthode de Culture Démoniaque des Six Désirs. La chose dont il craignait le moins était désormais ce qui jouait sur ses émotions, car il en avait longuement étudié les mécanismes.
 
 Le Chemin du Retour n'était pour lui qu'un jeu d'enfant. S'il n'avait pas eu à protéger le jeune homme, cela ne lui aurait pris aucun temps.
 
 Bien que la protection d'autrui ait ralenti sa progression, le résultat restait inchangé.
 
-Sa seule inquiétude concernait cette seconde épreuve : la fameuse Montagne des Restrictions. Elle portait ce nom car toute la montagne était couverte de restrictions, et plus on montait, plus elles devenaient puissantes.
+Sa seule inquiétude concernait cette seconde épreuve: la fameuse Montagne des Restrictions. Elle portait ce nom car toute la montagne était couverte de restrictions, et plus on montait, plus elles devenaient puissantes.
 
 À l'époque, ils étaient arrivés à quatre avec d'autres cultivateurs puissants et avaient réussi à passer. Cependant, beaucoup périrent, forcés par ces puissants individus à tester la force des restrictions.
 
@@ -154,7 +154,7 @@ Si le Seigneur Démoniaque des Six Désirs n'était pas venu avec son maître, i
 
 Cependant, son maître avait été la force principale pour briser les barrières. Maître des restrictions et des formations, il avait étudié et percé les protections jusqu'à mille pieds avant la sortie. Mais il n'avait pu aller plus loin. Finalement, il avait posé une restriction supplémentaire par-dessus. Puis, en collaborant avec d'autres cultivateurs de la Formation de l'Âme, ils avaient tué un cultivateur de la Formation de l'Âme au stade intermédiaire. Ce n'est qu'en utilisant le corps de ce dernier qu'ils purent ouvrir un tunnel de mille pieds de long pour passer.
 
-Ce tunnel ne durait que trois respirations. Les survivants chanceux s'y précipitèrent tous. Finalement, seul un petit groupe réussit ; tous les autres moururent.
+Ce tunnel ne durait que trois respirations. Les survivants chanceux s'y précipitèrent tous. Finalement, seul un petit groupe réussit; tous les autres moururent.
 
 Chaque fois que le Seigneur Démoniaque des Six Désirs y pensait, il ressentait la dangerosité de l'endroit. Ce n'est que maintenant qu'il avait atteint lui-même le stade intermédiaire de la Formation de l'Âme qu'il osait revenir.
 
@@ -184,7 +184,7 @@ Il savait qu'il était facile de traverser cette zone, mais il savait aussi qu'i
 
 Wang Lin entreprit donc une étude minutieuse des restrictions.
 
-Dans la montagne, la notion du temps s'était effacée ; en un clin d'œil, sept ans passèrent. Ce jour-là, Wang Lin but un peu de liquide spirituel tout en se tenant sur un rocher sur le flanc de la montagne. Au cours de ces sept années, la moitié des cheveux de Wang Lin était devenue blanche.
+Dans la montagne, la notion du temps s'était effacée; en un clin d'œil, sept ans passèrent. Ce jour-là, Wang Lin but un peu de liquide spirituel tout en se tenant sur un rocher sur le flanc de la montagne. Au cours de ces sept années, la moitié des cheveux de Wang Lin était devenue blanche.
 
 Il s'était consacré corps et âme à l'étude des restrictions, ce qui lui imposait un stress mental constant. Il y a quatre ans, ses cheveux avaient commencé à blanchir dès la racine.
 
@@ -192,7 +192,7 @@ Cependant, son Sens Divin était devenu plus puissant sous cette pression, et il
 
 Son regard était devenu encore plus perçant, et son tempérament avait grandement changé. Si Wang Lin ressemblait à une glace éternelle il y a sept ans, il était désormais tout aussi impossible à cerner.
 
-Ce sentiment émanait de ses yeux. Ses yeux semblaient pouvoir tout voir, et des étoiles semblaient parfois y briller. Si Duanmu Ji voyait Wang Lin aujourd'hui, il ne le croirait probablement pas : c'étaient les yeux du Sens Divin que l'on n'obtenait qu'une fois un certain niveau de maîtrise des restrictions atteint.
+Ce sentiment émanait de ses yeux. Ses yeux semblaient pouvoir tout voir, et des étoiles semblaient parfois y briller. Si Duanmu Ji voyait Wang Lin aujourd'hui, il ne le croirait probablement pas: c'étaient les yeux du Sens Divin que l'on n'obtenait qu'une fois un certain niveau de maîtrise des restrictions atteint.
 
 Wang Lin avait passé ces sept dernières années à affiner son regard. Il avait rencontré d'innombrables restrictions, exigeant toutes une étude et un examen minutieux. Il avait failli être tué par elles à plusieurs reprises.
 
@@ -202,4 +202,4 @@ Rien qu'en observant ces dernières, Wang Lin pouvait voir que la compréhension
 
 Pourtant, Wang Lin n'avait aucune crainte. Son désir de quitter la seconde épreuve avait considérablement diminué. De son point de vue, cet endroit était un paradis pour l'apprentissage des restrictions. La complexité croissante des barrières permettait à un étudiant de commencer par les bases pour progresser graduellement.
 
-Un tel lieu était presque impossible à trouver. Les restrictions allaient du simple au complexe ; c'était un endroit d'une valeur inestimable.
+Un tel lieu était presque impossible à trouver. Les restrictions allaient du simple au complexe; c'était un endroit d'une valeur inestimable.

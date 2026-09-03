@@ -14,37 +14,37 @@ Une fois le vent retombé, trois silhouettes se révélèrent.
 
 Il s'agissait de trois vieillards aux cheveux blancs, et une puissante énergie d'épée émanait de leurs robes noires. Chacun d'eux portait une épée précieuse sur son dos, laquelle dégageait des ondes de pression tranchantes.
 
-Parmi les trois, seul l'un d'eux se trouvait au stade avancé de la Formation de l'Âme ; les deux autres étaient au début du stade de la Transformation de l'Âme.
+Parmi les trois, seul l'un d'eux se trouvait au stade avancé de la Formation de l'Âme; les deux autres étaient au début du stade de la Transformation de l'Âme.
 
-Dès que l'homme nommé Guo aperçut les trois individus, son cœur trembla. Il s'inclina immédiatement et dit respectueusement : « Le disciple de la sixième génération, Guo Xingyi, salue son Oncle-Maître. » L'homme devant qui il s'inclinait était le seul cultivateur au stade de la Formation de l'Âme parmi les trois. L'expression de Guo Xingyi était empreinte d'une immense déférence.
+Dès que l'homme nommé Guo aperçut les trois individus, son cœur trembla. Il s'inclina immédiatement et dit respectueusement: « Le disciple de la sixième génération, Guo Xingyi, salue son Oncle-Maître. » L'homme devant qui il s'inclinait était le seul cultivateur au stade de la Formation de l'Âme parmi les trois. L'expression de Guo Xingyi était empreinte d'une immense déférence.
 
-Le vieillard de la Formation de l'Âme sourit, hocha la tête et dit : « Guo Xingyi, viens saluer les deux Anciens du Pavillon de l'Épée ! » Il s'écarta sur le côté en lançant un regard à Guo Xingyi.
+Le vieillard de la Formation de l'Âme sourit, hocha la tête et dit: « Guo Xingyi, viens saluer les deux Anciens du Pavillon de l'Épée! » Il s'écarta sur le côté en lançant un regard à Guo Xingyi.
 
-Guo Xingyi s'agenouilla promptement sur un genou et déclara, avec encore plus de respect qu'auparavant : « Le disciple salue les Anciens ! »
+Guo Xingyi s'agenouilla promptement sur un genou et déclara, avec encore plus de respect qu'auparavant: « Le disciple salue les Anciens! »
 
-L'un des deux vieillards au stade de la Transformation de l'Âme était petit, tandis que l'autre était grand. Ce dernier déclara : « Relève-toi et parle. Est-ce toi qui as trouvé le Fruit d'Or Brillant ? »
+L'un des deux vieillards au stade de la Transformation de l'Âme était petit, tandis que l'autre était grand. Ce dernier déclara: « Relève-toi et parle. Est-ce toi qui as trouvé le Fruit d'Or Brillant? »
 
 Guo Xingyi se redressa rapidement, puis désigna la femme, Qian Qin, qui n'avait toujours pas prononcé un mot et se contentait de le fixer d'un regard froid. « Cette femme est une amie proche du disciple. Les Fruits d'Or Brillants ont été découverts par sa secte, mais des bêtes démoniaques les gardaient, et ils n'avaient pas la puissance nécessaire pour les obtenir. Le disciple ne faisait que passer et a accepté de les accompagner. »
 
-Les deux Anciens de la Transformation de l'Âme échangèrent un regard. Le plus petit demanda : « Jeune fille, combien de Fruits d'Or Brillants as-tu vus ? »
+Les deux Anciens de la Transformation de l'Âme échangèrent un regard. Le plus petit demanda: « Jeune fille, combien de Fruits d'Or Brillants as-tu vus? »
 
-Qian Qin n'avait guère envie de parler, mais sous le regard fulgurant du vieillard, elle ne put s'empêcher de répondre doucement : « Il y en a environ une centaine. »
+Qian Qin n'avait guère envie de parler, mais sous le regard fulgurant du vieillard, elle ne put s'empêcher de répondre doucement: « Il y en a environ une centaine. »
 
-« Cent ! » Les yeux du petit vieillard s'illuminèrent soudainement. « Les bêtes démoniaques qui gardent cent Fruits d'Or Brillants doivent être extrêmement puissantes. Si ta secte a réussi à les localiser, elle n'est donc pas insignifiante ! »
+« Cent! » Les yeux du petit vieillard s'illuminèrent soudainement. « Les bêtes démoniaques qui gardent cent Fruits d'Or Brillants doivent être extrêmement puissantes. Si ta secte a réussi à les localiser, elle n'est donc pas insignifiante! »
 
-Qian Qin resta silencieuse, mais l'homme en robe blanche de sa propre secte s'exclama avec indignation : « Ma secte a déployé d'immenses efforts et a sacrifié plusieurs Anciens pour trouver ces Fruits d'Or Brillants. Votre Secte de l'Épée Da Luo... »
+Qian Qin resta silencieuse, mais l'homme en robe blanche de sa propre secte s'exclama avec indignation: « Ma secte a déployé d'immenses efforts et a sacrifié plusieurs Anciens pour trouver ces Fruits d'Or Brillants. Votre Secte de l'Épée Da Luo... »
 
-Qian Qin fronça les sourcils et cria : « Tais-toi ! »
+Qian Qin fronça les sourcils et cria: « Tais-toi! »
 
 Le visage de l'homme se crispa de colère. Il prit une profonde inspiration, tourna la tête et ne dit plus un mot.
 
-Guo Xingyi hésita un instant avant de dire respectueusement : « Seigneur Ancien, Qian Qin est une amie proche du disciple. Une fois les Fruits d'Or Brillants obtenus, serait-il possible de lui en accorder un ? »
+Guo Xingyi hésita un instant avant de dire respectueusement: « Seigneur Ancien, Qian Qin est une amie proche du disciple. Une fois les Fruits d'Or Brillants obtenus, serait-il possible de lui en accorder un? »
 
-Le grand vieillard eut un rire et répondit : « Si nous les trouvons, nous lui en donnerons un ! Montre-nous le chemin ! »
+Le grand vieillard eut un rire et répondit: « Si nous les trouvons, nous lui en donnerons un! Montre-nous le chemin! »
 
 Qian Qin poussa un soupir, le cœur lourd de sentiments complexes. Elle n'avait d'autre choix que de mener la marche, sous peine de porter préjudice à sa secte. Avec la tyrannie dont faisait preuve la Secte de l'Épée Da Luo, quiconque oserait s'y opposer serait anéanti.
 
-Sans parler du fait que ces deux seuls Anciens dégageaient une aura plusieurs fois supérieure à celle du Grand Ancien de sa propre secte. Comparée à la Secte de l'Épée Da Luo, sa secte n'était qu'une luciole ; ils n'avaient aucune chance de résister...
+Sans parler du fait que ces deux seuls Anciens dégageaient une aura plusieurs fois supérieure à celle du Grand Ancien de sa propre secte. Comparée à la Secte de l'Épée Da Luo, sa secte n'était qu'une luciole; ils n'avaient aucune chance de résister...
 
 « Guo Xingyi, trahir ma confiance... » Qian Qin ressentit une amertume profonde. Elle lança un regard assassin à Guo Xingyi avant de serrer les mâchoires et de s'enfoncer dans les Terres Démoniaques du Nord.
 
@@ -54,7 +54,7 @@ Wang Lin progressait à travers les Terres Démoniaques du Nord. Les mains derri
 
 La chaîne de montagnes environnante était plongée dans un silence absolu, sans aucun signe de vie. Alors qu'il volait, une lueur spectrale clignota devant lui, puis une silhouette jaillit soudainement de sa cachette pour charger Wang Lin.
 
-La vitesse de la silhouette était fulgurante ; en un clin d'œil, elle fut sur lui. Elle était enveloppée d'un brouillard noir et une odeur de sang s'engouffra vers Wang Lin.
+La vitesse de la silhouette était fulgurante; en un clin d'œil, elle fut sur lui. Elle était enveloppée d'un brouillard noir et une odeur de sang s'engouffra vers Wang Lin.
 
 Le corps de Wang Lin ne ralentit pas et son expression resta imperturbable. Au moment où la forme noire allait le percuter, il frotta ses doigts de la main droite et pointa l'ennemi.
 
@@ -74,11 +74,11 @@ Wang Lin retira son doigt et reprit sa progression. En se retirant, des filament
 
 Le temps passa lentement. Wang Lin se déplaçait avec rapidité sans toutefois s'enfoncer trop profondément. Il déploya son Sens Divin pour verrouiller la position des membres de la Secte de l'Épée Da Luo.
 
-Chaque mouvement de ces derniers était parfaitement visible par le Sens Divin de Wang Lin ; ils ne pouvaient rien lui cacher.
+Chaque mouvement de ces derniers était parfaitement visible par le Sens Divin de Wang Lin; ils ne pouvaient rien lui cacher.
 
 Wang Lin voulait découvrir la nature exacte de ce Fruit d'Or Brillant. Il souhaitait également utiliser les membres de la Secte de l'Épée Da Luo, et plus particulièrement ces deux Anciens au stade de la Transformation de l'Âme, comme sujets d'entraînement pour son Art de l'Abattage Céleste.
 
-À cet instant, Wang Lin n'éprouvait toujours aucune bienveillance envers la Secte de l'Épée Da Luo !
+À cet instant, Wang Lin n'éprouvait toujours aucune bienveillance envers la Secte de l'Épée Da Luo!
 
 Alors qu'il survolait la chaîne de montagnes, le gaz gris autour de ses doigts était devenu plusieurs fois plus épais qu'auparavant. Les filaments de gaz s'enroulaient avec célérité autour de ses phalanges, tels des cordages.
 
@@ -98,9 +98,9 @@ Tout au long de son périple, chaque fois que Wang Lin abattait une bête au sta
 
 S'il n'avait pas été pour le fait que le crapaud tonnerre ne convenait pas à ce mode de croissance, il l'aurait également libéré.
 
-Le moustique était, après tout, une bête venue des étoiles. Bien qu'il soit apparu sur la planète Suzaku pour une raison obscure, sa férocité surpassait celle de n'importe quelle créature issue d'une planète de cultivation.
+Le moustique était, après tout, une bête venue des étoiles. Bien qu'il soit apparu sur la planète Suzaku pour une raison obscure, sa férocité surpassait celle de n'importe quelle créature issue d'une planète de culture.
 
-Cette bête vivait pour dévorer ; elle pouvait consommer n'importe quel type de créature au monde et, plus elle dévorait, plus elle devenait puissante.
+Cette bête vivait pour dévorer; elle pouvait consommer n'importe quel type de créature au monde et, plus elle dévorait, plus elle devenait puissante.
 
 Depuis qu'il l'avait suivie, elle avait englouti d'innombrables pilules, trésors célestes et noyaux divers. Bien que sa force fût encore au stade de l'Âme Naissante, sa férocité pouvait terrifier des bêtes même au stade de la Formation de l'Âme.
 
@@ -108,7 +108,7 @@ Le corps de Wang Lin avança et plana dans les airs. Le moustique poussa un rugi
 
 En plein vol, Wang Lin remarqua quelque chose. Le moustique le sentit également et s'arrêta net. Il resta immobile, attendant les ordres de son maître.
 
-Wang Lin regarda vers le sud, esquissa un sourire et murmura pour lui-même : « Ont-ils trouvé le Fruit d'Or Brillant... ? »
+Wang Lin regarda vers le sud, esquissa un sourire et murmura pour lui-même: « Ont-ils trouvé le Fruit d'Or Brillant...? »
 
 D'une simple pensée, le moustique se dirigea vers le sud sans un bruit, tel un fantôme dans la nuit. Cependant, ses yeux étaient injectés de soif de sang et brillaient comme des flammes spectrales.
 

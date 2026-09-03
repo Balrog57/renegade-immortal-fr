@@ -12,17 +12,17 @@ Les Quatre Grandes Sectes Divines s'étaient évanouies depuis bien trop longtem
 
 Seuls quelques puissants cultivateurs conservaient encore un respect pour les Quatre Grandes Sectes dans leurs mémoires. Ils en frémissaient du plus profond de leur cœur dès qu'ils entendaient leur nom.
 
-Les Quatre Grandes Sectes étaient encore plus puissantes et mystérieuses que l'actuelle Alliance de Cultivation. Même le Royaume du Vide Brillant redoutait les Quatre Grandes Sectes.
+Les Quatre Grandes Sectes étaient encore plus puissantes et mystérieuses que l'actuelle Alliance de Culture. Même le Royaume du Vide Brillant redoutait les Quatre Grandes Sectes.
 
-En conséquence, ils avaient formé une alliance avec l'Alliance de Cultivation. Après de multiples complots, ils parvinrent à mener les Quatre Grandes Sectes vers leur point de faiblesse le plus critique.
+En conséquence, ils avaient formé une alliance avec l'Alliance de Culture. Après de multiples complots, ils parvinrent à mener les Quatre Grandes Sectes vers leur point de faiblesse le plus critique.
 
-L'Empereur Divin du Dragon Azure, le plus puissant d'entre eux, disparut, et la nouvelle de l'entrée de l'Empereur Divin de l'Oiseau Vermillon — le plus craint de tous — dans sa troisième Affliction Céleste fut divulguée. Cela plongea les Quatre Grandes Sectes dans une crise sans précédent !
+L'Empereur Divin du Dragon Azure, le plus puissant d'entre eux, disparut, et la nouvelle de l'entrée de l'Empereur Divin de l'Oiseau Vermillon — le plus craint de tous — dans sa troisième Affliction Céleste fut divulguée. Cela plongea les Quatre Grandes Sectes dans une crise sans précédent!
 
-Néanmoins, les Quatre Grandes Sectes étaient encore assez fortes pour lutter contre l'Alliance de Cultivation et ne craignaient pas le Royaume du Vide Brillant. Après tout, pour diverses raisons, le Royaume du Vide Brillant ne pouvait intervenir qu'en secret. Même s'ils s'étaient manifestés ouvertement, les Quatre Grandes Sectes auraient pu activer les Quatre Trésors Divins pour mener bataille.
+Néanmoins, les Quatre Grandes Sectes étaient encore assez fortes pour lutter contre l'Alliance de Culture et ne craignaient pas le Royaume du Vide Brillant. Après tout, pour diverses raisons, le Royaume du Vide Brillant ne pouvait intervenir qu'en secret. Même s'ils s'étaient manifestés ouvertement, les Quatre Grandes Sectes auraient pu activer les Quatre Trésors Divins pour mener bataille.
 
-Cependant, au moment le plus crucial de l'affrontement entre les Quatre Grandes Sectes et l'Alliance, un événement cataclysmique se produisit, causant finalement le déclin définitif des Quatre Grandes Sectes !
+Cependant, au moment le plus crucial de l'affrontement entre les Quatre Grandes Sectes et l'Alliance, un événement cataclysmique se produisit, causant finalement le déclin définitif des Quatre Grandes Sectes!
 
-L'Empereur Divin de la Tortue Noire, ses trois principaux disciples ainsi qu'une majorité de sa secte trahirent les Quatre Grandes Sectes ! Non seulement cela, mais durant cette trahison, il lança une attaque surprise contre l'Empereur Divin de l'Oiseau Vermillon. Bien qu'il ait finalement échoué, il provoqua l'éruption de la troisième Affliction Céleste que l'Empereur Divin de l'Oiseau Vermillon était en train de réprimer.
+L'Empereur Divin de la Tortue Noire, ses trois principaux disciples ainsi qu'une majorité de sa secte trahirent les Quatre Grandes Sectes! Non seulement cela, mais durant cette trahison, il lança une attaque surprise contre l'Empereur Divin de l'Oiseau Vermillon. Bien qu'il ait finalement échoué, il provoqua l'éruption de la troisième Affliction Céleste que l'Empereur Divin de l'Oiseau Vermillon était en train de réprimer.
 
 Une telle chose était absolument inconcevable pour les Quatre Grandes Sectes, qui reposaient sur des héritages de lignée sanguine. La trahison de l'Empereur Divin de la Tortue Noire et d'une grande partie de sa secte infligea un bouleversement inimaginable à cette guerre.
 
@@ -30,9 +30,9 @@ Une telle chose était absolument inconcevable pour les Quatre Grandes Sectes, q
 
 Jusqu'à ce jour, personne n'a su pourquoi l'Empereur Divin de la Tortue Noire, l'un des quatre empereurs divins, avait trahi les Quatre Grandes Sectes. Tout cela demeure un mystère non résolu.
 
-La trahison de l'Empereur Divin de la Tortue Noire renforça l'Alliance de Cultivation. Cette bataille ébranla tout le système stellaire et laissa des cadavres ensanglantés partout sur son passage.
+La trahison de l'Empereur Divin de la Tortue Noire renforça l'Alliance de Culture. Cette bataille ébranla tout le système stellaire et laissa des cadavres ensanglantés partout sur son passage.
 
-Pourtant, l'Alliance de Cultivation sous-estima encore les Quatre Grandes Sectes. Suite à la trahison, l'Empereur Divin de l'Oiseau Vermillon risqua d'échouer lors de sa troisième Affliction Céleste et inonda les étoiles d'une mer de flammes. Il se divisa ensuite en dix avatars et lança une contre-attaque effrénée.
+Pourtant, l'Alliance de Culture sous-estima encore les Quatre Grandes Sectes. Suite à la trahison, l'Empereur Divin de l'Oiseau Vermillon risqua d'échouer lors de sa troisième Affliction Céleste et inonda les étoiles d'une mer de flammes. Il se divisa ensuite en dix avatars et lança une contre-attaque effrénée.
 
 Cette bataille fut une tragédie. Les rares cultivateurs qui survécurent frémissaient à chaque fois qu'ils s'en remémoraient.
 
@@ -40,17 +40,17 @@ En fin de compte, les Quatre Grandes Sectes furent vaincues. Le Royaume du Vide 
 
 Cependant, même eux sousestimèrent les Quatre Grandes Sectes. L'Empereur Divin de l'Oiseau Vermillon perdit huit de ses avatars et son corps original faillit s'effondrer, ne laissant derrière lui qu'une trace de volonté.
 
-La Secte Divine du Dragon Azure subit de lourdes pertes ; un ou deux membres seulement sur dix survécurent ! La Secte Divine de la Tortue Noire fut presque anéantie !
+La Secte Divine du Dragon Azure subit de lourdes pertes; un ou deux membres seulement sur dix survécurent! La Secte Divine de la Tortue Noire fut presque anéantie!
 
-L'Empereur Divin du Tigre Blanc tua de nombreux Anciens de la première vague de l'Alliance ainsi que de nombreux membres du Royaume du Vide Brillant. Même à la fin, alors qu'il rendait l'âme, son corps ne s'effondra pas mais resta debout, faisant barrage à l'armée de l'Alliance de Cultivation. L'intention meurtrière monstrueuse qu'il dégageait choqua d'innombrables personnes, les empêchant de faire un pas de plus.
+L'Empereur Divin du Tigre Blanc tua de nombreux Anciens de la première vague de l'Alliance ainsi que de nombreux membres du Royaume du Vide Brillant. Même à la fin, alors qu'il rendait l'âme, son corps ne s'effondra pas mais resta debout, faisant barrage à l'armée de l'Alliance de Culture. L'intention meurtrière monstrueuse qu'il dégageait choqua d'innombrables personnes, les empêchant de faire un pas de plus.
 
-Cette guerre tragique prit fin là, et on peut dire que les deux camps en sortirent épuisés. Les Quatre Grandes Sectes avaient perdu, mais la puissance de l'Alliance de Cultivation en fut également gravement affectée. Même le Royaume du Vide Brillant dut renoncer à ses plans d'extermination totale. Ce n'était pas par manque de volonté, mais si ils avaient persisté, le prix de la victoire aurait été quelque chose que ni l'Alliance ni le Royaume du Vide Brillant ne pourraient supporter.
+Cette guerre tragique prit fin là, et on peut dire que les deux camps en sortirent épuisés. Les Quatre Grandes Sectes avaient perdu, mais la puissance de l'Alliance de Culture en fut également gravement affectée. Même le Royaume du Vide Brillant dut renoncer à ses plans d'extermination totale. Ce n'était pas par manque de volonté, mais si ils avaient persisté, le prix de la victoire aurait été quelque chose que ni l'Alliance ni le Royaume du Vide Brillant ne pourraient supporter.
 
 Après tout, la rumeur des Quatre Trésors Divins capables de fendre les cieux subsistait. Si ils avaient réellement acculé les Quatre Grandes Sectes à une situation désespérée, ces dernières auraient pu facilement sacrifier l'intégralité de leur secte pour les emporter dans leur chute.
 
-Dès lors, les Quatre Grandes Sectes disparurent sans laisser de trace. Durant ces dizaines de milliers d'années, elles n'apparurent presque jamais, et même lorsqu'elles le faisaient, elles n'occupaient qu'un nombre restreint de planètes. De cette manière, elles s'intégrèrent également à l'Alliance ; la planète Suzaku en est un parfait exemple.
+Dès lors, les Quatre Grandes Sectes disparurent sans laisser de trace. Durant ces dizaines de milliers d'années, elles n'apparurent presque jamais, et même lorsqu'elles le faisaient, elles n'occupaient qu'un nombre restreint de planètes. De cette manière, elles s'intégrèrent également à l'Alliance; la planète Suzaku en est un parfait exemple.
 
-Cependant, l'apparition d'un oiseau vermillon de plusieurs centaines de milliers de kilomètres de large parmi les étoiles signalait clairement que les Quatre Grandes Sectes allaient une fois de plus surgir dans le système stellaire !
+Cependant, l'apparition d'un oiseau vermillon de plusieurs centaines de milliers de kilomètres de large parmi les étoiles signalait clairement que les Quatre Grandes Sectes allaient une fois de plus surgir dans le système stellaire!
 
 En chemin, même les météores qui croisaient sa route furent réduits en cendres par l'Oiseau Vermillon. Cela choqua de nombreux cultivateurs de l'Alliance, qui commencèrent à spéculer.
 
@@ -58,7 +58,7 @@ Même Allheaven obtint immédiatement des informations sur l'apparition de l'Ois
 
 La guerre que Allheaven avait mise en suspens venait de reprendre à grande échelle. Ils utilisèrent la région nord comme base pour lancer leur offensive.
 
-D'autres cultivateurs d'Allheaven arrivèrent également. Presque tous les membres d'Allheaven furent mobilisés pour attaquer l'Alliance de toutes leurs forces !
+D'autres cultivateurs d'Allheaven arrivèrent également. Presque tous les membres d'Allheaven furent mobilisés pour attaquer l'Alliance de toutes leurs forces!
 
 Wang Lin ignorait tout cela. À cet instant, il était assis dans sa cavité, cultivant les yeux clos. De temps à autre, il extrayait une âme originelle pour la dévorer. Heureusement, il disposait en suffisance d'âmes originelles dans son sac pour se nourrir.
 
@@ -70,7 +70,7 @@ Avant que le moindre gravier ne puisse l'atteindre, une lueur argentée surgissa
 
 Une énergie originelle infinie émanait des âmes originelles dévorées par Wang Lin, et cette énergie se rassemblait follement au cœur de son âme originelle. Si cela s'était produit avant l'éveil de l'Oiseau Vermillon et que son énergie ne contenait pas la flamme sacrée, il aurait déjà réussi sa percée.
 
-Cependant, l'énergie originelle de Wang Lin était imprégnée de flammes ; l'énergie qu'il dévorait devait donc être transformée. Elle était raffinée à l'intérieur même de son âme originelle.
+Cependant, l'énergie originelle de Wang Lin était imprégnée de flammes; l'énergie qu'il dévorait devait donc être transformée. Elle était raffinée à l'intérieur même de son âme originelle.
 
 Bien que ce processus fût plus laborieux, une fois accompli, la force de Wang Lin s'en trouverait décuplée.
 
@@ -80,21 +80,21 @@ Le cadavre féminin argenté fronça les sourcils, mais elle ne bougea pas d'un 
 
 À mesure que son aura grandissait, la tempête d'énergie originelle émanant de son corps devenait plus violente. Un grondement sourd secoua la grotte, provoquant un effondrement généralisé.
 
-Le sol sur lequel Wang Lin était assis se fendit soudainement. Alors que le plancher cédait, il bascula dans l'abîme. La tempête qui l'entourait balaya tous les débris tombés ; à cet instant, la tempête de Wang Lin agissait comme une foreuse s'enfonçant dans les profondeurs.
+Le sol sur lequel Wang Lin était assis se fendit soudainement. Alors que le plancher cédait, il bascula dans l'abîme. La tempête qui l'entourait balaya tous les débris tombés; à cet instant, la tempête de Wang Lin agissait comme une foreuse s'enfonçant dans les profondeurs.
 
 Le cadavre féminin argenté suivit Wang Lin telle un rayon de lumière argentée. La chaleur extrême caressait son visage, faisant légèrement rougir sa pâleur. Elle ne cilla pas et garda ses yeux fixés sur lui.
 
-Le corps de Wang Lin continua de s'enfoncer, puis il ouvrit soudainement les yeux. Deux faisceaux de flammes jaillirent de ses pupilles. À l'instant même où ses yeux s'ouvrirent, la tempête atteignit son paroxysme et balaya toute la zone. Puis, l'aura d'un cultivateur du stade avancé du Scruteur du Nirvana se propagea.
+Le corps de Wang Lin continua de s'enfoncer, puis il ouvrit soudainement les yeux. Deux faisceaux de flammes jaillirent de ses pupilles. À l'instant même où ses yeux s'ouvrirent, la tempête atteignit son paroxysme et balaya toute la zone. Puis, l'aura d'un cultivateur du stade avancé du Nirvana Scryer se propagea.
 
-Cette sensation de puissance était telle qu'il avait l'impression de contrôler le monde entier. À cet instant, il sentait qu'il pouvait détruire l'univers d'un simple sortilège. Tout ce qu'il percevait changea ; tout ce qui se trouvait devant lui semblait n'être composé que de fils de loi.
+Cette sensation de puissance était telle qu'il avait l'impression de contrôler le monde entier. À cet instant, il sentait qu'il pouvait détruire l'univers d'un simple sortilège. Tout ce qu'il percevait changea; tout ce qui se trouvait devant lui semblait n'être composé que de fils de loi.
 
-C'était la Loi, visible par ses yeux !
+C'était la Loi, visible par ses yeux!
 
-Après avoir atteint la deuxième étape, il fallait scruter les Lois. Une fois un certain seuil franchi, on pouvait atteindre le sommet du Scruteur du Nirvana.
+Après avoir atteint la deuxième étape, il fallait scruter les Lois. Une fois un certain seuil franchi, on pouvait atteindre le sommet du Nirvana Scryer.
 
-— J'ai percé ! souffla Wang Lin en prenant une profonde inspiration. Atteindre simplement le stade avancé du Scruteur du Nirvana ne lui suffisait pas. Après l'évolution de son domaine et l'atteinte de ce stade, il sentait qu'il restait encore une marge de progression. Il n'avait besoin que d'assez d'énergie originelle pour atteindre le sommet absolu du stade avancé du Scruteur du Nirvana !
+— J'ai percé! souffla Wang Lin en prenant une profonde inspiration. Atteindre simplement le stade avancé du Nirvana Scryer ne lui suffisait pas. Après l'évolution de son domaine et l'atteinte de ce stade, il sentait qu'il restait encore une marge de progression. Il n'avait besoin que d'assez d'énergie originelle pour atteindre le sommet absolu du stade avancé du Nirvana Scryer!
 
-Les yeux de Wang Lin brillèrent. N'ayant pas le temps de s'examiner, il se contenta de dévorer toutes les âmes originelles restantes en lui. À cet instant, son énergie de stade avancé du Scruteur du Nirvana fut transmutée par les flammes et devint bien plus puissante.
+Les yeux de Wang Lin brillèrent. N'ayant pas le temps de s'examiner, il se contenta de dévorer toutes les âmes originelles restantes en lui. À cet instant, son énergie de stade avancé du Nirvana Scryer fut transmutée par les flammes et devint bien plus puissante.
 
 L'énergie originelle dans son corps continua sa transformation, et la température corporelle de Wang Lin s'éleva progressivement. Le tatouage de l'Oiseau Vermillon jaillit de son corps pour tournoyer autour de lui.
 

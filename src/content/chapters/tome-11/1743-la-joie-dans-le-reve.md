@@ -10,27 +10,27 @@ Cependant, maintenant que tout s'était apaisé, il ne pouvait s'empêcher d'y r
 
 « C’est encore ce jour de l’année... » Wang Lin baissa amèrement la tête et s'assit.
 
-À cet instant précis, le Grand Empyrée Xuan Luo se tenait au sommet de la montagne, observant silencieusement Wang Lin.
+À cet instant précis, le Grand Empereur Xuan Luo se tenait au sommet de la montagne, observant silencieusement Wang Lin.
 
 Après s'être assis, Wang Lin laissa échapper un profond soupir et tendit la main droite. La Voile Fantomatique apparut et enveloppa son corps.
 
-Il semblait ne vouloir laisser personne l'apercevoir ; il souhaitait simplement passer cette journée seul, en toute tranquillité.
+Il semblait ne vouloir laisser personne l'apercevoir; il souhaitait simplement passer cette journée seul, en toute tranquillité.
 
 Le ciel du Royaume Céleste était limpide et la lumière du soleil émanait d'un lieu inconnu. Cette clarté baignait la terre, apportant une chaleur douce plutôt qu'une ardeur brûlante.
 
 La montagne où se trouvait Wang Lin était plongée dans un grand calme. À l’abri de la Voile Fantomatique, il resta longtemps les yeux levés vers le ciel...
 
-« Wan Er... Bientôt, je partirai pour le Continent Astral Immortel... Là-bas, je trouverai un moyen de te réveiller... Fais-moi confiance, fais-moi confiance... Comme je te l'ai promis autrefois, même si le Ciel veut ta mort, je te reprendrai ! » Dans ce silence environnant, son cœur était à la fois serein et mélancolique.
+« Wan Er... Bientôt, je partirai pour le Continent Astral Immortel... Là-bas, je trouverai un moyen de te réveiller... Fais-moi confiance, fais-moi confiance... Comme je te l'ai promis autrefois, même si le Ciel veut ta mort, je te reprendrai! » Dans ce silence environnant, son cœur était à la fois serein et mélancolique.
 
 Wang Lin sentait vaguement qu’il ne lui restait plus beaucoup de temps dans le monde des cavernes. Bientôt, il devrait probablement quitter cet endroit pour rejoindre le lointain Continent Astral Immortel.
 
 Au cours de sa vie, Wang Lin avait parcouru de nombreux lieux étrangers, et la solitude l'avait accompagné tout au long de ses voyages. Bien qu'il eût été seul, Li Muwan avait été à ses côtés, rendant son isolement un peu plus léger et supportable.
 
-« Aujourd'hui est un jour spécial... Wan Er, te souviens-tu... » Wang Lin ne se souvenait ni de son âge, ni de sa date de naissance, mais il se souvenait parfaitement de ce jour, des milliers d'années auparavant !
+« Aujourd'hui est un jour spécial... Wan Er, te souviens-tu... » Wang Lin ne se souvenait ni de son âge, ni de sa date de naissance, mais il se souvenait parfaitement de ce jour, des milliers d'années auparavant!
 
-C'était un jour qu'il ne pouvait oublier. Chaque année, à cette même date, il le passait seul, que ce soit en massacrant pour s'oublier, en fuyant pour enfouir ses souvenirs au plus profond de son cœur, ou en cultivation de porte close où il laissait passer les années en silence.
+C'était un jour qu'il ne pouvait oublier. Chaque année, à cette même date, il le passait seul, que ce soit en massacrant pour s'oublier, en fuyant pour enfouir ses souvenirs au plus profond de son cœur, ou en culture de porte close où il laissait passer les années en silence.
 
-Cependant, la plupart du temps, il buvait seul. Le vin épicé coulait dans sa gorge, mais il n'en ressentait pas le piquant, car la mélancolie, la solitude et la perte emplissaient son cœur. Peu importe la force de l'alcool, rien ne parvenait à les effacer !
+Cependant, la plupart du temps, il buvait seul. Le vin épicé coulait dans sa gorge, mais il n'en ressentait pas le piquant, car la mélancolie, la solitude et la perte emplissaient son cœur. Peu importe la force de l'alcool, rien ne parvenait à les effacer!
 
 « Wan Er, j'ai accepté Li Qianmei, je suis désolé... » Wang Lin songeait silencieusement. Il sortit une cruche de vin de sous la Voile Fantomatique et but une gorgée.
 
@@ -42,11 +42,11 @@ Cette voix avait poussé Wang Lin à s'arrêter et à se retourner. Il avait alo
 
 Cette silhouette était la sienne, celle de sa femme...
 
-Le cœur de Wang Lin fut pris d'une douleur lancinante ; il vida la cruche de vin, la jeta sur le côté et en sortit une autre.
+Le cœur de Wang Lin fut pris d'une douleur lancinante; il vida la cruche de vin, la jeta sur le côté et en sortit une autre.
 
-Non loin de là, le Grand Empyrée Xuan Luo était assis et contemplait le dos de Wang Lin. La tristesse et la solitude qui émanaient de cet homme émurent jusqu'à lui.
+Non loin de là, le Grand Empereur Xuan Luo était assis et contemplait le dos de Wang Lin. La tristesse et la solitude qui émanaient de cet homme émurent jusqu'à lui.
 
-« Wan Er, attends, attends-moi... Ce ne sera pas long avant que je puisse le faire ! » Wang Lin but une gorgée de vin, laissant le liquide déborder du coin de sa bouche. D'un revers de manche, il fit apparaître le Cercueil d'Évasion Céleste devant lui.
+« Wan Er, attends, attends-moi... Ce ne sera pas long avant que je puisse le faire! » Wang Lin but une gorgée de vin, laissant le liquide déborder du coin de sa bouche. D'un revers de manche, il fit apparaître le Cercueil d'Évasion Céleste devant lui.
 
 En regardant Li Muwan endormie à l'intérieur du cercueil, il esquissa un sourire tendre. Mais ce sourire ressemblait à une aiguille transperçant son cœur.
 
@@ -56,17 +56,17 @@ Il caressa tendrement les traits de Li Muwan. La douleur dans son cœur se mua e
 
 « Wan Er... » Des larmes coulèrent des yeux de Wang Lin, tombant sur Li Muwan et mouillant ses vêtements.
 
-« Ton fragment d'âme a disparu... Il n'est plus dans la rétribution divine, mais peu importe où il se trouve, peu importe qui le détient, je le reprendrai ! » murmura Wang Lin en saisissant la cruche pour boire une longue gorgée. Ses larmes se mêlèrent au vin, le rendant amer, mais il but jusqu'à la dernière goutte !
+« Ton fragment d'âme a disparu... Il n'est plus dans la rétribution divine, mais peu importe où il se trouve, peu importe qui le détient, je le reprendrai! » murmura Wang Lin en saisissant la cruche pour boire une longue gorgée. Ses larmes se mêlèrent au vin, le rendant amer, mais il but jusqu'à la dernière goutte!
 
 Wang Lin jeta la cruche et pointa son doigt droit vers l'espace entre ses sourcils. De sa main gauche, il désigna le même point sur le front de Li Muwan, puis ferma les yeux.
 
-« Illusion du visage fantomatique, rêve pour des millénaires ! » murmura Wang Lin tandis que la Voile Fantomatique autour de lui se distordait. Le visage spectral rugit et s'élança avant de disparaître entre les sourcils de Wang Lin. La brume environnante devint si dense qu'il était impossible d'y voir clair.
+« Illusion du visage fantomatique, rêve pour des millénaires! » murmura Wang Lin tandis que la Voile Fantomatique autour de lui se distordait. Le visage spectral rugit et s'élança avant de disparaître entre les sourcils de Wang Lin. La brume environnante devint si dense qu'il était impossible d'y voir clair.
 
 Xuan Luo médita silencieusement, l'expression complexe. Ayant une intuition, il soupira et pointa la brume entourant Wang Lin. Son Sens Divin pénétra dans le brouillard.
 
-« Wang Lin, ce n'est pas que ce vieil homme ne puisse te déranger, mais j'ai besoin de tout comprendre de toi. Je ne cherche pas seulement un disciple unique ; j'ai besoin de quelqu'un qui protégera ma réincarnation et gardera mon Clan du Dao Antique, une personne d'une importance capitale ! » Xuan Luo ferma les yeux.
+« Wang Lin, ce n'est pas que ce vieil homme ne puisse te déranger, mais j'ai besoin de tout comprendre de toi. Je ne cherche pas seulement un disciple unique; j'ai besoin de quelqu'un qui protégera ma réincarnation et gardera mon Clan du Dao Antique, une personne d'une importance capitale! » Xuan Luo ferma les yeux.
 
-Dès qu'il eut les paupières closes, son esprit pénétra dans le monde onirique où se trouvait Wang Lin. Il ressentit la tristesse qui émanait de ce monde !
+Dès qu'il eut les paupières closes, son esprit pénétra dans le monde onirique où se trouvait Wang Lin. Il ressentit la tristesse qui émanait de ce monde!
 
 Le ciel était sombre et des flammes monstrueuses illuminaient l'horizon au loin. On percevait des bruits de massacres et le choc des sorts magiques.
 
@@ -76,15 +76,15 @@ Après un long moment, deux traînées de lumière passèrent devant lui. C'éta
 
 L'homme derrière elle affichait un visage empreint de luxure tandis qu'il la poursuivait sans ménagement.
 
-« Petite fille, ton groupe de treize personnes a été massacré par moi. Où comptes-tu fuir ? » Tout en parlant, il agita la main droite. Une grande partie des vêtements de Li Muwan fut déchirée, exposant sa peau.
+« Petite fille, ton groupe de treize personnes a été massacré par moi. Où comptes-tu fuir? » Tout en parlant, il agita la main droite. Une grande partie des vêtements de Li Muwan fut déchirée, exposant sa peau.
 
 Alors que Li Muwan laissait échapper un cri, l'homme huma sa main droite, le désir dans ses yeux devenant plus intense encore.
 
 À cet instant précis, Li Muwan aperçut Wang Lin. Son cœur était affaibli par l'humiliation et le danger. Elle reconnut ce visage qui lui semblait si familier.
 
-« C'est vous ! Grand Frère, sauvez-moi ! » En parlant, elle changea de direction et rejoignit instantanément Wang Lin. Le visage crispé par l'anxiété, elle serra les dents et s'exclama : « Cet homme est un Ancien du Secte de la Double Cultivation du pays de Xuan Wu. Il a découvert que je possède une Pilule Céleste Distante. Voilà pourquoi il n'a pas hésité... » Elle était très habile et mentionna immédiatement la pilule pour inciter Wang Lin à intervenir.
+« C'est vous! Grand Frère, sauvez-moi! » En parlant, elle changea de direction et rejoignit instantanément Wang Lin. Le visage crispé par l'anxiété, elle serra les dents et s'exclama: « Cet homme est un Ancien de la Secte de la Double Cultivation du pays de Xuan Wu. Il a découvert que je possède une Pilule Céleste Distante. Voilà pourquoi il n'a pas hésité... » Elle était très habile et mentionna immédiatement la pilule pour inciter Wang Lin à intervenir.
 
-Cependant, avant qu'elle ne finisse sa phrase, elle fut frappée de stupeur : Wang Lin la regardait avec un sourire si tendre qu'on aurait dit qu'il contemplait l'être aimé depuis des millénaires. Ce regard fit frissonner Li Muwan.
+Cependant, avant qu'elle ne finisse sa phrase, elle fut frappée de stupeur: Wang Lin la regardait avec un sourire si tendre qu'on aurait dit qu'il contemplait l'être aimé depuis des millénaires. Ce regard fit frissonner Li Muwan.
 
 « Toi... » Alors que Li Muwan allait parler, le jeune homme au loin eut un sourire glacial. Il avait vu Wang Lin, certes, mais il s'en moquait éperdument. Il leva la main droite et huit épées volantes apparurent autour de lui, fonçant sur Wang Lin comme un tourbillon.
 
@@ -102,12 +102,12 @@ Voyant l'état de Li Muwan, Wang Lin ressentit un pincement au cœur et desserra
 
 En observant la silhouette manifestement effrayée de Li Muwan, Wang Lin afficha un sourire heureux. Cependant, l'amertume et la tristesse dissimulées sous ce sourire restaient invisibles pour autrui.
 
-Au loin, le Grand Empyrée Xuan Luo avait tout observé en silence, et son propre cœur ressentit une pointe de douleur. Il regarda Wang Lin, contempla son sourire et médita intérieurement :
+Au loin, le Grand Empereur Xuan Luo avait tout observé en silence, et son propre cœur ressentit une pointe de douleur. Il regarda Wang Lin, contempla son sourire et médita intérieurement:
 
-« Quelle solitude et quelle tristesse peuvent pousser un homme à chercher la joie dans un rêve ? » soupira Xuan Luo.
+« Quelle solitude et quelle tristesse peuvent pousser un homme à chercher la joie dans un rêve? » soupira Xuan Luo.
 
 Wang Lin resta là, le sourire aux lèvres, jusqu'à ce que la silhouette de Li Muwan disparaisse. Il ferma ensuite lentement les yeux et tout son environnement s'évanouit. Lorsqu'il rouvrit les paupières, il était de retour dans le Royaume Céleste, sur la montagne, contemplant Li Muwan qui dormait à l'intérieur du cercueil.
 
-Le ciel n'était plus bleu ; la nuit était tombée. Une pleine lune onirique trônait dans le firmament. Et là, semblaient marcher lentement ensemble deux silhouettes devant elle.
+Le ciel n'était plus bleu; la nuit était tombée. Une pleine lune onirique trônait dans le firmament. Et là, semblaient marcher lentement ensemble deux silhouettes devant elle.
 
 C'étaient les formes d'un homme et d'une femme.

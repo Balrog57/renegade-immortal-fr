@@ -5,24 +5,23 @@ type: personnage
 image: /renegade-immortal-fr/wiki/images/Wang_Lin_Fandom.webp
 categories: ["Personnages", "Homme", "Céleste", "Vivant", "Clan Wang", "Secte Heng Yue", "Pays de Zhao", "Secte Cloud Sky", "Planète Suzaku", "Secte Heavenly Fate", "Planète Tian Yun", "Système stellaire Allheaven", "Système stellaire Alliance", "Système stellaire Cloud Sea", "Royaume Scellé", "Continent Astral Immortel"]
 url: "https://xian-ni.fandom.com/wiki/Wang_Lin"
-sections: ["{\"heading\":\"Aperçu\",\"body\":\"Wang Lin est le protagoniste principal de Renegade Immortal. Né dans un corps faible, il débute comme un jeune homme ordinaire avant de devenir l'un des plus grands Immortels du cosmos. Ses cheveux, noirs à l'origine, blanchissent après 7 ans d'épreuve sur la Montagne des Restrictions de la Planète Suzaku, puis le corps de son Dieu Antique devient rouge à cause de son intention meurtrière, avant de redevenir définitivement blanc après le second Éveil de la Marque du Vermillon. Cette allure blanche témoigne d'une vie marquée par la mort, la tragédie et la perte.\"}", "{\"heading\":\"Personnalité\",\"body\":\"Son but initial est de devenir un Immortel pour ne pas décevoir ses parents, son Quatrième Oncle et son village. Bien qu'intelligent, il n'aime pas tuer. Mais après la mort de ses parents et de sa famille, Wang Lin devient impitoyable. Sa naïveté causa la perte du Clan Wang : en épargnant des mortels qui virent son visage, il permit à Teng Huayuan de localiser sa ville natale. Après la destruction de son clan, il jure de se venger et devient un tueur froid et sans pitié. Malgré sa nature impitoyable, il reste un homme de parole, ne cherchant jamais les ennuis et ne ripostant que lorsqu'il est menacé. Son amour pour Li Muwan prouve qu'il peut encore s'attacher.\"}", "{\"heading\":\"Background\",\"body\":\"Né mortel sans rien de spécial. Avant la sélection de la Secte Heng Yue, son rêve était de réussir l'examen impérial et d'entrer à la cour pour rendre ses parents fiers. Il devient un puissant cultivateur pour sauver sa femme, Li Muwan.\"}"]
+sections: ["{\"heading\":\"Aperçu\",\"body\":\"Wang Lin est le protagoniste principal de Renegade Immortal. Né dans un corps faible, il débute comme un jeune homme ordinaire avant de devenir l'un des plus grands Immortels du cosmos. Ses cheveux, noirs à l'origine, blanchissent après 7 ans d'épreuve sur la Montagne des Restrictions de la Planète Suzaku, puis le corps de son Dieu Antique devient rouge à cause de son intention meurtrière, avant de redevenir définitivement blanc après le second Éveil de la Marque du Vermillon. Cette allure blanche témoigne d'une vie marquée par la mort, la tragédie et la perte.\"}", "{\"heading\":\"Personnalité\",\"body\":\"Son but initial est de devenir un Immortel pour ne pas décevoir ses parents, son Quatrième Oncle et son village. Bien qu'intelligent, il n'aime pas tuer. Mais après la mort de ses parents et de sa famille, Wang Lin devient impitoyable. Sa naïveté causa la perte du Clan Wang: en épargnant des mortels qui virent son visage, il permit à Teng Huayuan de localiser sa ville natale. Après la destruction de son clan, il jure de se venger et devient un tueur froid et sans pitié. Malgré sa nature impitoyable, il reste un homme de parole, ne cherchant jamais les ennuis et ne ripostant que lorsqu'il est menacé. Son amour pour Li Muwan prouve qu'il peut encore s'attacher.\"}", "{\"heading\":\"Background\",\"body\":\"Né mortel sans rien de spécial. Avant la sélection de la Secte Heng Yue, son rêve était de réussir l'examen impérial et d'entrer à la cour pour rendre ses parents fiers. Il devient un puissant cultivateur pour sauver sa femme, Li Muwan.\"}"]
 ---
 
 **Wang Lin**, surnommé Tie Zhu dans son enfance, est le protagoniste principal de *Renegade Immortal*. Né mortel sans talent particulier, il grimpe pas à pas l'échelle de la cultivation jusqu'à devenir l'un des êtres les plus redoutables du cosmos.
 
 ### Fiche signalétique
 
-- **Nom chinois :** 王林
-- **Pinyin :** Wáng Lín
-| **Alias :** Xu Mu (许木), Tie Zhu (铁柱), Xiao Lin Zi, Ma Liang (马良), Zeng Niu, Ceng Niu (曾牛), Qian Mu, Na Du, Lyu Zihao (吕子浩), Maître Démon (王魔头), Grand Diable, Démon Daozi (魔道子), Wang Pockmark (王麻子), Fléau (煞星), Ancêtre Wang, Céleste Suprême, Dieu Antique Wang Lin, Sixième Génération Empereur Divin du Vermillon, Seigneur du Royaume Scellé, Grand Érudit, Empyrée aux Cheveux Blancs, Paragon Wang, Dixième Soleil
-- **Statut :** Vivant
-- **Âge :** 15 ans (début) · 3000+ ans (fin)
-- **Genre :** Homme
-- **Espèce :** Humain · Dieu Antique · Ordre Antique · Céleste Antique
-- **Cheveux :** Noirs (corps original) → Blancs (après l'héritage de Tu Si) → Blancs définitifs (second Éveil Vermillon)
-- **Yeux :** Bleus (corps original) · Rouges (corps Ma Liang, Dieu Antique 2 étoiles+)
-- **Cultivation :** 4e Marche Heaven Trampling (fin du roman) · Summer Immortal 9e Marche (AWWP)
-- **Corps charnel :** Heaven Trampling (Corps Antique 27 étoiles)
+- **Pinyin:** Wáng Lín
+| **Alias:** Xu Mu, Tie Zhu, Xiao Lin Zi, Ma Liang, Zeng Niu, Ceng Niu, Qian Mu, Na Du, Lyu Zihao, Maître Démon, Grand Diable, Démon Daozi, Wang Pockmark, Fléau, Ancêtre Wang, Céleste Suprême, Dieu Antique Wang Lin, Sixième Génération Empereur Divin du Vermillon, Seigneur du Royaume Scellé, Grand Érudit, Empyrée aux Cheveux Blancs, Paragon Wang, Dixième Soleil
+- **Statut:** Vivant
+- **Âge:** 15 ans (début) · 3000+ ans (fin)
+- **Genre:** Homme
+- **Espèce:** Humain · Dieu Antique · Ordre Antique · Céleste Antique
+- **Cheveux:** Noirs (corps original) → Blancs (après l'héritage de Tu Si) → Blancs définitifs (second Éveil Vermillon)
+- **Yeux:** Bleus (corps original) · Rouges (corps Ma Liang, Dieu Antique 2 étoiles+)
+- **Cultivation:** 4e Marche Heaven Trampling (fin du roman) · Summer Immortal 9e Marche (AWWP)
+- **Corps charnel:** Heaven Trampling (Corps Antique 27 étoiles)
 
 ## Aperçu
 
@@ -58,7 +57,7 @@ D'innombrables fissures couvraient son corps bronze, rendant sa peau très rugue
 
 - Malgré l'évolution de son caractère, Wang Lin rechignait encore à tuer ceux qui ne lui avaient pas directement nui.
 
-- Sa naïveté causa finalement la perte du Clan Wang : en épargnant des mortels qui avaient vu son visage, il permit au vengeur Teng Huayuan de localiser sa ville natale.
+- Sa naïveté causa finalement la perte du Clan Wang: en épargnant des mortels qui avaient vu son visage, il permit au vengeur Teng Huayuan de localiser sa ville natale.
 
 - Après la destruction de son clan, sa personnalité changea drastiquement. Accablé de chagrin et de remords, il jura de venger sa famille en détruisant le Clan Teng.
 
@@ -94,29 +93,29 @@ Né mortel sans rien de spécial. Avant l'événement de sélection des disciple
 
 ## Relations
 
-**Épouse :** Li Muwan
+**Épouse:** Li Muwan
 
-**Enfants :**
+**Enfants:**
 - Wang Yiyi (fille avec Li Muwan)
 - Wang Ping (fils avec Liu Mei, via son clone)
 - Wang Jiduo (fils adoptif)
 - Zhou Ru (fille adoptive, abritant l'âme de Li Muwan)
 
-**Parents :** Wang Tian Shui (père) · Zhou Tingsu (mère)
+**Parents:** Wang Tian Shui (père) · Zhou Tingsu (mère)
 
-**Famille élargie :** Qing Yi (belle-fille, épouse de Wang Ping) · Wang Tian Shan (oncle) · Wang Zhuo (cousin) · Wang Hao (cousin) · Li Qiqing (beau-frère)
+**Famille élargie:** Qing Yi (belle-fille, épouse de Wang Ping) · Wang Tian Shan (oncle) · Wang Zhuo (cousin) · Wang Hao (cousin) · Li Qiqing (beau-frère)
 
-**Amis :** Situ Nan · Qing Shui · Tuo Sen (ancien ennemi) · Zhou Wutai
+**Amis:** Situ Nan · Qing Shui · Tuo Sen (ancien ennemi) · Zhou Wutai
 
-**Maîtres :** Tu Si (héritage du savoir) · Situ Nan · Du Tian · All-Seer (ancien) · Bai Fan (héritage) · Lu Yun · Qing Lin · Su Dao (érudit) · Xuan Luo (abdiqué)
+**Maîtres:** Tu Si (héritage du savoir) · Situ Nan · Du Tian · Omniscient (ancien) · Bai Fan (héritage) · Lu Yun · Qing Lin · Su Dao (érudit) · Xuan Luo (abdiqué)
 
-**Disciples :** Thirteen · Xie Qing · Xi Zi Feng
+**Disciples:** Thirteen · Xie Qing · Xi Zi Feng
 
 ## Cultivation
 
-- **Base de cultivation :** Ascendant (donghua) · Heaven Trampling 4e Marche (fin du roman) · Summer Immortal 9e Marche (AWWP)
-- **Corps charnel :** Heaven Trampling (Corps Antique 27 étoiles)
-- **Prouesse au combat :** Heaven Trampling (fin du roman)
+- **Base de cultivation:** Ascendant (donghua) · Heaven Trampling 4e Marche (fin du roman) · Summer Immortal 9e Marche (AWWP)
+- **Corps charnel:** Heaven Trampling (Corps Antique 27 étoiles)
+- **Prouesse au combat:** Heaven Trampling (fin du roman)
 
 ## Anecdotes
 
@@ -125,4 +124,4 @@ Né mortel sans rien de spécial. Avant l'événement de sélection des disciple
 - Wang Lin boit souvent du vin pour se remémorer sa famille et son passé.
 - Il n'avait aucun talent pour la cultivation au début.
 - Son premier Dao fut le Dao de la Vie et de la Mort, l'un des plus impitoyables qui soient.
-- Le chapitre 411 mentionne ses cheveux blancs ; le chapitre 469 les mentionne noirs (une incohérence).
+- Le chapitre 411 mentionne ses cheveux blancs; le chapitre 469 les mentionne noirs (une incohérence).

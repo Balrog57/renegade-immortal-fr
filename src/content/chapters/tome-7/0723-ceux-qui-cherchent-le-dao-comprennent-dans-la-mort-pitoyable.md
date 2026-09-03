@@ -8,13 +8,13 @@ slug: ceux-qui-cherchent-le-dao-comprennent-dans-la-mort-pitoyable
 ---
 Chapitre 723 - Ceux qui cherchent le Dao comprennent dans la mort, pitoyable...
 
-« C'est... cet endroit est... l'espace de la perle défiant le ciel ! » Les yeux de Wang Lin se plissèrent alors qu'il reconnut immédiatement les lieux.
+« C'est... cet endroit est... l'espace de la perle défiant le ciel! » Les yeux de Wang Lin se plissèrent alors qu'il reconnut immédiatement les lieux.
 
 Il connaissait trop bien cet endroit. Il était imprégné de chaos où, par intermittence, des sphères de lumière brillaient intensément.
 
 Sous l'effet de son regard, qui agit comme un catalyseur, ces sphères commencèrent aussitôt à muter. Celles qu'il observait se mirent soudainement à gonfler.
 
-Leur croissance fut fulgurante ; en un clin d'œil, elles étaient devenues gigantesques. Wang Lin fut stupéfait : les sphères de lumière avaient désormais la taille d'une planète.
+Leur croissance fut fulgurante; en un clin d'œil, elles étaient devenues gigantesques. Wang Lin fut stupéfait: les sphères de lumière avaient désormais la taille d'une planète.
 
 Une aura puissante émanait de ces lueurs, une aura débordante de vitalité. Cette vitalité était d'une pureté absolue, semblable à celle d'un nouveau-né.
 
@@ -22,7 +22,7 @@ Peu après, des nuages de poussière apparurent et furent absorbés par la lumi�
 
 Une partie de cette poussière forgea des rivières et des océans...
 
-Wang Lin eut un haut-le-cœur. C'était une planète ! L'énergie spirituelle qui s'en dégageait était extrêmement riche. Hormis l'absence de mortels, elle ne différait en rien d'une autre planète de cultivation du monde extérieur !
+Wang Lin eut un haut-le-cœur. C'était une planète! L'énergie spirituelle qui s'en dégageait était extrêmement riche. Hormis l'absence de mortels, elle ne différait en rien d'une autre planète de culture du monde extérieur!
 
 Tandis qu'il était sous le choc, la planète commença immédiatement à se dégrader, comme si le temps remontait son cours. En un instant, elle redevint une sphère de lumière qui rétrécissait sans cesse, jusqu'à n'être plus qu'une lueur vacillante.
 
@@ -38,7 +38,7 @@ Il ne réalisa pas à quel point cette scène ressemblait à celle où il compre
 
 Alors qu'il traquait instinctivement la source de ce pouvoir, le temps passait, mais cela lui importait peu. Des éons s'écoulèrent sans qu'il ne s'arrête. Il était devenu tel un esprit errant, une poursuite perpétuelle.
 
-Wang Lin cherchait le Dao ! Suivant les traces du Dao, en quête de l'aboutissement du Dao.
+Wang Lin cherchait le Dao! Suivant les traces du Dao, en quête de l'aboutissement du Dao.
 
 C'était comme si tout ce qui existait dans le monde n'était plus que passé lointain. Comme si tout s'était brisé pour ne devenir néant. Rien de tout cela ne pouvait plus troubler son cœur.
 
@@ -58,7 +58,7 @@ Le Dao semblait se trouver là où son regard se posait, mais dès qu'il détour
 
 C'était un sentiment extrêmement vague, mais qui s'infiltrait lentement dans le corps de Wang Lin. Il sentait peu à peu qu'il rattrapait les empreintes du Dao et qu'il était sur le point de saisir la source de cette puissance mystérieuse.
 
-Au cours de ce processus, où le concept de temps n'existait plus, Wang Lin vit une planète. Cette dernière n'était pas issue des sphères de lumière ; elle existait naturellement. La vitalité de cette planète était faible, mais elle était empreinte de chaleur et de tendresse.
+Au cours de ce processus, où le concept de temps n'existait plus, Wang Lin vit une planète. Cette dernière n'était pas issue des sphères de lumière; elle existait naturellement. La vitalité de cette planète était faible, mais elle était empreinte de chaleur et de tendresse.
 
 À ses côtés se trouvaient deux planètes plus petites. Elles étaient très proches l'une de l'autre, dégageant un sentiment d'attachement profond.
 
@@ -76,23 +76,23 @@ Au fil du temps, la sphère de lumière qu'il était devenu commença à s'éten
 
 Les montagnes de cette planète étaient spectaculaires et ses rivières magnifiques. La terre était saturée d'énergie, et même la mer était aussi bleue que le ciel, comme si elle pouvait contenir l'univers entier.
 
-Dans la partie septentrionale de la planète ne vivait qu'une seule famille : un homme et une femme menant une existence calme et paisible.
+Dans la partie septentrionale de la planète ne vivait qu'une seule famille: un homme et une femme menant une existence calme et paisible.
 
 C'était comme s'ils possédaient tout ce qu'ils désiraient, au milieu des innombrables mortels des villages environnants...
 
-Ce jour-là, un rayon de lumière traversa la partie méridionale de la planète. À l'intérieur se trouvait une femme vêtue de blanc. Elle était d'une beauté pure et aussi douce que l'eau. Ses cheveux noirs flottaient dans l'air ; parfois, quelques mèches lui barraient le visage, et elle les rabattait derrière son oreille de ses mains semblables à du jade.
+Ce jour-là, un rayon de lumière traversa la partie méridionale de la planète. À l'intérieur se trouvait une femme vêtue de blanc. Elle était d'une beauté pure et aussi douce que l'eau. Ses cheveux noirs flottaient dans l'air; parfois, quelques mèches lui barraient le visage, et elle les rabattait derrière son oreille de ses mains semblables à du jade.
 
-En volant, ses yeux étaient empreints de confusion. Elle regarda la terre en contrebas, mordilla sa lèvre inférieure et murmura : « Pourquoi ce monde me procure-t-il un sentiment si familier... ? »
+En volant, ses yeux étaient empreints de confusion. Elle regarda la terre en contrebas, mordilla sa lèvre inférieure et murmura: « Pourquoi ce monde me procure-t-il un sentiment si familier...? »
 
 Elle réfléchit longuement avant de secouer la tête. Sa silhouette glissa comme un rayon de lumière et disparut par-delà l'horizon.
 
-« Je veux trouver la réponse ! » La voix déterminée de la femme fut emportée par le vent.
+« Je veux trouver la réponse! » La voix déterminée de la femme fut emportée par le vent.
 
 Le temps s'écoula lentement, comme s'il devait durer éternellement. Des années innombrables passèrent et tout changea progressivement. Les seules constantes furent ces trois êtres.
 
 Deux d'entre eux continuèrent leur vie tranquille, tandis que le dernier cherchait toujours une réponse...
 
-Ce ne fut qu'à la fin que le Dao arriva enfin !
+Ce ne fut qu'à la fin que le Dao arriva enfin!
 
 La terre disparut et la planète cessa d'exister. Les trois êtres redevinrent trois sphères de lumière, avant d'être emprisonnés dans une immense paume qui dériva au loin. Alors que la paume se dissipait, la conscience de Wang Lin émergea.
 

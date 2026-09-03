@@ -6,27 +6,27 @@ bookTitle: Clean Sweep
 en: Chapter 342 - Remnant of the Savages
 slug: vestiges-des-sauvages
 ---
-Wang Lin posa sa tasse et secoua silencieusement la tête. Il regarda Qiu Siping et dit : « Frère Qiu, si vous abandonnez tout pour rester seul, vous aurez une chance de comprendre les voies du Ciel. »
+Wang Lin posa sa tasse et secoua silencieusement la tête. Il regarda Qiu Siping et dit: « Frère Qiu, si vous abandonnez tout pour rester seul, vous aurez une chance de comprendre les voies du Ciel. »
 
-Qiu Siping eut un sourire amer. Il savait qu'il ne pourrait pas cacher à Wang Lin le fait qu'il suivait désormais le vieil homme Hu. Il dit : « Atteindre le stade de la Formation de l'Âme... est une tâche ardue. »
+Qiu Siping eut un sourire amer. Il savait qu'il ne pourrait pas cacher à Wang Lin le fait qu'il suivait désormais le vieil homme Hu. Il dit: « Atteindre le stade de la Formation de l'Âme... est une tâche ardue. »
 
-Le vieil homme Hu prit sa tasse et en but une gorgée. La saveur le surprit : « Cher cultivateur Wang, ce thé... ? »
+Le vieil homme Hu prit sa tasse et en but une gorgée. La saveur le surprit: « Cher cultivateur Wang, ce thé...? »
 
-Wang Lin sourit. « Ce thé ne provient pas de Suzaku, mais d'une autre planète de cultivation. Je l'ai obtenu par accident lors de mon voyage dans le Royaume Céleste il y a de nombreuses années. »
+Wang Lin sourit. « Ce thé ne provient pas de Suzaku, mais d'une autre planète de culture. Je l'ai obtenu par accident lors de mon voyage dans le Royaume Céleste il y a de nombreuses années. »
 
-Le vieil homme Hu prit une profonde inspiration. Il fixa Wang Lin avec une pointe d'hésitation dans les yeux avant de dire : « La rumeur prétend que lorsque frère Wang s'est rendu au Royaume Céleste, vous avez pris un bras à Papillon Rouge. Frère Wang a-t-il pu obtenir de l'énergie spirituelle céleste ? »
+Le vieil homme Hu prit une profonde inspiration. Il fixa Wang Lin avec une pointe d'hésitation dans les yeux avant de dire: « La rumeur prétend que lorsque frère Wang s'est rendu au Royaume Céleste, vous avez pris un bras à Papillon Rouge. Frère Wang a-t-il pu obtenir de l'énergie spirituelle céleste? »
 
 Sa façon de désigner Wang Lin avait inconsciemment changé.
 
-Wang Lin regarda le vieil homme Hu et répondit : « J'en ai obtenu un peu. »
+Wang Lin regarda le vieil homme Hu et répondit: « J'en ai obtenu un peu. »
 
-Les yeux du vieil homme Hu s'illuminèrent. Il regarda Wang Lin et dit avec sincérité : « Je suis prêt à payer n'importe quel prix pour de l'énergie spirituelle céleste. J'espère que le cultivateur Wang sera disposé à m'en vendre un peu. »
+Les yeux du vieil homme Hu s'illuminèrent. Il regarda Wang Lin et dit avec sincérité: « Je suis prêt à payer n'importe quel prix pour de l'énergie spirituelle céleste. J'espère que le cultivateur Wang sera disposé à m'en vendre un peu. »
 
-Wang Lin eut un léger sourire. « Cette question n'est pas urgente. Nous pourrons attendre le moment de franchir le stade de la Transformation de l'Âme. Je me demande, pourquoi le cultivateur Hu se rend-il au Cimetière des Immortels ? »
+Wang Lin eut un léger sourire. « Cette question n'est pas urgente. Nous pourrons attendre le moment de franchir le stade de la Transformation de l'Âme. Je me demande, pourquoi le cultivateur Hu se rend-il au Cimetière des Immortels? »
 
-Le vieil homme Hu pensa secrètement que bien que Wang Lin ne cultivât pas depuis longtemps, il était un vieux renard capable de détourner la conversation avec aisance. Après avoir entendu Wang Lin, il rit et dit : « C'est vrai. Alors, lorsque ce vieil homme sera sur le point d'atteindre le stade de la Transformation de l'Âme, je devrai revenir vous en demander. Quant au Cimetière des Immortels, vous devrez demander à la cultivatrice Zi Xin de vous l'expliquer. »
+Le vieil homme Hu pensa secrètement que bien que Wang Lin ne cultivât pas depuis longtemps, il était un vieux renard capable de détourner la conversation avec aisance. Après avoir entendu Wang Lin, il rit et dit: « C'est vrai. Alors, lorsque ce vieil homme sera sur le point d'atteindre le stade de la Transformation de l'Âme, je devrai revenir vous en demander. Quant au Cimetière des Immortels, vous devrez demander à la cultivatrice Zi Xin de vous l'expliquer. »
 
-La femme au voile blanc regarda Wang Lin et dit : « Aîné, il y a un Arbre de Réincarnation à l'intérieur du Cimetière des Immortels. Cette junior possède une carte qui peut nous y conduire. »
+La femme au voile blanc regarda Wang Lin et dit: « Aîné, il y a un Arbre de Réincarnation à l'intérieur du Cimetière des Immortels. Cette junior possède une carte qui peut nous y conduire. »
 
 Wang Lin prit calmement une gorgée de thé.
 
@@ -42,25 +42,25 @@ Le vieil homme Hu regarda Wang Lin et vit que son expression demeurait de marbre
 
 Hélas, elle ne percevait toujours aucun changement sur le visage de Wang Lin.
 
-Wang Lin esquissa un sourire ténu. Il regarda le vieil homme Hu et dit : « Ridicule. Le domaine d'un cultivateur de la Formation de l'Âme est une chose qu'il doit comprendre par lui-même. Cet Arbre de Réincarnation pourrait avoir un effet sur des cultivateurs au sommet du stade avancé de l'Âme Naissante ou au début de la Formation de l'Âme, dont la cultivation n'est pas encore stabilisée. Je présume que le vieil homme Hu a d'autres objectifs pour ce voyage. »
+Wang Lin esquissa un sourire ténu. Il regarda le vieil homme Hu et dit: « Ridicule. Le domaine d'un cultivateur de la Formation de l'Âme est une chose qu'il doit comprendre par lui-même. Cet Arbre de Réincarnation pourrait avoir un effet sur des cultivateurs au sommet du stade avancé de l'Âme Naissante ou au début de la Formation de l'Âme, dont la culture n'est pas encore stabilisée. Je présume que le vieil homme Hu a d'autres objectifs pour ce voyage. »
 
 La femme au voile blanc fut stupéfaite. Elle regarda l'homme en manteau noir et vit qu'il fronçait également les sourcils.
 
-Le vieil homme Hu rit, sans chercher à se cacher : « Frère Wang est véritablement érudit. Je suis impressionné. Vous avez tout à fait raison. »
+Le vieil homme Hu rit, sans chercher à se cacher: « Frère Wang est véritablement érudit. Je suis impressionné. Vous avez tout à fait raison. »
 
 La femme au voile blanc fronça les sourcils en le regardant.
 
-Le vieil homme Hu éclata de rire : « Cultivatrice Zi Xin, ne me blâmez pas. Si ce n'était que pour l'Arbre de Réincarnation, je ne vous suivrais pas dans le Cimetière des Immortels. Ce que je convoite, c'est le Fruit de la Réincarnation ! » Après avoir parlé, il se tourna vers Wang Lin : « Sans frère Wang, je n'ai que 30 % de chances de réussir, mais si frère Wang m'accompagne, ma confiance passera à 60 %. »
+Le vieil homme Hu éclata de rire: « Cultivatrice Zi Xin, ne me blâmez pas. Si ce n'était que pour l'Arbre de Réincarnation, je ne vous suivrais pas dans le Cimetière des Immortels. Ce que je convoite, c'est le Fruit de la Réincarnation! » Après avoir parlé, il se tourna vers Wang Lin: « Sans frère Wang, je n'ai que 30 % de chances de réussir, mais si frère Wang m'accompagne, ma confiance passera à 60 %. »
 
 « Le Fruit de la Réincarnation... » Bien que l'expression de Wang Lin soit restée impassible, son cœur fut troublé.
 
-En entendant parler de l'Arbre de Réincarnation, l'esprit de Wang Lin s'était mis en marche. En entendant les mots « Fruit de la Réincarnation », il en eut la certitude. Il réfléchit un instant puis demanda : « Est-ce ce fruit de la taille d'un poing qui change de couleur toutes les deux heures ? »
+En entendant parler de l'Arbre de Réincarnation, l'esprit de Wang Lin s'était mis en marche. En entendant les mots « Fruit de la Réincarnation », il en eut la certitude. Il réfléchit un instant puis demanda: « Est-ce ce fruit de la taille d'un poing qui change de couleur toutes les deux heures? »
 
-Les yeux du vieil homme Hu s'illuminèrent. Il dévisagea longuement Wang Lin avant de déclarer : « Frère Wang est vraiment très bien informé ! C'est précisément ainsi que l'on identifie le fruit. Pour nous, cultivateurs de la Formation de l'Âme, c'est un trésor inestimable. S'il est consommé au stade avancé de la Formation de l'Âme, il augmente les chances d'atteindre le stade de la Transformation de l'Âme de 30 %. Je ne l'ai vu que dans de vieux textes anciens. »
+Les yeux du vieil homme Hu s'illuminèrent. Il dévisagea longuement Wang Lin avant de déclarer: « Frère Wang est vraiment très bien informé! C'est précisément ainsi que l'on identifie le fruit. Pour nous, cultivateurs de la Formation de l'Âme, c'est un trésor inestimable. S'il est consommé au stade avancé de la Formation de l'Âme, il augmente les chances d'atteindre le stade de la Transformation de l'Âme de 30 %. Je ne l'ai vu que dans de vieux textes anciens. »
 
 Wang Lin réfléchit. D'après ses souvenirs d'Ancien Dieu, peu de fruits étaient réellement bénéfiques pour un jeune Ancien Dieu. En raison de la nature de leur corps, la plupart des fruits étaient inutiles. Même les fruits célestes ne pouvaient augmenter leur énergie spirituelle que très légèrement.
 
-Seuls quelques rares fruits spirituels pouvaient avoir un effet. Bien qu'ils n'augmentent pas le niveau de cultivation, si l'on étalait l'un de ces fruits sur tout son corps, cela renforcerait la fondation.
+Seuls quelques rares fruits spirituels pouvaient avoir un effet. Bien qu'ils n'augmentent pas le niveau de culture, si l'on étalait l'un de ces fruits sur tout son corps, cela renforcerait la fondation.
 
 C'était ce que les Anciens Dieux appelaient la purification corporelle.
 
@@ -72,15 +72,15 @@ Dans les temps anciens, chaque Ancien Dieu était traqué par toutes les créatu
 
 Ce n'est qu'après avoir subi cette purification que le corps originel de Wang Lin pourrait être considéré comme celui d'un véritable Ancien Dieu.
 
-Wang Lin réfléchit un instant avant de dire : « Le Cimetière des Immortels... »
+Wang Lin réfléchit un instant avant de dire: « Le Cimetière des Immortels... »
 
-Le vieil homme Hu reprit : « Ce Cimetière des Immortels est extrêmement dangereux. Après tout, une puissance y réside que même Suzaku redoute. Cependant, tant que nous ne nous enfonçons pas trop profondément, il ne devrait pas y avoir trop de puissants sauvages. »
+Le vieil homme Hu reprit: « Ce Cimetière des Immortels est extrêmement dangereux. Après tout, une puissance y réside que même Suzaku redoute. Cependant, tant que nous ne nous enfonçons pas trop profondément, il ne devrait pas y avoir trop de puissants sauvages. »
 
 Wang Lin ne savait pas grand-chose sur le Cimetière des Immortels. Il savait seulement, d'après la carte, qu'il était vaste et que sa partie souterraine était encore plus immense que sa surface.
 
 Personne, hormis Suzaku, ne connaissait le nombre exact de couches du Cimetière des Immortels.
 
-« Frère Wang doit savoir que ces sauvages étaient les autochtones de cette planète. Lorsque Suzaku est devenue un pays de cultivation de rang 6, cette planète leur fut offerte par l'Alliance de la Cultivation. Ils menèrent ensuite une grande guerre contre les sauvages. Cette planète, autrefois si vivante, fut ravagée par le conflit et n'est plus aujourd'hui qu'une planète à moitié dévastée. Tout cela est de la faute des sauvages. »
+« Frère Wang doit savoir que ces sauvages étaient les autochtones de cette planète. Lorsque Suzaku est devenue un pays de culture de rang 6, cette planète leur fut offerte par l'Alliance de la Culture. Ils menèrent ensuite une grande guerre contre les sauvages. Cette planète, autrefois si vivante, fut ravagée par le conflit et n'est plus aujourd'hui qu'une planète à moitié dévastée. Tout cela est de la faute des sauvages. »
 
 « Durant cette guerre, 90 % des sauvages furent massacrés. Les survivants s'enfuirent alors dans le Cimetière des Immortels. Tous les cent ans, Suzaku envoie d'innombrables cultivateurs pour les éliminer, mais ils ne parviennent toujours pas à les anéantir totalement. »
 
@@ -88,13 +88,13 @@ Personne, hormis Suzaku, ne connaissait le nombre exact de couches du Cimetière
 
 « Quant au Fruit de la Réincarnation, dès que nous trouverons un arbre, j'ai une méthode secrète pour le faire porter des fruits en moins de trois heures. »
 
-Wang Lin réfléchit encore. Il regarda la femme au voile blanc et demanda : « Pourquoi votre père s'est-il rendu au Cimetière des Immortels ? »
+Wang Lin réfléchit encore. Il regarda la femme au voile blanc et demanda: « Pourquoi votre père s'est-il rendu au Cimetière des Immortels? »
 
-La femme murmura : « Pour m'apporter un morceau de Bois de Réincarnation. »
+La femme murmura: « Pour m'apporter un morceau de Bois de Réincarnation. »
 
-Wang Lin ne posa pas d'autres questions. Après une courte réflexion, il dit au vieil homme Hu : « Je ne peux pas prendre de décision pour le moment. »
+Wang Lin ne posa pas d'autres questions. Après une courte réflexion, il dit au vieil homme Hu: « Je ne peux pas prendre de décision pour le moment. »
 
-Le vieil homme Hu hocha la tête. « Aucun problème. Le Cimetière des Immortels est en effet périlleux. J'ai moi aussi longtemps hésité avant de me décider. Voici ce que je propose : nous vous attendrons devant l'entrée du Cimetière pendant un mois. Si vous ne venez pas, nous partirons par nos propres moyens. »
+Le vieil homme Hu hocha la tête. « Aucun problème. Le Cimetière des Immortels est en effet périlleux. J'ai moi aussi longtemps hésité avant de me décider. Voici ce que je propose: nous vous attendrons devant l'entrée du Cimetière pendant un mois. Si vous ne venez pas, nous partirons par nos propres moyens. »
 
 Wang Lin acquiesça.
 
@@ -102,7 +102,7 @@ Le vieil homme Hu se leva et sourit. « Alors, je ne vous dérange plus. Je vous
 
 Qiu Siping et ses compagnons se levèrent rapidement pour prendre congé.
 
-La femme au voile blanc se leva, hésita, puis murmura : « Zi Xin espère vous voir là-bas, aîné. » Elle s'envola ensuite.
+La femme au voile blanc se leva, hésita, puis murmura: « Zi Xin espère vous voir là-bas, aîné. » Elle s'envola ensuite.
 
 Le vieil homme qui l'accompagnait joignit les mains et la suivit.
 
@@ -112,7 +112,7 @@ Une fois les six individus partis, Wang Lin saisit sa tasse et en prit une gorg�
 
 Il réfléchit un instant avant de tapoter son sac de rangement. Trois sculptures apparurent dans sa main.
 
-« Six de ces sculptures du domaine temporel ont été détruites, il n'en reste que trois ; la puissance du domaine qu'elles peuvent manifester est donc grandement affaiblie. Hélas, il n'y a pas d'arbres centenaires pour en fabriquer de nouvelles. »
+« Six de ces sculptures du domaine temporel ont été détruites, il n'en reste que trois; la puissance du domaine qu'elles peuvent manifester est donc grandement affaiblie. Hélas, il n'y a pas d'arbres centenaires pour en fabriquer de nouvelles. »
 
 Après avoir rangé les sculptures de bois, Wang Lin fouilla dans son sac et en sortit un bras.
 
@@ -126,7 +126,7 @@ La chaise semblait prête à fondre, mais elle se métamorphosa en un bassin. Wa
 
 Wang Lin pointa le bras, et la lumière noire y pénétra.
 
-Ensuite, il frappa son sac de rangement et en sortit plusieurs petites fioles. Ces flacons contenaient des substances qu'il avait acquises au cours des derniers siècles : du poison provenant d'une bête spirituelle.
+Ensuite, il frappa son sac de rangement et en sortit plusieurs petites fioles. Ces flacons contenaient des substances qu'il avait acquises au cours des derniers siècles: du poison provenant d'une bête spirituelle.
 
 Il brisa les fioles et versa leur contenu. Un liquide rouge semblable à du sang s'en échappa et fusionna avec le bras.
 

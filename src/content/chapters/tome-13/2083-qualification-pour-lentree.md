@@ -10,61 +10,61 @@ La tempête marine continuait de gronder, s'intensifiant de manière exponentiel
 
 Les centaines de membres du clan Antique venaient d'arriver et contemplaient la tempête devant eux. Ils ressentaient clairement l'aura destructrice qui émanait de celle-ci, capable de les anéantir sans effort.
 
-Cette force était suffisante pour faire trembler toute créature vivante de peur. Cependant, cela n'incluait pas Wang Lin ni les six Grands Empyrées. À leurs niveaux de cultivation, ils possédaient tous divers degrés de résistance à ces grondements... Cela ne représentait aucun problème pour eux.
+Cette force était suffisante pour faire trembler toute créature vivante de peur. Cependant, cela n'incluait pas Wang Lin ni les six Grands Empereurs Célestes. À leurs niveaux de culture, ils possédaient tous divers degrés de résistance à ces grondements... Cela ne représentait aucun problème pour eux.
 
 Wang Lin ignorait les rugissements. Lorsque ce son atteignait ses oreilles, il ne faisait pas trembler son cœur le moins du monde. C'était comme si ce bruit n'était pas digne de faire vibrer son âme, fût-il des milliers de fois plus puissant.
 
-Ayant atteint un tel niveau de cultivation, oubliez le Continent Astral Immortel ; même dans l'immensité de l'espace extérieur, très peu de choses pouvaient encore l'ébranler.
+Ayant atteint un tel niveau de culture, oubliez le Continent Astral Immortel; même dans l'immensité de l'espace extérieur, très peu de choses pouvaient encore l'ébranler.
 
-Cependant, les six Grands Empyrées n'étaient pas dans la même situation. Bien qu'ils ne fussent pas autant affectés par ces grondements, ils savaient que beaucoup de personnes derrière eux ne pourraient pas les supporter.
+Cependant, les six Grands Empereurs Célestes n'étaient pas dans la même situation. Bien qu'ils ne fussent pas autant affectés par ces grondements, ils savaient que beaucoup de personnes derrière eux ne pourraient pas les supporter.
 
-Song Tian n'hésita pas. Dès que les rugissements s'intensifièrent, il se plaça devant les membres du clan Antique. D'un revers de manche, un soleil géant apparut derrière lui ; il utilisait son pouvoir de Grand Empyrée pour aider ceux qui le suivaient à résister au tumulte.
+Song Tian n'hésita pas. Dès que les rugissements s'intensifièrent, il se plaça devant les membres du clan Antique. D'un revers de manche, un soleil géant apparut derrière lui; il utilisait son pouvoir de Grand Empereur Céleste pour aider ceux qui le suivaient à résister au tumulte.
 
-Xuan Luo et le Grand Empyrée Ancient Ji firent de même. Grâce à l'effort conjugué de ces trois-là, ils purent s'assurer que les centaines de membres paniqués du clan Antique ne soient ni blessés, ni repoussés.
+Xuan Luo et le Grand Empereur Céleste Ancient Ji firent de même. Grâce à l'effort conjugué de ces trois-là, ils purent s'assurer que les centaines de membres paniqués du clan Antique ne soient ni blessés, ni repoussés.
 
 Le clan céleste procédait de la même manière. Jiu Di et ses compagnons agirent simultanément pour protéger les centaines de cultivateurs célestes contre les grondements.
 
 Seul Wang Lin restait assis là, observant calmement la tempête marine.
 
-Il n'intervenait pour aider personne ; cela n'avait aucun sens.
+Il n'intervenait pour aider personne; cela n'avait aucun sens.
 
 Wang Lin savait déjà ce qui se passerait dans douze jours. Il jeta un regard aux deux camps, puis ferma les yeux.
 
 « Il reste douze jours avant que la porte ne s'ouvre, mais les grondements sont déjà aussi intenses qu'auparavant, deux jours avant l'ouverture du Royaume Divin Immemorial... »
 
-« Si cela continue ainsi, je crains qu'ils ne puissent pas rester ! »
+« Si cela continue ainsi, je crains qu'ils ne puissent pas rester! »
 
-« Le Royaume Divin Immemorial est étrange, il est très différent de ce que nous connaissons ! »
+« Le Royaume Divin Immemorial est étrange, il est très différent de ce que nous connaissons! »
 
-Les six Grands Empyrées des deux côtés de la tempête se regardèrent, l'expression sombre.
+Les six Grands Empereurs Célestes des deux côtés de la tempête se regardèrent, l'expression sombre.
 
 Alors qu'ils continuaient à résister, le temps s'écoulait. Chaque jour, le rugissement de la tempête devenait plus violent. Lorsqu'il ne restait plus que neuf jours avant l'ouverture du Royaume Divin Immemorial, les grondements se propagèrent dans toute la vaste cuvette. Même les bordures reliées aux clans Antique et céleste pouvaient entendre le tumulte.
 
 Au crépuscule, neuf jours avant l'ouverture, les rugissements atteignirent un degré indescriptible.
 
-Même les six Grands Empyrées, déployant leur pleine puissance, sentaient qu'ils ne pourraient plus résister.
+Même les six Grands Empereurs Célestes, déployant leur pleine puissance, sentaient qu'ils ne pourraient plus résister.
 
-Les grondements étaient tels qu'ils brisaient le ciel et faisaient apparaître des fissures sur la terre. Les centaines de personnes protégées par les six Grands Empyrées commençaient à saigner de leurs orifices.
+Les grondements étaient tels qu'ils brisaient le ciel et faisaient apparaître des fissures sur la terre. Les centaines de personnes protégées par les six Grands Empereurs commençaient à saigner de leurs orifices.
 
-« Il reste encore neuf jours ! Il est impossible de tenir plus longtemps. En ce moment même, l'intensité est comparable au dernier jour avant l'ouverture du Royaume Divin Immemorial dans le passé. Si cela continue, des gens mourront demain et nous serons blessés avant même d'avoir pu entrer ! »
+« Il reste encore neuf jours! Il est impossible de tenir plus longtemps. En ce moment même, l'intensité est comparable au dernier jour avant l'ouverture du Royaume Divin Immemorial dans le passé. Si cela continue, des gens mourront demain et nous serons blessés avant même d'avoir pu entrer! »
 
 « Je crains que nous ne puissions pas permettre à autant de personnes d'entrer dans le Royaume Divin Immemorial cette fois... » déclara rapidement Wu Feng, tandis que Dao Yi hochait silencieusement la tête.
 
-Jiu Di serra les dents et envoya un message divin :
+Jiu Di serra les dents et envoya un message divin:
 
-« Tous les cultivateurs en dessous du rang d'Exalt Doré, retirez-vous immédiatement et quittez la vaste cuvette ! »
+« Tous les cultivateurs en dessous du rang d'Exalt Doré, retirez-vous immédiatement et quittez la vaste cuvette! »
 
 À l'annonce de ses paroles, du côté du clan Antique, Song Tian et ses compagnons prirent également une décision. Parmi les centaines de personnes qu'ils protégeaient, ceux qui n'avaient pas réussi à passer les trois épreuves et les sept calamités quittèrent rapidement le centre du tumulte.
 
-Un instant plus tard, il ne restait que moins de cent personnes de chaque côté de la tempête. Grâce à ce nombre réduit, la pression sur les six Grands Empyrées diminua considérablement.
+Un instant plus tard, il ne restait que moins de cent personnes de chaque côté de la tempête. Grâce à ce nombre réduit, la pression sur les six Grands Empereurs Célestes diminua considérablement.
 
 Wang Lin observait tout cela. Il restait silencieux et pensif, sans agir. En regardant la tempête marine, il vit que l'interstice dans la porte formé par les neuf piliers s'agrandissait légèrement.
 
-En un éclair, trois jours passèrent. Il ne restait plus que six jours avant l'ouverture du Royaume Divin Immemorial. Le grondement provenant de la porte devint encore plus intense qu'auparavant. Un tel phénomène n'était jamais arrivé lors des ouvertures précédentes du Royaume Divin Immemorial, ce qui plongea les six Grands Empyrées dans une grande anxiété.
+En un éclair, trois jours passèrent. Il ne restait plus que six jours avant l'ouverture du Royaume Divin Immemorial. Le grondement provenant de la porte devint encore plus intense qu'auparavant. Un tel phénomène n'était jamais arrivé lors des ouvertures précédentes du Royaume Divin Immemorial, ce qui plongea les six Grands Empereurs Célestes dans une grande anxiété.
 
 Ils ne pouvaient plus endurer cela. Ils devaient réduire le nombre de personnes, sinon ils finiraient par être affectés eux aussi.
 
-« Wang Lin ! » Xuan Luo interpella Wang Lin. C'était la première fois qu'il lui adressait la parole depuis le début des grondements. En vérité, Song Tian et le Grand Empyrée Ancient Ji avaient depuis longtemps placé leurs espoirs en Wang Lin ; ils ne comprenaient simplement pas pourquoi Gu Dao ne s'était toujours pas manifesté.
+« Wang Lin! » Xuan Luo interpella Wang Lin. C'était la première fois qu'il lui adressait la parole depuis le début des grondements. En vérité, Song Tian et le Grand Empereur Céleste Ancient Ji avaient depuis longtemps placé leurs espoirs en Wang Lin; ils ne comprenaient simplement pas pourquoi Gu Dao ne s'était toujours pas manifesté.
 
 Cependant, ce n'était pas le moment de se poser de telles questions. À l'appel de Xuan Luo, tous les regards se tournèrent vers Wang Lin.
 
@@ -80,9 +80,9 @@ Xuan Luo et ses compagnons restèrent silencieux. Ils ressentaient également l'
 
 Le clan Antique bénéficiait de la protection de Wang Lin, mais du côté du clan céleste, sous la garde de Jiu Di et ses compagnons, ils furent contraints de réduire leur nombre.
 
-« Cultivateurs d'Exalt Doré... Cultivateurs d'Exalt Éthéré, reculez et évacuez immédiatement ! » Alors que la voix de Jiu Di résonnait, la majorité des cent cultivateurs restants réfléchirent en silence. Ils regardèrent la tempête marine avec regret avant de partir un à un, ne laissant que onze personnes.
+« Cultivateurs d'Exalt Doré... Cultivateurs d'Exalt Éthéré, reculez et évacuez immédiatement! » Alors que la voix de Jiu Di résonnait, la majorité des cent cultivateurs restants réfléchirent en silence. Ils regardèrent la tempête marine avec regret avant de partir un à un, ne laissant que onze personnes.
 
-Tous les Ascendants Éthérés n'étaient pas venus ; ces onze individus étaient ceux qui avaient choisi d'être présents.
+Tous les Ascendants Éthérés n'étaient pas venus; ces onze individus étaient ceux qui avaient choisi d'être présents.
 
 Il ne restait plus que six jours.
 
@@ -94,7 +94,7 @@ Jiu Di et ses compagnons restèrent assis ensemble. N'ayant plus à protéger le
 
 En observant la situation du clan céleste, Xuan Luo et les autres ressentirent une amertume profonde. Ils avaient le pressentiment que les paroles de Wang Lin étaient vraies. S'il n'avait pas été pour l'aide apportée par Wang Lin plus tôt, ils auraient fini comme l'autre camp, avec seulement trois survivants.
 
-Les trois derniers jours furent les plus éprouvants. Un jour passa sans qu'ils s'en aperçoivent, et dès que celui-ci s'acheva, la tempête marine devint cent fois plus intense !
+Les trois derniers jours furent les plus éprouvants. Un jour passa sans qu'ils s'en aperçoivent, et dès que celui-ci s'acheva, la tempête marine devint cent fois plus intense!
 
 Cela provoqua l'effondrement du monde en d'innombrables fragments, transformant la réalité en un vide absolu. Jiu Di et ses compagnons pâlirent et n'hésitèrent pas à lier leurs sens divins pour tenter de résister par leur puissance combinée.
 
@@ -110,6 +110,6 @@ Wang Lin regarda Gu Dao sans dire un mot. Il continua de fixer la tempête marin
 
 À cet instant, il ne restait que huit personnes à l'extérieur de la tempête marine. Ils étaient entourés par le néant alors que le monde s'était effondré autour d'eux. Lorsque le jour passa et qu'arriva le dernier jour avant l'ouverture, les grondements formèrent un vortex. Tandis que ce tourbillon tournait avec une rapidité fulgurante, il fit cracher du sang à Jiu Di et ses compagnons. Ils se retirèrent à contrecœur, sachant au fond d'eux qu'ils avaient atteint leurs limites.
 
-Dao Yi fut le premier à serrer les dents pour partir, suivi par un Wu Feng impuissant. Seul Jiu Di affichait une expression déformée, les veines de son visage saillantes sous l'effort ; il voulait continuer à résister.
+Dao Yi fut le premier à serrer les dents pour partir, suivi par un Wu Feng impuissant. Seul Jiu Di affichait une expression déformée, les veines de son visage saillantes sous l'effort; il voulait continuer à résister.
 
 Cependant, il ne tint que deux heures de plus avant de disparaître, l'expression amère.

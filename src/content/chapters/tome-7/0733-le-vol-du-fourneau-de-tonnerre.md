@@ -12,41 +12,41 @@ Wang Lin s'assit au centre de la formation pour cultiver. À chaque respiration,
 
 Ce processus se répétait inlassablement. L'énergie spirituelle céleste en lui se condensait lentement.
 
-Atteindre le sommet du stade avancé de l'Ascendant n'était pas un exploit inaccessible pour les cultivateurs, mais cela restait une étape que seuls quelques rares élus pouvaient franchir. La raison ne résidait ni dans le domaine, ni dans les jades célestes, mais dans l'énergie originelle !
+Atteindre le sommet du stade avancé de l'Ascendant n'était pas un exploit inaccessible pour les cultivateurs, mais cela restait une étape que seuls quelques rares élus pouvaient franchir. La raison ne résidait ni dans le domaine, ni dans les jades célestes, mais dans l'énergie originelle!
 
 Si l'énergie originelle fusionnée avec l'âme originelle était insuffisante au moment d'atteindre le stade Ascendant, alors même si le cultivateur parvenait à ce stade, il ne pourrait jamais atteindre son apogée.
 
 De même, même si un individu rassemblait suffisamment d'énergie originelle, s'il subissait des blessures à son âme originelle entraînant la perte de cette précieuse énergie fusionnée, il serait incapable d'atteindre le sommet.
 
-On pouvait dire que l'énergie originelle était la clé pour atteindre l'apogée de la première étape de la cultivation.
+On pouvait dire que l'énergie originelle était la clé pour atteindre l'apogée de la première étape de la culture.
 
-S'ajoutait à cela le fait que les cultivateurs Ascendants ne pouvaient pas absorber l'énergie originelle du monde pour se rétablir ; il était donc naturel que peu d'entre eux atteignent le sommet.
+S'ajoutait à cela le fait que les cultivateurs Ascendants ne pouvaient pas absorber l'énergie originelle du monde pour se rétablir; il était donc naturel que peu d'entre eux atteignent le sommet.
 
-Après avoir cultivé dans le lac de tonnerre, Wang Lin avait atteint la limite de l'énergie originelle que son âme originelle pouvait contenir, satisfaisant ainsi l'exigence fondamentale. À mesure que son domaine s'affinait, cela stimulait sa cultivation. Il progressait lentement vers le sommet du stade avancé de l'Ascendant en absorbant l'énergie spirituelle céleste.
+Après avoir cultivé dans le lac de tonnerre, Wang Lin avait atteint la limite de l'énergie originelle que son âme originelle pouvait contenir, satisfaisant ainsi l'exigence fondamentale. À mesure que son domaine s'affinait, cela stimulait sa culture. Il progressait lentement vers le sommet du stade avancé de l'Ascendant en absorbant l'énergie spirituelle céleste.
 
 Cependant, la quantité d'énergie spirituelle céleste requise pour atteindre l'apogée de la première étape était terrifiante. Après un an d'absorption, Wang Lin avait épuisé tous ses jades célestes. Il sortit alors le liquide céleste et le but sans la moindre hésitation.
 
 Le liquide céleste pénétra son corps, provoquant une puissante sensation d'ivresse. Le corps de Wang Lin dégagea une brume blanche qui, imprégnée d'un parfum de vin, se répandit dans toute la zone.
 
-Simultanément, le liquide céleste libéra une immense quantité d'énergie spirituelle céleste à l'intérieur du corps de Wang Lin. C'était comme une force impétueuse qui poussait rapidement sa cultivation vers le sommet du stade avancé de l'Ascendant.
+Simultanément, le liquide céleste libéra une immense quantité d'énergie spirituelle céleste à l'intérieur du corps de Wang Lin. C'était comme une force impétueuse qui poussait rapidement sa culture vers le sommet du stade avancé de l'Ascendant.
 
-Réaliser tout par la seule pensée, avec l'énergie spirituelle céleste se mouvant au rythme de son aura : telle était la description du sommet du stade avancé de l'Ascendant. Le domaine de l'individu est parfait, sans la moindre faille, soutenu par un cœur dao inébranlable. Le corps est saturé d'énergie spirituelle céleste, au point que l'aura elle-même semble en être imprégnée.
+Réaliser tout par la seule pensée, avec l'énergie spirituelle céleste se mouvant au rythme de son aura: telle était la description du sommet du stade avancé de l'Ascendant. Le domaine de l'individu est parfait, sans la moindre faille, soutenu par un cœur dao inébranlable. Le corps est saturé d'énergie spirituelle céleste, au point que l'aura elle-même semble en être imprégnée.
 
-Wang Lin atteignit le sommet du stade avancé de l'Ascendant 19 ans et 8 mois après son arrivée sur la planète Qing Ling !
+Wang Lin atteignit le sommet du stade avancé de l'Ascendant 19 ans et 8 mois après son arrivée sur la planète Qing Ling!
 
 Tous les jades célestes dans un rayon de plusieurs kilomètres autour de Wang Lin se transformèrent en poussière lors de sa percée. L'herbe commença à pousser sur cette terre aride, désormais empreinte de vie.
 
 Wang Lin ouvrit lentement les yeux, lesquels semblaient contenir les cieux eux-mêmes.
 
-« Après 1 000 ans de cultivation, j'ai enfin atteint la perfection... » Wang Lin poussa un soupir de soulagement et un sourire apparut au coin de ses lèvres.
+« Après 1 000 ans de culture, j'ai enfin atteint la perfection... » Wang Lin poussa un soupir de soulagement et un sourire apparut au coin de ses lèvres.
 
-En repensant à ces 1 000 ans, il n'était autrefois qu'un simple membre de la Secte Heng Yue ; mais en cet instant, il se trouvait au sommet de la première étape, ayant même surpassé Zhuque Zi. C'était une chose que personne sur la planète Suzaku n'aurait pu imaginer.
+En repensant à ces 1 000 ans, il n'était autrefois qu'un simple membre de la Secte Heng Yue; mais en cet instant, il se trouvait au sommet de la première étape, ayant même surpassé Zhuque Zi. C'était une chose que personne sur la planète Suzaku n'aurait pu imaginer.
 
 Wang Lin ne se leva pas, mais toucha son sac de rangement et un pinceau céleste doré apparut dans sa main. Il le tint fermement et commença à tracer des caractères devant lui, ses mains dansant avec agilité.
 
 Sa limite précédente était de sept traits. Désormais, il accomplissait sept traits d'un seul souffle, puis en ajoutait un huitième pour parfaire l'œuvre. La lumière éblouissante des runes était suffisante pour captiver l'esprit.
 
-« Le pouvoir de huit traits surpasse celui de sept ! » Les yeux de Wang Lin étaient paisibles. À cet instant, il ressemblait davantage à un érudit qu'à un cultivateur.
+« Le pouvoir de huit traits surpasse celui de sept! » Les yeux de Wang Lin étaient paisibles. À cet instant, il ressemblait davantage à un érudit qu'à un cultivateur.
 
 Lorsqu'il rangea le pinceau, la rune disparut. Le sens divin, autrefois divisé dans les runes, retourna dans le corps de Wang Lin.
 
@@ -66,17 +66,17 @@ Tandis que l'éclair fendait l'espace, Wang Lin ouvrit les yeux et commença à 
 
 S'il voulait se rendre au Royaume Céleste du Tonnerre, il lui fallait un fourneau de tonnerre. Sans cela, aucun moyen n'était possible pour y pénétrer. Wang Lin le savait parfaitement.
 
-Cependant, le Système Stellaire Allheaven différait du Système Stellaire de l'Alliance. Les fourneaux n'étaient pas dispersés au hasard. Pour une raison inconnue, ils apparaissaient tous ensemble à l'intérieur du Temple Céleste du Tonnerre. Le temple attribuait ensuite un nombre défini de fourneaux à chaque famille de cultivation.
+Cependant, le Système Stellaire Allheaven différait du Système Stellaire de l'Alliance. Les fourneaux n'étaient pas dispersés au hasard. Pour une raison inconnue, ils apparaissaient tous ensemble à l'intérieur du Temple Céleste du Tonnerre. Le temple attribuait ensuite un nombre défini de fourneaux à chaque famille de culture.
 
 Il ne restait plus que trois mois avant l'ouverture du Royaume Céleste du Tonnerre. C'était le moment où toutes les familles recevraient leurs fourneaux. Les yeux de Wang Lin s'illuminèrent et il prit une décision.
 
-« Puisque je n'ai pas de fourneau de tonnerre, je vais en voler un ! » La main droite de Wang Lin tapota légèrement la tête de la Bête de Tonnerre. Celle-ci poussa un rugissement, comme si elle savourait l'idée.
+« Puisque je n'ai pas de fourneau de tonnerre, je vais en voler un! » La main droite de Wang Lin tapota légèrement la tête de la Bête de Tonnerre. Celle-ci poussa un rugissement, comme si elle savourait l'idée.
 
-En vérité, s'il avait cherché Shengong Hu, il aurait pu lui en obtenir un. Cependant, la cultivation de Shengong Hu était trop puissante. S'ils se rencontraient trop souvent, ce dernier pourrait finir par le démasquer ; à moins que cela ne soit crucial, Wang Lin préférait éviter de croiser cet homme.
+En vérité, s'il avait cherché Shengong Hu, il aurait pu lui en obtenir un. Cependant, la culture de Shengong Hu était trop puissante. S'ils se rencontraient trop souvent, ce dernier pourrait finir par le démasquer; à moins que cela ne soit crucial, Wang Lin préférait éviter de croiser cet homme.
 
-Tous les cultivateurs entrant dans le Royaume Céleste du Tonnerre n'avaient pas encore atteint la deuxième étape. Après tout, les cultivateurs de la deuxième étape étaient rares ; la plupart se situaient entre les stades de Transformation de l'Âme et d'Ascendant.
+Tous les cultivateurs entrant dans le Royaume Céleste du Tonnerre n'avaient pas encore atteint la deuxième étape. Après tout, les cultivateurs de la deuxième étape étaient rares; la plupart se situaient entre les stades de Transformation de l'Âme et d'Ascendant.
 
-Dans le domaine sud du Système Stellaire Allheaven, grâce au jade laissé par Shengong Hu, Wang Lin trouva une planète de cultivation. Il ne prit pas la peine de vérifier le nom des deux familles présentes. À chaque ouverture du Royaume Céleste du Tonnerre, ces deux familles obtenaient un ou deux fourneaux. Plus important encore, aucune d'elles n'avait de membre dépassant le sommet du stade avancé de l'Ascendant.
+Dans le domaine sud du Système Stellaire Allheaven, grâce au jade laissé par Shengong Hu, Wang Lin trouva une planète de culture. Il ne prit pas la peine de vérifier le nom des deux familles présentes. À chaque ouverture du Royaume Céleste du Tonnerre, ces deux familles obtenaient un ou deux fourneaux. Plus important encore, aucune d'elles n'avait de membre dépassant le sommet du stade avancé de l'Ascendant.
 
 Une fois arrivé sur la planète, Wang Lin l'explora avec son sens divin. Il constata que les chefs des deux familles n'étaient pas là. Il flotta parmi les étoiles, ferma les yeux et se mit à cultiver.
 
@@ -84,23 +84,23 @@ Le temps passa lentement. Un mois avant l'ouverture du Royaume Céleste du Tonne
 
 Parmi ces cultivateurs, l'un d'eux se trouvait au stade de l'Yin Illusoire, tandis que les autres oscillaient entre le stade Ascendant et celui de la Transformation de l'Âme. Ils se déplaçaient à une vitesse fulgurante avant de s'arrêter brusquement à distance, leurs regards tombant sur Wang Lin.
 
-Le cultivateur au stade de l'Yin Illusoire était un vieil homme aux cheveux argentés dont les yeux brillaient intensément. Son énergie originelle était peu abondante et encore instable ; il était évident qu'il venait tout juste d'atteindre ce stade. Il fit un pas en avant, scrutant Wang Lin avec une expression d'incertitude.
+Le cultivateur au stade de l'Yin Illusoire était un vieil homme aux cheveux argentés dont les yeux brillaient intensément. Son énergie originelle était peu abondante et encore instable; il était évident qu'il venait tout juste d'atteindre ce stade. Il fit un pas en avant, scrutant Wang Lin avec une expression d'incertitude.
 
-Le vieil homme demanda : « Pourquoi ce Seigneur Messager est-il venu sur la planète Zheng Tan ? »
+Le vieil homme demanda: « Pourquoi ce Seigneur Messager est-il venu sur la planète Zheng Tan? »
 
-Wang Lin ouvrit les yeux et fronça imperceptiblement les sourcils. D'un ton calme, il demanda : « Êtes-vous tous revenus de la collecte des fourneaux de tonnerre ? »
+Wang Lin ouvrit les yeux et fronça imperceptiblement les sourcils. D'un ton calme, il demanda: « Êtes-vous tous revenus de la collecte des fourneaux de tonnerre? »
 
-L'expression du vieil homme changea : « C'est exact. Que souhaite le Seigneur Messager ? Parlez, je vous en prie ! »
+L'expression du vieil homme changea: « C'est exact. Que souhaite le Seigneur Messager? Parlez, je vous en prie! »
 
-Wang Lin déclara calmement : « J'ai besoin d'un fourneau de tonnerre ! »
+Wang Lin déclara calmement: « J'ai besoin d'un fourneau de tonnerre! »
 
-Le vieil homme fixa Wang Lin un long moment avant d'éclater de rire. Son rire était teinté d'arrogance. Ses yeux brillèrent et il s'écria : « Lors de ce voyage au Temple Céleste du Tonnerre, j'ai entendu des rumeurs sur quelqu'un se faisant passer pour un messager du Temple. Au début, je pensais que c'était absurde, mais après vous avoir vu, ce vieil homme est certain que vous êtes un imposteur ! »
+Le vieil homme fixa Wang Lin un long moment avant d'éclater de rire. Son rire était teinté d'arrogance. Ses yeux brillèrent et il s'écria: « Lors de ce voyage au Temple Céleste du Tonnerre, j'ai entendu des rumeurs sur quelqu'un se faisant passer pour un messager du Temple. Au début, je pensais que c'était absurde, mais après vous avoir vu, ce vieil homme est certain que vous êtes un imposteur! »
 
-« Oh ? » L'expression de Wang Lin resta neutre tandis qu'il observait calmement le vieil homme.
+« Oh? » L'expression de Wang Lin resta neutre tandis qu'il observait calmement le vieil homme.
 
-Le vieil homme ricana : « Quel messager du Temple Céleste du Tonnerre n'a pas de nombreuses familles subordonnées ? Obtenir un fourneau de tonnerre serait d'une simplicité extrême. De plus, j'ai rencontré tous les messagers du domaine sud, et votre visage m'est totalement inconnu ! »
+Le vieil homme ricana: « Quel messager du Temple Céleste du Tonnerre n'a pas de nombreuses familles subordonnées? Obtenir un fourneau de tonnerre serait d'une simplicité extrême. De plus, j'ai rencontré tous les messagers du domaine sud, et votre visage m'est totalement inconnu! »
 
-« Plus important encore, tous les messagers sont rassemblés au Temple Céleste du Tonnerre. Ils ne sortiront pas avant l'ouverture du Royaume Céleste ! »
+« Plus important encore, tous les messagers sont rassemblés au Temple Céleste du Tonnerre. Ils ne sortiront pas avant l'ouverture du Royaume Céleste! »
 
 Wang Lin hocha la tête et cessa de perdre son temps en futilités. L'ombre derrière lui s'agita et le Gardien Céleste apparut. D'un pas, il chargea immédiatement pour asséner un coup de poing.
 
@@ -120,25 +120,25 @@ Des fissures apparurent aussitôt sur le bouclier de flammes avant que celui-ci 
 
 Alors que le son résonnait encore, le vieil homme recula, le visage blême. Le Gardien Céleste fut lui aussi repoussé de plusieurs pas, une flamme noire brûlant son bras et se propageant lentement sur son corps.
 
-« Je veux seulement un fourneau de tonnerre ! » lança Wang Lin d'un ton imperturbable.
+« Je veux seulement un fourneau de tonnerre! » lança Wang Lin d'un ton imperturbable.
 
-Le vieil homme fixa Wang Lin. Le coup porté par la marionnette l'avait profondément stupéfié. À moins d'utiliser des sorts originels, il lui serait impossible de vaincre une marionnette dont le niveau de cultivation était comparable au sien.
+Le vieil homme fixa Wang Lin. Le coup porté par la marionnette l'avait profondément stupéfié. À moins d'utiliser des sorts originels, il lui serait impossible de vaincre une marionnette dont le niveau de culture était comparable au sien.
 
-« Pour qu'un homme possède une telle marionnette, il ne peut être ordinaire. Même s'il usurpe l'identité d'un messager du Temple Céleste, cela ne me regarde pas. C'est juste que... si je lui remets simplement un fourneau, c'est toute la face de ma famille Zhang qui sera perdue... » Le vieil homme était dans une impasse. Si Wang Lin avait atteint la deuxième étape, il lui aurait sans doute cédé un fourneau sans discuter ; après tout, la famille en possédait trois. Mais Wang Lin n'était qu'au sommet du stade avancé de l'Ascendant. S'il cédait sans combat, son honneur en serait mortellement affecté.
+« Pour qu'un homme possède une telle marionnette, il ne peut être ordinaire. Même s'il usurpe l'identité d'un messager du Temple Céleste, cela ne me regarde pas. C'est juste que... si je lui remets simplement un fourneau, c'est toute la face de ma famille Zhang qui sera perdue... » Le vieil homme était dans une impasse. Si Wang Lin avait atteint la deuxième étape, il lui aurait sans doute cédé un fourneau sans discuter; après tout, la famille en possédait trois. Mais Wang Lin n'était qu'au sommet du stade avancé de l'Ascendant. S'il cédait sans combat, son honneur en serait mortellement affecté.
 
-Wang Lin ne voulait pas s'attarder sur ces futilités. Bien que le niveau de cultivation de cet homme fût plus élevé que prévu, celui-ci venait tout juste d'atteindre le stade de l'Yin Illusoire et n'était pas encore stable. Avec sa cultivation au sommet de l'Ascendant, ses sorts et ses trésors, combattre ce vieil homme ne serait pas une tâche insurmontable.
+Wang Lin ne voulait pas s'attarder sur ces futilités. Bien que le niveau de culture de cet homme fût plus élevé que prévu, celui-ci venait tout juste d'atteindre le stade de l'Yin Illusoire et n'était pas encore stable. Avec sa culture au sommet de l'Ascendant, ses sorts et ses trésors, combattre ce vieil homme ne serait pas une tâche insurmontable.
 
 Il frappa son sac de rangement et une pierre de montagne apparut instantanément dans sa main. La pierre se métamorphosa pour devenir une montagne massive, dégageant une riche énergie spirituelle céleste doublée d'une pression écrasante.
 
 Wang Lin pressa sa main droite contre elle, faisant trembler la montagne. Une aura ancienne s'accumula sous sa paume. Lorsqu'il leva la main, des filaments de brume se rassemblèrent pour former un nuage de la taille d'un poing.
 
-En voyant cela, l'expression du vieil homme changea radicalement. Horrifié, il s'écria sans hésitation : « Le sort d'extraction d'âme ! Tu n'es qu'au sommet de la première étape, comment peux-tu utiliser un tel sort ? »
+En voyant cela, l'expression du vieil homme changea radicalement. Horrifié, il s'écria sans hésitation: « Le sort d'extraction d'âme! Tu n'es qu'au sommet de la première étape, comment peux-tu utiliser un tel sort? »
 
 Le regard de Wang Lin resta calme alors que sa main droite projetait le brouillard, qui fonça vers le vieil homme avec une pression dévastatrice. Simultanément, Wang Lin chargea dans la foulée du nuage. Il leva sa main droite et un éclair se rassembla au creux de sa paume. Un rugissement tonitruant retentit parmi les étoiles et, en un éclair, un véritable coup de foudre prit forme dans sa main.
 
 À cet instant, Wang Lin ressemblait à une divinité contrôlant la foudre. Tenant l'éclair, il avança vers le vieil homme d'un pas glacial.
 
-Le vieil homme, paniqué, recula une fois de plus. Ses deux mains formèrent un sceau qu'il pointa entre ses sourcils. La zone entre ses arcades commença à bouger étrangement et une fente s'ouvrit, comme si un troisième œil apparaissait !
+Le vieil homme, paniqué, recula une fois de plus. Ses deux mains formèrent un sceau qu'il pointa entre ses sourcils. La zone entre ses arcades commença à bouger étrangement et une fente s'ouvrit, comme si un troisième œil apparaissait!
 
 Son troisième œil devint cramoisi tandis que le sang de tout son corps circulait avec frénésie, semblant se condenser sur son visage. L'énergie originelle dans ses veines se déchaîna également pour converger vers son front, mêlée à son sang.
 
@@ -154,8 +154,8 @@ Le foudre fonça droit sur le vieil homme. Ce dernier fut incapable d'utiliser s
 
 De ce fait, la lumière rouge du troisième œil ne dura que trois respirations avant qu'il ne s'effondre sous la douleur. L'œil se referma automatiquement et la lueur disparut.
 
-Alors que l'éclair et l'âme de la montagne — bien que partiellement désintégrée — convergeaient vers lui, le vieil homme serra les dents. Il extirpa un objet de son sac de rangement et le brandit au-dessus de sa tête !
+Alors que l'éclair et l'âme de la montagne — bien que partiellement désintégrée — convergeaient vers lui, le vieil homme serra les dents. Il extirpa un objet de son sac de rangement et le brandit au-dessus de sa tête!
 
-La main gauche de Wang Lin s'étira et saisit l'objet avant qu'il ne puisse agir. Cet objet était le fourneau de tonnerre !
+La main gauche de Wang Lin s'étira et saisit l'objet avant qu'il ne puisse agir. Cet objet était le fourneau de tonnerre!
 
-Une fois le fourneau de tonnerre rangé, Wang Lin ne partit pas. Un éclat étrange dans ses yeux fixait le vieil homme alors qu'il demandait lentement : « Accepteriez-vous de m'échanger le sort que vous venez d'utiliser ? »
+Une fois le fourneau de tonnerre rangé, Wang Lin ne partit pas. Un éclat étrange dans ses yeux fixait le vieil homme alors qu'il demandait lentement: « Accepteriez-vous de m'échanger le sort que vous venez d'utiliser? »

@@ -10,7 +10,7 @@ Les habitants du village étaient extrêmement bien préparés pour cette attaqu
 
 Après une demi-lune, seul le groupe de Treize n'était pas revenu. Bien qu'il y eût eu des pertes, leurs récompenses étaient fort satisfaisantes. Cependant, l'absence du groupe de Treize laissait un nuage d'inquiétude peser sur les cœurs.
 
-Seule l'expression de Wang Lin demeurait imperturbable. Trois jours plus tard, un nuage noir apparut à l'orée de la vallée. En y regardant de plus près, on pouvait distinguer qu'il s'agissait d'un lion ailé. Bien que son corps ne présentât aucune blessure apparente, il était très affaibli ; par intermittence, il se dissipait en un nuage noir avant de se reformer, au bord de l'effondrement.
+Seule l'expression de Wang Lin demeurait imperturbable. Trois jours plus tard, un nuage noir apparut à l'orée de la vallée. En y regardant de plus près, on pouvait distinguer qu'il s'agissait d'un lion ailé. Bien que son corps ne présentât aucune blessure apparente, il était très affaibli; par intermittence, il se dissipait en un nuage noir avant de se reformer, au bord de l'effondrement.
 
 Une personne gisait immobile sur son dos, couverte de plaies. Une étrange ligne rouge se mouvait à l'intérieur de son corps, tel un parasite.
 
@@ -18,9 +18,9 @@ L'âme primaire du lion chargea brusquement vers la vallée. À mesure qu'il app
 
 En voyant la créature, presque tout le monde reconnut aussitôt le lion de Treize et comprit que l'individu sur son dos n'était autre que lui. Une fois l'âme primaire du lion entrée dans la vallée, elle poussa un cri, puis se brisa en une multitude d'éclats de lumière noire, sur le point de se dissiper totalement.
 
-C'est à cet instant qu'une voix calme résonna dans la vallée :
+C'est à cet instant qu'une voix calme résonna dans la vallée:
 
-« Condensation de l'âme ! »
+« Condensation de l'âme! »
 
 Aussitôt, les éclats de lumière noire brillèrent intensément et se condensèrent promptement. En un clin d'œil, le lion retrouva son état normal. Les villageois affichèrent des expressions respectueuses et s'écartèrent pour lui ouvrir la voie. Wang Lin avança, les mains derrière le dos.
 
@@ -36,9 +36,9 @@ Wang Lin s'agenouilla et pressa doucement son doigt droit sur la poitrine de Tre
 
 La froideur dans le regard de Wang Lin s'intensifia et l'énergie spirituelle céleste en son sein déferla avec fureur. Il serra fermement la prise et, après une série de craquements, la ligne rouge se mua en poussière en l'espace de trois respirations.
 
-Une fois la ligne disparue, les traits de Treize retrouvèrent lentement leur couleur. Bien qu'il fût encore extrêmement faible, sa vie n'était plus en danger immédiat. Cependant, le visage de Wang Lin s'assombrit davantage : il comprit instantanément que Treize avait été brisé !
+Une fois la ligne disparue, les traits de Treize retrouvèrent lentement leur couleur. Bien qu'il fût encore extrêmement faible, sa vie n'était plus en danger immédiat. Cependant, le visage de Wang Lin s'assombrit davantage: il comprit instantanément que Treize avait été brisé!
 
-Les trois étoiles d'énergie spirituelle démoniaque que Treize avait accumulées par la cultivation du sort de raffinage de l'âme s'étaient évaporées. Si cela avait été tout, ce n'aurait pas été grave, mais tous les méridiens de son corps étaient brisés et ses drapeaux d'âmes avaient été dérobés.
+Les trois étoiles d'énergie spirituelle démoniaque que Treize avait accumulées par la culture du sort de raffinage de l'âme s'étaient évaporées. Si cela avait été tout, ce n'aurait pas été grave, mais tous les méridiens de son corps étaient brisés et ses drapeaux d'âmes avaient été dérobés.
 
 L'ennemi avait agi avec une cruauté extrême sans pour autant tuer Treize. En laissant le lion le ramener, il prouvait qu'il avait manifestement d'autres desseins.
 
@@ -46,15 +46,15 @@ Les yeux de Wang Lin s'illuminèrent et il pointa son doigt vers le front de Tre
 
 Le corps de Treize trembla, puis il ouvrit brusquement les yeux et vit Wang Lin. Il voulut se lever pour lui rendre hommage, mais il découvrit qu'il était incapable de bouger, une douleur l'assaillant par vagues océaniques.
 
-Treize parvint à peine à entrouvrir la bouche. Dans son état de détresse, il laissa échapper le mot qu'il portait toujours dans son cœur pour Wang Lin : « Maître... »
+Treize parvint à peine à entrouvrir la bouche. Dans son état de détresse, il laissa échapper le mot qu'il portait toujours dans son cœur pour Wang Lin: « Maître... »
 
 Le regard de Wang Lin brilla d'une lueur particulière, mais il resta silencieux.
 
-« Sur le chemin du retour, nous avons rencontré une grande tribu. Nous avons tenté de les contourner, mais ils nous ont attaqués. Un homme en robe blanche m'a dérobé mon drapeau d'âme et a planté ce démon en moi. Il m'a laissé un message : si vous voulez récupérer les drapeaux, il ne vous reste qu'à le trouver. »
+« Sur le chemin du retour, nous avons rencontré une grande tribu. Nous avons tenté de les contourner, mais ils nous ont attaqués. Un homme en robe blanche m'a dérobé mon drapeau d'âme et a planté ce démon en moi. Il m'a laissé un message: si vous voulez récupérer les drapeaux, il ne vous reste qu'à le trouver. »
 
-Wang Lin hocha la tête, puis leva son doigt ; à cet instant, le corps de Treize tressaillit avant qu'il ne retombe dans l'inconscience.
+Wang Lin hocha la tête, puis leva son doigt; à cet instant, le corps de Treize tressaillit avant qu'il ne retombe dans l'inconscience.
 
-« Emmenez-le se reposer ! » Après ces mots, Wang Lin fit un pas et disparut.
+« Emmenez-le se reposer! » Après ces mots, Wang Lin fit un pas et disparut.
 
 Les membres de la tribu s'empressèrent d'évacuer Treize pour qu'on puisse le soigner.
 
@@ -64,40 +64,36 @@ Initialement, Treize était sorti pour attaquer une autre tribu. S'il avait éch
 
 Cependant, la situation était différente ici. Treize était sur le chemin du retour lorsqu'il fut attaqué par une autre tribu. L'ennemi ne l'avait pas tué, mais avait implanté un démon en lui. Si cela s'était arrêté là, cela aurait pu servir de leçon, mais ils avaient également brisé ses méridiens et lancé ce défi de récupérer les drapeaux d'âmes.
 
-Désormais, la signification changeait : c'était une provocation, ou pour mieux dire, une lettre de défi ! Treize était devenu la lettre de défi vivante de quelqu'un !
+Désormais, la signification changeait: c'était une provocation, ou pour mieux dire, une lettre de défi! Treize était devenu la lettre de défi vivante de quelqu'un!
 
-Puisque cette personne avait envoyé un tel message, Wang Lin voulait voir quel genre d'individu osait le défier au sein de cette tribu !
+Puisque cette personne avait envoyé un tel message, Wang Lin voulait voir quel genre d'individu osait le défier au sein de cette tribu!
 
-Wang Lin était doté d'une grande intelligence. Si le niveau de cultivation de cet adversaire était bien supérieur au sien, il retournerait simplement au village pour soigner Treize et éviterait soigneusement cette tribu. Bien qu'une telle possibilité existe, elle était infime. D'après ce que Wang Lin avait observé via le sort utilisé sur Treize, l'individu n'était qu'au stade de la Formation de l'Âme.
+Wang Lin était doté d'une grande intelligence. Si le niveau de culture de cet adversaire était bien supérieur au sien, il retournerait simplement au village pour soigner Treize et éviterait soigneusement cette tribu. Bien qu'une telle possibilité existe, elle était infime. D'après ce que Wang Lin avait observé via le sort utilisé sur Treize, l'individu n'était qu'au stade de la Formation de l'Âme.
 
 Fort de cette pensée, il laissa échapper un renflement glacial et s'élança comme une météorite traversant le ciel.
 
-La Tribu des Eaux Célestes résidait dans une vaste plaine du nord-ouest du Territoire de l'Esprit Démoniaque. La zone était entourée de terres planes ; à l'origine, ce n'était pas un lieu propice à l'habitation, mais une formation ancienne y était établie. Cette formation était extrêmement puissante : une fois activée, tout ce qui se trouvait dans un rayon de cinq kilomètres était protégé. Même durant la nuit des esprits démoniaques, l'intérieur restait parfaitement sûr.
+La Tribu des Eaux Célestes résidait dans une vaste plaine du nord-ouest du Territoire de l'Esprit Démoniaque. La zone était entourée de terres planes; à l'origine, ce n'était pas un lieu propice à l'habitation, mais une formation ancienne y était établie. Cette formation était extrêmement puissante: une fois activée, tout ce qui se trouvait dans un rayon de cinq kilomètres était protégé. Même durant la nuit des esprits démoniaques, l'intérieur restait parfaitement sûr.
 
 La survie d'une tribu dans le Territoire de l'Esprit Démoniaque dépendait de sa capacité à trouver une formation protectrice. On en trouvait beaucoup dans ce territoire, mais peu couvraient une telle étendue de cinq kilomètres. Plus la zone couverte était vaste, plus la formation était puissante, ce qui permettait également à la tribu d'avoir un potentiel de croissance plus important.
 
-Par exemple, la vallée n'était que limitée par sa taille ; une fois qu'une certaine population était atteinte, elle ne pouvait plus accueillir de nouveaux membres. Cette formation sur la plaine couvrant cinq kilomètres, elle permettait une expansion bien plus grande.
+Par exemple, la vallée n'était que limitée par sa taille; une fois qu'une certaine population était atteinte, elle ne pouvait plus accueillir de nouveaux membres. Cette formation sur la plaine couvrant cinq kilomètres, elle permettait une expansion bien plus grande.
 
 Deux vieillards étaient assis dans une demeure très simple de la Tribu des Eaux Célestes. L'un portait du gris et l'autre du blanc. Entre eux reposait un service à thé pourpre.
 
 Le vieillard en robe blanche prit une tasse et but une gorgée. « De toutes les choses apportées par les étrangers, seul ce thé convient à mes goûts. »
 
-L'Ancien en robe grise prit également une tasse. « Quand comptez-vous repartir ? »
+L'Ancien en robe grise prit également une tasse. « Quand comptez-vous repartir? »
 
-Le vieillard en robe blanche réfléchit un instant avant de répondre : « Demain. Je ne peux pas m'absenter trop longtemps de la Cité Démoniaque Ancienne. J'ai déjà passé un mois pour rendre visite à ma famille ; si je prolonge mon séjour, il sera difficile de l'expliquer au général de l'aile gauche. »
+Le vieillard en robe blanche réfléchit un instant avant de répondre: « Demain. Je ne peux pas m'absenter trop longtemps de la Cité Démoniaque Ancienne. J'ai déjà passé un mois pour rendre visite à ma famille; si je prolonge mon séjour, il sera difficile de l'expliquer au général de l'aile gauche. »
 
-L'Ancien en robe grise hocha la tête et dit : « Vous avez blessé le disciple de quelqu'un et dérobé leur étrange petit drapeau. S'ils viennent frapper à notre porte, que devrai-je faire ? »
+L'Ancien en robe grise hocha la tête et dit: « Vous avez blessé le disciple de quelqu'un et dérobé leur étrange petit drapeau. S'ils viennent frapper à notre porte, que devrai-je faire? »
 
-Les yeux du vieillard en robe blanche brillèrent d'une lueur malicieuse : « Que voulez-vous dire par "que devrez-vous faire" ? Utilisez simplement la formation pour tuer cet individu ! »
+Les yeux du vieillard en robe blanche brillèrent d'une lueur malicieuse: « Que voulez-vous dire par "que devrez-vous faire"? Utilisez simplement la formation pour tuer cet individu! »
 
-L'Ancien en robe grise fronça les sourcils et déclara d'un ton sérieux : « Ces gens n'étaient pas simples. Presque tous possédaient une étoile d'énergie spirituelle démoniaque et maîtrisaient des sorts démoniaques, particulièrement celui qui menait la troupe. Grâce à ces petits drapeaux, il pouvait contrôler les esprits démoniaques pour attaquer.
+L'Ancien en robe grise fronça les sourcils et déclara d'un ton sérieux: « Ces gens n'étaient pas simples. Presque tous possédaient une étoile d'énergie spirituelle démoniaque et maîtrisaient des sorts démoniaques, particulièrement celui qui menait la troupe. Grâce à ces petits drapeaux, il pouvait contrôler les esprits démoniaques pour attaquer. Au début, ils nous contournaient, mais vous avez manifesté un intérêt pour son drapeau. Non seulement vous les avez tués pour leurs trésors, mais vous avez même laissé le chef s'échapper pour qu'il serve de lettre de défi et attire son protecteur. Vous êtes allé un peu trop loin. »
 
-Au début, ils nous contournaient, mais vous avez manifesté un intérêt pour son drapeau. Non seulement vous les avez tués pour leurs trésors, mais vous avez même laissé le chef s'échapper pour qu'il serve de lettre de défi et attire son protecteur. Vous êtes allé un peu trop loin. »
+L'homme en robe blanche rit: « Je suis un garde d'honneur sous les ordres du général de l'aile gauche de la Cité Démoniaque Ancienne. Comment tuer quelques sauvages pourrait-il être excessif? De plus, j'ai déduit que celui qui les dirigeait n'était pas puissant. Pourquoi serait-il encore ici, dans une tribu? S'il était fort, il serait déjà allé à la Cité Démoniaque Ancienne pour obtenir un poste de prestige. Je l'ai attiré ici car je veux obtenir la méthode d'utilisation de ce petit drapeau. S'il vient, tant mieux; sinon, je suivrai la marque que j'ai laissée sur le jeune homme pour la lui voler! »
 
-L'homme en robe blanche rit : « Je suis un garde d'honneur sous les ordres du général de l'aile gauche de la Cité Démoniaque Ancienne. Comment tuer quelques sauvages pourrait-il être excessif ? De plus, j'ai déduit que celui qui les dirigeait n'était pas puissant. Pourquoi serait-il encore ici, dans une tribu ?
+L'Ancien en robe grise demanda: « L'incantation dans l'esprit du jeune homme est-elle un leurre? »
 
-S'il était fort, il serait déjà allé à la Cité Démoniaque Ancienne pour obtenir un poste de prestige. Je l'ai attiré ici car je veux obtenir la méthode d'utilisation de ce petit drapeau. S'il vient, tant mieux ; sinon, je suivrai la marque que j'ai laissée sur le jeune homme pour la lui voler ! »
-
-L'Ancien en robe grise demanda : « L'incantation dans l'esprit du jeune homme est-elle un leurre ? »
-
-Le vieillard en robe blanche eut un regard sombre et répondit : « Ce n'est pas un leurre, mais ce n'est pas complet ; il doit y en avoir davantage. »
+Le vieillard en robe blanche eut un regard sombre et répondit: « Ce n'est pas un leurre, mais ce n'est pas complet; il doit y en avoir davantage. »

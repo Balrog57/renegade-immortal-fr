@@ -10,13 +10,13 @@ Liu Wenju se leva et sortit un morceau de jade. Il le lança en l'air et forma r
 
 La vieille femme nommée Wang fit également apparaître un morceau de jade qui fusionna avec le premier. Le jade continuait de pivoter en dégageant une lumière arc-en-ciel. Les rayons colorés tombèrent sur le sol et recouvrirent tout dans un rayon de dix mètres autour du jade, jusqu'à former un disque lumineux.
 
-Liu Wenju regarda le groupe de quatre personnes composé de Wang Lin et dit : « Vous quatre, à l'exception de Wang Lin, serez chargés de protéger les autres disciples internes car de puissantes fluctuations vont se produire, alors faites attention à ne pas tomber. De plus, Huang Long, vous trois, vous serez responsables de deux disciples chacun. Shang Guan, vous deux et Wang Lin, vous devrez maintenir l'équilibre sur les côtés. »
+Liu Wenju regarda le groupe de quatre personnes composé de Wang Lin et dit: « Vous quatre, à l'exception de Wang Lin, serez chargés de protéger les autres disciples internes car de puissantes fluctuations vont se produire, alors faites attention à ne pas tomber. De plus, Huang Long, vous trois, vous serez responsables de deux disciples chacun. Shang Guan, vous deux et Wang Lin, vous devrez maintenir l'équilibre sur les côtés. »
 
 Sur ces mots, il monta sur le disque et la vieille femme le suivit.
 
 Les autres suivirent immédiatement les ordres de Liu Wenju, prirent chacun un disciple en charge et montèrent sur le disque. Les deux anciens de l'Établissement des Fondations et Wang Lin formèrent un triangle en se tenant aux extrémités.
 
-Liu Wenju prit une profonde inspiration. Sa main traça un sceau et il cria : « Élevez-vous ! »
+Liu Wenju prit une profonde inspiration. Sa main traça un sceau et il cria: « Élevez-vous! »
 
 L'environnement commença à trembler. Le disque lumineux s'éleva, puis s'élança vers l'horizon à une vitesse fulgurante.
 
@@ -26,17 +26,17 @@ Toute la force subie par les disciples internes fut transférée à Shang Guan, 
 
 Wang Lin sentit une force colossale frapper son corps. Il faillit tomber, mais il utilisa sa technique d'attraction pour stabiliser sa posture. Malgré cela, il sentait son corps trembler comme s'il allait être projeté hors du disque.
 
-Il regarda Shang Guan et Song Yu et constata que les deux anciens étaient très sereins et ne semblaient nullement éprouvés. Wang Lin soupira intérieurement : « Pas étonnant qu'ils soient des anciens de l'Établissement des Fondations, ce n'est pas un niveau que je peux égaler. »
+Il regarda Shang Guan et Song Yu et constata que les deux anciens étaient très sereins et ne semblaient nullement éprouvés. Wang Lin soupira intérieurement: « Pas étonnant qu'ils soient des anciens de l'Établissement des Fondations, ce n'est pas un niveau que je peux égaler. »
 
-Situ Nan dit d'un ton dédaigneux : « Ce n'est rien de spécial. C'est simplement une technique de voyage aérien. À mon époque, quand j'utilisais cette technique, je pouvais transporter 10 000 personnes sans avoir besoin que l'on maintienne l'équilibre ! »
+Situ Nan dit d'un ton dédaigneux: « Ce n'est rien de spécial. C'est simplement une technique de voyage aérien. À mon époque, quand j'utilisais cette technique, je pouvais transporter 10 000 personnes sans avoir besoin que l'on maintienne l'équilibre! »
 
-Wang Lin ne savait s'il devait rire ou pleurer. Il répondit : « Inutile de vous comparer à tout bout de champ. Je sais déjà que vous êtes puissant. »
+Wang Lin ne savait s'il devait rire ou pleurer. Il répondit: « Inutile de vous comparer à tout bout de champ. Je sais déjà que vous êtes puissant. »
 
-Situ Nan renifla : « Quand j'avais mon corps, je ne me soucierais même pas d'un junior comme toi. Si ce n'était pas pour le fait que tu es la seule personne capable de m'entendre, je ne te parlerais même pas. »
+Situ Nan renifla: « Quand j'avais mon corps, je ne me soucierais même pas d'un junior comme toi. Si ce n'était pas pour le fait que tu es la seule personne capable de m'entendre, je ne te parlerais même pas. »
 
 Peu de temps après, la vitesse du disque lumineux s'accéléra encore. Wang Lin parvint à peine à stabiliser son corps, tout en se plaignant intérieurement. Soudain, un nuage sombre apparut devant eux.
 
-Ce nuage était très étrange. Des éclairs de lumière zébraient l'obscurité et sa vitesse était également prodigieuse. Il semblait sur le point d'entrer en collision avec le disque lumineux. Le visage de Liu Wenju se crispa et il ordonna : « Shang Guan, Song Yu, Wang Lin, vous trois, restez bien stables ! »
+Ce nuage était très étrange. Des éclairs de lumière zébraient l'obscurité et sa vitesse était également prodigieuse. Il semblait sur le point d'entrer en collision avec le disque lumineux. Le visage de Liu Wenju se crispa et il ordonna: « Shang Guan, Song Yu, Wang Lin, vous trois, restez bien stables! »
 
 Sur ces mots, il prit une profonde inspiration et traça un sceau. Le disque lumineux marqua un bref temps d'arrêt, puis décrivit rapidement un arc de cercle pour contourner les nuages noirs.
 
@@ -50,7 +50,7 @@ Au moment où le disciple projeté arriva devant lui, Wang Lin vit l'effroi sur 
 
 Après cela, il expira longuement. Il savait que cette énergie froide provenait de Situ Nan. Juste au moment où il allait le remercier, une voix s'éleva du nuage sombre.
 
-« Camarades cultivateurs de la Secte Heng Yue, avez-vous rencontré l'ancêtre de notre Secte Xuan Dao, Pun Nanzi ? »
+« Camarades cultivateurs de la Secte Heng Yue, avez-vous rencontré l'ancêtre de notre Secte Xuan Dao, Pun Nanzi? »
 
 Wang Lin tourna la tête. Il vit un centipède géant émerger du nuage noir. Devant lui se tenait l'Ancien Ouyang et, derrière lui, sept ou huit personnes qui les dévisageaient avec mépris.
 
@@ -74,10 +74,10 @@ Le reste du groupe entra également dans la fissure avec l'aide des anciens. Une
 
 Dès son entrée, Wang Lin balaya toute la caverne de son Sens Divin et constata qu'il n'y avait rien d'autre que quelques salles de pierre.
 
-Liu Wenju attendit que tout le monde soit installé pour dire, d'un ton solennel : « La plupart d'entre vous ont atteint un niveau de cultivation où la nourriture n'est plus nécessaire. Quant à ceux dont le niveau est trop bas et qui doivent encore manger, il y a des provisions dans la salle de pierre là-bas qui devraient suffire pour plusieurs années. Moi et votre ancêtre Wang allons entrer en retraite de méditation et ne nous occuperons de rien d'autre. Suivez les instructions des anciens pour vos arrangements. »
+Liu Wenju attendit que tout le monde soit installé pour dire, d'un ton solennel: « La plupart d'entre vous ont atteint un niveau de culture où la nourriture n'est plus nécessaire. Quant à ceux dont le niveau est trop bas et qui doivent encore manger, il y a des provisions dans la salle de pierre là-bas qui devraient suffire pour plusieurs années. Moi et votre ancêtre Wang allons entrer en retraite de méditation et ne nous occuperons de rien d'autre. Suivez les instructions des anciens pour vos arrangements. »
 
-La vieille femme nommée Wang ajouta d'une voix empreinte de gravité : « Ma Secte Heng Yue entrera en retraite de méditation pendant cent ans, afin d'effacer notre déshonneur. Désormais, si des disciples ont besoin des chants pour atteindre le niveau supérieur, ils pourront les obtenir auprès des anciens. Durant ce siècle, à moins d'un événement majeur, aucun disciple n'est autorisé à quitter les lieux. Vous trois, le groupe de Huang Long, vous devez également entrer en retraite et tenter d'atteindre l'Établissement des Fondations le plus vite possible. »
+La vieille femme nommée Wang ajouta d'une voix empreinte de gravité: « Ma Secte Heng Yue entrera en retraite de méditation pendant cent ans, afin d'effacer notre déshonneur. Désormais, si des disciples ont besoin des chants pour atteindre le niveau supérieur, ils pourront les obtenir auprès des anciens. Durant ce siècle, à moins d'un événement majeur, aucun disciple n'est autorisé à quitter les lieux. Vous trois, le groupe de Huang Long, vous devez également entrer en retraite et tenter d'atteindre l'Établissement des Fondations le plus vite possible. »
 
 Le groupe de Huang Long acquiesça.
 
-Le regard de Liu Wenju balaya les disciples internes : « Lu Song, tu es responsable de tous les disciples internes. Wang Lin, toi, suis-moi. Je vais te préparer un endroit spécial. »
+Le regard de Liu Wenju balaya les disciples internes: « Lu Song, tu es responsable de tous les disciples internes. Wang Lin, toi, suis-moi. Je vais te préparer un endroit spécial. »

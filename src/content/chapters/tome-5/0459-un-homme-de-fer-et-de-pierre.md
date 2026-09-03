@@ -14,7 +14,7 @@ Les yeux de Yunque Zi s'illuminèrent. D'un revers de main, il fit disparaître 
 
 Wang Lin ne se souciait guère de la manière dont Yunque Zi avait pu pénétrer dans ce lieu. Après tout, le Clan des Immortels Délaissés existait depuis une éternité, et il n'était pas du genre à vouloir trouver une réponse à tout.
 
-Wang Lin avait déjà renoncé à obtenir le Cristal de Cultivation Planétaire ; il ne voulait que récupérer son fragment d'âme.
+Wang Lin avait déjà renoncé à obtenir le Cristal de Culture Planétaire; il ne voulait que récupérer son fragment d'âme.
 
 Après tout, ce cristal était lié à toutes les créatures vivantes de la planète Suzaku. Wang Lin n'en était pas encore au point d'être prêt à sacrifier la vie du monde entier par pur égoïsme.
 
@@ -30,11 +30,11 @@ Lorsque le vieil homme remarqua le regard de Wang Lin, il se tourna vers lui et 
 
 À ce moment précis, un rayon de lumière jaillit du lointain. Une silhouette magnifique se trouvait au cœur de cette lumière. Elle esquiva une faille et atterrit sur la montagne spirituelle.
 
-Cette femme était d'une grande beauté ; le bas de sa robe ondulait comme des vagues, lui donnant l'allure d'une immortelle tandis qu'elle se tenait au sommet de la montagne spirituelle.
+Cette femme était d'une grande beauté; le bas de sa robe ondulait comme des vagues, lui donnant l'allure d'une immortelle tandis qu'elle se tenait au sommet de la montagne spirituelle.
 
-Dès que Wang Lin posa les yeux sur elle, son visage s'assombrit. Cette femme n'était autre que Liu Mei !
+Dès que Wang Lin posa les yeux sur elle, son visage s'assombrit. Cette femme n'était autre que Liu Mei!
 
-En réalité, une chose que Liu Mei avait dite était vraie : elle et Wang Lin étaient de même nature. Au plus profond d'eux, chacun cachait un brin de cruauté.
+En réalité, une chose que Liu Mei avait dite était vraie: elle et Wang Lin étaient de même nature. Au plus profond d'eux, chacun cachait un brin de cruauté.
 
 Wang Lin ne la regarda qu'une fraction de seconde avant de détourner les yeux. Son expression était glaciale, identique à celle qu'il affichait lorsqu'il faisait face à Liu Mei auparavant.
 
@@ -42,27 +42,27 @@ En voyant Liu Mei, Qian Feng afficha un air de joie. Il pensait qu'avec sa prés
 
 Liu Mei laissa poindre une trace de tristesse, puis elle fit quelques pas vers Wang Lin.
 
-Wang Lin fronça les sourcils. Il n'éprouvait aucun sentiment favorable pour cette femme. Ce qui s'était passé dans cet état semblable à un rêve n'était qu'un accident. Il la regarda froidement et dit : « Je ne veux de personne pour me déranger. Ne t'approche pas ! »
+Wang Lin fronça les sourcils. Il n'éprouvait aucun sentiment favorable pour cette femme. Ce qui s'était passé dans cet état semblable à un rêve n'était qu'un accident. Il la regarda froidement et dit: « Je ne veux de personne pour me déranger. Ne t'approche pas! »
 
-Liu Mei s'arrêta. Elle regarda Wang Lin et demanda : « Pourrais-tu vraiment être fait de fer et de pierre ? »
+Liu Mei s'arrêta. Elle regarda Wang Lin et demanda: « Pourrais-tu vraiment être fait de fer et de pierre? »
 
-Le regard de Wang Lin resta calme alors qu'il lâchait froidement : « Pars ! »
+Le regard de Wang Lin resta calme alors qu'il lâchait froidement: « Pars! »
 
-Liu Mei éclata de rire. « Alors, quelle place occupe Li Muwan dans ton cœur ? »
+Liu Mei éclata de rire. « Alors, quelle place occupe Li Muwan dans ton cœur? »
 
-Les yeux de Wang Lin furent envahis par une intention meurtrière : « Dégage ! Bien que ton domaine ait atteint sa perfection, si je voulais te tuer, ce ne serait pas difficile. Ne cherche pas la mort ! »
+Les yeux de Wang Lin furent envahis par une intention meurtrière: « Dégage! Bien que ton domaine ait atteint sa perfection, si je voulais te tuer, ce ne serait pas difficile. Ne cherche pas la mort! »
 
 Le but des paroles de Liu Mei était de briser le cœur Dao de Wang Lin, mais elle ignorait que Li Muwan était un sujet tabou pour lui. Il tuerait quiconque mentionnerait son nom. S'il n'avait pas été dans un lieu aussi périlleux, il aurait déjà sorti l'étendard de l'âme pour l'exterminer.
 
 Wang Lin tenait énormément à ses rares attaches, mais il restait impitoyable envers les étrangers.
 
-Il était un homme de fer et de pierre ; ce n'était pas un mensonge !
+Il était un homme de fer et de pierre; ce n'était pas un mensonge!
 
 Liu Mei esquissa un léger sourire, puis elle se détourna pour marcher vers Qian Feng.
 
 Wang Lin détourna le regard et vit que le vieil homme l'observait.
 
-« Cet homme pourrait-il être possédé ? » Le cœur de Wang Lin manqua un battement.
+« Cet homme pourrait-il être possédé? » Le cœur de Wang Lin manqua un battement.
 
 C'était une possibilité qu'il envisagea. Sinon, il n'y avait aucun moyen que cet individu lui inspire une telle familiarité. Si Wang Lin n'avait été qu'un mortel, il n'aurait pas autant réfléchi à partir d'un simple sourire. Même s'il n'avait été qu'un cultivateur de bas niveau, il n'aurait pas envisagé cette hypothèse.
 
@@ -70,19 +70,19 @@ Mais Wang Lin était un cultivateur au stade initial de la Transformation de l'�
 
 Avant que le Royaume Céleste ne soit brisé, les cultivateurs de la Transformation de l'Âme étaient l'équivalent des êtres célestes. Leurs corps étaient composés d'énergie spirituelle céleste et ils possédaient des sens mystérieux.
 
-Ces sens étaient très étranges ; seuls les puissants cultivateurs pouvaient les percevoir.
+Ces sens étaient très étranges; seuls les puissants cultivateurs pouvaient les percevoir.
 
-Si le niveau de cultivation était assez élevé, une simple pensée permettait de percevoir vaguement les événements futurs. Le mystère de ces techniques était indescriptible.
+Si le niveau de culture était assez élevé, une simple pensée permettait de percevoir vaguement les événements futurs. Le mystère de ces techniques était indescriptible.
 
 À cet instant, Wang Lin ressentait cela. Il savait qu'il ne se trompait pas. Ce sourire sinistre lui était terriblement familier.
 
-« J'ai cultivé pendant 600 ans et j'ai rencontré de nombreux ennemis, mais qu'un seul puisse me faire ressentir cela par un simple sourire... il n'y en a qu'un ! » Bien que Wang Lin paraisse calme en surface, son cœur était en plein tumulte.
+« J'ai cultivé pendant 600 ans et j'ai rencontré de nombreux ennemis, mais qu'un seul puisse me faire ressentir cela par un simple sourire... il n'y en a qu'un! » Bien que Wang Lin paraisse calme en surface, son cœur était en plein tumulte.
 
 Il prit une profonde inspiration et baissa la tête. Soudain, ses pupilles se rétractèrent et ses yeux révélèrent une trace de terreur.
 
-« Le démon de Tu Si, Tuo Sen ! » Wang Lin sentit son corps se glacer. S'il fallait nommer les personnes que Wang Lin redoutait le plus sur la planète Suzaku, Zhuque Zi n'était même pas le premier. La première place appartenait au jeune homme démoniaque qu'il avait offensé dans la Terre de l'Ancien Dieu alors qu'il n'était qu'un cultivateur de la Formation du Noyau : Tuo Sen !
+« Le démon de Tu Si, Tuo Sen! » Wang Lin sentit son corps se glacer. S'il fallait nommer les personnes que Wang Lin redoutait le plus sur la planète Suzaku, Zhuque Zi n'était même pas le premier. La première place appartenait au jeune homme démoniaque qu'il avait offensé dans la Terre de l'Ancien Dieu alors qu'il n'était qu'un cultivateur de la Formation du Noyau: Tuo Sen!
 
-L'héritage de l'ancien dieu était divisé en deux : l'héritage de la puissance et l'héritage de la connaissance.
+L'héritage de l'ancien dieu était divisé en deux: l'héritage de la puissance et l'héritage de la connaissance.
 
 Parmi les deux, l'héritage de la connaissance contenait tout le savoir de Tu Si, comme la manière de devenir un ancien dieu, les tactiques des anciens dieux, et bien plus encore.
 
@@ -90,7 +90,7 @@ Il y avait même une carte stellaire gigantesque dans les souvenirs de Tu Si, r�
 
 Ces souvenirs furent d'une aide précieuse pour Wang Lin. Sans l'héritage de la connaissance, le corps originel de Wang Lin n'aurait pas pu cultiver jusqu'au stade d'ancien dieu à trois étoiles.
 
-Mais les souvenirs ne sont que des souvenirs ; ils ne procurent aucune puissance immédiate. Il existait dans la mémoire de Tu Si de nombreuses techniques capables de détruire instantanément la planète Suzaku.
+Mais les souvenirs ne sont que des souvenirs; ils ne procurent aucune puissance immédiate. Il existait dans la mémoire de Tu Si de nombreuses techniques capables de détruire instantanément la planète Suzaku.
 
 Il en connaissait les incantations et les méthodes, mais il n'avait pas la force de les exercer. Il devait atteindre au moins le stade des sept étoiles pour pouvoir les utiliser.
 
@@ -98,7 +98,7 @@ C'est pourquoi il ne pouvait que progresser étape par étape afin de renforcer 
 
 De la même manière, Tuo Sen se trouvait dans une situation analogue. Il avait hérité de la puissance de Tu Si, celle d'un ancien dieu à huit étoiles.
 
-Mais malgré cette puissance, il ne pouvait l'utiliser pleinement. Ce serait comme si son corps ne possédait aucun méridien ; peu importe l'énergie qu'il contenait, il ne pourrait pas la canaliser.
+Mais malgré cette puissance, il ne pouvait l'utiliser pleinement. Ce serait comme si son corps ne possédait aucun méridien; peu importe l'énergie qu'il contenait, il ne pourrait pas la canaliser.
 
 Toutes les techniques qu'il maîtrisait étaient celles apprises après sa naissance. Grâce à elles, il parvenait à utiliser un fragment de son héritage de puissance, mais pour l'instant, il n'en exploitait qu'une infime partie, incapable de manifester toute la force de son héritage.
 
@@ -108,13 +108,13 @@ Cependant, comparé à toute vie sur Suzaku, un ancien dieu à cinq étoiles ét
 
 Le plus grand souhait de Tuo Sen était d'obtenir l'héritage de la connaissance. Après cela, il n'aurait plus qu'à prendre le temps de tout assimiler et d'affiner son corps pour devenir un véritable ancien dieu à huit étoiles.
 
-À ce moment-là, même les vieux monstres de l'Alliance de Cultivation le craindraient.
+À ce moment-là, même les vieux monstres de l'Alliance de Culture le craindraient.
 
 Si Wang Lin n'avait pas agi ainsi dans la Terre de l'Ancien Dieu ce jour-là, Tuo Sen aurait pu s'échapper.
 
 Pour être exact, il était Tu Si, mais il n'était qu'une fraction des pensées démoniaques apparues lorsque Tu Si avait échoué dans sa technique de division du Sens Divin.
 
-Il était déterminé à capturer Wang Lin !
+Il était déterminé à capturer Wang Lin!
 
 Wang Lin leva la tête et scruta l'homme âgé avec désinvolture. Cette fois, son regard se fixa sur le petit singe.
 
@@ -122,15 +122,15 @@ Grâce à cette intuition, Wang Lin put immédiatement voir clair en eux. La lum
 
 Wang Lin ressentit une amertume profonde. Il pensa au Seigneur Démoniaque des Six Désirs, à Hunchback Meng, à l'Ancien Empereur et aux autres. Tous étaient soit morts, soit devenus des cultivateurs dans la mer de sang.
 
-Il y avait aussi ces anciens cultivateurs, nés avant l'arrivée de quiconque sur la planète Suzaku. Leurs niveaux de cultivation étaient également très élevés.
+Il y avait aussi ces anciens cultivateurs, nés avant l'arrivée de quiconque sur la planète Suzaku. Leurs niveaux de culture étaient également très élevés.
 
-Pourtant, fort de son expérience actuelle, Wang Lin devina qu'ils n'avaient pas dépassé le stade Ascendant. Cela devait être dû à une restriction imposée par la Terre de l'Ancien Dieu, empêchant leur niveau de cultivation de progresser au fil des années.
+Pourtant, fort de son expérience actuelle, Wang Lin devina qu'ils n'avaient pas dépassé le stade Ascendant. Cela devait être dû à une restriction imposée par la Terre de l'Ancien Dieu, empêchant leur niveau de culture de progresser au fil des années.
 
 Toutefois, ils détenaient des techniques inconnues des générations futures. Une fois utilisées, leur puissance augmenterait de façon fulgurante.
 
-« Tuo Sen... Il ne devrait pas être totalement libre pour le moment, sinon il n'aurait pas besoin de posséder quelqu'un comme celui-ci ; il serait venu me chercher personnellement. Pourtant, pourquoi n'est-il pas venu ici au lieu de me traquer ? Serait-il lui aussi en quête du Cristal de Cultivation Planétaire ? » Le cœur de Wang Lin trembla.
+« Tuo Sen... Il ne devrait pas être totalement libre pour le moment, sinon il n'aurait pas besoin de posséder quelqu'un comme celui-ci; il serait venu me chercher personnellement. Pourtant, pourquoi n'est-il pas venu ici au lieu de me traquer? Serait-il lui aussi en quête du Cristal de Culture Planétaire? » Le cœur de Wang Lin trembla.
 
-« Se pourrait-il que le Cristal de Cultivation Planétaire puisse libérer Tuo Sen de toutes les entraves de la Terre de l'Ancien Dieu ? » Les yeux de Wang Lin s'illuminèrent.
+« Se pourrait-il que le Cristal de Culture Planétaire puisse libérer Tuo Sen de toutes les entraves de la Terre de l'Ancien Dieu? » Les yeux de Wang Lin s'illuminèrent.
 
 À cet instant, la montagne spirituelle se remit à trembler et une série de rugissements tonitruants résonna dans le ciel. L'effondrement se produisit pour la troisième fois.
 

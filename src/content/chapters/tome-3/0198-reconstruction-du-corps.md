@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 198 - Body Reconstruction
 slug: reconstruction-du-corps
 ---
-De nombreux cristaux de glace bleus flottaient parmi les nuages, chacun mesurant environ dix pieds de large. Wang Lin balaya la zone du regard et en décompta un total de 94.
+De nombreux cristaux de glace bleus flottaient parmi les nuages, chacun mesurant environ 33 mètres de large. Wang Lin balaya la zone du regard et en décompta un total de 94.
 
 En inspectant la zone, il remarqua que l'un des cristaux était plus petit que les autres. Wang Lin reconnut immédiatement qu'il s'agissait du cristal que le Magicien Démon Céleste avait tenté de s'approprier lorsqu'il avait ouvert ce tunnel.
 
@@ -32,7 +32,7 @@ Pendant que ce processus se déroulait, l'âme de Wang Lin entra dans un état d
 
 Il se sentait comme une feuille sur cette rivière déchaînée, impuissant, emporté par les hauts et les bas des rapides. Chaque vague intensifiait sa douleur.
 
-Soudain, une lumière apparut devant ses yeux. Bientôt, une scène familière se matérialisa devant lui : un espace vide où scintillaient d'innombrables points de lumière.
+Soudain, une lumière apparut devant ses yeux. Bientôt, une scène familière se matérialisa devant lui: un espace vide où scintillaient d'innombrables points de lumière.
 
 Wang Lin avait déjà vu cette scène. En la contemplant à nouveau, il acquit soudainement une certaine compréhension. À l'instant même où cette lueur de discernement jaillit, la douleur qu'il subissait disparut sans laisser de trace.
 
@@ -42,7 +42,7 @@ Lentement, Wang Lin sentit son âme progresser, et ces points de lumière devinr
 
 Wang Lin savait déjà que le jeune homme qu'il avait vu auparavant était l'Ancien Dieu Tu Si lorsqu'il était enfant, et que le géant devant lui, de la taille d'une planète, était l'adulte Tu Si.
 
-Le visage de Tu Si semblait très ordinaire. La seule exception était la présence de huit étoiles disposées en cercle entre ses sourcils. De plus, sa peau était très rugueuse et parcourue d'innombrables fissures. Cependant, ces fissures étaient à peine visibles ; il était difficile de les remarquer si l'on n'observait pas Tu Si avec une extrême attention.
+Le visage de Tu Si semblait très ordinaire. La seule exception était la présence de huit étoiles disposées en cercle entre ses sourcils. De plus, sa peau était très rugueuse et parcourue d'innombrables fissures. Cependant, ces fissures étaient à peine visibles; il était difficile de les remarquer si l'on n'observait pas Tu Si avec une extrême attention.
 
 Mais après un examen minutieux, on pouvait voir d'innombrables crevasses. Sa peau ressemblait à une carapace fissurée.
 
@@ -60,7 +60,7 @@ Peu après, il ferma puis rouvrit les yeux. À l'instant où ses paupières s'ou
 
 Après un long moment, une pyramide carrée aux reflets arc-en-ciel apparut dans sa main.
 
-Cette pyramide dégageait une aura de majesté. Un sentiment de puissance capable de détruire le monde s'en échappait, tandis que d'innombrables vortex apparaissaient à proximité. L'âme de Wang Lin ressentit une force d'aspiration en voyant la pyramide ; un sentiment de terreur l'envahit alors qu'il la regardait nerveusement.
+Cette pyramide dégageait une aura de majesté. Un sentiment de puissance capable de détruire le monde s'en échappait, tandis que d'innombrables vortex apparaissaient à proximité. L'âme de Wang Lin ressentit une force d'aspiration en voyant la pyramide; un sentiment de terreur l'envahit alors qu'il la regardait nerveusement.
 
 Tu Si observa la pyramide et secoua la tête avec un air de pitié. Il la saisit, l'examina encore un instant, puis la lança vers une planète. Elle disparut à l'intérieur de celle-ci.
 
@@ -90,7 +90,7 @@ Il déplaça à nouveau son âme, qui fusionna une fois encore pour reprendre sa
 
 En jetant un coup d'œil au miroir, Wang Lin fut soudain pris d'un frisson. Il fixa le reflet, incapable de prononcer un mot.
 
-Dans le miroir, il voyait cette silhouette semi-transparente. Bien que translucide, on pouvait en distinguer les traits : c'était un visage très ordinaire.
+Dans le miroir, il voyait cette silhouette semi-transparente. Bien que translucide, on pouvait en distinguer les traits: c'était un visage très ordinaire.
 
 Wang Lin resta immobile, fixant son reflet avec une émotion complexe. Il se fit la promesse qu'un jour, il retrouverait son ancien corps.
 
@@ -104,7 +104,7 @@ Peu après, son âme ne put plus supporter la charge. Elle s'effondra et l'envel
 
 L'espace vide, parsemé d'innombrables points lumineux, réapparut. Cette fois, il observa l'Ancien Dieu raffiner une pilule à partir de l'énergie spirituelle de multiples planètes.
 
-Aux yeux de Wang Lin, cette pilule était extrêmement rudimentaire. Elle ressemblait à une boule de boue libérant une quantité terrifiante d'énergie spirituelle ; peu importe l'angle sous lequel on la regardait, elle n'avait rien d'une pilule.
+Aux yeux de Wang Lin, cette pilule était extrêmement rudimentaire. Elle ressemblait à une boule de boue libérant une quantité terrifiante d'énergie spirituelle; peu importe l'angle sous lequel on la regardait, elle n'avait rien d'une pilule.
 
 Une fois que Tu Si eut ingéré la pilule, les fissures de son corps devinrent beaucoup plus fines et, entre elles, apparurent d'innombrables motifs dégageant une atmosphère mystérieuse. Sous l'effet des mouvements de l'Ancien Dieu, ces motifs créaient une illusion de vie.
 
@@ -116,11 +116,11 @@ Lorsqu'il absorba le 34e cristal, son âme devint solide. On ne pouvait plus dis
 
 Wang Lin prit une profonde inspiration et commença à examiner attentivement son corps. Qu'il s'agisse du toucher, de l'odorat, de l'ouïe ou du goût, tout était identique à celui d'un corps réel.
 
-Graduellement, le doute s'installa dans le cœur de Wang Lin. Il n'avait fait qu'absorber l'héritage de connaissances de l'Ancien Dieu ; pourquoi son âme s'était-elle transformée en un corps ?
+Graduellement, le doute s'installa dans le cœur de Wang Lin. Il n'avait fait qu'absorber l'héritage de connaissances de l'Ancien Dieu; pourquoi son âme s'était-elle transformée en un corps?
 
 Ce corps, à l'exception de l'absence de noyau, était exactement le même qu'un corps normal.
 
-Wang Lin réfléchit et se coupa le bras gauche. Du sang rouge perla de la blessure. En contemplant ce sang, Wang Lin comprit enfin : il avait véritablement recréé son ancien corps.
+Wang Lin réfléchit et se coupa le bras gauche. Du sang rouge perla de la blessure. En contemplant ce sang, Wang Lin comprit enfin: il avait véritablement recréé son ancien corps.
 
 Il ferma les yeux et, après avoir inspecté son âme, constata qu'elle n'avait subi aucun changement. Au sein de son âme, le cercle de foudre éclatante entourant le noyau du dévoreur d'âmes tournait, et chaque rotation envoyait des ondes qui étendaient la puissance de son âme.
 
@@ -130,7 +130,7 @@ Après avoir soigneusement exploré son corps, il ouvrit les yeux et serra les p
 
 Wang Lin n'eut aucun mal à se familiariser avec le corps que son âme avait formé, car il s'agissait, après tout, de son corps originel. En bougeant ses poings, son cœur fut envahi par la joie.
 
-Il leva la tête, le regard devenu glacial. Il déclara : « Teng Huayuan, tu as détruit mon corps autrefois, mais j'ai réussi à le reformer. Une fois que j'atteindrai le stade de l'Âme Naissante avec ce corps, je me frayerai un chemin jusqu'à Zhao et je massacrerai toute la famille Teng ! Cette haine ne pourra être apaisée que par le sang de votre lignée. Seules les âmes de la famille Teng pourront calmer mon cœur ! »
+Il leva la tête, le regard devenu glacial. Il déclara: « Teng Huayuan, tu as détruit mon corps autrefois, mais j'ai réussi à le reformer. Une fois que j'atteindrai le stade de l'Âme Naissante avec ce corps, je me frayerai un chemin jusqu'à Zhao et je massacrerai toute la famille Teng! Cette haine ne pourra être apaisée que par le sang de votre lignée. Seules les âmes de la famille Teng pourront calmer mon cœur! »
 
 Les yeux de Wang Lin s'illuminèrent. Lorsqu'il était arrivé ici, il ne s'attendait pas à trouver 94 cristaux de glace, ce qui avait bouleversé son plan initial.
 
@@ -164,11 +164,11 @@ Même s'il en savait peu sur cette étoile, après avoir absorbé plus de 50 cri
 
 Les Anciens Dieux se consacraient à la perfection de leur enveloppe charnelle. Chaque Ancien Dieu utilisait toute l'énergie spirituelle absorbée pour affiner son corps. En conséquence, même pour eux, le corps finissait par atteindre une limite de croissance.
 
-À ce stade, il devenait nécessaire d'étendre le corps, sans quoi la cultivation s'arrêterait. Seule l'expansion corporelle permettait d'atteindre des niveaux de cultivation supérieurs. On pouvait dire que plus le corps d'un Ancien Dieu était vaste, plus il pouvait stocker d'énergie spirituelle. Une fois cette limite atteinte, le corps subissait une reconstruction, ce qui équivalait à atteindre un nouveau stade de cultivation.
+À ce stade, il devenait nécessaire d'étendre le corps, sans quoi la culture s'arrêterait. Seule l'expansion corporelle permettait d'atteindre des niveaux de culture supérieurs. On pouvait dire que plus le corps d'un Ancien Dieu était vaste, plus il pouvait stocker d'énergie spirituelle. Une fois cette limite atteinte, le corps subissait une reconstruction, ce qui équivalait à atteindre un nouveau stade de culture.
 
 Chaque Ancien Dieu traversait d'innombrables expansions et reconstructions corporelles. Plus ils en subissaient, plus ils devenaient puissants.
 
-Et après chaque reconstruction, la taille de l'âme de l'Ancien Dieu augmentait également. Pour les Anciens Dieux, il n'y avait pas de stades de cultivation distincts ; seule comptait la force de l'âme et celle du corps.
+Et après chaque reconstruction, la taille de l'âme de l'Ancien Dieu augmentait également. Pour les Anciens Dieux, il n'y avait pas de stades de culture distincts; seule comptait la force de l'âme et celle du corps.
 
 L'héritage de connaissances que Wang Lin avait absorbé contenait les souvenirs d'une vie entière de Tu Si. Bien que ce dernier soit mort à l'âge adulte en pratiquant la Technique Divine de Transformation de l'Encre Fluide, il avait vécu huit reconstructions corporelles.
 
@@ -176,7 +176,7 @@ Chaque reconstruction était une expérience inoubliable pour les Anciens Dieux,
 
 Mais en entrant dans cette zone et en absorbant pleinement un cristal de glace, le processus de reconstruction s'était automatiquement déclenché.
 
-Ainsi, le corps de Wang Lin avait commencé à se reformer, utilisant son âme comme noyau et sa mémoire comme modèle. Pour lui, ce processus n'avait rien d'exceptionnel ; quiconque recevrait cet héritage subirait la même épreuve.
+Ainsi, le corps de Wang Lin avait commencé à se reformer, utilisant son âme comme noyau et sa mémoire comme modèle. Pour lui, ce processus n'avait rien d'exceptionnel; quiconque recevrait cet héritage subirait la même épreuve.
 
 Cependant, cette reformation lui permit de recréer son corps originel.
 
@@ -184,15 +184,15 @@ Bien que ce corps paraisse ordinaire, il était bien plus puissant que celui des
 
 Si Wang Lin parvenait à subir huit reconstructions, son corps égalerait celui d'un Ancien Dieu.
 
-Après avoir analysé tout cela, Wang Lin en tira une conclusion audacieuse : peut-être que les huit étoiles sur le front de Tu Si étaient liées à ses huit reconstructions.
+Après avoir analysé tout cela, Wang Lin en tira une conclusion audacieuse: peut-être que les huit étoiles sur le front de Tu Si étaient liées à ses huit reconstructions.
 
-Si tel était le cas, cela expliquerait la présence de cette étoile sur son propre front ; après tout, son corps s'était reconstruit une fois.
+Si tel était le cas, cela expliquerait la présence de cette étoile sur son propre front; après tout, son corps s'était reconstruit une fois.
 
 Mais selon l'analyse de Wang Lin, sa reconstruction n'était pas achevée, sans quoi l'étoile sur son front ne serait pas aussi pâle et dépourvue de couleur.
 
 Ce n'étaient que des spéculations, car il n'avait pas encore acquis ce souvenir, mais il était certain d'obtenir la réponse sous peu.
 
-Après avoir absorbé 57 cristaux de glace, les fragments de chants, de techniques et de souvenirs commençaient à s'assembler. Cela plongeait son âme dans un chaos profond. Parfois, l'âme de Wang Lin devenait confuse ; il croyait être Tu Si, puis se rappelait qu'il était Wang Lin.
+Après avoir absorbé 57 cristaux de glace, les fragments de chants, de techniques et de souvenirs commençaient à s'assembler. Cela plongeait son âme dans un chaos profond. Parfois, l'âme de Wang Lin devenait confuse; il croyait être Tu Si, puis se rappelait qu'il était Wang Lin.
 
 Ce tumulte intérieur lui inspirait un sentiment de désespoir. Bien que Tu Si fût mort et qu'une possession fût impossible, Wang Lin craignait qu'en absorbant tout l'héritage sans une vigilance constante, il ne finisse par croire qu'il était Tu Si et en oublier sa véritable identité.
 

@@ -10,7 +10,7 @@ Lorsque Wang Lin sortit du réseau de transfert, ce qui apparut devant lui aprè
 
 Bien qu'inconnu, cet endroit dégageait une aura familière. C'était bel et bien le Royaume Céleste du Tonnerre.
 
-« Li Yuan est un véritable prodige ! » Wang Lin observa l'horizon. Il admirait rarement autrui, mais il était impressionné par la capacité de Li Yuan à manipuler diverses restrictions.
+« Li Yuan est un véritable prodige! » Wang Lin observa l'horizon. Il admirait rarement autrui, mais il était impressionné par la capacité de Li Yuan à manipuler diverses restrictions.
 
 Il fallait une connaissance approfondie des restrictions pour concevoir un réseau de transfert capable de quitter l'espace de stockage d'un être céleste. Wang Lin savait qu'il lui aurait été extrêmement difficile d'accomplir une telle prouesse.
 
@@ -28,13 +28,13 @@ Après avoir survolé avec prudence la chaîne suspendue au-dessus du vide, Wang
 
 Durant ce mois de voyage, Wang Lin étudia les restrictions de dissimulation d'aura que Li Yuan lui avait transmises. Ses recherches progressaient à une vitesse prodigieuse, poussées par la menace imminente du Souverain Sanguin.
 
-Il ne pouvait pas se dissimuler totalement du Souverain Sanguin ; il ne pouvait qu'augmenter la difficulté de sa détection. En temps normal, il finirait par être découvert, mais combiné à son plan actuel, il était possible qu'il parvienne réellement à rester caché.
+Il ne pouvait pas se dissimuler totalement du Souverain Sanguin; il ne pouvait qu'augmenter la difficulté de sa détection. En temps normal, il finirait par être découvert, mais combiné à son plan actuel, il était possible qu'il parvienne réellement à rester caché.
 
 Des filaments de restrictions apparurent autour de lui, formant une sphère protectrice dans laquelle il s'assit. Juste au moment où la sphère était sur le point de se refermer, le garde céleste fit son apparition.
 
 En contemplant le garde céleste, Wang Lin afficha un sourire sinistre. Il lança le cristal du réseau de transfert vers le garde et ferma lentement les yeux. Une parcelle de son sens divin se détacha de son corps pour pénétrer directement dans le garde céleste.
 
-C'était l'un des sorts du garde céleste : il permettait au sens divin de la personne l'ayant raffiné d'y entrer pour le contrôler.
+C'était l'un des sorts du garde céleste: il permettait au sens divin de la personne l'ayant raffiné d'y entrer pour le contrôler.
 
 Une fois que cette portion d'âme originelle fut entrée, les yeux de Wang Lin commencèrent à se fermer. Juste avant l'obscurité totale, une ultime restriction s'échappa de sa main pour parfaire la sphère. Celle-ci se rétracta brusquement jusqu'à disparaître dans un éclat de lumière.
 
@@ -42,9 +42,9 @@ Le garde céleste ouvrit les yeux, dont le regard devint glacial. Il saisit le c
 
 Après avoir remué son corps pour surmonter l'inconfort des premiers instants, Wang Lin scruta les profondeurs avec son sens divin. Il était incapable de détecter où se trouvait son véritable corps.
 
-« Sans le garde céleste, je ne pourrais pas tromper le Souverain Sanguin. Cependant, je prends l'initiative : une fois qu'il aura pris conscience de l'âme originelle présente dans ce corps, il ne pourra éviter cette attraction. »
+« Sans le garde céleste, je ne pourrais pas tromper le Souverain Sanguin. Cependant, je prends l'initiative: une fois qu'il aura pris conscience de l'âme originelle présente dans ce corps, il ne pourra éviter cette attraction. »
 
-Wang Lin baissa la tête et contempla son corps. Il s'élança vers l'horizon tel un météore, son sens divin déployé au maximum. Il était comme une lueur éclatante dans les ténèbres ; si quelqu'un le cherchait, il pourrait immédiatement le verrouiller du regard.
+Wang Lin baissa la tête et contempla son corps. Il s'élança vers l'horizon tel un météore, son sens divin déployé au maximum. Il était comme une lueur éclatante dans les ténèbres; si quelqu'un le cherchait, il pourrait immédiatement le verrouiller du regard.
 
 Wang Lin volait sans retenue. Il avait réprimé sa présence depuis son arrivée dans le Système Stellaire de Tout-Ciel. Après tout, il s'était enfui ici, et ces vieux monstres du Système Stellaire de l'Alliance auraient pu le poursuivre à tout instant. La réalité de la situation imposait la prudence.
 
@@ -52,7 +52,7 @@ Toutefois, puisque le Souverain Sanguin était déjà arrivé et compte tenu de 
 
 Par conséquent, Wang Lin arborait naturellement une aura arrogante durant son vol.
 
-« Souverain Sanguin ! Je t'attends ! » Les yeux de Wang Lin étaient d'une froideur extrême. Il était venu pour tuer !
+« Souverain Sanguin! Je t'attends! » Les yeux de Wang Lin étaient d'une froideur extrême. Il était venu pour tuer!
 
 Son intention meurtrière avait atteint le niveau Illusoire Yin grâce à ce corps actuel. Même s'il croisait d'autres cultivateurs, ceux-ci hésiteraient et chercheraient à l'éviter.
 
@@ -66,19 +66,19 @@ En particulier, la puissance de ce corps capable de rivaliser avec des trésors 
 
 Pourtant, Wang Lin ne progressait pas aveuglément. Il gravitait autour des fragments proches de celui où reposait son corps. Cette stratégie limitait ses mouvements mais présentait deux avantages.
 
-Le premier était qu'il ne se déplaçait pas au hasard, évitant ainsi de rater accidentellement le Souverain Sanguin. Le second était qu'il protégeait indirectement son corps ; s'il s'éloignait trop et que le Souverain Sanguin découvrait son véritable corps, il se retrouverait en position défensive.
+Le premier était qu'il ne se déplaçait pas au hasard, évitant ainsi de rater accidentellement le Souverain Sanguin. Le second était qu'il protégeait indirectement son corps; s'il s'éloignait trop et que le Souverain Sanguin découvrait son véritable corps, il se retrouverait en position défensive.
 
-Il traquait le Souverain Sanguin tandis que le Souverain Sanguin le traquait lui ! Les deux étaient de plus en plus proches...
+Il traquait le Souverain Sanguin tandis que le Souverain Sanguin le traquait lui! Les deux étaient de plus en plus proches...
 
 Le Souverain Sanguin, vêtu d'une robe rouge, traversait le vide. Chaque pas équivalait à une téléportation, et il parcourait les chaînes à une vitesse fulgurante.
 
-Son expression était calme, comme s'il n'était nullement en colère. Pourtant, ses yeux devenaient plus rouges de jour en jour. Avec sa cultivation, même si les cieux s'effondraient, son humeur resterait imperturbable, mais sa fille unique, Yao Xixue, était sa seule faiblesse !
+Son expression était calme, comme s'il n'était nullement en colère. Pourtant, ses yeux devenaient plus rouges de jour en jour. Avec sa culture, même si les cieux s'effondraient, son humeur resterait imperturbable, mais sa fille unique, Yao Xixue, était sa seule faiblesse!
 
 Il était prêt à défier les cieux et à massacrer tout ce qui se dressait sur son chemin pour elle. S'il devait choisir entre sa fille et l'atteinte de la troisième étape, il pourrait hésiter et lutter intérieurement, mais au final, il choisirait sa fille.
 
-C'était là qu'il différait radicalement de l'Omniscient et de Ling Tianhou. Si c'était l'Omniscient, il aurait tout sacrifié pour atteindre la troisième étape !
+C'était là qu'il différait radicalement de l'Omniscient et de Ling Tianhou. Si c'était l'Omniscient, il aurait tout sacrifié pour atteindre la troisième étape!
 
-Pour sa propre fille, il était prêt à renoncer à sa dignité, à briser le serment que son père mourant lui avait imposé : celui de ne jamais poser le pied dans le Système Stellaire de Tout-Ciel...
+Pour sa propre fille, il était prêt à renoncer à sa dignité, à briser le serment que son père mourant lui avait imposé: celui de ne jamais poser le pied dans le Système Stellaire de Tout-Ciel...
 
 « Père... Quand tu m'as fait prêter ce serment, pourquoi as-tu laissé derrière toi une Pierre de Tout-Ciel... » Cette question hantait le cœur du Souverain Sanguin depuis bien longtemps.
 
@@ -94,9 +94,9 @@ Juste avant que le Souverain Sanguin ne pose le pied sur le fragment, Wang Lin s
 
 Même le fragment se mit à trembler.
 
-Tous les cultivateurs de ce fragment ressentirent immédiatement cette secousse au plus profond de leur âme, quel que soit leur niveau de cultivation. Même les cultivateurs Illusoire Yin et Corporel Yang n'y échappèrent pas...
+Tous les cultivateurs de ce fragment ressentirent immédiatement cette secousse au plus profond de leur âme, quel que soit leur niveau de culture. Même les cultivateurs Illusoire Yin et Corporel Yang n'y échappèrent pas...
 
-La disparité des niveaux de cultivation rendait toute résistance impossible ; c'était comme si la puissance même des cieux descendait sur eux.
+La disparité des niveaux de culture rendait toute résistance impossible; c'était comme si la puissance même des cieux descendait sur eux.
 
 Wang Lin réagit aussitôt, ses yeux brillant intensément alors qu'il fixait l'horizon. Il afficha un sourire glacial.
 
@@ -108,12 +108,12 @@ Ce sens divin était d'une puissance telle que le sort du deuxième niveau conte
 
 C'était comme si, à cet instant, le fragment avait été plongé dans un bassin de sang.
 
-La lumière rouge se condensa à mille pieds de Wang Lin. Presque instantanément, une silhouette se matérialisa, révélant un homme d'âge mûr aux cheveux et aux sourcils rouges, vêtu d'une robe écarlate !
+La lumière rouge se condensa à mille pieds de Wang Lin. Presque instantanément, une silhouette se matérialisa, révélant un homme d'âge mûr aux cheveux et aux sourcils rouges, vêtu d'une robe écarlate!
 
 Cet homme était d'une beauté telle que même Qian Feng [disciple de Zhuque Zi et aîné de Liu Mei] se sentait quelque peu inférieur en sa présence. Il dégageait une aura unique. Lorsqu'il apparut, il regarda calmement Wang Lin sans dire un mot.
 
-Cependant, Wang Lin pouvait distinctement percevoir un feu rouge capable de consumer le monde, dissimulé derrière ces yeux sereins. Le Souverain Sanguin ne perdit pas de temps en palabres : il leva sa main droite et pointa Wang Lin du doigt !
+Cependant, Wang Lin pouvait distinctement percevoir un feu rouge capable de consumer le monde, dissimulé derrière ces yeux sereins. Le Souverain Sanguin ne perdit pas de temps en palabres: il leva sa main droite et pointa Wang Lin du doigt!
 
 À l'instant où il pointa, des craquements déchirants retentirent dans le ciel, comme si celui-ci se fendait sous la force de son doigt. Cette puissance chargea droit vers le front de Wang Lin.
 
-Wang Lin fixa le Souverain Sanguin. Alors que l'attaque approchait, il déclara lentement : « Si tu me tues, même si Yao Xixue possède la Pilule d'Âme Sanguine, elle mourra certainement ! »
+Wang Lin fixa le Souverain Sanguin. Alors que l'attaque approchait, il déclara lentement: « Si tu me tues, même si Yao Xixue possède la Pilule d'Âme Sanguine, elle mourra certainement! »

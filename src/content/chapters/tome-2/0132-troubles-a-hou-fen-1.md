@@ -38,13 +38,13 @@ Il ne fit que trois pas avant que sa chair et sa peau ne soient totalement consu
 
 Les yeux de Wang Lin s'illuminèrent et il tendit la main. Au moment où Sun Youcai chutait, il attrapa son sac de voyage et recula prestement sans même jeter un regard derrière lui vers la lave.
 
-Un rugissement retentit derrière Wang Lin et la chaleur environnante intensifia soudainement. Tandis qu'il courait, le tunnel autour de lui vira au rouge. Si quelqu'un avait regardé depuis les hauteurs, il aurait vu tous les volcans, petits et grands, cracher une fumée noire ; en particulier l'un des plus imposants. Autour de celui-ci, une lumière rouge visible à l'œil nu se propageait. Tout ce que cette lueur touchait devenait incandescent.
+Un rugissement retentit derrière Wang Lin et la chaleur environnante intensifia soudainement. Tandis qu'il courait, le tunnel autour de lui vira au rouge. Si quelqu'un avait regardé depuis les hauteurs, il aurait vu tous les volcans, petits et grands, cracher une fumée noire; en particulier l'un des plus imposants. Autour de celui-ci, une lumière rouge visible à l'œil nu se propageait. Tout ce que cette lueur touchait devenait incandescent.
 
 Le visage de Wang Lin était sombre alors qu'il s'engouffrait dans le tunnel. Il s'arrêta brusquement en voyant un océan de flammes se rassembler devant lui. Le feu prit la forme d'une créature dotée d'yeux triangulaires et d'une corne unique. Elle fixa Wang Lin avec une intention meurtrière.
 
 Sans un mot, Wang Lin projeta son Sens Divin du Royaume Ji. Un éclair de foudre rouge jaillit de ses yeux pour pénétrer la bête de feu. Les flammes de la créature faiblirent un instant, mais elle se rétablit rapidement. Elle ouvrit alors la gueule et poussa un rugissement avant de charger Wang Lin.
 
-Le visage de Wang Lin s'assombrit davantage. Il fit volte-face, mais ses pupilles se rétractèrent soudainement : une autre bête de feu venait d'apparaître derrière lui.
+Le visage de Wang Lin s'assombrit davantage. Il fit volte-face, mais ses pupilles se rétractèrent soudainement: une autre bête de feu venait d'apparaître derrière lui.
 
 À cet instant, dans l'étroit tunnel, deux bêtes de feu bloquaient les deux issues. Serrant les dents, il lança le morceau de métal. L'objet commença à creuser un nouveau tunnel et Wang Lin s'y engouffra rapidement.
 
@@ -92,13 +92,13 @@ De fines lignes rouges reliaient la boule de feu à l'anneau flamboyant.
 
 Dès que la sphère ardente apparut, les seize géantes poussèrent des rugissements. L'une après l'autre, elles bondirent hors du lac de lave pour s'agenouiller sur le magma. Toutes les petites bêtes de feu firent de même.
 
-Alors qu'il observait la scène, Wang Lin ressentit soudain un choc cérébral : la perle défiant le ciel apparut de sa propre initiative pour la première fois. S'il ne l'arrêtait pas immédiatement, elle aurait brisé la sphère de terre.
+Alors qu'il observait la scène, Wang Lin ressentit soudain un choc cérébral: la perle défiant le ciel apparut de sa propre initiative pour la première fois. S'il ne l'arrêtait pas immédiatement, elle aurait brisé la sphère de terre.
 
 À cet instant précis, une bête de feu saisit la sphère sous elle et la lança vers la boule de feu. La sphère de terre s'immobilisa net en plein vol, et la boule de feu pénétra rapidement à l'intérieur. Le bruit d'aspiration résonna distinctement dans le silence de la grotte.
 
 Un cri glaçant jaillit de l'intérieur de la sphère. Le hurlement persista, mais s'affaiblit progressivement jusqu'au silence total. Bientôt, de fines volutes de brume sanglante s'échappèrent de la sphère, et la boule de feu en ressortit.
 
-La sphère de terre tomba dans le vide et s'enfonça dans la lave. Le cœur de Wang Lin sombra à son tour. Il comprenait désormais qu'il n'était pas le seul être vivant enfermé dans ces sphères. Même sans protection, la sphère ne l'aurait pas tué ; au pire, il aurait été plongé dans un sommeil profond.
+La sphère de terre tomba dans le vide et s'enfonça dans la lave. Le cœur de Wang Lin sombra à son tour. Il comprenait désormais qu'il n'était pas le seul être vivant enfermé dans ces sphères. Même sans protection, la sphère ne l'aurait pas tué; au pire, il aurait été plongé dans un sommeil profond.
 
 Par la suite, quatre autres sphères furent projetées vers la boule de feu. Des cris déchirants retentirent à chaque absorption. Les hurlements durèrent plus d'une demi-heure. Lorsque la cinquième sphère s'enfonça dans la lave, la sphère de Wang Lin fut brusquement expulsée.
 

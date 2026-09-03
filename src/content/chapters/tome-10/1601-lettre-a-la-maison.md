@@ -8,13 +8,13 @@ slug: lettre-a-la-maison
 ---
 En un éclair, une autre décennie s'écoula.
 
-Su Dao était mort de vieillesse il y a trois ans ; il s'était éteint durant l'hiver. Il avait lutté pour survivre à la saison froide afin de vivre encore quelques mois et pouvoir contempler les feuilles de saule l'année suivante.
+Su Dao était mort de vieillesse il y a trois ans; il s'était éteint durant l'hiver. Il avait lutté pour survivre à la saison froide afin de vivre encore quelques mois et pouvoir contempler les feuilles de saule l'année suivante.
 
 Cependant, bien que son esprit fût capable de comprendre le monde, son corps ne pouvait altérer la vie ou la mort. Durant l'hiver, les flocons tombaient, laissant le monde et la rivière figés sous une épaisse couche de glace. Il contemplait la chute de la neige comme si elle allait durer une éternité.
 
 Wang Lin poussa son fauteuil de bois et traversa la ville de Su. Âge d'approche de la quarantaine, il dégageait une aura de stabilité inébranlable. Vêtu d'une chemise blanche, il poussait silencieusement Su Dao.
 
-Cet hiver était particulièrement rude. La neige, emportée par le vent glacial, s'abattait sur leurs corps. Tôt le matin, la cloche du temple résonnait paresseusement au loin ; son son cristallin semblait pouvoir purifier le cœur de quiconque l'entendait.
+Cet hiver était particulièrement rude. La neige, emportée par le vent glacial, s'abattait sur leurs corps. Tôt le matin, la cloche du temple résonnait paresseusement au loin; son son cristallin semblait pouvoir purifier le cœur de quiconque l'entendait.
 
 « Lin Er, Maître est sur le point de partir... Maître n'a jamais eu d'enfants. Tes trois frères aînés ont hérité de beaucoup de mes vérités, mais toi seul possèdes des pensées semblables aux miennes... »
 
@@ -24,7 +24,7 @@ Su Dao l'avait accompagné pendant dix-sept ans. Au cours de ces années, Wang L
 
 La neige tombait avec intensité, obstruant leur vue. Tandis que la cloche résonnait, le manteau blanc recouvrait la ville de Su tout entière.
 
-Le craquement du fauteuil en bois était ténu. Seules les deux sillons laissés par les roues étaient visibles. C'était semblable à la vie : lorsqu'on regarde en arrière, on peut voir la longueur du chemin parcouru, mais celui-ci ne mène qu'au présent et l'on ne peut deviner où il s'achèvera.
+Le craquement du fauteuil en bois était ténu. Seules les deux sillons laissés par les roues étaient visibles. C'était semblable à la vie: lorsqu'on regarde en arrière, on peut voir la longueur du chemin parcouru, mais celui-ci ne mène qu'au présent et l'on ne peut deviner où il s'achèvera.
 
 La neige tomba et effaça les traces au sol. On ne pouvait même plus distinguer le point de départ.
 
@@ -40,7 +40,7 @@ On ne pouvait percevoir cet esprit du regard, mais en fermant les yeux, on pouva
 
 Wang Lin poussa le fauteuil sur le sentier menant au sommet. Su Dao ferma lentement les yeux. Il sentait vaguement qu'il ne pourrait plus tenir longtemps. Pourtant, son regard restait aussi vif qu'il l'avait été il y a dix-sept ans.
 
-L'œil est la fenêtre de l'âme. Le corps de Su Dao pouvait pourrir, mais ses pensées et la trajectoire de sa vie étaient déjà gravées ; elles ne disparaîtraient jamais.
+L'œil est la fenêtre de l'âme. Le corps de Su Dao pouvait pourrir, mais ses pensées et la trajectoire de sa vie étaient déjà gravées; elles ne disparaîtraient jamais.
 
 « Porte-moi... jusqu'à cet endroit. » La voix de Su Dao était encore plus ténue. Wang Lin prit alors Su Dao sur son dos et quitta le chemin escarpé. Il s'enfonça pas à pas dans la montagne sous une neige incessante.
 
@@ -48,7 +48,7 @@ Au bout du chemin se trouvait une tombe solitaire. Elle trônait dans la neige c
 
 Su Dao s'assit devant la sépulture et la fixa. Aucune larme ne coula, mais son regard devint empreint de douceur.
 
-« Je viens... Tu avais dit que tu voulais toujours me regarder ; je t'ai donc enterré ici pour que tu puisses toujours m'apercevoir depuis le bas de la montagne », murmura Su Dao en effleurant la pierre. Son expression était sereine, comme s'il oubliait la froideur de la tombe.
+« Je viens... Tu avais dit que tu voulais toujours me regarder; je t'ai donc enterré ici pour que tu puisses toujours m'apercevoir depuis le bas de la montagne », murmura Su Dao en effleurant la pierre. Son expression était sereine, comme s'il oubliait la froideur de la tombe.
 
 Ou peut-être pourrait-on dire que la froideur de la sépulture s'était muée en une chaleur dans son cœur.
 
@@ -60,7 +60,7 @@ Wang Lin resta là un long moment. Il se retourna et contempla le bas de la mont
 
 Un profond sentiment de mélancolie envahit son cœur. Il était troublé, s'interrogeant encore sur la nature même de cette existence.
 
-Était-ce sa vie antérieure, une réincarnation, ou un simple rêve ? Rien ne permettait d'expliquer les choses. Le vrai et le faux semblaient graviter dans un cycle perpétuel, rendant impossible toute distinction entre le commencement et la fin.
+Était-ce sa vie antérieure, une réincarnation, ou un simple rêve? Rien ne permettait d'expliquer les choses. Le vrai et le faux semblaient graviter dans un cycle perpétuel, rendant impossible toute distinction entre le commencement et la fin.
 
 Une demi-lune plus tard, une autre tombe apparut aux côtés de la première sur la montagne. Elle n'était plus solitaire.
 
@@ -90,7 +90,7 @@ Son silence ne fit qu'encourager ses détracteurs à devenir plus audacieux. Ils
 
 Wang Lin continuait d'ignorer tout cela. Il observait les levers et couchers de soleil, le passage du printemps et l'arrivée de l'automne. Il contemplait le monde et tentait d'appréhender le karma, cherchant les signes de la vie et de la mort, de la vérité et de l'illusion.
 
-Bien qu'en proie à ses propres interrogations, il continuait de vivre pleinement. Il ne souhaitait pas prêter attention à ces choses insignifiantes et ne ressentait aucun besoin de prouver quoi que ce soit. Tout cela n'avait aucune valeur à ses yeux ; cela n'était que le querellement d'enfants.
+Bien qu'en proie à ses propres interrogations, il continuait de vivre pleinement. Il ne souhaitait pas prêter attention à ces choses insignifiantes et ne ressentait aucun besoin de prouver quoi que ce soit. Tout cela n'avait aucune valeur à ses yeux; cela n'était que le querellement d'enfants.
 
 Pourtant, plus il restait silencieux, plus les voix s'élevaient. Pire encore, parmi les trois autres disciples de Su Dao — outre Su San, déjà âgé et mourant —, les deux autres s'étaient également dressés contre Wang Lin.
 
@@ -110,7 +110,7 @@ La lettre lui apprenait que son père allait bien.
 
 Après l'avoir relue maintes fois, une pointe de colère apparut dans les yeux calmes de Wang Lin.
 
-Il plia la lettre et la rangea dans ses vêtements. Levant les yeux vers la neige qui tombait, il murmura lentement : « C'est un peu trop. »
+Il plia la lettre et la rangea dans ses vêtements. Levant les yeux vers la neige qui tombait, il murmura lentement: « C'est un peu trop. »
 
 Il n'avait aucune intention de prouver quoi que ce soit. Peu importaient les voix s'élevant à Zhao, il s'en moquait. Le titre de grand érudit n'avait aucune valeur pour lui. Il était comme un vieil homme souhaitant simplement contempler le monde avec lenteur.
 
@@ -122,4 +122,4 @@ Derrière lui, Big Fortune, bien qu'ayant atteint un âge avancé, était resté
 
 En entendant les paroles de Wang Lin, une lueur d'attente brilla dans son expression fière. Il s'empressa d'organiser tout cela.
 
-« Hmph ! Mon jeune maître est toujours aussi hautain. Dix ans de cours... Je veux voir la mine qu'ils auront tous quand ils échoueront ! »
+« Hmph! Mon jeune maître est toujours aussi hautain. Dix ans de cours... Je veux voir la mine qu'ils auront tous quand ils échoueront! »

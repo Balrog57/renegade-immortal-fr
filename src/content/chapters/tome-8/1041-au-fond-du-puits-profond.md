@@ -10,9 +10,9 @@ slug: au-fond-du-puits-profond
 
 Après avoir longuement réfléchi, Wang Lin réprima les sentiments complexes qu'il éprouvait en voyant Liu Mei. Il détourna son regard du ciel et sentit la puissante énergie originelle parcourir tout son corps.
 
-« Au sommet de l'Éclaireur du Nirvana ! » Les yeux de Wang Lin brillèrent intensément. Il était inutile de songer à autre chose. Il se trouvait toujours dans la Grotte de l'Empereur Céleste et devait d'abord résoudre le problème immédiat.
+« Au sommet de l'Éclaireur du Nirvana! » Les yeux de Wang Lin brillèrent intensément. Il était inutile de songer à autre chose. Il se trouvait toujours dans la Grotte de l'Empereur Céleste et devait d'abord résoudre le problème immédiat.
 
-« Tout dans ce monde contient une loi. Le ciel, la terre, les cinq éléments, tout possède sa propre loi. Si l'on veut toutes les comprendre, il faudrait bien trop de temps. La puissance d'un être est limitée ; il est donc impossible de tout saisir. » Les yeux de Wang Lin s'illuminèrent tandis qu'il méditait.
+« Tout dans ce monde contient une loi. Le ciel, la terre, les cinq éléments, tout possède sa propre loi. Si l'on veut toutes les comprendre, il faudrait bien trop de temps. La puissance d'un être est limitée; il est donc impossible de tout saisir. » Les yeux de Wang Lin s'illuminèrent tandis qu'il méditait.
 
 « Ainsi, le Purificateur du Nirvana, et même ces anciens monstres Briseurs du Nirvana, possèdent souvent une loi dans laquelle ils excellent. Par exemple, Maître Flammespark excelle dans la loi du feu… »
 
@@ -22,7 +22,7 @@ Une vague silhouette se dessina à l'intérieur de cette sphère d'éclairs. Ell
 
 Wang Lin fixa la sphère de tonnerre jusqu'à ce que sa perception en change vaguement. Cependant, elle ne se transforma pas en lignes comme tout le reste. Bien qu'elle devînt plus transparente, aucune loi n'apparut en son sein.
 
-« Je n'ai obtenu que la moitié du dragon de tonnerre ancien ; l'autre moitié a disparu dans l'Abîme des Marées. Par conséquent, le pouvoir du tonnerre est incomplet et même la loi qu'il contient est imparfaite. »
+« Je n'ai obtenu que la moitié du dragon de tonnerre ancien; l'autre moitié a disparu dans l'Abîme des Marées. Par conséquent, le pouvoir du tonnerre est incomplet et même la loi qu'il contient est imparfaite. »
 
 Après un moment de réflexion, Wang Lin pressa l'air et la sphère de tonnerre se dispersa en d'innombrables éclairs. À cet instant, des flammes jaillirent de son œil gauche, formant une mer de feu.
 
@@ -30,7 +30,7 @@ Un fantôme d'Oiseau Vermillon apparut au sein de cette mer de flammes.
 
 Wang Lin observa attentivement, et l'Oiseau Vermillon devint transparent. La mer de flammes infinie se transforma en lignes rouges que Wang Lin pouvait désormais voir clairement.
 
-« Selon ma compréhension de la cultivation, pour atteindre le stade du Purificateur du Nirvana, je dois maîtriser complètement l'une de ces lois. Je pourrai alors utiliser cette loi pour absorber l'énergie originelle du monde et faire en sorte que l'énergie originelle dans mon corps ne s'épuise jamais.
+« Selon ma compréhension de la culture, pour atteindre le stade du Purificateur du Nirvana, je dois maîtriser complètement l'une de ces lois. Je pourrai alors utiliser cette loi pour absorber l'énergie originelle du monde et faire en sorte que l'énergie originelle dans mon corps ne s'épuise jamais.
 
 La force des cultivateurs du stade Purificateur du Nirvana est étroitement liée à la loi qu'ils choisissent. »
 
@@ -44,7 +44,7 @@ Wang Lin avança tout en réfléchissant et pénétra dans le puits profond. Il 
 
 La femme en argent montait toujours la garde sur le côté. Lorsqu'elle vit l'avatar de Wang Lin, son expression ne changea pas. Wang Lin l'ignora et fusionna avec son corps originel.
 
-Un instant plus tard, Wang Lin ouvrit lentement les yeux ; l'aura meurtrière se retira alors qu'il retrouvait son état normal. Ses yeux brillèrent et il se redressa.
+Un instant plus tard, Wang Lin ouvrit lentement les yeux; l'aura meurtrière se retira alors qu'il retrouvait son état normal. Ses yeux brillèrent et il se redressa.
 
 « L'Oiseau Vermillon que j'ai vu lorsque j'ai emprunté le pouvoir de la perle défiant le ciel était exactement le même que mon tatouage. Je crois qu'il existe un lien… » Wang Lin sortit de la grotte fracturée. La femme en argent le suivit silencieusement, son regard posé sur le dos de Wang Lin, empreint d'une trace de confusion.
 
@@ -52,7 +52,7 @@ Un instant plus tard, Wang Lin ouvrit lentement les yeux ; l'aura meurtrière se
 
 Un rayon de lumière fantomatique jaillit du puits profond. Il progressait en ligne droite vers Wang Lin et, au moment où celui-ci recula, il arriva tout près de lui.
 
-L'animal avait les plumes noires légèrement ébouriffées, mais ses yeux brillaient d'intelligence. C'était le Blaireau Marqué d'Étoiles !
+L'animal avait les plumes noires légèrement ébouriffées, mais ses yeux brillaient d'intelligence. C'était le Blaireau Marqué d'Étoiles!
 
 Le blaireau paraissait très adorable. En s'approchant, il agrippa les vêtements de Wang Lin avec sa bouche et se balança comme sur une balançoire, tout en poussant des cris aigus.
 
@@ -82,7 +82,7 @@ Cependant, au moment où il allait s'éloigner, le Blaireau Marqué d'Étoiles p
 
 Les yeux de Wang Lin s'illuminèrent et il scruta le fond du puits. Après une courte réflexion, il descendit à son tour, suivi par le blaireau.
 
-« Les Blaireaux Marqués d'Étoiles adorent l'aura des dieux anciens. Se pourrait-il que quelque chose appartenant à un dieu ancien soit enfoui sous le Bassin de l'Enterrement Céleste ? » Wang Lin pensa immédiatement au tendon rouge qui avait piégé l'Ancêtre Saint du Clan du Tatouage.
+« Les Blaireaux Marqués d'Étoiles adorent l'aura des dieux anciens. Se pourrait-il que quelque chose appartenant à un dieu ancien soit enfoui sous le Bassin de l'Enterrement Céleste? » Wang Lin pensa immédiatement au tendon rouge qui avait piégé l'Ancêtre Saint du Clan du Tatouage.
 
 Ce puits semblait sans fond. Peu importe la profondeur atteinte par Wang Lin, il ne semblait jamais se rapprocher de l'issue. L'énergie glaciale émanant des profondeurs devenait de plus en plus intense, jusqu'à ce qu'une couche de givre recouvre les parois du puits.
 
@@ -100,20 +100,20 @@ Wang Lin fixa le fond et resta immobile. Après un long moment, son énergie ori
 
 Grâce à la lumière de cette mer de flammes, même l'obscurité que son Sens Divin ne pouvait pénétrer se dispersa quelque peu. Wang Lin continua sa descente. Ce regard avait semé un doute profond dans son cœur et il commença à émettre quelques spéculations.
 
-À mesure qu'il descendait, la glace se faisait plus dense. Après sept minutes de descente, Wang Lin atteignit le fond du puits. À ce point, il pouvait clairement voir tout ce qui l'entourait : c'était un monde de glace. De gigantesques blocs de glace encadraient la zone, rendant l'endroit extrêmement périlleux.
+À mesure qu'il descendait, la glace se faisait plus dense. Après sept minutes de descente, Wang Lin atteignit le fond du puits. À ce point, il pouvait clairement voir tout ce qui l'entourait: c'était un monde de glace. De gigantesques blocs de glace encadraient la zone, rendant l'endroit extrêmement périlleux.
 
 Chaque bloc de glace renfermait un cadavre d'un réalisme saisissant. Leurs corps avaient été figés au moment précis de leur mort. Ce puits profond et silencieux, inaccessible à quiconque, fit naître un frisson dans le cœur de Wang Lin.
 
 Les corps prisonniers de la glace ne suffirent pas à le choquer. Ce qui le stupéfia véritablement, c'était l'existence située encore plus bas. Elle était scellée par toute la glace environnante, ne laissant apparaître que quelques interstices.
 
-C'était là la source de ce regard !
+C'était là la source de ce regard!
 
 À travers les fissures du glacier, Wang Lin vit clairement ce qui se trouvait en dessous. À cet instant, ses pupilles se rétractèrent brusquement.
 
-Sous les failles des glaciers, au plus profond du puits, se dressait quelque chose de milliers de pieds de haut !
+Sous les failles des glaciers, au plus profond du puits, se dressait quelque chose de milliers de pieds de haut!
 
-Cette chose gigantesque était un crâne ! Le crâne d'un dieu ancien ! Bien que gelé, son expression était limpide. Les yeux, qui n'étaient pas clos, étaient empreints de regret et de colère.
+Cette chose gigantesque était un crâne! Le crâne d'un dieu ancien! Bien que gelé, son expression était limpide. Les yeux, qui n'étaient pas clos, étaient empreints de regret et de colère.
 
 Le regard que Wang Lin avait ressenti plus tôt émanait de ce crâne.
 
-Bien que des millénaires aient passé et que le dieu ancien soit mort, ne laissant aucune trace de son pouvoir divin, son regard ultime était si vif qu'il aurait terrassé quiconque l'aurait croisé ! Il n'en restait désormais que les traces de huit étoiles brisées.
+Bien que des millénaires aient passé et que le dieu ancien soit mort, ne laissant aucune trace de son pouvoir divin, son regard ultime était si vif qu'il aurait terrassé quiconque l'aurait croisé! Il n'en restait désormais que les traces de huit étoiles brisées.

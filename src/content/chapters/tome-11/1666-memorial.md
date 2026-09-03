@@ -20,15 +20,15 @@ Tandis que Wang Lin s'inclinait, il ne leva pas les yeux, maintenant sa posture 
 
 Des âmes illusoires émergèrent du système stellaire. Les premières à apparaître furent les anciens cultivateurs qui vivaient avant même l'existence des Royaumes Intérieur et Extérieur.
 
-Ils appartenaient à la première génération de vie sous le Royaume Céleste Antique. Ils avaient reçu les enseignements de ce royaume ; ils étaient la première vague de vie consciente au sein de la grotte.
+Ils appartenaient à la première génération de vie sous le Royaume Céleste Antique. Ils avaient reçu les enseignements de ce royaume; ils étaient la première vague de vie consciente au sein de la grotte.
 
 Leurs vêtements leur donnaient des airs de sauvages, mais l'aura qui émanait de leurs corps témoignait d'une profonde compréhension du monde. Lorsque la Formation de Scellement du Royaume apparut, ils furent saisis par la confusion et la peur. Tous tentèrent de s'échapper de la formation, mais tous périrent.
 
 À cet instant, après une durée indéterminée, leurs âmes furent convoquées par Wang Lin. Elles apparurent dans les quatre grands systèmes stellaires et contemplèrent silencieusement Wang Lin, qui se trouvait dans la Mer des Nuages.
 
-Après eux vinrent les cultivateurs qui existaient avant la destruction des quatre Royaumes Célestes — les êtres célestes de ces quatre royaumes !
+Après eux vinrent les cultivateurs qui existaient avant la destruction des quatre Royaumes Célestes — les êtres célestes de ces quatre royaumes!
 
-Bien qu'ils ne fussent pas de véritables êtres célestes du Continent Astral Immortel, ils étaient, aux yeux de Wang Lin, de véritables divinités ! D'innombrables êtres s'étaient éteints en tentant de quitter la Formation de Scellement du Royaume.
+Bien qu'ils ne fussent pas de véritables êtres célestes du Continent Astral Immortel, ils étaient, aux yeux de Wang Lin, de véritables divinités! D'innombrables êtres s'étaient éteints en tentant de quitter la Formation de Scellement du Royaume.
 
 Lors des multiples invasions du Royaume Extérieur, beaucoup tombèrent. Bien que Wang Lin gardât la tête inclinée, il pouvait ressentir ces âmes funèbres.
 
@@ -36,45 +36,45 @@ Il se souvenait distinctement de la première fois où il avait vu la statue du 
 
 Aujourd'hui, pour la première fois depuis leur trépas, ces âmes célestes étaient rappelées du vide.
 
-Après les êtres célestes vinrent les cultivateurs de cette ère, ceux qui avaient péri durant cette guerre de cent ans. Wang Lin en connaissait beaucoup, mais il y en avait encore plus qu'il ne pouvait nommer. Pourtant, ces âmes infinies qui apparaissaient s'étaient sacrifiées pour le Royaume Intérieur. Leur mémoire devait être gravée dans le cœur des descendants à venir !
+Après les êtres célestes vinrent les cultivateurs de cette ère, ceux qui avaient péri durant cette guerre de cent ans. Wang Lin en connaissait beaucoup, mais il y en avait encore plus qu'il ne pouvait nommer. Pourtant, ces âmes infinies qui apparaissaient s'étaient sacrifiées pour le Royaume Intérieur. Leur mémoire devait être gravée dans le cœur des descendants à venir!
 
-À travers les âges, trop de cultivateurs et d'êtres vivants avaient péri dans les guerres entre les Royaumes Intérieur et Extérieur. Personne n'avait jamais érigé de mémorial pour ces morts, ni aux temps anciens, ni à l'époque céleste. Ce n'est que maintenant que Wang Lin rendait hommage aux âmes tombées au combat !
+À travers les âges, trop de cultivateurs et d'êtres vivants avaient péri dans les guerres entre les Royaumes Intérieur et Extérieur. Personne n'avait jamais érigé de mémorial pour ces morts, ni aux temps anciens, ni à l'époque céleste. Ce n'est que maintenant que Wang Lin rendait hommage aux âmes tombées au combat!
 
-« Êtes-vous tous disposés à devenir l'esprit immortel de cette formation ? » Wang Lin leva la tête et s'adressa aux âmes d'une voix puissante.
+« Êtes-vous tous disposés à devenir l'esprit immortel de cette formation? » Wang Lin leva la tête et s'adressa aux âmes d'une voix puissante.
 
 À ces mots, les âmes infinies du Royaume Intérieur se distordirent pour se transformer en une aura invisible qui vola vers Wang Lin.
 
 Le premier à l'atteindre fut un ancien cultivateur. Son expression était évanescente et son âme lugubre. Il apparut à mille pieds de Wang Lin et le regarda avec profondeur. Wang Lin maintint sa posture de révérence. L'âme joignit les mains en signe de respect devant lui.
 
-Après avoir salué, il se précipita dans la roue géante, acceptant volontairement de devenir l'un des esprits de la formation !
+Après avoir salué, il se précipita dans la roue géante, acceptant volontairement de devenir l'un des esprits de la formation!
 
 Derrière lui, toutes les âmes mortes de l'ère antique suivirent le mouvement. Elles joignirent toutes les mains vers Wang Lin à mille pieds de distance avant d'entrer sans hésitation dans la roue de la formation.
 
-Bien qu'elles portaient encore le ressentiment de leur mort, l'instant où elles saluèrent, tout regret s'évanouit ; elles s'intégrèrent volontairement à la formation. Elles étaient mortes pour le Royaume Intérieur et, même par-delà la mort, offraient leurs âmes à sa cause.
+Bien qu'elles portaient encore le ressentiment de leur mort, l'instant où elles saluèrent, tout regret s'évanouit; elles s'intégrèrent volontairement à la formation. Elles étaient mortes pour le Royaume Intérieur et, même par-delà la mort, offraient leurs âmes à sa cause.
 
-Héros en vie, âmes héroïques dans la mort !
+Héros en vie, âmes héroïques dans la mort!
 
-Une, deux, dix mille, vingt mille, cent mille, des centaines de milliers ! Tous les anciens cultivateurs disparus apparurent et saluèrent Wang Lin. Ils venaient seuls, en petits groupes, par centaines ou par dizaines de milliers. Tous fusionnèrent avec la formation après leur ultime salut !
+Une, deux, dix mille, vingt mille, cent mille, des centaines de milliers! Tous les anciens cultivateurs disparus apparurent et saluèrent Wang Lin. Ils venaient seuls, en petits groupes, par centaines ou par dizaines de milliers. Tous fusionnèrent avec la formation après leur ultime salut!
 
-Derrière eux vinrent les êtres célestes des quatre Royaumes Célestes. Ils provenaient des Royaumes du Vent, de la Pluie, du Tonnerre et de l'Éclair, mais le sang qui coulait en eux était celui du Royaume Intérieur. Bien qu'ils fussent morts depuis des éons, leurs âmes appartenaient toujours au Royaume Intérieur !
+Derrière eux vinrent les êtres célestes des quatre Royaumes Célestes. Ils provenaient des Royaumes du Vent, de la Pluie, du Tonnerre et de l'Éclair, mais le sang qui coulait en eux était celui du Royaume Intérieur. Bien qu'ils fussent morts depuis des éons, leurs âmes appartenaient toujours au Royaume Intérieur!
 
-Ils étaient nés peuple du Royaume Intérieur et mouraient âmes du Royaume Intérieur !
+Ils étaient nés peuple du Royaume Intérieur et mouraient âmes du Royaume Intérieur!
 
 Ils apparurent progressivement devant Wang Lin. À l'instar des martyrs qui les avaient précédés, ils saluèrent le cultivateur avant de fusionner avec la formation.
 
 Cette scène provoqua une onde de choc dans l'esprit de tous ceux qui en furent témoins. Wang Lin resta figé dans sa révérence.
 
-Après ces âmes célestes vinrent les compagnons cultivateurs tombés durant cette guerre de cent ans. De nombreux visages, familiers ou inconnus, apparurent. Tous s'inclinèrent devant Wang Lin avant de se ruer dans la formation sans l'ombre d'une hésitation !
+Après ces âmes célestes vinrent les compagnons cultivateurs tombés durant cette guerre de cent ans. De nombreux visages, familiers ou inconnus, apparurent. Tous s'inclinèrent devant Wang Lin avant de se ruer dans la formation sans l'ombre d'une hésitation!
 
-Certains avaient été les ennemis de Wang Lin, d'autres ses proches, mais en cet instant, ils utilisaient leurs dernières forces pour protéger le Royaume Intérieur !
+Certains avaient été les ennemis de Wang Lin, d'autres ses proches, mais en cet instant, ils utilisaient leurs dernières forces pour protéger le Royaume Intérieur!
 
 Une aura de tristesse enveloppa le système stellaire. Les cultivateurs du Royaume Extérieur qui s'étaient précipités sur les lieux furent terrifiés par ce spectacle.
 
 À Allheaven, sur les dix-neuf planètes restantes, tous les cultivateurs se levèrent et s'inclinèrent vers les étoiles sans qu'aucun ne les dirige.
 
-Maître South Cloud, Situ Nan, Maître Hong Shan, Qing Lin et les autres se levèrent sans exception, contemplant le ciel avec tristesse et respect !
+Maître South Cloud, Situ Nan, Maître Hong Shan, Qing Lin et les autres se levèrent sans exception, contemplant le ciel avec tristesse et respect!
 
-Non seulement eux, mais dans les trois autres systèmes stellaires, les rares groupes de cultivateurs du Royaume Intérieur encore en vie levèrent également les yeux. Les souvenirs de la guerre défilèrent devant eux tandis qu'ils s'inclinaient vers les étoiles !
+Non seulement eux, mais dans les trois autres systèmes stellaires, les rares groupes de cultivateurs du Royaume Intérieur encore en vie levèrent également les yeux. Les souvenirs de la guerre défilèrent devant eux tandis qu'ils s'inclinaient vers les étoiles!
 
 Il y avait aussi les trois femmes réunies dans la Mer des Nuages, encore un peu éloignées de Wang Lin. Leurs yeux étaient noyés de larmes alors qu'elles saluaient les ombres qui passaient.
 
@@ -88,9 +88,9 @@ La douleur envahissait le Vieux Fantôme Zhan. Bien qu'il fût considéré comme
 
 Il n'était pas dépourvu d'émotions. Tandis que Wang Lin appelait ces âmes, son cœur ressentait une douleur lancinante. Il était stupéfait, les yeux emplis de confusion. Après un long moment, il s'inclina devant les âmes.
 
-Pourtant, au moment même où il s'inclinait, son expression se crispa de douleur. C'était comme si une puissance jaillissait de son corps pour l'empêcher de s'incliner devant ces fourmis du royaume inférieur !
+Pourtant, au moment même où il s'inclinait, son expression se crispa de douleur. C'était comme si une puissance jaillissait de son corps pour l'empêcher de s'incliner devant ces fourmis du royaume inférieur!
 
-« Je peux vous aider, mais vous ne m'empêcherez pas de saluer ces âmes qui me plongent dans la culpabilité ! » Le Vieux Fantôme Zhan serra les dents, prononçant chaque mot avec force. Il ignora la puissance qui tentait de le contraindre et acheva sa révérence.
+« Je peux vous aider, mais vous ne m'empêcherez pas de saluer ces âmes qui me plongent dans la culpabilité! » Le Vieux Fantôme Zhan serra les dents, prononçant chaque mot avec force. Il ignora la puissance qui tentait de le contraindre et acheva sa révérence.
 
 Simultanément, dans la Rivière des Invocations, sur un météore que même Wang Lin avait remarqué grâce à son Sens Divin, l'Omniscient ouvrit lentement les yeux.
 
@@ -104,4 +104,4 @@ Il était assis, son corps flou et indistinct, impossible à saisir clairement.
 
 À cet instant, il ouvrit les yeux, laissant poindre un éclat doré dans son regard, avant que le mépris ne s'y installe.
 
-« À quoi bon s'incliner devant ces âmes pitoyables ? Une bande d'oiseaux en cage. Je ne parviens pas à trouver l'endroit mentionné par l'Oncle-Maître Ma, alors je ne m'en donnerai pas la peine. Si je calcule bien, l'Oncle-Maître Ma devrait bientôt s'éveiller. Cette grotte de la Secte des Sept Dao devient de plus en plus intéressante... »
+« À quoi bon s'incliner devant ces âmes pitoyables? Une bande d'oiseaux en cage. Je ne parviens pas à trouver l'endroit mentionné par l'Oncle-Maître Ma, alors je ne m'en donnerai pas la peine. Si je calcule bien, l'Oncle-Maître Ma devrait bientôt s'éveiller. Cette grotte de la Secte des Sept Dao devient de plus en plus intéressante... »

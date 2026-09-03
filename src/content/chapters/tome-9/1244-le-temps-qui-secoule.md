@@ -8,35 +8,35 @@ slug: le-temps-qui-secoule
 ---
 Le temps passa lentement, et trois jours s'envolèrent en un clin d'œil. Wang Lin était assis sur la gigantesque porte de pierre, plongé dans cet état mystérieux semblable à une quête du Dao, alors qu'il poursuivait la neuvième loi.
 
-Les bêtes moustiques se dispersèrent et encerclèrent les environs sans pour autant s'éloigner ; elles restaient méfiantes envers ce qui les entourait. Le roi des moustiques était simplement allongé aux côtés de Wang Lin sur la porte de pierre, son regard froid balayant lentement la zone. Chaque fois que son regard se posait sur un moustique, celui-ci affichait une attitude d'un respect extrême.
+Les bêtes moustiques se dispersèrent et encerclèrent les environs sans pour autant s'éloigner; elles restaient méfiantes envers ce qui les entourait. Le roi des moustiques était simplement allongé aux côtés de Wang Lin sur la porte de pierre, son regard froid balayant lentement la zone. Chaque fois que son regard se posait sur un moustique, celui-ci affichait une attitude d'un respect extrême.
 
 Seul le regard du roi des moustiques changeait lorsqu'il se posait sur Wang Lin. Son indifférence se muait en une sorte d'attachement, semblable à l'affection qu'un enfant porte à ses parents.
 
 En vérité, dans le cœur du roi des moustiques, Wang Lin était son parent.
 
-Quatre bêtes moustiques d'un bleu profond volaient aux côtés du roi des moustiques, tels des gardes. Une aura correspondant au sommet de la cultivation des Nirvana Cleanser se dégageait d'elles.
+Quatre bêtes moustiques d'un bleu profond volaient aux côtés du roi des moustiques, tels des gardes. Une aura correspondant au sommet de la culture des Nirvana Cleanser se dégageait d'elles.
 
 Avec le roi des moustiques menant une troupe de 5 000 bêtes, une force puissante était en train de se former. Les bêtes moustiques avaient progressivement accepté l'existence de Wang Lin, mais ce n'était qu'une acceptation superficielle. Dès que le roi des moustiques disparaîtrait, tout s'effondrerait instantanément.
 
 Tandis que les rugissements résonnaient, Wang Lin restait assis là, ressentant les lois inscrites sur la porte de pierre. Il y avait huit lois sur cette porte, mais les marques laissées par le temps s'étaient transformées en une neuvième loi.
 
-Comparée aux huit premières, la neuvième était la plus puissante ! Wang Lin n'avait pas le temps de toutes les comprendre et ne pouvait que renoncer aux huit premières pour choisir la neuvième.
+Comparée aux huit premières, la neuvième était la plus puissante! Wang Lin n'avait pas le temps de toutes les comprendre et ne pouvait que renoncer aux huit premières pour choisir la neuvième.
 
 La solitude qui régnait au sein de cette ancienne porte de pierre, conjuguée au vent étrange, entrait en résonance avec le cœur de Wang Lin. Assis au sommet de l'édifice, il semblait devenir la porte elle-même. Il regardait le monde vieillir, voyait les âges défiler, observait le ciel se transformer au fil des dizaines de milliers d'années et voyait les montagnes naître et mourir.
 
 Son cœur semblait lui aussi devenir antique.
 
-Ses presque 2 000 ans de cultivation étaient véritablement insignifiants comparés à cette porte de pierre. Cependant, alors que son esprit fusionnait avec elle, il percevait lentement dans son cœur le sentiment du passage du temps.
+Ses presque 2 000 ans de culture étaient véritablement insignifiants comparés à cette porte de pierre. Cependant, alors que son esprit fusionnait avec elle, il percevait lentement dans son cœur le sentiment du passage du temps.
 
-Tout comme lorsqu'un peintre contemple les montagnes, les mers et la vie, une structure vague apparaît d'abord dans son esprit. C'était semblable à cette existence floue qui habitait le cœur de Wang Lin. Bien qu'assis sur la porte de pierre, il ne regardait pas vers le bas ; au contraire, il ouvrit les yeux et fixa l'horizon.
+Tout comme lorsqu'un peintre contemple les montagnes, les mers et la vie, une structure vague apparaît d'abord dans son esprit. C'était semblable à cette existence floue qui habitait le cœur de Wang Lin. Bien qu'assis sur la porte de pierre, il ne regardait pas vers le bas; au contraire, il ouvrit les yeux et fixa l'horizon.
 
 Son regard était aussi calme que la surface d'un puits. Malgré cette sérénité, une trace de nostalgie y résidait, se transformant inconsciemment en une ondulation qui ramenait à la surface les souvenirs enfouis de Wang Lin.
 
-À cet instant, il vit une planète de cultivation. Là-bas, un père marchait avec son enfant à travers les montagnes et les rivières. Ils parlaient et riaient en désignant divers sommets et cours d'eau.
+À cet instant, il vit une planète de culture. Là-bas, un père marchait avec son enfant à travers les montagnes et les rivières. Ils parlaient et riaient en désignant divers sommets et cours d'eau.
 
 Le père prit l'enfant par la main et ils continuèrent à conquérir montagne après montagne, à traverser rivières et lacs. Il prit également l'enfant et rugit au bord de l'océan, comme si leur cri provoquait les vagues géantes de l'abîme.
 
-Tous ces souvenirs empreints du passage du temps défilèrent devant les yeux de Wang Lin. C'étaient des souvenirs mêlés de douleur et de bonheur. Ils faisaient partie de sa vie ; ils étaient des fragments indispensables de son être.
+Tous ces souvenirs empreints du passage du temps défilèrent devant les yeux de Wang Lin. C'étaient des souvenirs mêlés de douleur et de bonheur. Ils faisaient partie de sa vie; ils étaient des fragments indispensables de son être.
 
 À ce moment précis, alors qu'il était assis sur la porte de pierre, Wang Lin contemplait le monde tout en se remémorant ces instants. Il intégra lentement tout cela en lui.
 
@@ -58,7 +58,7 @@ Le fracas des vagues devint l'unique son au monde. Plus loin encore, le soleil c
 
 « La nuit déchirée née du sceau, le temps s'écoule comme les souvenirs... Ce n'est pas que l'éternité n'existe pas, mais c'est que ce moment d'éternité vous enivrera. Il fera éclater votre cœur. Il vous rendra réticent à l'éveil, afin que vous puissiez continuer à le poursuivre avec un sourire pour toujours, jusqu'à ce que vous vous évanouissiez dans l'éternité d'un rêve.
 
-« Ping Er, le second sort de ton père s'appellera "Le Temps qui S'écoule". Est-ce que cela te plaît ? »
+« Ping Er, le second sort de ton père s'appellera "Le Temps qui S'écoule". Est-ce que cela te plaît? »
 
 Le Temps qui S'écoule.
 
@@ -92,26 +92,26 @@ Ils n'osaient pas déployer leur Sens Divin ici, mais cela n'était pas nécessa
 
 Les bêtes moustiques, qui semblaient avoir disparu durant les dix jours de leur présence, apparurent soudainement sous leurs yeux.
 
-Pourtant, ce qui était étrange, c'est que par le passé, dès qu'une bête moustique apparaissait, elle rugissait et se lançait à leur poursuite. Mais ces bêtes ne les regardaient même pas ; elles continuaient de tournoyer autour de la porte de pierre.
+Pourtant, ce qui était étrange, c'est que par le passé, dès qu'une bête moustique apparaissait, elle rugissait et se lançait à leur poursuite. Mais ces bêtes ne les regardaient même pas; elles continuaient de tournoyer autour de la porte de pierre.
 
 Cette scène insolite les empêcha de battre en retraite. Tous étaient sur le qui-vive, prêts à s'enfuir au moindre signe de danger.
 
 « Ces moustiques encerclent... » haleta l'un d'eux en apercevant que la porte de pierre était entourée par le nuage rouge.
 
-Un jeune homme vêtu de noir murmura : « Les anciens de notre secte qui sont arrivés jusque-là ont dû voir cette porte. À en juger par son apparence, elle devait être un autel important du Royaume Céleste avant son effondrement. »
+Un jeune homme vêtu de noir murmura: « Les anciens de notre secte qui sont arrivés jusque-là ont dû voir cette porte. À en juger par son apparence, elle devait être un autel important du Royaume Céleste avant son effondrement. »
 
-« Il y a quelqu'un sur la porte ! » Li Yuanlei, qui possédait le niveau de cultivation le plus élevé, distinguait vaguement une silhouette assise sur la pierre à travers les milliers de moustiques.
+« Il y a quelqu'un sur la porte! » Li Yuanlei, qui possédait le niveau de culture le plus élevé, distinguait vaguement une silhouette assise sur la pierre à travers les milliers de moustiques.
 
-Ses paroles firent trembler l'esprit de l'assemblée, et tous se tournèrent vers la scène avec incrédulité. Ils se concentrèrent et, un par un, ils aperçurent faiblement Wang Lin, assis sur la porte de pierre !
+Ses paroles firent trembler l'esprit de l'assemblée, et tous se tournèrent vers la scène avec incrédulité. Ils se concentrèrent et, un par un, ils aperçurent faiblement Wang Lin, assis sur la porte de pierre!
 
-« Il y a vraiment quelqu'un là-haut ! »
+« Il y a vraiment quelqu'un là-haut! »
 
-« Qui peut bien cultiver avec autant de calme alors qu'il est entouré de bêtes moustiques ? »
+« Qui peut bien cultiver avec autant de calme alors qu'il est entouré de bêtes moustiques? »
 
-« Le plus étrange, c'est que les bêtes ne l'attaquent pas. Elles semblent plutôt le protéger ! »
+« Le plus étrange, c'est que les bêtes ne l'attaquent pas. Elles semblent plutôt le protéger! »
 
-« C'est impossible. On ne peut pas domestiquer des bêtes moustiques. Chaque fois qu'elles rencontrent des cultivateurs, c'est une lutte à mort. Comment pourraient-elles garder quelqu'un ? » À cet instant, leurs cœurs et leurs esprits étaient en proie au choc. Leurs yeux exprimaient l'horreur et l'incrédulité face à ce spectacle.
+« C'est impossible. On ne peut pas domestiquer des bêtes moustiques. Chaque fois qu'elles rencontrent des cultivateurs, c'est une lutte à mort. Comment pourraient-elles garder quelqu'un? » À cet instant, leurs cœurs et leurs esprits étaient en proie au choc. Leurs yeux exprimaient l'horreur et l'incrédulité face à ce spectacle.
 
-Li Yuanlei réprima sa stupeur et chuchota : « N'oubliez pas le cultivateur en blanc que nous avons vu à l'extérieur du Royaume Céleste du Vent. Si vous regardez de plus près, bien qu'on ne puisse pas distinguer ses traits, on voit clairement que ses vêtements sont blancs. »
+Li Yuanlei réprima sa stupeur et chuchota: « N'oubliez pas le cultivateur en blanc que nous avons vu à l'extérieur du Royaume Céleste du Vent. Si vous regardez de plus près, bien qu'on ne puisse pas distinguer ses traits, on voit clairement que ses vêtements sont blancs. »
 
 « Quelqu'un capable de contrôler les bêtes moustiques... Cette affaire... » Les cultivateurs alentour se turent. Ceux qui étaient arrivés tardivement n'avaient pas vu Wang Lin et n'en avaient entendu parler que par les autres. Ils n'y avaient pas cru au début, mais à cet instant, ils n'avaient d'autre choix que de le croire. Le choc qui les frappait était bien plus violent que celui des premiers arrivés.

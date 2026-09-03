@@ -6,13 +6,13 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 447 - A beauty that cant be replicated
 slug: une-beaute-que-nul-ne-peut-reproduire
 ---
-Les formes de vie composées de fragments d'âme étaient extrêmement difficiles à tuer ; même si elles y parvenaient, les victimes n'étaient pas l'entité elle-même, mais les propriétaires des fragments d'âme.
+Les formes de vie composées de fragments d'âme étaient extrêmement difficiles à tuer; même si elles y parvenaient, les victimes n'étaient pas l'entité elle-même, mais les propriétaires des fragments d'âme.
 
 Si Wang Lin avait utilisé l'énergie spirituelle céleste sans la moindre retenue, il aurait pu anéantir cette chose. Cependant, de nouveaux fragments d'âme seraient alors venus la reformer. D'une certaine manière, ces formes de vie étaient immortelles.
 
-Toutefois, lorsque le Cristal de la Planète de Cultivation se briserait, ces fragments d'âme s'effondreraient également.
+Toutefois, lorsque le Cristal de la Planète de Culture se briserait, ces fragments d'âme s'effondreraient également.
 
-Nul ne savait si la prochaine forme de vie qu'ils rencontreraient contiendrait les fragments d'âme de leurs êtres chers. À cet instant, comment agiraient-ils ? S'il s'agissait de votre propre fragment d'âme, la tâche serait plus simple, car vous entretenez un lien mystérieux avec lui.
+Nul ne savait si la prochaine forme de vie qu'ils rencontreraient contiendrait les fragments d'âme de leurs êtres chers. À cet instant, comment agiraient-ils? S'il s'agissait de votre propre fragment d'âme, la tâche serait plus simple, car vous entretenez un lien mystérieux avec lui.
 
 Bien sûr, il y avait de nombreux êtres sans cœur au sein du Tombeau de Suzaku. Certains, après avoir observé et découvert le secret, avaient commencé une véritable boucherie. Ils détruisaient un fragment d'âme après l'autre, puis attendaient que la forme de vie se reforme en attirant de nouveaux fragments. Ils poursuivaient cette méthode stupide dans l'espoir de retrouver leur propre fragment d'âme.
 
@@ -34,23 +34,23 @@ Cette scène avait profondément choqué les témoins.
 
 Qian Feng comprit alors que l'âme originelle de cet homme s'était brisée et qu'il était définitivement mort.
 
-Tous ceux qui avaient pénétré dans le Tombeau de Suzaku étaient perspicaces et comprirent immédiatement la portée de cet événement. En conséquence, lors des combats contre ces formes de vie, certains commencèrent à se retenir ; mais plus ils hésitaient, plus il devenait difficile de l'emporter. C'était un cercle vicieux.
+Tous ceux qui avaient pénétré dans le Tombeau de Suzaku étaient perspicaces et comprirent immédiatement la portée de cet événement. En conséquence, lors des combats contre ces formes de vie, certains commencèrent à se retenir; mais plus ils hésitaient, plus il devenait difficile de l'emporter. C'était un cercle vicieux.
 
-Cela faisait plus d'un demi-mois que Qian Feng était assis devant cette grotte. Son anxiété grandissait et l'irritait au plus haut point. Il ignorait combien de temps il lui restait avant l'effondrement du Cristal de la Planète de Cultivation. S'il ne parvenait pas à récupérer son fragment d'âme, la mort serait sa seule issue.
+Cela faisait plus d'un demi-mois que Qian Feng était assis devant cette grotte. Son anxiété grandissait et l'irritait au plus haut point. Il ignorait combien de temps il lui restait avant l'effondrement du Cristal de la Planète de Culture. S'il ne parvenait pas à récupérer son fragment d'âme, la mort serait sa seule issue.
 
-« Zhuque Zi, espèce de vieux sac d'os ! Si tu dois mourir, meurs, et basta ! Pourquoi faut-il que tout le monde soit entraîné dans ta chute ?! » Qian Feng serra les dents et frappa violemment le sol.
+« Zhuque Zi, espèce de vieux sac d'os! Si tu dois mourir, meurs, et basta! Pourquoi faut-il que tout le monde soit entraîné dans ta chute?! » Qian Feng serra les dents et frappa violemment le sol.
 
 Il prit une profonde inspiration, ses yeux s'illuminèrent alors qu'il fixait la grotte devant lui. Il commença à calculer mentalement avant de sortir soudainement une calebasse noire.
 
-Sa main droite traça un sceau, puis il pointa la calebasse : « Papillon Rouge, sors ! »
+Sa main droite traça un sceau, puis il pointa la calebasse: « Papillon Rouge, sors! »
 
 Un rayon de lumière dorée jaillit de la calebasse et le Papillon Rouge apparut devant lui. Vêtue d'une robe rouge, elle était toujours aussi belle qu'autrefois, mais son regard restait dénué de toute vie.
 
-À présent, la froideur et l'arrogance d'antan avaient disparu ; il ne restait plus qu'une tristesse déchirante et une profonde indifférence.
+À présent, la froideur et l'arrogance d'antan avaient disparu; il ne restait plus qu'une tristesse déchirante et une profonde indifférence.
 
 Cette calebasse était un trésor familial que l'on disait légué par un ancêtre. Non seulement elle recelait ses propres secrets, mais elle pouvait également emprisonner des êtres vivants.
 
-Qian Feng déclara : « Le temps est écoulé, elle devrait avoir récupéré ses forces. Va le provoquer en sortie. »
+Qian Feng déclara: « Le temps est écoulé, elle devrait avoir récupéré ses forces. Va le provoquer en sortie. »
 
 Sans dire un mot, le Papillon Rouge s'avança lentement dans la grotte.
 
@@ -66,57 +66,57 @@ Alors que le géant sortait, les yeux de Qian Feng devinrent glacials et il poin
 
 Un rugissement de rage s'échappa du géant tandis que son corps se désintégrait en d'innombrables filaments de fumée noire pour esquiver la boule de lumière.
 
-Qian Feng hurla : « Explose ! »
+Qian Feng hurla: « Explose! »
 
 D'un seul mot, la sphère de lumière explosa soudainement, créant une onde de choc dévastatrice qui se propagea dans toutes les directions.
 
 La montagne entière trembla et une pluie de rochers commença à s'abattre. Tous les filaments de fumée noire qui tentaient de s'échapper furent anéantis sans exception.
 
-« C'est déjà le soixante-neuvième... et je n'ai toujours pas trouvé mon fragment d'âme... » Qian Feng fronça les sourcils. Il savait que cette méthode n'était pas la plus efficace, mais le Tombeau de Suzaku était si vaste qu'il n'avait pas la puissance nécessaire pour explorer tous les recoins ; il ne pouvait donc s'en remettre à cette méthode rudimentaire en espérant un miracle.
+« C'est déjà le soixante-neuvième... et je n'ai toujours pas trouvé mon fragment d'âme... » Qian Feng fronça les sourcils. Il savait que cette méthode n'était pas la plus efficace, mais le Tombeau de Suzaku était si vaste qu'il n'avait pas la puissance nécessaire pour explorer tous les recoins; il ne pouvait donc s'en remettre à cette méthode rudimentaire en espérant un miracle.
 
 Sur la montagne abritant l'autel de la section extérieure du Tombeau de Suzaku, Wang Lin, tenant la sphère dans laquelle la forme de vie était scellée, sauta au sol.
 
 Quant à la femme laide, Wang Lin l'ignora purement et simplement.
 
-D'une voix calme, il déclara : « Je ne te tuerai pas, mais je peux te sceller, et ce sceau sera permanent. Une fois que les propriétaires des fragments d'âme mourront un à un, lorsque leur longévité prendra fin, tu connaîtras une véritable mort ! »
+D'une voix calme, il déclara: « Je ne te tuerai pas, mais je peux te sceller, et ce sceau sera permanent. Une fois que les propriétaires des fragments d'âme mourront un à un, lorsque leur longévité prendra fin, tu connaîtras une véritable mort! »
 
 Durant ces derniers jours dans le tombeau, il avait cherché un moyen de neutraliser ces formes de vie. Après de longues réflexions, il était arrivé à cette conclusion.
 
-En utilisant une multitude de restrictions pour sceller chaque fragment d'âme, il créerait un effet de confinement. En y ajoutant ensuite un fragment d'âme de même niveau de cultivation, il empêcherait la forme de vie de se reformer.
+En utilisant une multitude de restrictions pour sceller chaque fragment d'âme, il créerait un effet de confinement. En y ajoutant ensuite un fragment d'âme de même niveau de culture, il empêcherait la forme de vie de se reformer.
 
 Il lui suffirait d'attendre que les propriétaires originaux des fragments meurent naturellement pour que l'entité disparaisse à son tour.
 
 Wang Lin n'avait pas le temps de vérifier si sa méthode fonctionnait réellement, mais lorsque ces paroles atteignirent les oreilles de Murong Yun, celui-ci fut frappé comme par la foudre.
 
-« Je suis immortel ! Lorsque les fragments d'âme qui me composent s'éteindront, je pourrai en rassembler d'autres pour me reformer ! » Le rugissement de Murong Yun résonna depuis l'intérieur de la sphère.
+« Je suis immortel! Lorsque les fragments d'âme qui me composent s'éteindront, je pourrai en rassembler d'autres pour me reformer! » Le rugissement de Murong Yun résonna depuis l'intérieur de la sphère.
 
 Wang Lin eut un reniflement méprisant et atterrit au pied de la montagne. Il pointa le sol et y creusa un trou d'une profondeur de plusieurs dizaines de mètres.
 
 Il sauta dans la fosse, y déposa la sphère et commença à disposer des restrictions tout autour.
 
-Murong Yun, remarquant ses intentions, s'écria : « Que fais-tu ?! »
+Murong Yun, remarquant ses intentions, s'écria: « Que fais-tu?! »
 
 « Je vais te sceller ici. Je reviendrai dans cent ans pour voir si ma méthode a porté ses fruits. » Tout en parlant, Wang Lin continuait de poser ses restrictions.
 
-Murong Yun réfléchit quelques instants avant de hurler : « Toi ! Que veux-tu exactement ?! »
+Murong Yun réfléchit quelques instants avant de hurler: « Toi! Que veux-tu exactement?! »
 
-Les yeux de Wang Lin s'illuminèrent et il répondit calmement : « Je veux mon fragment d'âme ! »
+Les yeux de Wang Lin s'illuminèrent et il répondit calmement: « Je veux mon fragment d'âme! »
 
-Murong Yun répliqua promptement : « C'est impossible. Nous avons été créés par le Cristal de la Planète de Cultivation et sommes faits de fragments d'âme, mais nous ne choisissons pas ceux que nous recevons. De plus, je suis bien trop faible pour collecter le fragment d'âme d'un cultivateur de ton rang. Seules les formes de vie puissantes de la section intérieure peuvent s'approprier les fragments d'âme des grands cultivateurs du Cristal de la Planète de Cultivation. »
+Murong Yun répliqua promptement: « C'est impossible. Nous avons été créés par le Cristal de la Planète de Culture et sommes faits de fragments d'âme, mais nous ne choisissons pas ceux que nous recevons. De plus, je suis bien trop faible pour collecter le fragment d'âme d'un cultivateur de ton rang. Seules les formes de vie puissantes de la section intérieure peuvent s'approprier les fragments d'âme des grands cultivateurs du Cristal de la Planète de Culture. »
 
 Le regard de Wang Lin se fit glacial. Il secoua la tête, posa la dernière restriction et s'éleva au-dessus du gouffre.
 
 Au fond de la fosse, il ne restait que la sphère, prisonnière d'un réseau de restrictions scintillantes.
 
-« Je... je connais le véritable chemin pour entrer dans la section intérieure ! » Murong Yun n'osait pas parier ; s'il perdait, sa fin serait définitive.
+« Je... je connais le véritable chemin pour entrer dans la section intérieure! » Murong Yun n'osait pas parier; s'il perdait, sa fin serait définitive.
 
-Wang Lin regarda la chaîne de montagnes au loin et dit : « Moi aussi ! » Il pointa alors le sol, et la fosse commença à se refermer. Juste avant que le scellement ne soit total, le cri de Murong Yun retentit une dernière fois.
+Wang Lin regarda la chaîne de montagnes au loin et dit: « Moi aussi! » Il pointa alors le sol, et la fosse commença à se refermer. Juste avant que le scellement ne soit total, le cri de Murong Yun retentit une dernière fois.
 
-« Un roi règne dans la section intérieure du tombeau ! Lui seul peut extraire les fragments d'âme du Cristal de la Planète de Cultivation. C'est la vérité ! »
+« Un roi règne dans la section intérieure du tombeau! Lui seul peut extraire les fragments d'âme du Cristal de la Planète de Culture. C'est la vérité! »
 
-« Comment puis-je le trouver ? » Wang Lin pointa le sol pour stopper la fermeture.
+« Comment puis-je le trouver? » Wang Lin pointa le sol pour stopper la fermeture.
 
-Murong Yun répondit précipitamment : « Une fois dans la section intérieure, dirige-toi vers l'est. Il y a neuf montagnes qui forment une ravine gigantesque. Au lieu du brouillard noir habituel, un brouillard blanc en s'échappe, ce qui la rend facile à repérer. Le roi se trouve au fond de cette ravine. »
+Murong Yun répondit précipitamment: « Une fois dans la section intérieure, dirige-toi vers l'est. Il y a neuf montagnes qui forment une ravine gigantesque. Au lieu du brouillard noir habituel, un brouillard blanc en s'échappe, ce qui la rend facile à repérer. Le roi se trouve au fond de cette ravine. »
 
 Les yeux de Wang Lin brillèrent de détermination. Il leva sa main droite et quitta les lieux tandis que le sol finissait de se refermer.
 
@@ -128,4 +128,4 @@ Un autel se dressait au centre de la vallée, identique à celui qu'il avait vu 
 
 Une femme dont la beauté était sans pareille était assise près de l'autel et observait Wang Lin de ses yeux magnifiques.
 
-« Liu Mei ! »
+« Liu Mei! »

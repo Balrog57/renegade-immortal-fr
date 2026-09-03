@@ -10,17 +10,17 @@ Dehors, l'obscurité était totale, et le rugissement du vent résonnait depuis 
 
 Une force d'aspiration incessante émanait du gouffre, comme si elle cherchait à tout dévorer.
 
-Wang Lin était assis en position de lotus au sein de la fissure, contemplant les ténèbres. Il semblait n'avoir fait qu'un avec l'obscurité ; seul le passage occasionnel d'éclairs dans ses yeux venait illuminer la faille.
+Wang Lin était assis en position de lotus au sein de la fissure, contemplant les ténèbres. Il semblait n'avoir fait qu'un avec l'obscurité; seul le passage occasionnel d'éclairs dans ses yeux venait illuminer la faille.
 
 Être piégé ici faisait naître en lui une solitude croissante. C'était comme s'il était isolé du monde, oublié de tous...
 
-Seuls les souvenirs de ses huit cents ans de cultivation l'accompagnaient.
+Seuls les souvenirs de ses huit cents ans de culture l'accompagnaient.
 
 Les êtres solitaires se remémorent toujours chaque personne ayant croisé leur chemin. La solitude de Wang Lin s'intensifiait à mesure qu'il évoquait le passé.
 
 C'était comme s'il se cachait dans un fragment du temps, se remémorant ses souvenirs ou se dissimulant dans un lieu secret, songeant à un être cher.
 
-Un murmure s'échappa de la bouche de Wang Lin dans l'obscurité : « Je me demande si quelqu'un entretient les tombes de mon père et de ma mère... »
+Un murmure s'échappa de la bouche de Wang Lin dans l'obscurité: « Je me demande si quelqu'un entretient les tombes de mon père et de ma mère... »
 
 Une petite sphère blanche flottait devant lui. La lumière qu'elle émettait était si faible qu'elle ne pouvait rien éclairer dans cette obscurité profonde.
 
@@ -30,7 +30,7 @@ Une silhouette floue résidait toujours à l'intérieur de la petite sphère, ac
 
 Même si le ciel et la terre venaient à se briser, si la mer s'asséchait ou si les roches se désintégraient, cette silhouette serait toujours là pour lui à travers les âges. Même lors de sa réincarnation, elle l'accompagnerait...
 
-L'intérieur de la fissure demeurait glacial ; c'était comme si toute chaleur avait été aspirée par l'ouverture. Cependant, grâce à la présence de la sphère blanche, la chaleur dans le cœur de Wang Lin irradiait son corps et semblait éternelle.
+L'intérieur de la fissure demeurait glacial; c'était comme si toute chaleur avait été aspirée par l'ouverture. Cependant, grâce à la présence de la sphère blanche, la chaleur dans le cœur de Wang Lin irradiait son corps et semblait éternelle.
 
 Wang Lin, fusionné avec les ténèbres, leva la main et la sphère blanche se posa lentement dans sa paume. Elle vacilla en émettant une lueur douce, procurant à Wang Lin un sentiment de bonheur qu'il croyait avoir perdu à jamais.
 
@@ -48,15 +48,15 @@ Le sort du gardien céleste lui offrait initialement soixante pour cent de chanc
 
 Wang Lin ne perdit pas espoir et attendit calmement les deux années suivantes.
 
-Après que sa cultivation eut atteint le stade Ascendant, sa progression avait ralenti. Après tout, le stade Ascendant représentait le sommet de la première étape. Malgré l'immensité du cosmos, combien d'individus avaient réussi à atteindre ce sommet... ?
+Après que sa culture eut atteint le stade Ascendant, sa progression avait ralenti. Après tout, le stade Ascendant représentait le sommet de la première étape. Malgré l'immensité du cosmos, combien d'individus avaient réussi à atteindre ce sommet...?
 
-Hormis ceux favorisés par les cieux, qui n'avaient pas passé d'innombrables années pour atteindre cet apogée ? Le talent de Wang Lin était très ordinaire. Sans sa détermination et ses expériences singulières, il lui aurait été extrêmement difficile d'atteindre ce stade.
+Hormis ceux favorisés par les cieux, qui n'avaient pas passé d'innombrables années pour atteindre cet apogée? Le talent de Wang Lin était très ordinaire. Sans sa détermination et ses expériences singulières, il lui aurait été extrêmement difficile d'atteindre ce stade.
 
 Le stade Ascendant intermédiaire, le stade Ascendant avancé et le stade Ascendant au sommet étaient autant d'obstacles qui bloquaient d'innombrables cultivateurs et épuisaient la vie de tant d'êtres. C'étaient trois montagnes se dressant sur le chemin de Wang Lin.
 
-Au cours de ces deux années, Wang Lin utilisa son calme pour comprendre lentement ce qui résidait dans Wealth. Il n'y avait qu'une seule technique d'épée à l'intérieur de Wealth, une seule !
+Au cours de ces deux années, Wang Lin utilisa son calme pour comprendre lentement ce qui résidait dans Wealth. Il n'y avait qu'une seule technique d'épée à l'intérieur de Wealth, une seule!
 
-Coup Céleste !
+Coup Céleste!
 
 Un jour après ces deux ans, Wang Lin retira son sens divin de Wealth. L'objet disparut complètement, comme s'il avait accompli sa mission de transmettre son héritage et retournait à sa source.
 
@@ -70,7 +70,7 @@ Un doux soupir émana du sac de rangement de Wang Lin. Celui-ci s'ouvrit de lui-
 
 La silhouette d'une femme apparut lentement sur le parchemin.
 
-Wang Lin ne regarda pas l'objet ; aucune trace de surprise ne marqua son visage, qui n'exprimait qu'un calme infini. Juste avant que le parchemin ne se manifeste, il referma sa paume et la petite sphère blanche pénétra dans son corps.
+Wang Lin ne regarda pas l'objet; aucune trace de surprise ne marqua son visage, qui n'exprimait qu'un calme infini. Juste avant que le parchemin ne se manifeste, il referma sa paume et la petite sphère blanche pénétra dans son corps.
 
 « Descends... » Il ne pouvait voir le visage de la femme, mais sa voix se propagea lentement. Sa voix était semblable à une brume qui résonnait dans la fissure.
 
@@ -86,11 +86,11 @@ Avant d'avoir acquis la force nécessaire, la curiosité était la chose la plus
 
 Wang Lin attendait le jour où la force d'aspiration s'affaiblirait.
 
-Il n'y avait aucune règle régissant l'aspiration de ce puits. Si elle avait pu augmenter soudainement il y a deux ans, elle pouvait tout aussi bien diminuer dans quelques années. Il lui suffisait d'attendre !
+Il n'y avait aucune règle régissant l'aspiration de ce puits. Si elle avait pu augmenter soudainement il y a deux ans, elle pouvait tout aussi bien diminuer dans quelques années. Il lui suffisait d'attendre!
 
-Des croassements retentirent près de Wang Lin. Il baissa la tête et ses yeux s'illuminèrent : à ses côtés se trouvait un crapaud bleu de la taille d'une paume.
+Des croassements retentirent près de Wang Lin. Il baissa la tête et ses yeux s'illuminèrent: à ses côtés se trouvait un crapaud bleu de la taille d'une paume.
 
-C'était le crapaud du tonnerre !
+C'était le crapaud du tonnerre!
 
 Il s'était éveillé un an auparavant, d'où sa taille actuelle. Le crapaud du tonnerre était celui qui ressentait le mieux les changements chez Wang Lin. Depuis son éveil, il refusait de retourner dans le sac de rangement et restait simplement aux côtés de son maître.
 
@@ -98,15 +98,15 @@ Wang Lin projeta soudainement un éclair depuis son doigt vers le crapaud. Ce de
 
 Wang Lin ferma les yeux et s'immergea dans son Dao.
 
-Son Dao se composait de deux parties : le fleuve des enfers, et la formation de l'âme du fleuve des enfers.
+Son Dao se composait de deux parties: le fleuve des enfers, et la formation de l'âme du fleuve des enfers.
 
 Cependant, cette prétendue « âme » du fleuve des enfers n'était en réalité que des millions de fragments d'âmes issus du drapeau des âmes, condensés ensemble. Il lui manquait encore l'intention de tuer.
 
-Bien que le fantôme céleste possédât la férocité, elle était insuffisante pour devenir l'âme du fleuve des enfers de Wang Lin. Car il n'était que féroce, mais dépourvu d'intention de tuer !
+Bien que le fantôme céleste possédât la férocité, elle était insuffisante pour devenir l'âme du fleuve des enfers de Wang Lin. Car il n'était que féroce, mais dépourvu d'intention de tuer!
 
-« Une véritable âme pour le fleuve des enfers n'est pas nécessairement puissante. Le plus souvent, ce sont les âmes les plus simples et les plus faibles qui recèlent la plus grande férocité et la plus intense intention de tuer ! » songea Wang Lin.
+« Une véritable âme pour le fleuve des enfers n'est pas nécessairement puissante. Le plus souvent, ce sont les âmes les plus simples et les plus faibles qui recèlent la plus grande férocité et la plus intense intention de tuer! » songea Wang Lin.
 
-« Si je parviens à quitter cet endroit, je devrai visiter le monde mortel pour extraire la férocité et l'intention de tuer afin d'affiner l'âme de mon fleuve des enfers ! »
+« Si je parviens à quitter cet endroit, je devrai visiter le monde mortel pour extraire la férocité et l'intention de tuer afin d'affiner l'âme de mon fleuve des enfers! »
 
 Wang Lin ouvrit les yeux. Il regarda au-delà de la fissure et tendit lentement sa main droite. Le bout de ses doigts s'approcha de la ligne de démarcation à l'intérieur de la faille.
 
@@ -114,11 +114,11 @@ Bien que cette ligne se situât encore dans la grotte, dès que ses doigts la fr
 
 Des ondulations apparurent sur sa peau et il eut l'impression que ses ongles allaient être arrachés.
 
-« Je suis piégé ici, mais cela m'a offert la chance de comprendre le pouvoir des cieux et de la terre, une chance d'atteindre la troisième étape de mon Dao ! » Bien que son regard fût calme, une pointe de froideur y brillait.
+« Je suis piégé ici, mais cela m'a offert la chance de comprendre le pouvoir des cieux et de la terre, une chance d'atteindre la troisième étape de mon Dao! » Bien que son regard fût calme, une pointe de froideur y brillait.
 
-« Mais avant cela, je dois impérativement éliminer ce problème dans mon corps ! » Wang Lin retira sa main. Celle-ci était totalement engourdie, il n'en ressentait plus rien.
+« Mais avant cela, je dois impérativement éliminer ce problème dans mon corps! » Wang Lin retira sa main. Celle-ci était totalement engourdie, il n'en ressentait plus rien.
 
-Par mesure de sécurité, il avait transféré l'intégralité de l'Art Céleste du Massacre à l'intérieur de la marionnette. Cet art était un sort crucial pour lui ; il ne s'en était séparé qu'après une longue lutte intérieure.
+Par mesure de sécurité, il avait transféré l'intégralité de l'Art Céleste du Massacre à l'intérieur de la marionnette. Cet art était un sort crucial pour lui; il ne s'en était séparé qu'après une longue lutte intérieure.
 
 Auparavant, en cultivant l'Art Céleste du Massacre, Wang Lin avait acquis le cœur du massacre. Au début, ce cœur ne changeait pas, même lorsqu'il transférait toute l'énergie du massacre à la marionnette. Cependant, après trois ans — il y a quelques mois — Wang Lin sentit que ce cœur avait muté.
 
@@ -134,9 +134,9 @@ Une énergie glaciale pénétrait dans son corps via l'aspiration. Ce froid n'é
 
 Cette fois, il atteignit une zone où l'aspiration était plus violente encore. Tout le sang de son corps sembla ralentir, comme sur le point d'être extrait de ses veines.
 
-« Toujours pas assez ! » Les yeux de Wang Lin brillèrent.
+« Toujours pas assez! » Les yeux de Wang Lin brillèrent.
 
-D'innombrables bêtes-moustiques occupaient l'espace près de l'entrée du gouffre sans fond. Elles n'osaient s'approcher de trop près, tant la force d'aspiration était puissante ; si elles s'aventuraient trop loin, elles seraient aspirées dans le puits.
+D'innombrables bêtes-moustiques occupaient l'espace près de l'entrée du gouffre sans fond. Elles n'osaient s'approcher de trop près, tant la force d'aspiration était puissante; si elles s'aventuraient trop loin, elles seraient aspirées dans le puits.
 
 Parmi cet essaim, une bête-moustique émettait une lumière violette violente. Partout où elle volait, les autres moustiques s'écartaient sur son passage, et un simple cri de sa part suffisait à faire trembler la colonie.
 

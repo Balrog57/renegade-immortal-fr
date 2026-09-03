@@ -1,12 +1,12 @@
 ---
 n: 1592
-title: La vie est comme une pièce de théâtre, qui suis-je ?
+title: La vie est comme une pièce de théâtre, qui suis-je?
 book: 10
 bookTitle: Rampage Through the Inner Realm
 en: Chapter 1592 - Life is Like a Play, Who Am I
 slug: la-vie-est-comme-une-piece-de-theatre-qui-suis-je
 ---
-Chapitre 1592 - La vie est comme une pièce de théâtre, qui suis-je ?
+Chapitre 1592 - La vie est comme une pièce de théâtre, qui suis-je?
 
 La jeune fille en violet hocha doucement la tête et se leva avec la jeune fille en vert. Au moment de partir, elle se retourna pour regarder Wang Lin, comme si elle voulait graver son apparence dans son cœur.
 
@@ -14,7 +14,7 @@ Alors qu'elle s'apprêtait à s'éloigner, la jeune fille en violet hésita un i
 
 « Sœur aînée, allons-y », fit la voix de la jeune fille, résonnant à travers la pluie.
 
-La jeune fille regarda le corps tremblant de Wang Lin, recroquevillé dans un coin, et s'approcha silencieusement. Sa main de jade effleura son sac de rangement, et un manteau épais apparut dans sa main. Elle couvrit doucement Wang Lin et murmura :
+La jeune fille regarda le corps tremblant de Wang Lin, recroquevillé dans un coin, et s'approcha silencieusement. Sa main de jade effleura son sac de rangement, et un manteau épais apparut dans sa main. Elle couvrit doucement Wang Lin et murmura:
 
 « Est-ce vraiment une vie passée… » La jeune fille soupira, puis partit.
 
@@ -30,7 +30,7 @@ Le bruit de la pluie frappant la coque persistait, mais Wang Lin faisait un doux
 
 Le manteau qui enveloppait son corps dégageait un léger parfum qui lui chatouillait les narines et l'entraînait dans ses songes.
 
-« Xu Fei… Sœur aînée Zhou Si… Wang Zhuo… Wang Hao… Zhang Hu… » murmura Wang Lin dans son sommeil. Si les deux jeunes filles ne s'étaient pas éloignées et avaient entendu ces paroles, elles auraient été sous le choc !
+« Xu Fei… Sœur aînée Zhou Si… Wang Zhuo… Wang Hao… Zhang Hu… » murmura Wang Lin dans son sommeil. Si les deux jeunes filles ne s'étaient pas éloignées et avaient entendu ces paroles, elles auraient été sous le choc!
 
 Mais désormais, elles ne pouvaient plus l'entendre.
 
@@ -56,7 +56,7 @@ Pourtant, dans son esprit, outre les silhouettes des deux jeunes filles, ce rêv
 
 Tout cela plongeait Wang Lin dans un grand désarroi. La bougie s'était éteinte depuis un moment, rendant l'intérieur de l'abri à peine visible.
 
-Après un long moment, Wang Lin sortit de l'abri et contempla le monde embrumé. Les environs étaient si flous qu'il ne pouvait voir loin. Le vent soufflait ; bien que froid, il lui permettait de respirer l'odeur de la terre humide. Il prit une profonde inspiration.
+Après un long moment, Wang Lin sortit de l'abri et contempla le monde embrumé. Les environs étaient si flous qu'il ne pouvait voir loin. Le vent soufflait; bien que froid, il lui permettait de respirer l'odeur de la terre humide. Il prit une profonde inspiration.
 
 « Était-ce vraiment un rêve… » Wang Lin se tenait à la proue. Depuis l'arrêt de la pluie, le silence était absolu. Un silence tel qu'il semblait être le seul être vivant au monde.
 
@@ -102,7 +102,7 @@ Bientôt, l'oiseau se rapprocha et Wang Lin leva les yeux vers l'oiseau blanc. L
 
 Une fois l'oiseau parti, le chagrin dans le cœur de Wang Lin s'estompa lentement. La flamme de la bougie finit par s'éteindre.
 
-« Qu'est-ce qui ne va pas… avec moi ? » Wang Lin sembla reprendre ses esprits et fixa la larme encore présente sur son doigt. Il regarda la goutte cristalline tomber.
+« Qu'est-ce qui ne va pas… avec moi? » Wang Lin sembla reprendre ses esprits et fixa la larme encore présente sur son doigt. Il regarda la goutte cristalline tomber.
 
 Après un long moment, Wang Lin se leva et rassembla ses affaires, toujours empreint de cette confusion et de cette tristesse inexplicable. Il rangea le manteau de la jeune fille dans son sac et quitta l'embarcation.
 
@@ -114,7 +114,7 @@ Des rayons de lumière capables de percer les cieux jaillirent à travers les nu
 
 « Hein… » La confusion se lut dans ses yeux.
 
-Un jeune homme élégant sortit d'un autre rayon de lumière et demanda doucement : « Qu'y a-t-il, Sœur junior Liu ? »
+Un jeune homme élégant sortit d'un autre rayon de lumière et demanda doucement: « Qu'y a-t-il, Sœur junior Liu? »
 
 « Rien, j'ai l'impression d'avoir déjà vu cet érudit quelque part… » La femme secoua la tête et s'envola au loin.
 

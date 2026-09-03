@@ -14,9 +14,9 @@ Il avait attendu ce jour pendant quatre cents ans.
 
 À dix mille kilomètres de la ville de la famille Teng, Wang Lin sauta de sa bête-moustique. Il lança un regard glacial sur la cité, puis, avec lenteur, il sortit la bannière du dragon et déposa chaque corps au sol.
 
-Lorsqu'un corps était intact, il en tranchait la tête. Il agissait avec célérité ; ses gestes étaient nets et impitoyables.
+Lorsqu'un corps était intact, il en tranchait la tête. Il agissait avec célérité; ses gestes étaient nets et impitoyables.
 
-Peu à peu, une pile de têtes s'accumula devant lui. Elles affichaient des expressions diverses, mais toutes partageaient un point commun : l'effroi et l'injustice sur chaque visage.
+Peu à peu, une pile de têtes s'accumula devant lui. Elles affichaient des expressions diverses, mais toutes partageaient un point commun: l'effroi et l'injustice sur chaque visage.
 
 À mesure que les têtes s'empilaient, la haine qui imprégnait l'air s'intensifiait. Un vent glacial commença à souffler et le ciel sembla s'assombrir.
 
@@ -24,17 +24,17 @@ Une immense tour de têtes humaines s'éleva progressivement. Cette structure n'
 
 Wang Lin déposa la dernière tête au sommet de l'édifice. D'un revers de main, il fit en sorte que la tour le suive tandis qu'il pénétrait lentement dans la restriction qui couvrait un rayon de dix mille kilomètres autour de la ville Teng.
 
-« Teng Huayuan, je suis là, moi, Wang Lin ! Aujourd'hui, personne ne sera laissé en vie ! Je ne m'arrêterai pas avant de mourir ! » Sa voix, chargée de haine, résonna vers la cité de la famille Teng.
+« Teng Huayuan, je suis là, moi, Wang Lin! Aujourd'hui, personne ne sera laissé en vie! Je ne m'arrêterai pas avant de mourir! » Sa voix, chargée de haine, résonna vers la cité de la famille Teng.
 
 À cet instant, un silence sans précédent s'abattit sur la famille Teng, avant d'être bientôt déchiré par des cris de terreur.
 
 Presque simultanément, certains experts de la famille Teng remarquèrent l'immense tour de têtes. Peu à peu, de plus en plus de personnes aperçurent la structure, et la panique se propagea instantanément.
 
-Teng Huayuan se tenait sur le rempart intérieur, le visage sombre. À ses côtés se trouvaient quatre individus : les quatre derniers cultivateurs de l'Âme Naissante de la famille Teng.
+Teng Huayuan se tenait sur le rempart intérieur, le visage sombre. À ses côtés se trouvaient quatre individus: les quatre derniers cultivateurs de l'Âme Naissante de la famille Teng.
 
 Sur ordre de Teng Huayuan, les quatre disparurent. Lorsqu'ils réapparurent, ils se trouvaient déjà à mille pieds de Wang Lin. Ils sortirent précipitamment leurs trésors magiques pour les projeter contre lui.
 
-Comment la vengeance de Wang Lin pouvait-elle être contenue par seulement quatre hommes ? Bien que Wang Lin paraisse calme, une lueur de folie brûlait dans son cœur. Aujourd'hui, il allait déverser quatre cents ans de rage. Aujourd'hui, il deviendrait un fou, un fou assoiffé de sang !
+Comment la vengeance de Wang Lin pouvait-elle être contenue par seulement quatre hommes? Bien que Wang Lin paraisse calme, une lueur de folie brûlait dans son cœur. Aujourd'hui, il allait déverser quatre cents ans de rage. Aujourd'hui, il deviendrait un fou, un fou assoiffé de sang!
 
 Sans la moindre hésitation, dès l'apparition des quatre cultivateurs de l'Âme Naissante, le Domaine de Ji de Wang Lin s'anima. Sous une salve d'éclairs rouges, les quatre experts poussèrent des cris déchirants avant même d'avoir pu utiliser leurs trésors. Le Domaine de Ji forma une cage qui les emprisonna.
 
@@ -48,7 +48,7 @@ Wang Lin se retourna soudainement. Une épée volante était apparue dans sa mai
 
 La tour de têtes s'agrandit encore.
 
-Tout cela se déroulait avec une rapidité fulgurante. En un instant, deux des quatre étaient morts. Les deux autres, piégés dans la cage, étaient incapables de résister. Empli d'une haine viscérale, Wang Lin hurla : « Tuez ! » La cage du Domaine de Ji se referma et trancha les deux derniers cultivateurs de l'Âme Naissante.
+Tout cela se déroulait avec une rapidité fulgurante. En un instant, deux des quatre étaient morts. Les deux autres, piégés dans la cage, étaient incapables de résister. Empli d'une haine viscérale, Wang Lin hurla: « Tuez! » La cage du Domaine de Ji se referma et trancha les deux derniers cultivateurs de l'Âme Naissante.
 
 Une pluie de sang et de morceaux de chair tomba du ciel. Cependant, sous le contrôle de Wang Lin, leurs têtes restèrent intactes.
 
@@ -56,11 +56,11 @@ La tour de têtes gagna deux nouveaux trophées.
 
 Après avoir exécuté ces quatre personnes, Wang Lin se redressa et fixa Teng Huayuan avec un sourire cruel.
 
-En voyant ce sourire, le cœur de Teng Huayuan se glaça. Quatre cultivateurs de l'Âme Naissante avaient été éliminés si aisément. Quel niveau de cultivation ce Wang Lin avait-il atteint ?
+En voyant ce sourire, le cœur de Teng Huayuan se glaça. Quatre cultivateurs de l'Âme Naissante avaient été éliminés si aisément. Quel niveau de culture ce Wang Lin avait-il atteint?
 
-Le cuir chevelu de Teng Huayuan picota. Son hypothèse précédente était erronée : la restriction entourant la ville n'avait pas été posée par un tiers, mais par ce démon lui-même.
+Le cuir chevelu de Teng Huayuan picota. Son hypothèse précédente était erronée: la restriction entourant la ville n'avait pas été posée par un tiers, mais par ce démon lui-même.
 
-« Teng Huayuan, je suis là ! » Les yeux de Wang Lin débordaient de haine, pourtant ses gestes étaient d'un calme olympien. Il esquissa même un sourire.
+« Teng Huayuan, je suis là! » Les yeux de Wang Lin débordaient de haine, pourtant ses gestes étaient d'un calme olympien. Il esquissa même un sourire.
 
 Tout en parlant, sa main droite s'étira et se mua en une main gigantesque. Il balaya la ville d'un geste et saisit plus d'une douzaine de personnes qui hurlèrent de terreur. Parmi elles se trouvaient des hommes et des femmes, des cultivateurs et des mortels.
 
@@ -68,7 +68,7 @@ Tout en parlant, sa main droite s'étira et se mua en une main gigantesque. Il b
 
 La tour de têtes gagna dix-neuf têtes supplémentaires.
 
-« Wang Lin ! » Une immense intention meurtrière émana de Teng Huayuan. Il agita la main et un drapeau doré apparut dans sa paume. D'un mouvement sec, le drapeau libéra un gaz qui se mua en un crâne gigantesque. Le crâne poussa un rugissement et chargea vers Wang Lin.
+« Wang Lin! » Une immense intention meurtrière émana de Teng Huayuan. Il agita la main et un drapeau doré apparut dans sa paume. D'un mouvement sec, le drapeau libéra un gaz qui se mua en un crâne gigantesque. Le crâne poussa un rugissement et chargea vers Wang Lin.
 
 L'expression de Wang Lin resta imperturbable. Il frappa son sac de rangement et en sortit un drapeau d'âmes. En secouant le drapeau, des milliers d'âmes hurlantes s'en échappèrent.
 
@@ -84,40 +84,40 @@ Cette fois, aucun membre de la famille Teng ne put supporter une telle pression.
 
 Wang Lin afficha un sourire cruel. Il pointa un doigt vers le ciel et les milliers d'âmes de la famille Teng se précipitèrent vers les fugitifs pour les dévorer.
 
-Teng Huayuan réagit vivement. Serrant les dents, il agita son drapeau. Le crâne doré se divisa en plus de mille crânes qui chargèrent les âmes. Le cœur de Teng Huayuan saignait ; cela revenait à tuer lui-même les siens.
+Teng Huayuan réagit vivement. Serrant les dents, il agita son drapeau. Le crâne doré se divisa en plus de mille crânes qui chargèrent les âmes. Le cœur de Teng Huayuan saignait; cela revenait à tuer lui-même les siens.
 
-Le corps de Wang Lin disparut pour réapparaître aux côtés d'un membre de la famille Teng en fuite. C'était un jeune homme, au troisième niveau de Condensation de Qi seulement. Il y a trois jours encore, il tirait une fierté à porter le nom de Teng ; aujourd'hui, il aurait voulu n'avoir aucun lien avec cette lignée.
+Le corps de Wang Lin disparut pour réapparaître aux côtés d'un membre de la famille Teng en fuite. C'était un jeune homme, au troisième niveau de Condensation de Qi seulement. Il y a trois jours encore, il tirait une fierté à porter le nom de Teng; aujourd'hui, il aurait voulu n'avoir aucun lien avec cette lignée.
 
 Mais il n'eut pas le temps de le regretter. La dernière chose qu'il vit fut ce jeune homme aux cheveux blancs qui inspirait une terreur absolue. Une main froide se referma sur son cou et le brisa net.
 
-Après ce premier meurtre, Wang Lin disparut pour réapparaître près d'un autre membre de la famille Teng. Bien qu'il s'agisse d'une jeune fille pleine de charme, elle n'était pour Wang Lin qu'une morte. Il ne ferait preuve d'aucune pitié sous prétexte qu'elle était une femme, car la famille Teng ne pouvait cohabiter dans le même monde que la famille Wang !
+Après ce premier meurtre, Wang Lin disparut pour réapparaître près d'un autre membre de la famille Teng. Bien qu'il s'agisse d'une jeune fille pleine de charme, elle n'était pour Wang Lin qu'une morte. Il ne ferait preuve d'aucune pitié sous prétexte qu'elle était une femme, car la famille Teng ne pouvait cohabiter dans le même monde que la famille Wang!
 
 Une fois son cou brisé, Wang Lin disparut de nouveau.
 
-Teng Huayuan rugit et chargea. Cependant, il était plus lent que Wang Lin ; chaque fois qu'il tentait d'intercepter l'adversaire, il ne voyait que la famille Teng perdre un nouveau membre.
+Teng Huayuan rugit et chargea. Cependant, il était plus lent que Wang Lin; chaque fois qu'il tentait d'intercepter l'adversaire, il ne voyait que la famille Teng perdre un nouveau membre.
 
-Cette situation — voir ses proches mourir un à un sans pouvoir intervenir — était en train de rendre Teng Huayuan fou. À cet instant, il vit soudainement Wang Lin apparaître près d'un jeune garçon : le septième descendant qu'il avait lui-même vu grandir.
+Cette situation — voir ses proches mourir un à un sans pouvoir intervenir — était en train de rendre Teng Huayuan fou. À cet instant, il vit soudainement Wang Lin apparaître près d'un jeune garçon: le septième descendant qu'il avait lui-même vu grandir.
 
-« NON !!! » Les yeux de Teng Huayuan devinrent rouges de rage et il s'élança.
+« NON!!! » Les yeux de Teng Huayuan devinrent rouges de rage et il s'élança.
 
 Wang Lin regarda froidement Teng Huayuan charger, tout en posant sa main sur le front du garçon. L'enfant fixa Wang Lin avec haine tandis que ce dernier injectait son énergie spirituelle dans sa paume, faisant exploser le garçon en un amas sanglant.
 
-« Dans votre prochaine vie, ne portez pas le nom de Teng ! » Une fois son œuvre accomplie, Wang Lin disparut encore.
+« Dans votre prochaine vie, ne portez pas le nom de Teng! » Une fois son œuvre accomplie, Wang Lin disparut encore.
 
-Teng Huayuan resta hébété devant l'amas de chair qui était autrefois son petit-fils. Puis, il poussa un rugissement de douleur : « Wang Lin ! »
+Teng Huayuan resta hébété devant l'amas de chair qui était autrefois son petit-fils. Puis, il poussa un rugissement de douleur: « Wang Lin! »
 
-Le corps de Wang Lin réapparut à mille pieds de là. Il dit : « Est-ce que cela fait mal ? Autrefois, quand vous avez tué ma famille, mon cœur aussi a souffert. » Sur ces mots, il frappa l'air d'un revers de la main droite, et un membre de la famille Teng qui fuyait en panique fut réduit en bouillie.
+Le corps de Wang Lin réapparut à mille pieds de là. Il dit: « Est-ce que cela fait mal? Autrefois, quand vous avez tué ma famille, mon cœur aussi a souffert. » Sur ces mots, il frappa l'air d'un revers de la main droite, et un membre de la famille Teng qui fuyait en panique fut réduit en bouillie.
 
-Teng Huayuan rugit férocement : « J'ai tué toute votre famille parce que vous avez tué mon petit-fils, Teng Li ! »
+Teng Huayuan rugit férocement: « J'ai tué toute votre famille parce que vous avez tué mon petit-fils, Teng Li! »
 
-« Absurde. Seule la famille Teng a le droit de tuer ? Les autres ne peuvent pas résister ? » Wang Lin laissa échapper un rire glacial. Il frappa son sac de rangement et plus d'une dizaine d'épées volantes en sortirent. Une fois de plus, des dizaines de personnes périrent sous les yeux de Teng Huayuan.
+« Absurde. Seule la famille Teng a le droit de tuer? Les autres ne peuvent pas résister? » Wang Lin laissa échapper un rire glacial. Il frappa son sac de rangement et plus d'une dizaine d'épées volantes en sortirent. Une fois de plus, des dizaines de personnes périrent sous les yeux de Teng Huayuan.
 
 Teng Huayuan serra le poing. Il agita son drapeau et tous les crânes dorés s'envolèrent vers Wang Lin.
 
-Wang Lin frappa son sac de rangement et le drapeau de restriction apparut dans sa main. D'un geste, une fumée noire surgit et emprisonna totalement les crânes dorés. Les yeux de Wang Lin brillèrent alors qu'il demanda : « Teng Huayuan, comment avez-vous trouvé ma ville natale ? »
+Wang Lin frappa son sac de rangement et le drapeau de restriction apparut dans sa main. D'un geste, une fumée noire surgit et emprisonna totalement les crânes dorés. Les yeux de Wang Lin brillèrent alors qu'il demanda: « Teng Huayuan, comment avez-vous trouvé ma ville natale? »
 
-L'expression de Teng Huayuan changea ; il fixa Wang Lin avec une haine profonde et répondit : « Vous ne le saurez jamais ! »
+L'expression de Teng Huayuan changea; il fixa Wang Lin avec une haine profonde et répondit: « Vous ne le saurez jamais! »
 
 Le visage de Wang Lin s'assombrit. Il agita la main et plus d'une dizaine de restrictions s'élancèrent. Plus de cent membres de la famille Teng poussèrent des cris alors qu'ils mouraient.
 
-« Allez-vous parler ? »
+« Allez-vous parler? »

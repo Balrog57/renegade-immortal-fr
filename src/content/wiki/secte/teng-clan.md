@@ -16,16 +16,16 @@ Dans sa colère, Teng Huayuan posa un sceau de malédiction sur Wang Lin et lan�
 
 ### Fiche signalétique
 
-- **Nom :** Clan Teng (Teng Clan, Teng Family Clan)
-- **Statut :** L'une des quatre grandes familles du Domaine Sud
-- **Domaine :** Domaine Sud (Système Stellaire d'Allheaven)
-- **Ancêtre notable :** Teng Huayuan (Teng Huayan)
-- **Jeune maître :** Teng Li (décédé, tué par Wang Lin)
-- **Ennemi :** Wang Lin
-- **Système stellaire :** Système Stellaire d'Allheaven
-- **Monde :** Monde de la Grotte de Wang Lin
-- **Royaume :** Royaume Scellé
-- **Présence :** Planète Suzaku, Pays de Zhao
+- **Nom:** Clan Teng (Teng Clan, Teng Family Clan)
+- **Statut:** L'une des quatre grandes familles du Domaine Sud
+- **Domaine:** Domaine Sud (Système Stellaire d'Allheaven)
+- **Ancêtre notable:** Teng Huayuan (Teng Huayan)
+- **Jeune maître:** Teng Li (décédé, tué par Wang Lin)
+- **Ennemi:** Wang Lin
+- **Système stellaire:** Système Stellaire d'Allheaven
+- **Monde:** Monde de la Grotte de Wang Lin
+- **Royaume:** Royaume Scellé
+- **Présence:** Planète Suzaku, Pays de Zhao
 
 ## Histoire
 

@@ -14,13 +14,13 @@ Après avoir posé certaines restrictions autour de Li Yuan, Wang Lin s'assit à
 
 « L'Ancêtre Sanguin appartient bel et bien à la famille Yao. Il s'avère que la famille Yao est très puissante, surtout le Dieu Sanguin de cette lignée... » Le regard de Wang Lin devint glacial.
 
-« Je n'ai jamais manqué d'ennemis redoutables depuis que j'ai commencé ma cultivation, alors ajouter un Dieu Sanguin ne change pas grand-chose ! » Wang Lin savait que même s'il avait été informé de l'existence du Dieu Sanguin auparavant, il n'aurait tout de même pas pu laisser Li Yuan mourir...
+« Je n'ai jamais manqué d'ennemis redoutables depuis que j'ai commencé ma culture, alors ajouter un Dieu Sanguin ne change pas grand-chose! » Wang Lin savait que même s'il avait été informé de l'existence du Dieu Sanguin auparavant, il n'aurait tout de même pas pu laisser Li Yuan mourir...
 
 De plus, puisqu'il avait déjà offensé l'Ancêtre Sanguin, il prit une décision.
 
-« Tant que je maîtriserai ce sort pour fusionner avec le monde, même si Tuo Sen vient, je serai capable de m'échapper ! Cependant, certains souvenirs de ce vieil homme sont intéressants ; ils pourraient me s'avérer utiles ! » Un regard déterminé brilla dans les yeux de Wang Lin. Il s'assit et commença à affiner l'énergie originelle à l'intérieur de son corps.
+« Tant que je maîtriserai ce sort pour fusionner avec le monde, même si Tuo Sen vient, je serai capable de m'échapper! Cependant, certains souvenirs de ce vieil homme sont intéressants; ils pourraient me s'avérer utiles! » Un regard déterminé brilla dans les yeux de Wang Lin. Il s'assit et commença à affiner l'énergie originelle à l'intérieur de son corps.
 
-« Une fois que j'aurai absorbé toute l'énergie originelle en moi, je serai extrêmement proche du véritable deuxième stade, le stade initial de Scruteur du Nirvana ! » Wang Lin réfléchit silencieusement un instant avant d'agiter la main. Les trois sacs et plusieurs épées volantes vinrent vers lui.
+« Une fois que j'aurai absorbé toute l'énergie originelle en moi, je serai extrêmement proche du véritable deuxième stade, le stade initial de Nirvana Scryer! » Wang Lin réfléchit silencieusement un instant avant d'agiter la main. Les trois sacs et plusieurs épées volantes vinrent vers lui.
 
 Ces trois sacs de rangement appartenaient aux trois individus défunts. Le regard de Wang Lin se posa d'abord sur les épées que lui et Li Yuan avaient trouvées dans l'espace de stockage.
 
@@ -58,7 +58,7 @@ L'épée trembla et libéra une rafale d'hymnes d'épée. L'âme originelle de W
 
 Les yeux de Wang Lin se plissèrent et l'énergie originelle dans son corps se propagea comme une tempête, dissipant toute l'énergie d'épée. Cependant, l'instant d'après, une nouvelle vague d'énergie apparut, comme si elle était inépuisable.
 
-« Quelque chose ne va pas. C'est une matrice de restriction ! » Les yeux de Wang Lin commencèrent à déduire la restriction tandis qu'il restait assis. Il créa un bouclier d'énergie originelle pour bloquer l'énergie d'épée et l'ignora totalement.
+« Quelque chose ne va pas. C'est une matrice de restriction! » Les yeux de Wang Lin commencèrent à déduire la restriction tandis qu'il restait assis. Il créa un bouclier d'énergie originelle pour bloquer l'énergie d'épée et l'ignora totalement.
 
 Après un temps indéterminé, les yeux de Wang Lin s'illuminèrent. Il avait percé la restriction. D'une simple pensée, d'innombrables restrictions apparurent autour de lui et se propagèrent dans toutes les directions.
 
@@ -76,11 +76,11 @@ Après un long moment, l'âme originelle de Wang Lin s'échappa de l'os pour ret
 
 Wang Lin ouvrit les yeux, affichant un mélange de choc et d'excitation.
 
-« Il est véritablement digne d'être qualifié de trésor céleste. Sans cette méthode spécifique, il est impossible d'y laisser une empreinte ! Une fois l'empreinte déposée avec succès, on acquiert immédiatement la connaissance nécessaire pour s'en servir... » Wang Lin se leva, agita la main et le grand os de bête vola aussitôt vers lui.
+« Il est véritablement digne d'être qualifié de trésor céleste. Sans cette méthode spécifique, il est impossible d'y laisser une empreinte! Une fois l'empreinte déposée avec succès, on acquiert immédiatement la connaissance nécessaire pour s'en servir... » Wang Lin se leva, agita la main et le grand os de bête vola aussitôt vers lui.
 
-« Cet objet s'appelle la Paire de Dao Fanée. Il est extrêmement puissant et peut être considéré comme un véritable trésor magique ! Malheureusement, il a été endommagé par son ancien maître lors d'un combat contre un dieu antique. Le fait que son précédent possesseur soit mort fait qu'il n'est toujours pas totalement réparé. Cependant, sa puissance demeure incroyable ; il peut être considéré comme l'un de mes trésors les plus puissants ! » La main droite de Wang Lin s'avança et l'os de bête sembla prendre vie. Il se précipita vers lui et disparut dans sa paume.
+« Cet objet s'appelle la Paire de Dao Fanée. Il est extrêmement puissant et peut être considéré comme un véritable trésor magique! Malheureusement, il a été endommagé par son ancien maître lors d'un combat contre un dieu antique. Le fait que son précédent possesseur soit mort fait qu'il n'est toujours pas totalement réparé. Cependant, sa puissance demeure incroyable; il peut être considéré comme l'un de mes trésors les plus puissants! » La main droite de Wang Lin s'avança et l'os de bête sembla prendre vie. Il se précipita vers lui et disparut dans sa paume.
 
-Un instant plus tard, un tatouage en forme d'os de bête apparut sur le dos de la main droite de Wang Lin. Il était d'un réalisme saisissant !
+Un instant plus tard, un tatouage en forme d'os de bête apparut sur le dos de la main droite de Wang Lin. Il était d'un réalisme saisissant!
 
 Il ne retira pas le brouillard originel et regarda Li Yuan. La plupart des blessures de ce dernier avaient guéri et son âme originelle absorbait l'énergie pour sa percée finale. Wang Lin ne savait pas si Li Yuan réussirait.
 
@@ -88,7 +88,7 @@ En attendant le réveil de Li Yuan, Wang Lin ouvrit les sacs des trois personnes
 
 Quant au sac de rangement du Jeune Maître Yao, il contenait également divers objets. Après inspection, les yeux de Wang Lin se plissèrent et se fixèrent sur un article précis.
 
-C'était un talisman en papier !
+C'était un talisman en papier!
 
 Comparé à cela, le reste n'avait aucune importance. C'était le deuxième talisman de ce genre qu'il trouvait depuis son arrivée dans le Système Solaire Allheaven.
 
@@ -96,11 +96,11 @@ Après réflexion, Wang Lin frappa son propre sac de rangement et l'autre talism
 
 « Qu'est-ce que c'est exactement... » Le sens divin de Wang Lin se déploya pour scanner les deux talismans. Ses yeux se plissèrent lorsqu'il nota de faibles fluctuations d'énergie originelle émanant d'eux.
 
-Avec son niveau de cultivation précédent, il n'aurait pas pu les remarquer.
+Avec son niveau de culture précédent, il n'aurait pas pu les remarquer.
 
-« Intéressant. Cet objet pourrait-il lui aussi être un trésor ?! » Wang Lin réfléchit silencieusement avant de ranger les talismans. Il avait le pressentiment qu'ils n'étaient pas ordinaires.
+« Intéressant. Cet objet pourrait-il lui aussi être un trésor?! » Wang Lin réfléchit silencieusement avant de ranger les talismans. Il avait le pressentiment qu'ils n'étaient pas ordinaires.
 
-Lorsqu'il prit le dernier sac de rangement, ses yeux s'illuminèrent et il murmura : « L'esprit du vieil homme était confus, mais son objectif dans le Royaume Céleste du Tonnerre était très clair. Il comptait emmener le jeune maître de la famille Yao à la Galerie des Collections pour obtenir un sort céleste ! »
+Lorsqu'il prit le dernier sac de rangement, ses yeux s'illuminèrent et il murmura: « L'esprit du vieil homme était confus, mais son objectif dans le Royaume Céleste du Tonnerre était très clair. Il comptait emmener le jeune maître de la famille Yao à la Galerie des Collections pour obtenir un sort céleste! »
 
 Wang Lin avait appris des souvenirs du vieillard qu'il existait un fragment scellé par les forces combinées des quatre familles du Système Solaire Allheaven, possédant des héritages du Royaume Céleste.
 
@@ -110,21 +110,21 @@ Cependant, cette Galerie avait été créée par l'ancien Empereur Céleste du R
 
 Les quatre grandes familles détentrices des héritages célestes ne pouvaient briser ces règles. Elles ne pouvaient que sceller le fragment et l'ouvrir périodiquement pour permettre à leurs membres de tenter leur chance.
 
-Pendant très longtemps, cette Galerie fut un lieu exclusif aux quatre grandes familles ; aucun étranger n'y était admis.
+Pendant très longtemps, cette Galerie fut un lieu exclusif aux quatre grandes familles; aucun étranger n'y était admis.
 
-La famille Yao n'avait pas envoyé une seule équipe dans le Royaume Céleste du Tonnerre, mais dix groupes !
+La famille Yao n'avait pas envoyé une seule équipe dans le Royaume Céleste du Tonnerre, mais dix groupes!
 
 « La Galerie des Collections... » Les yeux de Wang Lin brillèrent.
 
-À ce moment précis, la respiration de Li Yuan devint saccadée et il ouvrit lentement les yeux. Il regarda devant lui et soupira : « Merci, Frère Xu, mais il semble que je ne sois pas destiné à atteindre le stade Illusoire Yin. Mon âme originelle n'a pas pu supporter une telle quantité d'énergie originelle. »
+À ce moment précis, la respiration de Li Yuan devint saccadée et il ouvrit lentement les yeux. Il regarda devant lui et soupira: « Merci, Frère Xu, mais il semble que je ne sois pas destiné à atteindre le stade Illusoire Yin. Mon âme originelle n'a pas pu supporter une telle quantité d'énergie originelle. »
 
 Li Yuan baissa la tête et regarda son bras brisé. Après avoir parlé, il s'enferma dans le silence.
 
-Wang Lin leva la main droite et tout le brouillard originel se retira. Il observa attentivement Li Yuan et sourit : « Frère Li, ne vous sous-estimez pas. L'énergie originelle dans votre corps nourrit votre âme originelle. Une fois que vous l'aurez totalement absorbée, vous atteindrez le stade Illusoire Yin. Ce jour viendra, que ce soit tôt ou tard, mais il arrivera certainement ! »
+Wang Lin leva la main droite et tout le brouillard originel se retira. Il observa attentivement Li Yuan et sourit: « Frère Li, ne vous sous-estimez pas. L'énergie originelle dans votre corps nourrit votre âme originelle. Une fois que vous l'aurez totalement absorbée, vous atteindrez le stade Illusoire Yin. Ce jour viendra, que ce soit tôt ou tard, mais il arrivera certainement! »
 
-Les yeux de Li Yuan brillèrent et il hocha la tête. Il se leva et s'inclina devant Wang Lin : « Frère Xu, je vous suis extrêmement redevable. Je garderai cela dans mon cœur et ne l'oublierai jamais. »
+Les yeux de Li Yuan brillèrent et il hocha la tête. Il se leva et s'inclina devant Wang Lin: « Frère Xu, je vous suis extrêmement redevable. Je garderai cela dans mon cœur et ne l'oublierai jamais. »
 
-Li Yuan n'était pas un homme de paroles, mais cela venait du fond de son âme. Il ne ressentait que de la gratitude envers Wang Lin !
+Li Yuan n'était pas un homme de paroles, mais cela venait du fond de son âme. Il ne ressentait que de la gratitude envers Wang Lin!
 
 Wang Lin eut un léger sourire tandis que sa main droite saisissait le dernier sac qu'il n'avait pas encore inspecté. Il le scanna de son sens divin et le lança à Li Yuan.
 
@@ -132,23 +132,23 @@ Simultanément, les neuf épées s'élevèrent dans les airs pour atterrir aux c
 
 « Je vous les rends, car elles appartiennent à leur propriétaire. De plus, gardez ce sac de rangement. Je pense que son contenu vous sera utile. »
 
-Li Yuan acquiesça et rangea les épées. Il ramassa le sac et le scanna du sens divin avant d'en sortir un objet : l'ancien miroir.
+Li Yuan acquiesça et rangea les épées. Il ramassa le sac et le scanna du sens divin avant d'en sortir un objet: l'ancien miroir.
 
-« C'est un ancien miroir briseur de restrictions. Il n'en reste plus beaucoup, et il peut briser la majorité des entraves ! » Tout en parlant, il le lança vers Wang Lin.
+« C'est un ancien miroir briseur de restrictions. Il n'en reste plus beaucoup, et il peut briser la majorité des entraves! » Tout en parlant, il le lança vers Wang Lin.
 
 Wang Lin l'accepta avec un sourire et le rangea dans son sac.
 
-Li Yuan hésita et demanda : « Je ne peux plus percevoir la cultivation de Frère Xu. Il est évident que vous avez énormément progressé. L'Ancêtre Sanguin a-t-il été neutralisé par l'espace de stockage ? »
+Li Yuan hésita et demanda: « Je ne peux plus percevoir la culture de Frère Xu. Il est évident que vous avez énormément progressé. L'Ancêtre Sanguin a-t-il été neutralisé par l'espace de stockage? »
 
-« Le danger de l'Ancêtre Sanguin est écarté. Bien qu'il ne soit pas mort, la différence n'est pas grande », répondit calmement Wang Lin. En entendant cela, Li Yuan fut surpris et lança un regard significatif à Wang Lin. Avec sa sagesse, il comprit que l'augmentation fulgurante du niveau de cultivation de Wang Lin était liée à l'Ancêtre Sanguin.
+« Le danger de l'Ancêtre Sanguin est écarté. Bien qu'il ne soit pas mort, la différence n'est pas grande », répondit calmement Wang Lin. En entendant cela, Li Yuan fut surpris et lança un regard significatif à Wang Lin. Avec sa sagesse, il comprit que l'augmentation fulgurante du niveau de culture de Wang Lin était liée à l'Ancêtre Sanguin.
 
-Wang Lin regarda Li Yuan et sourit : « Frère Li, je vais explorer le Royaume Céleste du Tonnerre pour traquer tous les sorts célestes. Seriez-vous prêt à m'aider à briser les restrictions ? »
+Wang Lin regarda Li Yuan et sourit: « Frère Li, je vais explorer le Royaume Céleste du Tonnerre pour traquer tous les sorts célestes. Seriez-vous prêt à m'aider à briser les restrictions? »
 
 Avec sa puissance actuelle, hormis quelques individus d'exception, peu dans le Royaume Céleste du Tonnerre pouvaient lui faire face. Si Li Yuan l'accompagnait, Wang Lin pourrait facilement le protéger. Sans compter que si Li Yuan disposait de suffisamment de temps pour utiliser ses capacités sur les restrictions, il n'aurait même plus besoin de la protection de Wang Lin.
 
-Wang Lin avait ses propres raisons d'inviter Li Yuan. Ce dernier en savait manifestement bien plus que lui sur le Royaume Céleste du Tonnerre. De plus, Wang Lin ne pouvait rivaliser avec lui en matière de restrictions ; la recherche de sorts célestes serait donc bien plus efficace avec son aide.
+Wang Lin avait ses propres raisons d'inviter Li Yuan. Ce dernier en savait manifestement bien plus que lui sur le Royaume Céleste du Tonnerre. De plus, Wang Lin ne pouvait rivaliser avec lui en matière de restrictions; la recherche de sorts célestes serait donc bien plus efficace avec son aide.
 
-Les yeux de Li Yuan s'illuminèrent de joie et il sourit : « Puisque c'est le souhait de Frère Xu, je ferai de mon mieux pour vous aider. Tant que j'ai assez de temps, je suis certain de pouvoir briser toutes les restrictions d'ici ! Par exemple, Frère Xu, il y avait autrefois une ruine céleste à cet endroit ! »
+Les yeux de Li Yuan s'illuminèrent de joie et il sourit: « Puisque c'est le souhait de Frère Xu, je ferai de mon mieux pour vous aider. Tant que j'ai assez de temps, je suis certain de pouvoir briser toutes les restrictions d'ici! Par exemple, Frère Xu, il y avait autrefois une ruine céleste à cet endroit! »
 
 Li Yuan pointa du doigt une plaine au loin. Le sol était couvert de mauvaises herbes et d'herbe morte, et le vent qui soufflait sur la plaine produisait un léger bruissement. Peu importe comment on l'observait, l'endroit semblait extrêmement ordinaire.
 
@@ -156,8 +156,8 @@ Du bout de son unique bras, Li Yuan forma des sceaux. Son corps étant désormai
 
 Le ciel s'assombrit et la plaine devant eux sembla se soulever comme le couvercle d'un tableau. Lorsque les restrictions de Li Yuan s'abattirent, la plaine se brisa, révélant les ruines d'une cité.
 
-Une stèle de pierre brisée se dressait devant les décombres, portant trois caractères anciens :
+Une stèle de pierre brisée se dressait devant les décombres, portant trois caractères anciens:
 
-« Palais d'Accueil Céleste ! »
+« Palais d'Accueil Céleste! »
 
-« Les sorts célestes ne peuvent être activés par la simple formule. En utilisant le Cœur de Restriction d'Annihilation de ma famille Li, je peux utiliser des traces de sorts célestes pour les rétro-concevoir. Cette méthode blesse le corps de l'utilisateur, c'est pourquoi ma famille ne l'utilise pas à la légère. Cependant, si Frère Xu a besoin d'aide, je l'aiderai sans hésiter ! »
+« Les sorts célestes ne peuvent être activés par la simple formule. En utilisant le Cœur de Restriction d'Annihilation de ma famille Li, je peux utiliser des traces de sorts célestes pour les rétro-concevoir. Cette méthode blesse le corps de l'utilisateur, c'est pourquoi ma famille ne l'utilise pas à la légère. Cependant, si Frère Xu a besoin d'aide, je l'aiderai sans hésiter! »

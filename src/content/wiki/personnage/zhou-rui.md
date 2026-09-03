@@ -11,22 +11,21 @@ sections: ["{\"heading\":\"Apparence\",\"body\":\"Zhou Rui est une jeune femme j
 
 ## Description
 
-**Zhou Rui** (周蕊, *Zhōu Ruǐ*) est une jeune disciple de la **Secte Heng Yue** admise aux côtés de Wang Lin, Wang Zhou et d'autres, au début du Tome 1 de Renegade Immortal.
+**Zhou Rui** (*Zhōu Ruǐ*) est une jeune disciple de la **Secte Heng Yue** admise aux côtés de Wang Lin, Wang Zhou et d'autres, au début du Tome 1 de Renegade Immortal.
 
 ### Fiche signalétique
 
-- **Nom chinois :** 周蕊
-- **Pinyin :** Zhōu ruǐ
-- **Statut vital :** Décédée (mort naturelle)
-- **Genre :** Femme
-- **Espèce :** Humaine
-- **Cheveux :** Noirs
-- **Yeux :** Bleus
-- **Niveau de cultivation :** Niveau 9 de la Condensation de Qi
-- **Appartenance :** Secte Heng Yue
-- **Planète :** Planète Suzaku
-- **Pays :** Pays de Zhao
-- **Amis :** Wang Lin, Wang Zhuo, Xu Fei
+- **Pinyin:** Zhōu ruǐ
+- **Statut vital:** Décédée (mort naturelle)
+- **Genre:** Femme
+- **Espèce:** Humaine
+- **Cheveux:** Noirs
+- **Yeux:** Bleus
+- **Niveau de cultivation:** Niveau 9 de la Condensation de Qi
+- **Appartenance:** Secte Heng Yue
+- **Planète:** Planète Suzaku
+- **Pays:** Pays de Zhao
+- **Amis:** Wang Lin, Wang Zhuo, Xu Fei
 
 ## Apparence
 

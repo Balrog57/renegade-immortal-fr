@@ -6,23 +6,23 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 547 - Black Armor Barrack
 slug: les-casernes-de-larmure-noire
 ---
-Le Dao d'un cultivateur doit être inébranlable afin de ne pas être facilement affecté par les forces extérieures. C'est cela, un cœur de Dao !
+Le Dao d'un cultivateur doit être inébranlable afin de ne pas être facilement affecté par les forces extérieures. C'est cela, un cœur de Dao!
 
-Emprunter la voie démoniaque, c'est comme traverser un vent glacial qui transperce le corps, attaque le cœur et s'empare de l'âme !
+Emprunter la voie démoniaque, c'est comme traverser un vent glacial qui transperce le corps, attaque le cœur et s'empare de l'âme!
 
-Lorsque les yeux de Wang Lin retrouvèrent leur clarté, une pointe de surprise y perça. Compte tenu de sa cultivation et de la solidité de son cœur de Dao, ce qu'il venait d'éprouver ressemblait à une véritable catastrophe.
+Lorsque les yeux de Wang Lin retrouvèrent leur clarté, une pointe de surprise y perça. Compte tenu de sa culture et de la solidité de son cœur de Dao, ce qu'il venait d'éprouver ressemblait à une véritable catastrophe.
 
-La nostalgie n'est pas effrayante en soi ; ce qui est terrifiant, c'est de s'y perdre totalement et de ne plus parvenir à s'en extirper. En temps normal, une telle chose n'arriverait pas à Wang Lin, mais il venait d'emprunter la voie démoniaque. Bien qu'il l'ait réprimée, des idéaux démoniaques subsistaient en lui, et ils étaient la source de cette nostalgie !
+La nostalgie n'est pas effrayante en soi; ce qui est terrifiant, c'est de s'y perdre totalement et de ne plus parvenir à s'en extirper. En temps normal, une telle chose n'arriverait pas à Wang Lin, mais il venait d'emprunter la voie démoniaque. Bien qu'il l'ait réprimée, des idéaux démoniaques subsistaient en lui, et ils étaient la source de cette nostalgie!
 
 Dans l'Antiquité, les cultivateurs croyaient que les démons envahissaient le corps des mortels. Ils le pensaient car ces démons issus de l'inconnu semblaient fusionnés avec les Cieux, indétectables, et tentaient de prendre possession des cultivateurs en pleine compréhension des lois célestes.
 
-D'un autre côté, cela signifie qu'ils sont partout !
+D'un autre côté, cela signifie qu'ils sont partout!
 
 Le démon extraterritorial pénètre dans le corps, active le feu du Dao du cultivateur pour consumer son âme originelle, s'emparant ainsi de sa vie et détruisant son cœur de Dao. Aux yeux des anciens cultivateurs, ces démons étaient terrifiants. S'ils commettaient une seule erreur en les laissant entrer, ils seraient ruinés à jamais.
 
-À mesure que les anciens cultivateurs s'éteignaient et que l'Alliance de la Cultivation prenait le relais, les récits sur les démons extraterritoriaux disparurent, remplacés par des analyses logiques et des calculs rationnels.
+À mesure que les anciens cultivateurs s'éteignaient et que l'Alliance de la Culture prenait le relais, les récits sur les démons extraterritoriaux disparurent, remplacés par des analyses logiques et des calculs rationnels.
 
-L'Alliance de la Cultivation réfutait l'existence de ces démons. Elle soutenait plutôt qu'il s'agissait d'un idéal démoniaque né au sein du corps même de l'individu. Cet idéal démoniaque, étant en contradiction avec ce que le cultivateur comprend des Cieux, provoquait un déséquilibre. Le Yin et le Yang ne circulaient plus correctement et le cœur de Dao devenait instable, engendrant une illusion qui affectait l'esprit.
+L'Alliance de la Culture réfutait l'existence de ces démons. Elle soutenait plutôt qu'il s'agissait d'un idéal démoniaque né au sein du corps même de l'individu. Cet idéal démoniaque, étant en contradiction avec ce que le cultivateur comprend des Cieux, provoquait un déséquilibre. Le Yin et le Yang ne circulaient plus correctement et le cœur de Dao devenait instable, engendrant une illusion qui affectait l'esprit.
 
 C'est précisément ce qui venait d'arriver à Wang Lin. Son désir irrépressible de retourner sur la planète Suzaku était l'apogée de son idéal démoniaque. Si cela avait persisté, Wang Lin se serait réveillé par lui-même, mais le délai aurait pu être court ou extrêmement long.
 
@@ -42,19 +42,19 @@ La nervosité quitta également Hu Pao. D'un geste de la main, il retira les fra
 
 Les six soldats démoniaques, qui venaient de perdre leur énergie spirituelle, étaient extrêmement affaiblis. Ils affichaient tous des expressions d'incrédulité avant de fixer Wang Lin avec des yeux emplis de terreur.
 
-L'homme au visage sombre se leva et demanda d'un ton grave : « Qui êtes-vous, monsieur ?! »
+L'homme au visage sombre se leva et demanda d'un ton grave: « Qui êtes-vous, monsieur?! »
 
 Wang Lin ramassa le troisième pot qui n'avait pas été ouvert. Sans même accorder un regard à son interlocuteur, il commença à sortir du restaurant. Treize déposa quelques pierres démoniaques sur la table avant de suivre Wang Lin.
 
 Quant à Hu Pao, il eut un ricanement méprisant en observant les soldats démoniaques dans le restaurant, puis suivit Wang Lin.
 
-L'homme au visage sombre frappa violemment la table et hurla : « Arrêtez ! » En faisant cela, il fit un pas en avant et une puissante énergie spirituelle démoniaque se propagea, enveloppant tout le restaurant d'une aura maléfique.
+L'homme au visage sombre frappa violemment la table et hurla: « Arrêtez! » En faisant cela, il fit un pas en avant et une puissante énergie spirituelle démoniaque se propagea, enveloppant tout le restaurant d'une aura maléfique.
 
 Cette énergie se solidifia en lames de sabre qui foncèrent rapidement vers le groupe de Wang Lin.
 
 Wang Lin se retourna, le regard glacial. Il fixa froidement l'adversaire et fit un geste de la main. Une étrange bourrasque de vent apparut, et les épées d'énergie spirituelle démoniaque se dissipèrent instantanément au contact de ce souffle.
 
-« Nous nous reverrons ! » Après avoir lancé cette sentence, Wang Lin quitta le restaurant.
+« Nous nous reverrons! » Après avoir lancé cette sentence, Wang Lin quitta le restaurant.
 
 Les yeux de l'homme au visage sombre se rétrécirent tandis qu'il contemplait Wang Lin, plongé dans ses pensées.
 
@@ -66,25 +66,25 @@ Chaque fois qu'il décelait une trace d'idéal démoniaque, il l'expulsait immé
 
 À cet instant, trois sphères noires flottaient devant lui. Ces petites boules semblables à du coton étaient les idéaux démoniaques qu'il avait extraits de son être.
 
-« Ce serait un gaspillage de détruire cet idéal démoniaque. S'il est utilisé correctement, il peut briser le cœur de Dao de n'importe qui et les prendre au dépourvu ! » Les yeux de Wang Lin brillèrent avant qu'il ne range les trois petites sphères.
+« Ce serait un gaspillage de détruire cet idéal démoniaque. S'il est utilisé correctement, il peut briser le cœur de Dao de n'importe qui et les prendre au dépourvu! » Les yeux de Wang Lin brillèrent avant qu'il ne range les trois petites sphères.
 
 « Les sept jours touchent à leur fin. Le général démon avait dit que quelqu'un m'emmènerait aux casernes... » Alors que Wang Lin réfléchissait, son expression changea et il leva la tête vers la porte.
 
-Peu de temps après, la voix de Treize retentit de l'extérieur : « Ancêtre, quelqu'un souhaite vous voir ! »
+Peu de temps après, la voix de Treize retentit de l'extérieur: « Ancêtre, quelqu'un souhaite vous voir! »
 
-L'expression de Wang Lin resta sereine alors qu'il répondit calmement : « Entrez ! »
+L'expression de Wang Lin resta sereine alors qu'il répondit calmement: « Entrez! »
 
-La porte fut ouverte. Treize et Hu Pao entrèrent accompagnés d'un autre homme. Cet individu, âgé d'une quarantaine d'années, était vêtu de noir et très mince ; dès son entrée dans la pièce, une aura glaciale enveloppa les lieux.
+La porte fut ouverte. Treize et Hu Pao entrèrent accompagnés d'un autre homme. Cet individu, âgé d'une quarantaine d'années, était vêtu de noir et très mince; dès son entrée dans la pièce, une aura glaciale enveloppa les lieux.
 
-Son regard se posa immédiatement sur Wang Lin, assis sur le lit. Après l'avoir examiné, il joignit les mains et dit : « Salutations, Commandant Wang ! »
+Son regard se posa immédiatement sur Wang Lin, assis sur le lit. Après l'avoir examiné, il joignit les mains et dit: « Salutations, Commandant Wang! »
 
 Wang Lin effleura sa sacoche de stockage et un jeton vert apparut rapidement dans sa main. Il lança le jeton en avant.
 
 L'intendant de l'armée rattrapa le jeton, l'examina attentivement, hocha la tête et le lui rendit. Puis, il se mordit la lèvre et traça une forme dans les airs. Rapidement, une formation rouge sang se matérialisa. Elle semblait extrêmement complexe, mais Wang Lin parvint à en déchiffrer une partie.
 
-Wang Lin récupéra le jeton et dit doucement : « Formation de transfert ! »
+Wang Lin récupéra le jeton et dit doucement: « Formation de transfert! »
 
-L'intendant leva les yeux vers Wang Lin et répondit : « Le Commandant Wang est un homme averti ; il s'agit bien d'une formation de transfert. Cependant, elle diffère de celles que vos cultivateurs utilisent ; elle a été créée par l'Empereur Démon pour permettre des transferts de précision absolue. »
+L'intendant leva les yeux vers Wang Lin et répondit: « Le Commandant Wang est un homme averti; il s'agit bien d'une formation de transfert. Cependant, elle diffère de celles que vos cultivateurs utilisent; elle a été créée par l'Empereur Démon pour permettre des transferts de précision absolue. »
 
 Sur ces mots, il fit un pas dans la matrice rouge sang et disparut.
 
@@ -108,9 +108,9 @@ Wang Lin retira sa main droite de l'épaule de Hu Pao et fit un pas en avant. Un
 
 Après cela, Wang Lin observa les environs. Il s'agissait d'une caserne construite en pierre noire, s'étendant sur environ cinquante kilomètres de large. Aux limites de la caserne se dressaient des murs de plusieurs dizaines de pieds de haut. Des fluctuations d'énergie spirituelle démoniaque émanaient de ces murs, signe que des sorts de renforcement les protégeaient.
 
-Wang Lin était apparu au centre des casernes. À trente mètres devant lui, des rangées de soldats démons en armure se tenaient droits. Ils dégageaient tous des filaments d'aura noire, tels des dieux démons !
+Wang Lin était apparu au centre des casernes. À trente mètres devant lui, des rangées de soldats démons en armure se tenaient droits. Ils dégageaient tous des filaments d'aura noire, tels des dieux démons!
 
-Mille soldats démons composaient un régiment ; actuellement, dix régiments entouraient Wang Lin. Une puissante vague d'intention de tuer se propagea instantanément.
+Mille soldats démons composaient un régiment; actuellement, dix régiments entouraient Wang Lin. Une puissante vague d'intention de tuer se propagea instantanément.
 
 L'intention de tuer de dix mille hommes est une chose que les mortels ne peuvent imaginer. D'autant plus que ces soldats démons possédaient tous au moins trente rangs d'énergie spirituelle, et certains dépassaient même les cent rangs.
 

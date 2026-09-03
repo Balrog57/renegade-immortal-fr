@@ -7,7 +7,7 @@ en: Chapter 758 - Relics of Celestials
 slug: vestiges-de-celestes
 ---
 
-Wang Lin observa l'entrée de la seconde vallée ; de l'endroit où il se tenait, elle semblait déserte. Il fit quelques pas en avant et inspecta les environs avec prudence. Puis, sa main droite traça un sceau et une restriction s'en échappa.
+Wang Lin observa l'entrée de la seconde vallée; de l'endroit où il se tenait, elle semblait déserte. Il fit quelques pas en avant et inspecta les environs avec prudence. Puis, sa main droite traça un sceau et une restriction s'en échappa.
 
 Cette restriction se divisa en quatorze fragments dans les airs et fonça vers la vallée. Les yeux de Wang Lin brillèrent alors qu'il regardait ces restrictions pénétrer dans la gorge et disparaître silencieusement, comme si elles avaient été englouties. Il n'y eut aucune ondulation.
 
@@ -19,7 +19,7 @@ Dès que les fleurs de prunier touchèrent l'écran lumineux, une ombre démonia
 
 Les yeux de Wang Lin s'illuminèrent et il recula aussitôt. D'une simple pensée, les fleurs de prunier se retirèrent avec lui. L'ombre démoniaque sembla hésiter avant de poursuivre les restrictions.
 
-À cet instant, l'écran lumineux à l'entrée s'amincit et l'ombre démoniaque s'étira. Wang Lin ressentit une piqûre entre ses sourcils : c'était le signe que son troisième œil avait atteint sa limite.
+À cet instant, l'écran lumineux à l'entrée s'amincit et l'ombre démoniaque s'étira. Wang Lin ressentit une piqûre entre ses sourcils: c'était le signe que son troisième œil avait atteint sa limite.
 
 Il chargea sans la moindre hésitation. Il se déplaça avec une vélocité fulgurante, dépassant l'ombre démoniaque en un instant pour arriver directement devant l'écran lumineux qui s'amincissait. Au moment où il le toucha, Wang Lin leva son doigt et y concentra l'énergie de l'épée de Ling Tianhou. Sans la libérer, il la maintint concentrée au bout de son doigt et pressa l'écran lumineux.
 
@@ -33,43 +33,43 @@ La terre de la vallée était brune et d'innombrables squelettes recouvraient le
 
 D'étranges insectes perçaient certains des ossements. C'était comme s'ils les rongeaient, produisant une vague de craquements sinistres.
 
-Au centre de la vallée, huit courtes épées étaient plantées dans le sol. Leur apparence et leur aura étaient rigoureusement identiques à celles vues précédemment. Il était évident qu'elles appartenaient au même ensemble !
+Au centre de la vallée, huit courtes épées étaient plantées dans le sol. Leur apparence et leur aura étaient rigoureusement identiques à celles vues précédemment. Il était évident qu'elles appartenaient au même ensemble!
 
 Entre ces huit épées se trouvait le crâne colossal d'une bête. Quatre féroces pointes osseuses s'en détachaient, dégageant une aura lugubre.
 
 Wang Lin ne perdit pas de temps et chargea vers le crâne de la bête. À cet instant, les huit courtes épées libérèrent aussitôt leur énergie de lame et foncèrent sur lui.
 
-Devant Wang Lin se dressaient les rayons d'énergie de l'épée, et derrière lui, l'ombre démoniaque. En cette situation critique, Wang Lin ne paniqua pas ; son regard resta calme. Alors que l'énergie approchait, il pointa son doigt vers l'avant.
+Devant Wang Lin se dressaient les rayons d'énergie de l'épée, et derrière lui, l'ombre démoniaque. En cette situation critique, Wang Lin ne paniqua pas; son regard resta calme. Alors que l'énergie approchait, il pointa son doigt vers l'avant.
 
-Sort de l'Arrêt !
+Sort de l'Arrêt!
 
-Ce sort n'arrêtait pas seulement les êtres vivants !
+Ce sort n'arrêtait pas seulement les êtres vivants!
 
-Ces épées n'étaient pas des objets ordinaires, mais le sort de l'Arrêt ne l'était pas non plus. Bien que la cultivation de Wang Lin ne lui permette pas de les immobiliser longtemps, il parvint à les stopper un instant.
+Ces épées n'étaient pas des objets ordinaires, mais le sort de l'Arrêt ne l'était pas non plus. Bien que la culture de Wang Lin ne lui permette pas de les immobiliser longtemps, il parvint à les stopper un instant.
 
 Dès qu'il eut stoppé les lames, Wang Lin chargea directement vers l'os de la bête. L'ombre démoniaque invisible le poursuivit immédiatement. Bien qu'il ne puisse la voir, il sentait une aura glaciale l'envelopper.
 
-Il attendait ce moment ! Puisqu'il ne pouvait maintenir son troisième œil et que son sens divin ne parvenait pas à localiser l'ombre, le moment idéal pour s'en défaire était précisément celui où elle tenterait de le dévorer.
+Il attendait ce moment! Puisqu'il ne pouvait maintenir son troisième œil et que son sens divin ne parvenait pas à localiser l'ombre, le moment idéal pour s'en défaire était précisément celui où elle tenterait de le dévorer.
 
 Wang Lin ne se retourna pas, mais l'ombre d'un fouet flotta entre ses sourcils. Le Fouet du Karma apparut devant lui et cingla le vide, provoquant un gémissement étouffé dans le néant.
 
-Simultanément, Wang Lin sentit l'aura glaciale se dissiper autour de lui. Il ne s'interrompit pas ; tout s'enchaîna avec la fluidité de l'eau courante. Sa main traça un sceau et l'apposa sur l'os de la bête avant de le saisir pour le ranger dans son sac.
+Simultanément, Wang Lin sentit l'aura glaciale se dissiper autour de lui. Il ne s'interrompit pas; tout s'enchaîna avec la fluidité de l'eau courante. Sa main traça un sceau et l'apposa sur l'os de la bête avant de le saisir pour le ranger dans son sac.
 
 Tout cela fut accompli en un éclair. À cet instant, les huit courtes épées retrouvèrent leur liberté et sifflèrent à la poursuite de Wang Lin.
 
-La vallée n'était pas vaste et il ne pouvait pas voler très haut. Dans un espace aussi restreint, Wang Lin dut faire preuve d'une grande agilité pour esquiver les lames. L'ombre démoniaque invisible semblait douée d'intelligence et avait dissimulé son aura froide ; elle ne se manifestait que lorsqu'elle s'apprêtait à le dévorer, manquant de peu de l'engloutir. De plus, elle bloquait la sortie, l'empêchant de fuir.
+La vallée n'était pas vaste et il ne pouvait pas voler très haut. Dans un espace aussi restreint, Wang Lin dut faire preuve d'une grande agilité pour esquiver les lames. L'ombre démoniaque invisible semblait douée d'intelligence et avait dissimulé son aura froide; elle ne se manifestait que lorsqu'elle s'apprêtait à le dévorer, manquant de peu de l'engloutir. De plus, elle bloquait la sortie, l'empêchant de fuir.
 
 Le regard de Wang Lin devint glacial. Les courtes épées derrière lui se dispersèrent pour fondre sur lui de huit directions différentes. L'énergie qu'elles dégageaient était imprégnée d'énergie spirituelle céleste.
 
 Elles s'entrelacèrent pour former une formation d'épées chargée d'une intention meurtrière.
 
-Si cela s'était arrêté là, le problème n'aurait pas été si grand ; il aurait pu finir par trouver une issue avec du temps. Cependant, au moment où il ramassa l'os de la bête, une brume verte commença à s'échapper des innombrables squelettes qui jonchaient le sol. Cette brume prit diverses formes d'ombres qui chargèrent vers lui.
+Si cela s'était arrêté là, le problème n'aurait pas été si grand; il aurait pu finir par trouver une issue avec du temps. Cependant, au moment où il ramassa l'os de la bête, une brume verte commença à s'échapper des innombrables squelettes qui jonchaient le sol. Cette brume prit diverses formes d'ombres qui chargèrent vers lui.
 
 En plus de la brume, les insectes qui rongeaient les os semblèrent être stimulés et se précipitèrent également sur Wang Lin.
 
-Le cuir chevelu de Wang Lin s'engourdit. À cet instant, il semblait n'y avoir aucune issue, car toute la vallée était scellée ! Ses yeux brillèrent d'une lueur féroce.
+Le cuir chevelu de Wang Lin s'engourdit. À cet instant, il semblait n'y avoir aucune issue, car toute la vallée était scellée! Ses yeux brillèrent d'une lueur féroce.
 
-« Rien ici n'a été formé naturellement ; tout a été apporté de l'extérieur. Cela signifie que cette montagne n'a pas de fondation ! » Wang Lin se déporta sur le côté pour éviter les épées, la brume verte et les insectes, tout en se rapprochant de la paroi de la montagne.
+« Rien ici n'a été formé naturellement; tout a été apporté de l'extérieur. Cela signifie que cette montagne n'a pas de fondation! » Wang Lin se déporta sur le côté pour éviter les épées, la brume verte et les insectes, tout en se rapprochant de la paroi de la montagne.
 
 Il poussa un rugissement et, sa main droite imprégnée de toute l'énergie spirituelle céleste et du tonnerre contenus dans son corps, il frappa violemment le sol. Une explosion assourdissante résonna soudainement dans toute la vallée.
 
@@ -77,11 +77,11 @@ D'énormes pans de la montagne s'effondrèrent, soulevant des nuages de poussiè
 
 Le garde céleste aux côtés de Li Yuan était lié à Wang Lin. Il fit un pas de côté et frappa la montagne sans hésiter. Un autre grondement retentit.
 
-Li Yuan prit une grande inspiration. Il devina vaguement l'intention de Wang Lin et son cœur se mit à battre la chamade. Il esquissa un sourire amer, pensant que les idées de ce compagnon de cultivation étaient parfois bien trop audacieuses.
+Li Yuan prit une grande inspiration. Il devina vaguement l'intention de Wang Lin et son cœur se mit à battre la chamade. Il esquissa un sourire amer, pensant que les idées de ce compagnon de culture étaient parfois bien trop audacieuses.
 
 Si Wang Lin avait été seul, il aurait pu secouer la montagne, mais pas la briser. Cependant, le garde céleste était différent. Son corps était d'une robustesse extrême et, après ce coup, les tremblements de la montagne s'intensifièrent.
 
-Dans la vallée, les yeux de Wang Lin étaient injectés de sang alors qu'il agrippait la paroi pour la soulever. Parallèlement, le garde céleste subissait une pression accrue. Il enfonça ses mains dans la roche et souleva la montagne de plusieurs mètres !
+Dans la vallée, les yeux de Wang Lin étaient injectés de sang alors qu'il agrippait la paroi pour la soulever. Parallèlement, le garde céleste subissait une pression accrue. Il enfonça ses mains dans la roche et souleva la montagne de plusieurs mètres!
 
 Le grondement fit vibrer toute la vallée et même l'espace de stockage commença à trembler. Le garde céleste souleva la montagne et se glissa dessous. Son corps émit un éclat doré tandis qu'il portait entièrement la masse sur son dos.
 
@@ -95,11 +95,11 @@ La terre trembla, l'espace de stockage sembla sur le point de s'effondrer et de 
 
 La montagne tomba du ciel pour s'écraser précisément là où se trouvaient les failles, les pulvérisant totalement. Wang Lin profita de cette opportunité pour s'extirper de la vallée.
 
-Même l'ombre démoniaque invisible disparut sans laisser de trace ; nul ne savait où elle s'était volatilisée.
+Même l'ombre démoniaque invisible disparut sans laisser de trace; nul ne savait où elle s'était volatilisée.
 
 Wang Lin haletait après avoir quitté la vallée et regarda devant lui. Il vit que la troisième vallée était également affectée. À cet instant, d'innombrables éclairs de lumière de restriction jaillissaient de celle-ci. Il était évident que la chute de la montagne avait provoqué l'effondrement de nombreuses barrières.
 
-« Je crains que le Céleste qui possédait cet espace de stockage n'ait jamais imaginé que quelqu'un secouerait la montagne pour briser les restrictions ! » Wang Lin réajusta sa posture avant de se précipiter vers la troisième vallée. Son objectif était l'armure en cuir de l'Ancien Dieu. Puisque les deux premières vallées ne l'avaient pas contenue, il y avait de fortes chances qu'elle se trouve ici.
+« Je crains que le Céleste qui possédait cet espace de stockage n'ait jamais imaginé que quelqu'un secouerait la montagne pour briser les restrictions! » Wang Lin réajusta sa posture avant de se précipiter vers la troisième vallée. Son objectif était l'armure en cuir de l'Ancien Dieu. Puisque les deux premières vallées ne l'avaient pas contenue, il y avait de fortes chances qu'elle se trouve ici.
 
 Li Yuan prit une grande inspiration et le choc dans son regard s'apaisa peu à peu. Il poursuivit Wang Lin avec un sourire amer.
 
@@ -109,9 +109,9 @@ Wang Lin et Li Yuan chargèrent tour à tour vers la troisième vallée. Ils se 
 
 Le lieu était gravement endommagé. L'ouverture, initialement étroite, avait été forcée. D'innombrables éclairs de restriction scintillaient sans relâche. D'un coup d'œil, Wang Lin put distinguer un temple à l'intérieur de la vallée.
 
-Ce temple n'était pas vaste, mais il était très délabré ; la porte avait même disparu. Deux squelettes reposaient à l'intérieur, et l'un d'eux portait l'armure en cuir de l'Ancien Dieu !
+Ce temple n'était pas vaste, mais il était très délabré; la porte avait même disparu. Deux squelettes reposaient à l'intérieur, et l'un d'eux portait l'armure en cuir de l'Ancien Dieu!
 
-Quant au second squelette, il ne portait rien, mais une lueur dorée émanait de sa main droite, laquelle avait transpercé le crâne du premier. Le crâne était criblé de fissures ; il était évident qu'il avait été broyé par cette saisie.
+Quant au second squelette, il ne portait rien, mais une lueur dorée émanait de sa main droite, laquelle avait transpercé le crâne du premier. Le crâne était criblé de fissures; il était évident qu'il avait été broyé par cette saisie.
 
 Bien qu'il n'ait pas assisté au combat, la simple vue de ces restes permettait d'imaginer l'âpreté de la lutte qui venait de s'y dérouler.
 
@@ -121,7 +121,7 @@ En y regardant de plus près, l'armure était très brute et dégageait une aura
 
 Li Yuan avança jusqu'au second squelette. Il fixa les doigts dorés du défunt. Puis, prenant une profonde inspiration, il s'accroupit et brisa les doigts un par un.
 
-Lorsqu'il releva la tête, il jeta un regard vers le temple sans porte et ses pupilles se contractèrent instantanément. Il cria : « Frère Xu, regarde ! »
+Lorsqu'il releva la tête, il jeta un regard vers le temple sans porte et ses pupilles se contractèrent instantanément. Il cria: « Frère Xu, regarde! »
 
 Wang Lin leva les yeux, fit quelques pas en avant et scruta l'intérieur du temple. Malgré sa force mentale, il ne put s'empêcher de prendre une inspiration glacée. Il inspecta les lieux pour s'assurer de leur sécurité avant d'entrer.
 
@@ -129,7 +129,7 @@ Li Yuan, aux côtés de Wang Lin, pénétra également dans le temple.
 
 L'édifice était divisé en deux niveaux. Le premier étage, dépourvu de zone de culte, était totalement vide, si ce n'est quelques peintures murales accrochées aux murs.
 
-Il y avait au total neuf fresques. En les parcourant une à une, les yeux de Li Yuan s'emplirent d'une lueur étrange. Il marmonna : « Ceci... Quel genre de sort est-ce ? Comment un être peut-il être aussi immense... Ces histoires sont peut-être des légendes... »
+Il y avait au total neuf fresques. En les parcourant une à une, les yeux de Li Yuan s'emplirent d'une lueur étrange. Il marmonna: « Ceci... Quel genre de sort est-ce? Comment un être peut-il être aussi immense... Ces histoires sont peut-être des légendes... »
 
 Les peintures représentaient clairement un géant colossal arborant huit étoiles sur le front. Il était entouré d'innombrables Célestes armés de divers trésors qui l'attaquaient avec acharnement.
 
@@ -147,11 +147,11 @@ Non loin de la table se trouvait un encensoir, mais il ne contenait plus que de 
 
 Wang Lin s'approcha de la table et vit qu'une feuille était maintenue par un presse-papier. Ce dernier dégageait des ondes d'énergie spirituelle céleste, prouvant son caractère extraordinaire. Cependant, Wang Lin ne s'attarda pas sur l'objet, mais se concentra sur le texte.
 
-« La 16e année de la 27e ère du Royaume Céleste. La première guerre entre l'Ordre Ancien et le Royaume Céleste s'est achevée par une victoire ! Mon trésor magique a été brisé et doit être raffiné ici. Cependant, en récompense de mes exploits, on m'a offert un fragment de sa peau, dont j'ai fait une armure de cuir...»
+« La 16e année de la 27e ère du Royaume Céleste. La première guerre entre l'Ordre Ancien et le Royaume Céleste s'est achevée par une victoire! Mon trésor magique a été brisé et doit être raffiné ici. Cependant, en récompense de mes exploits, on m'a offert un fragment de sa peau, dont j'ai fait une armure de cuir...
 
-« La 19e année de la 27e ère du Royaume Céleste. Un changement terrifiant s'est produit ! L'Empereur Céleste a perdu la raison et est mort en pointant le ciel du doigt... J'ai personnellement été témoin de tout, de cette scène qui n'aurait jamais dû exister lors de la mort de l'Empereur Céleste...»
+« La 19e année de la 27e ère du Royaume Céleste. Un changement terrifiant s'est produit! L'Empereur Céleste a perdu la raison et est mort en pointant le ciel du doigt... J'ai personnellement été témoin de tout, de cette scène qui n'aurait jamais dû exister lors de la mort de l'Empereur Céleste...
 
-« Depuis que je suis devenu un Céleste, je n'ai jamais tremblé, même face à un Ancien Dieu. Pourtant, à cet instant, j'ai été saisi par la crainte et l'effroi. J'ai vu... ce qui ne devrait jamais être vu...»
+« Depuis que je suis devenu un Céleste, je n'ai jamais tremblé, même face à un Ancien Dieu. Pourtant, à cet instant, j'ai été saisi par la crainte et l'effroi. J'ai vu... ce qui ne devrait jamais être vu...
 
 « Alors que la plupart des Célestes combattaient, j'ai fui, mais une paire d'yeux me suivait... Je devais peindre ce que j'avais vu... »
 

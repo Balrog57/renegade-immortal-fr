@@ -6,9 +6,9 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1861 - Heart of the Night
 slug: cur-de-la-nuit
 ---
-Le vieil homme nommé Zhou n'avait jamais considéré Wang Lin comme digne de respect. Bien que Wang Lin fût un Ancien, son niveau de cultivation était trop faible. Il supposait qu'il avait utilisé des relations pour obtenir ce statut.
+Le vieil homme nommé Zhou n'avait jamais considéré Wang Lin comme digne de respect. Bien que Wang Lin fût un Ancien, son niveau de culture était trop faible. Il supposait qu'il avait utilisé des relations pour obtenir ce statut.
 
-Ce genre de situation n'était pas rare dans les sectes à travers le Continent Astral Immortel. Beaucoup de personnes aux faibles niveaux de cultivation occupaient la position d'Ancien ; elles n'étaient pas valorisées par la secte et ne servaient qu'à faire bonne figure.
+Ce genre de situation n'était pas rare dans les sectes à travers le Continent Astral Immortel. Beaucoup de personnes aux faibles niveaux de culture occupaient la position d'Ancien; elles n'étaient pas valorisées par la secte et ne servaient qu'à faire bonne figure.
 
 Une fois que ce genre de personne entrait sur le champ de bataille, elle révélait sa véritable nature. Le vieil homme nommé Zhou méprisait ces individus. Bien que son expression ne le montre pas, ses paroles froides le trahissaient.
 
@@ -20,11 +20,11 @@ Ses paroles cinglantes pénétrèrent dans la grotte et atteignirent les oreille
 
 Sa silhouette, dissimulée dans l'obscurité, semblait s'y être fondue. Même ses cheveux blancs paraissaient avoir été teintés par les ténèbres.
 
-« Ancien Wang, n'avez-vous pas entendu les paroles de ce vieil homme ? » Le vieil homme nommé Zhou fronça les sourcils. Il se tenait devant la grotte depuis plus de dix respirations, mais à l'intérieur, Wang Lin agissait comme s'il était mort et ne répondait nullement.
+« Ancien Wang, n'avez-vous pas entendu les paroles de ce vieil homme? » Le vieil homme nommé Zhou fronça les sourcils. Il se tenait devant la grotte depuis plus de dix respirations, mais à l'intérieur, Wang Lin agissait comme s'il était mort et ne répondait nullement.
 
 Cette attitude hautaine lui inspirait un profond dégoût. N'attendant pas la réponse de Wang Lin, il agita sa manche d'un geste brusque. Un grondement retentit tandis que des fissures se propageaient sur toute la porte de la grotte.
 
-Dans un fracas assourdissant, la porte s'effondra !
+Dans un fracas assourdissant, la porte s'effondra!
 
 Tous ceux que le vieil homme nommé Zhou avait appelés pour la patrouille étaient sortis pour l'accueillir poliment. En voyant l'indifférence de Wang Lin, ils étaient naturellement mécontents.
 
@@ -32,15 +32,15 @@ Alors que la porte s'écroulait, le vieil homme entra d'un reniflement méprisan
 
 Ce regard fit rater un battement au cœur du vieil homme nommé Zhou, et la sueur couvrit son corps. Il eut l'impression d'être observé par Lu Wenran lui-même. Cette sensation accéléra brutalement sa circulation sanguine.
 
-« Qui t'a donné le droit de détruire ma demeure ? » demanda Wang Lin calmement, sans montrer ni colère ni joie. Tout en parlant, il se leva et marcha vers le vieil homme.
+« Qui t'a donné le droit de détruire ma demeure? » demanda Wang Lin calmement, sans montrer ni colère ni joie. Tout en parlant, il se leva et marcha vers le vieil homme.
 
 Le cœur du vieil homme nommé Zhou manqua un battement. Dès qu'il avait pénétré dans la grotte, il avait eu le sentiment de ne pas faire face à un cultivateur, mais à une bête primordiale venant de s'éveiller. Non seulement son corps tremblait, mais son âme originelle vacillait également.
 
 Ce n'était qu'une sensation, mais elle lui inspirait une terreur pure et réelle.
 
-À mesure que Wang Lin se rapprochait, le visage du vieil homme devint livide. Ses pieds reculèrent par instinct et, en quelques enjambées, il s'échappa de la grotte. Il était trempé de sueur ; après avoir reculé, ses vêtements étaient totalement imbibés.
+À mesure que Wang Lin se rapprochait, le visage du vieil homme devint livide. Ses pieds reculèrent par instinct et, en quelques enjambées, il s'échappa de la grotte. Il était trempé de sueur; après avoir reculé, ses vêtements étaient totalement imbibés.
 
-Les pupilles du vieil homme se rétractèrent et il s'écria : « Wang... Ancien Wang, vous... Que comptez-vous faire ?! »
+Les pupilles du vieil homme se rétractèrent et il s'écria: « Wang... Ancien Wang, vous... Que comptez-vous faire?! »
 
 Wang Lin ne répondit pas et continua d'avancer. Sa silhouette émergea lentement de l'obscurité, ses cheveux blancs révélant une teinte d'une blancheur osseuse alors qu'il sortait des ténèbres. Le cœur du vieil homme nommé Zhou s'emballa davantage encore.
 
@@ -60,13 +60,13 @@ Au moment où Wang Lin tourna la tête, Lu Wenran sembla percevoir quelque chose
 
 Le vieil homme nommé Zhou n'osait plus respirer. Bien que la pression se fût dissipée, le sentiment de terreur restait gravé en lui.
 
-« Cette personne n'a certainement pas utilisé ses relations pour devenir un Ancien de la Grande Secte de l'Âme ! Sa cultivation... est tout simplement terrifiante ! » Le vieil homme était pâle. Quand Wang Lin l'avait regardé, c'était comme si une épée faite d'intention meurtrière lui avait été pointée sur le front. C'était une vision qu'il n'oublierait jamais.
+« Cette personne n'a certainement pas utilisé ses relations pour devenir un Ancien de la Grande Secte de l'Âme! Sa culture... est tout simplement terrifiante! » Le vieil homme était pâle. Quand Wang Lin l'avait regardé, c'était comme si une épée faite d'intention meurtrière lui avait été pointée sur le front. C'était une vision qu'il n'oublierait jamais.
 
 Il fut envahi par un regret infini. Il n'aurait jamais dû écouter les paroles de Lu Wenran et provoquer un être aussi redoutable.
 
 Quelques secondes plus tard, le regard de Wang Lin se détourna du palais. D'un geste calme, il agita sa manche et passa devant le vieil homme nommé Zhou. En passant, sa main droite tapota négligemment l'épaule de l'homme.
 
-« Ceux qui détruisent ma demeure mourront ! Puisque c'est votre première offense et que vous avez été instigué par autrui, vous échapperez à la mort, mais pas au châtiment ! Demain, à mon retour, je veux voir la porte de cette grotte réparée. » Wang Lin continua sa marche et disparut sans laisser de trace.
+« Ceux qui détruisent ma demeure mourront! Puisque c'est votre première offense et que vous avez été instigué par autrui, vous échapperez à la mort, mais pas au châtiment! Demain, à mon retour, je veux voir la porte de cette grotte réparée. » Wang Lin continua sa marche et disparut sans laisser de trace.
 
 Wang Lin n'avait pas refusé la patrouille. Puisque Lu Wenran lui avait assignée, il savait que s'il refusait une fois, les missions se multiplieraient.
 
@@ -74,7 +74,7 @@ Après le départ de Wang Lin, le vieil homme nommé Zhou trembla et cracha une 
 
 Sans hésiter, il s'élança pour trouver des matériaux afin de réparer la grotte avant le retour de Wang Lin. Il n'osait même pas envisager de ne pas le faire.
 
-Cependant, alors qu'il était sur le point de partir, une voix douce résonna à ses oreilles : « Cher cultivateur Zhou, venez ici un instant. » Cela le cloua sur place, l'expression amère.
+Cependant, alors qu'il était sur le point de partir, une voix douce résonna à ses oreilles: « Cher cultivateur Zhou, venez ici un instant. » Cela le cloua sur place, l'expression amère.
 
 Cette voix appartenait à Lu Wenran.
 
@@ -84,7 +84,7 @@ La silhouette de Wang Lin flottait au-dessus du sol, montant vers la prairie. Bi
 
 La clarté de la lune était intense, nappant la prairie d'un éclat argenté en ce début de nuit. Pourtant, dès que Wang Lin apparut, la lumière faiblit et se cacha derrière des couches de nuages sombres, plongeant la terre dans l'obscurité.
 
-Wang Lin marchait silencieusement sur la prairie ; on entendait le bruissement de l'herbe, un son d'une clarté extrême par cette nuit calme.
+Wang Lin marchait silencieusement sur la prairie; on entendait le bruissement de l'herbe, un son d'une clarté extrême par cette nuit calme.
 
 Le temps passa lentement. Bientôt, les nuages occultèrent toute lumière et le monde entier fut enveloppé de ténèbres. La silhouette de Wang Lin se fondit à nouveau dans l'obscurité, devenant indistincte.
 
@@ -114,7 +114,7 @@ Le cœur de chaque être contient une boîte. Cette boîte renferme le souvenir 
 
 Certains perdent cette boîte en même temps qu'eux-mêmes et ne peuvent plus la retrouver.
 
-D'autres verrouillent la boîte et avalent le ciel tout entier ; ils refusent de l'ouvrir et n'autorisent personne à la toucher.
+D'autres verrouillent la boîte et avalent le ciel tout entier; ils refusent de l'ouvrir et n'autorisent personne à la toucher.
 
 Certains tiennent toujours cette boîte entre leurs mains, se répétant sans cesse de ne pas oublier.
 

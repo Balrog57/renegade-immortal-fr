@@ -26,7 +26,7 @@ Comparé à l'époque où il l'avait quitté, certains lieux lui étaient famili
 
 Après avoir observé les alentours, Wang Lin agita la main droite. Trois rayons de lumière jaillirent, révélant trois silhouettes devant lui.
 
-C'étaient Xu Liguo, Liu Jinbiao et le seul disciple à avoir suivi Wang Lin dans le monde des grottes : Treize.
+C'étaient Xu Liguo, Liu Jinbiao et le seul disciple à avoir suivi Wang Lin dans le monde des grottes: Treize.
 
 Treize n'était pas un être ordinaire. En voyant la brume rouge, il fut un instant déconcerté, mais se reprit rapidement. Il s'inclina devant Wang Lin et resta silencieusement à ses côtés.
 
@@ -36,9 +36,9 @@ Pour lui, que ce soit sur le Continent Astral Immortel ou dans le monde des grot
 
 C'était comme le sentiment d'un homme rentrant dans sa ville natale après avoir voyagé dans de grandes cités.
 
-Il était clairement écrit sur leurs visages : « Regardez, je suis allé sur le Continent Astral Immortel ! Là-bas, c'est moi le patron. »
+Il était clairement écrit sur leurs visages: « Regardez, je suis allé sur le Continent Astral Immortel! Là-bas, c'est moi le patron. »
 
-Wang Lin leva les yeux vers le ciel et dit : « Nous sommes de retour à la maison, faites ce que vous voulez. Je vais aller saluer de vieux amis. » Puis, d'un seul pas, il s'élança dans les airs.
+Wang Lin leva les yeux vers le ciel et dit: « Nous sommes de retour à la maison, faites ce que vous voulez. Je vais aller saluer de vieux amis. » Puis, d'un seul pas, il s'élança dans les airs.
 
 En pénétrant dans le Royaume Céleste, Wang Lin avait déjà balayé les environs de son Sens Divin. Il vit énormément de choses, et Mu Bingmei fut l'une d'entre elles.
 
@@ -78,7 +78,7 @@ Dans cette averse, la silhouette de Wang Lin paraissait si singulière qu'elle l
 
 Wang Lin regarda la belle femme et esquissa un sourire tendre. Il soupira en s'approchant d'elle, et ensemble, ils contemplèrent le ciel rouge sang.
 
-Wang Lin dit doucement : « Après avoir quitté le monde des grottes, alors que j'étais sur le Continent Astral Immortel, il y avait quelque chose que je voulais te dire. Maintenant que je suis de retour, il y a quelqu'un pour m'écouter. »
+Wang Lin dit doucement: « Après avoir quitté le monde des grottes, alors que j'étais sur le Continent Astral Immortel, il y avait quelque chose que je voulais te dire. Maintenant que je suis de retour, il y a quelqu'un pour m'écouter. »
 
 Mu Bingmei hocha la tête. Son cœur battait la chamade. Elle peinait encore à réaliser et ne savait quels mots employer.
 
@@ -90,7 +90,7 @@ Sa main droite serrait l'épée tandis que sa main gauche agrippait inconsciemme
 
 « Liu Mei... » Wang Lin détourna les yeux du ciel sanglant pour s'adresser doucement à Mu Bingmei.
 
-« Ne le dis pas, je ne veux pas l'entendre ! » Le corps de Mu Bingmei trembla et elle pâlit instantanément. L'épée lui échappa des mains alors qu'elle reculait. À cet instant, elle paraissait si impuissante et fragile, comme si une simple bourrasque pouvait l'emporter.
+« Ne le dis pas, je ne veux pas l'entendre! » Le corps de Mu Bingmei trembla et elle pâlit instantanément. L'épée lui échappa des mains alors qu'elle reculait. À cet instant, elle paraissait si impuissante et fragile, comme si une simple bourrasque pouvait l'emporter.
 
 Son visage exprimait une tristesse profonde et, mêlées aux larmes, une fragilité à couper le souffle.
 
@@ -100,15 +100,15 @@ Wang Lin observa Mu Bingmei, son apparence si frêle et la confusion dans son re
 
 « Outre retrouver de vieux amis, je suis revenu cette fois pour régler ce qui nous lie. J'ai trouvé un moyen de ressusciter Wang Er, et une fois que je serai parti, je le ferai. »
 
-Les larmes inondèrent les yeux de Mu Bingmei. Avec toute son intelligence, comment ne pas comprendre la portée de ses paroles ? Son visage pâle se crispa dans une expression amère.
+Les larmes inondèrent les yeux de Mu Bingmei. Avec toute son intelligence, comment ne pas comprendre la portée de ses paroles? Son visage pâle se crispa dans une expression amère.
 
 « Liu Mei, laisse le passé derrière nous... Je suis aussi responsable de l'erreur commise autrefois... Laissons nos souvenirs à la poussière... Tu m'as dit que tu voulais voir Wang Ping... »
 
-Wang Lin baissa les yeux vers elle et murmura : « Je suis revenu pour apaiser ton cœur. Wang Ping a besoin d'une mère. Je vais utiliser mon Dao du Rêve, afin que toi, moi et Ping Er, nous complétions un cycle de réincarnation jusqu'au bout... Cela permettra à Ping Er de voir sa mère, te permettra de ne plus avoir de regrets, et me permettra... de n'en avoir aucun non plus. »
+Wang Lin baissa les yeux vers elle et murmura: « Je suis revenu pour apaiser ton cœur. Wang Ping a besoin d'une mère. Je vais utiliser mon Dao du Rêve, afin que toi, moi et Ping Er, nous complétions un cycle de réincarnation jusqu'au bout... Cela permettra à Ping Er de voir sa mère, te permettra de ne plus avoir de regrets, et me permettra... de n'en avoir aucun non plus. »
 
 Mu Bingmei resta silencieuse, plongée dans ses pensées. Après un long moment, elle essuya ses larmes et regarda Wang Lin d'un regard complexe avant de hocher la tête.
 
-« Tu m'accompagneras durant une vie entière, cent ans, dans le monde des rêves pour tout résoudre... Alors, maintenant, tu es mon mari, n'est-ce pas ? » murmura-t-elle.
+« Tu m'accompagneras durant une vie entière, cent ans, dans le monde des rêves pour tout résoudre... Alors, maintenant, tu es mon mari, n'est-ce pas? » murmura-t-elle.
 
 Wang Lin ferma les yeux. Lorsqu'il les rouvrit, il hocha la tête.
 

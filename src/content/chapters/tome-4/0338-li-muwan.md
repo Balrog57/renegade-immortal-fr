@@ -18,7 +18,7 @@ Elle ignorait si ce qu'elle ressentait pour lui était le véritable amour, mais
 
 Wang Lin prit la main de Li Muwan avec un sourire empreint de douceur, bien que son cœur semble se déchirer.
 
-Li Muwan détourna le regard vers la fenêtre et murmura : « Wang Lin, j'ai fait un rêve la nuit dernière. J'ai vu mon grand frère me sourire, et derrière lui se tenaient deux anciens. Ils ressemblaient à mes parents... »
+Li Muwan détourna le regard vers la fenêtre et murmura: « Wang Lin, j'ai fait un rêve la nuit dernière. J'ai vu mon grand frère me sourire, et derrière lui se tenaient deux anciens. Ils ressemblaient à mes parents... »
 
 Les parents de Li Muwan étaient morts lorsqu'elle était très jeune. C'était son grand frère qui l'avait élevée.
 
@@ -40,7 +40,7 @@ Le corps de Li Muwan était devenu encore plus affaibli, et son âme était sur 
 
 Ce jour-là, Ouyang Zi arriva, tenant une pilule d'un rouge éclatant. Une pointe d'excitation qu'il ne pouvait cacher brillait dans ses yeux lorsqu'il la remit à Wang Lin.
 
-« Moi, Ouyang Zi, j'ai réussi à confectionner une pilule de rang 6 ! » Aussitôt ses paroles prononcées, son regard s'éteignit et il s'effondra.
+« Moi, Ouyang Zi, j'ai réussi à confectionner une pilule de rang 6! » Aussitôt ses paroles prononcées, son regard s'éteignit et il s'effondra.
 
 Il n'était pas mort, mais il était épuisé.
 
@@ -58,11 +58,11 @@ Wang Lin effleura doucement le visage de Li Muwan et glissa lentement la pilule 
 
 En un instant, une quantité infinie d'énergie spirituelle jaillit de tout Chu pour pénétrer dans le corps de Li Muwan.
 
-La demeure de pierre ne put supporter cette puissante énergie spirituelle ; des fissures commencèrent à se propager partout. Sous l'effet d'un souffle de vent, la maison de pierre se changea en poussière et disparut.
+La demeure de pierre ne put supporter cette puissante énergie spirituelle; des fissures commencèrent à se propager partout. Sous l'effet d'un souffle de vent, la maison de pierre se changea en poussière et disparut.
 
-Lu Fei et Tie Yan furent tirés de leur cultivation. Leurs expressions changèrent instantanément. À cet instant, le corps d'Ouyang Zi fut repoussé par une force douce et déposé devant eux.
+Lu Fei et Tie Yan furent tirés de leur culture. Leurs expressions changèrent instantanément. À cet instant, le corps d'Ouyang Zi fut repoussé par une force douce et déposé devant eux.
 
-La voix de Wang Lin parvint jusqu'à eux : « Prenez Ouyang Zi et attendez-moi dans la Secte du Ciel Nuageux ! »
+La voix de Wang Lin parvint jusqu'à eux: « Prenez Ouyang Zi et attendez-moi dans la Secte du Ciel Nuageux! »
 
 Tie Yan ne dit mot. Il saisit rapidement Ouyang Zi et partit avec Lu Fei. Ce n'est que lorsqu'ils furent à plus de cinquante kilomètres qu'ils se retournèrent pour regarder en arrière.
 
@@ -72,23 +72,23 @@ Dès l'apparition du noyau doré, toute l'énergie spirituelle s'y précipita.
 
 Wang Lin forma de nombreux sceaux qu'il apposa sur le noyau doré.
 
-Son expression était d'une gravité extrême ; il exécuta les sceaux de plus en plus vite jusqu'à ce qu'une fissure apparaisse sur le noyau doré.
+Son expression était d'une gravité extrême; il exécuta les sceaux de plus en plus vite jusqu'à ce qu'une fissure apparaisse sur le noyau doré.
 
 Le but de la Pilule de Retour à l'Origine de rang 6 était de permettre à celui qui la consommait d'absorber l'énergie spirituelle bien plus rapidement afin de franchir un goulot d'étranglement. Cependant, le corps de Li Muwan était trop faible. Sa vie étant presque achevée, elle peinait à supporter cela.
 
-Wang Lin s'élança vers le ciel. Il ne regardait pas Li Muwan ; au lieu de cela, il leva la tête vers les cieux avec une détermination farouche.
+Wang Lin s'élança vers le ciel. Il ne regardait pas Li Muwan; au lieu de cela, il leva la tête vers les cieux avec une détermination farouche.
 
 Son plus grand ennemi était le firmament, le cycle de la vie et de la mort.
 
-Le noyau doré de Li Muwan se fissura davantage à mesure qu'il absorbait l'énergie spirituelle. Une lumière dorée s'échappait des craquelures, mais cette lueur n'était pas aveuglante ; elle dégageait plutôt une sensation de douceur.
+Le noyau doré de Li Muwan se fissura davantage à mesure qu'il absorbait l'énergie spirituelle. Une lumière dorée s'échappait des craquelures, mais cette lueur n'était pas aveuglante; elle dégageait plutôt une sensation de douceur.
 
 Pourtant, à cet instant précis, un gaz gris apparut autour d'elle. La quantité de ce brouillard gris augmenta rapidement pour recouvrir entièrement son corps.
 
 Le domaine de la vie et de la mort de Wang Lin enveloppait déjà Li Muwan, mais comparé à ce voile gris, cela semblait dérisoire.
 
-Les mortels ne pouvaient percevoir ce voile gris ; même la plupart des cultivateurs en étaient incapables. Seul Wang Lin, ayant cultivé le domaine de la vie et de la mort, pouvait le voir.
+Les mortels ne pouvaient percevoir ce voile gris; même la plupart des cultivateurs en étaient incapables. Seul Wang Lin, ayant cultivé le domaine de la vie et de la mort, pouvait le voir.
 
-Lui seul comprenait ce que c'était !
+Lui seul comprenait ce que c'était!
 
 Ce voile gris était la loi des cieux, c'était le cycle de la vie et de la mort, le signe imminent du trépas.
 
@@ -110,7 +110,7 @@ Au moment où elle ferma les yeux, son noyau doré s'estompa immédiatement avan
 
 *Wang Lin, c'est là notre karma. C'est le choix des cieux. Nous sommes l'encre et l'eau qui luttent sous la voûte céleste.*
 
-« Même si les cieux veulent ta mort, je te ravirai à eux !!! » Les yeux de Wang Lin étaient emplis de tristesse. Il leva soudainement la tête et, d'un regard déterminé, déchaîna son domaine de la vie et de la mort.
+« Même si les cieux veulent ta mort, je te ravirai à eux!!! » Les yeux de Wang Lin étaient emplis de tristesse. Il leva soudainement la tête et, d'un regard déterminé, déchaîna son domaine de la vie et de la mort.
 
 Dans le ciel au-dessus de la vallée, ce parchemin noir et blanc réapparut et s'ouvrit lentement.
 
@@ -130,9 +130,9 @@ Ce regard à la fois inconnu et familier fit trembler le corps de Wang Lin. Pour
 
 Wang Lin utilisait son propre domaine de la vie et de la mort pour empêcher l'Âme Naissante de Li Muwan de se dissiper.
 
-Il allait lutter contre les cieux !
+Il allait lutter contre les cieux!
 
-« Même si les cieux veulent ta mort, je te ravirai quand même ! » C'était une promesse, mais aussi la déclaration de guerre de Wang Lin envers le destin !
+« Même si les cieux veulent ta mort, je te ravirai quand même! » C'était une promesse, mais aussi la déclaration de guerre de Wang Lin envers le destin!
 
 Les deux rayons de lumière dans le ciel disparurent lentement. Cependant, peu après, d'innombrables nuages rouges se condensèrent pour former une main gigantesque qui tendit ses doigts vers l'Âme Naissante de Li Muwan.
 
@@ -142,10 +142,10 @@ La main géante semblait capable de franchir les distances et s'étira vers le p
 
 Les yeux de Wang Lin s'illuminèrent. Il leva la tête et percuta la main gigantesque.
 
-Bang !
+Bang!
 
 L'âme originelle de Wang Lin fut violemment secouée. Elle fut expulsée de son corps. Cependant, il la ramena promptement en lui et déploya son Sens Divin. Il cherchait quelque chose.
 
 La main géante se rétracta et les deux yeux au sein des nuages rouges réapparurent pour fixer le parchemin dans la main de Wang Lin. Puis, la main descendit de nouveau.
 
-Wang Lin rugit : « Corps originel ! »
+Wang Lin rugit: « Corps originel! »

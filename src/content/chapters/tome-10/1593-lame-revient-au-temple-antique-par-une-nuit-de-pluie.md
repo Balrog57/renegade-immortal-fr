@@ -10,15 +10,15 @@ Wang Lin fixa le ciel et les deux rayons de lumière qui disparaissaient au loin
 
 « Qui est-elle... Si familière, si familière... » murmura Wang Lin, sentant une douleur lancinante lui transpercer le cœur. Cette sensation se mêla à une tristesse inexplicable pour devenir une force étrange qui accéléra son souffle et fit pâlir son visage.
 
-Son corps vacilla et il recula de quelques pas alors que son regard vers l'horizon s'effondrait. Sa main droite pressa sa poitrine, là où la douleur cuisante prenait naissance. Cette souffrance l'envahit comme une marée ; une douleur indicible, comme si son cœur était déchiré, tandis qu'une mélancolie profonde refaisait surface.
+Son corps vacilla et il recula de quelques pas alors que son regard vers l'horizon s'effondrait. Sa main droite pressa sa poitrine, là où la douleur cuisante prenait naissance. Cette souffrance l'envahit comme une marée; une douleur indicible, comme si son cœur était déchiré, tandis qu'une mélancolie profonde refaisait surface.
 
 Tout cela provenait de cette femme qui avait traversé le ciel. Elle semblait exister dans l'esprit de Wang Lin depuis d'innombrables années, mais les pensées associées à cette silhouette étaient d'une complexité infinie.
 
 Après un long moment, une légère teinte de couleur revint sur le visage de Wang Lin. Il respira profondément et ferma les yeux.
 
-« Ainsi, les immortels existent vraiment... Alors, mon rêve... n'est-il pas vraiment un rêve ? » Wang Lin médita silencieusement, debout sur la terre humide après la pluie. Ce ne fut que lorsque le ciel devint totalement lumineux qu'il ouvrit les yeux d'un air hébété et s'avança sans un mot.
+« Ainsi, les immortels existent vraiment... Alors, mon rêve... n'est-il pas vraiment un rêve? » Wang Lin médita silencieusement, debout sur la terre humide après la pluie. Ce ne fut que lorsque le ciel devint totalement lumineux qu'il ouvrit les yeux d'un air hébété et s'avança sans un mot.
 
-« Ai-je rêvé d'une immortelle ou... une immortelle a-t-elle rêvé de moi ? » Wang Lin ne comprenait pas. C'était comme si ce rêve embrumé avait changé la trajectoire même de sa vie.
+« Ai-je rêvé d'une immortelle ou... une immortelle a-t-elle rêvé de moi? » Wang Lin ne comprenait pas. C'était comme si ce rêve embrumé avait changé la trajectoire même de sa vie.
 
 Wang Lin s'engagea sur le chemin principal et reprit sa marche vers la capitale. Il n'avait plus l'envie d'observer les environs, marchant silencieusement avec son sac en bambou sur le dos. Le craquement de ses pas résonnait à chaque enjambée.
 
@@ -30,7 +30,7 @@ Lorsque le bruit des chevaux et des chariots parvenait du loin, Wang Lin se dép
 
 En un clin d'œil, sept jours s'écoulèrent. Durant ces sept jours, le corps chétif de Wang Lin devint progressivement plus fort. Du lever au coucher du soleil, il marchait sans relâche. S'il trouvait une auberge sur son chemin, il s'y reposait.
 
-Ou si, au crépuscule, il apercevait la fumée d'un village, c'était encore mieux ; Wang Lin trouvait cela plus confortable que de loger dans une auberge.
+Ou si, au crépuscule, il apercevait la fumée d'un village, c'était encore mieux; Wang Lin trouvait cela plus confortable que de loger dans une auberge.
 
 Cependant, la plupart du temps, après le coucher du soleil, Wang Lin avait l'illusion d'être le dernier être vivant au monde. Il cherchait alors un abri le long de la route et se couvrait de vêtements épais. Puis, il comptait les étoiles dans le ciel en pensant à la chaleur de son foyer et de ses parents, avant de sombrer lentement dans le sommeil.
 
@@ -42,9 +42,9 @@ C'était la saison des pluies dans le pays de Zhao. Même lorsque la pluie cessa
 
 Au crépuscule du huitième jour, Wang Lin déploya son parapluie et pressa le pas avec un sourire amer. La pluie tombait autour de lui et le tonnerre grondait. Bien que ce ne fût que le crépuscule, le ciel était déjà sombre.
 
-« Encore une journée de voyage et j'atteindrai la capitale, mais cette pluie devient de plus en plus intense. » L'eau recouvrait le sol ; au fur et à mesure qu'elle tombait, les gouttes rebondissaient sur le sol pour éclabousser ses vêtements. Sa robe verte, trempée, aspirait sans cesse la chaleur de son corps, ce qui finit par glacer Wang Lin.
+« Encore une journée de voyage et j'atteindrai la capitale, mais cette pluie devient de plus en plus intense. » L'eau recouvrait le sol; au fur et à mesure qu'elle tombait, les gouttes rebondissaient sur le sol pour éclabousser ses vêtements. Sa robe verte, trempée, aspirait sans cesse la chaleur de son corps, ce qui finit par glacer Wang Lin.
 
-Le vent humide soufflait avec une froideur mordante. Wang Lin frissonna et inclina son parapluie pour protéger au mieux son sac en bambou. Il y avait là des livres, de la nourriture séchée et ses vêtements de rechange ; ces biens ne pouvaient être mouillés.
+Le vent humide soufflait avec une froideur mordante. Wang Lin frissonna et inclina son parapluie pour protéger au mieux son sac en bambou. Il y avait là des livres, de la nourriture séchée et ses vêtements de rechange; ces biens ne pouvaient être mouillés.
 
 Wang Lin marcha rapidement sous l'averse, cherchant un abri. Au loin, il aperçut vaguement la silhouette d'une bâtisse.
 
@@ -60,7 +60,7 @@ L'autre porte était gravement endommagée. Bien qu'elle soit encore partielleme
 
 Wang Lin s'approcha promptement et inspecta le temple avant d'y pénétrer. La cour était jonchée de graviers et de mauvaises herbes. Le vent et la pluie faisaient ployer la végétation, tandis que le clapotis de l'eau se mêlait au craquement de la porte.
 
-Un éclair déchira les cieux, suivi d'un coup de tonnerre qui illumina le monde, permettant à Wang Lin de percevoir l'intérieur du temple. Il poussa un cri de surprise et recula instinctivement de quelques pas : il venait d'apercevoir plusieurs squelettes blancs au bord de l'édifice.
+Un éclair déchira les cieux, suivi d'un coup de tonnerre qui illumina le monde, permettant à Wang Lin de percevoir l'intérieur du temple. Il poussa un cri de surprise et recula instinctivement de quelques pas: il venait d'apercevoir plusieurs squelettes blancs au bord de l'édifice.
 
 Son cœur battait la chamade et son visage pâlit, mais la pluie redoublait de force. Il serra les dents et ignora les restes de ceux qui étaient morts ici il y a des années pour entrer dans le temple.
 
@@ -74,17 +74,17 @@ Ces branches n'étant pas tout à fait sèches, Wang Lin échoua après de multi
 
 Cependant, à cet instant précis, un éclair explosa à l'intérieur même du temple. Le grondement qui s'ensuivit fit trembler les mains de Wang Lin. Une ombre immense apparut, enveloppant la zone.
 
-« Qui est là ?! » Wang Lin leva soudainement les yeux, réprimant le choc dans son cœur pour fixer la porte.
+« Qui est là?! » Wang Lin leva soudainement les yeux, réprimant le choc dans son cœur pour fixer la porte.
 
 Sa voix était puissante, presque un rugissement. Juste au moment où l'éclat de la foudre se dissipait, elle fit trembler de peur la personne qui s'apprêtait à entrer.
 
-« Qui est là ?! » Une voix terrifiante retentit de l'extérieur. Un homme d'âge moyen, vêtu de haillons et semblant sortir tout juste des eaux, recula brusquement avant de trébucher.
+« Qui est là?! » Une voix terrifiante retentit de l'extérieur. Un homme d'âge moyen, vêtu de haillons et semblant sortir tout juste des eaux, recula brusquement avant de trébucher.
 
-Après avoir mieux observé Wang Lin à l'intérieur du temple, l'homme se détendit légèrement. Il entra rapidement et lança un regard noir à Wang Lin, puis frappa vigoureusement sa poitrine en rugissant :
+Après avoir mieux observé Wang Lin à l'intérieur du temple, l'homme se détendit légèrement. Il entra rapidement et lança un regard noir à Wang Lin, puis frappa vigoureusement sa poitrine en rugissant:
 
-« Tu m'as fait peur ! »
+« Tu m'as fait peur! »
 
-Wang Lin fut déconcerté un instant avant d'esquisser un sourire amer. Il se détendit, joignit les mains en signe de respect et s'excusa : « La nuit était sombre et je n'ai pas vu clair. L'éclair est aussi arrivé trop soudainement ; j'espère que mon frère ne m'en tiendra pas rigueur. »
+Wang Lin fut déconcerté un instant avant d'esquisser un sourire amer. Il se détendit, joignit les mains en signe de respect et s'excusa: « La nuit était sombre et je n'ai pas vu clair. L'éclair est aussi arrivé trop soudainement; j'espère que mon frère ne m'en tiendra pas rigueur. »
 
 L'homme d'âge moyen renifla et, après quelques marmonnements, cessa de prêter attention à Wang Lin. Il s'assit sur le côté, plongea la main dans sa manche pour en sortir la moitié d'une cuisse de poulet mouillée et se mit à pleurer en la regardant.
 
@@ -100,11 +100,11 @@ L'homme riait et riait, avant de fondre à nouveau en larmes.
 
 « Ils ne se soucient pas de moi, ils ne se soucient pas de moi... Je ne peux plus me souvenir... de qui je suis... »
 
-Ses cris emplissaient le temple et éveillaient la pitié de Wang Lin. Il tourna les yeux vers le fou et soupira :
+Ses cris emplissaient le temple et éveillaient la pitié de Wang Lin. Il tourna les yeux vers le fou et soupira:
 
-« Le rêve est si réaliste avant que l'on ne s'éveille. La vie est une pièce de théâtre, mais qui suis-je... Rêver, c'est vivre, et se réveiller, c'est mourir ; ou peut-être est-ce le rêve qui meurt et le réveil qui est la vie... Les instants où l'œil se ferme et s'ouvre sont les instants de la vie et de la mort, ou peut-être est-ce quand on ne peut plus distinguer le réel du faux... »
+« Le rêve est si réaliste avant que l'on ne s'éveille. La vie est une pièce de théâtre, mais qui suis-je... Rêver, c'est vivre, et se réveiller, c'est mourir; ou peut-être est-ce le rêve qui meurt et le réveil qui est la vie... Les instants où l'œil se ferme et s'ouvre sont les instants de la vie et de la mort, ou peut-être est-ce quand on ne peut plus distinguer le réel du faux... »
 
-« Cette vie est un cycle de réincarnation, et peut-être aussi un cycle karmique... Cependant, quand vais-je enfin m'éveiller ? » murmura Wang Lin, les yeux emplis de confusion. Ces derniers jours, ses rêves l'avaient plongé dans le doute. En méditant durant ces sept jours, il sentait vaguement quelque chose poindre.
+« Cette vie est un cycle de réincarnation, et peut-être aussi un cycle karmique... Cependant, quand vais-je enfin m'éveiller? » murmura Wang Lin, les yeux emplis de confusion. Ces derniers jours, ses rêves l'avaient plongé dans le doute. En méditant durant ces sept jours, il sentait vaguement quelque chose poindre.
 
 Dans un soupir, Wang Lin sortit de son sac sa nourriture séchée et fixa le feu. Il écouta la pluie tomber dehors et commença à manger silencieusement.
 

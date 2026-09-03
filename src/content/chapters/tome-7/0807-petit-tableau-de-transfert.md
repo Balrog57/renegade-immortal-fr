@@ -8,23 +8,23 @@ slug: petit-tableau-de-transfert
 ---
 Des vagues de brouillard noir encerclaient le sommet du fourneau, comme si elles tentaient de s'échapper. Cependant, une étrange puissance empêchait la brume noire de quitter les lieux.
 
-Neuf crânes entouraient le grand fourneau. Il ne s'agissait pas de crânes de bêtes, mais de crânes humains ! Un tatouage extrêmement complexe se trouvait entre les sourcils de chacun d'eux. Les crânes émettaient des éclats de lumière noire, comme s'ils formaient une formation.
+Neuf crânes entouraient le grand fourneau. Il ne s'agissait pas de crânes de bêtes, mais de crânes humains! Un tatouage extrêmement complexe se trouvait entre les sourcils de chacun d'eux. Les crânes émettaient des éclats de lumière noire, comme s'ils formaient une formation.
 
-Ta Shan regarda le grand fourneau d'un regard complexe et murmura : « C'est le Fourneau Yin Mystérieux. »
+Ta Shan regarda le grand fourneau d'un regard complexe et murmura: « C'est le Fourneau Yin Mystérieux. »
 
 Les yeux de Wang Lin brillaient comme des torches et son sens divin encercla le fourneau. Après avoir hésité un instant, son sens divin se précipita à l'intérieur sans aucune résistance.
 
-Cependant, au moment où son sens divin pénétra l'engin, un cri strident de femme retentit de l'intérieur. Ce son était extrêmement étrange ; il était impossible de l'entendre avec les oreilles, il ne pouvait être perçu que par le sens divin. Empli d'une intention meurtrière, il jaillit tel une tempête, manquant de peu de faire s'effondrer le sens divin de Wang Lin.
+Cependant, au moment où son sens divin pénétra l'engin, un cri strident de femme retentit de l'intérieur. Ce son était extrêmement étrange; il était impossible de l'entendre avec les oreilles, il ne pouvait être perçu que par le sens divin. Empli d'une intention meurtrière, il jaillit tel une tempête, manquant de peu de faire s'effondrer le sens divin de Wang Lin.
 
 Le corps de Wang Lin vacilla et il recula de quelques pas. Son visage devint légèrement pâle, mais ses yeux brillaient intensément.
 
-Wang Lin fixa le fourneau et dit lentement : « Je vais rester ici quelques jours. Vous pouvez partir en premier. »
+Wang Lin fixa le fourneau et dit lentement: « Je vais rester ici quelques jours. Vous pouvez partir en premier. »
 
-Ta Shan réfléchit silencieusement, puis leva la tête pour regarder Wang Lin. Après une hésitation, il demanda : « Êtes-vous... vraiment un immortel ? »
+Ta Shan réfléchit silencieusement, puis leva la tête pour regarder Wang Lin. Après une hésitation, il demanda: « Êtes-vous... vraiment un immortel? »
 
 Wang Lin détourna le regard pour fixer Ta Shan. Lorsqu'il avait demandé à être conduit seul, il avait déjà compris que l'homme avait une question à lui poser. Wang Lin regarda Ta Shan avec calme et sérénité.
 
-Ta Shan afficha une expression amère et murmura : « Dans mon enfance, j'entendais souvent mes aînés dire que nous avions été choisis par les immortels. Que nous devions passer nos vies à leur servir. Que c'était l'honneur de mon clan... »
+Ta Shan afficha une expression amère et murmura: « Dans mon enfance, j'entendais souvent mes aînés dire que nous avions été choisis par les immortels. Que nous devions passer nos vies à leur servir. Que c'était l'honneur de mon clan... »
 
 « Cet honneur était la seule croyance de mon cœur en grandissant. Et cela ne concernait pas que moi, mais presque tous ceux qui avaient grandi au sein du clan. »
 
@@ -34,29 +34,29 @@ Ta Shan afficha une expression amère et murmura : « Dans mon enfance, j'entend
 
 « Même aujourd'hui, moi, Ta Shan, je ne crois toujours pas à l'existence des immortels. S'ils existaient vraiment, pourquoi nous auraient-ils oubliés pendant tant d'années... »
 
-Wang Lin réfléchit en silence. Lorsqu'il avait entendu le vieil homme affirmer qu'ils étaient le Clan des Immortels Choisis, il avait eu une intuition.
+Wang Lin réfléchit en silence. Lorsqu'il avait entendu le vieil homme affirmer qu'ils étaient le Clan des Immortels Délaissés, il avait eu une intuition.
 
-« Le Clan des Immortels Choisis... Le Clan des Immortels Abandonnés... Un choix fait pour abandonner... »
+« Le Clan des Immortels Délaissés... Le Clan des Immortels Abandonnés... Un choix fait pour abandonner... »
 
-« Dites-moi, existe-t-il des immortels dans ce monde ? Êtes-vous un immortel ? » Ta Shan leva la tête et fixa Wang Lin. Sa voix était très basse, mais son impact était plus puissant qu'un rugissement.
+« Dites-moi, existe-t-il des immortels dans ce monde? Êtes-vous un immortel? » Ta Shan leva la tête et fixa Wang Lin. Sa voix était très basse, mais son impact était plus puissant qu'un rugissement.
 
-Wang Lin répondit calmement et lentement : « Je ne suis pas un immortel... »
+Wang Lin répondit calmement et lentement: « Je ne suis pas un immortel... »
 
 Le corps de Ta Shan trembla et l'amertume sur son visage s'intensifia.
 
 « Il se peut qu'il y ait encore des immortels aux alentours, mais le Royaume Céleste s'est effondré il y a bien longtemps... » dit Wang Lin, le regard posé sur le Fourneau Yin Mystérieux.
 
-Ta Shan laissa échapper un sourire misérable, recula de quelques pas et marmonna : « Comme je le pensais, j'avais raison. Des immortels... Il n'y a pas d'immortels. Mon clan a fait le mauvais choix en gardant cet endroit pendant tout ce temps... »
+Ta Shan laissa échapper un sourire misérable, recula de quelques pas et marmonna: « Comme je le pensais, j'avais raison. Des immortels... Il n'y a pas d'immortels. Mon clan a fait le mauvais choix en gardant cet endroit pendant tout ce temps... »
 
-Wang Lin fixa le Fourneau Yin Mystérieux et demanda lentement : « Qu'y a-t-il à l'intérieur de ce fourneau ? »
+Wang Lin fixa le Fourneau Yin Mystérieux et demanda lentement: « Qu'y a-t-il à l'intérieur de ce fourneau? »
 
-Ta Shan murmura : « Je l'ignore. Les archives du clan disent qu'il y a d'innombrables années, le Roi Céleste Sans Souci a introduit mon clan dans le corps de la Bête des Ténèbres pour garder ce Fourneau Yin Mystérieux jusqu'à son retour. »
+Ta Shan murmura: « Je l'ignore. Les archives du clan disent qu'il y a d'innombrables années, le Roi Céleste Sans Souci a introduit mon clan dans le corps de la Bête des Ténèbres pour garder ce Fourneau Yin Mystérieux jusqu'à son retour. »
 
-« Comment puis-je quitter cet endroit ? » demanda Wang Lin en détournant le regard.
+« Comment puis-je quitter cet endroit? » demanda Wang Lin en détournant le regard.
 
-Ta Shan prit une profonde inspiration et eut un sourire amer : « Il n'y a aucun moyen de partir. Cet endroit est complètement scellé... J'ai essayé de trouver une issue pour retrouver les immortels, mais j'ai échoué. Ce ciel a une limite, mais je suis incapable de la franchir. Au-delà des fissures du mur de chair, il n'y a qu'un vide infini. »
+Ta Shan prit une profonde inspiration et eut un sourire amer: « Il n'y a aucun moyen de partir. Cet endroit est complètement scellé... J'ai essayé de trouver une issue pour retrouver les immortels, mais j'ai échoué. Ce ciel a une limite, mais je suis incapable de la franchir. Au-delà des fissures du mur de chair, il n'y a qu'un vide infini. »
 
-Les yeux de Wang Lin se rétrécirent et il demanda : « Que disait l'amulette céleste de l'époque ? »
+Les yeux de Wang Lin se rétrécirent et il demanda: « Que disait l'amulette céleste de l'époque? »
 
 « On ne peut pas voir... Personne n'a pu voir ce qui s'y trouve. Pas un seul parmi les innombrables membres du clan morts n'a pu en découvrir le contenu... » Ta Shan se remit progressivement de son choc.
 
@@ -72,17 +72,17 @@ Ses yeux s'illuminèrent et il leva la main. Le tonnerre contenu dans son corps 
 
 La sphère de tonnerre percuta l'ouverture du fourneau dans un grondement. Cependant, à cet instant, le brouillard noir se rassembla et dévora la boule de foudre.
 
-Wang Lin hurla : « Explose ! »
+Wang Lin hurla: « Explose! »
 
 Un grondement étouffé résonna avec l'explosion de la sphère de tonnerre, repoussant le brouillard noir. Les yeux de Wang Lin s'illuminèrent, comme si son regard pouvait percer la brume pour en voir le fond.
 
-Il y avait un petit tableau de transfert à l'intérieur !
+Il y avait un petit tableau de transfert à l'intérieur!
 
 La brume noire bougea et recouvrit le tableau de transfert. Puis, elle se condensa rapidement pour prendre une forme humaine. C'était une femme, mais son corps étant constitué de brouillard, il était impossible d'en distinguer les traits.
 
 Cependant, dès qu'elle apparut, elle chargea immédiatement vers l'extérieur. Une traînée de brume noire l'accompagnait tandis qu'elle poussait un cri.
 
-Cette fois, le cri ne visait pas seulement l'âme originelle ; il pouvait aussi blesser la chair. Ce hurlement était si puissant qu'il semblait presque se solidifier en s'élançant vers Wang Lin.
+Cette fois, le cri ne visait pas seulement l'âme originelle; il pouvait aussi blesser la chair. Ce hurlement était si puissant qu'il semblait presque se solidifier en s'élançant vers Wang Lin.
 
 Ta Shan, qui n'était pas loin, fut également affecté. Son visage pâlit, ses yeux s'assombrirent et il recula par réflexe. N'ayant pas d'âme de tonnerre mutée, son âme originelle fut blessée.
 
@@ -90,7 +90,7 @@ Wang Lin recula sans hésiter mais fut tout de même atteint. Son visage devint 
 
 L'ombre de la femme surgie du fourneau les poursuivait. Elle était extrêmement rapide et les rattrapa en un instant, poussant un nouveau cri. Une lueur d'intention meurtrière passa dans les yeux de Wang Lin alors qu'il crachait une bouchée de sang essentiel. La brume de sang se précipita vers l'ombre de la femme.
 
-Wang Lin cria : « Scelle ! »
+Wang Lin cria: « Scelle! »
 
 La brume de sang se mua en de multiples restrictions qui s'agrippèrent immédiatement au corps de la créature, formant un immense sceau.
 
@@ -106,21 +106,21 @@ Le vieil homme à la sortie avait déjà aperçu le gaz noir. Son expression cha
 
 La grande porte commença à se refermer lentement dans un fracas assourdissant. Le cri strident de la femme retentit aussitôt de l'autre côté. Le corps du vieil homme trembla tandis qu'il crachait du sang, semblant soudainement vidé de toute force.
 
-Au moment où la porte allait se clore, la femme était sur le point de s'engouffrer à l'extérieur. Les yeux de Wang Lin s'illuminèrent ; il frappa sa sacoche et en sortit le pinceau céleste. Il traça immédiatement six traits qui jaillirent comme des lames de lumière, bloquant la course de la femme.
+Au moment où la porte allait se clore, la femme était sur le point de s'engouffrer à l'extérieur. Les yeux de Wang Lin s'illuminèrent; il frappa sa sacoche et en sortit le pinceau céleste. Il traça immédiatement six traits qui jaillirent comme des lames de lumière, bloquant la course de la femme.
 
 Après un grand fracas, l'ombre de la femme fut stoppée net. À cet instant précis, la porte se referma, étouffant son cri.
 
 Ta Shan en fut extrêmement choqué. Il fixa la porte, le cuir chevelu engourdi par la peur.
 
-« Qu'est-ce que c'est que ça ?! »
+« Qu'est-ce que c'est que ça?! »
 
-« L'esprit du Fourneau Yin Mystérieux ! » L'ancêtre du Clan des Immortels Choisis essuya le sang au coin de sa bouche, affichant une expression complexe.
+« L'esprit du Fourneau Yin Mystérieux! » L'ancêtre du Clan des Immortels Délaissés essuya le sang au coin de sa bouche, affichant une expression complexe.
 
-Le visage de Wang Lin était sombre lorsqu'il s'assit. « Vous deux, partez. Ne laissez personne approcher à moins de mille pieds d'ici ! »
+Le visage de Wang Lin était sombre lorsqu'il s'assit. « Vous deux, partez. Ne laissez personne approcher à moins de mille pieds d'ici! »
 
 Le vieil homme réfléchit silencieusement. Après un instant, il inclina respectueusement la tête. Puis, lui et Ta Shan se transformèrent en rayons de lumière et s'envolèrent au loin.
 
-Wang Lin fixa la porte. En voyant le vieil homme l'ouvrir, il avait clairement vu ce dernier utiliser le tatouage entre ses sourcils ; c'était manifestement son tatouage de vie.
+Wang Lin fixa la porte. En voyant le vieil homme l'ouvrir, il avait clairement vu ce dernier utiliser le tatouage entre ses sourcils; c'était manifestement son tatouage de vie.
 
 Tout en réfléchissant, Wang Lin frappa sa sacoche de stockage. Lorsqu'il était encore sur la planète Suzaku, il avait récupéré de nombreux crânes du Clan des Immortels Abandonnés. Dans un éclat de lumière, plusieurs crânes apparurent devant lui.
 
@@ -128,8 +128,8 @@ Chaque crâne portait un tatouage complexe. Après les avoir examinés de près,
 
 Le ciel était bleu, mais grâce à sa vision, Wang Lin pouvait distinguer vaguement, à la lisière des nuages blancs, la présence du mur de chair.
 
-« Si cet endroit est vraiment scellé, comment ai-je été envoyé ici... Ce lieu n'est pas accueillant. Je dois trouver un moyen de partir au plus vite ! Mais bien que ce soit dangereux, c'est aussi le meilleur endroit pour se cacher ! » Wang Lin réfléchit et frappa sa sacoche d'où s'échappa un objet.
+« Si cet endroit est vraiment scellé, comment ai-je été envoyé ici... Ce lieu n'est pas accueillant. Je dois trouver un moyen de partir au plus vite! Mais bien que ce soit dangereux, c'est aussi le meilleur endroit pour se cacher! » Wang Lin réfléchit et frappa sa sacoche d'où s'échappa un objet.
 
 Cet objet mesurait environ 150 pieds de long et 40 pieds de large. Dès son apparition, il dégagea une aura terrifiante. D'innombrables épines le recouvraient, lui donnant un aspect féroce. Quiconque le regardait ne pouvait s'empêcher de ressentir une pointe de terreur.
 
-Le troisième Charriot de la Guerre contre les Dieux !
+Le troisième Charriot de la Guerre contre les Dieux!

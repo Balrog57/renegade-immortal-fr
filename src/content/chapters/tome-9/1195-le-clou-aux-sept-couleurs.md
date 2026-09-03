@@ -8,7 +8,7 @@ slug: le-clou-aux-sept-couleurs
 ---
 La femme en argent détourna enfin le regard après un long moment, la confusion dans ses yeux s'intensifiant. Elle semblait vaguement se souvenir de quelque chose, mais ce n'était qu'un souvenir très flou. Elle leva sa main semblable au jade et l'agita selon ses souvenirs imprécis. Une faible lueur fantomatique apparut et une restriction se posa à l'entrée de la grotte.
 
-Si Wang Lin était réveillé et avait vu cela, ses yeux se seraient rétrécis. Cette restriction était la Restriction de la Vie et de la Mort ! Cette technique était bien au-dessus de ce que la vieille femme avait créé ; elle était extrêmement sophistiquée.
+Si Wang Lin était réveillé et avait vu cela, ses yeux se seraient rétrécis. Cette restriction était la Restriction de la Vie et de la Mort! Cette technique était bien au-dessus de ce que la vieille femme avait créé; elle était extrêmement sophistiquée.
 
 Wang Lin ne resta pas longtemps dans le coma. Après quelques heures, il ouvrit les yeux et, en voyant l'entrée, il fut surpris. Il regarda la femme en argent mais ne posa aucune question. Au lieu de cela, il s'assit et commença à cultiver.
 
@@ -24,7 +24,7 @@ Plus grave encore, non seulement le clou aux sept couleurs était enfoncé dans 
 
 Si cela s'était arrêté là, cela n'aurait pas été un problème, mais Wang Lin fut choqué de constater que le clou aux sept couleurs drainait constamment sa vitalité. C'était comme s'il ne s'arrêterait que lorsqu'il aurait épuisé jusqu'à la dernière goutte de sa force vitale.
 
-« Quel genre de trésor est-ce pour avoir le pouvoir de briser l'épée du Pseudo Nirvana Void en deux ? » Le cœur de Wang Lin se serra. L'épée d'acier l'avait accompagné pendant de nombreuses années et s'était révélée extrêmement utile, mais elle était désormais brisée.
+« Quel genre de trésor est-ce pour avoir le pouvoir de briser l'épée du Pseudo Nirvana Void en deux? » Le cœur de Wang Lin se serra. L'épée d'acier l'avait accompagné pendant de nombreuses années et s'était révélée extrêmement utile, mais elle était désormais brisée.
 
 « Il y avait aussi les perles que Maître Ashen Pine avait lancées. Chacune d'entre elles pouvait invoquer un sort dans ce Royaume aux Sept Couleurs. Elles sont très étranges. Même le Doigt du Destin Céleste est apparu à partir de l'une d'elles... » Tout en endurant la douleur, Wang Lin commença à réfléchir.
 
@@ -34,23 +34,23 @@ Il repensa au moment où l'âme de bataille de l'Omniscient était apparue et re
 
 Après avoir réfléchi un instant, une lueur de froideur passa dans les yeux de Wang Lin.
 
-« Cependant, Maître Ashen Pine est également gravement blessé. Son corps s'est effondré sous le Cachet de l'Esprit de la Guerre et seule son âme originelle a survécu. Il a aussi été gravement blessé par l'épée d'acier et a consommé une grande partie de ses trésors. Je dois me rétablir le plus vite possible ; la prochaine fois que nous nous croiserons, il mourra sans aucun doute ! »
+« Cependant, Maître Ashen Pine est également gravement blessé. Son corps s'est effondré sous le Cachet de l'Esprit de la Guerre et seule son âme originelle a survécu. Il a aussi été gravement blessé par l'épée d'acier et a consommé une grande partie de ses trésors. Je dois me rétablir le plus vite possible; la prochaine fois que nous nous croiserons, il mourra sans aucun doute! »
 
-« Il y a aussi cette vieille femme en vert qui était piégée par la restriction. Même si elle maîtrise la Restriction de la Vie et de la Mort, avec ma Restriction de l'Annihilation mêlée à la sienne, il ne lui sera pas facile de s'en sortir. Même si elle parvient à briser la barrière par la force, elle en sortira gravement blessée ! »
+« Il y a aussi cette vieille femme en vert qui était piégée par la restriction. Même si elle maîtrise la Restriction de la Vie et de la Mort, avec ma Restriction de l'Annihilation mêlée à la sienne, il ne lui sera pas facile de s'en sortir. Même si elle parvient à briser la barrière par la force, elle en sortira gravement blessée! »
 
 « Il y a aussi Maître Cloud Soul. Lorsqu'il a été téléporté ici, il l'a été vers un lieu aléatoire, mais j'ignore où. Cependant, cet endroit est rempli de dangers, et être transporté ici au hasard est périlleux. Il est probable qu'il ne puisse même pas se défendre pour le moment. »
 
 « Ces trois-là ont tous été mis en difficulté par moi, mais ce Chen Tianjun est parti tôt. Bien que nous ayons senti ses sorts se dissiper auparavant, il est difficile de prouver qu'il est mort... »
 
-Chacun ici complotait contre les autres, et personne ne voulait laisser autrui quitter cet endroit avec le trésor. C'était ce qu'on appelle : « même si un homme ne veut pas nuire au tigre, le tigre, lui, voudra toujours nuire à l'homme ». Si l'on reste passif, on finit inévitablement par être victime de complots. Les yeux de Wang Lin s'illuminèrent ; il avait depuis longtemps percé à jour leurs intentions. C'est pourquoi il avait agi le premier en forçant Maître Cloud Soul à se téléporter ailleurs, puis il avait piégé la vieille femme dans la restriction afin de pouvoir affronter Maître Ashen Pine.
+Chacun ici complotait contre les autres, et personne ne voulait laisser autrui quitter cet endroit avec le trésor. C'était ce qu'on appelle: « même si un homme ne veut pas nuire au tigre, le tigre, lui, voudra toujours nuire à l'homme ». Si l'on reste passif, on finit inévitablement par être victime de complots. Les yeux de Wang Lin s'illuminèrent; il avait depuis longtemps percé à jour leurs intentions. C'est pourquoi il avait agi le premier en forçant Maître Cloud Soul à se téléporter ailleurs, puis il avait piégé la vieille femme dans la restriction afin de pouvoir affronter Maître Ashen Pine.
 
 Alors qu'il réfléchissait, une douleur fulgurante lui traversa l'épaule droite et la sueur perla sur son front. Affichant un regard déterminé, il passa sa main gauche sur son épaule droite. Une blessure apparut immédiatement et s'élargit jusqu'à révéler le clou aux sept couleurs incrusté dans son os.
 
-Instantanément, une lumière aux sept couleurs envahit toute la grotte. Xu Liguo se lécha les lèvres en regardant Wang Lin et pensa : « Ce démon est un véritable démon. Non seulement il est impitoyable envers les autres, mais il l'est aussi envers lui-même. »
+Instantanément, une lumière aux sept couleurs envahit toute la grotte. Xu Liguo se lécha les lèvres en regardant Wang Lin et pensa: « Ce démon est un véritable démon. Non seulement il est impitoyable envers les autres, mais il l'est aussi envers lui-même. »
 
-Après une profonde inspiration, Wang Lin serra les dents, saisit le clou aux sept couleurs et tira sans pitié dans un rugissement ! Une douleur atroce déferla sur son corps. Wang Lin laissa échapper un gémissement étouffé et la sueur trempa ses vêtements. Son corps tremblait ; il n'arrivait pas à l'extraire !
+Après une profonde inspiration, Wang Lin serra les dents, saisit le clou aux sept couleurs et tira sans pitié dans un rugissement! Une douleur atroce déferla sur son corps. Wang Lin laissa échapper un gémissement étouffé et la sueur trempa ses vêtements. Son corps tremblait; il n'arrivait pas à l'extraire!
 
-Ce clou semblait fusionné avec son os ; il était impossible de dire qu'il n'en faisait pas partie ! Plus étrange encore, la lumière aux sept couleurs semblait avoir pénétré l'os lui-même. L'os de son épaule droite paraissait être devenu sept couleurs.
+Ce clou semblait fusionné avec son os; il était impossible de dire qu'il n'en faisait pas partie! Plus étrange encore, la lumière aux sept couleurs semblait avoir pénétré l'os lui-même. L'os de son épaule droite paraissait être devenu sept couleurs.
 
 Le visage de Wang Lin était livide. Au moment où la lumière aux sept couleurs pénétra son corps, son esprit devint vide. Une lueur de folie pointit le bout de son nez.
 
@@ -62,21 +62,21 @@ En regardant son épaule droite, il vit que le clou aux sept couleurs avait dimi
 
 Wang Lin fixa l'objet. Il avait la sensation que si le clou disparaissait complètement, ses os deviendraient intégralement sept couleurs. À ce moment-là... la folie ne serait plus passagère, mais permanente.
 
-« Quel genre de trésor magique est-ce là ?! » La blessure sur l'épaule droite de Wang Lin guérit rapidement et disparut, recouvrant le clou aux sept couleurs.
+« Quel genre de trésor magique est-ce là?! » La blessure sur l'épaule droite de Wang Lin guérit rapidement et disparut, recouvrant le clou aux sept couleurs.
 
 Après avoir observé silencieusement la cicatrisation, Wang Lin ferma les yeux et son âme originelle commença à lutter. Puisqu'il ne pouvait l'extraire par une force extérieure, il allait tenter d'utiliser son énergie originelle et son pouvoir d'Ancien Dieu pour le forcer à sortir.
 
-Le temps passa et trois jours supplémentaires s'écoulèrent. Wang Lin ouvrit les yeux. Avec son niveau de cultivation, il ne pouvait que le supprimer. Il ne parvenait pas à expulser la lumière aux sept couleurs, et encore moins le clou.
+Le temps passa et trois jours supplémentaires s'écoulèrent. Wang Lin ouvrit les yeux. Avec son niveau de culture, il ne pouvait que le supprimer. Il ne parvenait pas à expulser la lumière aux sept couleurs, et encore moins le clou.
 
-« Si je ne peux que le supprimer, alors ce n'est pas encore fini. Maintenant, j'ai juste besoin d'aide... S'il y a suffisamment d'aides, je devrais être capable de forcer la sortie des sept couleurs et du clou ! » Wang Lin regarda silencieusement la fiole de jade. C'était l'objectif ultime de Maître Ashen Pine en venant dans le Royaume aux Sept Couleurs.
+« Si je ne peux que le supprimer, alors ce n'est pas encore fini. Maintenant, j'ai juste besoin d'aide... S'il y a suffisamment d'aides, je devrais être capable de forcer la sortie des sept couleurs et du clou! » Wang Lin regarda silencieusement la fiole de jade. C'était l'objectif ultime de Maître Ashen Pine en venant dans le Royaume aux Sept Couleurs.
 
 Tenant la fiole, le sens divin de Wang Lin se déploya. Elle était à moitié remplie d'un liquide noir. Cela ressemblait à du sang, mais n'en dégageait pas l'odeur.
 
-« Une fois que j'aurai obtenu l'âme originelle de Maître Ashen Pine, je saurai exactement ce que c'est. Si je ne me trompe pas, cela doit être lié à l'augmentation de son niveau de cultivation. » Il rangea la fiole dans ses vêtements, se leva et observa la Restriction de la Vie et de la Mort à l'entrée de la grotte. Puis, il tourna son regard vers la femme en argent.
+« Une fois que j'aurai obtenu l'âme originelle de Maître Ashen Pine, je saurai exactement ce que c'est. Si je ne me trompe pas, cela doit être lié à l'augmentation de son niveau de culture. » Il rangea la fiole dans ses vêtements, se leva et observa la Restriction de la Vie et de la Mort à l'entrée de la grotte. Puis, il tourna son regard vers la femme en argent.
 
-« Vous connaissez la Restriction de la Vie et de la Mort ? »
+« Vous connaissez la Restriction de la Vie et de la Mort? »
 
-La femme en argent réfléchit. Après un long moment, elle murmura : « Il y a... il y a des souvenirs... »
+La femme en argent réfléchit. Après un long moment, elle murmura: « Il y a... il y a des souvenirs... »
 
 « Ouvrez la restriction. » Wang Lin hocha légèrement la tête.
 
@@ -88,27 +88,27 @@ Après avoir quitté la grotte, Wang Lin prit une profonde inspiration pour endu
 
 Cet endroit était peuplé de pics montagneux habités par des bêtes féroces.
 
-Ces bêtes féroces étaient précisément les « aides » auxquelles Wang Lin avait pensé !
+Ces bêtes féroces étaient précisément les « aides » auxquelles Wang Lin avait pensé!
 
 Il vola rapidement à travers de nombreuses vallées en suivant le chemin qu'il avait emprunté, se dirigeant vers la région extérieure du Royaume aux Sept Couleurs. Bientôt, il aperçut le tunnel menant à l'extérieur et leva les yeux. Ses yeux s'illuminèrent alors qu'il fixait la brume dense au sommet des pics.
 
-Il passa soigneusement son plan en revue dans sa tête, puis afficha un regard déterminé. Bien que ce périple fût dangereux, si cela permettait de forcer la sortie du clou aux sept couleurs, tout en vaudrait la peine !
+Il passa soigneusement son plan en revue dans sa tête, puis afficha un regard déterminé. Bien que ce périple fût dangereux, si cela permettait de forcer la sortie du clou aux sept couleurs, tout en vaudrait la peine!
 
-« Voyons jusqu'où s'étend la puissance de mon corps d'Ancien Dieu ! » Le corps de Wang Lin se transforma en un rayon de lumière et fonça vers le sommet de la montagne.
+« Voyons jusqu'où s'étend la puissance de mon corps d'Ancien Dieu! » Le corps de Wang Lin se transforma en un rayon de lumière et fonça vers le sommet de la montagne.
 
 Avant qu'il ne puisse approcher, un rugissement retentit dans la brume et un aigle géant de mille pieds de haut surgit du brouillard. Il poussa un cri et chargea Wang Lin, entraînant la brume dans sa course.
 
-La créature était trop rapide et se rapprocha instantanément. L'aigle chargea et percuta Wang Lin. Ce dernier n'esquiva pas ; il utilisa son corps pour encaisser le choc !
+La créature était trop rapide et se rapprocha instantanément. L'aigle chargea et percuta Wang Lin. Ce dernier n'esquiva pas; il utilisa son corps pour encaisser le choc!
 
 L'homme et l'aigle entrèrent violemment en collision. Un grondement tonitruant retentit et Wang Lin recula de plusieurs pas. Il ne chercha même pas à atténuer l'impact, laissant toute la force se concentrer sur son épaule droite. Cela fit intensifier la lueur aux sept couleurs provenant de son épaule jusqu'à ce qu'elle perce sa peau. De loin, on aurait dit que Wang Lin était enveloppé d'une lumière arc-en-ciel.
 
 La bête aigle poussa un cri de rage et fut également repoussée. Elle effectua une rotation dans le ciel avant de charger à nouveau vers Wang Lin.
 
-L'esprit de Wang Lin vacilla, mais il ne s'arrêta pas. Il chargea une fois de plus dans la brume. À cet instant, alors que le rugissement résonnait, un second aigle surgit du brouillard. Celui-ci mesurait également mille pieds de haut ; les deux aigles formèrent alors deux rayons de lumière noire fonçant sur Wang Lin.
+L'esprit de Wang Lin vacilla, mais il ne s'arrêta pas. Il chargea une fois de plus dans la brume. À cet instant, alors que le rugissement résonnait, un second aigle surgit du brouillard. Celui-ci mesurait également mille pieds de haut; les deux aigles formèrent alors deux rayons de lumière noire fonçant sur Wang Lin.
 
-Des bruits de fracas retentirent et Wang Lin eut l'impression que d'innombrables montagnes s'écrasaient sur lui. Son visage devint encore plus pâle et du sang jaillit du coin de sa bouche, mais ses yeux brillèrent de plus belle !
+Des bruits de fracas retentirent et Wang Lin eut l'impression que d'innombrables montagnes s'écrasaient sur lui. Son visage devint encore plus pâle et du sang jaillit du coin de sa bouche, mais ses yeux brillèrent de plus belle!
 
-Ces deux bêtes féroces étaient toutes deux de rang 12, et leur impact était d'une puissance extrême. Cependant, Wang Lin transféra tout l'impact sur son épaule droite. Même si son corps subissait de graves blessures, il allait forcer la lumière aux sept couleurs à sortir, coûte que coûte !
+Ces deux bêtes féroces étaient toutes deux de rang 12, et leur impact était d'une puissance extrême. Cependant, Wang Lin transféra tout l'impact sur son épaule droite. Même si son corps subissait de graves blessures, il allait forcer la lumière aux sept couleurs à sortir, coûte que coûte!
 
 La moitié de son corps était recouverte de cette lueur. Avec la méthode de Wang Lin, c'était comme si les deux aigles l'aidaient à expulser la lumière. À chaque éclat de la lueur aux sept couleurs, celle-ci se concentrait vers son épaule droite.
 
@@ -122,4 +122,4 @@ Sous ces assauts continus, le clou semblait se desserrer et montrait des signes 
 
 C'est à cet instant qu'un autre rugissement retentit depuis le sommet de la montagne et qu'un troisième aigle surgit. Il se transforma en un rayon de lumière et percuta impitoyablement la poitrine de Wang Lin.
 
-Le corps de Wang Lin trembla ; l'impact puissant donna à son corps déjà meurtri l'impression qu'il allait s'effondrer, mais ses yeux étaient remplis de joie. Il laissa échapper un rire alors que son épaule droite explosait dans une gerbe de sang. Le clou aux sept couleurs se trouvait là, au cœur de ce sang !
+Le corps de Wang Lin trembla; l'impact puissant donna à son corps déjà meurtri l'impression qu'il allait s'effondrer, mais ses yeux étaient remplis de joie. Il laissa échapper un rire alors que son épaule droite explosait dans une gerbe de sang. Le clou aux sept couleurs se trouvait là, au cœur de ce sang!

@@ -8,13 +8,13 @@ slug: voler-lesprit-de-la-terre
 ---
 Wang Lin affichait un visage sombre alors qu'il se dissimulait dans la montagne enneigée. Si Xue Yue ne possédait que cela, l'Alliance des Quatre Sectes l'emporterait sans aucun doute, mais il ressentait pourtant un étrange sentiment de danger.
 
-Il réfléchit un instant, puis ses yeux s'illuminèrent : son sens divin venait de détecter l'Esprit de la Terre. Son corps dégageait une fumée noire et s'envolait en direction de la montagne depuis le Secte de l'Âme Noire. Derrière lui, le jeune homme au pinceau le poursuivait avec désinvolture. À chaque mouvement du pinceau dans sa main, l'Esprit de la Terre tremblait et une quantité accrue de fumée noire émanait de lui.
+Il réfléchit un instant, puis ses yeux s'illuminèrent: son sens divin venait de détecter l'Esprit de la Terre. Son corps dégageait une fumée noire et s'envolait en direction de la montagne depuis la Secte de l'Âme Noire. Derrière lui, le jeune homme au pinceau le poursuivait avec désinvolture. À chaque mouvement du pinceau dans sa main, l'Esprit de la Terre tremblait et une quantité accrue de fumée noire émanait de lui.
 
 En voyant cela, Wang Lin hésita. Après un moment, il prit une décision. Il quitta silencieusement la montagne enneigée et chargea vers l'Esprit de la Terre en utilisant sa technique d'évasion tellurique.
 
-Il se rapprochait de plus en plus : 8 000 kilomètres, 7 000 kilomètres, 5 000 kilomètres, 3 000 kilomètres...
+Il se rapprochait de plus en plus: 4000 kilomètres, 3500 kilomètres, 5 000 kilomètres, 1 500 kilomètres...
 
-Lorsqu'il fut à 3 000 kilomètres, le corps de Wang Lin disparut soudainement. À sa réapparition, il n'était plus qu'à 2 000 kilomètres. Il frappa immédiatement son front et cracha le sceau noir.
+Lorsqu'il fut à 1 500 kilomètres, le corps de Wang Lin disparut soudainement. À sa réapparition, il n'était plus qu'à 1000 kilomètres. Il frappa immédiatement son front et cracha le sceau noir.
 
 Dès l'apparition du sceau, celui-ci dégagea une puissante intention de tuer, tandis que de nombreux fragments d'âmes gravitaient autour de lui. Wang Lin le lança dans les airs jusqu'à ce qu'il disparaisse de sa vue.
 
@@ -22,7 +22,7 @@ Simultanément, Wang Lin prit une profonde inspiration et manipula ses mains ave
 
 À l'instant même où il achevait ses gestes, l'Esprit de la Terre arriva.
 
-L'Esprit de la Terre était dans un état chaotique. En voyant Wang Lin, il ne lui prêta aucune attention. Bien qu'il fût affaibli à présent, sa cultivation au stade avancé de la Formation de l'Âme lui permettait encore de tuer à volonté un cultivateur du stade avancé de l'Âme Naissante.
+L'Esprit de la Terre était dans un état chaotique. En voyant Wang Lin, il ne lui prêta aucune attention. Bien qu'il fût affaibli à présent, sa culture au stade avancé de la Formation de l'Âme lui permettait encore de tuer à volonté un cultivateur du stade avancé de l'Âme Naissante.
 
 À ses yeux, Wang Lin n'était pas digne de l'inciter à la prudence.
 
@@ -34,11 +34,11 @@ L'Esprit de la Terre fronça les sourcils, mais ne marqua aucun temps d'arrêt. 
 
 Au même moment, une épaisse fumée noire apparut. Des bras de restriction jaillirent et encerclèrent l'Esprit de la Terre. Peu après, huit anneaux de restriction noirs apparurent, formant avec le drapeau de restriction une cage destinée à piéger l'Esprit de la Terre.
 
-Wang Lin recula immédiatement. Il savait qu'avec son niveau de cultivation, il ne pourrait en aucun cas résister à l'Esprit de la Terre. Cependant, il n'avait pas l'intention de l'affronter lui-même ; il devait simplement le contenir jusqu'à ce que le jeune homme au pinceau arrive. La bataille serait alors terminée.
+Wang Lin recula immédiatement. Il savait qu'avec son niveau de culture, il ne pourrait en aucun cas résister à l'Esprit de la Terre. Cependant, il n'avait pas l'intention de l'affronter lui-même; il devait simplement le contenir jusqu'à ce que le jeune homme au pinceau arrive. La bataille serait alors terminée.
 
 L'Esprit de la Terre perçut l'intention de Wang Lin. Il poussa un rugissement et percuta les anneaux de restriction, ignorant totalement la fumée de restriction.
 
-En vérité, l'Esprit de la Terre n'était pas affecté par la fumée ; dès qu'elle pénétrait son corps, c'était comme s'il la dévorait.
+En vérité, l'Esprit de la Terre n'était pas affecté par la fumée; dès qu'elle pénétrait son corps, c'était comme s'il la dévorait.
 
 Au premier choc, une grande quantité de fumée noire disparut dans un craquement sec.
 
@@ -56,19 +56,19 @@ Le visage de l'Esprit de la Terre devint soudainement très grave alors que son 
 
 À cet instant, le jeune homme ouvrit les yeux, révélant une lueur mystérieuse. Sa main bougea à nouveau, faisant disparaître une grande partie de la boue noire produite par l'Esprit de la Terre.
 
-La pression du sceau noir s'abattit sur l'Esprit de la Terre, le faisant hurler de douleur tandis qu'il reprenait sa forme humaine. Cependant, l'Esprit de la Terre n'était plus que semi-transparent ; il semblait sur le point de se dissiper au moindre souffle de vent.
+La pression du sceau noir s'abattit sur l'Esprit de la Terre, le faisant hurler de douleur tandis qu'il reprenait sa forme humaine. Cependant, l'Esprit de la Terre n'était plus que semi-transparent; il semblait sur le point de se dissiper au moindre souffle de vent.
 
 Un regard de désespoir envahit l'Esprit de la Terre alors que le jeune homme levait la main, prêt à manier son pinceau une nouvelle fois. Wang Lin chargea immédiatement vers le drapeau de restriction et pointa son propre front. Une puissante force d'aspiration apparut, aspirant instantanément l'Esprit de la Terre dans le front de Wang Lin.
 
 Wang Lin n'eut pas le temps de vérifier l'état de sa capture une fois l'esprit absorbé dans la perle défiant le ciel. Il rétracta le sceau noir et d'un geste de la main, rangea le drapeau de restriction dans son sac de rangement.
 
-Tout cela s'était déroulé avec une rapidité extrême. Ensuite, sans hésiter, il cria : « Ce junior est un disciple du Secte des Nuages Blancs. Mon maître est Qing Song ! » Sur ces mots, son sens divin pénétra dans son sac de rangement pour manipuler la sculpture de l'ancien afin de libérer une infime portion du domaine du passage du temps, avant de faire demi-tour et de s'enfuir.
+Tout cela s'était déroulé avec une rapidité extrême. Ensuite, sans hésiter, il cria: « Ce junior est un disciple de la Secte des Nuages Blancs. Mon maître est Qing Song! » Sur ces mots, son sens divin pénétra dans son sac de rangement pour manipuler la sculpture de l'ancien afin de libérer une infime portion du domaine du passage du temps, avant de faire demi-tour et de s'enfuir.
 
 Le jeune homme fixa Wang Lin d'un regard glacial, mais sa main ne bougea pas. Après un moment, il se détourna et partit à son tour.
 
-Wang Lin vola pendant 10 000 kilomètres en restant sur ses gardes avant de s'arrêter. Ce n'est que lorsqu'il constata que le jeune homme ne le poursuivait pas qu'il laissa enfin échapper un soupir de soulagement.
+Wang Lin vola pendant 2 500 kilomètres en restant sur ses gardes avant de s'arrêter. Ce n'est que lorsqu'il constata que le jeune homme ne le poursuivait pas qu'il laissa enfin échapper un soupir de soulagement.
 
-Wang Lin avait pris d'énormes risques pour dérober cet Esprit de la Terre à autrui. Il décida de ne pas tenter d'obtenir les autres esprits élémentaires ; ce serait trop périlleux. S'il avait commis la moindre erreur, il serait mort.
+Wang Lin avait pris d'énormes risques pour dérober cet Esprit de la Terre à autrui. Il décida de ne pas tenter d'obtenir les autres esprits élémentaires; ce serait trop périlleux. S'il avait commis la moindre erreur, il serait mort.
 
 De plus, l'endommagement du drapeau de restriction lui causait une vive douleur au cœur.
 
@@ -82,7 +82,7 @@ Une à une, les sculptures s'élevèrent à travers le sol enneigé. Si l'on obs
 
 Les sculptures commencèrent à briller alors qu'elles s'élançaient soudainement dans les airs. Toutes les sculptures de glace de l'Alliance des Quatre Sectes s'envolèrent à des vitesses inimaginables, et toutes les failles du ciel, excepté celle située au centre, disparurent.
 
-Peu après, une puissante aura bleu foncé émana de la faille centrale. Dès son apparition, elle se propagea rapidement, enveloppant un périmètre de 10 000 kilomètres.
+Peu après, une puissante aura bleu foncé émana de la faille centrale. Dès son apparition, elle se propagea rapidement, enveloppant un périmètre de 2 500 kilomètres.
 
 Certains cultivateurs de l'Alliance des Quatre Sectes ne purent esquiver assez vite et furent frappés par cette aura bleutée. Ils se figèrent instantanément, se transformant en sculptures de glace. Même leurs Âmes Naissantes furent totalement pétrifiées sur place.
 
@@ -106,7 +106,7 @@ Wang Lin courut jusqu'à ce que l'aura bleue cesse de se propager, puis s'arrêt
 
 L'aura bleu foncé n'eut aucun effet sur le dragon noir.
 
-Cependant, alors que le dragon noir fonçait sur la créature, une voix froide résonna de l'intérieur de la faille : « Noble messager, Suzaku a promis de nous aider une fois ; je vous demande donc maintenant de tuer ce dragon noir. »
+Cependant, alors que le dragon noir fonçait sur la créature, une voix froide résonna de l'intérieur de la faille: « Noble messager, Suzaku a promis de nous aider une fois; je vous demande donc maintenant de tuer ce dragon noir. »
 
 Tandis que ces paroles s'élevaient, une femme en robe blanche, aux longs cheveux flottants, émergea de la faille. Cette femme était d'une grande grâce. Il ne semblait même pas émaner de froid de son corps, mais ses yeux révélaient une détermination sans faille.
 
@@ -114,4 +114,4 @@ Dès l'apparition de cette femme, n'importe quel imbécile aurait pu constater l
 
 Une fois apparue, elle agita la main et quatre rayons de lumière volèrent vers elle depuis quatre directions distinctes. Il s'agissait des esprits élémentaires du métal, du bois, de l'eau et du feu.
 
-Le front de la femme se plissa. « Il en manque un ? »
+Le front de la femme se plissa. « Il en manque un? »

@@ -10,19 +10,19 @@ slug: domaine-etrange
 
 Ces vents étaient d'une densité extrême et ne cessaient de s'intensifier. Bientôt, ils finirent par se lier pour balayer la zone en un seul souffle.
 
-Les fragments du Royaume Céleste continuaient de s'effondrer ; à cet instant, il en restait moins de vingt. Des morceaux de glace noire apparurent au cœur de ce vent glacial et se propagèrent sans relâche. Rapidement, les vingt fragments furent recouverts par cette glace.
+Les fragments du Royaume Céleste continuaient de s'effondrer; à cet instant, il en restait moins de vingt. Des morceaux de glace noire apparurent au cœur de ce vent glacial et se propagèrent sans relâche. Rapidement, les vingt fragments furent recouverts par cette glace.
 
 De loin, cette glace noire dégageait une aura sinistre. Le simple fait de la contempler suffisait à glacer le sang dans les veines.
 
-La glace noire s'accumula également le long des chaînes de tonnerre reliant ces vingt fragments. Bientôt, elle s'étendit jusqu'à recouvrir l'intégralité des chaînes !
+La glace noire s'accumula également le long des chaînes de tonnerre reliant ces vingt fragments. Bientôt, elle s'étendit jusqu'à recouvrir l'intégralité des chaînes!
 
-Les cultivateurs qui n'avaient pas pu s'échapper à temps furent tous figés. Ils restèrent pétrifiés dans leurs dernières postures : certains en plein vol, d'autres luttant désespérément, ou encore les yeux clos, attendant la mort.
+Les cultivateurs qui n'avaient pas pu s'échapper à temps furent tous figés. Ils restèrent pétrifiés dans leurs dernières postures: certains en plein vol, d'autres luttant désespérément, ou encore les yeux clos, attendant la mort.
 
-Certains corps s'étaient effondrés sans pour autant se dissiper ; la chair et le sang qui jaillissaient étaient restés figés dans les airs. C'était une scène d'une horreur absolue.
+Certains corps s'étaient effondrés sans pour autant se dissiper; la chair et le sang qui jaillissaient étaient restés figés dans les airs. C'était une scène d'une horreur absolue.
 
-Sur l'un des fragments, un homme d'âge moyen était pétrifié, une épée suspendue dans les airs devant lui. Il n'était pas le seul ; les trésors de tous ceux qui tentaient de fuir étaient également figés dans la glace.
+Sur l'un des fragments, un homme d'âge moyen était pétrifié, une épée suspendue dans les airs devant lui. Il n'était pas le seul; les trésors de tous ceux qui tentaient de fuir étaient également figés dans la glace.
 
-Certains avaient même été frappés par le vent glacial alors qu'ils lançaient un sort ; une faible lueur émanait encore de leurs techniques, emprisonnée dans la glace qui les entourait.
+Certains avaient même été frappés par le vent glacial alors qu'ils lançaient un sort; une faible lueur émanait encore de leurs techniques, emprisonnée dans la glace qui les entourait.
 
 Ces lueurs vacillantes devinrent les seules sources de lumière au sein du Royaume Céleste du Tonnerre. Elles étaient dispersées comme des étoiles. Bien que magnifiques, leur aspect changeait radicalement dès qu'on les observait de plus près.
 
@@ -40,29 +40,29 @@ Après avoir retrouvé leur direction, chaque cultivateur regagna rapidement sa 
 
 Un nom en particulier se propagea comme une traînée de poudre parmi les dizaines de clans des survivants.
 
-Qui était celui qui avait combattu l'étrange homme aux cheveux blancs à la porte céleste ?
+Qui était celui qui avait combattu l'étrange homme aux cheveux blancs à la porte céleste?
 
-Qui était celui qui avait sauvé tant de cultivateurs de la mort au plus fort de la crise ?
+Qui était celui qui avait sauvé tant de cultivateurs de la mort au plus fort de la crise?
 
-Qui était celui qui avait insufflé la volonté de vivre lors de l'effondrement du Royaume Céleste du Tonnerre et utilisé un fragment pour sauver d'innombrables âmes ? Qui était celui qui avait conduit ces gens vers le réseau de transfert du Temple Céleste du Tonnerre ? Il avait brisé la barrière et, d'un rugissement, avait effrayé les messagers du Temple afin de ramener tout le monde au réseau de transfert avant qu'il ne s'effondre !
+Qui était celui qui avait insufflé la volonté de vivre lors de l'effondrement du Royaume Céleste du Tonnerre et utilisé un fragment pour sauver d'innombrables âmes? Qui était celui qui avait conduit ces gens vers le réseau de transfert du Temple Céleste du Tonnerre? Il avait brisé la barrière et, d'un rugissement, avait effrayé les messagers du Temple afin de ramener tout le monde au réseau de transfert avant qu'il ne s'effondre!
 
-Xu Mu !
+Xu Mu!
 
 Parmi les dizaines de familles de survivants, il y avait des clans de toutes tailles. Cependant, une fois unis, ils formèrent une force qu'on ne pouvait sous-estimer.
 
-Grâce à cette puissance, le Temple Céleste du Tonnerre n'osa plus évoquer l'incident du réseau de transfert ; c'était comme si cela n'avait jamais existé. En réalité, ces dizaines de familles avaient largement médiatisé l'événement pour faire de Xu Mu un héros !
+Grâce à cette puissance, le Temple Céleste du Tonnerre n'osa plus évoquer l'incident du réseau de transfert; c'était comme si cela n'avait jamais existé. En réalité, ces dizaines de familles avaient largement médiatisé l'événement pour faire de Xu Mu un héros!
 
 Après tout, certains membres de ces familles avaient pénétré dans la zone interdite du Temple Céleste du Tonnerre, ce qui aurait pu causer le désastre de tout leur clan. Cela ne pouvait être passé sous silence et le Temple devait déjà être au courant.
 
-Plutôt que d'attendre que le Temple Céleste du Tonnerre ne vienne les exterminer, ils décidèrent de s'unir pour négocier avec raison ! De cette façon, une chance de survie subsistait. Autrement, ils auraient été livrés sur un plateau aux autorités.
+Plutôt que d'attendre que le Temple Céleste du Tonnerre ne vienne les exterminer, ils décidèrent de s'unir pour négocier avec raison! De cette façon, une chance de survie subsistait. Autrement, ils auraient été livrés sur un plateau aux autorités.
 
-Pourtant, les personnes capables d'entrer dans le Royaume Céleste du Tonnerre étaient des descendants directs, les futurs piliers de leurs lignées ; comment pouvait-on les laisser mourir ?!
+Pourtant, les personnes capables d'entrer dans le Royaume Céleste du Tonnerre étaient des descendants directs, les futurs piliers de leurs lignées; comment pouvait-on les laisser mourir?!
 
 Les anciens de ces familles étaient des êtres rusés et comprirent naturellement la situation. En agissant ainsi, ils réussirent à atténuer la gravité de l'intrusion dans la zone interdite du Temple.
 
 Cependant, ce faisant, ils avaient propagé le nom de « Xu Mu » partout.
 
-En particulier, ceux qui avaient été secourus par Xu Mu ne cessaient d'exagérer ses exploits. En fin de compte, personne ne pouvait deviner le niveau de cultivation de Xu Mu !
+En particulier, ceux qui avaient été secourus par Xu Mu ne cessaient d'exagérer ses exploits. En fin de compte, personne ne pouvait deviner le niveau de culture de Xu Mu!
 
 Les anciens interrogèrent les témoins. Lorsqu'ils entendirent parler des divers sorts utilisés lors du combat contre l'étrange homme aux cheveux blancs, ils furent terrifiés.
 
@@ -86,11 +86,11 @@ Il n'y avait ni étoiles ni lueur ici. L'obscurité était si profonde qu'elle e
 
 Une lumière surgit soudainement de l'obscurité. D'abord faible, elle devint rapidement éclatante, au point d'illuminer brusquement les environs.
 
-À mesure que la lumière se propageait, elle révéla que la zone était saturée de brouillard. Ce dernier semblait craindre la lumière ; il recula rapidement pour former, en un clin d'œil, une vaste étendue dégagée.
+À mesure que la lumière se propageait, elle révéla que la zone était saturée de brouillard. Ce dernier semblait craindre la lumière; il recula rapidement pour former, en un clin d'œil, une vaste étendue dégagée.
 
-La clarté s'étendit jusqu'à atteindre plus de cent pieds de large. Des ondulations apparurent, puis une silhouette commença à se matérialiser au sein de ces cercles concentriques.
+La clarté s'étendit jusqu'à atteindre plus de 330 mètres de large. Des ondulations apparurent, puis une silhouette commença à se matérialiser au sein de ces cercles concentriques.
 
-Cette silhouette prit lentement forme pour devenir un être humain !
+Cette silhouette prit lentement forme pour devenir un être humain!
 
 Les yeux de Wang Lin étaient empreints de prudence. Une fois apparu, les ondulations commencèrent à se dissiper et il put distinguer son environnement. Dès que la lumière s'estompa, le brouillard recommença à bouger comme s'il voulait de nouveau engloutir la zone.
 
@@ -102,19 +102,19 @@ Ces deux sphères étaient extrêmement brillantes. Dès leur apparition, l'écl
 
 L'expression de Wang Lin était sombre alors qu'il fixait la brume devant lui. Puis il regarda autour de lui et ne put s'empêcher de froncer les sourcils.
 
-« Où suis-je... ? »
+« Où suis-je...? »
 
-« Ce brouillard est étrange ; on dirait qu'il est doué de vie ! » Les yeux de Wang Lin s'illuminèrent et il lança la sphère de tonnerre de sa main droite. Celle-ci s'élança dans un grondement.
+« Ce brouillard est étrange; on dirait qu'il est doué de vie! » Les yeux de Wang Lin s'illuminèrent et il lança la sphère de tonnerre de sa main droite. Celle-ci s'élança dans un grondement.
 
 Le brouillard se fendit rapidement, créant un passage pour la sphère. Le corps de Wang Lin vacilla et le suivit de près.
 
-Il avança au rythme du tonnerre. Le brouillard semblait infini ; même lorsque la sphère commença à faiblir, il ne s'était toujours pas échappé de la brume.
+Il avança au rythme du tonnerre. Le brouillard semblait infini; même lorsque la sphère commença à faiblir, il ne s'était toujours pas échappé de la brume.
 
 Tout au long de sa progression, les sourcils de Wang Lin restaient contractés. Le brouillard environnant était si singulier qu'il n'osait pas déployer son Sens Divin. Il avait le pressentiment que s'il tentait de le faire, cela provoquerait un changement radical dans la brume.
 
 Bien que cette intuition fût éthérée, elle était d'une force inébranlable.
 
-Après trois jours de vol, Wang Lin s'arrêta. Le brouillard infini l'entourait toujours. Rien n'avait changé ; c'était comme si la brume ne finissait jamais.
+Après trois jours de vol, Wang Lin s'arrêta. Le brouillard infini l'entourait toujours. Rien n'avait changé; c'était comme si la brume ne finissait jamais.
 
 Après un moment de silence, le regard de Wang Lin devint glacial et il retrouva son calme. Il relaxa son esprit et fit un pas en avant, faisant apparaître des ondulations sous ses pieds.
 
@@ -130,11 +130,11 @@ Au moment où il émergea, son expression changea.
 
 C'était effectivement la fin du brouillard, mais à trois cents pieds devant lui se dressait un mur de chair rouge sombre. Il était colossal et semblait s'étendre à l'infini. Même en levant les yeux, le mur recouvrait encore tout le ciel.
 
-Le visage de Wang Lin devint extrêmement sombre. Lorsqu'il avait tenté de fusionner avec le monde, il pensait à sa planète de cultivation. Pourtant, il avait eu l'impression de heurter un obstacle, avant d'être violemment expulsé de sa fusion et projeté ici.
+Le visage de Wang Lin devint extrêmement sombre. Lorsqu'il avait tenté de fusionner avec le monde, il pensait à sa planète de culture. Pourtant, il avait eu l'impression de heurter un obstacle, avant d'être violemment expulsé de sa fusion et projeté ici.
 
-En voyant ce mur de chair, Wang Lin comprit que l'obstacle qu'il avait percuté était cet immense rempart organique !
+En voyant ce mur de chair, Wang Lin comprit que l'obstacle qu'il avait percuté était cet immense rempart organique!
 
-On l'appelait « mur de chair » car il était en mouvement ; des protubérances ondulaient sans cesse à sa surface.
+On l'appelait « mur de chair » car il était en mouvement; des protubérances ondulaient sans cesse à sa surface.
 
 Wang Lin fronça les sourcils et, d'un mouvement brusque, s'élança vers le haut. Tandis qu'il montait, la masse de chair commença à réagir. D'innombrables fissures s'ouvrirent, crachant une brume noire.
 
@@ -150,8 +150,8 @@ Ce tunnel n'était pas aussi long qu'il l'avait imaginé. Un instant plus tard, 
 
 Au moment où il émergea, un cri parvint à ses oreilles. Les yeux de Wang Lin se plissèrent.
 
-Cet endroit n'était pas sombre ; des étoiles étaient parsemées dans le ciel, illuminant les lieux. Devant lui flottait un continent. Ce dernier était immense, sans fin apparente.
+Cet endroit n'était pas sombre; des étoiles étaient parsemées dans le ciel, illuminant les lieux. Devant lui flottait un continent. Ce dernier était immense, sans fin apparente.
 
-Au loin, un homme vêtu de haillons se tenait là. Son apparence était très ordinaire, mais son visage était marqué de tatouages qui serpentaient comme des lianes. Il tenait un étrange instrument à la main ; cela ressemblait à l'ouverture d'une bouilloire, mais en bien plus grand, atteignant presque la taille d'un demi-homme.
+Au loin, un homme vêtu de haillons se tenait là. Son apparence était très ordinaire, mais son visage était marqué de tatouages qui serpentaient comme des lianes. Il tenait un étrange instrument à la main; cela ressemblait à l'ouverture d'une bouilloire, mais en bien plus grand, atteignant presque la taille d'un demi-homme.
 
 C'était cet homme qui avait poussé ce cri. Il regarda Wang Lin avec terreur et recula précipitamment, comme si le cultivateur n'était à ses yeux qu'une bête féroce.

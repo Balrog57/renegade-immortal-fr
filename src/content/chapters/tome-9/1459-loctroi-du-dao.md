@@ -6,27 +6,27 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1459 - Granting Dao
 slug: loctroi-du-dao
 ---
-« Il est fort probable que l’autre méthode envisagée par l’Empereur Céleste Antique soit liée à l’Ordre Antique ! L’Empereur Céleste Antique a attiré l’Ordre Antique ici… Il a manigancé autour de l’Ordre Antique et même des trois clans. Il voulait les utiliser pour élever le Dao Céleste !
+« Il est fort probable que l’autre méthode envisagée par l’Empereur Céleste Antique soit liée à l’Ordre Antique! L’Empereur Céleste Antique a attiré l’Ordre Antique ici… Il a manigancé autour de l’Ordre Antique et même des trois clans. Il voulait les utiliser pour élever le Dao Céleste!
 
-« Un être comme l’Empereur Céleste Antique n'agirait que s'il était sûr à 100 % de son coup, il a donc dû réussir… Cependant, comment le Dao Céleste a-t-il pu être détruit en fin de compte ?
+« Un être comme l’Empereur Céleste Antique n'agirait que s'il était sûr à 100 % de son coup, il a donc dû réussir… Cependant, comment le Dao Céleste a-t-il pu être détruit en fin de compte?
 
-« De plus, dans le Système Stellaire de l’Alliance, lorsque je subissais ma rétribution divine, j'ai involontairement ouvert une faille spatiale menant à un monde étrange. Il y avait là de nombreuses statues de dieux anciens, de démons anciens et de diables antiques… Cet endroit est-il lié au Tombeau de l’Ordre Antique, et est-il lié au taoïste aux sept couleurs ?
+« De plus, dans le Système Stellaire de l’Alliance, lorsque je subissais ma rétribution divine, j'ai involontairement ouvert une faille spatiale menant à un monde étrange. Il y avait là de nombreuses statues de dieux anciens, de démons anciens et de diables antiques… Cet endroit est-il lié au Tombeau de l’Ordre Antique, et est-il lié au taoïste aux sept couleurs?
 
-« De plus, presque chaque génération de l'Oiseau Vermillon a été scellée. Tout semble pointer vers le Maître du Souverain… Qui est donc le Maître du Souverain ?
+« De plus, presque chaque génération de l'Oiseau Vermillon a été scellée. Tout semble pointer vers le Maître du Souverain… Qui est donc le Maître du Souverain?
 
-« Il y a aussi cette femme en argent qui a hurlé et s’est déchaînée après avoir vu la statue du taoïste aux sept couleurs. Elle ne cessait de répéter qu'elle n'avait pas ouvert la porte… Quelle était donc cette porte, et pourquoi le taoïste aux sept couleurs était-il si en colère qu'il en déclencha un massacre ?
+« Il y a aussi cette femme en argent qui a hurlé et s’est déchaînée après avoir vu la statue du taoïste aux sept couleurs. Elle ne cessait de répéter qu'elle n'avait pas ouvert la porte… Quelle était donc cette porte, et pourquoi le taoïste aux sept couleurs était-il si en colère qu'il en déclencha un massacre?
 
-« Cette porte, pourrait-elle être celle qui mène au Dao Céleste ? Ou une porte scellant son ennemi ? Ou… une porte vers un autre monde ?
+« Cette porte, pourrait-elle être celle qui mène au Dao Céleste? Ou une porte scellant son ennemi? Ou… une porte vers un autre monde?
 
-« Ou bien tout ce que j'ai supposé est faux… » Wang Lin fronça les sourcils ; il ne pouvait analyser les choses qu'à ce point avec les indices dont il disposait. Il n'était lui-même pas certain de grand-chose.
+« Ou bien tout ce que j'ai supposé est faux… » Wang Lin fronça les sourcils; il ne pouvait analyser les choses qu'à ce point avec les indices dont il disposait. Il n'était lui-même pas certain de grand-chose.
 
-« Lorsque la plateforme de rang 5 s'est formée, la voix se faisant appeler "Ye Mo" a déclaré que les membres de son clan pouvaient franchir la porte de la réincarnation pour obtenir son héritage. Ceux qui n'appartiennent pas à son clan peuvent se rendre dans son palais terrestre… Qu'est-ce que ce palais terrestre ? »
+« Lorsque la plateforme de rang 5 s'est formée, la voix se faisant appeler "Ye Mo" a déclaré que les membres de son clan pouvaient franchir la porte de la réincarnation pour obtenir son héritage. Ceux qui n'appartiennent pas à son clan peuvent se rendre dans son palais terrestre… Qu'est-ce que ce palais terrestre? »
 
 Wang Lin se frotta les tempes et ses yeux s'illuminèrent.
 
-« Quoi qu'il en soit, l'existence du Tombeau de l'Ordre Antique est forcément liée au taoïste aux sept couleurs. Cet endroit a-t-il été créé pour élever le Dao Céleste… ou est-ce un lieu que Ye Mo a créé pour transmettre son héritage après sa mort ?
+« Quoi qu'il en soit, l'existence du Tombeau de l'Ordre Antique est forcément liée au taoïste aux sept couleurs. Cet endroit a-t-il été créé pour élever le Dao Céleste… ou est-ce un lieu que Ye Mo a créé pour transmettre son héritage après sa mort?
 
-« On appelle cela le "Tombeau de l'Ordre Antique"... Pourrait-il s'agir du tombeau de l'Ordre Antique, de Ye Mo ? » Plus il réfléchissait, plus il sombrait dans la confusion.
+« On appelle cela le "Tombeau de l'Ordre Antique"... Pourrait-il s'agir du tombeau de l'Ordre Antique, de Ye Mo? » Plus il réfléchissait, plus il sombrait dans la confusion.
 
 Après un long moment, il poussa un soupir et cessa de songer à ces pensées irritantes. Son regard s'anima et il observa les arbres desséchés autour de lui.
 
@@ -62,19 +62,19 @@ Le Fourneau Impérial pouvait changer de taille. À présent, il ne mesurait que
 
 Le chaos à l'intérieur du fourneau se dissipa et une mer noire apparut devant lui. Cette mer était morte, sans la moindre vague. Une immense quantité d'âmes de Flamme Joss empoisonnées s'y trouvait.
 
-« Affine ! » Wang Lin pointa l'océan du doigt et la mer de poison sembla s'enflammer. Des rugissements étouffés retentirent et de grandes vagues formèrent des tourbillons qui rageaient violemment.
+« Affine! » Wang Lin pointa l'océan du doigt et la mer de poison sembla s'enflammer. Des rugissements étouffés retentirent et de grandes vagues formèrent des tourbillons qui rageaient violemment.
 
-« Cette mer est composée du poison de la Grande Désolation ainsi que des âmes de Flamme Joss du Maître Dao Miao Yin. Une fois raffinée, elle deviendra un puissant trésor empoisonné ! »
+« Cette mer est composée du poison de la Grande Désolation ainsi que des âmes de Flamme Joss du Maître Dao Miao Yin. Une fois raffinée, elle deviendra un puissant trésor empoisonné! »
 
 L'expression de Wang Lin était calme tandis qu'il commençait le raffinage.
 
-L'océan à l'intérieur du Fourneau Impérial rugissait avec encore plus de violence. Les innombrables âmes de Flamme Joss poussaient des cris stridents, d'une dureté extrême. Heureusement, elles étaient contenues par le Fourneau Impérial ; ainsi, lorsqu'elles atteignaient l'extérieur, leur intensité était bien amoindrie.
+L'océan à l'intérieur du Fourneau Impérial rugissait avec encore plus de violence. Les innombrables âmes de Flamme Joss poussaient des cris stridents, d'une dureté extrême. Heureusement, elles étaient contenues par le Fourneau Impérial; ainsi, lorsqu'elles atteignaient l'extérieur, leur intensité était bien amoindrie.
 
 Des grondements tonitruants se succédèrent sans relâche et une épaisse brume noire flotta au-dessus de l'océan. Cette brume était l'océan qui, raffiné en gaz, commençait bientôt à remplir tout le Fourneau Impérial.
 
 Cependant, la brume noire ne se dissipait pas, elle continuait de s'accumuler. Une fois une certaine densité atteinte, elle se transforma en nuages noirs. Puis, des gouttes de pluie noire retombèrent dans l'océan.
 
-Un cycle s'installa, mais lorsque l'eau de l'océan se changeait en pluie, la quantité diminuait. Ce n'était pas que le poison s'évaporait, c'est qu'il devenait plus concentré !
+Un cycle s'installa, mais lorsque l'eau de l'océan se changeait en pluie, la quantité diminuait. Ce n'était pas que le poison s'évaporait, c'est qu'il devenait plus concentré!
 
 Peu après, de plus en plus de nuages noirs apparurent dans le Fourneau Impérial et la pluie continua de tomber. Les vagues rugissaient et, à mesure que Wang Lin poursuivait son œuvre, le niveau de l'océan baissait. Après trois jours de pluie incessante, il ne restait plus que la moitié de la mer.
 
@@ -86,7 +86,7 @@ Ce royaume contenait également un océan infini, mais celui-ci était violet et
 
 L'Estimé Ling Dong était assis au fond de cet océan. Ses mains formaient des sceaux tandis qu'il raffinait ces âmes de Flamme Joss avec fureur, tentant de les contraindre à lui consacrer leurs flammes.
 
-Derrière l'Estimé Ling Dong se dressait une statue gigantesque : celle du dieu démon du clan de Ling Dong. La statue émettait une lumière qui enveloppait toutes les âmes de Flamme Joss, lesquelles manifestaient confusion et lutte.
+Derrière l'Estimé Ling Dong se dressait une statue gigantesque: celle du dieu démon du clan de Ling Dong. La statue émettait une lumière qui enveloppait toutes les âmes de Flamme Joss, lesquelles manifestaient confusion et lutte.
 
 Certaines âmes avaient déjà été converties, offrant leurs flammes à Ling Dong pour qu'il les absorbe. Le visage de l'Estimé Ling Dong était radieux, empreint d'excitation.
 
@@ -94,21 +94,21 @@ En voyant cela, Wang Lin fronça légèrement les sourcils. Ces âmes appartenai
 
 Tout en réfléchissant, Wang Lin projeta une parcelle de son Sens Divin dans le Fourneau Impérial. Puis, sa silhouette apparut dans le ciel, au-dessus de l'océan violet.
 
-« Esclave Antique ! »
+« Esclave Antique! »
 
 Une voix majestueuse résonna à l'intérieur du Fourneau Impérial. L'Estimé Ling Dong ouvrit les yeux, révélant ferveur et respect. Il s'élança alors au-dessus de l'océan.
 
-Il s'arrêta à cent pieds de Wang Lin et s'agenouilla dans les airs. « L'esclave antique Ling Dong salue le Maître. Je me demande si le Maître a une tâche à confier à cet esclave ! »
+Il s'arrêta à cent pieds de Wang Lin et s'agenouilla dans les airs. « L'esclave antique Ling Dong salue le Maître. Je me demande si le Maître a une tâche à confier à cet esclave! »
 
-Le fantôme de Wang Lin fixa froidement l'Estimé Ling Dong. Après un long silence, il dit lentement : « Je vais te transmettre un sortilège. Je pense qu'avec ton niveau de cultivation, tu devrais être capable de l'apprendre rapidement. Grâce à lui, tu pourras absorber les Flammes Joss ici et atteindre la véritable troisième étape ! »
+Le fantôme de Wang Lin fixa froidement l'Estimé Ling Dong. Après un long silence, il dit lentement: « Je vais te transmettre un sortilège. Je pense qu'avec ton niveau de culture, tu devrais être capable de l'apprendre rapidement. Grâce à lui, tu pourras absorber les Flammes Joss ici et atteindre la véritable troisième étape! »
 
-L'Estimé Ling Dong leva brusquement la tête, les yeux brillants d'ardeur. Il avait cultivé toute sa vie pour devenir un cultivateur de la troisième étape, mais le manque de Flammes Joss l'en avait empêché. Sans compter qu'il était sous l'influence du Dao des Rêves de Wang Lin et du Fourneau Impérial, si Wang Lin lui offrait une telle fortune, il serait prêt à le suivre même sans aucune influence !
+L'Estimé Ling Dong leva brusquement la tête, les yeux brillants d'ardeur. Il avait cultivé toute sa vie pour devenir un cultivateur de la troisième étape, mais le manque de Flammes Joss l'en avait empêché. Sans compter qu'il était sous l'influence du Dao des Rêves de Wang Lin et du Fourneau Impérial, si Wang Lin lui offrait une telle fortune, il serait prêt à le suivre même sans aucune influence!
 
-Tant qu'il pouvait accomplir son Dao, il était prêt à tout !
+Tant qu'il pouvait accomplir son Dao, il était prêt à tout!
 
 Wang Lin leva la main droite et pointa l'avant. Un sceau fonça vers Ling Dong. Ce dernier ne chercha pas à l'arrêter, laissant le sort pénétrer son front pour se fixer sur son âme originelle.
 
-« Sortilège de Dao : Fusion ! Comprends vite ce sort ! »
+« Sortilège de Dao: Fusion! Comprends vite ce sort! »
 
 Wang Lin retira son regard. Il était extrêmement satisfait d'avoir assujetti l'Estimé Ling Dong. Avec le Fourneau Impérial et bien d'autres méthodes, il n'avait aucune crainte qu'il ne le trahisse.
 
@@ -116,4 +116,4 @@ Wang Lin retira son regard. Il était extrêmement satisfait d'avoir assujetti l
 
 Au même moment, à l'extérieur, l'homme corpulent du Clan du Loup Céleste progressait sur sa plateforme de rang 5. Il se rapprochait inexorablement de cet endroit.
 
-« Ce n'est plus loin, il ne me reste que trois jours pour arriver ! Si je peux obtenir neuf de ces feuilles, je pourrai utiliser mon Dao du Loup Céleste et le sceller pour qu'il m'accompagne à jamais ! Même si je reste au début du Nirvana Vide, je serai le cultivateur le plus puissant de ce stade ! » Les yeux de l'homme brillaient d'excitation tandis qu'il commandait à sa plateforme de voler de plus en plus vite.
+« Ce n'est plus loin, il ne me reste que trois jours pour arriver! Si je peux obtenir neuf de ces feuilles, je pourrai utiliser mon Dao du Loup Céleste et le sceller pour qu'il m'accompagne à jamais! Même si je reste au début du Nirvana Vide, je serai le cultivateur le plus puissant de ce stade! » Les yeux de l'homme brillaient d'excitation tandis qu'il commandait à sa plateforme de voler de plus en plus vite.

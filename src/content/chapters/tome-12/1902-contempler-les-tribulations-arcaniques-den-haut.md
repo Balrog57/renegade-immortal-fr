@@ -6,13 +6,13 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1902 - Viewing the Arcane Tribulants From Above
 slug: contempler-les-tribulations-arcaniques-den-haut
 ---
-L'homme d'âge moyen regarda au loin et, après un long moment, il murmura pour lui-même : « J'ai éveillé une calamité prématurément... » Il baissa la tête, contempla les ruines en contrebas et déploya son sens divin. Son sens divin était si puissant qu'il couvrit instantanément chaque centimètre de son continent.
+L'homme d'âge moyen regarda au loin et, après un long moment, il murmura pour lui-même: « J'ai éveillé une calamité prématurément... » Il baissa la tête, contempla les ruines en contrebas et déploya son sens divin. Son sens divin était si puissant qu'il couvrit instantanément chaque centimètre de son continent.
 
-Il se souvenait vaguement qu'il y a fort longtemps, il était venu ici et avait détruit cet endroit. Après avoir exterminé toute forme de vie, il avait absorbé l'aura de la mort pour s'immerger dans une cultivation en isolement.
+Il se souvenait vaguement qu'il y a fort longtemps, il était venu ici et avait détruit cet endroit. Après avoir exterminé toute forme de vie, il avait absorbé l'aura de la mort pour s'immerger dans une culture en isolement.
 
 Selon ses calculs, il aurait dû s'éveiller après cinq calamités, mais il s'était éveillé avec une calamité d'avance.
 
-« L'aura qui a ébranlé mon cœur jusqu'au plus profond de mon âme et provoqué mon réveil prématuré provenait de cette direction... C'est une aura de même nature... Se pourrait-il qu'une existence similaire soit née... ? » L'homme réfléchit silencieusement.
+« L'aura qui a ébranlé mon cœur jusqu'au plus profond de mon âme et provoqué mon réveil prématuré provenait de cette direction... C'est une aura de même nature... Se pourrait-il qu'une existence similaire soit née...? » L'homme réfléchit silencieusement.
 
 Il gardait des souvenirs flous de ce qui se trouvait dans la direction d'où émanait cette aura.
 
@@ -20,7 +20,7 @@ Il gardait des souvenirs flous de ce qui se trouvait dans la direction d'où ém
 
 Il marcha vers les cieux, ses longs cheveux flottant derrière lui tels un dragon noir. À mesure qu'il s'élevait, sa silhouette se transformait en celle d'un dragon noir, donnant l'impression que cet homme était lui-même une créature mythique. Il vola en direction du Continent Astral Immortel, situé à une distance infinie de cet endroit.
 
-À sa vitesse, il lui faudrait des centaines d'années pour atteindre le Continent Astral Immortel !
+À sa vitesse, il lui faudrait des centaines d'années pour atteindre le Continent Astral Immortel!
 
 ***
 
@@ -28,7 +28,7 @@ Dans les profondeurs du Temple du Scorpion Vert, sur le Continent du Démon Vert
 
 Sur ce geste, les trois essences commencèrent à converger et à fusionner lentement. Ces trois essences n'avaient pas été acquises par des moyens extérieurs, mais étaient nées de ses propres domaines et de sa compréhension.
 
-Pour que ces trois essences voient le jour, un bourgeon s'était formé lors de sa première transformation mortelle, il avait grandi lors de sa deuxième, pour enfin atteindre son achèvement lors de sa troisième transformation mortelle !
+Pour que ces trois essences voient le jour, un bourgeon s'était formé lors de sa première transformation mortelle, il avait grandi lors de sa deuxième, pour enfin atteindre son achèvement lors de sa troisième transformation mortelle!
 
 La vie et la mort, le karma, ainsi que le vrai et le faux interagissaient et se transformaient mutuellement. Ils fusionnaient lentement sous les yeux de Wang Lin.
 
@@ -38,15 +38,15 @@ Dans l'essence du karma, il vit Liu Mei, il vit Wang Ping, et il se vit lui-mêm
 
 Dans l'essence du vrai et du faux, il vit Su Dao, le rêve de soixante ans, et de nombreux visages familiers.
 
-Ces trois essences éthérées n'étaient plus de simples essences pour Wang Lin. Elles étaient sa vie entière passée à défier les cieux !
+Ces trois essences éthérées n'étaient plus de simples essences pour Wang Lin. Elles étaient sa vie entière passée à défier les cieux!
 
 « J'ai utilisé l'essence de la vie et de la mort pour quitter la mortalité, j'ai utilisé l'essence du karma pour obtenir le Dao, et j'ai utilisé l'essence du vrai et du faux pour comprendre. »
 
 « Dans la vie et la mort, mes pensées chaotiques ont donné naissance au karma. Dans ce karma, j'ai continué à confirmer mon Dao... Enfin, entre le vrai et le faux, j'ai cherché où se trouvait mon Dao... »
 
-« Après la vie et la mort vient le karma, après le karma vient le vrai et le faux, et après le vrai et le faux, il y a... l'entrée dans le Dao ! »
+« Après la vie et la mort vient le karma, après le karma vient le vrai et le faux, et après le vrai et le faux, il y a... l'entrée dans le Dao! »
 
-« La fusion des trois essences éthérées n'est pas difficile. Elles sont nées de moi, se sont formées par moi, et fusionneront grâce à moi ! » Tandis que Wang Lin murmurait, il agita la main droite. Les trois essences commencèrent rapidement à graviter et à fusionner entre elles.
+« La fusion des trois essences éthérées n'est pas difficile. Elles sont nées de moi, se sont formées par moi, et fusionneront grâce à moi! » Tandis que Wang Lin murmurait, il agita la main droite. Les trois essences commencèrent rapidement à graviter et à fusionner entre elles.
 
 Au fur et à mesure de leur union, il observa ses essences. À l'intérieur, il vit tout, depuis sa naissance jusqu'à cet instant précis.
 
@@ -68,62 +68,62 @@ La fusion des trois essences se mua en une ligne imprégnée de ses souvenirs. C
 
 Au moment où l'anneau fut imprimé, la nostalgie dans le regard de Wang Lin disparut, remplacée par une lumière dorée.
 
-Dans cette clarté, le niveau de cultivation de Wang Lin augmenta de nouveau. En même temps que sa progression, il absorba toute la puissance qui était destinée au Scorpion Vert !
+Dans cette clarté, le niveau de culture de Wang Lin augmenta de nouveau. En même temps que sa progression, il absorba toute la puissance qui était destinée au Scorpion Vert!
 
 Même la majeure partie de l'âme du Scorpion Vert, que Wang Lin avait dévorée après l'échec de la possession, fut absorbée par son âme originelle.
 
-Mais cela ne suffisait pas. Une telle quantité de puissance mondiale ne pouvait que porter le niveau de cultivation de Wang Lin à un stade infiniment proche du pic de l'Arcane Vide !
+Mais cela ne suffisait pas. Une telle quantité de puissance mondiale ne pouvait que porter le niveau de culture de Wang Lin à un stade infiniment proche du pic de l'Arcane Vide!
 
-Il lui manquait encore de quoi briser les barrières et entrer dans la Tribulation Arcanique pour faire face à l'arrivée des neuf Tribulations Arcaniques !
+Il lui manquait encore de quoi briser les barrières et entrer dans la Tribulation Arcanique pour faire face à l'arrivée des neuf Tribulations Arcaniques!
 
-Il avait encore besoin de plus de puissance du monde !
+Il avait encore besoin de plus de puissance du monde!
 
-Les yeux de Wang Lin s'illuminèrent et, sans hésiter, il ouvrit la bouche pour inspirer. À son inspiration, la puissance du monde se précipita dans le temple du scorpion ; même le brouillard extérieur fut aspiré, formant un vortex colossal. Cela devint un phénomène céleste !
+Les yeux de Wang Lin s'illuminèrent et, sans hésiter, il ouvrit la bouche pour inspirer. À son inspiration, la puissance du monde se précipita dans le temple du scorpion; même le brouillard extérieur fut aspiré, formant un vortex colossal. Cela devint un phénomène céleste!
 
-Ce changement soudain attira l'attention de tous les cultivateurs du Continent du Démon Vert. La bataille entre le Continent du Démon Vert et le Continent du Taureau Céleste touchait à sa fin. Après la mort d'un nombre immense de combattants, il ne restait plus beaucoup de cultivateurs sur le continent !
+Ce changement soudain attira l'attention de tous les cultivateurs du Continent du Démon Vert. La bataille entre le Continent du Démon Vert et le Continent du Taureau Céleste touchait à sa fin. Après la mort d'un nombre immense de combattants, il ne restait plus beaucoup de cultivateurs sur le continent!
 
-Mais ceux qui subsistaient étaient tous des puissances redoutables !
+Mais ceux qui subsistaient étaient tous des puissances redoutables!
 
-En particulier, bien que d'innombrables disciples fussent tombés, la Secte du Dao Démoniaque possédait encore près de 30 % de ses effectifs. Cependant, leur Maître de Secte était entré en cultivation isolée depuis plus de cent ans et n'en était jamais ressorti.
+En particulier, bien que d'innombrables disciples fussent tombés, la Secte du Dao Démoniaque possédait encore près de 30 % de ses effectifs. Cependant, leur Maître de Secte était entré en culture isolée depuis plus de cent ans et n'en était jamais ressorti.
 
 À cet instant, l'immense bouleversement au Temple du Scorpion Vert, au centre même du continent, fut ressenti par toutes les sectes environnantes.
 
-Quiconque pouvait le ressentir connaissait la rumeur de la résurrection du Démon Vert. Instantanément, plus de dix rayons de lumière foncèrent vers le temple. Deux autres rayons provenant de la Secte du Dao Démoniaque s'élancèrent également pour assister à la résurrection du Scorpion Vert !
+Quiconque pouvait le ressentir connaissait la rumeur de la résurrection du Démon Vert. Instantanément, plus de dix rayons de lumière foncèrent vers le temple. Deux autres rayons provenant de la Secte du Dao Démoniaque s'élancèrent également pour assister à la résurrection du Scorpion Vert!
 
 Le phénomène autour du temple dura plusieurs mois. Durant cette période, une quantité phénoménale d'énergie mondiale convergea vers ce point avec frénésie. Les cultivateurs présents n'osaient s'approcher, se contentant d'observer depuis la périphérie, reculant à mesure que le phénomène s'étendait.
 
-Toute cette puissance afflua dans le corps de Wang Lin durant ces mois, faisant grimper sans cesse son niveau de cultivation. Un jour, après plusieurs mois de tension, sa cultivation explosa soudainement et des grondements tonitruants résonnèrent dans ses entrailles.
+Toute cette puissance afflua dans le corps de Wang Lin durant ces mois, faisant grimper sans cesse son niveau de culture. Un jour, après plusieurs mois de tension, sa culture explosa soudainement et des grondements tonitruants résonnèrent dans ses entrailles.
 
-Sous l'effet de ces fracas, son niveau de cultivation passa du stade avancé de l'Arcane Vide au pic de l'Arcane Vide !
+Sous l'effet de ces fracas, son niveau de culture passa du stade avancé de l'Arcane Vide au pic de l'Arcane Vide!
 
 Cette fluctuation fut dissimulée par la déferlante d'énergie mondiale. Les cultivateurs du continent n'osaient pas non plus déployer leur Sens Divin, de peur d'irriter le Scorpion Vert en pleine résurrection. Ils craignaient sa colère, et personne ne remarqua rien.
 
 Atteignant le sommet de l'Arcane Vide, Wang Lin ouvrit les yeux, révélant un regard d'une froideur terrifiante. D'un geste de la main droite, il fusionna son corps véritable d'essence des cinq éléments avec son propre corps.
 
-À cet instant, sa puissance décupla !
+À cet instant, sa puissance décupla!
 
 Peu après, il agita de nouveau la main et le terrifiant corps véritable d'essence du tonnerre s'avança. Il se superposa à Wang Lin et, dans un craquèlement d'éclairs, fusionna avec lui, devenant une partie intégrante de son être.
 
-Dès que le corps véritable du tonnerre fut intégré, le corps de Wang Lin dégagea une aura choquante. Il sentit sa force croître de manière exponentielle. À ce stade, il pouvait affronter des cultivateurs du stade avancé de la Tribulation du Vide, même sans l'armure d'âme du Taureau Céleste !
+Dès que le corps véritable du tonnerre fut intégré, le corps de Wang Lin dégagea une aura choquante. Il sentit sa force croître de manière exponentielle. À ce stade, il pouvait affronter des cultivateurs du stade avancé de la Tribulation du Vide, même sans l'armure d'âme du Taureau Céleste!
 
 Et cela, sans même utiliser le Tonnerre de la Destruction. S'il risquait d'employer ce tonnerre terrifiant, lui-même ignorait à quel point cette puissance serait dévastatrice...
 
-Ce tonnerre était une force qu'il avait créée par inadvertance et qu'il ne parvenait pas à contrôler !
+Ce tonnerre était une force qu'il avait créée par inadvertance et qu'il ne parvenait pas à contrôler!
 
-Ce sentiment de puissance lui insuffla une confiance absolue en lui-même. Cela changea son tempérament, et quiconque ferait face à lui serait terrifié avant même qu'il n'attaque !
+Ce sentiment de puissance lui insuffla une confiance absolue en lui-même. Cela changea son tempérament, et quiconque ferait face à lui serait terrifié avant même qu'il n'attaque!
 
 Wang Lin se leva, les mains derrière le dos, et leva les yeux. Son regard perçait le toit du temple pour atteindre le ciel. Son Sens Divin s'étendit, embrassant l'intégralité du temple.
 
 Le groupe de Yun Yifeng n'était plus là. Apparemment, ils étaient restés trop longtemps et n'osaient plus défier l'endroit.
 
-Cela n'avait plus d'importance. Pour Wang Lin, Edge Cloud n'était plus qu'une fumée du passé. Ce qu'il devait affronter désormais, c'étaient les neuf Tribulations Arcaniques !
+Cela n'avait plus d'importance. Pour Wang Lin, Edge Cloud n'était plus qu'une fumée du passé. Ce qu'il devait affronter désormais, c'étaient les neuf Tribulations Arcaniques!
 
-« Si je peux traverser les neuf Tribulations Arcaniques d'un seul coup et atteindre la Tribulation du Vide, je détruirai l'intégralité de la Secte du Dao Démoniaque. Même les cultivateurs du stade avancé de la Tribulation du Vide seront anéantis pour rembourser ce siècle de fortune ! » Une froideur glaciale émanait de ses yeux, empreints d'une puissante intention meurtrière.
+« Si je peux traverser les neuf Tribulations Arcaniques d'un seul coup et atteindre la Tribulation du Vide, je détruirai l'intégralité de la Secte du Dao Démoniaque. Même les cultivateurs du stade avancé de la Tribulation du Vide seront anéantis pour rembourser ce siècle de fortune! » Une froideur glaciale émanait de ses yeux, empreints d'une puissante intention meurtrière.
 
-Levant le regard, Wang Lin attendait !
+Levant le regard, Wang Lin attendait!
 
-Il attendait l'arrivée des Tribulations Arcaniques qui feraient de lui un cultivateur de la Tribulation du Vide !
+Il attendait l'arrivée des Tribulations Arcaniques qui feraient de lui un cultivateur de la Tribulation du Vide!
 
-Il n'avait jamais vu de Tribulations Arcaniques, mais il était assez confiant pour se tenir haut et contempler la beauté de ces tribulations !
+Il n'avait jamais vu de Tribulations Arcaniques, mais il était assez confiant pour se tenir haut et contempler la beauté de ces tribulations!
 
-Depuis les temps anciens, tous ceux qui étaient qualifiés pour affronter les Tribulations Arcaniques faisaient preuve d'une prudence et d'une nervosité extrêmes. Même les Grands Empyrées l'étaient avant d'atteindre ce rang. Des individus comme Wang Lin étaient extrêmement rares !
+Depuis les temps anciens, tous ceux qui étaient qualifiés pour affronter les Tribulations Arcaniques faisaient preuve d'une prudence et d'une nervosité extrêmes. Même les Grands Empereurs l'étaient avant d'atteindre ce rang. Des individus comme Wang Lin étaient extrêmement rares!

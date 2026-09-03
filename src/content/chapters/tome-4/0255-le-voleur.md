@@ -8,9 +8,9 @@ slug: le-voleur
 ---
 La nuit était tombée et la lune était absente.
 
-Wang Lin était allongé sur son lit, à l'arrière de la boutique. Une cruche de vin reposait à ses côtés ; il s'en saisit et prit une gorgée. Wang Lin sentait qu'au cours de cette année écoulée, il avait réussi à se défaire de sa mentalité de cultivateur pour devenir semblable à un mortel.
+Wang Lin était allongé sur son lit, à l'arrière de la boutique. Une cruche de vin reposait à ses côtés; il s'en saisit et prit une gorgée. Wang Lin sentait qu'au cours de cette année écoulée, il avait réussi à se défaire de sa mentalité de cultivateur pour devenir semblable à un mortel.
 
-Prenons cet exemple : il ne pratiquait presque plus la cultivation désormais, ce qui aurait été impensable autrefois. Durant ces quatre cents ans de fuite et de combats, son énergie spirituelle bouillonnait presque constamment dans son corps, et il saisissait chaque instant de répit pour élever son niveau de cultivation. Sa vie n'était qu'un enchaînement de complots mortels et de périls extrêmes. Le moindre manque de prudence l'aurait conduit à la tombe.
+Prenons cet exemple: il ne pratiquait presque plus la culture désormais, ce qui aurait été impensable autrefois. Durant ces quatre cents ans de fuite et de combats, son énergie spirituelle bouillonnait presque constamment dans son corps, et il saisissait chaque instant de répit pour élever son niveau de culture. Sa vie n'était qu'un enchaînement de complots mortels et de périls extrêmes. Le moindre manque de prudence l'aurait conduit à la tombe.
 
 Il ne s'était jamais allongé ainsi pour dormir auparavant. Il passait la majeure partie de ses nuits à cultiver.
 
@@ -28,7 +28,7 @@ Les deux entrèrent précipitamment. La porte se referma derrière eux sous l'ef
 
 À l'intérieur, les yeux des deux hommes s'illuminèrent en contemplant les diverses sculptures. Leur regard fut d'abord empreint de stupeur, mais cette surprise fut bientôt balayée par une cupidité infinie.
 
-— Tant de trésors magiques ! souffla l'un des cultivateurs dans un souffle court. Il saisit une sculpture et l'examina. Son corps trembla et il la repoussa brusquement.
+— Tant de trésors magiques! souffla l'un des cultivateurs dans un souffle court. Il saisit une sculpture et l'examina. Son corps trembla et il la repoussa brusquement.
 
 L'avidité dans ses yeux s'intensifia. D'un revers de main, il fit en sorte que toutes les sculptures des étagères soient aspirées dans son sac de rangement.
 
@@ -36,17 +36,17 @@ L'autre cultivateur s'accroupit pour fouiller une boîte dans un coin. Il poussa
 
 Il jeta précipitement l'objet et recula, comme s'il faisait face à une créature antique.
 
-En réalité, il n'était pas surprenant qu'il ne puisse supporter la sculpture. Il s'agissait d'une représentation incomplète du Seigneur Démon des Six Désirs. Bien qu'incomplète, la pression spirituelle émanant de l'objet était celle d'un cultivateur de la fin du stade de l'Âme Naissante. Avec son niveau de cultivation de Formation du Noyau, il était incapable de résister.
+En réalité, il n'était pas surprenant qu'il ne puisse supporter la sculpture. Il s'agissait d'une représentation incomplète du Seigneur Démon des Six Désirs. Bien qu'incomplète, la pression spirituelle émanant de l'objet était celle d'un cultivateur de la fin du stade de l'Âme Naissante. Avec son niveau de culture de Formation du Noyau, il était incapable de résister.
 
 Heureusement, il l'avait lâchée à temps et la pression spirituelle de la sculpture ne s'était pas véritablement éveillée. Autrement, il n'aurait pas seulement perdu une simple bouchée de sang.
 
-Alors que la sculpture tombait, elle fut rattrapée par une main invisible géante qui la déposa dans la main de Wang Lin. Ce dernier sortit de la pièce arrière. Il replaça nonchalamment la sculpture sur une étagère, prit une gorgée de vin et déclara :
+Alors que la sculpture tombait, elle fut rattrapée par une main invisible géante qui la déposa dans la main de Wang Lin. Ce dernier sortit de la pièce arrière. Il replaça nonchalamment la sculpture sur une étagère, prit une gorgée de vin et déclara:
 
 — Cela fait un total de 4 520 pièces d'or. Payez.
 
 À l'apparition de Wang Lin, les deux hommes s'immobilisèrent net, le fixant avec des expressions horrifiées.
 
-En particulier le cultivateur qui venait d'être blessé par la pression spirituelle ; son visage était livide et son front perlé de sueur.
+En particulier le cultivateur qui venait d'être blessé par la pression spirituelle; son visage était livide et son front perlé de sueur.
 
 À leurs yeux, l'apparence de Wang Lin était trop singulière. Avant d'entrer dans la boutique, ils avaient utilisé leur énergie spirituelle pour scruter l'intérieur. Bien qu'une personne ait été présente à l'arrière, elle n'était qu'un simple mortel.
 
@@ -54,19 +54,17 @@ Pourtant, ce mortel venait d'apparaître silencieusement devant eux. C'était co
 
 Ajouté à la présence des trésors magiques, même pour des sots, il était devenu évident que l'homme face à eux était un senior avec lequel il ne fallait pas chercher querelle.
 
-Ils se regardèrent et s'inclinèrent respectueusement :
-
+Ils se regardèrent et s'inclinèrent respectueusement: 
 — Salutations, Senior. Ces juniors sont des disciples de la Secte Nuage Blanc. Nous avons été impolis et espérons que le Senior nous pardonnera.
 
-Wang Lin demanda simplement :
-
-— Avez-vous 4 520 pièces d'or ?
+Wang Lin demanda simplement: 
+— Avez-vous 4 520 pièces d'or?
 
 Ils se regardèrent, perplexes. En tant que cultivateurs, ils possédaient des pierres spirituelles, mais ils ne disposaient pas de beaucoup de l'or utilisé par les mortels. Bien sûr, avec du temps, ils auraient pu en réunir 4 000, voire 40 000.
 
 Réalisant leurs pensées, Wang Lin soupira. D'un geste de la main, il fit voler le sac de rangement contenant les sculptures jusqu'à lui. Il effleura nonchalamment le sac d'un revers de main, forçant le propriétaire à avaler une nouvelle bouchée de sang.
 
-Le respect dans les yeux du cultivateur s'intensifia encore : ce simple geste venait d'effacer son sens divin du sac.
+Le respect dans les yeux du cultivateur s'intensifia encore: ce simple geste venait d'effacer son sens divin du sac.
 
 Wang Lin secoua le sac et toutes les sculptures retournèrent à leur place initiale sans la moindre erreur, comme si elles n'avaient jamais été déplacées.
 
@@ -76,7 +74,7 @@ Sur ces mots, Wang Lin renvoya le sac de rangement vers le cultivateur d'un gest
 
 Au moment où ils allaient heurter la porte, celle-ci s'ouvrit et ils furent expulsés de la boutique.
 
-Cette poussée les propulsa sur plus de dix kilomètres avant qu'ils ne parviennent à se stabiliser. Leurs regards trahissaient un choc et une horreur indicibles. À leurs yeux, la cultivation de ce jeune homme était bien trop puissante pour être mesurée.
+Cette poussée les propulsa sur plus de dix kilomètres avant qu'ils ne parviennent à se stabiliser. Leurs regards trahissaient un choc et une horreur indicibles. À leurs yeux, la culture de ce jeune homme était bien trop puissante pour être mesurée.
 
 Après avoir réfléchi un instant, ils se considérèrent comme extrêmement chanceux et s'éclipsèrent rapidement. Ces deux cultivateurs étaient ceux du palais.
 
@@ -86,13 +84,12 @@ Ils ignoraient que Wang Lin avait déjà laissé son sens divin sur eux. S'ils n
 
 En vérité, s'ils avaient su qui était Wang Lin, ils se seraient sentis encore plus chanceux. Si c'était le Wang Lin d'il y a un an, la seule issue possible aurait été la mort.
 
-Wang Lin se rassit dans la boutique. Il but une gorgée de vin et soupira :
-
+Wang Lin se rassit dans la boutique. Il but une gorgée de vin et soupira: 
 — Je n'ai tué personne depuis un an.
 
 Puis, il retourna dans la pièce arrière pour dormir.
 
-Le temps s'écoula rapidement ; deux années passèrent. C'était déjà la troisième année que Wang Lin résidait à la capitale.
+Le temps s'écoula rapidement; deux années passèrent. C'était déjà la troisième année que Wang Lin résidait à la capitale.
 
 Da Niu était devenu plus grand et plus robuste, et de nouveaux voisins s'installaient. Le propriétaire de la boutique de tissus Kong mourut de maladie et l'échoppe fut vendue à autrui.
 
@@ -106,7 +103,7 @@ En réalité, au cours de ces deux années, à chaque passage à la nouvelle ann
 
 L'automne passa et l'hiver arriva. Le soleil se leva et se coucha. Durant ces deux dernières années, Wang Lin avait vu naître les jeunes et mourir les vieillards. Il ressentait une profonde mélancolie.
 
-En deux ans, il n'avait pratiqué la cultivation que deux fois. Il ne se souciait plus de son niveau de cultivation et ne le vérifiait presque plus. Quant à la substance rouge, il n'en restait qu'une fine couche. Le reste avait été condensé en trois perles rouges, conservées dans son sac de rangement.
+En deux ans, il n'avait pratiqué la culture que deux fois. Il ne se souciait plus de son niveau de culture et ne le vérifiait presque plus. Quant à la substance rouge, il n'en restait qu'une fine couche. Le reste avait été condensé en trois perles rouges, conservées dans son sac de rangement.
 
 Selon ses analyses, lorsque la quatrième perle serait créée, la substance rouge aurait totalement disparu.
 
@@ -124,7 +121,7 @@ Le cœur de Wang Lin demeurait serein. Son souhait était toujours de vivre une 
 
 La nouvelle année approchait et la capitale était devenue très animée. Wang Lin sortit de sa boutique et s'assit à l'extérieur, le regard empreint de nostalgie.
 
-C'était le troisième Nouvel An qu'il traversait depuis son arrivée. Chaque fois, l'expérience était différente, sauf pour une chose : le regret qu'il éprouvait envers son enfance.
+C'était le troisième Nouvel An qu'il traversait depuis son arrivée. Chaque fois, l'expérience était différente, sauf pour une chose: le regret qu'il éprouvait envers son enfance.
 
 Da Niu déboula de la forge située de l'autre côté de la rue, des feux d'artifice à la main, s'amusant joyeusement avec eux. En voyant l'enfant, un sentiment de bonheur traversa les yeux de Wang Lin. Il avait vu ce gamin grandir, passant d'un enfant de onze ans à un adolescent de quatorze ans.
 
@@ -132,18 +129,15 @@ L'année dernière, Da Niu n'avait plus pu refuser les ordres de son père et av
 
 Bien que Da Niu ne vînt pas aussi souvent, sa jarre de vin de fruits quotidienne n'avait jamais manqué.
 
-Jouant avec ses feux d'artifice, Da Niu courut vers Wang Lin et s'assit sur le banc froid, sans semble guère importuné par la fraîcheur. Il adressa un clin d'œil à Wang Lin et dit :
+Jouant avec ses feux d'artifice, Da Niu courut vers Wang Lin et s'assit sur le banc froid, sans semble guère importuné par la fraîcheur. Il adressa un clin d'œil à Wang Lin et dit: 
+— Oncle Wang, j'ai entendu mon père dire il y a quelques jours que le marchand Lu, du côté est de la ville, voulait marier sa fille à toi. Pourquoi n'as-tu pas accepté? Je l'ai vue en secret et elle est très belle!
 
-— Oncle Wang, j'ai entendu mon père dire il y a quelques jours que le marchand Lu, du côté est de la ville, voulait marier sa fille à toi. Pourquoi n'as-tu pas accepté ? Je l'ai vue en secret et elle est très belle !
-
-Wang Lin sourit. Il frotta la tête de Da Niu et répondit :
-
+Wang Lin sourit. Il frotta la tête de Da Niu et répondit: 
 — L'oncle a déjà une femme.
 
-— Ah ? Vraiment ? Comment se fait-il que je ne l'aie jamais vue ? s'exclama soudainement Da Niu, le visage empreint de stupeur.
+— Ah? Vraiment? Comment se fait-il que je ne l'aie jamais vue? s'exclama soudainement Da Niu, le visage empreint de stupeur.
 
-— Elle est dans un endroit très lointain, elle m'attend. Un jour, j'irai la chercher ! La voix de Wang Lin était douce tandis qu'une image de femme apparaissait dans son esprit.
+— Elle est dans un endroit très lointain, elle m'attend. Un jour, j'irai la chercher! La voix de Wang Lin était douce tandis qu'une image de femme apparaissait dans son esprit.
 
-Da Niu esquissa un sourire espiègle :
-
-— Je comprends ! Oncle Wang, tu es venu à la capitale pour gagner de l'argent afin de pouvoir rentrer chez toi et te marier !
+Da Niu esquissa un sourire espiègle: 
+— Je comprends! Oncle Wang, tu es venu à la capitale pour gagner de l'argent afin de pouvoir rentrer chez toi et te marier!

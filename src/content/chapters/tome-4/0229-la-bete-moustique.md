@@ -28,11 +28,11 @@ Après avoir réfléchi un instant, Wang Lin fit glisser sa main sur le miroir d
 
 L'animal fut déconcerté, mais poussa rapidement quelques cris de rage. La moustique fixa Wang Lin, sa bouche redevenant rouge. Cependant, elle n'osa pas l'attaquer. Après un court instant, elle fit demi-tour pour s'enfuir.
 
-Un éclair passa dans les yeux de Wang Lin et il lança : « Tu comptes fuir ? » Sur ces mots, il agita la main droite et un petit drapeau apparut dans sa paume. Une puissante intention meurtrière émanait de l'objet. C'était le drapeau de restriction d'attribut unique. Il s'agissait du trésor le plus puissant de Wang Lin ; même lui n'osait pas le raffiner jusqu'au premier niveau de complétion, car si le drapeau atteignait ce stade, la rétribution divine frapperait et, sans la protection des nuages de la Mer des Démons, il y avait de fortes chances que l'artefact soit réduit en poussière.
+Un éclair passa dans les yeux de Wang Lin et il lança: « Tu comptes fuir? » Sur ces mots, il agita la main droite et un petit drapeau apparut dans sa paume. Une puissante intention meurtrière émanait de l'objet. C'était le drapeau de restriction d'attribut unique. Il s'agissait du trésor le plus puissant de Wang Lin; même lui n'osait pas le raffiner jusqu'au premier niveau de complétion, car si le drapeau atteignait ce stade, la rétribution divine frapperait et, sans la protection des nuages de la Mer des Démons, il y avait de fortes chances que l'artefact soit réduit en poussière.
 
 En conséquence, il s'était arrêté à 98 groupes de restrictions.
 
-La bête avait déjà acquis une certaine expérience ; dès qu'elle aperçut le drapeau, elle fut frappée d'horreur. Elle agita frénétiquement ses ailes pour accélérer sa fuite.
+La bête avait déjà acquis une certaine expérience; dès qu'elle aperçut le drapeau, elle fut frappée d'horreur. Elle agita frénétiquement ses ailes pour accélérer sa fuite.
 
 Wang Lin gardait un regard calme, le drapeau de restriction serré dans sa main droite. Il l'agita et une restriction jaillit. L'énergie s'élança comme une météorite vers la bête moustique.
 
@@ -44,7 +44,7 @@ Bien que Wang Lin ait été extrêmement prudent en n'utilisant que 20 % de la p
 
 La moustique gisait sur la main de Wang Lin, le corps couvert de multiples blessures. Elle saignait un sang pourpre, son proboscis était fissuré et ses yeux devenaient troubles. La bête moustique était à l'article de la mort.
 
-L'expression de Wang Lin resta impassible. Il mordit son doigt et laissa tomber une goutte de sang entre les yeux de la créature. Ensuite, il sortit quelques pilules du Secte Ciel Nuageux et les administra à la bête.
+L'expression de Wang Lin resta impassible. Il mordit son doigt et laissa tomber une goutte de sang entre les yeux de la créature. Ensuite, il sortit quelques pilules de la Secte Ciel Nuageux et les administra à la bête.
 
 Après avoir ingéré les pilules, le corps de la bête secoua violemment, libérant des vagues de poussière grise. Lentement, ses blessures se refermèrent et même la fissure sur son proboscis disparut. Peu après, elle retrouva une pleine santé et s'envola de la main de Wang Lin. Elle effectua quelques cercles autour de lui en émettant de faibles sifflements impuissants.
 
@@ -62,7 +62,7 @@ Son proboscis devenait de plus en plus fin et acéré, dégageant une aura profo
 
 Wang Lin comprit qu'au cours de tout son périple jusqu'ici, il n'avait jamais rencontré de bête semblable.
 
-Lorsque la créature était petite, sa principale méthode d'attaque consistait à libérer de la poussière grise ; mais une fois devenue grande, peu importe l'angle sous lequel Wang Lin l'observait, son proboscis était désormais sa véritable arme.
+Lorsque la créature était petite, sa principale méthode d'attaque consistait à libérer de la poussière grise; mais une fois devenue grande, peu importe l'angle sous lequel Wang Lin l'observait, son proboscis était désormais sa véritable arme.
 
 Wang Lin bondit et se posa sur le dos de la bête. Il lui envoya un message par son Sens Divin. Les ailes de la créature s'ouvrirent brusquement et elle s'élança avec la rapidité de l'éclair. En un clin d'œil, ils disparurent de leur emplacement initial.
 

@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 178 - Restriction mountain
 slug: la-montagne-des-restrictions
 ---
-Wang Lin agita sa main droite et l'épée volante vola vers lui. Il guida soigneusement l'arme dans son sac de rangement avant de se détendre ; il ne voulait pas être tranché par l'épée qu'il avait lui-même affinée et mourir de ce poison.
+Wang Lin agita sa main droite et l'épée volante vola vers lui. Il guida soigneusement l'arme dans son sac de rangement avant de se détendre; il ne voulait pas être tranché par l'épée qu'il avait lui-même affinée et mourir de ce poison.
 
 Une fois l'épée rangée, Wang Lin se leva et marcha sans hésitation vers le pont de pierre. Les tornades hurlaient en le suivant de près.
 
@@ -14,29 +14,29 @@ Wang Lin avançait avec prudence. Bien que ce pont semblât ordinaire, la scène
 
 Un vortex apparut de l'autre côté du pont.
 
-Les yeux de Wang Lin brillèrent. Après une courte réflexion, il tendit la main. Une petite créature s'envola et于 atterrit dans sa paume. Il la lança, et elle jaillit comme une flèche vers le vortex.
+Les yeux de Wang Lin brillèrent. Après une courte réflexion, il tendit la main. Une petite créature s'envola et atterrit dans sa paume. Il la lança, et elle jaillit comme une flèche vers le vortex.
 
-Cependant, après n'avoir parcouru que cent pieds, un éclair de foudre violet frappa la petite créature avec précision, la réduisant en poussière.
+Cependant, après n'avoir parcouru que 330 mètres, un éclair de foudre violet frappa la petite créature avec précision, la réduisant en poussière.
 
 L'expression de Wang Lin resta imperturbable. S'il n'y avait aucune restriction ici, il pourrait simplement traverser en volant sans aucun problème. Mais désormais, il devait progresser étape par étape. Il devait avancer lentement, sans aucune accélération soudaine. Il regarda le pont de mille pieds de long, prit une profonde inspiration et fit un pas en avant.
 
 Wang Lin resta totalement concentré à chaque pas. Au dixième pas, il fut soudainement enveloppé par la brume et les tornades derrière lui disparurent.
 
-Le second démon disparut également avec les tornades ; même le lien qui les unissait fut rompu par une force mystérieuse. Wang Lin ne pouvait absolument rien détecter.
+Le second démon disparut également avec les tornades; même le lien qui les unissait fut rompu par une force mystérieuse. Wang Lin ne pouvait absolument rien détecter.
 
 Wang Lin voulut regarder en arrière, mais alors qu'il s'apprêtait à se retourner, il se força à s'arrêter. Son visage était sombre tandis qu'il réfléchissait, puis il eut un ricanement méprisant et continua d'avancer.
 
-Cette fois, le pont mesurait cent pieds.
+Cette fois, le pont mesurait 330 mètres.
 
-Un rugissement tonitruant retentit soudain derrière Wang Lin, faisant même trembler le pont devant lui. Wang Lin stabilisa immédiatement son corps. Il connaissait ce cri ; c'était le rugissement du dragon désolé de la grotte.
+Un rugissement tonitruant retentit soudain derrière Wang Lin, faisant même trembler le pont devant lui. Wang Lin stabilisa immédiatement son corps. Il connaissait ce cri; c'était le rugissement du dragon désolé de la grotte.
 
 Une haleine chaude et fétide souffla sur son dos. Wang Lin se maîtrut pour ne pas même tenter d'utiliser son Sens Divin. Ce pont s'appelait le Chemin de l'Irréversibilité, ce qui signifiait qu'une fois engagé, nul ne pouvait faire marche arrière.
 
-Wang Lin ne croyait pas que cet endroit puisse être aussi simple. Non seulement il ne pouvait pas revenir en arrière, mais il ne pouvait probablement même pas tourner la tête. Il était fort probable qu'il ne puisse pas non plus projeter son Sens Divin vers son dos. En fin de compte, tout devait se soumettre à ces deux mots : l'Irréversibilité, faute de quoi il mourrait ici comme cette petite créature.
+Wang Lin ne croyait pas que cet endroit puisse être aussi simple. Non seulement il ne pouvait pas revenir en arrière, mais il ne pouvait probablement même pas tourner la tête. Il était fort probable qu'il ne puisse pas non plus projeter son Sens Divin vers son dos. En fin de compte, tout devait se soumettre à ces deux mots: l'Irréversibilité, faute de quoi il mourrait ici comme cette petite créature.
 
 Bien qu'il ne puisse ni tourner la tête ni vérifier par son Sens Divin, il savait que si cette chaleur était perceptible, c'était que le dragon avait ouvert sa gueule et se trouvait juste derrière lui.
 
-Wang Lin fut surpris, mais ne paniqua pas. Il était impossible que ce dragon apparaisse derrière lui ; ce devait être une sorte d'illusion.
+Wang Lin fut surpris, mais ne paniqua pas. Il était impossible que ce dragon apparaisse derrière lui; ce devait être une sorte d'illusion.
 
 À cet instant précis, une lueur rouge effleura son épaule droite. Ses pupilles se rétractèrent. Il vit clairement que cette lumière était la langue fourchue du dragon. Son front fut couvert de sueur froide. En regardant sur le côté, il découvrit une substance visqueuse qui dégageait une odeur étrange sur son épaule.
 
@@ -44,9 +44,9 @@ Wang Lin prit une profonde inspiration pour s'apaiser. Ses pas restèrent fermes
 
 Wang Lin regarda ses vêtements s'agiter et laissa échapper un sourire moqueur. S'il avait été auparavant, il aurait encore éprouvé une certaine incertitude, surtout après avoir vu la substance collante sur son épaule. Cependant, en voyant ses vêtements ainsi battre au vent, il eut la conviction qu'il s'agissait d'une illusion.
 
-La raison était simple : l'entité derrière lui était censée être une bête désolée. Normalement, un seul souffle à cette distance l'aurait projeté bien plus loin, mais ici, cela ne faisait que faire flotter ses vêtements.
+La raison était simple: l'entité derrière lui était censée être une bête désolée. Normalement, un seul souffle à cette distance l'aurait projeté bien plus loin, mais ici, cela ne faisait que faire flotter ses vêtements.
 
-Wang Lin était d'une détermination sans faille ; quels que soient les sons ou les mouvements derrière lui, il continuait de marcher calmement. À ce moment-là, le dragon rouge poussa un rugissement violent et tenta de le dévorer. Wang Lin pouvait voir le dragon du coin de l'œil, mais sans céder à la panique, il poursuivit sa marche sereine.
+Wang Lin était d'une détermination sans faille; quels que soient les sons ou les mouvements derrière lui, il continuait de marcher calmement. À ce moment-là, le dragon rouge poussa un rugissement violent et tenta de le dévorer. Wang Lin pouvait voir le dragon du coin de l'œil, mais sans céder à la panique, il poursuivit sa marche sereine.
 
 Au moment où le dragon le dévora, celui-ci se mua en un nuage de fumée. Wang Lin sortit lentement de cette brume.
 
@@ -82,11 +82,11 @@ Wang Lin réfléchit un instant avant de marcher vers la montagne. Peu de temps 
 
 Une lumière rouge émanait des parois du passage. Il leva alors les yeux vers le sommet de la montagne. Il devint immédiatement très prudent, car il était certain que quelqu'un se trouvait devant lui.
 
-Il n'y avait rien d'autre ici que cette montagne, ce qui signifiait qu'elle était la clé de l'épreuve. Il n'y avait également qu'un seul choix : gravir son sommet.
+Il n'y avait rien d'autre ici que cette montagne, ce qui signifiait qu'elle était la clé de l'épreuve. Il n'y avait également qu'un seul choix: gravir son sommet.
 
 Pour un mortel, escalader une telle montagne serait une tâche herculéenne, mais pour un cultivateur, cela n'avait rien d'insurmontable.
 
-Toutefois, au vu de son expérience jusqu'ici, il devait y avoir une restriction l'empêchant de voler ; il serait donc contraint de grimper à pied.
+Toutefois, au vu de son expérience jusqu'ici, il devait y avoir une restriction l'empêchant de voler; il serait donc contraint de grimper à pied.
 
 Après avoir pesé le pour et le contre, Wang Lin se retourna vers les tornades. Il agita la main et celles-ci commencèrent à fusionner pour ne former qu'une seule tornade gigantesque. Wang Lin sauta vers elle. À mesure qu'il s'en approchait, une ouverture apparut dans la masse tourbillonnante, comme si elle l'invitait à entrer.
 
@@ -100,11 +100,11 @@ Fort de cette pensée, il utilisa le second démon pour fusionner les innombrabl
 
 Il contrôla avec précision ce puissant Sens Divin afin d'inspecter les environs. Son cœur se serra. L'endroit était entièrement recouvert de restrictions.
 
-On ne pouvait à tort résigner cet endroit que de "montagne des restrictions". Oubliez l'idée de grimper directement ; un seul faux pas et la mort serait immédiate.
+On ne pouvait à tort résigner cet endroit que de "montagne des restrictions". Oubliez l'idée de grimper directement; un seul faux pas et la mort serait immédiate.
 
 Pendant que Wang Lin explorait la zone avec son Sens Divin, l'une des restrictions se rétablit et revint totalement à la normale en un clin d'œil.
 
-Wang Lin retira son Sens Divin. Après réflexion, il sortit de la gigantesque tornade. Il sortit un sac de rangement et agita la main. Les tornades, ainsi que le second démon, furent aspirés dans le sac. Ce sac lui avait été confié par un cultivateur d'insectes ; s'il ne pouvait contenir d'objets, il pouvait néanmoins abriter des créatures vivantes.
+Wang Lin retira son Sens Divin. Après réflexion, il sortit de la gigantesque tornade. Il sortit un sac de rangement et agita la main. Les tornades, ainsi que le second démon, furent aspirés dans le sac. Ce sac lui avait été confié par un cultivateur d'insectes; s'il ne pouvait contenir d'objets, il pouvait néanmoins abriter des créatures vivantes.
 
 Wang Lin l'avait testé avec quelques petites créatures quelques jours auparavant. Une fois qu'il eut constaté que cela fonctionnait, il l'utilisa pour stocker ses petits compagnons.
 

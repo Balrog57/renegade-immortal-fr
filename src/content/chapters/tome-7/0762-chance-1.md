@@ -8,7 +8,7 @@ slug: chance-1
 ---
 La voix de l'Ancêtre Sanguin était empreinte d'une intention meurtrière qui emplissait tout l'espace de stockage. Les montagnes se déchiraient et les vallées fondaient. Plus de mille restrictions s'activèrent, précipitant l'espace de stockage dans la phase finale de son effondrement.
 
-À cet instant, les yeux de l'Ancêtre Sanguin étaient injectés de sang et il était presque en proie à la folie. Sa vitesse était inimaginable ; il atteignit immédiatement le réseau de transfert renforcé.
+À cet instant, les yeux de l'Ancêtre Sanguin étaient injectés de sang et il était presque en proie à la folie. Sa vitesse était inimaginable; il atteignit immédiatement le réseau de transfert renforcé.
 
 C'était comme si une flamme noire dévorait l'espace de stockage derrière lui. Cette flamme, féroce, cherchait à engloutir l'Ancêtre Sanguin.
 
@@ -20,7 +20,7 @@ Wang Lin savait que s'il laissait l'Ancêtre Sanguin s'échapper, il mourrait sa
 
 Face à cette crise imminente, il poussa un soupir et prit une décision radicale.
 
-« Je n'ai pas pu tenir ma promesse. Je me rattraperai dans le futur ! »
+« Je n'ai pas pu tenir ma promesse. Je me rattraperai dans le futur! »
 
 À l'extérieur du réseau de transfert, les yeux du gardien céleste, piégé au sein de la mer de sang, brillèrent intensément. Cette lumière fut si éclatante qu'elle enveloppa tout son corps avant d'éclater dans une aura destructrice.
 
@@ -34,15 +34,15 @@ Une explosion colossale éclata à cet instant précis.
 
 Sous la force de cette déflagration, le réseau de transfert s'effondra immédiatement en une multitude de particules de lumière avant de disparaître.
 
-À l'intérieur de l'espace de stockage, la moitié du corps de l'Ancêtre Sanguin avait déjà franchi le réseau de transfert. Il poussa un rugissement et fut violemment repoussé. Il regarda le réseau de transfert se dissiper rapidement ; c'était comme si des milliers d'années avaient été compressées en un seul souffle.
+À l'intérieur de l'espace de stockage, la moitié du corps de l'Ancêtre Sanguin avait déjà franchi le réseau de transfert. Il poussa un rugissement et fut violemment repoussé. Il regarda le réseau de transfert se dissiper rapidement; c'était comme si des milliers d'années avaient été compressées en un seul souffle.
 
-Au moment critique, une étrange lumière émana du corps de l'Ancêtre Sanguin. Il fixa la sphère de restriction où se trouvait Yao Xixue et la brisa sans la moindre hésitation !
+Au moment critique, une étrange lumière émana du corps de l'Ancêtre Sanguin. Il fixa la sphère de restriction où se trouvait Yao Xixue et la brisa sans la moindre hésitation!
 
 Sous la force destructrice de l'espace de stockage, même si Yao Xixue avait consommé une Pilule d'Âme Sanguine, une seule n'aurait pas suffi. C'est pour cette raison que l'Ancêtre Sanguin brisa personnellement la sphère afin de permettre sa résurrection. Grâce à sa connaissance des Pilules d'Âme Sanguine, il savait qu'elle en avait déjà pris une.
 
 Derrière lui, les flammes noires approchaient et la lumière rouge émanait de l'Ancêtre Sanguin avec frénésie. Il voulait retarder l'effondrement pour gagner du temps afin que Yao Xixue ne soit pas affectée durant son processus de résurrection.
 
-L'Ancêtre Sanguin ouvrit les bras et sa cultivation de Nettoyage du Nirvana, au stade intermédiaire, éclata sans retenue. Des vagues de lumière sanguine jaillirent de son corps pour bloquer les flammes noires qui dévoraient tout sur leur passage.
+L'Ancêtre Sanguin ouvrit les bras et sa culture de Nettoyage du Nirvana, au stade intermédiaire, éclata sans retenue. Des vagues de lumière sanguine jaillirent de son corps pour bloquer les flammes noires qui dévoraient tout sur leur passage.
 
 Son corps fut instantanément enveloppé et les flammes commencèrent à le consumer. Une douleur intense, qu'il n'avait pas ressentie depuis des dizaines de milliers d'années, envahit ses membres. Cependant, l'Ancêtre Sanguin ne s'en souciait guère. Il concentra toute sa puissance pour protéger la zone de trente pieds devant lui, afin d'empêcher le sens divin de Yao Xixue de se dissiper.
 
@@ -54,9 +54,9 @@ Une fois apparue, elle leva les yeux vers le ciel, le regard empreint de chagrin
 
 Après avoir vu le sens divin de sa propre fille s'échapper en toute sécurité, l'Ancêtre Sanguin afficha un sourire paternel et empreint de tendresse. Puis, son corps fut totalement englouti par les flammes noires.
 
-À cet instant, il sortit trois Pilules d'Âme Sanguine. Il ne les dévora pas, mais les écrasa toutes !
+À cet instant, il sortit trois Pilules d'Âme Sanguine. Il ne les dévora pas, mais les écrasa toutes!
 
-Il ne restait plus que treize Pilules d'Âme Sanguine ! La plupart étaient entre les mains de Yao Xixue, et l'Ancêtre Sanguin n'en possédait que trois ! Les pilules se dispersèrent, libérant un liquide bleu. Ce fluide et les flammes noires s'annulèrent mutuellement.
+Il ne restait plus que treize Pilules d'Âme Sanguine! La plupart étaient entre les mains de Yao Xixue, et l'Ancêtre Sanguin n'en possédait que trois! Les pilules se dispersèrent, libérant un liquide bleu. Ce fluide et les flammes noires s'annulèrent mutuellement.
 
 À ce moment précis, l'intégralité de l'espace de stockage s'effondra et tout ce qu'il contenait disparut. Il ne fut pas projeté dans le néant, mais totalement annihilé, sans laisser la moindre trace.
 
@@ -66,21 +66,21 @@ Cependant, l'instant d'après, l'aiguille rouge cessa sa poursuite et s'effondra
 
 Devant lui, l'aiguille rouge était déjà à moitié transparente et s'évanouissait lentement. Pourtant, juste au moment où elle allait disparaître complètement, elle cessa sa dissipation, fit volte-face et s'élança au loin.
 
-« Elle n'est pas morte ? » Les yeux de Wang Lin furent remplis de terreur et il chargea sans réfléchir. Sa main se tendit et il cracha une énergie originelle qui forma une prison pour emprisonner l'aiguille rouge.
+« Elle n'est pas morte? » Les yeux de Wang Lin furent remplis de terreur et il chargea sans réfléchir. Sa main se tendit et il cracha une énergie originelle qui forma une prison pour emprisonner l'aiguille rouge.
 
 L'aiguille émit un sifflement strident, comme si elle voulait s'extirper de sa cage. Elle ne cessait de percuter la prison, et chaque impact rendait le visage de Wang Lin un peu plus pâle.
 
 Son regard se glaça et il activa son énergie spirituelle céleste pour renforcer la prison. Il la tira lentement vers lui tout en fixant l'aiguille rouge avec une détermination farouche.
 
-« Scellement ! » Dans un cri, la prison se contracta rapidement jusqu'à envelopper l'aiguille. Wang Lin s'empara de l'objet et atterrit au sol.
+« Scellement! » Dans un cri, la prison se contracta rapidement jusqu'à envelopper l'aiguille. Wang Lin s'empara de l'objet et atterrit au sol.
 
 Si l'aiguille rouge n'avait pas perdu la quasi-totalité de sa puissance, il aurait été impossible pour Wang Lin de la sceller. Mais en cet instant, l'aiguille était à son point le plus faible, et Wang Lin avait utilisé toute l'énergie spirituelle céleste de son corps pour accomplir ce sceau.
 
-Malgré cela, le sceau restait instable ; l'aiguille rouge semblait capable de s'échapper à tout moment. Wang Lin prit une profonde inspiration, son expression devenant extrêmement sombre.
+Malgré cela, le sceau restait instable; l'aiguille rouge semblait capable de s'échapper à tout moment. Wang Lin prit une profonde inspiration, son expression devenant extrêmement sombre.
 
 « L'Ancêtre Sanguin n'est pas mort... Même s'il a survécu, il doit être extrêmement affaibli. Autrement, cette aiguille n'aurait pas perdu autant de force... Une fois qu'il se sera rétabli, la première chose qu'il fera sera de tenter de me tuer... » Les yeux de Wang Lin devinrent glacials tandis qu'il fixait l'aiguille rouge. Celle-ci, presque transparente, dégageait une aura de mort.
 
-« Cette aiguille a dû être rappelée par l'Ancêtre Sanguin. Je ne peux pas laisser passer cette chance ; je dois tenter le tout pour le tout ! » Wang Lin serra les dents et lança l'aiguille rouge. L'objet s'envola, suivi de près par Wang Lin qui ajustait l'énergie spirituelle céleste en lui.
+« Cette aiguille a dû être rappelée par l'Ancêtre Sanguin. Je ne peux pas laisser passer cette chance; je dois tenter le tout pour le tout! » Wang Lin serra les dents et lança l'aiguille rouge. L'objet s'envola, suivi de près par Wang Lin qui ajustait l'énergie spirituelle céleste en lui.
 
 Son sceau étant posé sur l'aiguille, il lui fut très facile de la suivre. Un homme et une aiguille traversèrent rapidement le Royaume Céleste du Tonnerre, disparaissant souvent sans laisser de trace en un éclair.
 
@@ -104,7 +104,7 @@ Quelqu'un avait même réussi à percer un petit trou dans sa corne argentée po
 
 Les yeux de la bête exprimaient une profonde tristesse. Il était difficile d'imaginer comment elle avait pu subir un tel sort.
 
-« Ton apparence correspond enfin au prestige de ce vieil homme ! Voilà à quoi ressemble une véritable Bête du Tonnerre ! Tu devrais savoir que ces Bêtes du Tonnerre aux cornes dorées ne font que soupirer devant toi. Tu es la plus unique des Bêtes du Tonnerre ! Crois-moi, oui, tu es liée à ce vieil homme par le destin ! » Sur le dos de la bête siégeait un vieil homme. Il tenait la chaîne attachée au cou de la créature comme s'il s'agissait d'un simple cheval.
+« Ton apparence correspond enfin au prestige de ce vieil homme! Voilà à quoi ressemble une véritable Bête du Tonnerre! Tu devrais savoir que ces Bêtes du Tonnerre aux cornes dorées ne font que soupirer devant toi. Tu es la plus unique des Bêtes du Tonnerre! Crois-moi, oui, tu es liée à ce vieil homme par le destin! » Sur le dos de la bête siégeait un vieil homme. Il tenait la chaîne attachée au cou de la créature comme s'il s'agissait d'un simple cheval.
 
 Derrière lui, d'innombrables éclairs de tonnerre le suivaient tels des météores. Dans chaque éclair se cachait une Bête du Tonnerre, et leurs yeux n'exprimaient que la terreur.
 
@@ -118,4 +118,4 @@ Elle n'oublierait jamais comment ce vieillard ne cessait de marmonner leur lien 
 
 Pourtant, bien qu'elle n'appréciait guère la plupart de ces choses, elle trouvait que l'anneau de fer était assez agréable à regarder...
 
-« Oui, c'est ici. Héhé, même un puissant cultivateur du Nettoyage du Nirvana peut finir ainsi... C'est son destin ! » Le vieil homme regarda les gouttes de sang rassemblées et ses yeux s'illuminèrent.
+« Oui, c'est ici. Héhé, même un puissant cultivateur du Nettoyage du Nirvana peut finir ainsi... C'est son destin! » Le vieil homme regarda les gouttes de sang rassemblées et ses yeux s'illuminèrent.

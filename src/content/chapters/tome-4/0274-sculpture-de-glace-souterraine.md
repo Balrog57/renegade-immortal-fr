@@ -20,7 +20,7 @@ Le ciel au-dessus de l'Alliance des Quatre Sectes était parsemé d'éclats prov
 
 Certains mortels ayant eu la chance de survivre se terrèrent dans leurs maisons. Ignorant tout de ce qui se tramait, ils n'avaient jamais vu autant de cultivateurs de toute leur vie.
 
-Les pays environnants avaient déployé de puissants cultivateurs pour encercler l'Alliance des Quatre Sectes. Ils n'avaient aucune intention de s'immiscer dans la bataille ; ils voulaient simplement s'assurer qu'aucun cultivateur ne puisse quitter le champ de bataille, qu'il appartienne à l'Alliance ou à Xue Yu.
+Les pays environnants avaient déployé de puissants cultivateurs pour encercler l'Alliance des Quatre Sectes. Ils n'avaient aucune intention de s'immiscer dans la bataille; ils voulaient simplement s'assurer qu'aucun cultivateur ne puisse quitter le champ de bataille, qu'il appartienne à l'Alliance ou à Xue Yu.
 
 Ils ne partiraient qu'une fois le vainqueur désigné.
 
@@ -38,7 +38,7 @@ Une fois la formation de géants dans le ciel brisée, une tempête de neige enc
 
 La femme vêtue de blanc n'était pas la seule à avoir apporté un puissant trésor magique. D'autres cultivateurs de Xue Yu, également préparés avec des trésors redoutables, apparurent.
 
-Lors du combat contre la Secte du Nuage Blanc, une vieille femme aux cheveux blancs agita ses manches en récitant un sort complexe. Soudain, un vent impétueux s'engouffra depuis une faille et toute la neige dans un rayon de cent pieds s'éleva dans les airs.
+Lors du combat contre la Secte du Nuage Blanc, une vieille femme aux cheveux blancs agita ses manches en récitant un sort complexe. Soudain, un vent impétueux s'engouffra depuis une faille et toute la neige dans un rayon de 330 mètres s'éleva dans les airs.
 
 Sous l'effet de ce vent puissant, la neige scintilla et se mua en glace. Peu après, les yeux de la vieille femme s'illuminèrent et elle frappa son front. Son Âme Naissante quitta son corps pour pénétrer dans un gigantesque bloc de glace.
 
@@ -50,7 +50,7 @@ La neige, portée par une force invisible, prit la forme d'une longue lance que 
 
 D'autres cultivateurs de Xue Yu environnants procédèrent de même, et de nombreux géants de glace apparurent sur le champ de bataille.
 
-Certains cultivateurs de bas niveau de l'Alliance des Quatre Sectes comprirent enfin pourquoi Xue Yu s'acharnait à recouvrir les pays en guerre sous une telle couche de neige : une grande partie des techniques et des sorts des membres de Xue Yu exigeait la présence de neige.
+Certains cultivateurs de bas niveau de l'Alliance des Quatre Sectes comprirent enfin pourquoi Xue Yu s'acharnait à recouvrir les pays en guerre sous une telle couche de neige: une grande partie des techniques et des sorts des membres de Xue Yu exigeait la présence de neige.
 
 Le même spectacle se produisit dans les trois autres sectes. Ces colossaux géants de glace, contrôlés par les Âmes Naissantes des cultivateurs, affrontaient les membres de l'Alliance des Quatre Sectes. Soudain, le chaos s'installa totalement.
 
@@ -62,11 +62,11 @@ L'esprit élémentaire du bois, quant à lui, luttait contre la gigantesque mare
 
 D'innombrables serpents noirs s'étiraient depuis la boue. Tout cultivateur de Xue Yu touché par un serpent noir mourait instantanément. Même l'esprit élémentaire du bois éprouvait des difficultés.
 
-Le personnage le plus singulier restait le jeune homme de la Secte de l'Âme Noire. L'esprit élémentaire de la terre se battait contre lui et peinait sérieusement. Le jeune homme demeurait parfaitement immobile ; seule sa main bougeait, maniant un pinceau à encre.
+Le personnage le plus singulier restait le jeune homme de la Secte de l'Âme Noire. L'esprit élémentaire de la terre se battait contre lui et peinait sérieusement. Le jeune homme demeurait parfaitement immobile; seule sa main bougeait, maniant un pinceau à encre.
 
 Mais à chaque coup de pinceau, l'esprit élémentaire de la terre s'échappait avec un regard empreint d'effroi. Finalement, le jeune homme ferma les yeux.
 
-Si l'on observait attentivement, on remarquerait que le jeune homme ne bougeait pas : le pinceau maniait seul.
+Si l'on observait attentivement, on remarquerait que le jeune homme ne bougeait pas: le pinceau maniait seul.
 
 À ce stade, ce n'était que le début de la bataille, et la plupart des cultivateurs de la Formation de l'Âme de chaque camp n'étaient pas encore intervenus. Les experts de la Formation de l'Âme de l'Alliance des Quatre Sectes attendaient tous. Si cela était là tout ce que Xue Yu pouvait offrir, alors les chances d'anéantissement de l'Alliance n'étaient pas grandes.
 
@@ -88,9 +88,9 @@ Après réflexion, le corps de Wang Lin s'enfonça silencieusement sous la neige
 
 Ne pouvant déployer toute sa puissance au sein de la neige, il lui fallut deux heures pour atteindre le sol. Une fois arrivé, il n'hésita pas et s'enfonça plus profondément grâce à sa technique d'évasion tellurique.
 
-À environ 4 000 pieds sous terre, Wang Lin s'arrêta. Son visage trahissait une inquiétude mêlée d'une pointe de surprise. Il remarqua qu'à 5 000 pieds de profondeur, quelqu'un avait réussi à creuser une grotte. Cette cavité semblait infinie ; Wang Lin pressentit que cette grotte s'étendait sous toute l'Alliance des Quatre Sectes.
+À environ 13,2 kilomètres sous terre, Wang Lin s'arrêta. Son visage trahissait une inquiétude mêlée d'une pointe de surprise. Il remarqua qu'à 16,5 kilomètres de profondeur, quelqu'un avait réussi à creuser une grotte. Cette cavité semblait infinie; Wang Lin pressentit que cette grotte s'étendait sous toute l'Alliance des Quatre Sectes.
 
-Tous les mille pieds à l'intérieur de la grotte se trouvait une sculpture de glace. Chaque sculpture mesurait environ dix pieds de haut et émettait une lueur étrange. Autre chose notable : toutes les sculptures étaient rigoureusement identiques. Leurs visages arboraient des expressions féroces, et elles possédaient des mains humaines ainsi que des corps de serpents.
+Tous les 3,3 kilomètres à l'intérieur de la grotte se trouvait une sculpture de glace. Chaque sculpture mesurait environ 33 mètres de haut et émettait une lueur étrange. Autre chose notable: toutes les sculptures étaient rigoureusement identiques. Leurs visages arboraient des expressions féroces, et elles possédaient des mains humaines ainsi que des corps de serpents.
 
 Wang Lin effectua un examen rapide et constata qu'il y avait une quantité immense de ces sculptures, et que leur disposition semblait avoir une signification précise.
 
@@ -98,7 +98,7 @@ Tous les corps disparus durant la bataille apparaissaient ici, mais dès leur ap
 
 Wang Lin réfléchit un instant. Il n'aurait pas cru que l'Alliance des Quatre Sectes ne s'en serait pas rendu compte plus tôt, mais lui-même était incapable de détecter cette grotte jusqu'ici.
 
-Il faut dire que le Sens Divin de Wang Lin atteignait celui d'un cultivateur au stade avancé de la Formation de l'Âme ; si même lui n'avait pu la percevoir, il était fort improbable que quiconque dans un pays de cultivation de rang 4 y parvienne.
+Il faut dire que le Sens Divin de Wang Lin atteignait celui d'un cultivateur au stade avancé de la Formation de l'Âme; si même lui n'avait pu la percevoir, il était fort improbable que quiconque dans un pays de culture de rang 4 y parvienne.
 
 Wang Lin prit une profonde inspiration. Il recula lentement pour regagner la surface. Il leva les yeux vers le ciel, réfléchit un moment, puis tapota son sac de rangement pour en sortir un jade de transmission vocale.
 
@@ -106,12 +106,12 @@ C'était l'objet que Zhou Wutai lui avait confié de nombreuses années auparava
 
 Au même instant, son expression changea brusquement lorsqu'il remarqua un immense incendie dans le ciel. Un géant barbare venait d'être réduit en cendres par une flamme.
 
-Bien que le géant fût mort, le feu ne s'arrêta pas ; il chargea vers Wang Lin.
+Bien que le géant fût mort, le feu ne s'arrêta pas; il chargea vers Wang Lin.
 
 Les yeux de Wang Lin s'illuminèrent et son corps recula. Sa main traça un sceau et un pilier d'eau apparut devant lui pour intercepter la flamme.
 
-Il profita de cet instant pour se téléporter à plus de 2 000 pieds de là. Sa distance de téléportation était bien plus grande qu'auparavant.
+Il profita de cet instant pour se téléporter à plus de 1000 kilomètres de là. Sa distance de téléportation était bien plus grande qu'auparavant.
 
 Le pilier d'eau ne bloqua le feu qu'un court instant avant de se dissiper en une brume blanche. La flamme tourna une fois autour de la zone avant de foncer vers la Secte du Nuage Blanc.
 
-Wang Lin n'était pas disposé à se dévoiler pour l'instant ; il n'éteignit donc pas le feu et se contenta de s'enfuir. Tant que les cultivateurs de la Formation de l'Âme des deux camps ne seraient pas passés à l'action, Wang Lin ne bougerait pas.
+Wang Lin n'était pas disposé à se dévoiler pour l'instant; il n'éteignit donc pas le feu et se contenta de s'enfuir. Tant que les cultivateurs de la Formation de l'Âme des deux camps ne seraient pas passés à l'action, Wang Lin ne bougerait pas.

@@ -12,9 +12,9 @@ C'était l'automne de la 35e année depuis que Wang Lin avait quitté Zhao.
 
 Seules deux traces laissées par le passage du chariot étaient visibles. Le craquement lent et régulier de l'attelage s'éloignait peu à peu dans le lointain.
 
-Le long du chemin, on pouvait apercevoir une auberge. Elle était ensevelie sous une épaisse couche de neige blanche ; elle paraissait désolée et personne n'y habitait.
+Le long du chemin, on pouvait apercevoir une auberge. Elle était ensevelie sous une épaisse couche de neige blanche; elle paraissait désolée et personne n'y habitait.
 
-Plus de la moitié de l'édifice s'était effondrée il y a plus de dix ans, blessant nombre de ses occupants. Le propriétaire s'était attiré les foudres des autorités et était mort en prison. Quant au serveur, il était parti ; on ignorait où il se trouvait ou s'il était encore en vie.
+Plus de la moitié de l'édifice s'était effondrée il y a plus de dix ans, blessant nombre de ses occupants. Le propriétaire s'était attiré les foudres des autorités et était mort en prison. Quant au serveur, il était parti; on ignorait où il se trouvait ou s'il était encore en vie.
 
 Au fil du temps, l'auberge qui avait autrefois rendu ivre le grand érudit de Zhao n'était plus qu'une ruine.
 
@@ -26,9 +26,9 @@ Un vieil homme vêtu de blanc contempla l'auberge abandonnée et enneigée. Ses 
 
 À mesure que le chariot s'éloignait, la voix devint plus faible jusqu'à ce que la neige n'engloutisse tout. Seul le vent froid continuait de souffler, tel un éternel voyageur infatigable.
 
-Le temps d'un vieil homme est bref. Ils peuvent compter leur propre fin en contemplant silencieusement le ciel bleu, les nuages blancs et la chute des flocons. Mais en même temps, le temps d'un vieil homme est infini ; car ce qui est infini, c'est leur mémoire. Dans leurs souvenirs, ils peuvent jusqu'à oublier leur propre mort.
+Le temps d'un vieil homme est bref. Ils peuvent compter leur propre fin en contemplant silencieusement le ciel bleu, les nuages blancs et la chute des flocons. Mais en même temps, le temps d'un vieil homme est infini; car ce qui est infini, c'est leur mémoire. Dans leurs souvenirs, ils peuvent jusqu'à oublier leur propre mort.
 
-La vitesse du chariot n'était pas rapide ; il tressautait sur la route menant au petit village situé au pied de la montagne Heng Yue. C'était le crépuscule du deuxième jour, mais la neige tombait sans grand signe d'interruption.
+La vitesse du chariot n'était pas rapide; il tressautait sur la route menant au petit village situé au pied de la montagne Heng Yue. C'était le crépuscule du deuxième jour, mais la neige tombait sans grand signe d'interruption.
 
 La neige scellait la terre tandis que le chariot solitaire se rapprochait lentement du village de montagne.
 
@@ -78,7 +78,7 @@ Quelques jours plus tard, sous une tempête de neige, le chariot quitta le villa
 
 Depuis le véhicule, Wang Lin souleva le rideau pour contempler son foyer enfoui sous la neige. Dans ses yeux, il revoyait l'image de lui-même, soixante-treize ans plus tôt, quittant la maison avec son sac en bambou sous les regards tendres de ses parents. À chaque pas, il se retournait jusqu'à ce que leurs silhouettes disparaissent. Enfin, il avait cessé de regarder en arrière pour marcher vers l'avenir.
 
-À cette époque, il était encore ignorant ; il ne savait pas quel chemin il emprunterait. Il savait seulement qu'il devait offrir une vie prospère à ses parents et faire en sorte que sa famille soit respectée par ses proches.
+À cette époque, il était encore ignorant; il ne savait pas quel chemin il emprunterait. Il savait seulement qu'il devait offrir une vie prospère à ses parents et faire en sorte que sa famille soit respectée par ses proches.
 
 En regardant en arrière depuis le chariot, tout devint flou dans la neige. Il poussa un soupir et rabattit le rideau.
 
@@ -92,7 +92,7 @@ Wang Lin connaissait trop bien ce parfum. Tout comme lors de son premier séjour
 
 Big Fortune était toujours là, assis à leurs côtés, observant Wang Lin avec un sourire joyeux.
 
-« C'est une rencontre ; il viendra, c'est certain. » Wang Lin leva sa cruche de vin. Il avait désormais atteint le crépuscule de sa vie. Des taches de vieillesse, plus sombres que jamais, marquaient ses mains. Il porta la cruche à ses lèvres et prit une gorgée.
+« C'est une rencontre; il viendra, c'est certain. » Wang Lin leva sa cruche de vin. Il avait désormais atteint le crépuscule de sa vie. Des taches de vieillesse, plus sombres que jamais, marquaient ses mains. Il porta la cruche à ses lèvres et prit une gorgée.
 
 Les notes d'une cithare résonnaient. C'était Li Muwan qui jouait.
 
@@ -102,13 +102,13 @@ C'était juin de la soixante-cinquième année. Les feuilles de saule volaient �
 
 « Le monde est une auberge pour tous les êtres vivants... Le temps est l'hôte des âges... La frontière entre la vie et la mort n'est qu'un réveil... d'un rêve... » Wang Lin rit tandis que le bateau dérivait sur la rivière. Un pont de pierre se dressait devant lui, mais il était désert. Seul un oiseau blanc planait au-dessus de l'édifice.
 
-Cet oiseau ne s'était pas manifesté depuis fort longtemps. Désormais, il décrivait des cercles autour du pont. Les rues environnantes devinrent floues ; c'était comme si le monde entier perdait sa netteté à cet instant précis.
+Cet oiseau ne s'était pas manifesté depuis fort longtemps. Désormais, il décrivait des cercles autour du pont. Les rues environnantes devinrent floues; c'était comme si le monde entier perdait sa netteté à cet instant précis.
 
 Seuls le pont de pierre et le bateau demeuraient d'une clarté absolue.
 
 Alors que l'embarcation approchait, les yeux de Wang Lin brillèrent de l'éclat le plus intense de ses soixante-dix dernières années. Il se leva et fixa le pont.
 
-Wang Lin murmura : « Il est venu... »
+Wang Lin murmura: « Il est venu... »
 
 À cet instant, l'oiseau blanc fondit vers le pont et s'y posa. Une lumière blanche jaillit de l'animal, formant à distance un vortex immaculé.
 
@@ -124,6 +124,6 @@ Tout dans ce monde s'immobilisa totalement.
 
 Seuls le jeune homme sur le pont de pierre et Wang Lin sur le bateau demeuraient inchangés.
 
-« Pourquoi ne pas venir boire avec toi-même ? » sourit Wang Lin en se rasseyant.
+« Pourquoi ne pas venir boire avec toi-même? » sourit Wang Lin en se rasseyant.
 
 Le jeune homme aux cheveux blancs médita un instant en silence avant de sauter sur la proue. Il s'assit et saisit une cruche de vin. Après une gorgée, il ne regarda pas son double âgé, mais Li Muwan, qui était devenue une vieille femme depuis bien longtemps.

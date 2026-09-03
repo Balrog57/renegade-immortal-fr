@@ -1,16 +1,16 @@
 ---
 n: 1578
-title: "Changement Céleste !"
+title: "Changement Céleste!"
 book: 10
 bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1578 - Heavenly Change!"
 slug: changement-celeste
 ---
-Chapitre 1578 - Changement Céleste !
+Chapitre 1578 - Changement Céleste!
 
-« Le 18e niveau du Clan des Tatouages ne se situe pas dans les profondeurs de la planète Suzaku, mais dans le Champ de Bataille Extérieur ! » Wang Lin s'approcha du mur et y pressa sa main droite. Des craquements résonnèrent tandis que les fissures se rejoignaient et que le mur s'effondrait, révélant une brèche.
+« Le 18e niveau du Clan des Tatouages ne se situe pas dans les profondeurs de la planète Suzaku, mais dans le Champ de Bataille Extérieur! » Wang Lin s'approcha du mur et y pressa sa main droite. Des craquements résonnèrent tandis que les fissures se rejoignaient et que le mur s'effondrait, révélant une brèche.
 
-Wang Lin se tint dans l'ouverture. Devant lui se déployait le Champ de Bataille Extérieur !
+Wang Lin se tint dans l'ouverture. Devant lui se déployait le Champ de Bataille Extérieur!
 
 L'immensité du Champ de Bataille Extérieur était vertigineuse, presque sans limite. Wang Lin aperçut quelques cadavres gigantesques flottant lentement dans le vide infini.
 
@@ -18,19 +18,19 @@ Une multitude d'entités fantomatiques perçaient ces corps... Au loin, des temp
 
 L'esprit de Wang Lin trembla et son sens divin se déploya. Il vit clairement qu'à cet instant, il se trouvait également à proximité d'un squelette colossal. Ce n'était pas celui d'un homme, mais celui d'une bête semblable à un dragon.
 
-Il se trouvait près du crâne de cette créature. Le mur qu'il avait brisé faisait partie du crâne de la bête ! Il se tenait à l'intérieur même du crâne, regardant vers l'avant !
+Il se trouvait près du crâne de cette créature. Le mur qu'il avait brisé faisait partie du crâne de la bête! Il se tenait à l'intérieur même du crâne, regardant vers l'avant!
 
-Si quelqu'un observait Wang Lin depuis l'intérieur du Champ de Bataille Extérieur, il verrait clairement d'innombrables cadavres entourer ce crâne géant !
+Si quelqu'un observait Wang Lin depuis l'intérieur du Champ de Bataille Extérieur, il verrait clairement d'innombrables cadavres entourer ce crâne géant!
 
-Les tempêtes lointaines se rapprochaient, mais à leur approche, d'innombrables âmes errantes s'éparpillaient dans la terreur. C'était comme si elles craignaient par-dessus tout l'existence de Wang Lin !
+Les tempêtes lointaines se rapprochaient, mais à leur approche, d'innombrables âmes errantes s'éparpillaient dans la terreur. C'était comme si elles craignaient par-dessus tout l'existence de Wang Lin!
 
-Wang Lin avait été autrefois un Dévoreur d'Âmes !
+Wang Lin avait été autrefois un Dévoreur d'Âmes!
 
-Wang Lin fixa le Champ de Bataille Extérieur. Il avait parcouru trop de planètes et visité trop de lieux, mais il n'avait jamais vu une autre planète dotée d'un Champ de Bataille Extérieur semblable à celui de la planète Suzaku !
+Wang Lin fixa le Champ de Bataille Extérieur. Il avait parcouru trop de planètes et visité trop de lieux, mais il n'avait jamais vu une autre planète dotée d'un Champ de Bataille Extérieur semblable à celui de la planète Suzaku!
 
-C'était comme si ce champ de bataille n'appartenait qu'à la planète Suzaku, et exclusivement aux cultivateurs de cette planète !
+C'était comme si ce champ de bataille n'appartenait qu'à la planète Suzaku, et exclusivement aux cultivateurs de cette planète!
 
-Tout en réfléchissant silencieusement, Wang Lin fit un pas en avant. Après plus de 2 000 ans, il pénétrait dans le Champ de Bataille Extérieur qui lui avait offert une nouvelle vie ! Il ne pouvait oublier le jour où il avait été tué par l'ancêtre de la famille Teng. Puis, grâce à la Perle Défiant le Ciel et à Situ Nan, son âme était retournée dans son corps. Il avait ensuite trouvé le cadavre de Mai Liang, marquant ainsi le début de sa nouvelle existence.
+Tout en réfléchissant silencieusement, Wang Lin fit un pas en avant. Après plus de 2 000 ans, il pénétrait dans le Champ de Bataille Extérieur qui lui avait offert une nouvelle vie! Il ne pouvait oublier le jour où il avait été tué par l'ancêtre de la famille Teng. Puis, grâce à la Perle Défiant le Ciel et à Situ Nan, son âme était retournée dans son corps. Il avait ensuite trouvé le cadavre de Mai Liang, marquant ainsi le début de sa nouvelle existence.
 
 Après un long moment, le sens divin de Wang Lin continua de s'étendre à travers le Champ de Bataille Extérieur. Il vit une profusion de cadavres et d'âmes errantes. Toutes ces âmes hurlaient et reculaient de peur. Pourtant, faute de pouvoir s'échapper, elles ne pouvaient que trembler devant son sens divin.
 
@@ -42,53 +42,51 @@ Un instant plus tard, son sens divin sembla toucher la limite du Champ de Batail
 
 Ses yeux s'illuminèrent. Son sens divin ne s'arrêta pas et continua de pousser vers l'extérieur. Un grondement violent retentit à travers le Champ de Bataille Extérieur, semblable au fracas d'un miroir qui se brise. Le sens divin de Wang Lin brisa la barrière et découvrit ce qui se trouvait au-delà.
 
-C'était toujours le Champ de Bataille Extérieur, mais l'espace était bien plus vaste ! Comparé à l'intérieur de la barrière, c'était comme comparer un fleuve à l'océan !
+C'était toujours le Champ de Bataille Extérieur, mais l'espace était bien plus vaste! Comparé à l'intérieur de la barrière, c'était comme comparer un fleuve à l'océan!
 
-L'esprit de Wang Lin tressaillit et son sens divin continua sa progression. Dans cette partie du Champ de Bataille située au-delà de la barrière, il vit des cadavres émettant une lueur dorée ! Ces corps irradiant cette lumière d'or étaient des Célestes !
+L'esprit de Wang Lin tressaillit et son sens divin continua sa progression. Dans cette partie du Champ de Bataille située au-delà de la barrière, il vit des cadavres émettant une lueur dorée! Ces corps irradiant cette lumière d'or étaient des Célestes!
 
 Il aperçut d'innombrables bêtes dont les restes étaient extrêmement féroces et dégageaient des auras puissantes. Il était évident qu'elles avaient été terriblement redoutables de leur vivant.
 
-Son sens divin s'étendit encore davantage. Il vit les cadavres de moustiques géants, le corps d'un Ji Qiong, et même d'innombrables restes de bêtes mesurant des centaines de milliers de pieds !
+Son sens divin s'étendit encore davantage. Il vit les cadavres de moustiques géants, le corps d'un Ji Qiong, et même d'innombrables restes de bêtes mesurant des centaines de milliers de pieds!
 
-Hormis la Bête du Nether, toutes les autres créatures qu'il avait croisées dans sa vie existaient ici, dans le Champ de Bataille Extérieur !
+Hormis la Bête du Nether, toutes les autres créatures qu'il avait croisées dans sa vie existaient ici, dans le Champ de Bataille Extérieur!
 
 L'esprit de Wang Lin ondula comme une vague. Son sens divin se propagea à travers l'infini des cadavres pour finalement heurter la véritable limite. Son sens divin couvrait désormais l'intégralité du Champ de Bataille Extérieur.
 
 À cet instant, les pupilles de Wang Lin se rétractèrent sous le choc de l'horreur.
 
-Lorsqu'il eut couvert tout le Champ de Bataille Extérieur de son sens divin, il comprit que ce lieu n'était qu'un immense fragment. Ce fragment entretenait un lien étrange avec la planète Suzaku, comme si cette dernière était née de lui !
+Lorsqu'il eut couvert tout le Champ de Bataille Extérieur de son sens divin, il comprit que ce lieu n'était qu'un immense fragment. Ce fragment entretenait un lien étrange avec la planète Suzaku, comme si cette dernière était née de lui!
 
-Ce fragment possédait une forme irrégulière, comme s'il était le morceau d'un tout plus vaste !
+Ce fragment possédait une forme irrégulière, comme s'il était le morceau d'un tout plus vaste!
 
 Le mental de Wang Lin fut secoué. À cet instant, il songea au secret stupéfiant que l'ancien Empereur Divin de l'Oiseau Vermillon lui avait transmis. La planète Suzaku faisait partie de la porte...
 
-Ces mots résonnèrent dans son esprit et fusionnèrent lentement avec le Champ de Bataille Extérieur perçu par son sens divin. Fort de cette illumination, il reconnut immédiatement que le Champ de Bataille Extérieur était une composante de cette mystérieuse porte !
+Ces mots résonnèrent dans son esprit et fusionnèrent lentement avec le Champ de Bataille Extérieur perçu par son sens divin. Fort de cette illumination, il reconnut immédiatement que le Champ de Bataille Extérieur était une composante de cette mystérieuse porte!
 
-« La porte que les Quatre Sectes Divines ont découverte... Quelle sorte de porte est-ce... L'ancêtre de la Terre Déchue est-il au courant ? »
+« La porte que les Quatre Sectes Divines ont découverte... Quelle sorte de porte est-ce... L'ancêtre de la Terre Déchue est-il au courant? »
 
 Wang Lin resta immobile un long moment, tentant de calmer le choc qui agitait son esprit. Il finit par repenser à la femme aux cheveux argentés et au cri déchirant qu'elle avait poussé en voyant la statue taoïste aux sept couleurs.
 
 « Je n'ai pas ouvert la porte... je n'ai pas ouvert la porte... » songea-t-il silencieusement.
 
-Il ignorait si les deux portes désignaient la même chose !
+Il ignorait si les deux portes désignaient la même chose!
 
 Il rétracta lentement son sens divin jusqu'à ce qu'il soit de nouveau contenu dans son corps. Il observa le Champ de Bataille Extérieur d'un regard complexe, puis s'en alla.
 
 Wang Lin avait découvert trop de choses lors de ce retour sur la planète Suzaku. Ces révélations étaient accablantes et rendaient sa planète natale plus étrangère que jamais.
 
 « Le Papillon Rouge n'est pas mort... »
-
 « Le 19e niveau du Clan des Tatouages scellait la flèche Li Guang... »
-
 « Le Champ de Bataille Extérieur d'autrefois n'était qu'une zone restreinte, et il existe un monde bien plus vaste au-delà. Il s'avère que tout cela fait partie de la porte... »
 
 Wang Lin s'assit au sommet d'une montagne sur la planète Suzaku. Il faisait face au vent hurlant qui fouettait ses cheveux et ses vêtements, le regard tourmenté.
 
-« À mesure que mon niveau de cultivation augmentait, j'ai progressivement percé les secrets de la planète Suzaku... Ainsi, c'est donc ainsi que les choses se passent. » Wang Lin leva les yeux vers le ciel sombre où s'amoncelaient des nuages noirs. Le tonnerre grondait au loin et la pluie commença à tomber.
+« À mesure que mon niveau de culture augmentait, j'ai progressivement percé les secrets de la planète Suzaku... Ainsi, c'est donc ainsi que les choses se passent. » Wang Lin leva les yeux vers le ciel sombre où s'amoncelaient des nuages noirs. Le tonnerre grondait au loin et la pluie commença à tomber.
 
 Un oiseau blanc battit précipitamment des ailes pour tenter d'échapper aux nuages sombres qui menaçaient sa vie. Cependant, un coup de tonnerre retentit et le corps de l'oiseau trembla tandis qu'il était englouti par les masses noires tourbillonnantes.
 
-En voyant cela, Wang Lin plissa les yeux ; il pressentait que quelque chose ne tournait pas rond.
+En voyant cela, Wang Lin plissa les yeux; il pressentait que quelque chose ne tournait pas rond.
 
 La pluie suivait le vent et n'était pas encore arrivée sur lui. La bourrasque transportait l'air humide vers Wang Lin, apportant avec elle la fraîcheur de l'averse. Il faisait glacial.
 
@@ -104,22 +102,22 @@ Les petits cailloux autour de lui auraient normalement dû être emportés par l
 
 Un coup de tonnerre éclata et plusieurs éclairs reliant le ciel et la terre déchirèrent l'horizon sous les yeux de Wang Lin. Ils illuminaient les nuages sombres, tels des serpents d'argent ou des marques incrustées dans le ciel.
 
-Observant les nuages noirs tourbillonnants, Wang Lin prit une profonde inspiration, envahi par un sentiment d'irritation inexplicable. Il fronça les sourcils et réprima les découvertes qu'il venait de faire sur la planète Suzaku. Pour l'instant, il devait accomplir son cycle de vie et de mort, son karma, et ses essences de vrai et de faux !
+Observant les nuages noirs tourbillonnants, Wang Lin prit une profonde inspiration, envahi par un sentiment d'irritation inexplicable. Il fronça les sourcils et réprima les découvertes qu'il venait de faire sur la planète Suzaku. Pour l'instant, il devait accomplir son cycle de vie et de mort, son karma, et ses essences de vrai et de faux!
 
-Il affinerait ensuite l'épée d'essence de massacre que Qing Shui lui avait donnée et utiliserait ses six essences pour briser la Porte du Vide !
+Il affinerait ensuite l'épée d'essence de massacre que Qing Shui lui avait donnée et utiliserait ses six essences pour briser la Porte du Vide!
 
 Wang Lin se leva pour partir. Derrière lui, les nuages tourbillonnants s'engouffrèrent comme si un dieu du massacre se cachait en leur sein, le fixant du regard. Il voulait le dévorer et le détruire, tout comme l'oiseau.
 
-Les éclairs crissablèrent et vacillèrent. Alors que la pluie tombait, une intention meurtrière jaillit des nuages noirs. Cette intention surgit de manière brutale !
+Les éclairs crissablèrent et vacillèrent. Alors que la pluie tombait, une intention meurtrière jaillit des nuages noirs. Cette intention surgit de manière brutale!
 
 Le pied droit de Wang Lin, qui venait de se lever, s'immobilisa soudainement et tous les poils de son corps se hérissèrent. Un puissant sentiment de crise de vie ou de mort secoua son être alors qu'il fixait les nuages noirs. Son expression devint extrêmement grave.
 
-« Quelque chose ne va pas !! » Les trois images vues précédemment lui traversèrent l'esprit : l'oiseau qui mourait, la poussière qui ne dérivait pas et les cailloux qui ne bougeaient pas !
+« Quelque chose ne va pas!! » Les trois images vues précédemment lui traversèrent l'esprit: l'oiseau qui mourait, la poussière qui ne dérivait pas et les cailloux qui ne bougeaient pas!
 
-Cette crise de vie ou de mort surpassait tout ce qu'il avait ressenti dans le Tombeau Ancien ou lors de ses rencontres après son retour dans le Royaume Intérieur. C'était comparable à la calamité que Red Butterfly avait provoquée ; c'était une épreuve que Wang Lin devait affronter !
+Cette crise de vie ou de mort surpassait tout ce qu'il avait ressenti dans le Tombeau Ancien ou lors de ses rencontres après son retour dans le Royaume Intérieur. C'était comparable à la calamité que Papillon Rouge avait provoquée; c'était une épreuve que Wang Lin devait affronter!
 
-Ce n'est qu'en survivant à cette calamité qu'il serait digne de continuer à vivre ! Telle fut l'illumination qui le frappa au moment même où il vit les nuages noirs tourbillonner au loin !
+Ce n'est qu'en survivant à cette calamité qu'il serait digne de continuer à vivre! Telle fut l'illumination qui le frappa au moment même où il vit les nuages noirs tourbillonner au loin!
 
-Les nuages ne possédaient pas une véritable intention meurtrière ; celle-ci émanait du changement dans le tonnerre généré par les nuages. Cela venait de l'intuition propre de Wang Lin. Ce changement ne s'était produit ni plus tôt, ni maintenant, mais précisément au moment où Wang Lin l'avait remarqué. C'était un changement céleste !
+Les nuages ne possédaient pas une véritable intention meurtrière; celle-ci émanait du changement dans le tonnerre généré par les nuages. Cela venait de l'intuition propre de Wang Lin. Ce changement ne s'était produit ni plus tôt, ni maintenant, mais précisément au moment où Wang Lin l'avait remarqué. C'était un changement céleste!
 
-« Changement céleste ! » Les pupilles de Wang Lin se rétractèrent. Sans hésiter, il déploya son sens divin sur toute la planète et se précipita dans l'espace. Dès qu'il vit l'espace extérieur, son expression changea radicalement !
+« Changement céleste! » Les pupilles de Wang Lin se rétractèrent. Sans hésiter, il déploya son sens divin sur toute la planète et se précipita dans l'espace. Dès qu'il vit l'espace extérieur, son expression changea radicalement!

@@ -1,6 +1,6 @@
 ---
 n: 1958
-title: "Un Seul Acte Brillant ! (8)"
+title: "Un Seul Acte Brillant! (8)"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1958 - A Single Brilliant Feat! (8)"
@@ -8,7 +8,7 @@ slug: un-seul-acte-brillant-8
 ---
 Le Grand Empyrean Dao Yi portait une simple robe taoïste et il sourit en sortant. Il regarda Wang Lin, qui se tenait devant le douzième palais.
 
-L'expression de Wang Lin était calme ; il rendit également son regard au Grand Empyrean Dao Yi. Après une courte réflexion, il joignit ses mains en signe de respect.
+L'expression de Wang Lin était calme; il rendit également son regard au Grand Empyrean Dao Yi. Après une courte réflexion, il joignit ses mains en signe de respect.
 
 « Je m'en souviens. Si je réussis le neuvième palais, le Grand Empyrean Dao Yi viendra à nouveau me recruter. »
 
@@ -16,17 +16,17 @@ L'expression de Wang Lin était calme ; il rendit également son regard au Grand
 
 Leurs regards se croisèrent et semblèrent se figer dans l'air.
 
-Ce spectacle fut observé par tous les cultivateurs présents. Les Empyrean Exalts affichaient des expressions étranges. Hormis l'Ascendant Empyrean Ming Dao, c'était la deuxième fois qu'ils voyaient des Grands Empyreans se disputer pour quelqu'un !
+Ce spectacle fut observé par tous les cultivateurs présents. Les Empyrean Exalts affichaient des expressions étranges. Hormis l'Ascendant Empyrean Ming Dao, c'était la deuxième fois qu'ils voyaient des Grands Empyreans se disputer pour quelqu'un!
 
-Le Grand Empyrean Wu Feng laissa poindre un éclair de froideur et déclara lentement : « Dao Yi, j'ai des vues sur son enfant. Ne te bats pas contre moi ! »
+Le Grand Empyrean Wu Feng laissa poindre un éclair de froideur et déclara lentement: « Dao Yi, j'ai des vues sur son enfant. Ne te bats pas contre moi! »
 
-Le Grand Empyrean Dao Yi sourit et envoya un message par transmission de sens divin : « Wu Feng, même nous ne pouvons forcer les Ascendant Empyreans. Tout dépend de leur propre choix. Ce n'est pas parce que tu lorgnes sur lui qu'il te suivra ! »
+Le Grand Empyrean Dao Yi sourit et envoya un message par transmission de sens divin: « Wu Feng, même nous ne pouvons forcer les Ascendant Empyreans. Tout dépend de leur propre choix. Ce n'est pas parce que tu lorgnes sur lui qu'il te suivra! »
 
 « De plus, il est sur le point de tenter le douzième palais. Une fois ce palais franchi, il sera comparable à l'Ascendant Empyrean Ming Dao. Oublie nous deux, même ce vieux Jiu Di pourrait être tenté de venir... »
 
 « Et il y a aussi cet Empereur Céleste. J'ignore ce qu'il a promis à l'Ascendant Empyrean Ming Dao pour parvenir à le recruter. »
 
-Alors que les deux discutaient par sens divin, dans le ciel, Wang Lin prit une profonde inspiration et s'avança dans le douzième palais !
+Alors que les deux discutaient par sens divin, dans le ciel, Wang Lin prit une profonde inspiration et s'avança dans le douzième palais!
 
 À l'instant où il pénétra dans le palais, Dao Yi et Wu Feng cessèrent de parler et levèrent la tête. Tous les cultivateurs présents, qu'ils fussent Empyrean Exalts ou Ascendant Empyreans, levèrent les yeux.
 
@@ -40,41 +40,41 @@ Seules les quelques personnes observant l'Épreuve Empyréenne depuis l'extérie
 
 L'homme soupira amèrement, prêt à abandonner toute idée de recruter cet homme. Cependant, à ce moment précis, la porte fut enfoncée et une petite fille en rouge s'y engouffra en courant.
 
-« Petite Gu Ya, pourquoi regardes-tu encore ce miroir brisé ? Viens m'aider, Han Han et moi, pour donner une leçon à ce Petit Loup. Aujourd'hui, ce Petit Loup est très méchant ! Je vais lui donner une leçon ! »
+« Petite Gu Ya, pourquoi regardes-tu encore ce miroir brisé? Viens m'aider, Han Han et moi, pour donner une leçon à ce Petit Loup. Aujourd'hui, ce Petit Loup est très méchant! Je vais lui donner une leçon! »
 
 « Petite Ancêtre... » L'homme d'âge mûr semblait sur le point de pleurer.
 
-« Hein ? La personne dans le miroir brisé me semble familière... » La petite fille en rouge scruta le miroir et fronça les sourcils, plongée dans sa réflexion.
+« Hein? La personne dans le miroir brisé me semble familière... » La petite fille en rouge scruta le miroir et fronça les sourcils, plongée dans sa réflexion.
 
 « Heu... Petite Ancêtre, bien sûr qu'elle vous est familière. Ce sont le Grand Empyrean Wu Feng et le Grand Empyrean Dao Yi... » L'homme soupira, résigné à renoncer au recrutement.
 
 « Allons-y, Petite Ancêtre, je vais vous aider à régler ce compte avec ce... ce Petit Loup... » soupira l'homme. Il éprouvait de la pitié pour ce pauvre cultivateur nommé Greed.
 
-« Ce n'est pas ce chauve inutile ni le type au faux masque, c'est cette personne ! » La petite fille leva la main droite et pointa Wang Lin, qui venait d'entrer dans le douzième palais.
+« Ce n'est pas ce chauve inutile ni le type au faux masque, c'est cette personne! » La petite fille leva la main droite et pointa Wang Lin, qui venait d'entrer dans le douzième palais.
 
-« Oh, il est entré dans cette salle. Très familier... Laisse-moi réfléchir... » La petite fille réfléchit un instant, puis ses yeux s'illuminèrent soudainement !
+« Oh, il est entré dans cette salle. Très familier... Laisse-moi réfléchir... » La petite fille réfléchit un instant, puis ses yeux s'illuminèrent soudainement!
 
-« Il s'appelle Wang Lin !! Je me souviens que lorsque j'ai trouvé le Petit Loup, je l'ai aussi vu. Je me souviens que Han Han et moi l'avons aidé une fois... Et il me semble l'avoir déjà vu auparavant ! »
+« Il s'appelle Wang Lin!! Je me souviens que lorsque j'ai trouvé le Petit Loup, je l'ai aussi vu. Je me souviens que Han Han et moi l'avons aidé une fois... Et il me semble l'avoir déjà vu auparavant! »
 
 « C'est lui que vous vouliez recruter. Bien, bien. Han Han et moi allons vous accompagner. » La petite fille cligna des yeux et applaudit en riant.
 
 L'homme d'âge mûr déglutit et fixa la fillette, stupéfait. Après un long moment, son visage s'illumina d'excitation.
 
-« Petite... Petite Ancêtre, êtes-vous certaine de le connaître et de l'avoir même sauvé ? »
+« Petite... Petite Ancêtre, êtes-vous certaine de le connaître et de l'avoir même sauvé? »
 
-La petite fille fronça les sourcils et pointa l'homme du doigt en adoptant un ton solennel : « Petit Gu Ya, vas-tu être désobéissant ? »
+La petite fille fronça les sourcils et pointa l'homme du doigt en adoptant un ton solennel: « Petit Gu Ya, vas-tu être désobéissant? »
 
-« Le Grand Empyrean Gemini avait vraiment eu la clairvoyance de le sauver autrefois. Grâce à cela, nous pourrons peut-être vraiment le recruter ! » L'homme rit d'excitation, le visage empourpré. Il cajolait même la petite Ancêtre comme s'il s'agissait d'un enfant.
+« Le Grand Empyrean Gemini avait vraiment eu la clairvoyance de le sauver autrefois. Grâce à cela, nous pourrons peut-être vraiment le recruter! » L'homme rit d'excitation, le visage empourpré. Il cajolait même la petite Ancêtre comme s'il s'agissait d'un enfant.
 
 En entendant cela, la petite fille sourit immédiatement, l'air très fière.
 
 « Hmph, c'est ce que ça fait quand on désobéit, Petit Gu Ya. Maintenant tu sais à quel point Han Han et moi sommes puissantes et perspicaces. Je t'avais déjà dit d'oublier ceux qui sont partis, mais tu n'as pas écouté. »
 
-« Moi, le Grand Empyrean Gemini, je ne force jamais personne à rester. S'ils veulent partir, qu'ils partent. Qui contrôle le cours du destin ? Comment peux-tu, ou eux, comprendre cela ? » Plus la petite fille parlait, plus elle se sentait fière.
+« Moi, le Grand Empyrean Gemini, je ne force jamais personne à rester. S'ils veulent partir, qu'ils partent. Qui contrôle le cours du destin? Comment peux-tu, ou eux, comprendre cela? » Plus la petite fille parlait, plus elle se sentait fière.
 
 « Oui, oui, oui. Le Grand Empyrean Gemini contrôle le cours du destin. Gu Ya vous admire, vous admire énormément... » Le cultivateur sourit rapidement et regarda la fillette avec un regard empreint de dévotion.
 
-Bien que sa cultivation fût limitée, lorsque le Grand Empyrean Gemini avait subi cet accident lors de sa réincarnation, il avait choisi de rester pour s'occuper des deux petites filles alors que tous les autres étaient partis. Tout ce qu'il avait accompli jusqu'à présent était en reconnaissance de la grâce qu'elle lui avait témoignée à son apogée.
+Bien que sa culture fût limitée, lorsque le Grand Empyrean Gemini avait subi cet accident lors de sa réincarnation, il avait choisi de rester pour s'occuper des deux petites filles alors que tous les autres étaient partis. Tout ce qu'il avait accompli jusqu'à présent était en reconnaissance de la grâce qu'elle lui avait témoignée à son apogée.
 
 À l'époque, il n'était qu'un Empyrean Exalt inconnu sous les ordres du Grand Empyrean Gemini, mais aujourd'hui, il était le seul fidèle restant.
 
@@ -88,27 +88,27 @@ Tandis que des rires résonnaient dans la Secte Purple Yang, sur le Mont de l'Em
 
 Également dans le Continent Central, au sein de la cité impériale, dans un palais luxueux, l'Ascendant Empyrean Ming Dao vêtu de noir fixait l'illusion en fronçant les sourcils.
 
-« Peux-tu le tuer d'un seul souffle ? » Une voix calme résonna dans la salle.
+« Peux-tu le tuer d'un seul souffle? » Une voix calme résonna dans la salle.
 
-L'Ascendant Empyrean Ming Dao réfléchit silencieusement et, un instant plus tard, répondit : « Un seul souffle suffit ! »
+L'Ascendant Empyrean Ming Dao réfléchit silencieusement et, un instant plus tard, répondit: « Un seul souffle suffit! »
 
-Un rire sembla résonner, et la voix reprit :
+Un rire sembla résonner, et la voix reprit:
 
-« Il ne peut pas franchir le douzième palais. Son armure d'âme de Taureau Céleste rencontrera le Taureau Céleste au douzième palais ! Laissez les autres se disputer cet homme, cet Empereur n'y porte aucun intérêt... » Alors qu'il parlait, il s'interrompit brusquement. Des ondulations parcoururent le trône de dragon et un homme d'âge mûr, ressemblant étrangement à l'Ancêtre Céleste, apparut.
+« Il ne peut pas franchir le douzième palais. Son armure d'âme de Taureau Céleste rencontrera le Taureau Céleste au douzième palais! Laissez les autres se disputer cet homme, cet Empereur n'y porte aucun intérêt... » Alors qu'il parlait, il s'interrompit brusquement. Des ondulations parcoururent le trône de dragon et un homme d'âge mûr, ressemblant étrangement à l'Ancêtre Céleste, apparut.
 
-Une pointe de choc se lut dans ses yeux alors qu'il contemplait l'illusion dans le palais. Le douzième palais de l'illusion explosa soudainement dans une lumière dorée aveuglante !
+Une pointe de choc se lut dans ses yeux alors qu'il contemplait l'illusion dans le palais. Le douzième palais de l'illusion explosa soudainement dans une lumière dorée aveuglante!
 
-Cette lumière émanait clairement de l'Épreuve Empyréenne, mais elle semblait percer le vide à travers l'illusion pour illuminer le palais !
+Cette lumière émanait clairement de l'Épreuve Empyréenne, mais elle semblait percer le vide à travers l'illusion pour illuminer le palais!
 
-« Il a franchi le douzième palais ! » L'homme en robe dorée était stupéfait.
+« Il a franchi le douzième palais! » L'homme en robe dorée était stupéfait.
 
 Le jeune homme en noir à ses côtés dégagea soudain une intention meurtrière terrifiante. Fixant l'illusion, ses yeux trahirent un froid monstrueux.
 
 Il comprit que Wang Lin avait franchi le douzième palais et qu'il suivrait son propre chemin passé. Wang Lin attirerait l'attention de tous, et les Grands Empyreans lutteraient pour le recruter. Il obtiendrait alors des conditions supérieures pour devenir encore plus puissant.
 
-Le fait que Wang Lin franchît le douzième palais signifiait que, dès qu'on parlerait de lui, son nom serait cité ! Cela rendait naturellement très mécontent l'Ascendant Empyrean Ming Dao, qui se considérait toujours comme le numéro un des Ascendants.
+Le fait que Wang Lin franchît le douzième palais signifiait que, dès qu'on parlerait de lui, son nom serait cité! Cela rendait naturellement très mécontent l'Ascendant Empyrean Ming Dao, qui se considérait toujours comme le numéro un des Ascendants.
 
-L'Ascendant Empyrean Ming Dao médita un instant et dit : « Un simple douzième palais... quelques membres du Clan Céleste peuvent le faire. Le tuer ne prendrait toujours qu'un seul souffle ! »
+L'Ascendant Empyrean Ming Dao médita un instant et dit: « Un simple douzième palais... quelques membres du Clan Céleste peuvent le faire. Le tuer ne prendrait toujours qu'un seul souffle! »
 
 Mais l'homme d'âge mûr en robe dorée restait figé devant l'illusion, plongé dans ses pensées.
 
@@ -116,14 +116,14 @@ Au même moment, sur le Mont de l'Empereur, le vieil homme se leva, les yeux bri
 
 « Je l'ai déjà vu une fois, et cet enfant possède l'armure d'âme de Taureau Céleste... Franchir le douzième palais grâce à la puissance de l'armure signifie qu'il ne peut toujours pas égaler l'Ascendant Empyrean Ming Dao... À moins qu'il ne puisse franchir le treizième palais avec cette armure... alors il ne sera qu'un simple Ascendant Empyrean. » Le vieil homme réfléchit en se rasseyant et en fermant les yeux.
 
-« Ah, quelle fatigue... vraiment épuisant... Dois-je le recruter ou non... Il ne devrait pas pouvoir briser le treizième palais et devrait abandonner... Hein ! » Le vieil homme ouvrit brusquement les yeux. Il vit Wang Lin devant le douzième palais, entouré d'une couche invisible de vapeur d'eau. La pression générée par les ondulations pouvait être ressentie jusqu'à sa feuille d'automne.
+« Ah, quelle fatigue... vraiment épuisant... Dois-je le recruter ou non... Il ne devrait pas pouvoir briser le treizième palais et devrait abandonner... Hein! » Le vieil homme ouvrit brusquement les yeux. Il vit Wang Lin devant le douzième palais, entouré d'une couche invisible de vapeur d'eau. La pression générée par les ondulations pouvait être ressentie jusqu'à sa feuille d'automne.
 
-« Dao de l'Eau Extrême ! »
+« Dao de l'Eau Extrême! »
 
-Alors que le vieil homme observait les ondes invisibles autour du corps de Wang Lin à travers la feuille, il vit ce dernier bouger. Wang Lin n'avait pas abandonné et se précipitait vers le treizième palais !
+Alors que le vieil homme observait les ondes invisibles autour du corps de Wang Lin à travers la feuille, il vit ce dernier bouger. Wang Lin n'avait pas abandonné et se précipitait vers le treizième palais!
 
 En un éclair, sa silhouette disparut dans les nuages alors qu'il fonçait vers le treizième palais.
 
 Cette scène fit lâcher un reniflement glacial à l'Ascendant Empyrean Ming Dao vêtu de noir, une intention meurtrière brillant dans ses yeux.
 
-« Empereur Céleste, je me rends à l'Épreuve Empyréenne pour tenter le seizième palais ! »
+« Empereur Céleste, je me rends à l'Épreuve Empyréenne pour tenter le seizième palais! »

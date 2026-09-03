@@ -34,17 +34,17 @@ Li Muwan soupira intérieurement.
 
 Après un mois de recherches pour trouver des substituts, Ouyang Zi fut également appelé par Wang Lin. Malheureusement, l'autre alchimiste de rang 6, Tian Yunzi, était mort des années auparavant en tentant d'atteindre le stade de l'Âme Naissante. Avec les trois d'eux étudiant la recette, le processus serait bien plus rapide.
 
-Ouyang Zi était passionné par l'alchimie ; c'était comme s'il était né pour cela. Lorsqu'il vit la recette de pilule de rang 6, ce fut comme s'il avait trouvé sa raison d'être. Il devint immédiatement un homme possédé, se lançant dans l'étude des substitutions et des combinaisons des 138 ingrédients.
+Ouyang Zi était passionné par l'alchimie; c'était comme s'il était né pour cela. Lorsqu'il vit la recette de pilule de rang 6, ce fut comme s'il avait trouvé sa raison d'être. Il devint immédiatement un homme possédé, se lançant dans l'étude des substitutions et des combinaisons des 138 ingrédients.
 
 Chaque fois qu'un substitut était trouvé, Liu Fei et Song Qing effectuaient des recherches et faisaient acheminer l'ingrédient.
 
-Si le Secte du Ciel Nuageux ne le possédait pas, ils l'achetaient à prix d'or auprès de sectes d'autres pays. Si cela restait impossible, ils recherchaient l'emplacement de l'ingrédient et chargeaient Lu Fei et Tie Yan de le récolter.
+Si la Secte du Ciel Nuageux ne le possédait pas, ils l'achetaient à prix d'or auprès de sectes d'autres pays. Si cela restait impossible, ils recherchaient l'emplacement de l'ingrédient et chargeaient Lu Fei et Tie Yan de le récolter.
 
 Le temps passa rapidement. Deux ans plus tard, sur les 138 ingrédients, il n'en restait plus que trois. Malheureusement, ils n'avaient toujours pas trouvé de substituts pour ces derniers.
 
 Durant ces deux années, Ouyang Zi avait tout oublié. Il était totalement absorbé par la recette de pilule de rang 6.
 
-Quant à Li Muwan, au cours de ces deux années, elle vieillissait lentement. Sa peau n'était plus d'un blanc immaculé ; elle commençait à montrer des signes de grisaille.
+Quant à Li Muwan, au cours de ces deux années, elle vieillissait lentement. Sa peau n'était plus d'un blanc immaculé; elle commençait à montrer des signes de grisaille.
 
 Deux ans d'entretien incessant du corps par l'injection d'énergie spirituelle n'avaient pu arrêter le cycle de la vie et de la mort dicté par les cieux.
 
@@ -58,21 +58,21 @@ Wang Lin fixa l'horizon et poussa un soupir. Il semblait accablé de tristesse l
 
 C'était un vin de fruits. Il n'en restait plus beaucoup dans le sac de Wang Lin. Chaque fois qu'il en buvait, il se remémorait Da Niu lui apportant du vin.
 
-« Oncle Wang, tu es venu à la capitale pour gagner beaucoup d'argent afin de pouvoir rentrer chez toi et épouser ta femme, n'est-ce pas ? »
+« Oncle Wang, tu es venu à la capitale pour gagner beaucoup d'argent afin de pouvoir rentrer chez toi et épouser ta femme, n'est-ce pas? »
 
 « Une fois que l'oncle aura gagné beaucoup d'argent, il rentrera chez lui pour se marier. »
 
 Ces scènes du passé surgirent dans son esprit. Il finit le vin en quelques gorgées, puis leva la tête vers le ciel.
 
-À cet instant précis, un cri d'excitation retentit depuis la chambre d'Ouyang Zi. Peu après, ce dernier en sortit en courant. Surpris de voir Wang Lin sous la pluie, il s'approcha précipitamment : « Maître du Secte, j'ai trouvé les substituts pour les trois derniers ingrédients ! »
+À cet instant précis, un cri d'excitation retentit depuis la chambre d'Ouyang Zi. Peu après, ce dernier en sortit en courant. Surpris de voir Wang Lin sous la pluie, il s'approcha précipitamment: « Maître de la Secte, j'ai trouvé les substituts pour les trois derniers ingrédients! »
 
 Le regard de Wang Lin se fit grave alors qu'il fixait Ouyang Zi.
 
-Ouyang Zi sortit rapidement un morceau de jade. Il le tendit à Wang Lin en disant : « Ces trois ingrédients sont éteints, mais j'ai trouvé une combinaison de 37 autres composants qui produiront le même effet. Bien que l'efficacité soit moindre, elle ne devrait pas trop s'écarter de l'original. »
+Ouyang Zi sortit rapidement un morceau de jade. Il le tendit à Wang Lin en disant: « Ces trois ingrédients sont éteints, mais j'ai trouvé une combinaison de 37 autres composants qui produiront le même effet. Bien que l'efficacité soit moindre, elle ne devrait pas trop s'écarter de l'original. »
 
 Wang Lin accepta le jade, le parcourut de son sens divin et en mémorisa instantanément le contenu.
 
-Ouyang Zi ajouta : « Ces ingrédients sont très rares. Le Secte du Ciel Nuageux n'en possède que quatre. Nous devrons nous rendre dans un pays de cultivation de rang 4 pour obtenir le reste. »
+Ouyang Zi ajouta: « Ces ingrédients sont très rares. Le Secte du Ciel Nuageux n'en possède que quatre. Nous devrons nous rendre dans un pays de culture de rang 4 pour obtenir le reste. »
 
 Wang Lin se leva. Le jade à la main, il disparut.
 
@@ -84,25 +84,25 @@ Deux larmes roulèrent sur ses joues. De fines rides commençaient à marquer so
 
 Wang Lin ne perdit pas de temps. Sept mois plus tard, il revint, le visage marqué par la fatigue.
 
-Durant ces sept mois, Wang Lin n'avait pas marqué de repos. Il avait parcouru la plupart des pays de cultivation de rang 4 et même certains de rang 5.
+Durant ces sept mois, Wang Lin n'avait pas marqué de repos. Il avait parcouru la plupart des pays de culture de rang 4 et même certains de rang 5.
 
 Il finit par obtenir tous les ingrédients, que ce soit par l'achat, l'échange ou le vol.
 
-Ces sept mois furent semés d'embûches. Le moment le plus périlleux fut dans un pays de cultivation de rang 5, face à un cultivateur de la Formation de l'Âme au stade intermédiaire doté d'un domaine très particulier : le domaine de « l'oubli ». Wang Lin finit par l'emporter, mais de justesse.
+Ces sept mois furent semés d'embûches. Le moment le plus périlleux fut dans un pays de culture de rang 5, face à un cultivateur de la Formation de l'Âme au stade intermédiaire doté d'un domaine très particulier: le domaine de « l'oubli ». Wang Lin finit par l'emporter, mais de justesse.
 
 Le domaine de l'oubli l'avait véritablement terrifié.
 
 Une autre occasion impliqua un cultivateur de la Formation de l'Âme au stade avancé. Bien que son domaine fût assez conventionnel, il était sur le point d'atteindre le sommet de ce stade et son domaine changeait constamment selon sa volonté.
 
-Avec le recul, Wang Lin estima que la puissance de cet homme était légèrement supérieure à celle de Red Butterfly. Finalement, Wang Lin avait réussi à lutter jusqu'à l'égalité contre lui.
+Avec le recul, Wang Lin estima que la puissance de cet homme était légèrement supérieure à celle de Papillon Rouge. Finalement, Wang Lin avait réussi à lutter jusqu'à l'égalité contre lui.
 
-Au cours de ces sept mois, Wang Lin réalisa que parmi les cultivateurs de la Formation de l'Âme, Red Butterfly n'était pas la plus puissante. Bien que ces individus n'aient pas encore atteint le stade de la Transformation de l'Âme, ils étaient redoutables.
+Au cours de ces sept mois, Wang Lin réalisa que parmi les cultivateurs de la Formation de l'Âme, Papillon Rouge n'était pas la plus puissante. Bien que ces individus n'aient pas encore atteint le stade de la Transformation de l'Âme, ils étaient redoutables.
 
-Surtout ceux possédant des domaines spéciaux ; ils manifestaient une force anormale.
+Surtout ceux possédant des domaines spéciaux; ils manifestaient une force anormale.
 
 Après son retour à Chu, Wang Lin se dirigea rapidement vers la vallée.
 
-À l'intérieur de la vallée, il déploya son sens divin et constata que Tie Yan et Lu Fei étaient tous deux 500 mètres plus proches de la pagode qu'auparavant. Leur niveau de cultivation avait légèrement progressé.
+À l'intérieur de la vallée, il déploya son sens divin et constata que Tie Yan et Lu Fei étaient tous deux 500 mètres plus proches de la pagode qu'auparavant. Leur niveau de culture avait légèrement progressé.
 
 Wang Lin apparut devant la maison en pierre. Il ouvrit la porte et son corps fut parcouru d'un tremblement. Ce qu'il vit n'était que le dos de quelqu'un.
 
@@ -110,33 +110,33 @@ Cette silhouette portait une longue chevelure, mais la moitié était devenue bl
 
 Le cœur de Wang Lin se serra. Il s'approcha et se tint aux côtés de Li Muwan. Il contempla son beau visage, désormais encore plus marqué par l'âge.
 
-Wang Lin murmura : « Wan Er, je suis revenu. J'ai rassemblé les ingrédients. »
+Wang Lin murmura: « Wan Er, je suis revenu. J'ai rassemblé les ingrédients. »
 
-Li Muwan esquissa un faible sourire. Elle ne dit rien, se contentant de regarder Wang Lin. Puis elle murmura : « Ne repars plus, passe simplement plus de temps avec moi. Il ne me reste plus beaucoup de temps... »
+Li Muwan esquissa un faible sourire. Elle ne dit rien, se contentant de regarder Wang Lin. Puis elle murmura: « Ne repars plus, passe simplement plus de temps avec moi. Il ne me reste plus beaucoup de temps... »
 
-Wang Lin la regarda et, d'un ton solennel, répéta : « Tu ne mourras pas ! »
+Wang Lin la regarda et, d'un ton solennel, répéta: « Tu ne mourras pas! »
 
 Li Muwan se mordit la lèvre inférieure et hocha doucement la tête. Elle s'appuya contre Wang Lin et ferma les yeux.
 
-Le retour de Wang Lin poussa Ouyang Zi à se consacrer corps et âme à la raffinage de la pilule de rang 6. Son vœu le plus cher était de réussir une telle prouesse ; c'était comme si son âme s'en trouvait embrasée.
+Le retour de Wang Lin poussa Ouyang Zi à se consacrer corps et âme à la raffinage de la pilule de rang 6. Son vœu le plus cher était de réussir une telle prouesse; c'était comme si son âme s'en trouvait embrasée.
 
 Presque tous les ingrédients de substitution avaient été choisis après de longues recherches. Il utilisa plus de 1000 composants pour remplacer les 138 originaux, en calculant scrupuleusement l'effet de chaque élément et le temps nécessaire à leur raffinage.
 
 Sans une expérience inégalée en alchimie, il n'aurait jamais pu y parvenir.
 
-Même Ouyang Zi ne pouvait se permettre la moindre négligence. Il ne se souciait guère de Li Muwan ; c'était un défi personnel. Il était sur le point de réaliser le rêve de sa vie. Il s'était répété d'innombrables fois qu'il pouvait échouer autant de fois qu'il le faudrait dans sa vie, mais que cette fois-ci, l'échec n'était pas une option.
+Même Ouyang Zi ne pouvait se permettre la moindre négligence. Il ne se souciait guère de Li Muwan; c'était un défi personnel. Il était sur le point de réaliser le rêve de sa vie. Il s'était répété d'innombrables fois qu'il pouvait échouer autant de fois qu'il le faudrait dans sa vie, mais que cette fois-ci, l'échec n'était pas une option.
 
 À mesure que le processus progressait, l'humeur d'Ouyang Zi devenait de plus en plus massacrante. Parfois, il se montrait impatient envers Wang Lin lorsque celui-ci venait s'enquérir de l'avancement.
 
-Ce n'était pas par crainte de Wang Lin, mais par tempérament. Il avait oublié le monde ; dans son esprit, seule la pilule comptait.
+Ce n'était pas par crainte de Wang Lin, mais par tempérament. Il avait oublié le monde; dans son esprit, seule la pilule comptait.
 
-Wang Lin ne s'offusquait pas de l'humeur d'Ouyang Zi. En fait, il pensait que parmi tous les membres du Secte du Ciel Nuageux, Ouyang Zi était celui qui avait le plus de chances d'atteindre la Formation de l'Âme.
+Wang Lin ne s'offusquait pas de l'humeur d'Ouyang Zi. En fait, il pensait que parmi tous les membres de la Secte du Ciel Nuageux, Ouyang Zi était celui qui avait le plus de chances d'atteindre la Formation de l'Âme.
 
 Son obsession pour l'alchimie ferait qu'il serait sans doute capable de comprendre les lois célestes et d'acquérir un domaine.
 
-Cependant, sa cultivation stagnait toujours au stade intermédiaire de l'Âme Naissante. S'il parvenait à atteindre le sommet du stade avancé, alors la Formation de l'Âme ne serait plus qu'une question de temps.
+Cependant, sa culture stagnait toujours au stade intermédiaire de l'Âme Naissante. S'il parvenait à atteindre le sommet du stade avancé, alors la Formation de l'Âme ne serait plus qu'une question de temps.
 
-Les jours passèrent lentement. En un clin d'œil, trois ans s'écoulèrent. Le raffinage d'Ouyang Zi se poursuivait. Il semblait buter sur une sorte de barrière, car son tempérament empirait ; on l'entendait parfois hurler de rage.
+Les jours passèrent lentement. En un clin d'œil, trois ans s'écoulèrent. Le raffinage d'Ouyang Zi se poursuivait. Il semblait buter sur une sorte de barrière, car son tempérament empirait; on l'entendait parfois hurler de rage.
 
 Depuis le retour de Wang Lin, il avait passé chaque seconde aux côtés de Li Muwan. Ses cheveux étaient désormais entièrement blancs. Si Wang Lin n'avait pas transféré d'énergie spirituelle en elle sans interruption durant ces trois dernières années, sa beauté aurait depuis longtemps été flétrie par les assauts du temps...
 

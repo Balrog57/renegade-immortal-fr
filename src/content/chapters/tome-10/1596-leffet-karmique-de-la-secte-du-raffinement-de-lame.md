@@ -8,11 +8,11 @@ slug: leffet-karmique-de-la-secte-du-raffinement-de-lame
 ---
 « Serait-il possible que ma Secte du Raffinement de l'Âme n'ait plus aucune chance de renaître, aucune chance de perdurer... » L'homme d'âge moyen sembla sombrer dans la folie et se mit à rire. Cependant, à cet instant précis, son expression changea et il fixa l'horizon.
 
-« Hein ! » Ses yeux se plissèrent et ses mains formèrent un sceau. Il commença à diviner avec frénésie.
+« Hein! » Ses yeux se plissèrent et ses mains formèrent un sceau. Il commença à diviner avec frénésie.
 
-« C'est... C'est... Ceci est... » L'expression de l'homme changeait à une vitesse fulgurante. Il consuma d'importantes quantités de force vitale et divina neuf fois, mais le résultat fut identique à chacune des neuf tentatives !
+« C'est... C'est... Ceci est... » L'expression de l'homme changeait à une vitesse fulgurante. Il consuma d'importantes quantités de force vitale et divina neuf fois, mais le résultat fut identique à chacune des neuf tentatives!
 
-C'était un résultat incroyable, voire absurde, pour lui !
+C'était un résultat incroyable, voire absurde, pour lui!
 
 Tandis qu'il réfléchissait, son corps vacilla et il disparut sans laisser de trace. Utilisant la téléportation, il se précipita vers le pays de Zhao.
 
@@ -28,15 +28,15 @@ Le ciel était d'une clarté absolue, sans l'ombre d'un nuage à l'horizon. La d
 
 Il semblait que l'été soit arrivé un peu plus tôt cette année, et que la saison des pluies fût partie prématurément.
 
-Big Fortune s'éveilla également. Il se frotta les yeux et regarda le ciel par la fenêtre. Il sourit immédiatement, pointa fièrement l'extérieur du doigt et commença à rugir :
+Big Fortune s'éveilla également. Il se frotta les yeux et regarda le ciel par la fenêtre. Il sourit immédiatement, pointa fièrement l'extérieur du doigt et commença à rugir:
 
-« J'ai fait un rêve la nuit dernière ! D'un simple geste de mon doigt, j'ai arrêté le tonnerre. Haha, voyez comme je suis puissant ! Hmph, hmph, il semble que je ne sois effectivement pas ordinaire. C'est dommage... »
+« J'ai fait un rêve la nuit dernière! D'un simple geste de mon doigt, j'ai arrêté le tonnerre. Haha, voyez comme je suis puissant! Hmph, hmph, il semble que je ne sois effectivement pas ordinaire. C'est dommage... »
 
 Les pensées de Wang Lin s'enfoncèrent dans son esprit à l'apparition du soleil. Il n'avait pas dormi de la nuit, mais il ne se sentait pas fatigué. Cependant, une douleur lancinante irradiait entre ses sourcils.
 
 Il se massa le front et regarda Big Fortune. En voyant le sourire de ce dernier, il se sentit heureux lui aussi.
 
-« Tu es puissant. C'est ton rêve qui a fait disparaître l'orage, d'accord ? »
+« Tu es puissant. C'est ton rêve qui a fait disparaître l'orage, d'accord? »
 
 Big Fortune devint tout excité et se sentit encore plus fier.
 
@@ -44,7 +44,7 @@ Le temps passa rapidement. L'examen impérial du comté devait se tenir dans cin
 
 Durant ces cinq jours, Wang Lin s'était rendu au bureau pour soumettre son inscription et connaître sa salle d'examen. En dehors de cela, il n'avait pas quitté son auberge, passant tout son temps à lire. Il était très nerveux car, s'il réussissait, il pourrait poursuivre son chemin, mais en cas d'échec, il devrait tout recommencer. Il devrait retourner au village et attendre silencieusement quelques années avant le prochain examen.
 
-Wang Lin ne voulait pas échouer ; il ne pouvait supporter l'idée de voir l'expression déçue de ses parents. Il ne voulait pas que son échec pousse ses proches à adresser à ses parents ces regards de fausse compassion qui n'étaient, en réalité, que des moqueries.
+Wang Lin ne voulait pas échouer; il ne pouvait supporter l'idée de voir l'expression déçue de ses parents. Il ne voulait pas que son échec pousse ses proches à adresser à ses parents ces regards de fausse compassion qui n'étaient, en réalité, que des moqueries.
 
 Big Fortune s'était ennuyé durant ces cinq jours. Très actif, il était sorti seul pendant que Wang Lin étudiait. Il avait erré dans la ville et avait progressivement fait des rencontres. Il avait même réussi à devenir encore plus avare.
 
@@ -58,7 +58,7 @@ Wang Lin prit plusieurs inspirations profondes pour se calmer lentement. Après 
 
 Deux fonctionnaires en robe surveillaient froidement les érudits. Leur présence imposait une atmosphère solennelle. Wang Lin resta calmement debout à observer la zone d'examen, retrouvant peu à peu son sang-froid.
 
-Big Fortune regardait partout, mais plus il observait, plus il devenait sombre de visage. Il vit que les autres jeunes érudits étaient bien plus jeunes que lui ; en comparaison, il semblait déplacé.
+Big Fortune regardait partout, mais plus il observait, plus il devenait sombre de visage. Il vit que les autres jeunes érudits étaient bien plus jeunes que lui; en comparaison, il semblait déplacé.
 
 Après avoir marmonné quelques mots, Big Fortune sortit des brioches et en prit de grandes bouchées.
 
@@ -66,7 +66,7 @@ Peu après, l'examen commença. Le son d'une cloche retentit au loin, résonnant
 
 Dès que la cloche sonna, tous les érudits ouvrirent les yeux, le visage sérieux. La tension revint instantanément.
 
-L'un des fonctionnaires roula des yeux et déclara d'une voix traînante : « Entrez dans la salle d'examen ! Si vous avez des notes sur vous, débarrassez-vous-en immédiatement. Ne vous faites pas prendre, sous peine de disqualification. »
+L'un des fonctionnaires roula des yeux et déclara d'une voix traînante: « Entrez dans la salle d'examen! Si vous avez des notes sur vous, débarrassez-vous-en immédiatement. Ne vous faites pas prendre, sous peine de disqualification. »
 
 Une fois les érudits entrés dans la salle, chacun fut fouillé. Après s'être assuré qu'aucune note n'était dissimulée, ils furent autorisés à s'installer.
 
@@ -84,11 +84,11 @@ Wang Lin prépara calmement son encre et contempla la feuille blanche devant lui
 
 Ceux qui méditaient comme Wang Lin rassemblèrent leurs pensées et se mirent à écrire. Bientôt, Wang Lin fut le seul à rester ainsi, plongé dans ses réflexions.
 
-Le sujet de l'examen portait sur une peinture. Le dessin était très simple : une montagne surmontée d'un arbre solitaire. On devinait le vent qui faisait trembler l'arbre.
+Le sujet de l'examen portait sur une peinture. Le dessin était très simple: une montagne surmontée d'un arbre solitaire. On devinait le vent qui faisait trembler l'arbre.
 
 Sous la montagne figuraient quelques esquisses. On aurait dit qu'une famille veillait sur la montagne.
 
-L'intention de cette peinture était limpide : elle signifiait essentiellement que la capacité est le pilier de tout. Tous les autres érudits l'avaient compris, et leurs essais tournaient tous autour de ce thème.
+L'intention de cette peinture était limpide: elle signifiait essentiellement que la capacité est le pilier de tout. Tous les autres érudits l'avaient compris, et leurs essais tournaient tous autour de ce thème.
 
 Cependant, lorsque Wang Lin vit la peinture, la voix d'il y a cinq jours réapparut dans son esprit.
 
@@ -106,17 +106,17 @@ Le soleil commença à décliner et la salle d'examen s'assombrit. Il ne restait
 
 Wang Lin ne leva pas les yeux mais ferma les paupières. Quelques instants plus tard, il les rouvrit et ajouta de l'eau à son encre. Ses yeux brillèrent d'un éclat vif et il commença à écrire frénétiquement sur le papier.
 
-« Qu'est-ce que le karma ? Je cherche une maison de bois, mais cette montagne est dépourvue de bois, alors je plante cet arbre solitaire. Au lever du soleil, j'en récolte les branches. À midi, j'en récolte le bois. Et au coucher du soleil, j'en récolte les racines... » Wang Lin semblait avoir oublié ce qui l'entourait, tandis qu'une voix antique résonnait en lui. La peinture s'imprégnait dans son esprit alors qu'il consignait ses pensées et ses interrogations.
+« Qu'est-ce que le karma? Je cherche une maison de bois, mais cette montagne est dépourvue de bois, alors je plante cet arbre solitaire. Au lever du soleil, j'en récolte les branches. À midi, j'en récolte le bois. Et au coucher du soleil, j'en récolte les racines... » Wang Lin semblait avoir oublié ce qui l'entourait, tandis qu'une voix antique résonnait en lui. La peinture s'imprégnait dans son esprit alors qu'il consignait ses pensées et ses interrogations.
 
-« Hein ? » L'examinateur debout à côté de Wang Lin jeta un œil sur la copie et fut stupéfait avant d'examiner le texte de plus près. Rapidement, d'autres examinateurs furent attirés et vinrent observer. Certains ricanèrent d'un coup d'œil avant de partir, mais bientôt, les autres examinateurs restants secouèrent la tête et s'éloignèrent, médusés.
+« Hein? » L'examinateur debout à côté de Wang Lin jeta un œil sur la copie et fut stupéfait avant d'examiner le texte de plus près. Rapidement, d'autres examinateurs furent attirés et vinrent observer. Certains ricanèrent d'un coup d'œil avant de partir, mais bientôt, les autres examinateurs restants secouèrent la tête et s'éloignèrent, médusés.
 
-« ... Qu'est-ce que le karma ? Planter l'arbre est la cause karmique, et récolter le bois est l'effet karmique... Le jour où la maison prend forme, elle devient également un cycle karmique... »
+«... Qu'est-ce que le karma? Planter l'arbre est la cause karmique, et récolter le bois est l'effet karmique... Le jour où la maison prend forme, elle devient également un cycle karmique... »
 
 Wang Lin posa sa plume et contempla sa copie avec profondeur. La lumière dans ses yeux s'estompa pour laisser place à la confusion. Il soupira et salua d'un geste respectueux le dernier examinateur âgé. Puis il rangea ses affaires et quitta la zone d'examen.
 
 Après son départ, le vieil examinateur ramassa la feuille de Wang Lin et la relut attentivement. Il sembla entrer en transe, comme s'il atteignait une forme d'illumination. Il mémorisa le nom de Wang Lin inscrit sur la copie.
 
-« Une telle compréhension du karma peut-elle émaner d'un adolescent ? Cet homme ne deviendra peut-être pas un pilier de l'administration, mais il sera un grand érudit ! » Le vieil examinateur resta pensif un long moment avant d'entourer le nom de Wang Lin.
+« Une telle compréhension du karma peut-elle émaner d'un adolescent? Cet homme ne deviendra peut-être pas un pilier de l'administration, mais il sera un grand érudit! » Le vieil examinateur resta pensif un long moment avant d'entourer le nom de Wang Lin.
 
 Wang Lin sortit de la zone d'examen. Il aperçut Big Fortune qui, après avoir attendu toute la journée, s'était endormi contre un arbre. Il sourit et s'apprêtait à le réveiller quand soudain, le monde s'obscurcit. Un hurlement fantomatique retentit, et les ténèbres enveloppèrent Wang Lin et Big Fortune, semblant les isoler du reste de la ville.
 
@@ -124,4 +124,4 @@ Un homme d'âge moyen vêtu d'une robe noire émergea du vent noir. Une aura gla
 
 « Ce vieil homme ne te fera aucun mal, tu as seulement une question à répondre. »
 
-Il était le frère aîné de Dun Tian, de la Secte du Raffinement de l'Âme ! Presque tous les érudits de ce pays avaient été trouvés par lui, et il leur avait posé la même question. Puis, déçu, il effaçait leurs souvenirs avant de partir en quête de la proie suivante.
+Il était le frère aîné de Dun Tian, de la Secte du Raffinement de l'Âme! Presque tous les érudits de ce pays avaient été trouvés par lui, et il leur avait posé la même question. Puis, déçu, il effaçait leurs souvenirs avant de partir en quête de la proie suivante.

@@ -18,7 +18,7 @@ Le Royaume Céleste ressemblait à un miroir fracassé. Maintenant que toute l'�
 
 Alors que le corps de Wang Lin descendait à toute vitesse, les fragments semblaient devenir de plus en plus grands. Bientôt, il put constater qu'il atterrissait sur un fragment situé près de la bordure.
 
-Dès son arrivée, il frappa rapidement sa sacoche de rangement et une cloche de laiton apparut dans sa main. C'était l'un des trois trésors des anciens cultivateurs qu'il avait réussi à raffiner ; ce trésor possédait la capacité de changer de taille pour piéger ses ennemis.
+Dès son arrivée, il frappa rapidement sa sacoche de rangement et une cloche de laiton apparut dans sa main. C'était l'un des trois trésors des anciens cultivateurs qu'il avait réussi à raffiner; ce trésor possédait la capacité de changer de taille pour piéger ses ennemis.
 
 Une fois au sol, Wang Lin regarda autour de lui et fut frappé de stupeur.
 
@@ -30,7 +30,7 @@ Le sol était jonché de nombreux gouffres sans fond. Certains crachaient même 
 
 C'était un monde mort.
 
-Wang Lin réfléchit un instant et murmura : « Ceci... est le Royaume Céleste ? »
+Wang Lin réfléchit un instant et murmura: « Ceci... est le Royaume Céleste? »
 
 Bien qu'il fût conscient que le Royaume Céleste avait été détruit, même en étant debout ici, Wang Lin ne pouvait s'en remettre. Dans les temps anciens, lorsque l'on atteignait le stade de la Formation de l'Âme, on entendait l'appel du Royaume Céleste. Pour les cultivateurs, ce lieu était une terre sacrée.
 
@@ -52,7 +52,7 @@ Cependant, après toutes ces années, ces pierres spirituelles avaient perdu tou
 
 Wang Lin laissa échapper un soupir. « Alors, c'est donc cela, le Royaume Céleste... »
 
-Tout en errant parmi les ruines, Wang Lin ne put s'empêcher de sombrer dans ses pensées. Cette zone ne contenait aucune de l'énergie céleste qu'il recherchait ; il n'y avait là que de la mélancolie.
+Tout en errant parmi les ruines, Wang Lin ne put s'empêcher de sombrer dans ses pensées. Cette zone ne contenait aucune de l'énergie céleste qu'il recherchait; il n'y avait là que de la mélancolie.
 
 Au centre du palais, Wang Lin s'arrêta, terrifié par la scène qui s'offrait à lui. La zone était complètement enfoncée vers l'intérieur. En observant attentivement, il vit qu'il s'agissait d'une empreinte de main.
 
@@ -60,7 +60,7 @@ Wang Lin fut stupéfait. À la vue de cette trace, il pensa immédiatement à ce
 
 La puissance d'une seule empreinte de main avait suffi à dévaster une zone aussi vaste. Wang Lin pensait pouvoir accomplir un tel exploit sur Suzaku, mais nous parlions ici du Royaume Céleste.
 
-Tout dans le Royaume Céleste était bien plus résistant qu'ailleurs, et ce lieu avait été peuplé de cultivateurs au stade de la Formation de l'Âme ou au-delà, ayant pratiqué la cultivation de l'énergie spirituelle céleste. Si l'on prenait tout cela en compte, cette empreinte était absolument terrifiante.
+Tout dans le Royaume Céleste était bien plus résistant qu'ailleurs, et ce lieu avait été peuplé de cultivateurs au stade de la Formation de l'Âme ou au-delà, ayant pratiqué la culture de l'énergie spirituelle céleste. Si l'on prenait tout cela en compte, cette empreinte était absolument terrifiante.
 
 Wang Lin s'accroupit près de l'empreinte et la toucha du doigt. Soudain, une puissante aura de mort s'en échappa pour pénétrer son corps par son bras.
 
@@ -74,13 +74,13 @@ Après plusieurs jours de marche, il tomba sur une stèle de pierre brisée sur 
 
 « Offert par le cinquième Empereur Céleste Rain à l'Érudit Céleste Tian Hua... »
 
-La stèle indiquait approximativement que l'Érudit Céleste Tian Hua avait accompli un exploit grandiose, et que l'empereur céleste lui avait offert ces palais en guise de récompense. Les palais avaient été bâtis selon une formation capable d'attirer l'énergie spirituelle céleste sur un rayon de 100 000 kilomètres, rendant la cultivation plusieurs fois plus efficace.
+La stèle indiquait approximativement que l'Érudit Céleste Tian Hua avait accompli un exploit grandiose, et que l'empereur céleste lui avait offert ces palais en guise de récompense. Les palais avaient été bâtis selon une formation capable d'attirer l'énergie spirituelle céleste sur un rayon de 50000 kilomètres, rendant la culture plusieurs fois plus efficace.
 
-Une fois sa lecture terminée, Wang Lin fut à nouveau ébranlé. Bien qu'il ignorât le rang exact d'un Érudit Céleste, celui-ci était certainement inférieur à celui d'un Empereur Céleste. Si un simple Érudit pouvait posséder un tel palais, à quoi ressemblait celui de l'Empereur ?
+Une fois sa lecture terminée, Wang Lin fut à nouveau ébranlé. Bien qu'il ignorât le rang exact d'un Érudit Céleste, celui-ci était certainement inférieur à celui d'un Empereur Céleste. Si un simple Érudit pouvait posséder un tel palais, à quoi ressemblait celui de l'Empereur?
 
 Alors qu'il s'apprêtait à repartir, son regard s'illumina. Il se retourna brusquement pour fixer la stèle. Celle-ci semblait tout à fait ordinaire, sans rien d'extraordinaire.
 
-Pourtant, le regard de Wang Lin scruta chaque mot avec attention. Pourquoi l'Érudit Céleste Tian Hua avait-il voulu que son palais soit construit ici ? De plus, cette stèle était un décret qui aurait dû être placé à l'extérieur pour l'usage de tous ; pourquoi se trouvait-elle ici ?
+Pourtant, le regard de Wang Lin scruta chaque mot avec attention. Pourquoi l'Érudit Céleste Tian Hua avait-il voulu que son palais soit construit ici? De plus, cette stèle était un décret qui aurait dû être placé à l'extérieur pour l'usage de tous; pourquoi se trouvait-elle ici?
 
 Cette zone appartenait à la partie intérieure du palais. La présence d'une telle stèle à cet endroit paraissait suspecte.
 

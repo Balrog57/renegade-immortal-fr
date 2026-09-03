@@ -20,7 +20,7 @@ Tout cela se produisit en un instant. Le cultivateur aux six doigts fut tué par
 
 Le visage de Wang Lin était légèrement pâle. Le troisième œil entre ses sourcils se referma progressivement et la ligne rouge disparut lentement. Il se retourna ensuite et fixa Nangong Han, qui apparaissait à cent pieds de là.
 
-« Tu veux aussi te mesurer à moi ? »
+« Tu veux aussi te mesurer à moi? »
 
 L'expression de Nangong Han était sérieuse tandis qu'il observait attentivement Wang Lin. Un instant plus tard, il rit et secoua la tête. « Je ne peux pas te vaincre. Je suis venu car je voulais t'aider à régler ton compte avec celui qui a tenté l'attaque surprise. »
 
@@ -36,7 +36,7 @@ Le corps de Wang Lin vacilla et il atterrit au sol. Nangong Han toucha terre pre
 
 Les 108 cultivateurs sur la place s'étaient tous réveillés. L'expression de Xu Ting était extrêmement sombre alors qu'il fixait silencieusement Wang Lin. Le cultivateur aux six doigts, lui aussi, lançait un regard malicieux vers Wang Lin.
 
-Maître Flamespark affichait un sourire alors qu'il se redressait et déclarait d'une voix lente : « Mon Temple Céleste du Tonnerre octroie 108 titres célestes ! » Sur ces mots, sa main droite s'élança vers le vide. Le chant du Royaume Céleste du Tonnerre commença soudainement à résonner.
+Maître Flamespark affichait un sourire alors qu'il se redressait et déclarait d'une voix lente: « Mon Temple Céleste du Tonnerre octroie 108 titres célestes! » Sur ces mots, sa main droite s'élança vers le vide. Le chant du Royaume Céleste du Tonnerre commença soudainement à résonner.
 
 Ce chant était d'une beauté sublime, comme s'il s'agissait de la mélodie des cieux eux-mêmes.
 
@@ -46,80 +46,73 @@ Si l'on regardait de loin, combiné au Temple Céleste du Tonnerre, ce lieu ne d
 
 Les cultivateurs environnants se levèrent, accompagnés des ancêtres de leurs clans. Tous affichaient des expressions respectueuses, formant une foule compacte. Non seulement eux, mais même les vieux monstres sur les tapis de prière se redressèrent, le visage grave. À l'autre extrémité, les messagers du Temple Céleste du Tonnerre se tenaient là, empreints de solennité.
 
-À cet instant, ce n'était pas seulement au Temple Céleste du Tonnerre que ce spectacle était offert. Le temple avait utilisé une méthode spéciale pour transmettre cette scène à l'ensemble du Système Stellaire d'Allheaven. Les cultivateurs de chaque famille sur chaque planète de cultivation possédaient une pierre de transmission sonore du Temple Céleste du Tonnerre.
+À cet instant, ce n'était pas seulement au Temple Céleste du Tonnerre que ce spectacle était offert. Le temple avait utilisé une méthode spéciale pour transmettre cette scène à l'ensemble du Système Stellaire d'Allheaven. Les cultivateurs de chaque famille sur chaque planète de culture possédaient une pierre de transmission sonore du Temple Céleste du Tonnerre.
 
-Ces pierres ne permettaient pas seulement de transmettre le son, elles pouvaient aussi projeter les images de ce qui se déroulait. Elles avaient été distribuées gratuitement par le temple ; outre leur usage pour le don céleste, elles serviraient également à la mobilisation pour la guerre contre le Système Stellaire de l'Alliance.
+Ces pierres ne permettaient pas seulement de transmettre le son, elles pouvaient aussi projeter les images de ce qui se déroulait. Elles avaient été distribuées gratuitement par le temple; outre leur usage pour le don céleste, elles serviraient également à la mobilisation pour la guerre contre le Système Stellaire de l'Alliance.
 
 Ainsi, presque tous les cultivateurs assistaient à la cérémonie du don céleste à travers les images projetées par leurs pierres de transmission.
 
 Le Temple Céleste du Tonnerre étant situé au centre du Système Stellaire d'Allheaven, une aura meurtrière commença à émaner des quatre domaines qui l'entouraient.
 
-À l'est, les cultivateurs commençaient à se rassembler en une foule dense d'au moins 10 000 personnes ! Ils portaient tous des vêtements distincts, prouvant qu'ils appartenaient à différentes familles de cultivation. Tous regardaient silencieusement devant eux. Un homme couvert d'une armure rouge se tenait face à eux, ses cheveux blancs flottant dans son dos et le visage impassible, tenant la pierre de transmission sonore qui relayait la scène du temple.
+À l'est, les cultivateurs commençaient à se rassembler en une foule dense d'au moins 10 000 personnes! Ils portaient tous des vêtements distincts, prouvant qu'ils appartenaient à différentes familles de culture. Tous regardaient silencieusement devant eux. Un homme couvert d'une armure rouge se tenait face à eux, ses cheveux blancs flottant dans son dos et le visage impassible, tenant la pierre de transmission sonore qui relayait la scène du temple.
 
-Le sud était identique : 10 000 cultivateurs étaient assis dans l'espace, menés par un vieillard, les yeux rivés sur les étoiles. Les secteurs ouest et nord comptaient également des armées de cultivateurs similaires. À cet instant, le don céleste au Temple Céleste du Tonnerre était observé par tous !
+Le sud était identique: 10 000 cultivateurs étaient assis dans l'espace, menés par un vieillard, les yeux rivés sur les étoiles. Les secteurs ouest et nord comptaient également des armées de cultivateurs similaires. À cet instant, le don céleste au Temple Céleste du Tonnerre était observé par tous!
 
-Dans le temple, une grue survola la scène avec un parchemin jaune dans le bec. Elle tourna autour de Maître Flamespark avant de lâcher le précieux rouleau que celui-ci rattrapa. Il l'agita et le parchemin s'ouvrit devant lui, dégageant une riche énergie spirituelle céleste. C'était manifestement un trésor céleste !
+Dans le temple, une grue survola la scène avec un parchemin jaune dans le bec. Elle tourna autour de Maître Flamespark avant de lâcher le précieux rouleau que celui-ci rattrapa. Il l'agita et le parchemin s'ouvrit devant lui, dégageant une riche énergie spirituelle céleste. C'était manifestement un trésor céleste!
 
-« Il reste un total de 110 candidats. À l'origine, deux d'entre vous devaient être disqualifiés, mais après cette épreuve ardue, les cieux vous accordent à tous une chance. Les deux plus puissants deviendront le Céleste du Tonnerre et le Vice-Céleste du Tonnerre. Les 108 restants seront répartis en 36 Célestes de Ciel et 72 Célestes de Terre ! »
+« Il reste un total de 110 candidats. À l'origine, deux d'entre vous devaient être disqualifiés, mais après cette épreuve ardue, les cieux vous accordent à tous une chance. Les deux plus puissants deviendront le Céleste du Tonnerre et le Vice-Céleste du Tonnerre. Les 108 restants seront répartis en 36 Célestes de Ciel et 72 Célestes de Terre! »
 
-Maître Flamespark marqua une pause. Son regard balaya les cultivateurs devant lui avant qu'il ne s'écrie : « Xu Mu, avance ! »
+Maître Flamespark marqua une pause. Son regard balaya les cultivateurs devant lui avant qu'il ne s'écrie: « Xu Mu, avance! »
 
-Les yeux de Wang Lin se plissèrent. Il s'envola alors et joignit les mains. « Présent ! »
+Les yeux de Wang Lin se plissèrent. Il s'envola alors et joignit les mains. « Présent! »
 
-L'expression de Maître Flamespark se fit solennelle : « Tu as été classé premier lors des épreuves humaines, terrestres et célestes, ainsi que sur la ligne vers le ciel. Xu Mu, je te confère le titre de Céleste du Tonnerre ! Tu dirigeras une armée de 3 000 hommes en tant qu'avant-garde lors de l'attaque du Système Stellaire de l'Alliance ! »
+L'expression de Maître Flamespark se fit solennelle: « Tu as été classé premier lors des épreuves humaines, terrestres et célestes, ainsi que sur la ligne vers le ciel. Xu Mu, je te confère le titre de Céleste du Tonnerre! Tu dirigeras une armée de 3 000 hommes en tant qu'avant-garde lors de l'attaque du Système Stellaire de l'Alliance! »
 
-Tandis qu'il parlait, sa main droite plongea dans le vide et un pinceau céleste doré apparut. D'un geste assuré, il écrivit la première ligne sur le parchemin jaune :
+Tandis qu'il parlait, sa main droite plongea dans le vide et un pinceau céleste doré apparut. D'un geste assuré, il écrivit la première ligne sur le parchemin jaune:
 
-« Vrai Céleste du Tonnerre : Xu Mu »
+« Vrai Céleste du Tonnerre: Xu Mu »
 
-À peine eut-il achevé ces mots qu'un éclat d'or jaillit et qu'un rugissement retentit de l'intérieur du rouleau. Les caractères s'envolèrent du parchemin et se fusionnèrent pour former un tigre de tonnerre !
+À peine eut-il achevé ces mots qu'un éclat d'or jaillit et qu'un rugissement retentit de l'intérieur du rouleau. Les caractères s'envolèrent du parchemin et se fusionnèrent pour former un tigre de tonnerre!
 
-Ce tigre mesurait cent pieds de haut. À son apparition, il poussa un rugissement et chargea vers Wang Lin, avant de s'arrêter à dix pieds de lui et de se rétracter jusqu'à devenir un drapeau de trois pouces de haut. L'image du tigre scintillait sur le tissu !
+Ce tigre mesurait cent pieds de haut. À son apparition, il poussa un rugissement et chargea vers Wang Lin, avant de s'arrêter à dix pieds de lui et de se rétracter jusqu'à devenir un drapeau de trois pouces de haut. L'image du tigre scintillait sur le tissu!
 
-« Je te donne pour trésor céleste le Drapeau du Tigre Céleste. Par lui, tu pourras commander 3 000 cultivateurs du Système Stellaire d'Allheaven et constituer ta propre force ! » Les paroles de Maître Flamespark tonnèrent dans toutes les directions.
+« Je te donne pour trésor céleste le Drapeau du Tigre Céleste. Par lui, tu pourras commander 3 000 cultivateurs du Système Stellaire d'Allheaven et constituer ta propre force! » Les paroles de Maître Flamespark tonnèrent dans toutes les directions.
 
-Wang Lin saisit le Drapeau du Tigre Céleste. Il prit une profonde inspiration et joignit les mains. « Ordre reçu ! »
+Wang Lin saisit le Drapeau du Tigre Céleste. Il prit une profonde inspiration et joignit les mains. « Ordre reçu! »
 
-À cet instant, l'apparence de Wang Lin fut révélée à tous les cultivateurs du Système Stellaire d'Allheaven. Un véritable séisme secoua le système !
+À cet instant, l'apparence de Wang Lin fut révélée à tous les cultivateurs du Système Stellaire d'Allheaven. Un véritable séisme secoua le système!
 
-« C'est lui, Xu Mu ! »
+« C'est lui, Xu Mu! »
+« Maître Démon Xu Mu, le Céleste du Tonnerre! »
+« Cet homme a surpassé les 108 célestes. Sa culture doit être prodigieuse, ce n'est pas un individu avec lequel on joue! »
 
-« Maître Démon Xu Mu, le Céleste du Tonnerre ! »
+Sur la planète Ran Yun, une belle femme leva les yeux vers la cérémonie céleste qui s'affichait dans le ciel. Au départ, elle n'y prêtait aucune attention et s'apprêtait à détourner le regard. Mais soudain, elle fut saisie de stupeur! En posant les yeux sur Wang Lin, elle tomba en transe. Cet homme lui était si familier, comme si elle l'avait déjà aperçu quelque part.
 
-« Cet homme a surpassé les 108 célestes. Sa cultivation doit être prodigieuse, ce n'est pas un individu avec lequel on joue ! »
+Non seulement elle, mais tous les cultivateurs de la planète Ran Yun fixaient le ciel. Des vagues de trouble s'emparèrent de leurs cœurs en voyant Wang Lin; ils ne parvinrent pas à retrouver leur calme pendant longtemps.
 
-Sur la planète Ran Yun, une belle femme leva les yeux vers la cérémonie céleste qui s'affichait dans le ciel. Au départ, elle n'y prêtait aucune attention et s'apprêtait à détourner le regard. Mais soudain, elle fut saisie de stupeur ! En posant les yeux sur Wang Lin, elle tomba en transe. Cet homme lui était si familier, comme si elle l'avait déjà aperçu quelque part.
+Sur la planète Qing Ling, de nombreux cultivateurs levèrent les yeux vers le ciel, tandis que tous les anciens des grandes familles s'exclamaient:
+« Ancêtre! »
 
-Non seulement elle, mais tous les cultivateurs de la planète Ran Yun fixaient le ciel. Des vagues de trouble s'emparèrent de leurs cœurs en voyant Wang Lin ; ils ne parvinrent pas à retrouver leur calme pendant longtemps.
+Au sommet du Pic Heng Yun, Xie Qing sortit de sa transe. Il regarda le ciel et ses yeux brillèrent d'excitation. Il murmura: « Maître! »
 
-Sur la planète Qing Ling, de nombreux cultivateurs levèrent les yeux vers le ciel, tandis que tous les anciens des grandes familles s'exclamaient :
-
-« Ancêtre ! »
-
-Au sommet du Pic Heng Yun, Xie Qing sortit de sa transe. Il regarda le ciel et ses yeux brillèrent d'excitation. Il murmura : « Maître ! »
-
-Sur une planète de cultivation reculée, Yao Bingyun était assise sur le plus haut iceberg. Elle leva la tête vers les cieux, son regard trahissant une émotion complexe.
-
+Sur une planète de culture reculée, Yao Bingyun était assise sur le plus haut iceberg. Elle leva la tête vers les cieux, son regard trahissant une émotion complexe.
 « Je ne m'attendais pas à ce qu'il devienne le Céleste du Tonnerre... »
 
-Dans le Domaine Nord, sur une planète de cultivation presque dévastée où une odeur fétide régnait depuis des années sans que personne n'en trouve la source, Greed leva les yeux vers le ciel avec un regard malveillant.
-
-« Il a donc atteint une telle renommée dans le Système Stellaire d'Allheaven ! »
+Dans le Domaine Nord, sur une planète de culture presque dévastée où une odeur fétide régnait depuis des années sans que personne n'en trouve la source, Greed leva les yeux vers le ciel avec un regard malveillant.
+« Il a donc atteint une telle renommée dans le Système Stellaire d'Allheaven! »
 
 À cet instant, tous les cultivateurs du Système Stellaire d'Allheaven qui connaissaient Wang Lin levèrent les yeux au ciel, la stupéfaction se lisant sur leurs visages.
 
-Dans le Temple Céleste du Tonnerre, Maître Flamespark cria : « Xu Ting, avance ! »
-
+Dans le Temple Céleste du Tonnerre, Maître Flamespark cria: « Xu Ting, avance! »
 Xu Ting prit une grande inspiration, s'avança rapidement et se tint là, respectueusement.
+« Je te confère le titre de Vice-Céleste du Tonnerre et une armée de 2 000 cultivateurs. Tu seras la seconde avant-garde! »
 
-« Je te confère le titre de Vice-Céleste du Tonnerre et une armée de 2 000 cultivateurs. Tu seras la seconde avant-garde ! »
+Bien que Xu Ting fût réticent au fond de lui, il n'eut d'autre choix que de se soumettre. Après un instant de réflexion, il déclara respectueusement: « Ordre reçu! »
 
-Bien que Xu Ting fût réticent au fond de lui, il n'eut d'autre choix que de se soumettre. Après un instant de réflexion, il déclara respectueusement : « Ordre reçu ! »
+Par la suite, Maître Flamespark continua l'appel. Les 108 titres célestes furent tous attribués avec succès! Chaque cultivateur reçut un drapeau et devint un être céleste!
 
-Par la suite, Maître Flamespark continua l'appel. Les 108 titres célestes furent tous attribués avec succès ! Chaque cultivateur reçut un drapeau et devint un être céleste !
+« Céleste du Tonnerre, Vice-Céleste du Tonnerre, les 36 Célestes de Ciel et les 72 Célestes de Terre, entrez dans le bassin céleste! » Maître Flamespark agita ses manches et le parchemin jaune disparut. Les nuages se mirent à tourbillonner et à se condenser pour former un bassin qui descendit lentement du ciel.
 
-« Céleste du Tonnerre, Vice-Céleste du Tonnerre, les 36 Célestes de Ciel et les 72 Célestes de Terre, entrez dans le bassin céleste ! » Maître Flamespark agita ses manches et le parchemin jaune disparut. Les nuages se mirent à tourbillonner et à se condenser pour former un bassin qui descendit lentement du ciel.
+L'eau bleue à l'intérieur du bassin dégageait une aura capable de bouleverser l'esprit!
 
-L'eau bleue à l'intérieur du bassin dégageait une aura capable de bouleverser l'esprit !
-
-« Entrez dans le bassin céleste pour permettre la fusion de votre domaine et la formation de votre origine céleste. Vous deviendrez alors de véritables êtres célestes ! » La voix de Maître Flamespark résonna à travers les cieux et la terre.
+« Entrez dans le bassin céleste pour permettre la fusion de votre domaine et la formation de votre origine céleste. Vous deviendrez alors de véritables êtres célestes! » La voix de Maître Flamespark résonna à travers les cieux et la terre.

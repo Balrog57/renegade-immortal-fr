@@ -24,11 +24,11 @@ Le choc fut brutal. La bête moustique bleue, manifestement de trop faible calib
 
 Tout cela se produisit en un éclair, d'une rapidité dépassant l'imagination. En un instant, les quatre bêtes moustiques bleues périrent l'une après l'autre, ne laissant que le roi moustique bourdonner dans les airs, fixant froidement les centaines de bêtes bleues qui l'attendaient.
 
-Song Luohai se cachait sous une pierre au pied de la montagne, dissimulant son aura. Il était un Ancien du Secte de l'Âme Silencieuse. Plutôt que de participer à la compétition des sectes de rang 8, il s'était tapi ici.
+Song Luohai se cachait sous une pierre au pied de la montagne, dissimulant son aura. Il était un Ancien de la Secte de l'Âme Silencieuse. Plutôt que de participer à la compétition des sectes de rang 8, il s'était tapi ici.
 
 Cela faisait trois mois qu'il était là, progressant avec prudence. Son objectif était le roi de cet essaim de moustiques.
 
-Song Luohai pensait bien connaître ces bêtes. Son but était de capturer un roi moustique afin de vérifier ses spéculations. Cependant, la capture d'un tel spécimen était une tâche si périlleuse qu'elle en devenait presque impossible. D'abord, il était extrêmement difficile de franchir tous les moustiques pour atteindre le roi ; et même s'il y parvenait, s'il ne réussissait pas sa capture du premier coup, la moindre erreur alerterait le reste de l'essaim. À ce moment-là, il n'était pas certain de pouvoir s'échapper vivant.
+Song Luohai pensait bien connaître ces bêtes. Son but était de capturer un roi moustique afin de vérifier ses spéculations. Cependant, la capture d'un tel spécimen était une tâche si périlleuse qu'elle en devenait presque impossible. D'abord, il était extrêmement difficile de franchir tous les moustiques pour atteindre le roi; et même s'il y parvenait, s'il ne réussissait pas sa capture du premier coup, la moindre erreur alerterait le reste de l'essaim. À ce moment-là, il n'était pas certain de pouvoir s'échapper vivant.
 
 Trois mois auparavant, Song Luohai avait repéré cet essaim et était convaincu qu'un roi moustique s'y trouvait. Il avait donc passé trois mois à se faufiler ici sans perturber les moustiques rouges ou bleus.
 
@@ -40,15 +40,15 @@ Même la région de rang 9 lui accorderait des faveurs. Tous ces avantages étai
 
 Song Luohai avait le sentiment que ces deux créatures avaient vaguement perçu son existence sans pour autant découvrir sa cachette, ce qui les avait empêchées de bouger. Mais au moindre mouvement de sa part, elles le détecteraient instantanément.
 
-Le cœur de Song Luohai était lourd d'amertume depuis quinze jours. Il était extrêmement tendu et n'osait plus bouger. Bien qu'il fût un Ancien du Secte de l'Âme Silencieuse, il se situait en bas de la hiérarchie, étant seulement au stade intermédiaire du Nirvana Shatterer.
+Le cœur de Song Luohai était lourd d'amertume depuis quinze jours. Il était extrêmement tendu et n'osait plus bouger. Bien qu'il fût un Ancien de la Secte de l'Âme Silencieuse, il se situait en bas de la hiérarchie, étant seulement au stade intermédiaire du Nirvana Shatterer.
 
-Alors que Song Luohai commençait à désespérer, il vit une bête moustique bleue passer à toute allure. Au départ, cela ne l'intéressait guère ; il n'avait pas de temps à perdre avec ce qui ne concernait pas sa propre survie.
+Alors que Song Luohai commençait à désespérer, il vit une bête moustique bleue passer à toute allure. Au départ, cela ne l'intéressait guère; il n'avait pas de temps à perdre avec ce qui ne concernait pas sa propre survie.
 
 Cependant, ce qui suivit le frappa de stupeur.
 
 Il vit de ses propres yeux cette unique bête moustique bleue aspirer instantanément l'essence de quatre autres spécimens de même rang. Elle était d'une férocité extrême, comme si elle cherchait à les défier.
 
-Cette découverte fit trembler l'esprit de Song Luohai ; au même moment, il sentit vaguement que sa chance tournait enfin...
+Cette découverte fit trembler l'esprit de Song Luohai; au même moment, il sentit vaguement que sa chance tournait enfin...
 
 Le rugissement du roi moustique résonna dans le monde entier. Simultanément, l'une des deux bêtes blanches fixa froidement le roi moustique. En un éclair, un rayon de lumière blanche fendit la nuée de moustiques bleus. Ces derniers s'écartèrent tandis que la bête blanche chargeait directement le roi moustique.
 
@@ -74,24 +74,24 @@ Le roi moustique était lui aussi dans un état lamentable et semblait quelque p
 
 La bête blanche poussa un rugissement. Tous les poils de son corps se redressèrent avant de se détacher et de tourbillonner autour d'elle comme des épées volantes. Tel un sortilège puissant, tous ces poils furent projetés vers le roi moustique.
 
-Alors que le roi moustique avançait, loin de ralentir, il accéléra encore davantage. Le roi moustique de Wang Lin était encore en phase de croissance et n'avait pas connu de nombreux combats contre ses semblables, mais il apprenait vite. Au moment où il chargea, tous ses poils crochus se mirent à briller d'une lueur bleue. En un instant, ils s'allongèrent jusqu'à atteindre des dizaines de pieds. Il imita la technique de la bête blanche : tous ses poils se détachèrent et furent projetés en avant.
+Alors que le roi moustique avançait, loin de ralentir, il accéléra encore davantage. Le roi moustique de Wang Lin était encore en phase de croissance et n'avait pas connu de nombreux combats contre ses semblables, mais il apprenait vite. Au moment où il chargea, tous ses poils crochus se mirent à briller d'une lueur bleue. En un instant, ils s'allongèrent jusqu'à atteindre des dizaines de pieds. Il imita la technique de la bête blanche: tous ses poils se détachèrent et furent projetés en avant.
 
 Un fracas assourdissant retentit lorsque les deux pluies de poils se rencontrèrent dans une série d'explosions soniques. L'impact colossal força toutes les bêtes moustiques environnantes à reculer.
 
-Le roi moustique devint encore plus féroce ; il traversa la tempête de poils pour charger la bête blanche. Comme s'il avait perdu la raison, il percuta violemment l'adversaire, sa trompe cherchant sans relâche une faille pour transpercer le corps de la bête blanche.
+Le roi moustique devint encore plus féroce; il traversa la tempête de poils pour charger la bête blanche. Comme s'il avait perdu la raison, il percuta violemment l'adversaire, sa trompe cherchant sans relâche une faille pour transpercer le corps de la bête blanche.
 
-La bête blanche reculait avec angoisse, mais à cet instant précis, une aura d'une puissance inouïe émana de la montagne. Cette aura exerçait une pression à laquelle toutes les bêtes moustiques étaient contraintes de se soumettre !
+La bête blanche reculait avec angoisse, mais à cet instant précis, une aura d'une puissance inouïe émana de la montagne. Cette aura exerçait une pression à laquelle toutes les bêtes moustiques étaient contraintes de se soumettre!
 
 Dès l'apparition de cette aura, l'autre bête blanche s'envola et poussa un rugissement. Une immense fissure apparut au sommet de la montagne, s'étendant jusqu'à sa base, comme si une main invisible venait de déchirer la roche.
 
 Un rayon de lumière pourpre jaillit de cette faille. Simultanément, une aura antique se propagea et une brume pourpre s'en échappa.
 
-Cette brume était dense et se retira rapidement. De l'intérieur du brouillard, une bête moustique d'apparence féroce, mesurant près de mille pieds, s'élança dans les airs !
+Cette brume était dense et se retira rapidement. De l'intérieur du brouillard, une bête moustique d'apparence féroce, mesurant près de mille pieds, s'élança dans les airs!
 
 Cette créature était couverte de poils pourpres. Bien qu'ils fussent tombants et d'apparence désordonnée, dès son apparition, toutes les autres bêtes moustiques, rouges comme bleues, se turent instantanément.
 
 Les pupilles de Song Luohai se rétractèrent alors qu'il fixait la bête pourpre aux poils ébouriffés. Une lueur d'avidité brilla dans ses yeux.
 
-« Un roi moustique ! »
+« Un roi moustique! »
 
-Le regard indifférent de ce roi moustique pourpre se posa nonchalamment sur la cachette de Song Luohai, avant de se fixer sur le moustique de Wang Lin. Après un long silence, il laissa échapper un faible sifflement !
+Le regard indifférent de ce roi moustique pourpre se posa nonchalamment sur la cachette de Song Luohai, avant de se fixer sur le moustique de Wang Lin. Après un long silence, il laissa échapper un faible sifflement!

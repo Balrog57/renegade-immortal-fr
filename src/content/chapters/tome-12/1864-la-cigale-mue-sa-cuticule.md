@@ -10,23 +10,23 @@ slug: la-cigale-mue-sa-cuticule
 
 Elle vit le point représentant Wang Lin disparaître, puis réapparaître au loin. Elle informa immédiatement les cultivateurs qui le poursuivaient.
 
-À cet instant, le même phénomène se produisit une nouvelle fois. Cela donna à la femme un mauvais pressentiment. Une fois était acceptable, mais deux fois signifiaient qu'une troisième ou quatrième occurrence était possible. Cela rendrait l'élimination de Wang Lin extrêmement difficile !
+À cet instant, le même phénomène se produisit une nouvelle fois. Cela donna à la femme un mauvais pressentiment. Une fois était acceptable, mais deux fois signifiaient qu'une troisième ou quatrième occurrence était possible. Cela rendrait l'élimination de Wang Lin extrêmement difficile!
 
-« Il doit posséder un trésor lui permettant de se téléporter. Notre secte n'en possède qu'un seul, et il n'y en a pas plus de trois dans le Continent du Démon Vert. Même sur le Continent du Taureau Céleste, ils ne peuvent en avoir beaucoup. Mais cet homme en possède un ! »
+« Il doit posséder un trésor lui permettant de se téléporter. Notre secte n'en possède qu'un seul, et il n'y en a pas plus de trois dans le Continent du Démon Vert. Même sur le Continent du Taureau Céleste, ils ne peuvent en avoir beaucoup. Mais cet homme en possède un! »
 
-Sous son regard, elle fut terrifiée de voir la lumière représentant Wang Lin apparaître au milieu d'un groupe de points verts, avant de disparaître instantanément. Peu après, Wang Lin disparut à nouveau pour réapparaître près d'un autre groupe de points verts, très loin !
+Sous son regard, elle fut terrifiée de voir la lumière représentant Wang Lin apparaître au milieu d'un groupe de points verts, avant de disparaître instantanément. Peu après, Wang Lin disparut à nouveau pour réapparaître près d'un autre groupe de points verts, très loin!
 
-« La troisième fois !! » La femme n'hésita pas une seconde et informa tous les cultivateurs de la Tribulation du Vide.
+« La troisième fois!! » La femme n'hésita pas une seconde et informa tous les cultivateurs de la Tribulation du Vide.
 
 À ce moment précis, des cris déchirants retentirent là où se trouvait Wang Lin. Plus d'une douzaine de cultivateurs du Continent du Démon Vert se trouvaient ici, encerclés par la brume. Les hurlements s'estompèrent rapidement et la brume se mua en Wang Lin.
 
-Le visage de Wang Lin n'était plus pâle, mais légèrement rougi. Lors de son combat contre Xu Decai, il avait été gravement blessé ; il avait donc choisi la même méthode qu'il avait utilisée dans le monde des grottes : dévorer des cultivateurs pour se guérir.
+Le visage de Wang Lin n'était plus pâle, mais légèrement rougi. Lors de son combat contre Xu Decai, il avait été gravement blessé; il avait donc choisi la même méthode qu'il avait utilisée dans le monde des grottes: dévorer des cultivateurs pour se guérir.
 
 Après avoir dévoré deux groupes consécutifs de cultivateurs du Continent du Démon Vert, les yeux de Wang Lin s'illuminèrent et il disparut. Après l'équivalent du temps d'un bâton d'encens, le troisième groupe de cultivateurs mourut à son tour, devenant une partie intégrante du processus de guérison de Wang Lin.
 
-À ce stade, il ne restait plus que deux vieux monstres au stade intermédiaire de la Tribulation du Vide et deux cultivateurs au stade initial ! Ces quatre individus étaient très prudents et ne se dispersèrent pas. Chaque expert du stade intermédiaire resta aux côtés d'un cultivateur du stade initial alors qu'ils convergeaient vers Wang Lin.
+À ce stade, il ne restait plus que deux vieux monstres au stade intermédiaire de la Tribulation du Vide et deux cultivateurs au stade initial! Ces quatre individus étaient très prudents et ne se dispersèrent pas. Chaque expert du stade intermédiaire resta aux côtés d'un cultivateur du stade initial alors qu'ils convergeaient vers Wang Lin.
 
-Tout cela était observé par Wang Lin. Il regarda la boussole, un éclat de froideur traversant son regard. Sa cible était le cultivateur du stade initial capable de lancer des sorts rapidement ; ce type de sort l'intriguait.
+Tout cela était observé par Wang Lin. Il regarda la boussole, un éclat de froideur traversant son regard. Sa cible était le cultivateur du stade initial capable de lancer des sorts rapidement; ce type de sort l'intriguait.
 
 À cet instant, le ciel commença à s'éclaircir, annonçant l'aube. Cependant, la pluie redoubla d'intensité, rendant le sol encore plus boueux.
 
@@ -36,7 +36,7 @@ Son regard se posa une nouvelle fois sur la boussole. Les quatre points verts co
 
 « Malheureusement, cette boussole... Cependant, j'en comprends déjà la structure interne et les restrictions. Tant que j'ai les matériaux, je peux en fabriquer une », murmura Wang Lin tout en levant la main gauche, faisant apparaître une âme originelle à l'aspect terne.
 
-Il s'agissait d'une âme originelle extraite des trois groupes qui le poursuivaient. Elle avait atteint un certain niveau de cultivation et était très complète ; elle n'était pas non plus endommagée.
+Il s'agissait d'une âme originelle extraite des trois groupes qui le poursuivaient. Elle avait atteint un certain niveau de culture et était très complète; elle n'était pas non plus endommagée.
 
 Wang Lin avait déjà effacé la volonté de cette âme originelle. Il ne restait qu'un corps d'âme originelle confus. La main gauche de Wang Lin écrasa soudainement l'âme, mais avant qu'elle ne se dissipe, il y injecta un fragment de son Sens Divin avant de l'insérer dans la boussole.
 
@@ -48,7 +48,7 @@ Mais ce court laps de temps suffisait à Wang Lin.
 
 Bien que la boussole ne soit plus entre ses mains, le Sens Divin qu'il y avait injecté lui permettait de ressentir la position des quatre chasseurs.
 
-Telle la cigale qui mue sa carapace, Wang Lin passa du statut de proie à celui de chasseur !
+Telle la cigale qui mue sa carapace, Wang Lin passa du statut de proie à celui de chasseur!
 
 Son corps vacilla et il quitta les lieux pour réapparaître dans une autre partie de la prairie. Il s'assit et surveilla l'évolution de la boussole. Possédant l'essence du feu, la boue sous lui sécha naturellement.
 
@@ -66,7 +66,7 @@ Tenant la pierre, Wang Lin réfléchit un instant. Des ondulations apparurent et
 
 À cet instant, Wang Lin apparut à l'intérieur de la Pierre Spatiale. C'était la première fois qu'il pénétrait dans cette étrange pierre avec son corps physique. L'espace qu'il avait choisi était l'un des innombrables mondes qui ne différaient pas du monde réel. Il n'était pas vaste, ne mesurant que quelques centaines de milliers de kilomètres.
 
-Il y avait des montagnes, de la lumière et de la terre, mais point d'eau. Tout ici manquait d'eau ; l'endroit paraissait réel, mais demeurait incomplet.
+Il y avait des montagnes, de la lumière et de la terre, mais point d'eau. Tout ici manquait d'eau; l'endroit paraissait réel, mais demeurait incomplet.
 
 Assis au cœur de la Pierre Spatiale, les yeux de Wang Lin brillèrent alors qu'il inspectait les lieux. Il agita la main droite et un parapluie bleu apparut. Celui-ci s'éleva dans les airs pour remplacer lentement le ciel.
 
@@ -84,13 +84,13 @@ Les derniers éléments qu'il fit apparaître furent Yi Si et le Roi des Moustiq
 
 « Ainsi que le massacre et la restriction... » Une intention meurtrière monstrueuse surgit, et les nuages devinrent sombres. Une neige noire commença à tomber, chaque flocon contenant l'essence de la restriction. Bientôt, le sol fut recouvert d'une fine couche de neige noire.
 
-« Ainsi que le feu, le tonnerre et l'eau... » Wang Lin agita le bras et se leva. Le feu rugissait dans son œil gauche et la foudre jaillissait de son œil droit. Une mer de feu forgea une épée, laquelle devint un volcan. La foudre se transforma également en épée, puis cette épée devint une mer de tonnerre ! Cette mer n'était pas faite d'eau, mais d'éclairs déchaînés !
+« Ainsi que le feu, le tonnerre et l'eau... » Wang Lin agita le bras et se leva. Le feu rugissait dans son œil gauche et la foudre jaillissait de son œil droit. Une mer de feu forgea une épée, laquelle devint un volcan. La foudre se transforma également en épée, puis cette épée devint une mer de tonnerre! Cette mer n'était pas faite d'eau, mais d'éclairs déchaînés!
 
 Une fois ces préparatifs achevés, Wang Lin agita sa manche et disparut. Une douce lumière fantomatique émana de l'endroit où la Pierre Spatiale avait été déposée dans la Prairie du Ciel Extrême. Wang Lin apparut, ramassa la pierre, puis scruta l'horizon.
 
-Le champ de massacre était prêt ; il ne lui restait plus qu'à broyer ses proies par la force !
+Le champ de massacre était prêt; il ne lui restait plus qu'à broyer ses proies par la force!
 
-D'après le Sens Divin qu'il avait laissé, la boussole était sur le point de périr. Derrière elle, les deux vieux monstres de la Tribulation du Vide étaient sur le point de la rattraper ! Bien loin derrière eux, les deux cultivateurs du stade initial accéléraient également.
+D'après le Sens Divin qu'il avait laissé, la boussole était sur le point de périr. Derrière elle, les deux vieux monstres de la Tribulation du Vide étaient sur le point de la rattraper! Bien loin derrière eux, les deux cultivateurs du stade initial accéléraient également.
 
 Wang Lin marcha lentement vers l'avant, provoquant des ondulations dans l'espace, mais il ne fusionna pas avec le monde pour partir. Il attendait.
 

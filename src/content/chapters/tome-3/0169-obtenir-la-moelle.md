@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 169 - Obtaining the Marrow
 slug: obtenir-la-moelle
 ---
-C'était comme si le ciel s'effondrait sur eux sous l'effet d'une puissante bourrasque de vent descendant des cieux. Sans un mot, Wang Lin frappa son sac de rangement et en sortit d'innombrables talismans défensifs. Il en disposait en abondance ; après avoir tué tant de gens et pillé leurs biens, il avait accumulé une quantité incalculable de trésors et de talismans de basse qualité.
+C'était comme si le ciel s'effondrait sur eux sous l'effet d'une puissante bourrasque de vent descendant des cieux. Sans un mot, Wang Lin frappa son sac de rangement et en sortit d'innombrables talismans défensifs. Il en disposait en abondance; après avoir tué tant de gens et pillé leurs biens, il avait accumulé une quantité incalculable de trésors et de talismans de basse qualité.
 
 Ces talismans formèrent une multitude d'écrans de lumière autour de lui. Puis, au moment où le vent s'abattit, il bondit sur le côté.
 
@@ -14,7 +14,7 @@ Simultanément, le Seigneur Démon des Six Désirs et l'Empereur Ancestral cess�
 
 Le serpent qui descendait du ciel tordit son corps pour amorcer une rotation et percuta de plein fouet l'onde de choc. Il laissa échapper un rugissement immédiat et cracha une fumée noire.
 
-Cette fumée était redoutable ; dès que les piliers de pierre environnants la touchaient, ils se transformaient en poussière noire et disparaissaient.
+Cette fumée était redoutable; dès que les piliers de pierre environnants la touchaient, ils se transformaient en poussière noire et disparaissaient.
 
 La fumée noire rejetée par le serpent fut interceptée par le Bossu Meng. Il toucha l'une des pustules sur son visage et la perça. Une odeur fétide et un liquide noir s'en échappèrent avec une puissance extrême.
 
@@ -28,7 +28,7 @@ Les yeux de Wang Lin s'illuminèrent. Il recula rapidement et, sans la moindre h
 
 Le regard du Seigneur Démon des Six Désirs marqua un temps d'arrêt avant de se porter sur le jeune homme à ses côtés. Ce dernier avait le visage déformé par la terreur tandis qu'il fixait la créature serpentine, le corps tremblant de tous ses membres.
 
-Les yeux du Seigneur Démon des Six Désirs brillèrent et il hurla soudainement : « Peur ! »
+Les yeux du Seigneur Démon des Six Désirs brillèrent et il hurla soudainement: « Peur! »
 
 Le corps du jeune homme se mit à convulser violemment. Un gaz noir s'échappa de ses narines et de sa bouche, se rassemblant rapidement pour former une épée noire qui flotta devant le Seigneur Démon des Six Désirs.
 
@@ -36,7 +36,7 @@ Le jeune homme oscillait de gauche à droite, pétrifié par la confusion.
 
 Sa main droite pointait l'épée noire alors que le Seigneur Démon des Six Désirs entamait ses incantations. L'arme grandit progressivement jusqu'à devenir une épée gigantesque.
 
-Tout cela se produisit en un éclair. À cet instant précis, le serpent entra en collision avec l'onde de choc de la cloche et cracha de nouveau sa fumée noire. Le Seigneur Démon des Six Désirs ordonna : « Va ! »
+Tout cela se produisit en un éclair. À cet instant précis, le serpent entra en collision avec l'onde de choc de la cloche et cracha de nouveau sa fumée noire. Le Seigneur Démon des Six Désirs ordonna: « Va! »
 
 L'épée noire s'élança soudainement et s'abattit sur le cou de la créature serpentine. L'impact provoqua une douleur intense à la bête, qui fit brusquement basculer sa tête, projetant l'épée noire au loin.
 
@@ -52,17 +52,17 @@ Les yeux du Bossu Meng brillèrent alors qu'il observait la créature depuis un 
 
 Wang Lin remarqua le comportement anormal du bossu. Il se méfiait de tous les présents, et plus particulièrement de cet expert en poisons.
 
-À ce moment-là, le regard du Seigneur Démon des Six Désirs revint sur le jeune homme. Il pointa la tête de ce dernier et hurla : « Colère ! »
+À ce moment-là, le regard du Seigneur Démon des Six Désirs revint sur le jeune homme. Il pointa la tête de ce dernier et hurla: « Colère! »
 
 Un gaz rouge violacé s'échappa de la bouche et du nez du jeune homme, prenant la forme d'une autre épée qui flotta devant le Seigneur Démon des Six Désirs.
 
-L'expression de Duanmu Ji était sombre alors qu'il lançait un regard à Wang Qingyue. Un accord tacite sembla passer entre eux ; ils bondirent tous deux vers le corps du serpent, sortirent leurs trésors magiques et entamèrent leurs assauts.
+L'expression de Duanmu Ji était sombre alors qu'il lançait un regard à Wang Qingyue. Un accord tacite sembla passer entre eux; ils bondirent tous deux vers le corps du serpent, sortirent leurs trésors magiques et entamèrent leurs assauts.
 
 Duanmu Ji n'utilisait plus sa gourde, mais un marteau colossal. À chaque mouvement de l'arme, des sphères de foudre se formaient pour s'abattre sur sa cible.
 
 Wang Qingyue n'utilisait aucun trésor magique. Ses mains formèrent un sceau, et les anciens caractères représentant le métal, le bois, l'eau, le feu et la terre apparurent. Ils constituèrent une formation des cinq éléments qui percuta violemment le corps du serpent.
 
-Le cœur de Wang Lin trembla. Les techniques de ces cinq individus étaient d'une puissance dépassant l'entendement ; elles n'avaient rien à voir avec ce qu'un mortel ordinaire pourrait accomplir. Celle qui retint le plus son attention fut celle du Seigneur Démon des Six Désirs : cette technique exigeait un sacrifice, et ce jeune homme en était la malheureuse victime.
+Le cœur de Wang Lin trembla. Les techniques de ces cinq individus étaient d'une puissance dépassant l'entendement; elles n'avaient rien à voir avec ce qu'un mortel ordinaire pourrait accomplir. Celle qui retint le plus son attention fut celle du Seigneur Démon des Six Désirs: cette technique exigeait un sacrifice, et ce jeune homme en était la malheureuse victime.
 
 La créature serpentine, accablée par la douleur, poussa un rugissement et se tordit frénétiquement. Un vortex commença à se former autour d'elle, aspirant les piliers de pierre environnants vers son corps.
 
@@ -78,11 +78,11 @@ Le corps de la créature s'immobilisa un instant avant de laisser échapper un h
 
 À cet instant, une lueur de froideur traversa les yeux de Wang Lin. C'était le moment qu'il attendait. Il bondit brusquement et, profitant de l'aspiration du vortex, s'engouffra dans la gueule de la créature.
 
-Au même moment, une lumière verte passa à ses côtés : c'était le Bossu Meng qui, observant la scène d'un regard froid depuis la distance, avait eu la même idée. Le bossu fut brièvement surpris par la présence de Wang Lin avant de laisser échapper un léger sourire d'admiration.
+Au même moment, une lumière verte passa à ses côtés: c'était le Bossu Meng qui, observant la scène d'un regard froid depuis la distance, avait eu la même idée. Le bossu fut brièvement surpris par la présence de Wang Lin avant de laisser échapper un léger sourire d'admiration.
 
 Cependant, ce sourire semblait empreint d'une certaine cruauté.
 
-Le Bossu Meng dépassa Wang Lin. Son objectif était le second serpent tapi dans l'estomac de la créature. Voyant cela, Wang Lin changea immédiatement de trajectoire. Il suivit l'œsophage pour s'enfoncer plus profondément ; sa cible était la colonne vertébrale de la bête.
+Le Bossu Meng dépassa Wang Lin. Son objectif était le second serpent tapi dans l'estomac de la créature. Voyant cela, Wang Lin changea immédiatement de trajectoire. Il suivit l'œsophage pour s'enfoncer plus profondément; sa cible était la colonne vertébrale de la bête.
 
 Li Muwan lui avait dit un jour que, pour ces créatures semblables à des dragons, la partie la plus précieuse n'était pas le noyau, mais la moelle. C'était pour cette moelle que Wang Lin risquait sa vie.
 
@@ -90,7 +90,7 @@ Depuis qu'il avait aperçu la créature, il l'observait secrètement. Selon Li M
 
 Bien qu'il ignorât si cette créature était véritablement un dragon, même dans le cas contraire, elle appartenait à une lignée similaire. S'il parvenait à obtenir la moelle, elle aurait au moins un certain effet.
 
-C'est pour cela qu'il s'était précipité dès que la gueule s'était ouverte une seconde fois. Il savait aussi que le Bossu Meng ferait de même ; il avait observé les expressions changeantes du bossu lors de la première ouverture de la gueule.
+C'est pour cela qu'il s'était précipité dès que la gueule s'était ouverte une seconde fois. Il savait aussi que le Bossu Meng ferait de même; il avait observé les expressions changeantes du bossu lors de la première ouverture de la gueule.
 
 Cela renforça sa détermination. Initialement, il craignait d'être suspecté après avoir récupéré la moelle, mais avec la présence du Bossu Meng, tout incident anormal pourrait lui être imputé.
 
@@ -104,7 +104,7 @@ Plus il s'enfonçait, plus son cœur se serrait. Hormis le petit serpent, il n'y
 
 Wang Lin contrôlait son épée volante et frappait la chair de toutes ses forces, sans parvenir à laisser la moindre trace. La colonne vertébrale se trouvait juste sous cette paroi, et son incapacité à l'atteindre le fit froncer les sourcils.
 
-Ses yeux brillèrent alors qu'il se déplaçait rapidement vers un autre point : la jonction entre la tête et le cou.
+Ses yeux brillèrent alors qu'il se déplaçait rapidement vers un autre point: la jonction entre la tête et le cou.
 
 C'est à ce moment que le petit serpent intérieur commença à trembler, libérant des lambeaux de gaz noir. Wang Lin esquiva prestement sur le côté et chargea vers la tête du serpent.
 

@@ -15,12 +15,12 @@ Les **Pics du Pin Bleu** (Blue Pine Peaks) sont un lieu situé dans les montagne
 
 ### Fiche signalétique
 
-- **Nom anglais :** Blue Pine Peaks
-- **Type :** Pic montagneux / Lieu de compétition
-- **Localisation :** Secte Heng Yue, Pays de Zhao, Planète Suzaku
-- **Secte associée :** Secte Heng Yue
-- **Événement :** Concours avec la Secte Xuan Dao
-- **Résidents permanents :** 2 experts de la formation dan
+- **Nom anglais:** Blue Pine Peaks
+- **Type:** Pic montagneux / Lieu de compétition
+- **Localisation:** Secte Heng Yue, Pays de Zhao, Planète Suzaku
+- **Secte associée:** Secte Heng Yue
+- **Événement:** Concours avec la Secte Xuan Dao
+- **Résidents permanents:** 2 experts de la formation dan
 
 ## Description
 

@@ -1,12 +1,12 @@
 ---
 n: 331
-title: Imprudence ?
+title: Imprudence?
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 331 - Reckless
 slug: imprudence
 ---
-Chapitre 331 - Imprudence ?
+Chapitre 331 - Imprudence?
 
 Au même instant où la voix retentit, d'innombrables âmes errantes noires surgirent comme des démons descendant du ciel et se précipitèrent vers les insectes.
 
@@ -36,19 +36,19 @@ Li Muwan fixa la personne derrière Zhan Bai. Elle ne pouvait retenir ses larmes
 
 « Wang Lin... »
 
-Zhan Bai frissonna imperceptiblement. Jusqu'à présent, il n'avait absolument pas remarqué cet homme, ce qui signifiait que son niveau de cultivation était supérieur au sien.
+Zhan Bai frissonna imperceptiblement. Jusqu'à présent, il n'avait absolument pas remarqué cet homme, ce qui signifiait que son niveau de culture était supérieur au sien.
 
-Il se retourna brusquement et vit Wang Lin. Son visage fut frappé par l'incrédulité. Inconsciemment, il recula de quelques pas et hurla : « Toi... Ceng Niu ! »
+Il se retourna brusquement et vit Wang Lin. Son visage fut frappé par l'incrédulité. Inconsciemment, il recula de quelques pas et hurla: « Toi... Ceng Niu! »
 
 Toute la Secte Cloud Sky était sur le point d'atteindre un point de rupture lorsque Zhan Bai prononça ce nom.
 
-« Ceng Niu !! » Très peu de personnes au sein de la Secte Cloud Sky ignoraient ce nom. L'homme le plus célèbre de Suzaku en ce moment même était Ceng Niu !
+« Ceng Niu!! » Très peu de personnes au sein de la Secte Cloud Sky ignoraient ce nom. L'homme le plus célèbre de Suzaku en ce moment même était Ceng Niu!
 
-« Ceng Niu !! » Certains disciples de rang inférieur furent frappés par le choc.
+« Ceng Niu!! » Certains disciples de rang inférieur furent frappés par le choc.
 
-« Ceng Niu ! » Liu Fei était totalement hébété.
+« Ceng Niu! » Liu Fei était totalement hébété.
 
-« Ceng Niu ! » Song Qing sentit son esprit vaciller.
+« Ceng Niu! » Song Qing sentit son esprit vaciller.
 
 Les yeux des deux anciens chefs au stade avancé de l'Âme Naissante brillèrent d'un éclat inédit.
 
@@ -56,19 +56,19 @@ Le regard de Wang Lin devint glacial. Cette froideur n'était apparue que lorsqu
 
 « C'est donc toi qui veux anéantir la Secte Cloud Sky... » La voix de Wang Lin était aussi glaciale que les vents des enfers.
 
-Ce vent glacial frappa le corps de Zhan Bai. Pour lui, il était plus froid que n'importe quel souffle qu'il avait jamais ressenti. Wang Lin, capable de saisir le bras de Red Butterfly, apparut derrière Zhan Bai sans avoir été détecté. Cela terrifia profondément ce dernier.
+Ce vent glacial frappa le corps de Zhan Bai. Pour lui, il était plus froid que n'importe quel souffle qu'il avait jamais ressenti. Wang Lin, capable de saisir le bras de Papillon Rouge, apparut derrière Zhan Bai sans avoir été détecté. Cela terrifia profondément ce dernier.
 
 Avant même que le combat ne commence, l'idée de s'enfuir lui traversa l'esprit.
 
-Zhan Bai balbutia : « Ceng... Ceng Niu, je ne savais pas que tu appartenais à la Secte Cloud Sky. Cette fois, j'ai été imprudent... »
+Zhan Bai balbutia: « Ceng... Ceng Niu, je ne savais pas que tu appartenais à la Secte Cloud Sky. Cette fois, j'ai été imprudent... »
 
-« Imprudent ? » Les yeux de Wang Lin s'illuminèrent et il chargea soudainement. Le drapeau de restriction sortit de son sac de rangement et se transforma en un brouillard noir qui fonça sur Zhan Bai.
+« Imprudent? » Les yeux de Wang Lin s'illuminèrent et il chargea soudainement. Le drapeau de restriction sortit de son sac de rangement et se transforma en un brouillard noir qui fonça sur Zhan Bai.
 
 L'expression de Zhan Bai changea radicalement. Il recula immédiatement.
 
-« Imprudent ? » Wang Lin laissa échapper un rire démoniaque. Sa main traça un sceau, puis pointa vers l'avant. Des dragons façonnés par le brouillard de restriction jaillirent de la brume noire et se rassemblèrent devant Wang Lin, se condensant en une lance !
+« Imprudent? » Wang Lin laissa échapper un rire démoniaque. Sa main traça un sceau, puis pointa vers l'avant. Des dragons façonnés par le brouillard de restriction jaillirent de la brume noire et se rassemblèrent devant Wang Lin, se condensant en une lance!
 
-Cette lance était si puissante qu'elle ébranla même Red Butterfly, qui dut utiliser son trésor de vie pour s'en protéger.
+Cette lance était si puissante qu'elle ébranla même Papillon Rouge, qui dut utiliser son trésor de vie pour s'en protéger.
 
 À l'instant où la lance apparut, le ciel s'obscurcit. Le brouillard noir recouvrit les cieux et tous les insectes poussèrent des cris stridents, comme face à leur ennemi naturel.
 
@@ -76,11 +76,11 @@ Le visage de Zhan Bai se décomposa. Il continua de reculer.
 
 Wang Lin saisit la lance et poursuivit Zhan Bai.
 
-« Temps ! » cria Wang Lin. Neuf sculptures s'envolèrent aussitôt ; chacune grandit jusqu'à atteindre la taille d'un homme et se déploya dans les airs.
+« Temps! » cria Wang Lin. Neuf sculptures s'envolèrent aussitôt; chacune grandit jusqu'à atteindre la taille d'un homme et se déploya dans les airs.
 
-Le mouvement de retraite de Zhan Bai fut soudainement ralenti !
+Le mouvement de retraite de Zhan Bai fut soudainement ralenti!
 
-« Imprudent ? »
+« Imprudent? »
 
 Profitant de cette hésitation, la lance de Wang Lin bondit en avant dans un rugissement tonnerre.
 
@@ -88,25 +88,25 @@ Zhan Bai poussa un cri de rage. Sa main traça un sceau et l'image d'un mille-pa
 
 La puissance de la lance pouvait ébranler les cieux et la terre.
 
-Bang !
+Bang!
 
 Dans un fracas assourdissant, la lance percuta le cocon de chair. Le brouillard de restriction s'y infiltra violemment. Le cocon s'effondra instantanément, et à cet instant précis, Zhan Bai parvint à se dégager précipitamment. Il cracha une large bouffée de sang.
 
-D'innombrables asticots grouillaient dans ce sang ; la vue en était révoltante.
+D'innombrables asticots grouillaient dans ce sang; la vue en était révoltante.
 
-« Ceng Niu !! Ne me pousse pas à bout ! » Les yeux de Zhan Bai étaient injectés de sang et sa voix était rauque. Il était totalement ébranlé. Le domaine contenu dans la lance de Wang Lin aggravait ses blessures. S'il n'avait pas possédé un domaine aussi spécial, il aurait déjà été mortellement atteint.
+« Ceng Niu!! Ne me pousse pas à bout! » Les yeux de Zhan Bai étaient injectés de sang et sa voix était rauque. Il était totalement ébranlé. Le domaine contenu dans la lance de Wang Lin aggravait ses blessures. S'il n'avait pas possédé un domaine aussi spécial, il aurait déjà été mortellement atteint.
 
-« Me pousser à bout ? Alors aujourd'hui, c'est moi qui vais te pousser à bout ! » Les yeux de Wang Lin restaient froids. Sa main droite pointa soudainement vers l'avant et un rayon d'énergie spirituelle, d'apparence très ordinaire, fonça sur Zhan Bai.
+« Me pousser à bout? Alors aujourd'hui, c'est moi qui vais te pousser à bout! » Les yeux de Wang Lin restaient froids. Sa main droite pointa soudainement vers l'avant et un rayon d'énergie spirituelle, d'apparence très ordinaire, fonça sur Zhan Bai.
 
-« Attaque de domaine !! » La mine de ce dernier devint hideuse. Sans hésiter, il fit volte-face avec l'intention de s'enfuir.
+« Attaque de domaine!! » La mine de ce dernier devint hideuse. Sans hésiter, il fit volte-face avec l'intention de s'enfuir.
 
-Comment Wang Lin pouvait-il le laisser s'échapper ? Il poursuivit rapidement Zhan Bai et le pointa du doigt. Les âmes errantes environnantes convergèrent de toutes les directions pour lui barrer la route.
+Comment Wang Lin pouvait-il le laisser s'échapper? Il poursuivit rapidement Zhan Bai et le pointa du doigt. Les âmes errantes environnantes convergèrent de toutes les directions pour lui barrer la route.
 
 Le visage de Zhan Bai devint livide. Il s'apprêtait à utiliser la téléportation lorsqu'un éclat brilla dans les yeux de Wang Lin. D'un revers de main, avec un bruit de déchirure strident, une faille spatiale apparut.
 
 La faille surgit précisément au moment où Zhan Bai allait se téléporter. S'il avait réussi sa manœuvre, il aurait été déchiqueté en deux par la déchirure spatiale.
 
-« Fou ! » terrifié, Zhan Bai interrompit immédiatement sa téléportation.
+« Fou! » terrifié, Zhan Bai interrompit immédiatement sa téléportation.
 
 Alors que des vents glacials s'échappaient de la faille, le sol commença à se fissurer et l'énergie spirituelle environnante fut aspirée dans le vide.
 
@@ -114,13 +114,13 @@ Zhan Bai avait déjà croisé des fous et avait tué des cultivateurs au stade d
 
 Ouvrir une simple faille était à la portée de tout cultivateur de la Formation de l'Âme. Cependant, c'était la première fois que Zhan Bai voyait cette technique utilisée pour empêcher une téléportation.
 
-L'ouverture d'une telle faille provoquerait la perte d'énergie spirituelle de Chu ; cela relevait de la pure folie.
+L'ouverture d'une telle faille provoquerait la perte d'énergie spirituelle de Chu; cela relevait de la pure folie.
 
 Le regard de Wang Lin demeurait impavide. Alors qu'il continuait d'avancer, il pointa le ciel. Des anneaux de lumière apparurent soudainement derrière lui, formant un gigantesque parchemin noir et blanc.
 
-« Tu as de la chance. Tu seras la deuxième offrande au domaine de la vie et de la mort ! » La voix de Wang Lin était glaciale. Sa main droite pointa Zhan Bai tandis qu'il lançait : « Changements de vie et de mort ! »
+« Tu as de la chance. Tu seras la deuxième offrande au domaine de la vie et de la mort! » La voix de Wang Lin était glaciale. Sa main droite pointa Zhan Bai tandis qu'il lançait: « Changements de vie et de mort! »
 
-Le parchemin derrière lui sembla être agité par une main géante et s'ouvrit. Il couvrait plus de dix kilomètres et paraissait d'une majesté absolue. Même la faille spatiale se referma devant la puissance du rouleau.
+Le parchemin derrière lui sembla être agité par une main géante et s'ouvrit. Il couvrait plus de 5 kilomètres et paraissait d'une majesté absolue. Même la faille spatiale se referma devant la puissance du rouleau.
 
 Des lambeaux de brume grise s'échappèrent du parchemin.
 
@@ -128,9 +128,9 @@ C'était la première fois qu'il utilisait son domaine à pleine puissance. Il m
 
 Zhan Bai se plaignit intérieurement, mais sa fierté l'emporta. Ses yeux devinrent rouges alors qu'il frappait son sac de rangement, faisant apparaître un essaim d'insectes rouges.
 
-Zhan Bai hurla : « Ceng Niu, il n'y a aucune haine entre nous ! Pourquoi aller si loin ?! Je n'ai tué que quelques disciples de ta Secte Cloud Sky ! »
+Zhan Bai hurla: « Ceng Niu, il n'y a aucune haine entre nous! Pourquoi aller si loin?! Je n'ai tué que quelques disciples de ta Secte Cloud Sky! »
 
-« Désormais, il y en a une ! » Les yeux de Wang Lin brillèrent et il pointa Zhan Bai. Un rugissement tonnerre émana du parchemin et un vortex apparut, entouré d'un épais brouillard gris.
+« Désormais, il y en a une! » Les yeux de Wang Lin brillèrent et il pointa Zhan Bai. Un rugissement tonnerre émana du parchemin et un vortex apparut, entouré d'un épais brouillard gris.
 
 En regardant attentivement, on pouvait distinguer des visages humains au sein du vortex. Tous étaient des personnes mortes par la main de Wang Lin.
 
@@ -142,17 +142,17 @@ Le regard injecté de sang de Zhan Bai trahissait une pointe de terreur profond�
 
 Ce gaz se transforma presque instantanément en un mille-pattes de cent mètres de long. Le plus effrayant était qu'une autre tête se trouvait sous la première, et cette tête ressemblait trait pour trait à Zhan Bai.
 
-C'était son âme originelle !
+C'était son âme originelle!
 
-Lorsqu'il était dans la Vallée Désolée des Neuf Fantômes, il avait fusionné avec l'âme de cette bête pour atteindre le stade de la Formation de l'Âme. Le domaine qu'il avait compris était celui de la bête insecte ! Il utilisait le corps d'une créature pour invoquer le pouvoir des cieux. Les cieux sont cruels ; les hommes peuvent tuer les bêtes, et les bêtes peuvent donc tuer les hommes. Les hommes peuvent dévorer les bêtes, et les bêtes peuvent donc dévorer les hommes.
+Lorsqu'il était dans la Vallée Désolée des Neuf Fantômes, il avait fusionné avec l'âme de cette bête pour atteindre le stade de la Formation de l'Âme. Le domaine qu'il avait compris était celui de la bête insecte! Il utilisait le corps d'une créature pour invoquer le pouvoir des cieux. Les cieux sont cruels; les hommes peuvent tuer les bêtes, et les bêtes peuvent donc tuer les hommes. Les hommes peuvent dévorer les bêtes, et les bêtes peuvent donc dévorer les hommes.
 
 Si les humains pouvaient devenir immortels, cela signifiait que les bêtes le pouvaient aussi.
 
-Pourquoi les humains en seraient-ils l'unique source ? Le Dao de Zhan Bai consistait à utiliser l'âme d'une bête comme fondement.
+Pourquoi les humains en seraient-ils l'unique source? Le Dao de Zhan Bai consistait à utiliser l'âme d'une bête comme fondement.
 
 Dès que son âme originelle apparut, elle poussa un rugissement et quitta son corps. Elle s'élança dans les airs, ouvrit sa gueule et chargea vers le vortex.
 
-Les yeux de Wang Lin pétillèrent : « Arrogant ! »
+Les yeux de Wang Lin pétillèrent: « Arrogant! »
 
 Dans un fracas retentissant, le vortex s'étendit soudainement et dévora l'âme originelle de Zhan Bai, tel un ciel impitoyable. Des vagues de cris désespérés s'en échappèrent, mais ils s'estompèrent rapidement. Le parchemin disparut et tout revint à la normale, comme si rien ne s'était produit.
 

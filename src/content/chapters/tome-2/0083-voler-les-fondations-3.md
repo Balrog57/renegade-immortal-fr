@@ -6,11 +6,11 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 83 - Stealing Foundation (3)
 slug: voler-les-fondations-3
 ---
-Deux jours plus tard, Wang Lin se trouvait près d'un ruisseau ; il remplissait sa gourde tout en surveillant attentivement les environs. Son expression changea brusquement et il maudit : « Ça n'en finira donc jamais ! »
+Deux jours plus tard, Wang Lin se trouvait près d'un ruisseau; il remplissait sa gourde tout en surveillant attentivement les environs. Son expression changea brusquement et il maudit: « Ça n'en finira donc jamais! »
 
 Il lança son épée volante, rangea sa gourde, franchit la rivière d'un bond et s'enfonça plus profondément dans la forêt.
 
-Un instant plus tard, Teng Li poursuivit Wang Lin avec précaution, n'osant utiliser aucun pouvoir spirituel. Il avait l'air pitoyable : ses vêtements étaient déchirés, son armure avait perdu son éclat et son bras droit pendait, inerte, alors qu'il tentait de rattraper sa proie.
+Un instant plus tard, Teng Li poursuivit Wang Lin avec précaution, n'osant utiliser aucun pouvoir spirituel. Il avait l'air pitoyable: ses vêtements étaient déchirés, son armure avait perdu son éclat et son bras droit pendait, inerte, alors qu'il tentait de rattraper sa proie.
 
 Les cheveux en bataille, le visage pâle et les yeux brûlants de rage, sa haine envers Wang Lin avait atteint un degré inimaginable. Lui qui avait toujours été traité comme un génie depuis l'enfance ne s'était jamais retrouvé dans une situation aussi humiliante.
 
@@ -18,7 +18,7 @@ Tout cela était de la faute de Wang Lin.
 
 Les lianes d'il y a deux jours avaient failli lui coûter la vie. Il n'aurait jamais cru que de si petites lianes puissent être aussi mortelles. Lorsque le liquide projeté par l'une d'elles avait touché son armure, il avait commencé à dissoudre les plaques de métal.
 
-Si cela s'était arrêté là, il aurait pu l'éliminer avec son épée volante. Cependant, ces lianes étaient immortelles : chaque fois qu'il en coupait une, elle se divisait en plusieurs autres. Même les sphères de foudre générées par son épée n'avaient pu les stopper.
+Si cela s'était arrêté là, il aurait pu l'éliminer avec son épée volante. Cependant, ces lianes étaient immortelles: chaque fois qu'il en coupait une, elle se divisait en plusieurs autres. Même les sphères de foudre générées par son épée n'avaient pu les stopper.
 
 À cela s'étaient ajoutées les attaques sournoises de l'étrange épée volante de Wang Lin, qui avait fini par blesser son bras droit.
 
@@ -36,13 +36,13 @@ L'eau était fraîche et douce. Teng Li se sentit revigoré et s'apprêtait à b
 
 Teng Li recula promptement sans la moindre hésitation, invoquant sa propre épée volante pour parer l'attaque. Les deux armes entrèrent en collision, mais l'épée verte était clairement désavantagée. Après quelques échanges, l'épée verte, marquée par de nouvelles égratignures, brilla soudainement avant de disparaître.
 
-Teng Li regarda ses cheveux coupés par la petite épée verte et hurla de toutes ses forces : « Maudit soit-tu ! Je jure que si je t'attrape, je te ferai subir toutes les tortures du monde avant de raffiner ton âme ! »
+Teng Li regarda ses cheveux coupés par la petite épée verte et hurla de toutes ses forces: « Maudit soit-tu! Je jure que si je t'attrape, je te ferai subir toutes les tortures du monde avant de raffiner ton âme! »
 
 Wang Lin courait à travers la jungle quand son visage devint soudainement rouge et qu'il cracha une bouchée de sang. L'épée verte venait d'apparaître à ses côtés. Il ressentit une douleur au cœur en voyant les nouvelles égratignures sur l'arme. Une lueur froide passa dans ses yeux tandis qu'il continuait sa course.
 
 Tard dans la nuit, cinq jours après le début de leur traque, Wang Lin et Teng Li parcouraient toujours la jungle. Ils étaient désormais entrés dans les profondeurs de la forêt quand, soudain, Wang Lin s'arrêta.
 
-Situ Nan dit rapidement : « Gamin, tu l'as remarqué aussi ? Il y a une fluctuation spirituelle très puissante au nord-ouest d'ici. Va voir ce qui s'y passe. » Ces derniers jours, il était resté sur le qui-vive, utilisant tout son savoir pour aider Wang Lin à éviter danger après danger.
+Situ Nan dit rapidement: « Gamin, tu l'as remarqué aussi? Il y a une fluctuation spirituelle très puissante au nord-ouest d'ici. Va voir ce qui s'y passe. » Ces derniers jours, il était resté sur le qui-vive, utilisant tout son savoir pour aider Wang Lin à éviter danger après danger.
 
 Sans un mot, Wang Lin changea de direction vers le nord-ouest. Peu de temps après, il atteignit l'origine de la fluctuation spirituelle.
 
@@ -52,29 +52,29 @@ Sous la lumière lunaire gisait un arbre gigantesque, totalement déraciné. La 
 
 Au-dessus du corps flottait une perle verte tandis que l'énergie spirituelle convergeait de toutes les directions, formant de multiples petits tourbillons.
 
-Situ Nan, stupéfait, s'exclama d'un ton surpris : « Un Cœur Vert ? Je ne pensais pas trouver un Cœur Vert provenant d'un pays de rang 4 ici. »
+Situ Nan, stupéfait, s'exclama d'un ton surpris: « Un Cœur Vert? Je ne pensais pas trouver un Cœur Vert provenant d'un pays de rang 4 ici. »
 
-Wang Lin demanda : « Qu'est-ce qu'un Cœur Vert ? »
+Wang Lin demanda: « Qu'est-ce qu'un Cœur Vert? »
 
-« C'est la technique de cultivation spéciale des sectes démoniaques des pays de rang 4, le Cœur Vert, ou Faux Cœur. Contrairement aux noyaux normaux, on peut posséder autant de Cœurs Verts que l'on veut. Je me souviens d'un fou d'un pays de rang 4 qui en possédait des dizaines de milliers. Même des cultivateurs de la Formation de l'Esprit de pays de rang 5 n'oseraient pas le provoquer. Il faut dire qu'au-delà de sa capacité à augmenter ta cultivation, ce qui rend le Cœur Vert mortel, c'est son explosion. C'est d'une puissance terrifiante quand des dizaines de milliers de ces cœurs explosent simultanément. »
+« C'est la technique de culture spéciale des sectes démoniaques des pays de rang 4, le Cœur Vert, ou Faux Cœur. Contrairement aux noyaux normaux, on peut posséder autant de Cœurs Verts que l'on veut. Je me souviens d'un fou d'un pays de rang 4 qui en possédait des dizaines de milliers. Même des cultivateurs de la Formation de l'Âme de pays de rang 5 n'oseraient pas le provoquer. Il faut dire qu'au-delà de sa capacité à augmenter ta culture, ce qui rend le Cœur Vert mortel, c'est son explosion. C'est d'une puissance terrifiante quand des dizaines de milliers de ces cœurs explosent simultanément. »
 
-Les yeux de Wang Lin s'illuminèrent et il demanda soudain : « Combien de Cœurs Verts cet individu possède-t-il ? Peux-tu le dire ? »
+Les yeux de Wang Lin s'illuminèrent et il demanda soudain: « Combien de Cœurs Verts cet individu possède-t-il? Peux-tu le dire? »
 
-« Lui ? Un seul est déjà une prouesse pour lui, et cet être n'est plus vivant. C'est clairement un zombie doté d'intelligence. C'était probablement un cultivateur démoniaque d'un pays de rang 4 qui a utilisé une technique avant sa mort pour se transformer en mort-vivant. »
+« Lui? Un seul est déjà une prouesse pour lui, et cet être n'est plus vivant. C'est clairement un zombie doté d'intelligence. C'était probablement un cultivateur démoniaque d'un pays de rang 4 qui a utilisé une technique avant sa mort pour se transformer en mort-vivant. »
 
 Ce zombie avait manifestement déjà repéré Wang Lin. Sans bouger, il leva un doigt et le fit claquer. Une lumière verte jaillit droit vers le front de Wang Lin.
 
 Wang Lin recula prestement pour esquiver l'éclair vert.
 
-La lumière ne poursuivit pas sa course ; elle décrivit un cercle avant de s'immobiliser. Elle projeta une image floue d'où émana une voix indistincte :
+La lumière ne poursuivit pas sa course; elle décrivit un cercle avant de s'immobiliser. Elle projeta une image floue d'où émana une voix indistincte:
 
 « Pars... de cet endroit... ou tu... mourras. » Sur ces mots, l'image s'effaça. Rapidement, l'immense fluctuation d'énergie spirituelle disparut sans laisser de trace, comme si elle avait été totalement occultée.
 
-Wang Lin recula avec prudence, sans même ciller. Après un instant, une lueur froide traversa son regard ; il ne chercha plus à fuir, mais déploya son Sens Divin, attendant que Teng Li le rattrape.
+Wang Lin recula avec prudence, sans même ciller. Après un instant, une lueur froide traversa son regard; il ne chercha plus à fuir, mais déploya son Sens Divin, attendant que Teng Li le rattrape.
 
 L'épée volante de Teng Li tournait autour de lui, écartant tout obstacle sur sa route. Il remarqua soudain quelque chose et sourit. Pointant un doigt vers l'avant, il projeta son épée.
 
-L'ombre de Wang Lin était désormais à portée de vue. Teng Li se réjouit en inspectant les environs. Cependant, les mouvements de Wang Lin le mirent sur ses gardes. Il ricana : « Pourquoi ne fuis-tu pas ? »
+L'ombre de Wang Lin était désormais à portée de vue. Teng Li se réjouit en inspectant les environs. Cependant, les mouvements de Wang Lin le mirent sur ses gardes. Il ricana: « Pourquoi ne fuis-tu pas? »
 
 Wang Lin pointa l'avant avec son index droit et l'épée volante verte apparut. D'un geste de la main, il la projeta en avant. Puis, il sortit un morceau de jade sur lequel il cracha une bouffée d'énergie spirituelle.
 
@@ -84,13 +84,13 @@ Teng Li eut un sourire carnassier. Il se mordit le doigt et projeta une goutte d
 
 Dès que la grande épée se manifesta, elle dégagea une aura glaciale tandis que Teng Li l'abattait avec force.
 
-La petite épée de Wang Lin se téléporta pour surgir derrière Teng Li. Juste avant que le coup ne porte son effet, Teng Li toucha son sac de rangement ; une cloche apparut soudainement et se fixa sur lui.
+La petite épée de Wang Lin se téléporta pour surgir derrière Teng Li. Juste avant que le coup ne porte son effet, Teng Li toucha son sac de rangement; une cloche apparut soudainement et se fixa sur lui.
 
 La petite épée verte frappa la cloche, provoquant des ondes de choc à sa surface.
 
 Alors que la grande épée s'abattait, Wang Lin pointa son doigt et les quatre symboles dorés foncèrent vers l'arme. Wang Lin recula jusqu'à rejoindre l'endroit où il avait aperçu le zombie.
 
-Les quatre symboles explosèrent tous au contact de l'épée volante, la repoussant violemment. Cependant, les symboles dorés étaient trop peu nombreux ; après une brève suspension dans les airs, la grande épée poursuivit sa chute implacable.
+Les quatre symboles explosèrent tous au contact de l'épée volante, la repoussant violemment. Cependant, les symboles dorés étaient trop peu nombreux; après une brève suspension dans les airs, la grande épée poursuivit sa chute implacable.
 
 Des craquements sinistres déchirèrent le sol, incapable de supporter une telle pression. Tous les arbres géants environnants s'effondrèrent. Au moment précis où l'épée allait frapper, le corps de Wang Lin fut enveloppé d'une lumière bleue et il se téléporta.
 
@@ -104,7 +104,7 @@ Les sphères étaient extrêmement puissantes et la foudre était la faiblesse n
 
 Teng Li ricana en agitant sa main gauche. Soudain, plus d'une dizaine de sphères de foudre apparurent autour de son épée volante. Elles chargèrent le zombie, tandis que la grande épée les suivait de près.
 
-Wang Lin pensa intérieurement : « C'est mauvais signe ! » Il ne s'attendait pas à ce que le zombie soit aussi vulnérable et s'apprêtait déjà à fuir.
+Wang Lin pensa intérieurement: « C'est mauvais signe! » Il ne s'attendait pas à ce que le zombie soit aussi vulnérable et s'apprêtait déjà à fuir.
 
 Le zombie réalisa également que la situation lui échappait. Dans un ultime élan de survie, il poussa un hurlement et cracha un Cœur Vert. Dès son apparition, le cœur explosa.
 

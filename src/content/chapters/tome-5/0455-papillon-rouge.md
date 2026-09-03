@@ -3,14 +3,14 @@ n: 455
 title: Papillon Rouge
 book: 5
 bookTitle: Cultivation Planet Crystal
-en: Chapter 455 - Red Butterfly
+en: Chapter 455 - Papillon Rouge
 slug: papillon-rouge
 ---
 Les yeux de Wang Lin s'illuminèrent. Tout en reculant, il leva l'épée céleste pour intercepter l'attaque.
 
 L'énergie de la lame fondit sur lui et, dans un fracas retentissant, Wang Lin fut projeté en arrière. Utilisant l'élan de cette force, il continua sa retraite. La puissance de cette énergie de lame était comparable à une attaque de pleine puissance d'un cultivateur au stade avancé de la Transformation de l'Âme. Sans le drapeau des milliards d'âmes, Wang Lin n'aurait eu aucun moyen de rivaliser.
 
-Wang Lin recula rapidement. Il ne chercha pas à s'échapper par le chemin qu'il avait emprunté, mais prit la direction opposée ; il s'enfonça plus profondément dans la Tombe de Suzaku.
+Wang Lin recula rapidement. Il ne chercha pas à s'échapper par le chemin qu'il avait emprunté, mais prit la direction opposée; il s'enfonça plus profondément dans la Tombe de Suzaku.
 
 Des vagues de messages transmis par Sens Divin émanèrent de la lame. Elle ordonnait à toutes les épées du trésor de poursuivre Wang Lin.
 
@@ -22,7 +22,7 @@ Les épées du trésor issues des bassins devant lui jaillirent toutes et conver
 
 Les épées du trésor qui fonçaient sur lui manquèrent leur cible, mais elles firent rapidement demi-tour pour le poursuivre. À cet instant, une mer infinie d'épées du trésor se déversait derrière Wang Lin. Elles généraient une intention d'épée capable de déchirer les cieux. L'aura glaciale qu'elles dégageaient faisait chuter la température au point que la gelée commençait à se former.
 
-On aurait dit que seuls les bourdonnements des épées subsistaient en ce monde ; ces vibrations ébranlaient le ciel et la terre.
+On aurait dit que seuls les bourdonnements des épées subsistaient en ce monde; ces vibrations ébranlaient le ciel et la terre.
 
 Ce son était si puissant que tous les cultivateurs situés dans un rayon de dizaines de milliers de kilomètres l'entendirent. Nombreux furent ceux qui volèrent vers cette zone pour découvrir l'origine du tumulte.
 
@@ -32,7 +32,7 @@ Wang Lin, protégé par le drapeau des âmes, se déplaçait comme un nuage de f
 
 Seule l'énergie de la lame en forme de demi-lune imposait à Wang Lin de dégainer l'épée céleste pour la parer.
 
-Cette situation était exaltante pour Wang Lin ; elle lui rappelait l'époque où il était chassé par ses ennemis, alors que son niveau de cultivation était encore dérisoire.
+Cette situation était exaltante pour Wang Lin; elle lui rappelait l'époque où il était chassé par ses ennemis, alors que son niveau de culture était encore dérisoire.
 
 À ce moment précis, deux rayons de lumière volèrent vers Wang Lin. Ils s'arrêtèrent à cinq mille kilomètres de là, mais lorsqu'ils aperçurent la scène, ils firent brusquement demi-tour pour fuir.
 
@@ -44,9 +44,9 @@ Un grondement tonnerre résonna dans la tombe, et l'aura de destruction qui avai
 
 Alors que les deux rayons de lumière s'enfuyaient à toute allure, Wang Lin les reconnut immédiatement. L'un était un homme, l'autre une femme. Rien qu'à la forme de ses oreilles, il sut qu'il s'agissait de Zhou Wutai. Quant à la femme, elle portait un voile violet. Les yeux de Wang Lin pétillèrent en la reconnaissant également.
 
-Bien qu'il soit traqué par une armée d'épées, l'expression de Wang Lin demeurait calme et il rit : « Ne fuyez pas, frère Zhou ! Attendez-moi un instant ! »
+Bien qu'il soit traqué par une armée d'épées, l'expression de Wang Lin demeurait calme et il rit: « Ne fuyez pas, frère Zhou! Attendez-moi un instant! »
 
-Le visage de Zhou Wutai se décomposa tandis qu'il grommelait : « Quelle malchance ! » Il fit mine de ne pas entendre Wang Lin et accéléra encore davantage.
+Le visage de Zhou Wutai se décomposa tandis qu'il grommelait: « Quelle malchance! » Il fit mine de ne pas entendre Wang Lin et accéléra encore davantage.
 
 Quant à la femme, dès qu'elle aperçut Wang Lin, son visage fut envahi par la terreur et elle s'enfuit promptement.
 
@@ -60,29 +60,29 @@ Les trois individus volaient à leur vitesse maximale. Après le temps de brûle
 
 Zhou Wutai hésita un instant avant de suivre Wang Lin. La femme, elle, hésita également avant de choisir une autre direction et de se séparer de Zhou Wutai.
 
-Toutes les épées du trésor s'arrêtèrent là ; seule la lame en forme de demi-lune poursuivit sa course, sortant de la zone des bassins sans ralentir.
+Toutes les épées du trésor s'arrêtèrent là; seule la lame en forme de demi-lune poursuivit sa course, sortant de la zone des bassins sans ralentir.
 
 Une fois hors de cette zone, la vitesse de la lame explosa soudainement. La force mystérieuse qui la freinait semblait s'être affaiblie, lui permettant d'atteindre une célérité inimaginable.
 
 En un clin d'œil, la lame passa devant Zhou Wutai pour foncer sur Wang Lin.
 
-Le front de Zhou Wutai fut couvert de sueur froide. La lame l'avait tellement dépassé qu'il ne l'avait même pas sentie ; il n'avait perçu qu'un vent violent et vu un point noir disparaître à l'horizon.
+Le front de Zhou Wutai fut couvert de sueur froide. La lame l'avait tellement dépassé qu'il ne l'avait même pas sentie; il n'avait perçu qu'un vent violent et vu un point noir disparaître à l'horizon.
 
-« Quel est cet objet ? Quelle vitesse ! Elle est au moins des dizaines de fois plus rapide qu'auparavant ! » Le cœur de Zhou Wutai fut frappé par la stupeur alors qu'il tentait de suivre Wang Lin et la lame.
+« Quel est cet objet? Quelle vitesse! Elle est au moins des dizaines de fois plus rapide qu'auparavant! » Le cœur de Zhou Wutai fut frappé par la stupeur alors qu'il tentait de suivre Wang Lin et la lame.
 
 Pendant que Wang Lin s'échappait, il dut ralentir car, après avoir quitté la zone des bassins, les failles spatiales commençaient à apparaître de plus en plus fréquemment. Après avoir passé un certain temps à les esquiver, il choisit de s'arrêter au sommet d'une montagne.
 
 En regardant au loin, il aperçut une montagne émettant une lueur arc-en-ciel. Elle ressemblait trait pour trait à la montagne spirituelle que Situ Nan lui avait décrite.
 
-Presque instantanément après son arrêt, un rugissement tonitruant déferla depuis le lointain. Wang Lin, déjà sur ses gardes, se téléporta immédiatement à dix mille pieds de là. Dans un fracas, la montagne où il se trouvait s'effondra. Un éclair bleu jaillit des décombres : la lame en forme de demi-lune venait d'en sortir.
+Presque instantanément après son arrêt, un rugissement tonitruant déferla depuis le lointain. Wang Lin, déjà sur ses gardes, se téléporta immédiatement à 33 kilomètres de là. Dans un fracas, la montagne où il se trouvait s'effondra. Un éclair bleu jaillit des décombres: la lame en forme de demi-lune venait d'en sortir.
 
-Simultanément, un message divin émana de la lame :
+Simultanément, un message divin émana de la lame:
 
-« Laisse-le... ici ! »
+« Laisse-le... ici! »
 
-Le corps de Wang Lin disparut de nouveau, mais cette fois, il ressentit une vive douleur au bras gauche. Lorsqu'il réapparut à dix mille pieds, sa manche avait disparu et une blessure béante était apparue.
+Le corps de Wang Lin disparut de nouveau, mais cette fois, il ressentit une vive douleur au bras gauche. Lorsqu'il réapparut à 33 kilomètres, sa manche avait disparu et une blessure béante était apparue.
 
-« Quelle vitesse incroyable ! » Après avoir réapparu, Wang Lin se téléporta à nouveau. Il n'osait pas s'éloigner trop loin, car s'il se retrouvait près d'une faille, la situation deviendrait périlleuse.
+« Quelle vitesse incroyable! » Après avoir réapparu, Wang Lin se téléporta à nouveau. Il n'osait pas s'éloigner trop loin, car s'il se retrouvait près d'une faille, la situation deviendrait périlleuse.
 
 En conséquence, chaque fois que Wang Lin se téléportait, un éclair bleu traversait l'endroit où il se trouvait et le point de départ s'effondrait.
 
@@ -90,27 +90,27 @@ La lame en forme de demi-lune semblait avoir sombré dans la folie pour traquer 
 
 Dans un éclair, Wang Lin se téléporta à dix mille pieds et se déplaça immédiatement sur le côté. Une faille apparut silencieusement là où il se trouvait l'instant d'avant.
 
-Juste après sa téléportation, un éclat bleu balaya son ancienne position. Tout sur la trajectoire de cette lumière fut détruit : montagnes, terre, et même certaines des failles qui s'étaient formées furent pulvérisées.
+Juste après sa téléportation, un éclat bleu balaya son ancienne position. Tout sur la trajectoire de cette lumière fut détruit: montagnes, terre, et même certaines des failles qui s'étaient formées furent pulvérisées.
 
 En voyant cela, le crâne de Wang Lin en eut un frisson. Il se téléporta une fois de plus sans hésiter. Cette fois, il ressentit la douleur à sa jambe droite, d'où jaillit le sang frais.
 
 Après être apparu à cinq kilomètres, Wang Lin frotta sa main droite sur la blessure, provoquant sa cicatrisation immédiate et l'arrêt de l'hémorragie.
 
-« Quel genre de trésor est-ce là ?! » Une pointe d'avidité brilla dans les yeux de Wang Lin. Il n'avait observé une telle vitesse qu'une seule fois auparavant : avec la quatrième âme du drapeau des âmes.
+« Quel genre de trésor est-ce là?! » Une pointe d'avidité brilla dans les yeux de Wang Lin. Il n'avait observé une telle vitesse qu'une seule fois auparavant: avec la quatrième âme du drapeau des âmes.
 
 En comparant les deux, leurs vitesses étaient presque identiques, seule la puissance de la lame était supérieure. Après tout, être transpercé par une aiguille pouvait faire mal, mais être frappé par une lame pouvait bien vous trancher la tête.
 
-« Ceci est fait d'un seul fragment d'âme. À qui appartient ce fragment pour posséder un pouvoir élémentaire métallique aussi puissant ?! Cette lame est un trésor ! » Le corps de Wang Lin disparut à nouveau, et tout autour de son ancienne position s'effondra une fois de plus.
+« Ceci est fait d'un seul fragment d'âme. À qui appartient ce fragment pour posséder un pouvoir élémentaire métallique aussi puissant?! Cette lame est un trésor! » Le corps de Wang Lin disparut à nouveau, et tout autour de son ancienne position s'effondra une fois de plus.
 
 La lame devint encore plus rapide, au point que Wang Lin ne parvint bientôt plus à suivre la cadence. S'il faisait preuve de la moindre inattention, il serait blessé. Il comprenait désormais pourquoi Zhuque Zi craignait tant la quatrième âme.
 
-« Je dois en faire mienne ! » Les yeux de Wang Lin s'illuminèrent alors qu'il sortait l'épée céleste. D'un geste sec, il força Xu Liguo à sortir de l'épée.
+« Je dois en faire mienne! » Les yeux de Wang Lin s'illuminèrent alors qu'il sortait l'épée céleste. D'un geste sec, il força Xu Liguo à sortir de l'épée.
 
-« Xu Liguo, supporte cela un moment, comme tu l'as fait avec l'ancêtre du Clan des Démons Géants. Une fois que j'aurai récupéré mon fragment d'âme, je reviendrai te sauver ! » Sur ce, Wang Lin agita la main et Xu Liguo s'envola dans les airs.
+« Xu Liguo, supporte cela un moment, comme tu l'as fait avec l'ancêtre du Clan des Démons Géants. Une fois que j'aurai récupéré mon fragment d'âme, je reviendrai te sauver! » Sur ce, Wang Lin agita la main et Xu Liguo s'envola dans les airs.
 
 Xu Liguo poussa un cri et s'apprêtait à s'enfuir quand la lame en demi-lune le rattrapa et disparut avec lui.
 
-Le cri de Xu Liguo parvint de loin :
+Le cri de Xu Liguo parvint de loin:
 
 « Maître, n'oubliez pas de me sauver... »
 
@@ -122,4 +122,4 @@ Après avoir rangé l'épée céleste, il regarda la montagne arc-en-ciel au loi
 
 Elle se tenait là, tel un papillon rouge voulant s'envoler avec le vent, mais condamné à rester.
 
-« Papillon Rouge ! »
+« Papillon Rouge! »

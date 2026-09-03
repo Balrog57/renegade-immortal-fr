@@ -20,7 +20,7 @@ Le temps passa. Un mois, deux mois, trois mois...
 
 Au neuvième mois de son périple en mer, Wang Lin fit face à la véritable colère de l'océan. La nuit, des nuages sombres couvraient le ciel et le tonnerre grondait. Les éclairs déchiraient les ténèbres, certains semblant frapper profondément dans les abysses, faisant vaciller le ciel entre l'obscurité et la lumière.
 
-À chaque éclair, la mer s'illuminait. Durant ces brefs instants de clarté, on pouvait voir les vagues déferler ; le fracas violent des flots rivalisait avec le tonnerre.
+À chaque éclair, la mer s'illuminait. Durant ces brefs instants de clarté, on pouvait voir les vagues déferler; le fracas violent des flots rivalisait avec le tonnerre.
 
 Le vent hurlait sur la mer et percutait le navire. Chaque marin luttait férocement pour sa survie, manœuvrant ce navire marchand pour résister à la fureur de l'océan.
 
@@ -28,13 +28,13 @@ Chacun priait. Tous voulaient laisser derrière eux leurs dernières paroles, de
 
 La tempête faisait rage, le tonnerre grondait, les éclairs jaillissaient et des vagues monstrueuses se déchaînaient.
 
-Au plus profond de la nuit, Wang Lin se tenait sur le bateau, agrippé au mât à ses côtés. Son corps semblait lui échapper, tremblant violemment. Une rafale de vent l'atteignit et trempa complètement ses vêtements. L'eau gouttait de ses cheveux blancs, mais ses yeux brillaient d'un éclat vif !
+Au plus profond de la nuit, Wang Lin se tenait sur le bateau, agrippé au mât à ses côtés. Son corps semblait lui échapper, tremblant violemment. Une rafale de vent l'atteignit et trempa complètement ses vêtements. L'eau gouttait de ses cheveux blancs, mais ses yeux brillaient d'un éclat vif!
 
 Alors qu'il contemplait la rage de la mer déchaînée, son regard devenait de plus en plus intense. Son cœur s'élargit à l'infini, jusqu'à ce qu'il soit assez vaste pour envelopper le monde entier.
 
-« Voici le pouvoir des cieux, voici la véritable vérité ! Voici l'implacabilité de la nature ! » Wang Lin rit. Son rire de vieillard était faible comparé au tonnerre et aux vagues, mais il révélait la puissance de son cœur.
+« Voici le pouvoir des cieux, voici la véritable vérité! Voici l'implacabilité de la nature! » Wang Lin rit. Son rire de vieillard était faible comparé au tonnerre et aux vagues, mais il révélait la puissance de son cœur.
 
-Il observait les mortels lutter pour leur survie. Il voyait le navire marchand tanguer violemment, comme s'il allait être submergé et dévoré à tout instant. En regardant ces gens, Wang Lin vit l'obstination qui brûlait dans leurs cœurs !
+Il observait les mortels lutter pour leur survie. Il voyait le navire marchand tanguer violemment, comme s'il allait être submergé et dévoré à tout instant. En regardant ces gens, Wang Lin vit l'obstination qui brûlait dans leurs cœurs!
 
 Cependant, cette obstination était bien fragile, insignifiante face au vent et à la pluie.
 
@@ -46,39 +46,39 @@ Une aura de désespoir imprégna le navire et envahit les cœurs. Wang Lin lâch
 
 « N'abandonnez pas, nous avons encore de la force... » Un homme d'âge moyen afficha un sourire en agrippant une corde pour abaisser la voile. Les vagues passaient à ses côtés. En cet instant de vie ou de mort, il commença à entonner un chant de marin que tous connaissaient.
 
-Un adolescent de moins de vingt ans essuya la sueur de son visage et rugit : « Ne désespérez pas, nous avons encore des rêves... » C'était comme s'il avait retrouvé par ce cri le courage qu'il avait perdu.
+Un adolescent de moins de vingt ans essuya la sueur de son visage et rugit: « Ne désespérez pas, nous avons encore des rêves... » C'était comme s'il avait retrouvé par ce cri le courage qu'il avait perdu.
 
-« Ne vous découragez pas, nous avons encore demain... » De plus en plus de marins se mirent à chanter au milieu du vent et des vagues. Leurs voix résonnaient ensemble, fusionnant en un chant de défi envers la mort !
+« Ne vous découragez pas, nous avons encore demain... » De plus en plus de marins se mirent à chanter au milieu du vent et des vagues. Leurs voix résonnaient ensemble, fusionnant en un chant de défi envers la mort!
 
 « N'abandonnez pas, nous avons encore la volonté... »
 
 « Ne fermez pas les yeux, nous devons encore voir le soleil se lever... »
 
-« Les cieux et la terre sont puissants, mais ils ne pourront étouffer nos voix ! Nous vivons de la mer, comment pourrions-nous craindre la mort ?! La fureur de l'esprit marin peut nous effrayer, elle peut nous noyer, mais elle ne pourra jamais arrêter notre chant ! »
+« Les cieux et la terre sont puissants, mais ils ne pourront étouffer nos voix! Nous vivons de la mer, comment pourrions-nous craindre la mort?! La fureur de l'esprit marin peut nous effrayer, elle peut nous noyer, mais elle ne pourra jamais arrêter notre chant! »
 
-Tous les membres d'équipage se mirent à hurler ce chant, transmis depuis des temps immémoriaux sur les mers de la planète Suzaku !
+Tous les membres d'équipage se mirent à hurler ce chant, transmis depuis des temps immémoriaux sur les mers de la planète Suzaku!
 
 Leurs voix dégageaient du courage, un esprit indomptable, une soif de vivre et une absence totale de peur face à la mort. Le vieux corps de Wang Lin trembla en entendant ce cri. Ses yeux brillaient plus intensément que jamais.
 
-« C'est une volonté défiante ! Une volonté qui défie les cieux et la terre ! Vie et mort, vie et mort... cette volonté indomptable naît précisément entre la vie et la mort. C'est par la réticence et l'obstination qu'une telle volonté apparaît ! »
+« C'est une volonté défiante! Une volonté qui défie les cieux et la terre! Vie et mort, vie et mort... cette volonté indomptable naît précisément entre la vie et la mort. C'est par la réticence et l'obstination qu'une telle volonté apparaît! »
 
-« S'il n'y avait ni réticence ni obstination, il n'y aurait ni vie ni mort. La vie est la vie, et la mort est la mort... Je comprends !! » L'esprit de Wang Lin fut bouleversé. Il était encore confus quant au karma, à la vie et à la mort, au vrai et au faux, incapable de les percer totalement. Pourtant, en entendant le chant des marins, il atteignit soudain l'illumination.
+« S'il n'y avait ni réticence ni obstination, il n'y aurait ni vie ni mort. La vie est la vie, et la mort est la mort... Je comprends!! » L'esprit de Wang Lin fut bouleversé. Il était encore confus quant au karma, à la vie et à la mort, au vrai et au faux, incapable de les percer totalement. Pourtant, en entendant le chant des marins, il atteignit soudain l'illumination.
 
-La vie et la mort !
+La vie et la mort!
 
-Comme la montagne voit la vie comme la vie et la mort comme la mort ; elle ne voit ni la vie comme la vie, ni la mort comme la mort. Mais finalement, après avoir tout compris, on voit la vie comme la vie et la mort toujours comme la mort !
+Comme la montagne voit la vie comme la vie et la mort comme la mort; elle ne voit ni la vie comme la vie, ni la mort comme la mort. Mais finalement, après avoir tout compris, on voit la vie comme la vie et la mort toujours comme la mort!
 
-Chacun éprouve une crainte envers la vie et la mort. C'est de cette peur que naissent deux chemins : l'un est celui de la soumission, l'autre celui du défi !
+Chacun éprouve une crainte envers la vie et la mort. C'est de cette peur que naissent deux chemins: l'un est celui de la soumission, l'autre celui du défi!
 
-Se conformer à la vie et à la mort constitue le premier royaume de la vie et de la mort !
+Se conformer à la vie et à la mort constitue le premier royaume de la vie et de la mort!
 
-Cependant, si cela se transforme en une volonté défiante, cela signifie voir la vie non comme la vie et la mort non comme la mort. C'était là le deuxième royaume !
+Cependant, si cela se transforme en une volonté défiante, cela signifie voir la vie non comme la vie et la mort non comme la mort. C'était là le deuxième royaume!
 
-On disait souvent « percer le mystère de la vie et de la mort », mais en vérité, on ne peut pas percer ce mystère. Au mieux, on ne peut que voir la vie et la mort avec clarté !
+On disait souvent « percer le mystère de la vie et de la mort », mais en vérité, on ne peut pas percer ce mystère. Au mieux, on ne peut que voir la vie et la mort avec clarté!
 
-Avec cette volonté défiante, on peut ignorer la vie et la mort et dire : « La vie est joie, nul besoin de craindre la mort ! » C'est une détermination à mourir, mais cela ne signifie pas pour autant que l'on a percé le mystère de la vie et de la mort !
+Avec cette volonté défiante, on peut ignorer la vie et la mort et dire: « La vie est joie, nul besoin de craindre la mort! » C'est une détermination à mourir, mais cela ne signifie pas pour autant que l'on a percé le mystère de la vie et de la mort!
 
-Le troisième royaume, la vérité que Wang Lin recherchait, n'était pas non plus de voir à travers ou de transcender la vie et la mort. C'était une simple ligne de démarcation !
+Le troisième royaume, la vérité que Wang Lin recherchait, n'était pas non plus de voir à travers ou de transcender la vie et la mort. C'était une simple ligne de démarcation!
 
 Cette ligne envahit l'esprit de Wang Lin, mais il ne pouvait la formuler. C'était comme si une barrière l'en empêchait.
 
@@ -106,7 +106,7 @@ Il visita de nombreuses sectes. Il vit de nombreux immortels. Il vit de nombreux
 
 Quel que soit le pays ou la secte, tous savaient qu'il existait un vieil homme nommé Wang Lin, le grand érudit de cette génération, qui voyageait à travers le monde en quête de quelque chose.
 
-Ses paroles se firent rares avec l'âge. Souvent, il n'avait nul besoin de parler ; la sagesse de son regard suffisait à plonger les gens dans une transe, un état dont ils ne savaient quand ils se réveilleraient.
+Ses paroles se firent rares avec l'âge. Souvent, il n'avait nul besoin de parler; la sagesse de son regard suffisait à plonger les gens dans une transe, un état dont ils ne savaient quand ils se réveilleraient.
 
 À l'automne de la dix-neuvième année, Wang Lin arriva dans une région parsemée de volcans. À son arrivée, un volcan entra en éruption au loin. Wang Lin vit la fumée noire s'élever vers le ciel.
 

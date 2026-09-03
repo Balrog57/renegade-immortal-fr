@@ -8,15 +8,15 @@ slug: le-rugissement-du-fou
 ---
 Une onde invisible se propagea dans toutes les directions, prenant les deux hommes pour centre. Cette ondulation s'étendit à travers le monde.
 
-Wang Lin transforma sa compréhension du tonnerre et du feu en une graine, qu'il enterra profondément au cœur de Treize !
+Wang Lin transforma sa compréhension du tonnerre et du feu en une graine, qu'il enterra profondément au cœur de Treize!
 
-« Je ne te donnerai aucun trésor, seulement cette graine d'essence ! »
+« Je ne te donnerai aucun trésor, seulement cette graine d'essence! »
 
-Le corps de Treize trembla. Lorsque la paume de Wang Lin se posa sur son front, une graine dorée apparut dans son esprit. Cette graine contenait l'intégralité de la compréhension que Wang Lin avait de ses essences de feu et de tonnerre. C'était l'aura du troisième niveau !
+Le corps de Treize trembla. Lorsque la paume de Wang Lin se posa sur son front, une graine dorée apparut dans son esprit. Cette graine contenait l'intégralité de la compréhension que Wang Lin avait de ses essences de feu et de tonnerre. C'était l'aura du troisième niveau!
 
-Cette graine contenait également le lignage céleste de Wang Lin, ce qui expliquait sa couleur dorée !
+Cette graine contenait également le lignage céleste de Wang Lin, ce qui expliquait sa couleur dorée!
 
-Ce présent était comparable à un trésor céleste ; il était assez précieux pour provoquer une catastrophe. Et pourtant, Wang Lin l'offrait à son premier disciple, Treize !
+Ce présent était comparable à un trésor céleste; il était assez précieux pour provoquer une catastrophe. Et pourtant, Wang Lin l'offrait à son premier disciple, Treize!
 
 « Le Maître s'en va... » Wang Lin regarda Treize d'un regard profond et reprit la statue de l'ancien démon. Il s'éleva ensuite dans le ciel et disparut progressivement. Juste avant de s'effacer complètement, il tourna la tête pour lancer à Treize un regard empreint de tendresse, comme s'il contemplait son propre enfant, puis hocha doucement la tête.
 
@@ -42,7 +42,7 @@ Sa progression paraissait lente, mais en réalité, chaque pas couvrait de vaste
 
 Wang Lin ne se rendit pas dans le Royaume Céleste de la Pluie. Ce n'était pas par manque de volonté, mais par manque de temps. Il passa devant l'entrée cachée du Royaume Céleste de la Pluie et jeta un regard en arrière. Il devait d'abord aller chercher le fou.
 
-À l'autre extrémité du Vide Brillant se trouvait une planète. Ce n'était pas la planète Suzaku, mais une planète de cultivation de rang 7. Elle était entourée de plusieurs planètes plus petites et paraissait très paisible de loin. Comme cette zone était assez déserte, peu de cultivateurs s'y rendaient.
+À l'autre extrémité du Vide Brillant se trouvait une planète. Ce n'était pas la planète Suzaku, mais une planète de culture de rang 7. Elle était entourée de plusieurs planètes plus petites et paraissait très paisible de loin. Comme cette zone était assez déserte, peu de cultivateurs s'y rendaient.
 
 En ce moment même, dans une cité mortelle de cette planète, l'automne était déjà là. Un vent froid balayait la ville, comme s'il avait emporté quelque chose avant de repartir.
 
@@ -58,27 +58,27 @@ Cet homme marchait d'un pas hautain, flanqué de deux hommes qui le suivaient. C
 
 Ce rire fut interrompu par la feuille. Il grommela quelque chose, frappa son visage pour retirer la feuille, puis la jeta au sol avant de la piétiner avec acharnement.
 
-Tout en piétinant la feuille, il poussa un rugissement :
+Tout en piétinant la feuille, il poussa un rugissement:
 
-« Petite feuille, tu oses défier ce Roi ?! Humph, humph, voyons comment ce Roi va te traiter ! » Il piétina l'objet plus de dix fois avant que le vent ne l'emporte enfin, le forçant à abandonner.
+« Petite feuille, tu oses défier ce Roi?! Humph, humph, voyons comment ce Roi va te traiter! » Il piétina l'objet plus de dix fois avant que le vent ne l'emporte enfin, le forçant à abandonner.
 
 C'était le fou. Les deux hommes derrière lui, habitués à ses excentricités, se contentèrent d'échanger un regard.
 
-Xu Liguo cligna des yeux en regardant la feuille s'envoler et envoya un message mental à Liu Jinbiao : « Vieux Liu, je me demande si ses paroles ne cachent pas quelque chose... Il n'a pas pu nous démasquer, j'espère. »
+Xu Liguo cligna des yeux en regardant la feuille s'envoler et envoya un message mental à Liu Jinbiao: « Vieux Liu, je me demande si ses paroles ne cachent pas quelque chose... Il n'a pas pu nous démasquer, j'espère. »
 
-Liu Jinbiao se frotta le menton et répondit : « D'après mon analyse, cet homme est véritablement fou ; il ne peut donc rien deviner. Maître Xu peut être rassuré. »
+Liu Jinbiao se frotta le menton et répondit: « D'après mon analyse, cet homme est véritablement fou; il ne peut donc rien deviner. Maître Xu peut être rassuré. »
 
 Xu Liguo acquiesça. Il avait confiance en le jugement de Liu Jinbiao. Durant cette période, ils avaient collaboré pour escroquer le fou et en avaient tiré de nombreux profits.
 
-Pensant à cela, Xu Liguo afficha un sourire servile et s'approcha pour masser les épaules du fou. Il lança un regard méprisant à la feuille qui s'envolait et dit : « C'est exact, écrase-la à mort ! Qui lui a permis d'oser importuner ce Roi ? Majesté, voulez-vous que ce humble serviteur l'attrape pour que vous puissiez la piétiner davantage ? »
+Pensant à cela, Xu Liguo afficha un sourire servile et s'approcha pour masser les épaules du fou. Il lança un regard méprisant à la feuille qui s'envolait et dit: « C'est exact, écrase-la à mort! Qui lui a permis d'oser importuner ce Roi? Majesté, voulez-vous que ce humble serviteur l'attrape pour que vous puissiez la piétiner davantage? »
 
-Le fou agita la main avec un sourire fier. « Laisse tomber, ce Roi laissera partir cette feuille. Petit Xu, où est cette jeune fille dont tu parlais ? Vite, emmène ce Roi là-bas. Si ce Roi est satisfait, il te récompensera. »
+Le fou agita la main avec un sourire fier. « Laisse tomber, ce Roi laissera partir cette feuille. Petit Xu, où est cette jeune fille dont tu parlais? Vite, emmène ce Roi là-bas. Si ce Roi est satisfait, il te récompensera. »
 
 À l'évocation d'une récompense, les yeux de Xu Liguo s'illuminèrent. Cependant, Liu Jinbiao laissa échapper un raclement de gorge sec, gardant une expression impassible.
 
 « Majesté, vous n'avez apprécié aucune des précédentes. Cette fois, moi, Xu Liguo, j'ai déployé tant d'efforts pour en trouver une qui vous comblera, mais... » Sans attendre la fin de sa phrase, le fou se mordit le doigt. Le sang jaillit et il l'essuya sur Xu Liguo.
 
-« Assez ! »
+« Assez! »
 
 L'expression de Xu Liguo débordait d'excitation. Il essuya soigneusement le sang pour le recueillir avant de hocher la tête précipitamment.
 
@@ -86,32 +86,32 @@ Même Liu Jinbiao eut les yeux brillants. Il se lécha les lèvres tout en feign
 
 Sous l'impatience du fou, le trio atteignit le bord de la rue où se trouvait une boutique. Liu Jinbiao entra le premier. Dès que le fou et Xu Liguo eurent franchi le seuil, il referma immédiatement la porte. Après avoir tracé quelques sceaux pour la verrouiller, il les suivit rapidement.
 
-« Pourquoi est-ce si compliqué ?! » Avant même qu'il ne soit entré, le rugissement du fou retentit.
+« Pourquoi est-ce si compliqué?! » Avant même qu'il ne soit entré, le rugissement du fou retentit.
 
 Un réseau de transfert se trouvait dans l'arrière-boutique. Ce dispositif était rudimentaire et semblait avoir été installé récemment. Le fou, debout devant le réseau, hurla sur Xu Liguo.
 
-Xu Liguo afficha un sourire mielleux et se frotta les mains : « Majesté, ce humble serviteur vous a trouvé une cultivatrice au stade du Yang Corporel. Elle avait refusé au départ, mais j'ai dû déployer de grands efforts pour la convaincre. Cependant, en raison de son statut noble, elle est particulièrement prudente. »
+Xu Liguo afficha un sourire mielleux et se frotta les mains: « Majesté, ce humble serviteur vous a trouvé une cultivatrice au stade du Yang Corporel. Elle avait refusé au départ, mais j'ai dû déployer de grands efforts pour la convaincre. Cependant, en raison de son statut noble, elle est particulièrement prudente. »
 
-Le visage du fou était marqué par l'impatience et il pinça les lèvres. « Nous venons ici depuis tant de jours et nous n'avons pas réussi une seule fois ! Si ce n'est pas un succès cette fois, ce Roi ne jouera plus ! Ce n'est pas aussi amusant que tu le prétends ; quel genre de divertissement ce Roi n'a-t-il pas déjà expérimenté ? »
+Le visage du fou était marqué par l'impatience et il pinça les lèvres. « Nous venons ici depuis tant de jours et nous n'avons pas réussi une seule fois! Si ce n'est pas un succès cette fois, ce Roi ne jouera plus! Ce n'est pas aussi amusant que tu le prétends; quel genre de divertissement ce Roi n'a-t-il pas déjà expérimenté? »
 
-Xu Liguo sourit d'un air extatique et reprit promptement : « Une fois que Majesté aura goûté à cela, vous saurez que je ne mens pas. C'est simplement que ce humble serviteur n'a pas assez de pierres spirituelles pour activer la formation. »
+Xu Liguo sourit d'un air extatique et reprit promptement: « Une fois que Majesté aura goûté à cela, vous saurez que je ne mens pas. C'est simplement que ce humble serviteur n'a pas assez de pierres spirituelles pour activer la formation. »
 
-Le fou grommela et hésita un instant avant de presser une goutte de sang pour la donner à Xu Liguo. Il murmura pour lui-même : « Le sang de ce Roi est très précieux. Autrefois, celui qui, qui, qui... »
+Le fou grommela et hésita un instant avant de presser une goutte de sang pour la donner à Xu Liguo. Il murmura pour lui-même: « Le sang de ce Roi est très précieux. Autrefois, celui qui, qui, qui... »
 
 Xu Liguo ignora les divagations du fou et recueillit le sang avec enthousiasme. Après l'avoir mis de côté, il adressa un clin d'œil à Liu Jinbiao. Ce dernier, imperturbable, activa le réseau de transfert pendant que le fou ne regardait pas. Dans un éclat de lumière, les trois disparurent.
 
 Un flash de lumière jaillit dans une vallée et trois silhouettes apparurent. Cependant, peu après, le fou se remit à rugir.
 
-« Pourquoi y a-t-il encore un autre réseau de transfert ? Ce Roi... ce Roi ne jouera plus ! » Xu Liguo avait réussi d'une manière ou d'une autre à convaincre le fou, et un instant plus tard, une nouvelle lueur jaillit. La vallée retrouva son calme.
+« Pourquoi y a-t-il encore un autre réseau de transfert? Ce Roi... ce Roi ne jouera plus! » Xu Liguo avait réussi d'une manière ou d'une autre à convaincre le fou, et un instant plus tard, une nouvelle lueur jaillit. La vallée retrouva son calme.
 
 Ainsi, après chaque rugissement du fou, des éclats de lumière se produisaient dans plus de dix lieux différents. Les cris du fou devenaient de plus en plus intenses.
 
-« Combien de réseaux de transfert y a-t-il donc ? Ce Roi ne jouera vraiment plus, je dis bien plus ! Vous me harcelez, vous dépassez les bornes ! Je vais le dire à mon Maître ! »
+« Combien de réseaux de transfert y a-t-il donc? Ce Roi ne jouera vraiment plus, je dis bien plus! Vous me harcelez, vous dépassez les bornes! Je vais le dire à mon Maître! »
 
-Cette dernière phrase sembla produire un effet immédiat. Le corps de Xu Liguo trembla et même les paupières de Liu Jinbiao tressaillirent. Il regarda anxieusement Xu Liguo ; il semblait que cette menace l'avait terrifié. Durant cette période, ils avaient appris que le fou avait pris Wang Lin pour maître.
+Cette dernière phrase sembla produire un effet immédiat. Le corps de Xu Liguo trembla et même les paupières de Liu Jinbiao tressaillirent. Il regarda anxieusement Xu Liguo; il semblait que cette menace l'avait terrifié. Durant cette période, ils avaient appris que le fou avait pris Wang Lin pour maître.
 
-Xu Liguo fut frappé de stupeur. Pendant ces derniers jours, il avait presque oublié ce démon redoutable. Il s'exclama précipitamment : « C'est la dernière ! C'est la toute dernière ! Celle-ci ne nécessite pas de pierres spirituelles. Une fois arrivés, nous pourrons voir cette petite fille. »
+Xu Liguo fut frappé de stupeur. Pendant ces derniers jours, il avait presque oublié ce démon redoutable. Il s'exclama précipitamment: « C'est la dernière! C'est la toute dernière! Celle-ci ne nécessite pas de pierres spirituelles. Une fois arrivés, nous pourrons voir cette petite fille. »
 
 À cet instant, une ondulation résonna à l'extérieur de la planète et Wang Lin apparut. Il observa la planète et fronça les sourcils, un éclair de froideur traversant son regard.
 
-« Balivernes ! »
+« Balivernes! »

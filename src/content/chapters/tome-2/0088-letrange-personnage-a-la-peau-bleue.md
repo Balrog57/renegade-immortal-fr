@@ -6,13 +6,13 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 88 - The Strange Blue Skinned Person
 slug: letrange-personnage-a-la-peau-bleue
 ---
-Touchant son ventre, Wang Lin murmura : « Je comprends enfin pourquoi on appelle cela la Méthode d'Ascension vers le Royaume des Morts. »
+Touchant son ventre, Wang Lin murmura: « Je comprends enfin pourquoi on appelle cela la Méthode d'Ascension vers le Royaume des Morts. »
 
 La Méthode d'Ascension vers le Royaume des Morts plonge celui qui la pratique dans un état proche de la mort. On utilise cet état, à la frontière du monde souterrain, pour faciliter l'absorption de l'énergie Yin par le corps. Cependant, si une erreur est commise, on risque de basculer véritablement dans l'au-delà.
 
 En vérité, même dans un pays de rang 6, peu de gens ont le courage de pratiquer cette méthode. Situ Nan était l'un des rares à avoir réussi à la maîtriser. Même parmi tous les cultivateurs démoniaques des pays de rang 6, elle était encore considérée comme une technique singulière.
 
-La raison pour laquelle elle est jugée si étrange réside dans l'ampleur du changement qu'elle provoque. Pour certains, cette métamorphose est bénéfique au cultivateur ; pour d'autres, elle signifie la mort.
+La raison pour laquelle elle est jugée si étrange réside dans l'ampleur du changement qu'elle provoque. Pour certains, cette métamorphose est bénéfique au cultivateur; pour d'autres, elle signifie la mort.
 
 Wang Lin commença à vivre dans les ruines. Chaque nuit, il pratiquait et absorbait l'énergie Yin. Un mois s'était écoulé.
 
@@ -32,7 +32,7 @@ Au fil du temps, Wang Lin commença à absorber de plus en plus d'énergie Yin. 
 
 Il y eut même quelques fois où ses battements faillirent s'interrompre totalement, mais il réussit à tenir bon.
 
-Un matin, Wang Lin s'éveilla de sa transe. Il prit une profonde inspiration et dit : « J'ai absorbé une grande quantité d'énergie Yin. Je devrais être capable de réaliser ma première percée maintenant. »
+Un matin, Wang Lin s'éveilla de sa transe. Il prit une profonde inspiration et dit: « J'ai absorbé une grande quantité d'énergie Yin. Je devrais être capable de réaliser ma première percée maintenant. »
 
 Soudain, il fixa la formation brumeuse environnante et afficha un air confus. D'un revers de manche, il ouvrit un passage dans la brume.
 
@@ -40,7 +40,7 @@ En sortant de la formation, Wang Lin vit plusieurs traces profondes s'enfonçant
 
 Mais désormais, les cadavres des bêtes avaient disparu. Ils semblaient avoir été traînés vers les profondeurs des ruines.
 
-« Pourrait-il encore y avoir des gens dans ces ruines ? » Une pensée glaciale traversa l'esprit de Wang Lin. Si cette personne était venue pour emporter les cadavres, comment n'avait-elle pas remarqué sa présence ?
+« Pourrait-il encore y avoir des gens dans ces ruines? » Une pensée glaciale traversa l'esprit de Wang Lin. Si cette personne était venue pour emporter les cadavres, comment n'avait-elle pas remarqué sa présence?
 
 Le regard de Wang Lin se fit plus sérieux. Il inspecta rapidement les environs et constata qu'il n'y avait aucun signe d'attaque sur ses formations.
 
@@ -64,7 +64,7 @@ Ses yeux se fixèrent sur l'agitation de l'énergie Yin tandis qu'il observait l
 
 Il vit que, suite au trouble de l'énergie Yin, une silhouette apparut brusquement. La vitesse de cette silhouette était fulgurante. Le Sens Divin de Wang Lin n'aperçut qu'une ombre avant que les deux carcasses ne disparaissent.
 
-Wang Lin fut surpris. Lors de cette première apparition, il put distinguer la forme de l'intrus : une créature humanoïde à la peau bleue.
+Wang Lin fut surpris. Lors de cette première apparition, il put distinguer la forme de l'intrus: une créature humanoïde à la peau bleue.
 
 La peau de l'individu était couverte de symboles étranges. De plus, neuf papiers jaunes d'un demi-pouce étaient apposés sur différentes parties de son corps. Cet étrange personnage surprit grandement Wang Lin.
 
@@ -72,7 +72,7 @@ L'étranger réapparut. Il se tenait à l'extérieur de la formation de Wang Lin
 
 Il fit quelques pas en arrière et fixa la brume d'un air dubitatif. Après une courte hésitation, il contourna la formation une fois.
 
-Wang Lin concentra toute son attention sur l'étranger sans pour autant attaquer ; il voulait voir ce dont cet individu était capable.
+Wang Lin concentra toute son attention sur l'étranger sans pour autant attaquer; il voulait voir ce dont cet individu était capable.
 
 Après avoir fait le tour de la formation brumeuse, l'étranger afficha un regard curieux, puis chargea la formation.
 
@@ -108,16 +108,16 @@ Wang Lin ne cilla pas. Il cracha une bouffée de puissance spirituelle dans le t
 
 L'individu poussa un cri de douleur alors que son corps était à nouveau transpercé.
 
-« Toujours pas mort ! » Le cœur de Wang Lin s'effondra. Malgré de tels dégâts, il restait en vie. Ce qui rassura quelque peu Wang Lin fut qu'après l'impact du talisman, l'épée parvint à se libérer pour revenir à ses côtés.
+« Toujours pas mort! » Le cœur de Wang Lin s'effondra. Malgré de tels dégâts, il restait en vie. Ce qui rassura quelque peu Wang Lin fut qu'après l'impact du talisman, l'épée parvint à se libérer pour revenir à ses côtés.
 
 Le regard de l'étranger trahissait une lutte désespérée. Soudain, il arracha l'un des neuf papiers jaunes. Au moment où le papier fut déchiré, un gaz vert jaillit de tout son corps et l'enveloppa complètement.
 
 Le visage de Wang Lin s'assombrit. Sans hésiter, il rengaina l'épée et la poussa sur les deux tiers de sa longueur. La lame passa alors rapidement du noir au rouge.
 
-Les deux tiers représentaient la limite de ce que Wang Lin pouvait accomplir. Avec sa cultivation au stade initial de l'Établissement des Fondations, et l'épée insérée à ce niveau dans son fourreau, il pouvait tenir tête à des cultivateurs au stade intermédiaire de l'Établissement des Fondations.
+Les deux tiers représentaient la limite de ce que Wang Lin pouvait accomplir. Avec sa culture au stade initial de l'Établissement des Fondations, et l'épée insérée à ce niveau dans son fourreau, il pouvait tenir tête à des cultivateurs au stade intermédiaire de l'Établissement des Fondations.
 
 À cet instant précis, le gaz vert entourant l'étranger fut rapidement absorbé par son corps. Lorsqu'il réapparut devant Wang Lin, son corps était parfaitement intact, sans la moindre trace de blessure.
 
 Il fixa Wang Lin avec haine, bien qu'il ressente manifestement une grande crainte envers lui, principalement à cause de cette épée volante.
 
-« Qui es-tu ? » Wang Lin n'attaqua pas immédiatement. L'autre possédait neuf talismans ; l'utilisation de l'un d'eux lui permettait de se rétablir totalement d'un état proche de la mort. Cette bataille serait extrêmement longue pour Wang Lin s'il voulait l'emporter.
+« Qui es-tu? » Wang Lin n'attaqua pas immédiatement. L'autre possédait neuf talismans; l'utilisation de l'un d'eux lui permettait de se rétablir totalement d'un état proche de la mort. Cette bataille serait extrêmement longue pour Wang Lin s'il voulait l'emporter.

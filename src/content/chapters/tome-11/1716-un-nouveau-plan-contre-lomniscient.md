@@ -1,22 +1,22 @@
 ---
 n: 1716
-title: "Un nouveau plan contre l'Omniscient !"
+title: "Un nouveau plan contre l'Omniscient!"
 book: 11
 bookTitle: Mysteries of the Ancient Era
-en: "Chapter 1716 - Scheme Again All-Seer!"
+en: "Chapter 1716 - Scheme Again Omniscient!"
 slug: un-nouveau-plan-contre-lomniscient
 ---
-Chapitre 1716 - Un nouveau plan contre l'Omniscient !
+Chapitre 1716 - Un nouveau plan contre l'Omniscient!
 
 Aux abords de la fissure spatiale dans la Mer des Nuages, une multitude de bêtes féroces s'étaient rassemblées. Elles n'avaient pas oublié la tempête de restrictions qui les avait expulsées de la faille quelques mois auparavant.
 
-Cependant, la fissure spatiale était leur demeure ; elles restaient donc aux alentours, refusant de s'en éloigner.
+Cependant, la fissure spatiale était leur demeure; elles restaient donc aux alentours, refusant de s'en éloigner.
 
-Avec le temps, l'irritation de ces bêtes grandissait, mais aucune n'osait franchir le seuil ; elles ne pouvaient qu'émettre de sourds grognements. Ce jour-là, une silhouette blanche émergea lentement de la fissure spatiale, et son apparition fit immédiatement reculer les bêtes.
+Avec le temps, l'irritation de ces bêtes grandissait, mais aucune n'osait franchir le seuil; elles ne pouvaient qu'émettre de sourds grognements. Ce jour-là, une silhouette blanche émergea lentement de la fissure spatiale, et son apparition fit immédiatement reculer les bêtes.
 
 Elles percevaient clairement l'aura terrifiante qui émanait du corps de Wang Lin.
 
-Alors que Wang Lin sortait de la faille, son regard balaya la masse de bêtes féroces. Mais il ne marqua aucune pause ; d'un pas assuré, il avança et disparut.
+Alors que Wang Lin sortait de la faille, son regard balaya la masse de bêtes féroces. Mais il ne marqua aucune pause; d'un pas assuré, il avança et disparut.
 
 Ce n'est que bien longtemps après le départ de Wang Lin que les bêtes environnantes se rapprochèrent lentement de la faille spatiale. Quelques-unes s'y aventurèrent avec prudence et, après avoir constaté l'absence de danger, une multitude d'entre elles regagnèrent l'intérieur de la fissure.
 
@@ -26,7 +26,7 @@ Le continent flottant, entouré d'une rivière argentée, dégageait une lueur d
 
 En contemplant ce lieu, l'expression de Wang Lin perdit sa froideur. C'était un endroit qu'il avait lui-même créé, le seul autre foyer qu'il considérait comme tel dans ce monde caverneux, après la planète Suzaku.
 
-Beaucoup de personnes qu'il connaissait se trouvaient ici ; il ne pouvait donc abandonner cet endroit.
+Beaucoup de personnes qu'il connaissait se trouvaient ici; il ne pouvait donc abandonner cet endroit.
 
 « La rivière argentée du Fleuve Invoqué contient de nombreuses restrictions, mais elle n'est pas assez puissante... » Auparavant, Wang Lin n'avait pas eu la capacité de renforcer ces restrictions, mais désormais, il le pouvait.
 
@@ -38,15 +38,15 @@ Wang Lin leva sa main droite et fit un geste. Les lignes de sang dans ses yeux a
 
 Une fois cela accompli, Wang Lin leva les yeux vers les étoiles. Les lignes floues des lois apparurent devant lui. D'un mouvement de la main droite, il fit converger une multitude de ces lignes autour de la rivière argentée.
 
-« Cela devrait permettre au Royaume Céleste de rester en sécurité pendant la recherche de la troisième âme ! » Wang Lin médita silencieusement un instant, puis se dirigea vers la rivière argentée.
+« Cela devrait permettre au Royaume Céleste de rester en sécurité pendant la recherche de la troisième âme! » Wang Lin médita silencieusement un instant, puis se dirigea vers la rivière argentée.
 
-Dès qu'il pénétra dans le Royaume Céleste, Maître Hong Shan et ses compagnons le remarquèrent. Ils sortirent tous de leur cultivation et s'élancèrent dans les airs.
+Dès qu'il pénétra dans le Royaume Céleste, Maître Hong Shan et ses compagnons le remarquèrent. Ils sortirent tous de leur culture et s'élancèrent dans les airs.
 
-Qing Lin, Qing Shui, Situ Nan, Maître South Cloud et les autres flottaient là ; en voyant la silhouette blanche au loin, ils sourirent.
+Qing Lin, Qing Shui, Situ Nan, Maître South Cloud et les autres flottaient là; en voyant la silhouette blanche au loin, ils sourirent.
 
 De nombreuses autres personnes familières à Wang Lin le remarquèrent également. En apercevant cette silhouette blanche, leurs visages s'illuminèrent de sourires.
 
-Wang Lin regarda ces visages connus et ces sourires chaleureux, et il sourit à son tour. Il vit Red Butterfly aux côtés de Qing Shui ; il était évident que le père et la fille avaient appris à se connaître.
+Wang Lin regarda ces visages connus et ces sourires chaleureux, et il sourit à son tour. Il vit Papillon Rouge aux côtés de Qing Shui; il était évident que le père et la fille avaient appris à se connaître.
 
 Il vit Qing Shuang derrière Qing Lin, et au loin, un homme à l'air mélancolique. Ce dernier regardait silencieusement Qing Shuang. Son expression était complexe et triste, mais surtout, empreinte de satisfaction.
 
@@ -58,15 +58,15 @@ Son regard balaya l'assemblée et il esquissa un doux sourire.
 
 « Je suis rentré à la maison. »
 
-Ces trois mots déclenchèrent une explosion de acclamations dans le Royaume Céleste. La partie occidentale du royaume était autrefois vide, mais un clan issu du Système Stellaire Antique s'y était installé : le Clan de la Soie Bleue.
+Ces trois mots déclenchèrent une explosion de acclamations dans le Royaume Céleste. La partie occidentale du royaume était autrefois vide, mais un clan issu du Système Stellaire Antique s'y était installé: le Clan de la Soie Bleue.
 
-Le Maître Dao Blue Dream était assis dans une hutte qu'il avait bâtie lui-même ; il leva les yeux vers le ciel et afficha un sourire. Sa fille, Li Qianmei, n'était pas à ses côtés, étant entrée en cultivation fermée.
+Le Maître Dao Blue Dream était assis dans une hutte qu'il avait bâtie lui-même; il leva les yeux vers le ciel et afficha un sourire. Sa fille, Li Qianmei, n'était pas à ses côtés, étant entrée en culture fermée.
 
-Le Maître Dao Blue Dream estimait que la cultivation de Li Qianmei était encore insuffisante ; c'est pourquoi, lorsqu'il avait emmené les membres du Clan de la Soie Bleue ici, il l'avait contrainte à une cultivation isolée afin qu'elle puisse appréhender son essence.
+Le Maître Dao Blue Dream estimait que la culture de Li Qianmei était encore insuffisante; c'est pourquoi, lorsqu'il avait emmené les membres du Clan de la Soie Bleue ici, il l'avait contrainte à une culture isolée afin qu'elle puisse appréhender son essence.
 
 Après avoir simplement échangé avec plusieurs de ses amis, Wang Lin s'éloigna. Il était accompagné de Situ Nan, Zhou Ru, Big Head, Treize et d'autres. Ils s'installèrent dans les montagnes du nord.
 
-Durant cette période, Wang Lin était allé rendre visite au Maître Dao Blue Dream. Lorsqu'il apprit que Li Qianmei était en cultivation fermée, il poussa un soupir de soulagement pour une raison qui lui échappait.
+Durant cette période, Wang Lin était allé rendre visite au Maître Dao Blue Dream. Lorsqu'il apprit que Li Qianmei était en culture fermée, il poussa un soupir de soulagement pour une raison qui lui échappait.
 
 Peut-être parce qu'il ignorait ce qu'il aurait pu lui dire s'il avait vu Li Qianmei. Lui-même ne savait pas si le sentiment qui l'unissait à elle était de la simple gratitude ou de l'amour.
 
@@ -76,7 +76,7 @@ Le nouveau Royaume Céleste ressemblait à un paradis, loin des disputes qui sec
 
 Wang Lin vivait sur une montagne, dans une demeure très simple. Cet endroit était son foyer.
 
-Zhou Ru ne partait jamais ; elle accompagnait Wang Lin comme une fille. Elle lui lançait parfois des regards empreints d'un profond attachement.
+Zhou Ru ne partait jamais; elle accompagnait Wang Lin comme une fille. Elle lui lançait parfois des regards empreints d'un profond attachement.
 
 En voyant la maturité de Zhou Ru, Wang Lin ressentait de la chaleur, mais aussi de la douleur. Cette douleur venait de ses pensées pour Li Muwan et de ce qui s'était passé sur la planète Suzaku.
 
@@ -84,9 +84,9 @@ Il avait le sentiment d'avoir fait du tort à Wan Er. Sa souffrance était un se
 
 Il y avait aussi Treize et Big Head. Ils cultivaient ici. Grâce aux conseils occasionnels de Wang Lin, ils avaient acquis de nombreux éveils. Wang Lin avait restitué le sang spirituel de Big Head et levé le sceau de serviteur, lui offrant ainsi sa liberté.
 
-Pourtant, Big Head ne choisit pas de partir ; parfois, il contemplait le ciel avec mélancolie. Wang Lin savait qu'il avait le mal du pays, mais que son foyer n'existait plus. Ses souvenirs d'une enfance douloureuse étaient devenus précieux, et il refusait de s'en défaire.
+Pourtant, Big Head ne choisit pas de partir; parfois, il contemplait le ciel avec mélancolie. Wang Lin savait qu'il avait le mal du pays, mais que son foyer n'existait plus. Ses souvenirs d'une enfance douloureuse étaient devenus précieux, et il refusait de s'en défaire.
 
-Treize était un homme simple qui ne se compliquait pas l'esprit. Il ne souhaitait qu'une chose : cultiver pour devenir le disciple le plus puissant de son maître. Si celui-ci avait besoin de lui, il sacrifierait tout, y compris sa vie.
+Treize était un homme simple qui ne se compliquait pas l'esprit. Il ne souhaitait qu'une chose: cultiver pour devenir le disciple le plus puissant de son maître. Si celui-ci avait besoin de lui, il sacrifierait tout, y compris sa vie.
 
 Quant à Situ Nan, il passait ses journées à boire du vin avec Wang Lin en lui tapotant le dos. Il paraissait très heureux et, lorsqu'ils buvaient, c'était comme s'il avait oublié tous ses soucis.
 
@@ -102,7 +102,7 @@ Ils organiseraient la transmission de ces sorts, ce qui accroîtrait la puissanc
 
 Pendant ce temps, à l'extérieur du royaume, un immense chaos se préparait. Les quatre généraux célestes utilisaient une méthode singulière pour traquer la troisième âme. Ils avaient combiné leurs pouvoirs et, avec l'appui de la lignée céleste de nombreux êtres, ils avaient formé une formation de recherche.
 
-Bien entendu, il existait des méthodes spéciales inconnues ; des secrets que même Wang Lin ignorait.
+Bien entendu, il existait des méthodes spéciales inconnues; des secrets que même Wang Lin ignorait.
 
 Hormis les anciens êtres célestes menés par les quatre généraux, le Vieux Fantôme Zhan ne bougeait pas d'un iota. Son Sens Divin restait focalisé sur les quatre généraux, observant leurs recherches.
 
@@ -114,16 +114,16 @@ Ils semblaient employer un type de sort spécifique, né des batailles entre les
 
 Wang Lin cherchait lui aussi la troisième âme. Durant ce mois, il passa la majeure partie de son temps à étudier l'usage de la Voile Fantomatique et le contrôle du sort d'illusion qu'elle contenait.
 
-Cela exigerait du temps, et malgré son impatience, il n'y avait pas de raccourci possible. Cependant, comparée à la recherche de la troisième âme, une autre épine dans le cœur de Wang Lin devait être retirée en priorité !
+Cela exigerait du temps, et malgré son impatience, il n'y avait pas de raccourci possible. Cependant, comparée à la recherche de la troisième âme, une autre épine dans le cœur de Wang Lin devait être retirée en priorité!
 
-Même s'il ne pouvait l'arracher, il devait identifier la source de cette épine et comprendre comment elle pourrait être fatale !
+Même s'il ne pouvait l'arracher, il devait identifier la source de cette épine et comprendre comment elle pourrait être fatale!
 
-Cette épine était l'Omniscient !
+Cette épine était l'Omniscient!
 
-Ce n'était pas la première fois que Wang Lin complotait contre l'Omniscient, mais c'était la première fois qu'il s'apprêtait à trancher cet enchevêtrement de mille ans !
+Ce n'était pas la première fois que Wang Lin complotait contre l'Omniscient, mais c'était la première fois qu'il s'apprêtait à trancher cet enchevêtrement de mille ans!
 
 « Omniscient, où te caches-tu... » Wang Lin était assis devant sa demeure quand ses yeux s'illuminèrent. Il ferma les paupières et s'immergea dans le fragment de l'âme de l'Omniscient qu'il avait conservé jusqu'à présent.
 
-Il allait utiliser cette âme pour localiser le corps originel de l'Omniscient et l'exterminer !
+Il allait utiliser cette âme pour localiser le corps originel de l'Omniscient et l'exterminer!
 
-Tant que l'Omniscient ne serait pas éliminé, Wang Lin ne pourrait connaître la paix. Cet homme était la plus grande variable, après la troisième âme !
+Tant que l'Omniscient ne serait pas éliminé, Wang Lin ne pourrait connaître la paix. Cet homme était la plus grande variable, après la troisième âme!

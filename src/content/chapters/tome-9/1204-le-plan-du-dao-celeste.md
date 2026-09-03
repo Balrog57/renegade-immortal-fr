@@ -10,25 +10,25 @@ C'était comme s'il ne touchait pas un os, mais un vortex inimaginable. Son Sens
 
 Privé de tout contrôle, une force d'aspiration phénoménale entraînait le Sens Divin de Wang Lin toujours plus profondément.
 
-Wang Lin était tel un esquif solitaire sur des vagues déchaînées. Aspiré par le vortex, il avait l'impression de voyager à travers le temps vers une époque qu'il n'avait jamais connue !
+Wang Lin était tel un esquif solitaire sur des vagues déchaînées. Aspiré par le vortex, il avait l'impression de voyager à travers le temps vers une époque qu'il n'avait jamais connue!
 
 Des grondements tonitruants résonnaient avec force dans son esprit. Si quelqu'un l'avait observé depuis l'extérieur de la grotte, il aurait vu le corps de Wang Lin trembler, son visage pâlir et se crisper de douleur. Sa main droite tressaillait violemment, mais restait désespérément collée au squelette.
 
-Soudain, ce squelette émit un éclat doré. Cependant, à l'instant même où cette lumière d'or apparut, les inscriptions sur l'os projetèrent une lueur noire, tentant de réprimer l'éclat doré. Les deux forces entamèrent un combat acharné !
+Soudain, ce squelette émit un éclat doré. Cependant, à l'instant même où cette lumière d'or apparut, les inscriptions sur l'os projetèrent une lueur noire, tentant de réprimer l'éclat doré. Les deux forces entamèrent un combat acharné!
 
 C'était un monde empreint de chaos, où il était impossible de distinguer le ciel de la terre. Ce monde semblait exister, tout en paraissant n'être qu'une illusion. Dans le vide lointain, une silhouette s'avança lentement. C'était un homme vêtu de blanc, ressemblant à un vieillard, mais sa forme restait floue, rendant toute observation précise impossible.
 
-Il leva la tête et scruta le ciel comme s'il était plongé dans une profonde réflexion. Mais soudain, une lumière aux sept couleurs déferla. Cette vague chromatique déchira le monde, provoquant l'effondrement du chaos originel. Le ciel n'était plus le ciel, la terre n'était plus la terre ; tout était devenu espace !
+Il leva la tête et scruta le ciel comme s'il était plongé dans une profonde réflexion. Mais soudain, une lumière aux sept couleurs déferla. Cette vague chromatique déchira le monde, provoquant l'effondrement du chaos originel. Le ciel n'était plus le ciel, la terre n'était plus la terre; tout était devenu espace!
 
-Pourtant, cet espace n'était pas noir, mais de sept couleurs !
+Pourtant, cet espace n'était pas noir, mais de sept couleurs!
 
-Ce monde était devenu un royaume aux sept couleurs !
+Ce monde était devenu un royaume aux sept couleurs!
 
-Le vieillard en blanc redressa brusquement la tête et agita sa main droite. Le mot « Bataille » apparut ! Le monde enveloppa son corps et dégagea une lueur dorée infinie qui repoussa la lumière arc-en-ciel.
+Le vieillard en blanc redressa brusquement la tête et agita sa main droite. Le mot « Bataille » apparut! Le monde enveloppa son corps et dégagea une lueur dorée infinie qui repoussa la lumière arc-en-ciel.
 
 À cet instant précis, une voix puissante résonna à travers l'univers.
 
-« Le monde naît de l'origine ; le ciel est le commencement, la terre est la fin. Ce que ce vieillard cultive est l'essence même de l'origine du monde. Loi de l'origine, guide aux sept couleurs, sceau ! »
+« Le monde naît de l'origine; le ciel est le commencement, la terre est la fin. Ce que ce vieillard cultive est l'essence même de l'origine du monde. Loi de l'origine, guide aux sept couleurs, sceau! »
 
 D'un seul mot, toute la lumière aux sept couleurs de ce monde s'agita comme sous l'emprise d'une force souveraine. Cette clarté infinie convergea vers le vieillard avec frénésie.
 
@@ -36,7 +36,7 @@ C'était comme si le monde s'était inversé, toute la lumière se rassemblant p
 
 La lumière aux sept couleurs fulgura une dernière fois, comme si le monde allait s'effondrer. Des rugissements éclatèrent de l'intérieur de ce royaume chromatique, mais ils s'étouffèrent peu à peu jusqu'à se dissiper.
 
-« Zhan Xingye, si ce vieillard ne t'avait pas offert le Parchemin de la Bataille, comment aurais-tu pu atteindre le stade du Vide Spirituel ? Si je m'empare de l'âme de ta lignée Zhan, je pourrai m'en servir de guide pour découvrir où ce Vieux Fantôme Zhan a caché ses restes pour sa Tribulation du Vide. Ensuite, je prendrai son squelette et j'extirperai l'essence du Dao de vous deux ! Je détruirai son nirvana et accomplirai le plan céleste ! » La voix ancienne du Souverain semblait épuisée et s'évanouit progressivement.
+« Zhan Xingye, si ce vieillard ne t'avait pas offert le Parchemin de la Bataille, comment aurais-tu pu atteindre le stade du Vide Spirituel? Si je m'empare de l'âme de ta lignée Zhan, je pourrai m'en servir de guide pour découvrir où ce Vieux Fantôme Zhan a caché ses restes pour sa Tribulation du Vide. Ensuite, je prendrai son squelette et j'extirperai l'essence du Dao de vous deux! Je détruirai son nirvana et accomplirai le plan céleste! » La voix ancienne du Souverain semblait épuisée et s'évanouit progressivement.
 
 Simultanément, le monde dans lequel Wang Lin se trouvait commença à se briser. Il eut l'impression que son âme originelle allait s'effondrer et se désintégrer avec lui.
 
@@ -46,31 +46,31 @@ C'est alors que l'épée cristalline que Wang Lin avait laissée dans la grotte 
 
 Le corps de Wang Lin trembla lorsqu'il reprit ses esprits, et il recula sans hésiter. Il fixa le squelette, l'esprit en plein tumulte.
 
-« L'ancêtre de la famille Zhan, Zhan Xingye ! »
+« L'ancêtre de la famille Zhan, Zhan Xingye! »
 
 L'expression de Wang Lin devint sombre. Il savait que l'ancêtre de la famille Zhan d'Allheaven avait disparu parmi les étoiles, sans laisser de trace. Zhan Xingye était un talent hors du commun qui, à un moment donné, avait découvert accidentellement le Parchemin de la Bataille. Il l'avait étudié pour maîtriser le Domaine de la Bataille avant de disparaître en quête d'un royaume supérieur.
 
 Malgré les recherches de ses descendants, personne n'avait jamais retrouvé la moindre piste sur sa localisation.
 
-« Je n'aurais jamais pensé que ce... serait Zhan Xingye ! »
+« Je n'aurais jamais pensé que ce... serait Zhan Xingye! »
 
-« La personne qui a tué Zhan Xingye en utilisant la loi de l'origine pourrait bien être le Souverain ! » Le visage de Wang Lin s'assombrit davantage. En repensant aux événements, son cœur se glaça. Cette lumière aux sept couleurs était un sortilège similaire à Nuit Brisée, mais bien plus puissant. Un seul sort suffisait à terrasser Zhan Xingye sans qu'il puisse opposer la moindre résistance !
+« La personne qui a tué Zhan Xingye en utilisant la loi de l'origine pourrait bien être le Souverain! » Le visage de Wang Lin s'assombrit davantage. En repensant aux événements, son cœur se glaça. Cette lumière aux sept couleurs était un sortilège similaire à Nuit Brisée, mais bien plus puissant. Un seul sort suffisait à terrasser Zhan Xingye sans qu'il puisse opposer la moindre résistance!
 
 La gorge de Wang Lin devint sèche. Tout en réfléchissant, il fronça les sourcils et ses yeux s'illuminèrent d'une lueur de compréhension.
 
-« Quelque chose ne va pas ! Si Zhan Xingye a été tué ainsi, comment une volonté aussi claire peut-elle encore subsister ? S'il est mort, sa volonté aurait dû se dissiper. Même si elle persiste, elle ne devrait pas être aussi nette... De plus, la voix du Souverain à la fin semblait manifestement épuisée... » Des idées défilaient dans l'esprit de Wang Lin, mais il ne parvenait pas à trouver de réponse définitive.
+« Quelque chose ne va pas! Si Zhan Xingye a été tué ainsi, comment une volonté aussi claire peut-elle encore subsister? S'il est mort, sa volonté aurait dû se dissiper. Même si elle persiste, elle ne devrait pas être aussi nette... De plus, la voix du Souverain à la fin semblait manifestement épuisée... » Des idées défilaient dans l'esprit de Wang Lin, mais il ne parvenait pas à trouver de réponse définitive.
 
-« Vide Spirituel, Tribulation du Vide ! S'agirait-il de deux royaumes de la troisième étape ? Lorsque j'ai étudié les Parchemins de la Bataille, j'ai vu un vieillard. Ce sont ces Parchemins qui ont été créés par lui. Il avait dit que son niveau de cultivation avait atteint le vide et qu'il allait réaliser une percée. Se pourrait-il... se pourrait-il qu'il soit ce "Vieux Fantôme Zhan" mentionné par le Souverain ? »
+« Vide Spirituel, Tribulation du Vide! S'agirait-il de deux royaumes de la troisième étape? Lorsque j'ai étudié les Parchemins de la Bataille, j'ai vu un vieillard. Ce sont ces Parchemins qui ont été créés par lui. Il avait dit que son niveau de culture avait atteint le vide et qu'il allait réaliser une percée. Se pourrait-il... se pourrait-il qu'il soit ce "Vieux Fantôme Zhan" mentionné par le Souverain? »
 
-« D'après ses paroles, ce Souverain semble craindre ce Vieux Fantôme Zhan. Afin de découvrir où ce dernier avait caché ses os, le Souverain a offert le Parchemin de la Bataille à Zhan Xingye. Il l'a laissé maîtriser le domaine de la bataille avant de le tuer pour s'emparer de son âme. Tout cela n'était qu'un rouage du plan céleste. Mais quel est donc ce plan ? » L'esprit de Wang Lin s'éclaircit. Bien que certaines zones d'ombre subsistent, ses pensées étaient désormais limpides.
+« D'après ses paroles, ce Souverain semble craindre ce Vieux Fantôme Zhan. Afin de découvrir où ce dernier avait caché ses os, le Souverain a offert le Parchemin de la Bataille à Zhan Xingye. Il l'a laissé maîtriser le domaine de la bataille avant de le tuer pour s'emparer de son âme. Tout cela n'était qu'un rouage du plan céleste. Mais quel est donc ce plan? » L'esprit de Wang Lin s'éclaircit. Bien que certaines zones d'ombre subsistent, ses pensées étaient désormais limpides.
 
-« Les quatre tablettes de pierre et les deux squelettes intacts. Ce premier squelette appartient à Zhan Xingye ; le second pourrait-il être celui de son ancêtre, le Vieux Fantôme Zhan ? » Wang Lin prit une profonde inspiration glacée.
+« Les quatre tablettes de pierre et les deux squelettes intacts. Ce premier squelette appartient à Zhan Xingye; le second pourrait-il être celui de son ancêtre, le Vieux Fantôme Zhan? » Wang Lin prit une profonde inspiration glacée.
 
-« Le Parchemin de la Bataille est le Dao laissé par le Vieux Fantôme Zhan ! » Il regarda le squelette avec un sentiment complexe. En voyant la faible lueur dorée, il se mit à réfléchir : il possédait au total trois Parchemins de la Bataille dans son espace de stockage !
+« Le Parchemin de la Bataille est le Dao laissé par le Vieux Fantôme Zhan! » Il regarda le squelette avec un sentiment complexe. En voyant la faible lueur dorée, il se mit à réfléchir: il possédait au total trois Parchemins de la Bataille dans son espace de stockage!
 
 Il avait utilisé les deux premiers, mais n'avait jamais ouvert le troisième depuis qu'il l'avait obtenu de la famille Zhan. Après une courte réflexion, il fixa le squelette et tendit sa main droite vers le vide. Trois sphères de lumière s'en échappèrent.
 
-À l'intérieur de ces sphères se trouvaient les trois Parchemins de la Bataille !
+À l'intérieur de ces sphères se trouvaient les trois Parchemins de la Bataille!
 
 Dès l'apparition des parchemins, la lumière dorée qui était acculée par l'obscurité s'échappa du squelette. Elle fila droit vers les trois parchemins et, sous son éclat, ceux-ci fusionnèrent.
 
@@ -84,7 +84,7 @@ Wang Lin ne tenta pas d'ouvrir la neuvième grotte, car il n'arrivait pas à bri
 
 Dans la vallée, Wang Lin observa les restes de Sima Mo et resta pensif un long moment avant de repartir. Avant de quitter les lieux, il se rendit dans la première grotte, celle de la bête moustique, pour y déposer de nombreux cristaux d'origine.
 
-En sortant de la vallée, le regard de Wang Lin s'anima. Il devait trouver la tablette qu'il avait aperçue par l'esprit ; il devait découvrir l'autre moitié des restes de Zhan Xingye.
+En sortant de la vallée, le regard de Wang Lin s'anima. Il devait trouver la tablette qu'il avait aperçue par l'esprit; il devait découvrir l'autre moitié des restes de Zhan Xingye.
 
 Après avoir fouillé les souvenirs de Pang Decai et du Maître Ashen Pine, Wang Lin n'était plus un étranger dans ce Royaume aux Sept Couleurs. Tous les sentiers étaient désormais gravés dans sa mémoire. Il se déplaçait comme un rayon de lumière, sans voler, mais en glissant avec rapidité sur le sol.
 
@@ -100,12 +100,12 @@ Un soupir monta dans son cœur, mais il ne ralentit pas et continua de foncer. I
 
 Ses yeux brillèrent alors qu'il bondissait pour atteindre la tête de la statue.
 
-Dans les souvenirs du Maître Ashen Pine, sa méthode de cultivation s'intitulait : *La Centaine de Formes d'Origine Sanguine formant l'Âme Naissante*. Le septième esprit du Royaume Scellé qu'il invoquait avait été compris grâce à cette statue.
+Dans les souvenirs du Maître Ashen Pine, sa méthode de culture s'intitulait: *La Centaine de Formes d'Origine Sanguine formant l'Âme Naissante*. Le septième esprit du Royaume Scellé qu'il invoquait avait été compris grâce à cette statue.
 
-Cette technique permettait de cultiver un total de neuf entités semblables à des Âmes Naissantes, mais bien plus puissantes que de véritables Âmes Naissantes. Plus important encore, elles permettaient au Maître Ashen Pine d'augmenter neuf fois la vitesse de cultivation de ses sortilèges.
+Cette technique permettait de cultiver un total de neuf entités semblables à des Âmes Naissantes, mais bien plus puissantes que de véritables Âmes Naissantes. Plus important encore, elles permettaient au Maître Ashen Pine d'augmenter neuf fois la vitesse de culture de ses sortilèges.
 
-Le plus stupéfiant était que chaque Âme Naissante pouvait forger un sort unique. Souvent, les cultivateurs devaient choisir entre plusieurs sorts incompatibles ; peu importe leur puissance, l'un devait être sacrifié pour l'autre, comme c'était le cas pour le sort ancestral Ying Yang de la vieille femme.
+Le plus stupéfiant était que chaque Âme Naissante pouvait forger un sort unique. Souvent, les cultivateurs devaient choisir entre plusieurs sorts incompatibles; peu importe leur puissance, l'un devait être sacrifié pour l'autre, comme c'était le cas pour le sort ancestral Ying Yang de la vieille femme.
 
-Cependant, ce n'était pas un obstacle pour le Maître Ashen Pine : ses neuf Âmes Naissantes de sang pouvaient cultiver des sorts séparément.
+Cependant, ce n'était pas un obstacle pour le Maître Ashen Pine: ses neuf Âmes Naissantes de sang pouvaient cultiver des sorts séparément.
 
 Mais avant son combat contre Wang Lin, l'une de ces âmes avait été capturée par la vieille femme, et lors de leur affrontement, les deux furent si gravement blessés qu'il n'avait pu utiliser les pouvoirs qu'elles renfermaient.

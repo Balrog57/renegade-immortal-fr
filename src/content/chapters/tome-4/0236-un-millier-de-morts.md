@@ -10,7 +10,7 @@ La Vallée de Wu Feng était l'une des sectes démoniaques de Zhao. C'était une
 
 Ses cultivateurs de l'Âme Naissante n'avaient pas réussi à progresser. Leur longévité s'était épuisée et aucun d'entre eux n'avait pu échapper au cycle de la vie et de la mort.
 
-Cela avait entraîné le déclin progressif de cette autrefois grande secte ; parallèlement à l'ascension fulgurante de la Secte Xuan Dao, la Vallée de Wu Feng était tombée au rang de secte de second ordre.
+Cela avait entraîné le déclin progressif de cette autrefois grande secte; parallèlement à l'ascension fulgurante de la Secte Xuan Dao, la Vallée de Wu Feng était tombée au rang de secte de second ordre.
 
 Le déclin de la Vallée de Wu Feng avait attisé l'ambition de Teng Huayuan. Au fil des ans, il avait lentement infiltré de plus en plus de membres de la famille Teng au sein de la Vallée de Wu Feng. Les ancêtres de la vallée en étaient conscients, mais comme Teng Huayuan était extrêmement puissant, ils restaient impuissants.
 
@@ -18,9 +18,9 @@ Il faut préciser que Teng Huayuan était un Ancien de la Vallée de Wu Feng. De
 
 À ce jour, la famille Teng comptait un total de 93 membres au sein de la vallée, dont la majorité occupait des postes élevés. Trois d'entre eux avaient déjà atteint des rangs prestigieux. Le plus éminent était un membre de la cinquième génération, Teng Gao, qui était déjà devenu un candidat pour le titre de chef de secte.
 
-Les deux autres cultivateurs de l'Âme Naissante étaient totalement impuissants face aux manœuvres de Teng Huayuan. Ils ne pouvaient que feindre l'indifférence tout en restant perpétuellement en cultivation fermée, tentant désespérément de passer du stade initial au stade médian de l'Âme Naissante pour prolonger leur espérance de vie.
+Les deux autres cultivateurs de l'Âme Naissante étaient totalement impuissants face aux manœuvres de Teng Huayuan. Ils ne pouvaient que feindre l'indifférence tout en restant perpétuellement en culture fermée, tentant désespérément de passer du stade initial au stade médian de l'Âme Naissante pour prolonger leur espérance de vie.
 
-De plus, chaque année, la famille Teng leur offrait des cadeaux tels que des herbes spirituelles et des pilules. Par conséquent, ils avaient encore plus de raisons de fermer les yeux ; après tout, ils ne pouvaient espérer l'emporter contre Teng Huayuan.
+De plus, chaque année, la famille Teng leur offrait des cadeaux tels que des herbes spirituelles et des pilules. Par conséquent, ils avaient encore plus de raisons de fermer les yeux; après tout, ils ne pouvaient espérer l'emporter contre Teng Huayuan.
 
 On pouvait dire que la Vallée de Wu Feng était devenue une secte privée appartenant à la famille Teng.
 
@@ -46,11 +46,11 @@ D'immenses vagues d'énergie spirituelle s'écoulèrent des montagnes pour alime
 
 Wang Lin laissa échapper un ricanement méprisant. Ces cinq individus étaient tous membres de la famille Teng. Ils étaient manifestement préparés. Ils avaient dû être avertis par ce vieil homme de la famille Teng de l'ancienne secte, d'où ces précautions.
 
-C'était inévitable, et Wang Lin n'avait nullement l'intention de rester discret. Avec le niveau de cultivation de ce vieillard, Wang Lin aurait pu l'éliminer facilement avant qu'il ne puisse envoyer son avertissement.
+C'était inévitable, et Wang Lin n'avait nullement l'intention de rester discret. Avec le niveau de culture de ce vieillard, Wang Lin aurait pu l'éliminer facilement avant qu'il ne puisse envoyer son avertissement.
 
-C'était précisément ce que Wang Lin désirait. Il voulait que tout le pays de Zhao sache qu'il allait anéantir la famille Teng. Sa vengeance n'était pas un acte qui devait rester secret ; au contraire, il allait embraser tout le pays, car désormais, il en avait le pouvoir.
+C'était précisément ce que Wang Lin désirait. Il voulait que tout le pays de Zhao sache qu'il allait anéantir la famille Teng. Sa vengeance n'était pas un acte qui devait rester secret; au contraire, il allait embraser tout le pays, car désormais, il en avait le pouvoir.
 
-Le cœur des cinq membres de la famille Teng était lourd d'amertume. Ils avaient activé la grande formation après avoir reçu l'avertissement de Teng Gao signalant l'arrivée d'un ennemi redoutable. Bien que la formation soit déployée, les cinq ne se sentaient nullement rassurés ; ils ne ressentaient qu'une rage croissante.
+Le cœur des cinq membres de la famille Teng était lourd d'amertume. Ils avaient activé la grande formation après avoir reçu l'avertissement de Teng Gao signalant l'arrivée d'un ennemi redoutable. Bien que la formation soit déployée, les cinq ne se sentaient nullement rassurés; ils ne ressentaient qu'une rage croissante.
 
 Cette colère venait du spectacle des sept corps liés à l'étendard du dragon qui flottaient derrière le jeune homme en blanc.
 
@@ -58,7 +58,7 @@ Wang Lin ne marqua aucune pause. Dès que la formation défensive fut levée, il
 
 Puisque la Vallée de Wu Feng utilisait le Qi de l'épée pour combattre, alors montrons-leur ce qu'est le véritable Qi de l'épée.
 
-Wang Lin saisit une épée volante de sa main droite. Il possédait actuellement de nombreux trésors magiques de basse qualité ; après tout, quatre cents ans d'accumulation de richesse ne constituaient pas une mince affaire.
+Wang Lin saisit une épée volante de sa main droite. Il possédait actuellement de nombreux trésors magiques de basse qualité; après tout, quatre cents ans d'accumulation de richesse ne constituaient pas une mince affaire.
 
 Il enfourna rapidement l'épée dans le fourreau. Lorsqu'elle atteignit les quatre cinquièmes de sa course, il ressentit soudain une résistance puissante.
 
@@ -68,21 +68,21 @@ Wang Lin serra le fourreau. Il sentait que l'intention meurtrière mêlée au Qi
 
 L'aura de l'épée coula comme un fleuve, au point de rendre les hommes fous.
 
-Une heure plus tard, Wang Lin quitta les lieux, une tête à la main. Cette tête appartenait au membre le plus haut placé de la famille Teng dans la Vallée de Wu Feng : Teng Gao.
+Une heure plus tard, Wang Lin quitta les lieux, une tête à la main. Cette tête appartenait au membre le plus haut placé de la famille Teng dans la Vallée de Wu Feng: Teng Gao.
 
-Les yeux de Teng Gao étaient pétrifiés par la peur ; cependant, parce qu'il portait le nom de Teng, il ne put rien y faire.
+Les yeux de Teng Gao étaient pétrifiés par la peur; cependant, parce qu'il portait le nom de Teng, il ne put rien y faire.
 
 Derrière Wang Lin, l'immense étendard du dragon comptait désormais cent corps liés à lui.
 
 Ces corps et ces têtes se déployaient comme un éventail tandis que Wang Lin s'envolait. Quiconque aurait vu cette scène en aurait été terrifié.
 
-Une fois le massacre terminé, deux vieillards sortirent de la Vallée de Wu Feng. Il s'agissait des cultivateurs de l'Âme Naissante de la vallée. Loin d'être en colère, une excitation brûlante brillait dans leurs yeux alors que l'un d'eux s'exclamait : « La famille Teng est finie ! »
+Une fois le massacre terminé, deux vieillards sortirent de la Vallée de Wu Feng. Il s'agissait des cultivateurs de l'Âme Naissante de la vallée. Loin d'être en colère, une excitation brûlante brillait dans leurs yeux alors que l'un d'eux s'exclamait: « La famille Teng est finie! »
 
-L'autre hocha la tête en riant. « C'est vrai. Le niveau de cultivation de cet individu est prodigieux. Il doit être issu d'une secte démoniaque d'un pays de cultivation de rang supérieur. À en juger par ses actes, il compte anéantir la famille Teng. Je me demande si Punnan Zi, en intervenant, serait capable de l'arrêter ? Même s'il échoue, cela ne nous affectera pas. »
+L'autre hocha la tête en riant. « C'est vrai. Le niveau de culture de cet individu est prodigieux. Il doit être issu d'une secte démoniaque d'un pays de culture de rang supérieur. À en juger par ses actes, il compte anéantir la famille Teng. Je me demande si Punnan Zi, en intervenant, serait capable de l'arrêter? Même s'il échoue, cela ne nous affectera pas. »
 
 « Jeune frère apprenti, j'ai l'impression que ce visage m'est très familier, mais malgré mes efforts, je n'arrive pas à me souvenir où je l'ai déjà vu. »
 
-« Vraiment ? Grand frère apprenti, je pensais être le seul à le penser, mais nous avons forcément déjà rencontré cet homme ! »
+« Vraiment? Grand frère apprenti, je pensais être le seul à le penser, mais nous avons forcément déjà rencontré cet homme! »
 
 Les deux réfléchirent longuement, sans pour autant parvenir à s'en souvenir. Ils avaient déjà oublié le jeune homme dont le corps avait été détruit lors d'un combat contre Teng Huayuan, à l'extérieur de la Vallée de Wu Feng, il y de cela bien longtemps.
 
@@ -94,9 +94,9 @@ Teng Huayuan était assis dans le hall principal de la demeure ancestrale de la 
 
 Outre ces trois individus, des dizaines d'autres se tenaient autour du hall, la tête basse. Le silence et la peur se lisaient dans leurs yeux.
 
-« En quatre jours, cet homme a tué 961 membres de la famille Teng ! » Teng Huayuan laissa échapper un rire tandis que son regard se glaçait davantage. Il lança un morceau de jade à l'une des personnes agenouillées et ordonna : « Xun Er, parle ! Rends compte des nouvelles que tu as rapportées ! »
+« En quatre jours, cet homme a tué 961 membres de la famille Teng! » Teng Huayuan laissa échapper un rire tandis que son regard se glaçait davantage. Il lança un morceau de jade à l'une des personnes agenouillées et ordonna: « Xun Er, parle! Rends compte des nouvelles que tu as rapportées! »
 
-Le jeune homme agenouillé possédait un visage aussi blanc et lisse que le jade. Il saisit le jade et le plaça contre son front. Son expression resta impassible lorsqu'il commença d'une voix lente : « Il y a quatre jours, cet homme est apparu à la Secte Tian Dao. Il a tué sept membres de notre famille Teng avant de repartir. »
+Le jeune homme agenouillé possédait un visage aussi blanc et lisse que le jade. Il saisit le jade et le plaça contre son front. Son expression resta impassible lorsqu'il commença d'une voix lente: « Il y a quatre jours, cet homme est apparu à la Secte Tian Dao. Il a tué sept membres de notre famille Teng avant de repartir. »
 
 « Le même jour, il est apparu à la Vallée de Wu Feng et a utilisé un trésor magique, un fourreau d'épée, pour briser la formation défensive. Il a instauré une zone de restriction de 1 000 kilomètres et a tué 93 membres de notre famille Teng. »
 
@@ -112,9 +112,9 @@ Le jeune homme agenouillé possédait un visage aussi blanc et lisse que le jade
 
 À mesure qu'il parlait, la respiration des personnes présentes devint plus saccadée. Chaque chiffre représentait la vie d'un membre de la lignée Teng.
 
-Teng Huayuan serra les poings. Il prit une profonde inspiration et demanda : « As-tu découvert l'identité de cet homme ? »
+Teng Huayuan serra les poings. Il prit une profonde inspiration et demanda: « As-tu découvert l'identité de cet homme? »
 
-Le jeune homme, dont le visage restait indifférent, secoua la tête : « Je n'ai pas réussi à l'identifier. Chaque membre de la famille Teng qui l'a croisé est mort. Les autres ont reçu l'ordre de leurs sectes de garder le silence. J'ai dû redoubler d'efforts pour obtenir ce portrait. Ancêtre, je vous en prie, regardez. »
+Le jeune homme, dont le visage restait indifférent, secoua la tête: « Je n'ai pas réussi à l'identifier. Chaque membre de la famille Teng qui l'a croisé est mort. Les autres ont reçu l'ordre de leurs sectes de garder le silence. J'ai dû redoubler d'efforts pour obtenir ce portrait. Ancêtre, je vous en prie, regardez. »
 
 Sur ces mots, il frappa son sac de rangement et en sortit un parchemin. Il l'ouvrit lentement devant Teng Huayuan. Sur le parchemin figurait un croquis très simple d'un individu.
 
@@ -128,7 +128,7 @@ Après avoir vu l'image, le regard de Teng Huayuan resta fixé sur le visage du 
 
 Sans hésiter, il s'empara du parchemin. Il fixa l'image tandis que des veines commençaient à saillir sur son front.
 
-« C'est donc toi ! » Une aura puissante jaillit soudainement de Teng Huayuan, réduisant les meubles environnants en poussière. Un membre de la famille Teng qui n'avait pas pu s'écarter assez vite fut lui aussi transformé en poussière dans un cri étouffé.
+« C'est donc toi! » Une aura puissante jaillit soudainement de Teng Huayuan, réduisant les meubles environnants en poussière. Un membre de la famille Teng qui n'avait pas pu s'écarter assez vite fut lui aussi transformé en poussière dans un cri étouffé.
 
 Quant aux trois personnes agenouillées, elles furent les premières à reculer. Hormis le jeune homme au visage impassible, les deux autres étaient terrifiés. Tout le monde dans la salle savait que l'Ancêtre était en proie à une colère noire.
 
@@ -136,23 +136,23 @@ Après avoir tué plus de 900 membres de la famille Teng, l'Ancêtre n'avait mon
 
 Teng Huayuan fixait l'homme sur le dessin, une trace de peur dans les yeux. Il avait reconnu instantanément l'individu.
 
-C'était ce Wang Lin d'autrefois !
+C'était ce Wang Lin d'autrefois!
 
-Pourtant, il se souvenait clairement avoir vu Wang Lin mourir ; c'est pourquoi, face à cette image, il fut si choqué qu'il en perdit sa maîtrise spirituelle.
+Pourtant, il se souvenait clairement avoir vu Wang Lin mourir; c'est pourquoi, face à cette image, il fut si choqué qu'il en perdit sa maîtrise spirituelle.
 
 Teng Huayuan se rappelait encore aujourd'hui les yeux terrifiants que Wang Lin avait arborés au moment de sa mort. Ce regard l'avait hanté durant ces quatre cents dernières années.
 
-Teng Huayuan murmura : « Il est revenu... »
+Teng Huayuan murmura: « Il est revenu... »
 
 À cet instant, tout le monde dans la salle se demandait qui était réellement cet homme. Il était évident que l'Ancêtre connaissait cet individu, sans quoi leur haine n'aurait pas été si profonde.
 
-Cependant, presque tous les présents étaient nés au cours des quatre cents dernières années et ignoraient ce qui s'était passé autrefois. En réalité, bien que beaucoup fussent au courant de l'affaire, peu en parlaient ; après tout, un cultivateur de l'Âme Naissante exterminant une famille mortelle n'était pas un sujet de fierté.
+Cependant, presque tous les présents étaient nés au cours des quatre cents dernières années et ignoraient ce qui s'était passé autrefois. En réalité, bien que beaucoup fussent au courant de l'affaire, peu en parlaient; après tout, un cultivateur de l'Âme Naissante exterminant une famille mortelle n'était pas un sujet de fierté.
 
-Le visage de Teng Huayuan était méconnaissable. Juste au moment où il allait prendre la parole, un homme d'âge moyen se précipita dans la salle. Ce dernier semblait familier à Teng Huayuan. Dès son entrée, il s'agenouilla, l'expression pétrifiée par la terreur. D'une voix tremblante, il s'écria : « Ancêtre, nous... nous ne pouvons plus partir ! »
+Le visage de Teng Huayuan était méconnaissable. Juste au moment où il allait prendre la parole, un homme d'âge moyen se précipita dans la salle. Ce dernier semblait familier à Teng Huayuan. Dès son entrée, il s'agenouilla, l'expression pétrifiée par la terreur. D'une voix tremblante, il s'écria: « Ancêtre, nous... nous ne pouvons plus partir! »
 
-Teng Huayuan fronça les sourcils et tonna : « Pourquoi paniques-tu ainsi ? Que veux-tu dire par là ? Comment cela, nous ne pouvons plus partir ? »
+Teng Huayuan fronça les sourcils et tonna: « Pourquoi paniques-tu ainsi? Que veux-tu dire par là? Comment cela, nous ne pouvons plus partir? »
 
-L'homme d'âge moyen déglutit, prit une grande inspiration et répondit précipitamment : « Il y a quelques jours, des rumeurs circulaient parmi les membres de la famille Teng concernant un écran de lumière à 10 000 kilomètres de la Ville de la Famille Teng qui empêcherait tout départ. Au début, je n'y ai pas prêté attention, mais quand j'ai tenté de partir pour affaires, j'ai découvert que les rumeurs étaient vraies. Je suis incapable de m'éloigner de plus de 10 000 kilomètres de la ville. »
+L'homme d'âge moyen déglutit, prit une grande inspiration et répondit précipitamment: « Il y a quelques jours, des rumeurs circulaient parmi les membres de la famille Teng concernant un écran de lumière à 10 000 kilomètres de la Ville de la Famille Teng qui empêcherait tout départ. Au début, je n'y ai pas prêté attention, mais quand j'ai tenté de partir pour affaires, j'ai découvert que les rumeurs étaient vraies. Je suis incapable de m'éloigner de plus de 10 000 kilomètres de la ville. »
 
 À ces mots, un silence de mort s'abattit sur la pièce. Teng Huayuan regarda l'homme d'âge moyen, puis quitta la salle ancestrale sans dire un mot. Une fois dehors, il disparut instantanément pour réapparaître à cent kilomètres de là, avant de s'envoler loin de la ville.
 
@@ -162,15 +162,15 @@ L'expression de Teng Huayuan s'assombrit davantage. Il sortit alors de puissants
 
 Une pointe d'anxiété, qu'il n'avait pas ressentie depuis longtemps, envahit le cœur de Teng Huayuan. Il réalisa presque immédiatement que Wang Lin avait ordonné la pose de cette restriction. Le but était de piéger tous les membres de la famille Teng dans la ville, pour qu'ils ne puissent que regarder impuissants l'extermination des leurs.
 
-Il y avait un second objectif à cet écran : tous ces meurtres allaient pousser les survivants à fuir vers la Ville de la Famille Teng. Une fois tout le monde rassemblé, Wang Lin lancerait son assaut.
+Il y avait un second objectif à cet écran: tous ces meurtres allaient pousser les survivants à fuir vers la Ville de la Famille Teng. Une fois tout le monde rassemblé, Wang Lin lancerait son assaut.
 
-Teng Huayuan ne croyait pas que Wang Lin ait eu la capacité de poser lui-même une telle restriction. Même s'il n'était pas mort autrefois, au pire, sa cultivation n'aurait atteint que le stade avancé de la Formation du Noyau ou le début de l'Âme Naissante.
+Teng Huayuan ne croyait pas que Wang Lin ait eu la capacité de poser lui-même une telle restriction. Même s'il n'était pas mort autrefois, au pire, sa culture n'aurait atteint que le stade avancé de la Formation du Noyau ou le début de l'Âme Naissante.
 
-Face à la cultivation de Teng Huayuan, au stade avancé de l'Âme Naissante, Wang Lin ne lui semblait pas une menace de premier plan. Ce qu'il craignait, c'était la personne qui avait mis en place cette barrière. Il supposait que le niveau de cultivation de cet individu pouvait atteindre celui du Déchirement de l'Esprit.
+Face à la culture de Teng Huayuan, au stade avancé de l'Âme Naissante, Wang Lin ne lui semblait pas une menace de premier plan. Ce qu'il craignait, c'était la personne qui avait mis en place cette barrière. Il supposait que le niveau de culture de cet individu pouvait atteindre celui du Déchirement de l'Esprit.
 
 C'était là sa véritable préoccupation. Après réflexion, il se demanda quel genre de lien ce senior entretenait avec Wang Lin. Si leur relation n'était pas trop étroite, alors la famille pourrait y survivre. Teng Huayuan ne concevait même pas que cette restriction ait pu être l'œuvre de Wang Lin lui-même.
 
-Après avoir mûri sa pensée, il repartit, le visage sombre. À son retour, il activa toutes les formations de protection de la Ville de la Famille Teng, sans se soucier du coût. Il se mit ensuite en cultivation fermée pour maintenir son corps à son apogée et être prêt au combat à tout instant.
+Après avoir mûri sa pensée, il repartit, le visage sombre. À son retour, il activa toutes les formations de protection de la Ville de la Famille Teng, sans se soucier du coût. Il se mit ensuite en culture fermée pour maintenir son corps à son apogée et être prêt au combat à tout instant.
 
 Pour Wang Lin, ces quatre jours de carnage et ce millier de morts n'étaient que le début. Comparé aux dizaines de milliers de membres de la famille Teng, ce n'était qu'une goutte d'eau.
 
@@ -186,4 +186,4 @@ Un sourire cruel étira les lèvres de Wang Lin alors qu'il volait lentement ver
 
 Mais à cet instant précis, son expression changea lorsqu'il tourna le regard vers l'est. Là, au loin, un carrosse coloré flottait dans sa direction, conduit par plusieurs jeunes gens.
 
-Une voix retentit de loin : « L'Immortel Ji Mo est arrivé ! Que les gens s'écartent sur leur passage ! »
+Une voix retentit de loin: « L'Immortel Ji Mo est arrivé! Que les gens s'écartent sur leur passage! »

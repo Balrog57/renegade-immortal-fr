@@ -10,11 +10,11 @@ Wang Lin réfléchit un instant. Il pointa l'esprit de Teng Li et commença à l
 
 Puis, la sphère de sang jaillit rapidement pour se fondre dans l'esprit. Graduellement, l'esprit commença à rétrécir, tandis que la masse de chair et d'os se dissolvait également dans la brume spirituelle.
 
-L'esprit avait considérablement changé ; il n'était plus qu'un anneau étroit flottant dans les airs, émettant une douce lueur.
+L'esprit avait considérablement changé; il n'était plus qu'un anneau étroit flottant dans les airs, émettant une douce lueur.
 
 Wang Lin prit une profonde inspiration. Il savait qu'il atteignait l'ultime étape. Sa concentration s'intensifia lorsqu'il plaça l'âme dans l'anneau.
 
-Après un long moment, l'anneau projeta soudain un éclat éblouissant. Les yeux de Wang Lin s'illuminèrent ; il mordit vivement le bout de sa langue et cracha un jet de sang. Dès que le sang toucha l'anneau, un sifflement retentit et le liquide disparut instantanément.
+Après un long moment, l'anneau projeta soudain un éclat éblouissant. Les yeux de Wang Lin s'illuminèrent; il mordit vivement le bout de sa langue et cracha un jet de sang. Dès que le sang toucha l'anneau, un sifflement retentit et le liquide disparut instantanément.
 
 Une fois fusionné avec le sang, l'anneau se mit à trembler. Il commença à émettre une pression puissante, et toutes les créatures vivantes dans un rayon d'un kilomètre autour de Wang Lin ressentirent ce changement.
 
@@ -40,7 +40,7 @@ Sans un mot, Wang Lin sauta dans le trou. La terre fut alors ramenée pour combl
 
 Assis en tailleur sous terre, Wang Lin concentra son attention pour organiser l'énergie spirituelle dans son corps. Sa physiologie changeait constamment pour atteindre l'Établissement des Fondations.
 
-Profitant du silence de l'obscurité et de l'absence de toute distraction, Wang Lin entama sa troisième séance de cultivation en méditation.
+Profitant du silence de l'obscurité et de l'absence de toute distraction, Wang Lin entama sa troisième séance de culture en méditation.
 
 Le temps s'écoula et, en un clin d'œil, deux années passèrent.
 
@@ -54,15 +54,15 @@ Dès l'apparition de la silhouette, tous les insectes poussèrent des cris de te
 
 Le regard de Wang Lin était électrique et tout son corps débordait d'une puissante énergie spirituelle. Il ouvrit la bouche et cracha une lumière verte qui se mua en son épée volante.
 
-Ses yeux brillèrent. Il leva la main et le fourreau s'envola vers lui tandis qu'il murmurait : « Après deux ans de raffinage, ce fourreau m'appartient presque entièrement. Utilisé avec l'épée volante, son effet doit être redoutable. »
+Ses yeux brillèrent. Il leva la main et le fourreau s'envola vers lui tandis qu'il murmurait: « Après deux ans de raffinage, ce fourreau m'appartient presque entièrement. Utilisé avec l'épée volante, son effet doit être redoutable. »
 
-Après avoir rangé l'épée et son fourreau, il réfléchit un instant. Puis, touchant la perle sur sa poitrine, il songea : « Situ Nan a épuisé trop d'essence d'Âme Naissante il y a deux ans pour m'aider à échapper à Teng Li. Il a également lancé un sort pour empêcher Teng Huayuan de me trouver. Il dort depuis plus d'un an et j'ignore quand il s'éveillera. Heureusement, j'ai déjà mémorisé la Méthode d'Ascension des Enfers. Il ne me reste plus qu'à trouver un lieu imprégné d'une forte énergie Yin pour la pratiquer. »
+Après avoir rangé l'épée et son fourreau, il réfléchit un instant. Puis, touchant la perle sur sa poitrine, il songea: « Situ Nan a épuisé trop d'essence d'Âme Naissante il y a deux ans pour m'aider à échapper à Teng Li. Il a également lancé un sort pour empêcher Teng Huayuan de me trouver. Il dort depuis plus d'un an et j'ignore quand il s'éveillera. Heureusement, j'ai déjà mémorisé la Méthode d'Ascension des Enfers. Il ne me reste plus qu'à trouver un lieu imprégné d'une forte énergie Yin pour la pratiquer. »
 
 Ayant pris sa décision, Wang Lin prit une profonde inspiration et déploya son Sens Divin. Il se dirigea soudainement vers le nord jusqu'à atteindre une rivière, où il se débarrassa de toute la terre noire qui recouvrait son corps. Une fois propre, il se sentit revigoré.
 
 Assis sur un rocher près de l'eau, il se remémora sa récente expérience de mort imminente avec un sentiment de regret. Il ignorait si Zhang Hu était toujours en vie et priait pour qu'il ait survécu.
 
-Soupirant, Wang Lin chassa ces pensées pour se concentrer. Après un long moment, il forma un sceau de la main droite et projeta un rayon de lumière blanche. Dès son apparition, la couleur changea : passant du blanc au gris, elle s'assombrit progressivement tout en volant vers l'ouest.
+Soupirant, Wang Lin chassa ces pensées pour se concentrer. Après un long moment, il forma un sceau de la main droite et projeta un rayon de lumière blanche. Dès son apparition, la couleur changea: passant du blanc au gris, elle s'assombrit progressivement tout en volant vers l'ouest.
 
 Wang Lin était stupéfait. Cette technique lui avait été enseignée par Situ Nan pour débusquer les lieux à forte concentration d'énergie Yin. Plus la lumière était sombre, plus il approchait d'une énergie Yin extrême. Si la lumière devenait noire, cela signifierait qu'il avait trouvé sa destination.
 
@@ -94,11 +94,11 @@ Soudain, le pilier se dissipa en d'innombrables particules argentées. Wang Lin 
 
 Ce cycle se répéta plusieurs fois. Après une journée entière d'observation, Wang Lin parvint enfin à comprendre le phénomène.
 
-D'après ses déductions, ce pilier de lumière était lié au rayonnement solaire. Il semblait que, malgré la ruine du site, certains trésors étaient encore actifs ; après avoir absorbé suffisamment de lumière, ils déclenchaient leur pouvoir.
+D'après ses déductions, ce pilier de lumière était lié au rayonnement solaire. Il semblait que, malgré la ruine du site, certains trésors étaient encore actifs; après avoir absorbé suffisamment de lumière, ils déclenchaient leur pouvoir.
 
 De plus, de nombreuses bêtes sauvages semblaient connaître l'effet cicatrisant du pilier. Au cours de la journée, Wang Lin vit au moins vingt créatures blessées se diriger vers lui.
 
-Voyant l'obscurité tomber, Wang Lin calcula que le dernier pilier allait bientôt apparaître. Sans hésiter, il s'élança et plongea la main dans la colonne lumineuse. Il ressentit un flux d'air très chaud ; ce n'était pas de la puissance spirituelle, mais une sensation totalement inédite pour lui.
+Voyant l'obscurité tomber, Wang Lin calcula que le dernier pilier allait bientôt apparaître. Sans hésiter, il s'élança et plongea la main dans la colonne lumineuse. Il ressentit un flux d'air très chaud; ce n'était pas de la puissance spirituelle, mais une sensation totalement inédite pour lui.
 
 Tandis qu'il explorait du bout des doigts ce courant d'air, les yeux de Wang Lin brillèrent. Il se fit une entaille au bras et plongea le membre dans le pilier. En un clin d'œil, la blessure disparut.
 

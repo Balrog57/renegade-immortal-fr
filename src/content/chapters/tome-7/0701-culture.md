@@ -6,9 +6,9 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 701 - Cultivation
 slug: culture
 ---
-Le regard du Daoïste du Tonnerre se posa sur le corps de Wang Ping. Une lueur d'intérêt dans les yeux, il dit lentement : « Il s'avère que tu n'es pas humain... »
+Le regard du Daoïste du Tonnerre se posa sur le corps de Wang Ping. Une lueur d'intérêt dans les yeux, il dit lentement: « Il s'avère que tu n'es pas humain... »
 
-Avant qu'il ne puisse achever sa phrase, le corps de Wang Ping trembla ; à cet instant, l'ombre derrière lui bougea soudainement. Dès l'apparition de la marionnette de garde céleste, celle-ci lança un coup de poing.
+Avant qu'il ne puisse achever sa phrase, le corps de Wang Ping trembla; à cet instant, l'ombre derrière lui bougea soudainement. Dès l'apparition de la marionnette de garde céleste, celle-ci lança un coup de poing.
 
 Ce coup provoqua un bang sonique. Le bruit faillit couvrir le rugissement du tonnerre alors qu'il chargeait droit sur le Daoïste du Tonnerre.
 
@@ -18,7 +18,7 @@ La marionnette de garde céleste percuta directement l'éclair et le traversa. E
 
 Une force destructrice se propagea avec frénésie du poing de la marionnette vers le corps du Daoïste du Tonnerre. C'était comme si une tempête s'était déchaînée, des grondements sourds émanant de son propre corps.
 
-Un bruit étouffé résonna dans la pièce alors que le Daoïste du Tonnerre reculait de plusieurs pas, mais l'engourdissement de sa main et les éclairs se dissipèrent rapidement. Une lueur étrange brilla dans ses yeux tandis qu'il contemplait la marionnette en riant : « Une marionnette de qualité supérieure ! »
+Un bruit étouffé résonna dans la pièce alors que le Daoïste du Tonnerre reculait de plusieurs pas, mais l'engourdissement de sa main et les éclairs se dissipèrent rapidement. Une lueur étrange brilla dans ses yeux tandis qu'il contemplait la marionnette en riant: « Une marionnette de qualité supérieure! »
 
 La marionnette de garde céleste recula de deux pas, le regard glacial. Des éclairs serpentaient à travers son corps comme des serpents dansants.
 
@@ -34,17 +34,17 @@ Alors que l'éclair s'apprêtait à frapper le corps de Wang Ping, l'expression 
 
 Quant à Wang Ping, il ne paniquait absolument pas. C'était comme si, même si le Mont Tai s'effondrait, il ne bougerait pas, car il savait que son père viendrait sans faute.
 
-À ses yeux, son père était l'existence la plus puissante sous les étoiles. Personne ne pouvait espérer rivaliser avec lui !
+À ses yeux, son père était l'existence la plus puissante sous les étoiles. Personne ne pouvait espérer rivaliser avec lui!
 
-Le calme de Wang Ping attira l'attention du Daoïste du Tonnerre. Après un examen attentif, celui-ci fut stupéfait ; il semblait avoir percé certains mystères.
+Le calme de Wang Ping attira l'attention du Daoïste du Tonnerre. Après un examen attentif, celui-ci fut stupéfait; il semblait avoir percé certains mystères.
 
 Les ondulations de foudre foncèrent droit sur Wang Ping, mais au moment où elles allaient le toucher, une voix antique résonna entre ciel et terre.
 
 Cette voix était d'une ancienneté profonde et, dès qu'elle retentit, elle figea instantanément tous les éclairs qui s'agitaient comme des dragons.
 
-La foudre bleue semblait vivante ; certaines de ses fines ramifications n'étaient qu'à trois pouces de Wang Ping, mais à cet instant précis, tout fut pétrifié.
+La foudre bleue semblait vivante; certaines de ses fines ramifications n'étaient qu'à trois pouces de Wang Ping, mais à cet instant précis, tout fut pétrifié.
 
-La voix ne prononça qu'un seul mot : « Arrête ! »
+La voix ne prononça qu'un seul mot: « Arrête! »
 
 Un immense vortex apparut dans le vide et un vieil homme aux cheveux blancs en sortit lentement.
 
@@ -54,21 +54,21 @@ En un instant, la propagation fut fulgurante et les ondes de foudre s'effondrèr
 
 Cela se produisit si soudainement que le Daoïste du Tonnerre en eut le souffle coupé. Il recula de deux pas et fixa Wang Lin avec une prudence manifeste.
 
-Il était incapable de percevoir le niveau de cultivation de cet homme !
+Il était incapable de percevoir le niveau de culture de cet homme!
 
 Ses yeux pouvaient voir l'individu, mais avec son Sens Divin, ce vieil homme semblait ne même pas exister.
 
-Wang Ping regarda le vieil homme devant lui et murmura doucement : « Papa... »
+Wang Ping regarda le vieil homme devant lui et murmura doucement: « Papa... »
 
 Cet appel portait en lui des décennies de nostalgie...
 
-Le vieil homme était Wang Lin ! Ses yeux, autrefois troubles, étaient d'une froideur extrême. Un tel regard n'était pas apparu dans ses prunelles depuis bien longtemps.
+Le vieil homme était Wang Lin! Ses yeux, autrefois troubles, étaient d'une froideur extrême. Un tel regard n'était pas apparu dans ses prunelles depuis bien longtemps.
 
-Wang Lin dit lentement : « Messager du Temple Céleste du Tonnerre ! »
+Wang Lin dit lentement: « Messager du Temple Céleste du Tonnerre! »
 
 La marionnette de garde céleste se déplaça aux côtés de Wang Lin en un éclair et fixa froidement le Daoïste du Tonnerre.
 
-Le Daoïste du Tonnerre observa Wang Lin avec une expression très grave et demanda : « Qui êtes-vous, monsieur ? »
+Le Daoïste du Tonnerre observa Wang Lin avec une expression très grave et demanda: « Qui êtes-vous, monsieur? »
 
 Wang Lin inspecta les environs. Un tel tumulte, et pourtant aucun mouvement chez les villageois. Il était évident que tous avaient été plongés dans l'inconscience par le Sens Divin de cet homme.
 
@@ -82,9 +82,9 @@ Au même instant, un éclair jaillit à mille pieds devant eux et le Daoïste du
 
 Dès qu'il surgit, une quantité massive de foudre l'enveloppa. Le ciel s'obscurcit brusquement et des décharges jaillirent des nuages dans un spectacle saisissant.
 
-La voix du Daoïste du Tonnerre était glaciale alors qu'il fixait Wang Lin : « Peu importe qui vous êtes. Laissez la marionnette, et ce vieil homme vous épargnera tous les trois ! »
+La voix du Daoïste du Tonnerre était glaciale alors qu'il fixait Wang Lin: « Peu importe qui vous êtes. Laissez la marionnette, et ce vieil homme vous épargnera tous les trois! »
 
-Les yeux de Wang Lin devinrent plus froids encore et il répondit calmement : « Même si vous me laissiez partir, je ne vous pardonnerais pas. Si j'avais été un instant plus lent, mon fils serait mort par votre faute. Cette affaire a touché ma limite. Peu importe votre identité, aujourd'hui, vous mourrez ! »
+Les yeux de Wang Lin devinrent plus froids encore et il répondit calmement: « Même si vous me laissiez partir, je ne vous pardonnerais pas. Si j'avais été un instant plus lent, mon fils serait mort par votre faute. Cette affaire a touché ma limite. Peu importe votre identité, aujourd'hui, vous mourrez! »
 
 Sa voix était empreinte de résolution et une intention meurtrière surgit soudainement. Simultanément, la garde céleste fit un pas en avant, son corps entier émettant un éclat doré. Elle s'élança telle une statue d'or et lança un coup de poing au Daoïste du Tonnerre.
 
@@ -92,25 +92,25 @@ Le Daoïste du Tonnerre frappa son sac de rangement et un filet de tonnerre appa
 
 D'innombrables runes scintillaient sur le filet de tonnerre. Sa ténacité était telle que le coup de poing de la marionnette ne put le briser.
 
-« Ce vieil homme est un messager du Temple Céleste du Tonnerre. Avec votre force, même muni de cette marionnette, il vous sera impossible de me tuer ! » Le Daoïste du Tonnerre ne daigna même pas regarder le filet alors qu'il formait un nouveau sceau. Il projeta alors un éclair vers Wang Lin.
+« Ce vieil homme est un messager du Temple Céleste du Tonnerre. Avec votre force, même muni de cette marionnette, il vous sera impossible de me tuer! » Le Daoïste du Tonnerre ne daigna même pas regarder le filet alors qu'il formait un nouveau sceau. Il projeta alors un éclair vers Wang Lin.
 
-L'expression de Wang Lin resta neutre ; il n'esquissa même pas un mouvement pour esquiver. Alors que l'éclair approchait, il ouvrit simplement la bouche et, sous le regard incrédule du Daoïste du Tonnerre, Wang Lin dévora la foudre.
+L'expression de Wang Lin resta neutre; il n'esquissa même pas un mouvement pour esquiver. Alors que l'éclair approchait, il ouvrit simplement la bouche et, sous le regard incrédule du Daoïste du Tonnerre, Wang Lin dévora la foudre.
 
 Des éclairs crépitaient autour du corps de Wang Lin.
 
-« Cette infime quantité de foudre ne suffit pas ! » Wang Lin leva la main droite et une partie de son Âme Originelle se dirigea immédiatement vers sa paume. Une sphère de tonnerre apparut soudainement au creux de sa main.
+« Cette infime quantité de foudre ne suffit pas! » Wang Lin leva la main droite et une partie de son Âme Originelle se dirigea immédiatement vers sa paume. Une sphère de tonnerre apparut soudainement au creux de sa main.
 
 Bien que cette sphère ne fût que de la taille d'un poing, elle provoqua un bouleversement dans les nuages sombres et rendit toute la foudre environnante folle. En un instant, tous les éclats se précipitèrent vers la sphère de tonnerre tenue par Wang Lin.
 
 Cette scène fit haleter le Daoïste du Tonnerre. Il voyait la foudre tomber comme une pluie torrentielle vers la paume de cet homme.
 
-« Voici le véritable tonnerre ! » La voix de Wang Lin était calme. Il agita sa main droite, et la sphère de tonnerre partit dans un grondement fracassant vers le Daoïste du Tonnerre.
+« Voici le véritable tonnerre! » La voix de Wang Lin était calme. Il agita sa main droite, et la sphère de tonnerre partit dans un grondement fracassant vers le Daoïste du Tonnerre.
 
 L'expression du Daoïste du Tonnerre changea radicalement et il recula sans hésiter. Il frappa son sac de rangement et en sortit une barre métallique noire, longue de trois pieds et d'un pouce d'épaisseur. D'innombrables runes y étaient gravées, entrelacées de lignes rouge sombre.
 
 Au moment où la sphère de Wang Lin atteignit sa cible, le Daoïste du Tonnerre enfonça impitoyablement la barre dans le sol. Simultanément, ses deux mains formèrent des sceaux qu'il posa sur l'objet.
 
-Ses yeux se plissèrent et il hurla : « Tonnerre du ciel et de la terre, rassemblez-vous ! »
+Ses yeux se plissèrent et il hurla: « Tonnerre du ciel et de la terre, rassemblez-vous! »
 
 La sphère de tonnerre approchait dans un fracas assourdissant, mais fut immédiatement affectée par la barre métallique. Elle chargea inopinément vers l'artefact, enveloppée d'une puissante couche d'éclairs.
 
@@ -126,21 +126,21 @@ Le Daoïste du Tonnerre contemplait la scène avec incrédulité.
 
 Soudain, la barre métallique parut incapable de contenir la puissance de la foudre. Après avoir absorbé la totalité de la sphère, elle trembla et s'effondra brusquement devant le Daoïste du Tonnerre.
 
-Ce fut comme un coup de tonnerre apocalyptique ; la planète Ran Yun en trembla. De nombreux sommets montagneux s'effondrèrent dans un tumulte colossal.
+Ce fut comme un coup de tonnerre apocalyptique; la planète Ran Yun en trembla. De nombreux sommets montagneux s'effondrèrent dans un tumulte colossal.
 
-La barre explosa et une puissance tonitruante jaillit, prenant le Daoïste du Tonnerre pour centre. Forcé de reculer de dix pas, le visage pâle, il hurla : « Tu es l'homme qui prétend être Xu Mu, le messager du Temple Céleste du Tonnerre ! Quel est donc ton véritable niveau de cultivation ?! »
+La barre explosa et une puissance tonitruante jaillit, prenant le Daoïste du Tonnerre pour centre. Forcé de reculer de dix pas, le visage pâle, il hurla: « Tu es l'homme qui prétend être Xu Mu, le messager du Temple Céleste du Tonnerre! Quel est donc ton véritable niveau de culture?! »
 
 L'onde de choc de la barre fit disparaître les éclairs entourant la garde céleste, laquelle s'avança alors.
 
-Wang Lin regarda calmement le Daoïste du Tonnerre et dit lentement : « Mon niveau de cultivation... » Il marqua une pause tandis que l'énergie spirituelle céleste jaillissait soudainement de son corps. De l'Établissement des Fondations jusqu'à la Formation de l'Âme. Puis elle continua de grimper jusqu'au sommet du stade avancé de la Transformation de l'Âme.
+Wang Lin regarda calmement le Daoïste du Tonnerre et dit lentement: « Mon niveau de culture... » Il marqua une pause tandis que l'énergie spirituelle céleste jaillissait soudainement de son corps. De l'Établissement des Fondations jusqu'à la Formation de l'Âme. Puis elle continua de grimper jusqu'au sommet du stade avancé de la Transformation de l'Âme.
 
-Ce n'était pas fini. Alors que l'énergie spirituelle céleste déferlait de lui, son niveau atteignit le début du stade Ascendant !
+Ce n'était pas fini. Alors que l'énergie spirituelle céleste déferlait de lui, son niveau atteignit le début du stade Ascendant!
 
 Tandis que le corps de Wang Lin se remplissait d'énergie céleste, l'expression du Daoïste du Tonnerre devint de plus en plus laide. Bien qu'il ne considérât pas un cultivateur du premier niveau comme une menace, le niveau de cet homme ne cessait de grimper, et il ignorait où cela s'arrêterait.
 
 Le début du stade Ascendant n'était qu'une étape. L'énergie spirituelle continua sa progression jusqu'au milieu du stade Ascendant.
 
-L'énergie céleste finit par se stabiliser au milieu du stade Ascendant. Cependant, l'aura de Wang Lin devint encore plus puissante sans interruption. Cette aura émanait de son domaine !
+L'énergie céleste finit par se stabiliser au milieu du stade Ascendant. Cependant, l'aura de Wang Lin devint encore plus puissante sans interruption. Cette aura émanait de son domaine!
 
 La limite du stade Ascendant du milieu ne pouvait entraver la croissance de son domaine. L'aura de Wang Lin s'intensifia, rendant le visage du Daoïste du Tonnerre de plus en plus sombre.
 
@@ -148,9 +148,9 @@ Cette expansion semblait infinie, dépassant ce qu'un ordinaire cultivateur du m
 
 Une aura puissante jaillit de Wang Lin et se propagea dans toutes les directions, recouvrant lentement la planète Ran Yun.
 
-Alors que son domaine continuait de s'étendre, il atteignit le stade avancé de l'Ascendant. Et ce n'était pas encore le point final ; la progression se poursuivait !
+Alors que son domaine continuait de s'étendre, il atteignit le stade avancé de l'Ascendant. Et ce n'était pas encore le point final; la progression se poursuivait!
 
-La paupière du Daoïste du Tonnerre tressaillait sans cesse ; il en perdit presque le souffle, le cœur oppressé par une terreur sourde. Lorsqu'il sentit le domaine s'immobiliser, il se détendit légèrement en pensant : « Un cultivateur encore bloqué au premier niveau est facile à tuer... Cependant, est-il seulement aussi fort que cela... ? »
+La paupière du Daoïste du Tonnerre tressaillait sans cesse; il en perdit presque le souffle, le cœur oppressé par une terreur sourde. Lorsqu'il sentit le domaine s'immobiliser, il se détendit légèrement en pensant: « Un cultivateur encore bloqué au premier niveau est facile à tuer... Cependant, est-il seulement aussi fort que cela...? »
 
 Une immense peinture de montagnes et de rivières apparut dans le ciel. Cette œuvre utilisait le firmament comme toile et la terre comme encre. C'était comme un mirage surgissant soudainement du néant.
 
@@ -160,18 +160,18 @@ Cependant, la rivière des enfers trembla soudainement et pénétra en Wang Lin 
 
 Alors que le Daoïste du Tonnerre était plongé dans un choc total, le domaine de Wang Lin, qui allait atteindre son apogée, bondit brusquement pour atteindre le pic du stade avancé de l'Ascendant.
 
-Le domaine de Wang Lin s'arrêta là !
+Le domaine de Wang Lin s'arrêta là!
 
-Le Daoïste du Tonnerre poussa un soupir de soulagement. Il craignait réellement que le domaine de Wang Lin ne franchisse la barrière du second niveau. Si tel avait été le cas, il aurait dû affronter un combat de tous les instants face à l'assistance de la marionnette !
+Le Daoïste du Tonnerre poussa un soupir de soulagement. Il craignait réellement que le domaine de Wang Lin ne franchisse la barrière du second niveau. Si tel avait été le cas, il aurait dû affronter un combat de tous les instants face à l'assistance de la marionnette!
 
-Le Daoïste du Tonnerre ricana : « Avec une si infime cultivation, tu oses usurper l'identité d'un membre du Temple Céleste du Tonnerre ?! » Pourtant, le doute persistait en lui. Après tout, la sphère de tonnerre utilisée par Xu Mu plus tôt était trop impressionnante.
+Le Daoïste du Tonnerre ricana: « Avec une si infime culture, tu oses usurper l'identité d'un membre du Temple Céleste du Tonnerre?! » Pourtant, le doute persistait en lui. Après tout, la sphère de tonnerre utilisée par Xu Mu plus tôt était trop impressionnante.
 
-Un tel sortilège n'était pas l'apanage d'un cultivateur ordinaire ; il ne l'avait vu que chez les messagers de rang terrestre du Temple Céleste du Tonnerre. Un autre élément le rendait suspicieux : plus tôt, son Sens Divin n'avait même pu détecter l'existence de cet homme. Bien qu'il puisse désormais voir clairement son niveau de cultivation, il avait toujours l'impression qu'une couche de brume recouvrait l'individu, comme si l'on tentait d'observer la lune dans le reflet de l'eau.
+Un tel sortilège n'était pas l'apanage d'un cultivateur ordinaire; il ne l'avait vu que chez les messagers de rang terrestre du Temple Céleste du Tonnerre. Un autre élément le rendait suspicieux: plus tôt, son Sens Divin n'avait même pu détecter l'existence de cet homme. Bien qu'il puisse désormais voir clairement son niveau de culture, il avait toujours l'impression qu'une couche de brume recouvrait l'individu, comme si l'on tentait d'observer la lune dans le reflet de l'eau.
 
-Wang Lin leva la tête. Faute d'énergie spirituelle céleste suffisante, sa cultivation s'était stabilisée au milieu du stade Ascendant. Cependant, son domaine avait atteint un niveau tel qu'il en fut lui-même surpris.
+Wang Lin leva la tête. Faute d'énergie spirituelle céleste suffisante, sa culture s'était stabilisée au milieu du stade Ascendant. Cependant, son domaine avait atteint un niveau tel qu'il en fut lui-même surpris.
 
 De plus, il n'avait libéré que son domaine de Vie et de Mort. Il restait encore le domaine du pouvoir du tonnerre et celui du Karma qu'il n'avait pas encore manifestés.
 
 La raison pour laquelle le Daoïste du Tonnerre ne parvenait pas à percer le domaine de Wang Lin résidait précisément dans le domaine du Karma. Une fois que le domaine de Wang Lin aurait évolué, il serait impossible de le sonder, à moins d'être un véritable cultivateur du second niveau. Après tout, le stade Yin et Yang n'était qu'une transition entre le premier et le second niveau.
 
-Wang Ping fixait son père. Au moment où la cultivation de celui-ci avait augmenté, une légère fluctuation avait parcouru son corps. Il l'avait ressentie clairement jusque dans son âme, ce qui ne fit que renforcer ses soupçons.
+Wang Ping fixait son père. Au moment où la culture de celui-ci avait augmenté, une légère fluctuation avait parcouru son corps. Il l'avait ressentie clairement jusque dans son âme, ce qui ne fit que renforcer ses soupçons.

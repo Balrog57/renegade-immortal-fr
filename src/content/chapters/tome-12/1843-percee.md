@@ -1,26 +1,26 @@
 ---
 n: 1843
-title: "Percée !"
+title: "Percée!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1843 - Breakthrough!"
 slug: percee
 ---
-Chapitre 1843 - Percée !
+Chapitre 1843 - Percée!
 
-Ils étaient trois : l'Oiseau Vermillon, le Tigre Blanc et la Tortue Noire, sortis du monde des grottes. Ils étaient revenus il y a de nombreuses années et avaient constaté que la Secte des Sept Dao n'existait plus. Ils avaient alors choisi de partir pour devenir des cultivateurs errants.
+Ils étaient trois: l'Oiseau Vermillon, le Tigre Blanc et la Tortue Noire, sortis du monde des grottes. Ils étaient revenus il y a de nombreuses années et avaient constaté que la Secte des Sept Dao n'existait plus. Ils avaient alors choisi de partir pour devenir des cultivateurs errants.
 
-Ils avaient déjà connu la célébrité et leur heure de gloire. Cependant, ils approchaient de la fin de leur existence ; ils étaient simplement las et aspiraient au repos.
+Ils avaient déjà connu la célébrité et leur heure de gloire. Cependant, ils approchaient de la fin de leur existence; ils étaient simplement las et aspiraient au repos.
 
-Avec leurs niveaux de cultivation, ils auraient pu accomplir de grandes choses dans la Mer des Pillules, mais tous trois avaient choisi de mener une vie paisible.
+Avec leurs niveaux de culture, ils auraient pu accomplir de grandes choses dans la Mer des Pillules, mais tous trois avaient choisi de mener une vie paisible.
 
 Pourtant, bien que le trio souhaitât la quiétude, le destin en décida autrement. Alors qu'ils aspiraient à la paix, ils devaient désormais fuir pour sauver leur vie. L'Oiseau Vermillon et la Tortue Noire étaient gravement blessés. Le Tigre Blanc, le moins atteint, portait ses deux compagnons de toujours tandis qu'ils tentaient désespérément d'échapper à la Mer des Pillules.
 
 Lorsque ces paroles parvinrent à ses oreilles, le visage pâle du Tigre Blanc esquissa un sourire amer.
 
-« Il est inutile que vous parliez. Comment pourrais-je m'échapper seul ?! Nous sommes entrés dans le monde des grottes ensemble et, si la mort de Azure Dragon était compréhensible, n'avions-nous pas convenu de rester ici jusqu'à notre dernier souffle ? N'avions-nous pas promis de trouver trois juniors talentueux pour transmettre notre Dao... »
+« Il est inutile que vous parliez. Comment pourrais-je m'échapper seul?! Nous sommes entrés dans le monde des grottes ensemble et, si la mort de Azure Dragon était compréhensible, n'avions-nous pas convenu de rester ici jusqu'à notre dernier souffle? N'avions-nous pas promis de trouver trois juniors talentueux pour transmettre notre Dao... »
 
-« Nous n'avons encore rien accompli, alors comment pourrais-je vivre en m'enfuyant seul ?! » Le Tigre Blanc poussa un rugissement alors qu'il s'élançait, portant la Tortue Noire et l'Oiseau Vermillon.
+« Nous n'avons encore rien accompli, alors comment pourrais-je vivre en m'enfuyant seul?! » Le Tigre Blanc poussa un rugissement alors qu'il s'élançait, portant la Tortue Noire et l'Oiseau Vermillon.
 
 Derrière eux, un jeune homme au visage de jade blanc les poursuivait lentement, un éventail à la main. Le nommé Qian affichait un regard venimeux et laissa échapper un rire glacial tout en poursuivant sa course.
 
@@ -28,23 +28,23 @@ Les deux n'étaient pas pressés. La Mer des Pillules étant scellée, il n'y av
 
 La fuite et la poursuite se poursuivaient ainsi. Pourtant, sous les trois bannières, les yeux de la femme brillaient d'une lueur étrange alors qu'elle fixait la boussole qu'elle tenait en main.
 
-Elle avait un mauvais pressentiment !
+Elle avait un mauvais pressentiment!
 
-« En une seule journée, le niveau de la mer a baissé de centaines de pieds, soit bien plus qu'hier ! Il y a un problème ! » Elle scruta la boussole couverte de points verts. Il ne restait que peu de points blancs, moins de mille.
+« En une seule journée, le niveau de la mer a baissé de centaines de pieds, soit bien plus qu'hier! Il y a un problème! » Elle scruta la boussole couverte de points verts. Il ne restait que peu de points blancs, moins de mille.
 
 Les trois lumières les plus importantes avaient disparu. Quant aux neuf points plus faibles, après la disparition des quatre premiers, deux autres s'étaient éteints. Seuls les trois points groupés bougeaient lentement, poursuivis par deux points verts particulièrement visibles.
 
 La femme examina attentivement la boussole et fronça les sourcils avec encore plus d'intensité.
 
-« Il n'y a rien d'anormal... Comment le niveau de l'eau a-t-il pu chuter autant en deux jours... Il reste pourtant deux jours... Peu importe, je n'attendrai pas la fin. Cette baisse soudaine du niveau de la mer est trop suspecte... Je vais utiliser le Liquide de Corruption Raffinée pour balayer les cultivateurs restants ! »
+« Il n'y a rien d'anormal... Comment le niveau de l'eau a-t-il pu chuter autant en deux jours... Il reste pourtant deux jours... Peu importe, je n'attendrai pas la fin. Cette baisse soudaine du niveau de la mer est trop suspecte... Je vais utiliser le Liquide de Corruption Raffinée pour balayer les cultivateurs restants! »
 
 Un sentiment d'inquiétude l'envahit. Après une brève hésitation, elle serra les dents et sortit le liquide noir, qu'elle projeta vers la mer.
 
-La goutte d'eau noire s'élança instantanément pour disparaître dans l'océan. Dès son immersion, l'eau de mer devant la femme vira au noir !
+La goutte d'eau noire s'élança instantanément pour disparaître dans l'océan. Dès son immersion, l'eau de mer devant la femme vira au noir!
 
 Cette eau sombre, semblable à de l'encre, se répandit à une vitesse inimaginable.
 
-« Quel que soit le secret caché dans la Mer des Pillules, il périra face au Liquide de Corruption Raffinée ! »
+« Quel que soit le secret caché dans la Mer des Pillules, il périra face au Liquide de Corruption Raffinée! »
 
 Quant à Wang Lin, après deux jours, il avait absorbé une quantité massive d'eau de mer. Il tentait de la condenser en son sein pour former une essence d'eau, mais rien ne s'était encore produit. Après réflexion, il accéléra encore son absorption.
 
@@ -56,13 +56,13 @@ La moitié de la Carte des Pillules sur son instrument était devenue noire. Tou
 
 « Quel que soit l'être qui cause ce trouble, je veux voir comment vous absorberez la Mer des Pillules une fois qu'elle sera souillée... » murmura la femme, un éclat glacial dans le regard alors qu'elle passait en revue les centaines de points blancs restants.
 
-L'effondrement rapide du niveau de la mer la préoccupait au plus haut point. Elle devait en trouver la cause !
+L'effondrement rapide du niveau de la mer la préoccupait au plus haut point. Elle devait en trouver la cause!
 
-Le point blanc représentant Wang Lin fut d'abord ignoré par la femme. Cependant, alors que son regard balayait la carte, ses yeux se figèrent sur ce point précis et une intention meurtrière monstrueuse jaillit de son regard !
+Le point blanc représentant Wang Lin fut d'abord ignoré par la femme. Cependant, alors que son regard balayait la carte, ses yeux se figèrent sur ce point précis et une intention meurtrière monstrueuse jaillit de son regard!
 
-« Chaque point blanc représente un cultivateur du Continent du Démon Vert... Tous les points blancs se déplacent lentement vers le Continent du Taureau Céleste pour fuir, mais ce point blanc est resté immobile !! »
+« Chaque point blanc représente un cultivateur du Continent du Démon Vert... Tous les points blancs se déplacent lentement vers le Continent du Taureau Céleste pour fuir, mais ce point blanc est resté immobile!! »
 
-« J'aurais dû m'en rendre compte bien plus tôt ! » Un éclair de fureur traversa ses yeux.
+« J'aurais dû m'en rendre compte bien plus tôt! » Un éclair de fureur traversa ses yeux.
 
 « Directement au nord, à 97 millions de kilomètres, envoyez 30 unités de Soldats du Démon Vert pour l'éliminer... » Avant qu'elle n'ait pu terminer sa phrase, le point blanc représentant Wang Lin disparut soudainement.
 
@@ -70,27 +70,27 @@ L'événement fut si brusque qu'elle en resta muette et stupéfaite.
 
 Wang Lin, quant à lui, avait continué d'absorber l'eau de mer durant ces jours, sans pour autant parvenir à condenser la moindre essence d'eau. Peu après, il intensifia son absorption au point de faire trembler son corps tout entier. Il ouvrit les yeux, et ceux-ci brillèrent d'un éclat intense.
 
-« Essence d'eau !! Je sens l'aura d'une essence d'eau !! » Les yeux de Wang Lin s'illuminèrent et, après une brève hésitation, il afficha un regard résolu. Il se leva et fit un pas en avant. Des ondulations apparurent sous ses pieds alors qu'il fusionnait avec le monde pour disparaître.
+« Essence d'eau!! Je sens l'aura d'une essence d'eau!! » Les yeux de Wang Lin s'illuminèrent et, après une brève hésitation, il afficha un regard résolu. Il se leva et fit un pas en avant. Des ondulations apparurent sous ses pieds alors qu'il fusionnait avec le monde pour disparaître.
 
 Lorsqu'il réapparut, il se trouvait au-dessus de l'autre moitié de la Mer des Pillules, là où régnait le liquide noir. Dès son apparition, il ressentit une force terrifiante émanant de cette eau capable de corroder la chair et même les âmes originelles.
 
-« C'est là un autre pouvoir de l'essence d'eau ! » Le corps de Wang Lin était actuellement dans le neuvième cycle de complétion de son essence d'eau. Il possédait ainsi une résistance bien supérieure à celle des cultivateurs ordinaires.
+« C'est là un autre pouvoir de l'essence d'eau! » Le corps de Wang Lin était actuellement dans le neuvième cycle de complétion de son essence d'eau. Il possédait ainsi une résistance bien supérieure à celle des cultivateurs ordinaires.
 
-Bien que cette eau fût terrifiante, elle ne pouvait corroder son corps instantanément. Plus important encore, elle contenait l'essence d'eau dont il avait besoin !
+Bien que cette eau fût terrifiante, elle ne pouvait corroder son corps instantanément. Plus important encore, elle contenait l'essence d'eau dont il avait besoin!
 
-Sans hésiter, Wang Lin s'assit. Ses mains formèrent un sceau et les 36 000 pores de son corps s'ouvrirent pour absorber l'eau noire !
+Sans hésiter, Wang Lin s'assit. Ses mains formèrent un sceau et les 36 000 pores de son corps s'ouvrirent pour absorber l'eau noire!
 
-Alors qu'il l'absorbait frénétiquement, il ressentit des picotements douloureux dans son organisme, mais une sensation d'un confort extrême envahit son cœur. Son corps était nourri et le neuvième cycle touchait à sa fin !
+Alors qu'il l'absorbait frénétiquement, il ressentit des picotements douloureux dans son organisme, mais une sensation d'un confort extrême envahit son cœur. Son corps était nourri et le neuvième cycle touchait à sa fin!
 
 Loin de lui, de l'autre côté de la Mer des Pillules, près du Continent du Démon Vert, les pupilles de la femme se rétractèrent sous ses bannières. Elle fixa la boussole entre ses mains, la main droite tremblante.
 
 L'encre noire qui recouvrait la moitié de la Mer des Pillules se dissipait rapidement sur la carte. En voyant cela, son expression changea et elle eut un haut-le-cœur.
 
-« C'est... » L'incrédulité se lut dans ses yeux alors qu'elle contemplait la boussole, hébétée. Bientôt, elle remarqua qu'un point blanc subsistait au milieu de la zone noire de la Mer des Pillules. Ce point n'était pas brillant, mais il était l'unique point blanc de cette moitié de la mer !
+« C'est... » L'incrédulité se lut dans ses yeux alors qu'elle contemplait la boussole, hébétée. Bientôt, elle remarqua qu'un point blanc subsistait au milieu de la zone noire de la Mer des Pillules. Ce point n'était pas brillant, mais il était l'unique point blanc de cette moitié de la mer!
 
-« C'est lui ! » Les yeux de la femme se remplirent d'une intention meurtrière alors qu'elle pointait sa main gauche vers l'avant.
+« C'est lui! » Les yeux de la femme se remplirent d'une intention meurtrière alors qu'elle pointait sa main gauche vers l'avant.
 
-« 50 unités de Soldats du Démon Vert, tuez cet homme ! » Sur ce commandement, plus de la moitié des mille cultivateurs présents aux côtés de la femme s'élancèrent et disparurent.
+« 50 unités de Soldats du Démon Vert, tuez cet homme! » Sur ce commandement, plus de la moitié des mille cultivateurs présents aux côtés de la femme s'élancèrent et disparurent.
 
 Sur la boussole de la femme, une multitude de points verts apparurent autour de Wang Lin pour l'encercler.
 
@@ -100,18 +100,18 @@ Son corps, sa tête et ses cheveux ne furent plus secs tandis qu'il continuait d
 
 Le neuvième cycle de l'essence d'eau se remit en mouvement après que Wang Lin y eut injecté une puissance nouvelle par son absorption.
 
-La progression fut extrêmement rapide et le niveau de la mer dans cette zone chutait brutalement. Le neuvième cycle de l'essence d'eau de Wang Lin s'acheva promptement !
+La progression fut extrêmement rapide et le niveau de la mer dans cette zone chutait brutalement. Le neuvième cycle de l'essence d'eau de Wang Lin s'acheva promptement!
 
-Au moment où ce cycle fut complété, Wang Lin ouvrit les yeux. Son corps n'était plus flétri ; il était totalement restauré !
+Au moment où ce cycle fut complété, Wang Lin ouvrit les yeux. Son corps n'était plus flétri; il était totalement restauré!
 
-Dès sa guérison, la huitième essence apparut en lui : l'essence d'eau !
+Dès sa guérison, la huitième essence apparut en lui: l'essence d'eau!
 
-L'apparition de cette essence provoqua une ascension soudaine du niveau de cultivation de Wang Lin. Une aura puissante se dégagea de lui. C'était l'aura de son véritable niveau de cultivation : le stade avancé du Vide Spirituel.
+L'apparition de cette essence provoqua une ascension soudaine du niveau de culture de Wang Lin. Une aura puissante se dégagea de lui. C'était l'aura de son véritable niveau de culture: le stade avancé du Vide Spirituel.
 
-À cet instant, son aura augmenta de manière effrénée et franchit un nouveau seuil !
+À cet instant, son aura augmenta de manière effrénée et franchit un nouveau seuil!
 
-Lors de cette percée, son aura continua de croître jusqu'à atteindre le sommet du Vide Spirituel, n'étant plus qu'à un pas du Vide Arcane !
+Lors de cette percée, son aura continua de croître jusqu'à atteindre le sommet du Vide Spirituel, n'étant plus qu'à un pas du Vide Arcane!
 
-Simultanément, l'intérieur du corps de Wang Lin entra en ébullition et des bruits de craquements retentirent. Ses yeux révélèrent une lumière semblable à celle d'un cristal d'eau !
+Simultanément, l'intérieur du corps de Wang Lin entra en ébullition et des bruits de craquements retentirent. Ses yeux révélèrent une lumière semblable à celle d'un cristal d'eau!
 
-« Essence d'eau, condense-toi dans le sang de mon corps. Désormais, mon sang sera l'essence d'eau ! »
+« Essence d'eau, condense-toi dans le sang de mon corps. Désormais, mon sang sera l'essence d'eau! »

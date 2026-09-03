@@ -20,7 +20,7 @@ Si les bêtes étaient venues une à une, elles n'auraient pas représenté un g
 
 La raison en était que, lors de son échappée, d'innombrables autres bêtes-moustiques étaient apparues depuis les planètes voisines, au point de faire frissonner le cuir chevelu de Tu Si rien qu'à les voir.
 
-Wang Lin observa la bête sous lui, en particulier ses proboscis. Même si elle n'était pas la Bête-Moustique des souvenirs, elle devait être liée d'une manière ou d'une autre ; autrement, comment pouvait-elle posséder de tels appendices ?
+Wang Lin observa la bête sous lui, en particulier ses proboscis. Même si elle n'était pas la Bête-Moustique des souvenirs, elle devait être liée d'une manière ou d'une autre; autrement, comment pouvait-elle posséder de tels appendices?
 
 Fort de cette pensée, Wang Lin resta passif durant ce voyage. Il observait froidement, à distance, les combats de la bête contre d'autres créatures. Ce n'est que lors des instants critiques, entre la vie et la mort, qu'il intervenait pour sauver la bête-moustique.
 
@@ -30,7 +30,7 @@ Huit jours plus tard, Wang Lin arriva enfin à la ville.
 
 De grands et petits édifices couvraient la cité, abritant d'innombrables cultivateurs. Autour des rares réseaux de transfert de la ville, la foule était encore plus dense.
 
-Il faut dire qu'il y avait énormément de bêtes dans la Mer des Diables en ce moment. Seuls ceux ayant atteint un certain niveau de cultivation ou voyageant en petits groupes de trois à cinq osaient sortir des murs de la ville.
+Il faut dire qu'il y avait énormément de bêtes dans la Mer des Diables en ce moment. Seuls ceux ayant atteint un certain niveau de culture ou voyageant en petits groupes de trois à cinq osaient sortir des murs de la ville.
 
 La plupart des cultivateurs préféraient dépenser quelques pierres spirituelles pour utiliser les réseaux de transfert, garantissant ainsi une relative sécurité.
 
@@ -40,17 +40,17 @@ Wang Lin resta debout sur la bête et ne marqua aucun arrêt en pénétrant dans
 
 Wang Lin fronça les sourcils et disparut soudainement. Lorsqu'il réapparut, il était déjà à l'intérieur de la ville et la bête-moustique se trouvait dans son sac de stockage.
 
-Quant à sa cultivation, il la déguisa délibérément en un stade intermédiaire de l'Établissement des Fondations. Avec la puissance de son âme, à moins d'être au stade de la Découpe de l'Esprit, personne ne pourrait percer son apparence.
+Quant à sa culture, il la déguisa délibérément en un stade intermédiaire de l'Établissement des Fondations. Avec la puissance de son âme, à moins d'être au stade de la Découpe de l'Esprit, personne ne pourrait percer son apparence.
 
-Au moment de sa disparition, trois silhouettes apparurent dans le ciel. Elles étaient habillées de façon identique, seule la couleur de leurs vêtements changeait : noir, blanc et rouge.
+Au moment de sa disparition, trois silhouettes apparurent dans le ciel. Elles étaient habillées de façon identique, seule la couleur de leurs vêtements changeait: noir, blanc et rouge.
 
-L'homme vêtu de noir affichait une expression sérieuse alors qu'il scrutait la ville : « Ce cultivateur de l'Âme Naissante ne semble pas vouloir se faire remarquer. Peu importe, tant qu'il ne cause pas d'ennuis, je n'ai aucune raison d'en chercher avec lui. »
+L'homme vêtu de noir affichait une expression sérieuse alors qu'il scrutait la ville: « Ce cultivateur de l'Âme Naissante ne semble pas vouloir se faire remarquer. Peu importe, tant qu'il ne cause pas d'ennuis, je n'ai aucune raison d'en chercher avec lui. »
 
 Les deux autres échangèrent un regard et disparurent.
 
 Ils ignoraient que, durant tout ce temps, le sens divin de Wang Lin les avait verrouillés. Une fois qu'ils furent partis, Wang Lin retira son sens divin et commença à errer dans la ville.
 
-De nombreux commerces parsemaient la cité, mais après avoir parcouru maints étals, il ne trouva aucune carte à vendre. Après avoir marché un moment, il s'arrêta devant un bâtiment de trois étages et sourit. L'enseigne indiquait : Pavillon du Raffinage des Trésors.
+De nombreux commerces parsemaient la cité, mais après avoir parcouru maints étals, il ne trouva aucune carte à vendre. Après avoir marché un moment, il s'arrêta devant un bâtiment de trois étages et sourit. L'enseigne indiquait: Pavillon du Raffinage des Trésors.
 
 Wang Lin se souvenait encore de ce vieil homme de toutes ces années passées. Il pensait que ce dernier avait dû trouver la petite bête à laquelle Wang Lin avait transféré sa restriction.
 
@@ -62,9 +62,9 @@ Cette puissance était très légère. Seules les personnes ayant atteint le sta
 
 Fort de son expérience dans la Mer des Diables, Wang Lin avait appris qu'outre les commerces publics, il existait également des échanges secrets au sein des grandes cités.
 
-Ces échanges exigeaient souvent un niveau de cultivation minimum pour y accéder.
+Ces échanges exigeaient souvent un niveau de culture minimum pour y accéder.
 
-Wang Lin observa la boutique un instant. Alors qu'il s'avançait vers elle, son expression changea : il vit un jeune homme accourir vers lui. Ce dernier était très beau, mais semblait terrifié par sa course effrénée, jetant sans cesse des regards derrière lui. Il était poursuivi par un homme d'âge moyen qui le traquait avec une expression malveillante. L'homme finit par le rattraper et tenta de s'en saisir. Dans sa fuite pour esquiver, le jeune homme percuta Wang Lin.
+Wang Lin observa la boutique un instant. Alors qu'il s'avançait vers elle, son expression changea: il vit un jeune homme accourir vers lui. Ce dernier était très beau, mais semblait terrifié par sa course effrénée, jetant sans cesse des regards derrière lui. Il était poursuivi par un homme d'âge moyen qui le traquait avec une expression malveillante. L'homme finit par le rattraper et tenta de s'en saisir. Dans sa fuite pour esquiver, le jeune homme percuta Wang Lin.
 
 Le corps de Wang Lin se déplaça brusquement sur le côté pour l'éviter.
 
@@ -76,35 +76,35 @@ Le visage du jeune homme exprima l'horreur. Il se précipita pour saisir le jade
 
 Wang Lin fronça les sourcils. Il recula d'un pas pour éviter l'assaut.
 
-L'homme d'âge moyen parut surpris, mais resta furieux : « Tu oses barrer ma route ? Dégage ! »
+L'homme d'âge moyen parut surpris, mais resta furieux: « Tu oses barrer ma route? Dégage! »
 
-Wang Lin le regarda avec calme. Il vit que sa cultivation n'était qu'au stade intermédiaire de l'Établissement des Fondations. Sa puissance spirituelle était très instable ; il était évident qu'il avait été artificiellement élevé à ce niveau par l'usage de drogues.
+Wang Lin le regarda avec calme. Il vit que sa culture n'était qu'au stade intermédiaire de l'Établissement des Fondations. Sa puissance spirituelle était très instable; il était évident qu'il avait été artificiellement élevé à ce niveau par l'usage de drogues.
 
-Voyant que Wang Lin ne réagissait pas, l'homme laissa échapper un renâclement méprisant et se tourna vers le jeune homme : « Petit morveux, tu es bien courageux. Tu oses voler le jade de ton aîné ? »
+Voyant que Wang Lin ne réagissait pas, l'homme laissa échapper un renâclement méprisant et se tourna vers le jeune homme: « Petit morveux, tu es bien courageux. Tu oses voler le jade de ton aîné? »
 
-Le corps du garçon tremblait. Malgré sa terreur, il osa répliquer : « Tu mens ! C'est un héritage familial ! »
+Le corps du garçon tremblait. Malgré sa terreur, il osa répliquer: « Tu mens! C'est un héritage familial! »
 
-L'homme d'âge moyen éclata de rire. Il s'avança et asséna un coup de pied au jeune homme. Il lui arracha facilement le jade des mains en disant : « Et alors si je le veux ? Que peux-tu faire ? Et je ne vole pas, j'achète ! Tiens ! » Il jeta une pierre spirituelle de basse qualité au sol.
+L'homme d'âge moyen éclata de rire. Il s'avança et asséna un coup de pied au jeune homme. Il lui arracha facilement le jade des mains en disant: « Et alors si je le veux? Que peux-tu faire? Et je ne vole pas, j'achète! Tiens! » Il jeta une pierre spirituelle de basse qualité au sol.
 
 Le jeune homme fut projeté contre le sol par le coup et cracha un flot de sang. Son visage était livide tandis qu'il fixait l'homme avec une haine profonde.
 
 Quelques passants se retournèrent, mais à la vue de l'homme d'âge moyen, ils détournèrent rapidement les yeux pour s'éloigner.
 
-Wang Lin jeta un bref regard et ignora la scène pour continuer vers la boutique. Il savait ce qu'était ce jade violet : un matériau de raffinage pouvant se vendre environ une pierre spirituelle de qualité moyenne.
+Wang Lin jeta un bref regard et ignora la scène pour continuer vers la boutique. Il savait ce qu'était ce jade violet: un matériau de raffinage pouvant se vendre environ une pierre spirituelle de qualité moyenne.
 
-Quant aux insultes de l'homme, si c'était le Wang Lin d'autrefois, il ne l'aurait pas laissé s'en tirer, mais avec sa cultivation actuelle, il ne daignait plus s'abaisser à corriger un être aussi insignifiant.
+Quant aux insultes de l'homme, si c'était le Wang Lin d'autrefois, il ne l'aurait pas laissé s'en tirer, mais avec sa culture actuelle, il ne daignait plus s'abaisser à corriger un être aussi insignifiant.
 
-Cependant, si Wang Lin ne voulait pas de problèmes, l'homme, lui, en cherchait. Après avoir empoché le jade, il se sentit d'autant plus arrogant. En voyant Wang Lin s'éloigner, il cria : « Je t'ai dit de dégager, pas de marcher ! »
+Cependant, si Wang Lin ne voulait pas de problèmes, l'homme, lui, en cherchait. Après avoir empoché le jade, il se sentit d'autant plus arrogant. En voyant Wang Lin s'éloigner, il cria: « Je t'ai dit de dégager, pas de marcher! »
 
 Tout en parlant, il avança et tenta de frapper la tête de Wang Lin de sa main droite.
 
-Wang Lin marqua un temps d'arrêt et se retourna. Il lança un regard noir à l'homme. Ce dernier s'immobilisa instantanément sous la puissance du regard ; son front fut aussitôt couvert de sueur froide.
+Wang Lin marqua un temps d'arrêt et se retourna. Il lança un regard noir à l'homme. Ce dernier s'immobilisa instantanément sous la puissance du regard; son front fut aussitôt couvert de sueur froide.
 
 « Dégage », dit Wang Lin d'une voix calme avant de reprendre sa marche.
 
 À ce moment-là, un vieil homme sortit de la boutique. Il jeta un regard sur Wang Lin, puis, sans plus s'en préoccuper, se remit à essuyer l'enseigne.
 
-Le visage de l'homme d'âge moyen devint livide. Voyant que la foule s'était amassée, il serra les dents et frappa son sac de stockage. Une épée volante en sortit et il hurla : « Va ! »
+Le visage de l'homme d'âge moyen devint livide. Voyant que la foule s'était amassée, il serra les dents et frappa son sac de stockage. Une épée volante en sortit et il hurla: « Va! »
 
 L'épée fut aussi rapide que l'éclair et, la distance étant infime, elle atteignit presque Wang Lin. Pourtant, juste avant le contact, elle se brisa étrangement en deux et s'écrasa au sol.
 
@@ -114,23 +114,23 @@ Le corps de ce dernier fut secoué par un cri déchirant. Il se transforma en un
 
 Le jeune homme fixa le jade violet. Il s'empara précipitamment du bijou dans la flaque de sang, jeta un dernier regard inquiet sur Wang Lin, puis s'enfuit à toute vitesse.
 
-Les spectateurs, sous le choc, quittèrent les lieux rapidement. Le vieil homme fronça les sourcils en voyant Wang Lin marcher sereinement vers la boutique et déclara : « Cette boutique n'est pas ouverte au public. Je demande au camarade cultivateur de partir. »
+Les spectateurs, sous le choc, quittèrent les lieux rapidement. Le vieil homme fronça les sourcils en voyant Wang Lin marcher sereinement vers la boutique et déclara: « Cette boutique n'est pas ouverte au public. Je demande au camarade cultivateur de partir. »
 
-Le visage de Wang Lin se durcit. Il pointa l'énergie spirituelle sur l'enseigne et demanda : « Si elle n'est pas publique, pourquoi cette marque est-elle ici ? »
+Le visage de Wang Lin se durcit. Il pointa l'énergie spirituelle sur l'enseigne et demanda: « Si elle n'est pas publique, pourquoi cette marque est-elle ici? »
 
-Le vieil homme fut stupéfait. Il devint instantanément respectueux : « Veuillez m'excuser, Aîné. Entrez donc, nous discuterons à l'intérieur. »
+Le vieil homme fut stupéfait. Il devint instantanément respectueux: « Veuillez m'excuser, Aîné. Entrez donc, nous discuterons à l'intérieur. »
 
-Une fois dans la boutique, le vieil homme eut une expression étrange. Il soupira : « Aîné, l'échange n'ouvrira que dans trois jours. Je suggère au junior de quitter la ville au plus vite. »
+Une fois dans la boutique, le vieil homme eut une expression étrange. Il soupira: « Aîné, l'échange n'ouvrira que dans trois jours. Je suggère au junior de quitter la ville au plus vite. »
 
-Wang Lin demanda calmement : « La personne que je viens de tuer avait-elle un puissant soutien ? »
+Wang Lin demanda calmement: « La personne que je viens de tuer avait-elle un puissant soutien? »
 
 Le vieil homme hésita longuement, puis hocha la tête sans ajouter un mot.
 
-À cet instant, une puissante empreinte de sens divin balaya soudainement la ville depuis l'est, transmettant ce message : « Le voyou qui a tué mon disciple, sors de ta cachette ! »
+À cet instant, une puissante empreinte de sens divin balaya soudainement la ville depuis l'est, transmettant ce message: « Le voyou qui a tué mon disciple, sors de ta cachette! »
 
-Le visage du vieil homme changea radicalement. Il regarda Wang Lin avec une expression suppliante : « Aîné, je vous en prie, ayez pitié de ce vieux et partez. Si cet homme me tient pour responsable, je ne pourrai pas y survivre. De plus, tous les jetons pour cet échange ont déjà été distribués ; même si vous revenez dans trois jours, votre accès ne sera pas refusé. »
+Le visage du vieil homme changea radicalement. Il regarda Wang Lin avec une expression suppliante: « Aîné, je vous en prie, ayez pitié de ce vieux et partez. Si cet homme me tient pour responsable, je ne pourrai pas y survivre. De plus, tous les jetons pour cet échange ont déjà été distribués; même si vous revenez dans trois jours, votre accès ne sera pas refusé. »
 
-Wang Lin se leva et demanda avec calme : « La personne qui vient d'envoyer ce message possède-t-elle un jeton ? »
+Wang Lin se leva et demanda avec calme: « La personne qui vient d'envoyer ce message possède-t-elle un jeton? »
 
 Le vieil homme, interdit, hocha la tête par réflexe. Lorsqu'il reprit ses esprits, il vit que Wang Lin avait déjà disparu.
 
@@ -144,21 +144,21 @@ Pour empêcher toute fuite, il avait ordonné le blocage des portes de la ville.
 
 Mais plus il cherchait, plus il s'enfonçait dans le doute. Malgré ses multiples recherches, l'individu semblait s'être volatilisé. Il avait même fouillé la boutique secrète sans succès.
 
-Par pure frustration, il avait lancé ce message divin ; pour lui, le tueur devait avoir utilisé une technique secrète, et ce cri n'était qu'un exutoire à sa colère.
+Par pure frustration, il avait lancé ce message divin; pour lui, le tueur devait avoir utilisé une technique secrète, et ce cri n'était qu'un exutoire à sa colère.
 
 Cependant, il ne s'attendait pas à ce que, presque au moment même où il envoyait son message, un jeune homme apparaisse à dix pieds de lui. Ce dernier avait les cheveux blancs et une beauté frappante. Il correspondait exactement à la description du tueur.
 
-Les pupilles du chauve se rétractèrent instantanément. Il recula et réprima aussitôt sa colère. Malgré son aspect brutal, c'était un homme extrêmement prudent ; il n'aurait pas atteint son rang actuel sans cette prudence.
+Les pupilles du chauve se rétractèrent instantanément. Il recula et réprima aussitôt sa colère. Malgré son aspect brutal, c'était un homme extrêmement prudent; il n'aurait pas atteint son rang actuel sans cette prudence.
 
-Voyant que le jeune homme s'était téléporté et qu'il était resté introuvable malgré ses multiples scans, il en tira une conclusion : ce jeune homme n'était pas seulement un cultivateur de l'Âme Naissante, mais possédait un niveau supérieur au sien.
+Voyant que le jeune homme s'était téléporté et qu'il était resté introuvable malgré ses multiples scans, il en tira une conclusion: ce jeune homme n'était pas seulement un cultivateur de l'Âme Naissante, mais possédait un niveau supérieur au sien.
 
-Après être apparu, Wang Lin ne dit mot. Il frappa son sac de stockage et en sortit son drapeau de restriction. Une lueur froide passa dans ses yeux lorsqu'il ordonna : « Dispersion ! »
+Après être apparu, Wang Lin ne dit mot. Il frappa son sac de stockage et en sortit son drapeau de restriction. Une lueur froide passa dans ses yeux lorsqu'il ordonna: « Dispersion! »
 
 La restriction s'activa immédiatement et se propagea avec rapidité, couvrant le ciel. En quelques instants, toute la ville fut plongée dans l'obscurité par le drapeau de restriction.
 
 L'expression du chauve changea et il gémit intérieurement. Il ouvrit précipitamment son sac pour libérer des essaims d'insectes qui vinrent l'encercler.
 
-Il tenta de dire rapidement : « Camarade cultivateur, c'est un malentendu... »
+Il tenta de dire rapidement: « Camarade cultivateur, c'est un malentendu... »
 
 Wang Lin l'interrompit par un renâclement froid. Il pointa son doigt vers lui et neuf dragons noirs, formés par le drapeau de restriction, chargèrent vers l'homme.
 
@@ -166,19 +166,19 @@ Simultanément, Wang Lin frappa son sac et le miroir de bronze apparut dans sa m
 
 Les restrictions étaient d'une puissance redoutable. Les neuf dragons frappèrent de toutes parts. Les insectes entourant le chauve se désintégrèrent instantanément au contact des créatures.
 
-Le chauve était horrifié. Avec sa cultivation de l'Âme Naissante au stade initial, il sentit la mort approcher. L'étrange trésor magique du jeune homme l'effrayait au plus haut point.
+Le chauve était horrifié. Avec sa culture de l'Âme Naissante au stade initial, il sentit la mort approcher. L'étrange trésor magique du jeune homme l'effrayait au plus haut point.
 
 Il réfléchit une fraction de seconde, mordit le bout de sa langue et cracha un jet de sang. Son corps devint rouge sang alors qu'il reculait avec précipitation. Il savait que s'il restait dans la portée de ce trésor, il n'aurait aucune chance. Sa seule option était de sortir du champ d'action pour l'affronter à l'extérieur.
 
 Voyant qu'il allait enfin percer les ténèbres, une lueur d'espoir brilla dans ses yeux, mais neuf autres dragons surgirent de toutes les directions.
 
-Wang Lin avait anticipé cette réaction ; le miroir de bronze projeta instantanément un rayon de lumière verte qui enveloppa le chauve. La silhouette de ce dernier fut figée une fraction de seconde, et c'est à cet instant que les neuf dragons l'écrasèrent.
+Wang Lin avait anticipé cette réaction; le miroir de bronze projeta instantanément un rayon de lumière verte qui enveloppa le chauve. La silhouette de ce dernier fut figée une fraction de seconde, et c'est à cet instant que les neuf dragons l'écrasèrent.
 
 Dans ce moment critique, le chauve sortit un trident de sa bouche. Il tourna violemment avec son arme, détruisant les neuf dragons.
 
 Cependant, cet effort le laissa immobile. Bien qu'il ait fini par se libérer de la lumière verte, une fumée verdâtre émanait de son corps et il paraissait extrêmement affaibli.
 
-À peine sortit-il du rayon vert qu'il cracha un flot de sang ; son Âme Naissante apparut au-dessus de lui, le visage déformé par l'horreur, et s'enfuit précipitamment. En dessous, une étrange épée noire transperça la poitrine du corps du chauve.
+À peine sortit-il du rayon vert qu'il cracha un flot de sang; son Âme Naissante apparut au-dessus de lui, le visage déformé par l'horreur, et s'enfuit précipitamment. En dessous, une étrange épée noire transperça la poitrine du corps du chauve.
 
 Wang Lin afficha un sourire froid à distance. D'un geste de la main, il fit téléporter l'épée noire vers lui.
 
@@ -210,4 +210,4 @@ Cependant, le duc étant presque toujours en méditation fermée, l'affaire risq
 
 Les trois hommes se regardèrent et, dans un soupir collectif, partirent.
 
-Wang Lin réapparut devant la boutique secrète. Il lança le jeton au vieil homme stupéfait et dit simplement : « Maintenant, j'ai un jeton. »
+Wang Lin réapparut devant la boutique secrète. Il lança le jeton au vieil homme stupéfait et dit simplement: « Maintenant, j'ai un jeton. »

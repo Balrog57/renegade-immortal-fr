@@ -8,7 +8,7 @@ slug: mei-ji
 ---
 L'autre chose qui attira l'attention de Wang Lin était un trésor en forme de roue.
 
-Cette roue n'était pas grande ; son rayon ne faisait qu'environ un centimètre. Elle était extrêmement sobre, sans aucune décoration ni éclat ; elle présentait même des traces de rouille.
+Cette roue n'était pas grande; son rayon ne faisait qu'environ un centimètre. Elle était extrêmement sobre, sans aucune décoration ni éclat; elle présentait même des traces de rouille.
 
 La raison pour laquelle Wang Lin s'y intéressait était que Xu Liguo lui avait affirmé qu'une âme était scellée à l'intérieur et l'avait supplié de la libérer.
 
@@ -18,19 +18,19 @@ Xu Liguo possédait une intelligence que les âmes errantes n'avaient pas. Le fa
 
 La personnalité de Xu Liguo était celle d'un poltron, mais il était en même temps très orgueilleux. Dans l'ensemble, cela faisait de lui un démon très complexe. Le fait qu'il supplie ainsi Wang Lin de libérer cette âme rendit ce dernier prudent.
 
-« Intéressant ! » Les yeux de Wang Lin s'illuminèrent. Après avoir réfléchi un instant, il parvint à deviner ce qui s'était produit. L'ancêtre du Clan des Démons Géants avait dû utiliser l'âme enfermée dans la roue pour tenter Xu Liguo. C'est pourquoi Xu Liguo y pensait encore, même après être revenu auprès de lui.
+« Intéressant! » Les yeux de Wang Lin s'illuminèrent. Après avoir réfléchi un instant, il parvint à deviner ce qui s'était produit. L'ancêtre du Clan des Démons Géants avait dû utiliser l'âme enfermée dans la roue pour tenter Xu Liguo. C'est pourquoi Xu Liguo y pensait encore, même après être revenu auprès de lui.
 
 Après avoir observé la roue un moment, il sortit l'épée céleste. Dès que l'épée apparut, Xu Liguo surgit également. Il poussa un hurlement, fixant la roue d'un regard ardent.
 
-Xu Liguo s'exclama rapidement : « Maître, c'est la roue du trésor ! Une âme est enfermée à l'intérieur ; libérez-la vite ! »
+Xu Liguo s'exclama rapidement: « Maître, c'est la roue du trésor! Une âme est enfermée à l'intérieur; libérez-la vite! »
 
-Wang Lin demanda calmement : « Comment sais-tu qu'une âme se trouve dans cette roue ? »
+Wang Lin demanda calmement: « Comment sais-tu qu'une âme se trouve dans cette roue? »
 
-« L'ancêtre du Clan des Démons Géants l'a appelée... Maître, libérez-la vite ! » L'expression de Xu Liguo devint extrêmement anxieuse.
+« L'ancêtre du Clan des Démons Géants l'a appelée... Maître, libérez-la vite! » L'expression de Xu Liguo devint extrêmement anxieuse.
 
-Wang Lin regarda Xu Liguo et demanda : « Quel est le niveau de cultivation de cette âme ? »
+Wang Lin regarda Xu Liguo et demanda: « Quel est le niveau de culture de cette âme? »
 
-L'anxiété de Xu Liguo s'intensifia ; c'était comme s'il entendait une petite fée l'appeler au secours. Il devint impatient et lança : « Elle n'a pas de niveau de cultivation, ce n'est qu'un fragment d'âme ! Si vous ne voulez pas la sauver, je le ferai moi-même ! »
+L'anxiété de Xu Liguo s'intensifia; c'était comme s'il entendait une petite fée l'appeler au secours. Il devint impatient et lança: « Elle n'a pas de niveau de culture, ce n'est qu'un fragment d'âme! Si vous ne voulez pas la sauver, je le ferai moi-même! »
 
 Xu Liguo ne réalisa même pas qu'en voyant la roue, sa peur de Wang Lin s'était dissipée et que son ton avait inconsciemment changé.
 
@@ -44,19 +44,19 @@ Alors que la lumière verte brillait, Wang Lin ne ressentit aucune fluctuation d
 
 Son regard restait calme. Un étrange symbole, de la taille d'un ongle, apparut rapidement avant de disparaître. La lueur verte surgit de nouveau pour dissoudre l'énergie.
 
-« Intéressant ! » Les yeux de Wang Lin s'illuminèrent.
+« Intéressant! » Les yeux de Wang Lin s'illuminèrent.
 
 Xu Liguo avait atteint ses limites. Sans un mot, il jaillit de l'épée céleste vers la roue du trésor.
 
-Wang Lin lui lança un regard glacial. Le comportement de Xu Liguo était trop étrange ; quelque chose ne tournait pas rond.
+Wang Lin lui lança un regard glacial. Le comportement de Xu Liguo était trop étrange; quelque chose ne tournait pas rond.
 
 Il remarqua qu'au moment où Xu Liguo s'approcha de la roue, l'étrange symbole réapparut. La lueur verte jaillit à nouveau et Xu Liguo poussa un gémissement de douleur lorsqu'il fut projeté en arrière de dix pieds.
 
 Ses yeux étaient injectés de sang. Il poussa un rugissement et s'apprêtait à retenter sa chance quand Wang Lin le pointa du doigt, l'immobilisant en plein vol.
 
-Xu Liguo se tourna vers Wang Lin et hurla : « Que faites-vous ?! Laissez-moi ! Je vais la libérer ! »
+Xu Liguo se tourna vers Wang Lin et hurla: « Que faites-vous?! Laissez-moi! Je vais la libérer! »
 
-Wang Lin regarda froidement Xu Liguo. Le corps de ce dernier tremblait et semblait retrouver une trace de lucidité. Il fixa la roue du trésor d'un air terrifié et dit : « Maître, maître, je vous en prie, ne me blâmez pas. Chaque fois que je vois cette roue, je perds le contrôle de moi-même. »
+Wang Lin regarda froidement Xu Liguo. Le corps de ce dernier tremblait et semblait retrouver une trace de lucidité. Il fixa la roue du trésor d'un air terrifié et dit: « Maître, maître, je vous en prie, ne me blâmez pas. Chaque fois que je vois cette roue, je perds le contrôle de moi-même. »
 
 Wang Lin ignora Xu Liguo et saisit la roue du trésor. De son pouce gauche, il pressa l'endroit où se trouvait l'étrange symbole.
 
@@ -70,21 +70,21 @@ Ce son était imprégné d'un pouvoir mystérieux. La force qui retenait Xu Ligu
 
 Ses yeux étaient empreints de désir alors qu'il s'élançait rapidement vers la lueur rouge.
 
-La lumière se mua en une femme extrêmement séduisante. Elle ne portait qu'une fine couche de vêtements qui laissaient deviner une grande partie de sa peau. Elle jeta un regard à Xu Liguo et sourit : « Grand frère Xu, petite sœur vous a attendu si longtemps. Pourquoi ne me sauvez-vous que maintenant ? »
+La lumière se mua en une femme extrêmement séduisante. Elle ne portait qu'une fine couche de vêtements qui laissaient deviner une grande partie de sa peau. Elle jeta un regard à Xu Liguo et sourit: « Grand frère Xu, petite sœur vous a attendu si longtemps. Pourquoi ne me sauvez-vous que maintenant? »
 
 Sur ces mots, elle leva sa main délicate et pointa Xu Liguo du doigt. Son expression était celle d'une femme flirtant avec son amant.
 
 Le regard de Wang Lin se glaça. À l'apparition de cette femme, même son propre cœur fut affecté. Heureusement, il avait cultivé la technique de scellement des âmes, laquelle liait son âme au drapeau aux un milliard d'âmes, lui permettant de reprendre rapidement ses esprits.
 
-Mais cet incident le choqua : s'il s'était laissé distraire ainsi en plein combat, il se serait retrouvé dans une position désastreuse.
+Mais cet incident le choqua: s'il s'était laissé distraire ainsi en plein combat, il se serait retrouvé dans une position désastreuse.
 
-« Oses-tu utiliser une technique aussi démoniaque devant moi ?! » Wang Lin laissa échapper un reniflement glacial. Ce son atteignit les oreilles de Xu Liguo et de la femme, résonnant comme le tonnerre.
+« Oses-tu utiliser une technique aussi démoniaque devant moi?! » Wang Lin laissa échapper un reniflement glacial. Ce son atteignit les oreilles de Xu Liguo et de la femme, résonnant comme le tonnerre.
 
 Le corps de Xu Liguo trembla et ses yeux retrouvèrent immédiatement leur clarté. Étant déjà un démon, il comprit l'erreur après les deux avertissements de Wang Lin. Terrifié, il recula précipitamment.
 
-La femme se retourna et fixa Wang Lin un instant avant d'esquisser un magnifique sourire. À cet instant, tout le reste sembla s'effacer ; son sourire était la seule chose qui subsistait.
+La femme se retourna et fixa Wang Lin un instant avant d'esquisser un magnifique sourire. À cet instant, tout le reste sembla s'effacer; son sourire était la seule chose qui subsistait.
 
-Ses cils tremblèrent légèrement et elle murmura, comme une plainte : « Quel être malveillant... Ce n'est pas que je voulais vous offenser... »
+Ses cils tremblèrent légèrement et elle murmura, comme une plainte: « Quel être malveillant... Ce n'est pas que je voulais vous offenser... »
 
 Sa voix recelait un pouvoir mystérieux. Lorsqu'elle atteignit les oreilles de Wang Lin, son cœur vacilla une fois de plus.
 
@@ -98,7 +98,7 @@ La femme s'exclama. Réalisant que quelque chose ne tournait pas rond, elle tent
 
 La femme poussa un nouveau cri et recula sans hésiter.
 
-Le fragment d'âme de Li Yuanfeng chargea rapidement, encerclant la femme avec les autres fragments. Alors qu'ils étaient sur le point de la dévorer, un pouvoir mystérieux émana de ses yeux et elle sourit : « Grands frères, pourquoi devez-vous tous agir ainsi ? Je ne suis pas votre ennemie. »
+Le fragment d'âme de Li Yuanfeng chargea rapidement, encerclant la femme avec les autres fragments. Alors qu'ils étaient sur le point de la dévorer, un pouvoir mystérieux émana de ses yeux et elle sourit: « Grands frères, pourquoi devez-vous tous agir ainsi? Je ne suis pas votre ennemie. »
 
 D'un seul mot, même le fragment d'âme de Li Yuanfeng fut stupéfait, ses yeux emplis de confusion. Les autres fragments semblaient dans un état pire encore, fixant la femme avec stupeur.
 
@@ -110,19 +110,19 @@ L'expression de Wang Lin resta imperturbable. Sans même regarder les fragments 
 
 Ses yeux retrouvèrent leur clarté. Cette fois, c'était sa peur de Wang Lin qui l'emporta sur le charme de la femme.
 
-Il jura intérieurement. Pourquoi avait-il attaqué ce monstre ? Bravo, maintenant tout le mérite qu'il avait acquis en tuant l'ancêtre du Clan des Démons Géants s'était envolé.
+Il jura intérieurement. Pourquoi avait-il attaqué ce monstre? Bravo, maintenant tout le mérite qu'il avait acquis en tuant l'ancêtre du Clan des Démons Géants s'était envolé.
 
-Plus Xu Liguo y pensait, plus il bouillonnait de rage, et finit par hurler à la femme : « Espèce de coquine, c'est ta faute si tu m'as charmé ! »
+Plus Xu Liguo y pensait, plus il bouillonnait de rage, et finit par hurler à la femme: « Espèce de coquine, c'est ta faute si tu m'as charmé! »
 
 Elle afficha une expression triste et s'apprêtait à parler quand le fragment d'âme de Li Yuanfeng et les autres arrivèrent devant Wang Lin. Wang Lin pointa sa main droite et tous les fragments poussèrent des gémissements misérables. Avec le fragment de Li Yuanfeng, ils se dispersèrent tous.
 
-« Assez ! Toi, viens ici ! » Wang Lin tendit la main. La femme s'exclama et tenta d'esquiver, mais elle fut capturée par Wang Lin et traînée devant lui.
+« Assez! Toi, viens ici! » Wang Lin tendit la main. La femme s'exclama et tenta d'esquiver, mais elle fut capturée par Wang Lin et traînée devant lui.
 
 Après avoir attentivement examiné la femme, il parvint à percer son secret. À l'intérieur du fragment d'âme résidait un domaine. Ce domaine était extrêmement puissant et pouvait charmer une multitude de choses dans ce monde.
 
-« Un fragment d'âme doté d'un domaine... Intéressant ! » Les yeux de Wang Lin devinrent froids. « Quel est ton nom ? »
+« Un fragment d'âme doté d'un domaine... Intéressant! » Les yeux de Wang Lin devinrent froids. « Quel est ton nom? »
 
-La femme lutta longuement. Respirant avec difficulté, elle dit d'un ton séducteur : « Je ne vous ai même pas offensé. Pourquoi ne me laissez-vous pas partir ? »
+La femme lutta longuement. Respirant avec difficulté, elle dit d'un ton séducteur: « Je ne vous ai même pas offensé. Pourquoi ne me laissez-vous pas partir? »
 
 Son souffle voluptueux portait en lui une trace de son charme.
 

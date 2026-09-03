@@ -18,16 +18,16 @@ Après l'exécution de **Daoist Water** par Wang Lin, ce dernier fit de **Mu Bin
 
 ### Fiche signalétique
 
-- **Nom :** Secte Originelle (Origin Sect)
-- **Rang :** Secte de rang 5
-- **Région :** Mo Luo, Région de rang 5, Mer de Nuages
-- **Ancêtre :** À son dernier souffle (au moment de l'arrivée de Wang Lin)
-- **Disciple directe :** Lu Yanfei
-- **Membres notables :** Xu Yun, Zhao Yu
-- **Alias de Wang Lin :** Ceng Niu
-- **Système stellaire :** Système Stellaire de la Mer de Nuages (Cloud Sea Star System)
-- **Monde :** Monde de la Grotte de Wang Lin
-- **Royaume :** Royaume Scellé
+- **Nom:** Secte Originelle (Origin Sect)
+- **Rang:** Secte de rang 5
+- **Région:** Mo Luo, Région de rang 5, Mer de Nuages
+- **Ancêtre:** À son dernier souffle (au moment de l'arrivée de Wang Lin)
+- **Disciple directe:** Lu Yanfei
+- **Membres notables:** Xu Yun, Zhao Yu
+- **Alias de Wang Lin:** Ceng Niu
+- **Système stellaire:** Système Stellaire de la Mer de Nuages (Cloud Sea Star System)
+- **Monde:** Monde de la Grotte de Wang Lin
+- **Royaume:** Royaume Scellé
 
 ## Contexte
 

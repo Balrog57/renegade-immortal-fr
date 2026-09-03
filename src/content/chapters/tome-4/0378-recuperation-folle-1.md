@@ -8,7 +8,7 @@ slug: recuperation-folle-1
 ---
 Pays de Xue Yue, à l'intérieur du Sanctuaire divin de la Neige et de la Glace.
 
-Li Yuanfeng était actuellement assis en position de lotus, en pleine cultivation. Autour de lui se trouvaient cinq grands blocs de glace. Chacun d’eux émettait une lumière aux cinq couleurs ainsi que des éclats d'énergie spirituelle céleste qu'il pouvait absorber.
+Li Yuanfeng était actuellement assis en position de lotus, en pleine culture. Autour de lui se trouvaient cinq grands blocs de glace. Chacun d’eux émettait une lumière aux cinq couleurs ainsi que des éclats d'énergie spirituelle céleste qu'il pouvait absorber.
 
 Un morceau de jade céleste de la taille d'un ongle se trouvait à l'intérieur de chaque bloc. Grâce à une formation inscrite dans la glace, l'énergie spirituelle céleste subissait une transformation mystérieuse.
 
@@ -16,7 +16,7 @@ L'apparence de Li Yuanfeng n'était pas catastrophique, mais son expression éta
 
 Après un très long moment, il ouvrit les yeux, laissant transparaître un regard empreint de crainte.
 
-« Quelle puissance dévastatrice dans cette foudre ! Elle contenait de l'énergie spirituelle céleste. Même si j'ai réussi à en réduire la puissance de moitié avant qu'elle ne me frappe, elle a tout de même causé de telles blessures. »
+« Quelle puissance dévastatrice dans cette foudre! Elle contenait de l'énergie spirituelle céleste. Même si j'ai réussi à en réduire la puissance de moitié avant qu'elle ne me frappe, elle a tout de même causé de telles blessures. »
 
 Li Yuanfeng avait tenté de tuer Wang Lin pendant que Sun Tai et l'ancêtre du Clan des Démons Géants se livraient combat. Cependant, il avait été frappé par la foudre de Sun Tai et avait dû déployer force et adresse pour enfin s'échapper.
 
@@ -24,15 +24,15 @@ Il n'avait atteint le stade de la Transformation de l'Âme qu'en forçant le des
 
 En conséquence, comparé aux cultivateurs ayant atteint le stade de la Transformation de l'Âme par leurs propres moyens, il était bien trop faible.
 
-Li Yuanfeng était plus puissant que les cultivateurs au sommet du dernier stade de la Formation de l'Âme, mais bien inférieur aux véritables experts de la Transformation de l'Âme ; il n'avait donc aucun moyen de résister à la foudre de Sun Tai.
+Li Yuanfeng était plus puissant que les cultivateurs au sommet du dernier stade de la Formation de l'Âme, mais bien inférieur aux véritables experts de la Transformation de l'Âme; il n'avait donc aucun moyen de résister à la foudre de Sun Tai.
 
 « Je ne sais pas si Ceng Niu est mort ou non. Même s'il est toujours en vie, mon domaine de thé n'est pas une chose que l'on peut briser aisément. » Li Yuanfeng ricana, le regard glacial.
 
-« Cette junior, Red Butterfly, a annoncé qu'elle entrerait en retraite de cultivation pour cent ans. À sa sortie, elle sera certainement une cultivatrice de la Transformation de l'Âme. Mais à ce moment-là, ma propre durée de vie aura expiré et cela n'aura plus d'importance. Pourquoi l'ancêtre du Clan des Démons Géants voulait-il le corps de Ceng Niu ? C'est très étrange ! Se pourrait-il qu'il y ait quelque chose que j'ignore... » Li Yuanfeng réfléchit un instant, sans toutefois parvenir à en deviner la raison.
+« Cette junior, Papillon Rouge, a annoncé qu'elle entrerait en retraite de culture pour cent ans. À sa sortie, elle sera certainement une cultivatrice de la Transformation de l'Âme. Mais à ce moment-là, ma propre durée de vie aura expiré et cela n'aura plus d'importance. Pourquoi l'ancêtre du Clan des Démons Géants voulait-il le corps de Ceng Niu? C'est très étrange! Se pourrait-il qu'il y ait quelque chose que j'ignore... » Li Yuanfeng réfléchit un instant, sans toutefois parvenir à en deviner la raison.
 
-À l'intérieur de Pilu, parmi les nombreuses montagnes occupées par les disciples de la secte extérieure du Secte du Raffinement de l'Âme, Wang Lin s'éveilla de sa cultivation.
+À l'intérieur de Pilu, parmi les nombreuses montagnes occupées par les disciples de la secte extérieure de la Secte du Raffinement de l'Âme, Wang Lin s'éveilla de sa culture.
 
-« Le sommet du dernier stade de l'Établissement des Fondations ! »
+« Le sommet du dernier stade de l'Établissement des Fondations! »
 
 Les yeux de Wang Lin brillaient alors qu'il prenait une profonde inspiration et remuait son corps. Le givre spirituel collé à sa peau commença à circuler pour pénétrer en lui.
 
@@ -40,7 +40,7 @@ Même le givre sur le sol et les murs se mua en un léger gaz bleu, absorbé par
 
 La marque de thé sur le visage de Wang Lin s'était légèrement estompée, mais elle demeurait très frappante.
 
-« Cet œil de veine spirituelle pseudo n'est pas suffisant pour répondre à mes besoins ; je dois trouver un endroit où l'énergie spirituelle est encore plus dense. Je suis convaincu que l'endroit où se trouve le véritable œil de la veine spirituelle sera à la hauteur. » Wang Lin reconstruisit les formations pour dissimuler l'œil pseudo et sortit de la grotte.
+« Cet œil de veine spirituelle pseudo n'est pas suffisant pour répondre à mes besoins; je dois trouver un endroit où l'énergie spirituelle est encore plus dense. Je suis convaincu que l'endroit où se trouve le véritable œil de la veine spirituelle sera à la hauteur. » Wang Lin reconstruisit les formations pour dissimuler l'œil pseudo et sortit de la grotte.
 
 Le soleil brillait au-dehors. En regardant au loin, on devinait les prémices du printemps. Les flancs des montagnes étaient verdoyants, dégageant une élégance naturelle. Bien que le vent fût encore frais, il portait en lui une pointe de chaleur.
 
@@ -58,17 +58,17 @@ Wang Lin détourna les yeux. Il reconnut immédiatement cette jeune femme comme 
 
 Wang Lin fronça les sourcils. « Cette fille me semble familière... Pourtant, je suis certain de ne jamais l'avoir rencontrée auparavant... »
 
-La Liu Mei du Secte Xuan Dao n'était qu'un avatar créé par la technique des Mille Clones.
+La Liu Mei de la Secte Xuan Dao n'était qu'un avatar créé par la technique des Mille Clones.
 
-Wang Lin réfléchit un instant puis cessa de se soucier de cette jeune femme. Bien qu'elle fût la plus belle femme qu'il ait jamais vue de sa vie, plus belle encore que Red Butterfly et une beauté à laquelle même Li Muwan ne pouvait être comparée, elle ne parvint pas à captiver son attention.
+Wang Lin réfléchit un instant puis cessa de se soucier de cette jeune femme. Bien qu'elle fût la plus belle femme qu'il ait jamais vue de sa vie, plus belle encore que Papillon Rouge et une beauté à laquelle même Li Muwan ne pouvait être comparée, elle ne parvint pas à captiver son attention.
 
 Il sauta de la montagne et l'examina tout en descendant en flottant. Puis, son regard se fixa sur l'une des grottes de la paroi.
 
 Cette grotte n'avait rien de spécial et n'était pas la plus basse. De loin, il pouvait voir le numéro 743 inscrit au-dessus de l'entrée.
 
-« Ça doit être ici ! » Wang Lin atterrit et observa la grotte.
+« Ça doit être ici! » Wang Lin atterrit et observa la grotte.
 
-Pendant sa cultivation, il avait utilisé l'œil de veine spirituelle pseudo pour localiser le véritable œil de la veine spirituelle. En y regardant de plus près, il put déterminer immédiatement que la grotte 743 était l'une des plus proches du véritable œil.
+Pendant sa culture, il avait utilisé l'œil de veine spirituelle pseudo pour localiser le véritable œil de la veine spirituelle. En y regardant de plus près, il put déterminer immédiatement que la grotte 743 était l'une des plus proches du véritable œil.
 
 « Il y a quelqu'un à l'intérieur. » Wang Lin vit que la porte de la grotte était scellée. Après une courte réflexion, il élabora un plan.
 
@@ -76,45 +76,45 @@ Alors qu'il s'apprêtait à retourner dans sa propre grotte, l'homme d'âge mûr
 
 En vérité, il observait Wang Lin depuis le moment où celui-ci était sorti.
 
-L'expression de l'homme d'âge mûr ne trahissait aucune émotion lorsqu'il dit : « Qian Mu, viens ici ! »
+L'expression de l'homme d'âge mûr ne trahissait aucune émotion lorsqu'il dit: « Qian Mu, viens ici! »
 
-Une trace d'intention meurtrière apparut dans les yeux de Wang Lin. Il s'approcha à dix pieds de l'homme.
+Une trace d'intention meurtrière apparut dans les yeux de Wang Lin. Il s'approcha à 33 mètres de l'homme.
 
-« Le sommet du dernier stade de l'Établissement des Fondations... » Les pupilles de l'homme d'âge mûr se contractèrent et son cœur se mit à battre la chamade. Il avait le pressentiment que ce Qian Mu cachait quelque chose de suspect. Sa vitesse de cultivation était trop rapide. Lorsqu'il était arrivé ici, il n'était qu'au début du stade de l'Établissement des Fondations.
+« Le sommet du dernier stade de l'Établissement des Fondations... » Les pupilles de l'homme d'âge mûr se contractèrent et son cœur se mit à battre la chamade. Il avait le pressentiment que ce Qian Mu cachait quelque chose de suspect. Sa vitesse de culture était trop rapide. Lorsqu'il était arrivé ici, il n'était qu'au début du stade de l'Établissement des Fondations.
 
 La prochaine fois que l'homme l'avait revu, il en était au milieu du stade de l'Établissement des Fondations.
 
-Et maintenant, il avait déjà atteint le sommet du dernier stade de l'Établissement des Fondations. L'homme d'âge mûr se lécha les lèvres, le cœur palpitant. Il ne pouvait s'empêcher de penser que la prochaine fois qu'ils se rencontreraient, cet homme aurait déjà atteint son propre niveau : le début du stade de la Formation du Noyau !
+Et maintenant, il avait déjà atteint le sommet du dernier stade de l'Établissement des Fondations. L'homme d'âge mûr se lécha les lèvres, le cœur palpitant. Il ne pouvait s'empêcher de penser que la prochaine fois qu'ils se rencontreraient, cet homme aurait déjà atteint son propre niveau: le début du stade de la Formation du Noyau!
 
-« Soit ce Qian Mu possède un trésor défiant les cieux, soit sa méthode de cultivation est extrêmement mystérieuse ! » L'homme d'âge mûr fixa Wang Lin et sourit. « Qian Mu, je crains que la prochaine fois que nous nous croiserons, je doive t'appeler "compagnon cultivateur". »
+« Soit ce Qian Mu possède un trésor défiant les cieux, soit sa méthode de culture est extrêmement mystérieuse! » L'homme d'âge mûr fixa Wang Lin et sourit. « Qian Mu, je crains que la prochaine fois que nous nous croiserons, je doive t'appeler "compagnon cultivateur". »
 
-Wang Lin lui jeta un regard et répondit : « Aucun problème ! »
+Wang Lin lui jeta un regard et répondit: « Aucun problème! »
 
 Une lueur de malveillance passa dans les yeux de l'homme d'âge mûr, mais il la dissimula rapidement derrière un sourire. « Qian Mu, si tu parviens au stade de la Formation du Noyau, tu auras de sérieuses chances lors de la compétition pour devenir disciple central dans quelques mois. Une fois devenu disciple central, n'oublie pas de revenir nous voir de temps en temps. »
 
-Wang Lin esquissa un léger sourire : « Bien sûr... Mais l'énergie spirituelle dans ma grotte n'est pas suffisante. Je me demandais s'il était possible d'en changer ? »
+Wang Lin esquissa un léger sourire: « Bien sûr... Mais l'énergie spirituelle dans ma grotte n'est pas suffisante. Je me demandais s'il était possible d'en changer? »
 
 L'homme d'âge mûr fut surpris et se sentit un peu embarrassé. « Les grottes portant un numéro inférieur à 700 nécessitent la permission d'un Ancien. Cependant, je peux t'aider à en faire la demande une fois. »
 
-Wang Lin secoua la tête : « Ne vous donnez pas tant de mal ; je veux seulement la grotte 743. »
+Wang Lin secoua la tête: « Ne vous donnez pas tant de mal; je veux seulement la grotte 743. »
 
-L'homme d'âge mûr regarda la grotte 743. Il rit et dit : « Ce n'est pas un problème, mais Qian Mu, bien que la grotte 743 possède plus d'énergie spirituelle, ce n'est pas la meilleure. »
+L'homme d'âge mûr regarda la grotte 743. Il rit et dit: « Ce n'est pas un problème, mais Qian Mu, bien que la grotte 743 possède plus d'énergie spirituelle, ce n'est pas la meilleure. »
 
-« Peu importe ! » Wang Lin rit et sortit deux pierres spirituelles de qualité moyenne. « Je vous ai sans cesse sollicité. Cette pierre supplémentaire est un signe de mon respect. »
+« Peu importe! » Wang Lin rit et sortit deux pierres spirituelles de qualité moyenne. « Je vous ai sans cesse sollicité. Cette pierre supplémentaire est un signe de mon respect. »
 
-Une fois l'homme d'âge mûr ayant accepté, il ricana intérieurement : « Ce n'est pas le moment, mais quand la nuit tombera, peu importe le nombre de pierres spirituelles que tu me donneras, je découvrirai comment tu cultives si vite ! »
+Une fois l'homme d'âge mûr ayant accepté, il ricana intérieurement: « Ce n'est pas le moment, mais quand la nuit tombera, peu importe le nombre de pierres spirituelles que tu me donneras, je découvrirai comment tu cultives si vite! »
 
 Bien qu'il pensait cela, il afficha un sourire. Il sortit un morceau de jade, y enregistra un message et le lança. Le jade s'envola sous le contrôle de l'homme d'âge mûr pour pénétrer dans la grotte 743.
 
-Peu après, une personne sortit de la grotte 743. Vêtu de noir, le visage gras, il ressemblait plus à un boucher qu'à un cultivateur. Il atterrit devant l'homme d'âge mûr et joignit les mains : « Ancien, que souhaitez-vous me dire ? »
+Peu après, une personne sortit de la grotte 743. Vêtu de noir, le visage gras, il ressemblait plus à un boucher qu'à un cultivateur. Il atterrit devant l'homme d'âge mûr et joignit les mains: « Ancien, que souhaitez-vous me dire? »
 
-L'homme d'âge mûr répondit : « Donne-moi ton jeton. Je change ta chambre. »
+L'homme d'âge mûr répondit: « Donne-moi ton jeton. Je change ta chambre. »
 
-« Changer de grotte ? Je ne veux pas changer, je cultive très bien ici ! Pourquoi devrais-je partir ? » L'individu renifla. Son regard se posa sur Wang Lin et il ricana : « Est-ce toi, le gamin qui veut changer ? Donne-moi cent pierres spirituelles de qualité moyenne, sinon n'y pense même pas ! »
+« Changer de grotte? Je ne veux pas changer, je cultive très bien ici! Pourquoi devrais-je partir? » L'individu renifla. Son regard se posa sur Wang Lin et il ricana: « Est-ce toi, le gamin qui veut changer? Donne-moi cent pierres spirituelles de qualité moyenne, sinon n'y pense même pas! »
 
 Sur ce, il retourna dans la grotte 743 sans même accorder un regard à l'homme d'âge mûr.
 
-« Humph ! » L'homme d'âge mûr regarda cet homme s'éloigner. Il se jura qu'après avoir réglé le cas de Qian Mu, il ferait certainement payer cette personne.
+« Humph! » L'homme d'âge mûr regarda cet homme s'éloigner. Il se jura qu'après avoir réglé le cas de Qian Mu, il ferait certainement payer cette personne.
 
 « Qian Mu, tu peux retourner te reposer. Je te trouverai une autre grotte demain. » La voix de l'homme d'âge mûr était empreinte de détermination. Il ne comptait manifestement pas laisser Wang Lin discuter davantage. D'un revers de manche, il retourna dans son habitation.
 

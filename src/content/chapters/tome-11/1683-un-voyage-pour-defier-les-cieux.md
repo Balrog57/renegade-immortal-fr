@@ -1,12 +1,12 @@
 ---
 n: 1683
-title: "Un voyage pour défier les Cieux !"
+title: "Un voyage pour défier les Cieux!"
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1683 - The Trip to Defy the Celestials!"
 slug: un-voyage-pour-defier-les-cieux
 ---
-Chapitre 1683 - Un voyage pour défier les Cieux !
+Chapitre 1683 - Un voyage pour défier les Cieux!
 
 Le hurlement résonna à travers les étoiles, s'intensifiant de plus en plus. Sous le contrôle de Wang Lin, le vaste continent du Royaume Céleste du Vent s'élança.
 
@@ -14,7 +14,7 @@ Après avoir récupéré la Rivière des Invocations, certains cultivateurs de c
 
 Le Royaume Céleste de la Foudre de la Rivière des Invocations était très différent des trois autres. Il était totalement ouvert, et dès que l'on pénétrait dans la partie nord de la Rivière des Invocations, on pouvait clairement apercevoir une rivière argentée et étincelante.
 
-Cette rivière d'argent était le Royaume Céleste de la Foudre !
+Cette rivière d'argent était le Royaume Céleste de la Foudre!
 
 Wang Lin s'était rendu à la Rivière des Invocations à plusieurs reprises, mais il avait toujours été pressé. Il avait vu cette rivière argentée et savait qu'il s'agissait du Royaume Céleste de la Foudre, mais il n'y était jamais entré.
 
@@ -30,7 +30,7 @@ En tournant, elle enveloppa le continent du Royaume Céleste du Vent. De loin, l
 
 « La destruction du Royaume Céleste de la Foudre est irrémédiable. Il ne pourra subsister que comme une rivière gardienne pour le futur Royaume Céleste. » Wang Lin soupira tout en dirigeant le continent du Royaume Céleste du Vent et la rivière argentée pour quitter les lieux.
 
-Le troisième endroit qu'il devait visiter était le Royaume Céleste du Tonnerre à Allheaven !
+Le troisième endroit qu'il devait visiter était le Royaume Céleste du Tonnerre à Allheaven!
 
 Wang Lin connaissait très bien le Royaume Céleste du Tonnerre, car il y avait parcouru de nombreux endroits. Bientôt, le gigantesque continent du Royaume Céleste du Vent, entouré de la rivière argentée, apparut dans Allheaven.
 
@@ -50,51 +50,51 @@ Au plus profond du Royaume Céleste du Tonnerre se trouvait le Vieux Fantôme Zh
 
 « Rassembler les quatre Royaumes Célestes... Que sait-il donc... Est-il le troisième... » songeait le Vieux Fantôme Zhan, sans pour autant empêcher Wang Lin de partir.
 
-Au moment où Wang Lin sortit du Royaume Céleste du Tonnerre, ses yeux brillèrent d'un éclat imperceptible. Lorsque son Sens Divin s'était déployé la première fois, il n'avait pas remarqué le Vieux Fantôme Zhan. Cependant, la Perle de la Défiance Céleste à l'intérieur de son corps s'était soudainement agitée, libérant une puissance étrange. Grâce à cette force, Wang Lin avait brusquement perçu le regard du Vieux Fantôme Zhan qui l'observait depuis les profondeurs du Royaume Céleste du Tonnerre !
+Au moment où Wang Lin sortit du Royaume Céleste du Tonnerre, ses yeux brillèrent d'un éclat imperceptible. Lorsque son Sens Divin s'était déployé la première fois, il n'avait pas remarqué le Vieux Fantôme Zhan. Cependant, la Perle de la Défiance Céleste à l'intérieur de son corps s'était soudainement agitée, libérant une puissance étrange. Grâce à cette force, Wang Lin avait brusquement perçu le regard du Vieux Fantôme Zhan qui l'observait depuis les profondeurs du Royaume Céleste du Tonnerre!
 
 Wang Lin n'agit pas avec imprudence et partit sans laisser paraître le moindre changement dans son humeur.
 
-« Ainsi, il se cache toujours ici ! » Après avoir quitté le Royaume Céleste du Tonnerre, Wang Lin se hâta à pleine vitesse vers le dernier royaume, le Royaume Céleste de la Pluie du Vide Brillant !
+« Ainsi, il se cache toujours ici! » Après avoir quitté le Royaume Céleste du Tonnerre, Wang Lin se hâta à pleine vitesse vers le dernier royaume, le Royaume Céleste de la Pluie du Vide Brillant!
 
 Quelques jours plus tard, Wang Lin se tenait à l'intersection des quatre Royaumes Célestes. En moins d'un demi-mois, il avait parcouru les quatre royaumes et rassemblé suffisamment de ressources pour reconstruire le Royaume Céleste.
 
 Observant l'espace du Royaume Intérieur, Wang Lin ferma les yeux. Un instant plus tard, il les rouvrit brusquement et pointa l'espace situé sous lui.
 
-« Le continent du Royaume Céleste du Vent servira de fondation au nouveau Royaume Céleste ! »
+« Le continent du Royaume Céleste du Vent servira de fondation au nouveau Royaume Céleste! »
 
 Aussitôt, le continent du Royaume Céleste du Vent s'élança depuis l'arrière de Wang Lin vers l'endroit désigné. En se déplaçant, il dégageait une pression puissante et l'énergie céleste emplit la zone.
 
 Il se situait à l'intersection des quatre systèmes stellaires. Si on les divisait, chaque système occuperait plus de 20 % de l'espace.
 
-« Le nouveau Royaume Céleste ne sera pas vaste, mais la poussière du Royaume Céleste de la Pluie aidera à son expansion ! » Wang Lin agita la main et l'innombrable poussière qu'il avait recueillie dans le Royaume Céleste de la Pluie s'éleva.
+« Le nouveau Royaume Céleste ne sera pas vaste, mais la poussière du Royaume Céleste de la Pluie aidera à son expansion! » Wang Lin agita la main et l'innombrable poussière qu'il avait recueillie dans le Royaume Céleste de la Pluie s'éleva.
 
 Dès son apparition, la poussière fusionna avec le nouveau Royaume Céleste. À mesure que les couches se déposaient, une épaisse couche de poussière recouvrit l'ensemble du domaine.
 
 À cet instant précis, Wang Lin leva la main droite et tendit ses cinq doigts vers le ciel. Ses yeux s'illuminèrent et une empreinte de paume gigantesque apparut dans la voûte céleste.
 
-Il s'agissait de l'Empreinte de l'Esprit Guerrier !
+Il s'agissait de l'Empreinte de l'Esprit Guerrier!
 
-Dès qu'elle apparut, l'empreinte fondit sur le continent sous le contrôle de Wang Lin. Bien que puissante, elle ne possédait aucune force destructrice ; la pression de la paume servait plutôt à condenser la poussière. Tandis que la matière se densifiait, le continent commença à s'étendre !
+Dès qu'elle apparut, l'empreinte fondit sur le continent sous le contrôle de Wang Lin. Bien que puissante, elle ne possédait aucune force destructrice; la pression de la paume servait plutôt à condenser la poussière. Tandis que la matière se densifiait, le continent commença à s'étendre!
 
-Des grondements tonitruants résonnèrent et le continent grandit considérablement. De loin, il paraissait déjà d'une immensité incomparable !
+Des grondements tonitruants résonnèrent et le continent grandit considérablement. De loin, il paraissait déjà d'une immensité incomparable!
 
-« La rivière argentée du Royaume Céleste de la Foudre protégera le nouveau Royaume Céleste. Cette rivière séparera les mortels des êtres célestes afin qu'aucun cultivateur inférieur au stade de la Formation de l'Âme ne puisse y pénétrer. Telle est la Loi ! » Wang Lin agita sa manche et la rivière argentée s'élança, enveloppant tout le continent dans un éclat argenté fulgurant.
+« La rivière argentée du Royaume Céleste de la Foudre protégera le nouveau Royaume Céleste. Cette rivière séparera les mortels des êtres célestes afin qu'aucun cultivateur inférieur au stade de la Formation de l'Âme ne puisse y pénétrer. Telle est la Loi! » Wang Lin agita sa manche et la rivière argentée s'élança, enveloppant tout le continent dans un éclat argenté fulgurant.
 
-Sous cette lumière, le nouveau Royaume Céleste devint un royaume à part entière !
+Sous cette lumière, le nouveau Royaume Céleste devint un royaume à part entière!
 
-« Formation de la Roue, fais de ce nouveau Royaume Céleste le cœur de la formation. Fusionne l'aura du Système Stellaire Antique ici ! » Wang Lin se mordit la langue et cracha son sang essentiel. Celui-ci aspergea le nouveau Royaume Céleste ainsi que la rivière argentée.
+« Formation de la Roue, fais de ce nouveau Royaume Céleste le cœur de la formation. Fusionne l'aura du Système Stellaire Antique ici! » Wang Lin se mordit la langue et cracha son sang essentiel. Celui-ci aspergea le nouveau Royaume Céleste ainsi que la rivière argentée.
 
 Sous l'impact de son sang, la formation de la roue qui entourait le Royaume Intérieur s'activa soudainement. Une ombre de roue gigantesque apparut au-dessus du nouveau royaume, absorbant d'immenses quantités d'aura du Royaume Extérieur pour les injecter dans le nouveau Royaume Céleste.
 
-« Ce royaume est formé, mais il n'est qu'à un stade rudimentaire ; toutefois, je n'ai plus à me soucier de son évolution future... Maintenant, la dernière tâche consiste à relier les âmes de toutes les planètes cultivatrices des quatre systèmes stellaires au nouveau Royaume Céleste. Ainsi, tous les mortels qui deviendront cultivateurs seront conduits vers le Royaume Céleste une fois qu'ils auront atteint le stade de la Formation de l'Âme ! »
+« Ce royaume est formé, mais il n'est qu'à un stade rudimentaire; toutefois, je n'ai plus à me soucier de son évolution future... Maintenant, la dernière tâche consiste à relier les âmes de toutes les planètes cultivatrices des quatre systèmes stellaires au nouveau Royaume Céleste. Ainsi, tous les mortels qui deviendront cultivateurs seront conduits vers le Royaume Céleste une fois qu'ils auront atteint le stade de la Formation de l'Âme! »
 
 Wang Lin siégeait au-dessus de la roue illusoire qui flottait sur le continent.
 
-Simultanément, grâce aux actions de Wang Lin durant ces quinze derniers jours, tous les cultivateurs du Royaume Intérieur comprirent ce qui se tramait. Wang Lin avait envoyé un message et, sous les ordres de Qin Lin et d'autres, les cultivateurs restants s'étaient dispersés à travers les quatre systèmes stellaires, se rendant sur chaque planète et continent où la vie pouvait éclore.
+Simultanément, grâce aux actions de Wang Lin durant ces quinze derniers jours, tous les cultivateurs du Royaume Intérieur comprirent ce qui se tramait. Wang Lin avait envoyé un message et, sous les ordres de Qing Lin et d'autres, les cultivateurs restants s'étaient dispersés à travers les quatre systèmes stellaires, se rendant sur chaque planète et continent où la vie pouvait éclore.
 
-La formation du nouveau Royaume Céleste n'était pas une œuvre que Wang Lin pouvait accomplir seul ; il ne faisait que créer le terrain lui-même. En réalité, Maître Hong Shan et d'autres auraient pu le faire aussi, mais ils avaient encore besoin de guérir après la guerre. De plus, ignorants du secret selon lequel cet endroit n'était qu'une grotte, ils ne pouvaient voir plus loin.
+La formation du nouveau Royaume Céleste n'était pas une œuvre que Wang Lin pouvait accomplir seul; il ne faisait que créer le terrain lui-même. En réalité, Maître Hong Shan et d'autres auraient pu le faire aussi, mais ils avaient encore besoin de guérir après la guerre. De plus, ignorants du secret selon lequel cet endroit n'était qu'une grotte, ils ne pouvaient voir plus loin.
 
-Seul Wang Lin savait tout. Il comprenait le poids de la responsabilité et ce qu'il lui restait à accomplir ! Il savait que la guerre contre le Royaume Extérieur touchait à sa fin ou était déjà terminée, mais le Royaume Intérieur s'apprêtait à affronter une épreuve bien plus grande encore.
+Seul Wang Lin savait tout. Il comprenait le poids de la responsabilité et ce qu'il lui restait à accomplir! Il savait que la guerre contre le Royaume Extérieur touchait à sa fin ou était déjà terminée, mais le Royaume Intérieur s'apprêtait à affronter une épreuve bien plus grande encore.
 
 Soit il réussirait ce test et conduirait son peuple hors de la grotte, soit il échouerait et tous les habitants de cette grotte périraient. Toute vie serait anéantie, et après des dizaines de milliers d'années sous le Dao Céleste, une nouvelle vie émergerait, tel un cycle de réincarnation.
 
@@ -108,10 +108,10 @@ Lorsque le dernier cultivateur fut de retour, le nouveau Royaume Céleste conten
 
 Une fois cela accompli, l'âme divisée de Wang Lin retourna dans son corps. Il ouvrit les yeux et joignit les mains devant les dizaines de milliers de cultivateurs du Royaume Intérieur qui le contemplaient.
 
-« Je m'apprête à entreprendre un voyage, et je ne sais pas si je survivrai. Je ne porterai plus le titre de Seigneur du Royaume Scellé. Protéger ces lieux pendant trois ans et former le nouveau Royaume Céleste sont les dernières choses que j'accomplirai. Maintenant, je vais... défier les Cieux ! »
+« Je m'apprête à entreprendre un voyage, et je ne sais pas si je survivrai. Je ne porterai plus le titre de Seigneur du Royaume Scellé. Protéger ces lieux pendant trois ans et former le nouveau Royaume Céleste sont les dernières choses que j'accomplirai. Maintenant, je vais... défier les Cieux! »
 
-« Si je réussis, alors les Cieux s'effondreront ! Si je perds, alors je mourrai ! Situ, si je meurs, j'espère que tu diras à tous ce que je t'ai confié. Enregistre-le dans un jade, place-le sur chaque planète, dans chaque trésor et au sein de ce nouveau Royaume Céleste. Même si tous les êtres sensibles venaient à être détruits, cela restera une vérité que les Cieux ne pourront effacer. Donne aux générations futures la chance de connaître la vérité ! » Wang Lin leva les yeux et s'envola vers l'horizon.
+« Si je réussis, alors les Cieux s'effondreront! Si je perds, alors je mourrai! Situ, si je meurs, j'espère que tu diras à tous ce que je t'ai confié. Enregistre-le dans un jade, place-le sur chaque planète, dans chaque trésor et au sein de ce nouveau Royaume Céleste. Même si tous les êtres sensibles venaient à être détruits, cela restera une vérité que les Cieux ne pourront effacer. Donne aux générations futures la chance de connaître la vérité! » Wang Lin leva les yeux et s'envola vers l'horizon.
 
-Son dos était empreint d'une solitude absolue !
+Son dos était empreint d'une solitude absolue!
 
 Derrière lui, les dizaines de milliers de cultivateurs, parmi lesquels Qing Lin, Maître Hong Shan, Situ Nan et bien d'autres, joignirent les mains en signe de respect envers Wang Lin.

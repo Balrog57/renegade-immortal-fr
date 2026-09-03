@@ -10,9 +10,9 @@ Wang Lin se souvenait parfaitement du nombre de cristaux de glace qu'il avait ab
 
 Après le soixante-dixième cristal, le processus d'absorption prit plusieurs fois plus de temps.
 
-À mesure que Wang Lin absorbait davantage de cristaux, ceux-ci contenaient des souvenirs toujours plus denses. La première chose qu'il avait prévu de faire après être sorti de sa chrysalide était de vérifier son corps. En absorbant cet héritage, ses spéculations s'étaient confirmées : l'étoile sur son front représentait le nombre de fois où son corps avait subi une reconstruction.
+À mesure que Wang Lin absorbait davantage de cristaux, ceux-ci contenaient des souvenirs toujours plus denses. La première chose qu'il avait prévu de faire après être sorti de sa chrysalide était de vérifier son corps. En absorbant cet héritage, ses spéculations s'étaient confirmées: l'étoile sur son front représentait le nombre de fois où son corps avait subi une reconstruction.
 
-Après chaque cristal absorbé, la couleur de l'étoile sur son front devenait plus éclatante ; simultanément, Wang Lin sentait que chaque cristal provoquait un ajustement de sa physiologie. Après soixante-dix ajustements, il pouvait ressentir la robustesse de son corps. C'était comme s'il suivait les traces des Anciens Dieux.
+Après chaque cristal absorbé, la couleur de l'étoile sur son front devenait plus éclatante; simultanément, Wang Lin sentait que chaque cristal provoquait un ajustement de sa physiologie. Après soixante-dix ajustements, il pouvait ressentir la robustesse de son corps. C'était comme s'il suivait les traces des Anciens Dieux.
 
 Bien que son apparence extérieure fût parfaitement normale, l'intérieur de son être avait subi des changements prodigieux. Après avoir absorbé soixante-dix cristaux, son corps était d'une solidité extrême.
 
@@ -20,7 +20,7 @@ Les yeux de Wang Lin s'illuminèrent. Il en déduisit que, dans son état actuel
 
 Le temps passa. Désormais, dans l'espace abritant l'héritage de connaissances de l'Ancien Dieu, il ne restait plus aucun cristal de glace bleu. La seule chose qui subsistait était une immense chrysalide d'un bleu sombre.
 
-Cette chrysalide n'était pas ordinaire. D'innombrables fissures marquaient sa surface ; si l'on regardait de près, elles ressemblaient aux crevasses sur la peau de Tu Si.
+Cette chrysalide n'était pas ordinaire. D'innombrables fissures marquaient sa surface; si l'on regardait de près, elles ressemblaient aux crevasses sur la peau de Tu Si.
 
 Cette gigantesque enveloppe reposait là depuis des éternités sans jamais montrer de signe de rupture. La zone environnante semblait figée dans un silence absolu, comme pétrifiée par une force mystérieuse. Rien n'avait bougé durant ces millénaires.
 
@@ -36,7 +36,7 @@ C'était une confusion qu'il avait tenté d'éviter, mais avec ce dernier crista
 
 Peu après, des bruits de rupture se firent entendre de manière continue. Les innombrables lignes qui la recouvraient s'élargirent. Soudain, dans un fracas, la chrysalide entière vola en éclats.
 
-Un corps émergea des débris. L'individu avait les yeux noirs et les cheveux blancs ; son visage était ordinaire, mais il dégageait une aura tyrannique. Pour l'heure, ses yeux étaient clos et son cœur était immobile. Il ne présentait aucun signe de vie.
+Un corps émergea des débris. L'individu avait les yeux noirs et les cheveux blancs; son visage était ordinaire, mais il dégageait une aura tyrannique. Pour l'heure, ses yeux étaient clos et son cœur était immobile. Il ne présentait aucun signe de vie.
 
 Après un long moment, ses yeux s'ouvrirent. Son regard semblait contenir une puissance infinie.
 
@@ -50,7 +50,7 @@ Les yeux de Wang Lin brillèrent. Les souvenirs qu'il avait obtenus étaient pre
 
 Wang Lin réfléchit un instant. Il scruta soigneusement les environs. Il soupçonnait qu'il n'y avait pas seulement quatre-vingt-quatorze cristaux, mais peut-être quelques-uns de plus.
 
-Pourquoi les restants n'étaient-ils pas ici ? Wang Lin fronça les sourcils et y réfléchit un moment avant d'abandonner. Ses mains s'activèrent pour former un sceau, puis il prononça, dans la langue de l'Ancien Dieu : « Ouvre ! »
+Pourquoi les restants n'étaient-ils pas ici? Wang Lin fronça les sourcils et y réfléchit un moment avant d'abandonner. Ses mains s'activèrent pour former un sceau, puis il prononça, dans la langue de l'Ancien Dieu: « Ouvre! »
 
 Immédiatement, une faille incurvée s'ouvrit devant lui. À l'intérieur se trouvaient trois pierres noires et luisantes.
 
@@ -62,7 +62,7 @@ Ces trois pierres étaient les composants essentiels à la fabrication du drapea
 
 Une fois apparu, il fixa l'anneau de restrictions. Après l'avoir observé un instant et constaté qu'aucun changement n'avait eu lieu, il s'avança. Ces restrictions semblaient avoir perdu leur pouvoir, car aucune ne s'activa. À chaque pas, les barrières à proximité se dissipaient. En marchant vers le centre du cercle, toutes les restrictions sur son passage s'effacèrent.
 
-Il s'agissait de Wang Lin ; ces restrictions étaient celles qu'il avait lui-même placées pour protéger son corps et ses sacs de rangement.
+Il s'agissait de Wang Lin; ces restrictions étaient celles qu'il avait lui-même placées pour protéger son corps et ses sacs de rangement.
 
 Bien qu'il ait jugé cet endroit sûr — car il ne se situait pas directement dans le méridien, mais dans l'espace spécial créé par les souvenirs de l'héritage — Wang Lin était d'une prudence extrême et avait laissé de nombreuses mesures de sécurité.
 
@@ -76,11 +76,11 @@ Il posa sa main droite sur la poitrine de son ancien corps. Le cadavre inanimé 
 
 D'innombrables points colorés étaient éparpillés parmi les restes du corps.
 
-En voyant le noyau, il ressentit une pointe de familiarité. Après tout, c'était le noyau qu'il avait lui-même formé ; ce lien ne pouvait être rompu par le temps.
+En voyant le noyau, il ressentit une pointe de familiarité. Après tout, c'était le noyau qu'il avait lui-même formé; ce lien ne pouvait être rompu par le temps.
 
 Peu de temps après, la main droite de Wang Lin s'étira et le noyau vola vers lui. Dès qu'il atteignit sa main, il disparut dans son corps pour charger son dantian. Une fois arrivé à destination, le noyau commença à pivoter lentement sur lui-même.
 
-Des vagues d'énergie spirituelle envahirent le corps de Wang Lin. Il ferma les yeux pour ressentir sa nouvelle essence, puis les rouvrit en fixant les restes de son ancien corps. Sa main forma un sceau tandis qu'il grognait : « Flamme infernale ! »
+Des vagues d'énergie spirituelle envahirent le corps de Wang Lin. Il ferma les yeux pour ressentir sa nouvelle essence, puis les rouvrit en fixant les restes de son ancien corps. Sa main forma un sceau tandis qu'il grognait: « Flamme infernale! »
 
 À peine eut-il prononcé ces mots que les points bleus mélangés aux débris se rassemblèrent pour former une flamme azurée.
 
@@ -96,4 +96,4 @@ Wang Lin était très familier avec la pression exercée par l'illusion de l'Anc
 
 Une fois l'image manifestée, les huit étoiles sur le front de Tu Si projetèrent huit rayons de lumière, formant un tourbillon octogonal.
 
-Wang Lin fixa l'image de Tu Si et pensa : « Terre des Anciens Dieux, adieu ! »
+Wang Lin fixa l'image de Tu Si et pensa: « Terre des Anciens Dieux, adieu! »

@@ -8,7 +8,7 @@ slug: neige-sur-la-montagne-celeste
 ---
 Une sueur froide perla sur le front de Du Qing alors qu'il regardait vers la grotte située dans les montagnes arrières. Le sens divin de Wang Lin, qui l'entourait depuis sept mois, avait soudainement disparu.
 
-Cette disparition n'était pas un simple retrait du sens divin par Wang Lin ; il s'était volatilisé sans laisser de trace, comme s'il s'était fondu avec le monde.
+Cette disparition n'était pas un simple retrait du sens divin par Wang Lin; il s'était volatilisé sans laisser de trace, comme s'il s'était fondu avec le monde.
 
 Ce changement fut trop soudain. Du Qing ne l'avait pas imaginé et n'y était absolument pas préparé. Il était encore dans un état d'esprit de simple observateur face à une plaisanterie quand cela se produisit.
 
@@ -22,21 +22,21 @@ Du Qing n'avait absolument pas remarqué la disparition de Wang Lin. C'était co
 
 Il essaya encore, et encore, mais ne trouva aucune trace de Wang Lin.
 
-« Impossible, son sens divin ne peut pas fusionner avec le monde. Une telle chose ne s'est jamais produite auparavant. Seuls les vieux monstres au sommet de la Tribulation du Vide peuvent accomplir cela... Il... Il ne peut tout simplement pas ! » Le visage de Du Qing était pâle et une peur intense se lisait dans ses yeux. Il eut soudain l'impression que les sept derniers mois n'avaient été qu'un rêve.
+« Impossible, son sens divin ne peut pas fusionner avec le monde. Une telle chose ne s'est jamais produite auparavant. Seuls les vieux monstres au sommet de la Tribulation du Vide peuvent accomplir cela... Il... Il ne peut tout simplement pas! » Le visage de Du Qing était pâle et une peur intense se lisait dans ses yeux. Il eut soudain l'impression que les sept derniers mois n'avaient été qu'un rêve.
 
-Alors que Du Qing peinait toujours à trouver Wang Lin et que son cœur refusait d'accepter la réalité, une voix calme résonna derrière lui : « Me cherchez-vous... ? »
+Alors que Du Qing peinait toujours à trouver Wang Lin et que son cœur refusait d'accepter la réalité, une voix calme résonna derrière lui: « Me cherchez-vous...? »
 
 Le corps de Du Qing trembla et il se retourna brusquement. Ses pupilles se rétractèrent lorsqu'il vit Wang Lin debout calmement derrière lui, paraissant parfaitement normal.
 
 Il semblait y avoir des ondulations dans l'air derrière Wang Lin, mais elles disparurent rapidement.
 
-« Vous... Vous... » Du Qing recula inconsciemment de quelques pas. L'apparition de Wang Lin avait été trop soudaine ; il ne l'avait absolument pas remarqué. Si Wang Lin avait attaqué, il aurait été gravement blessé.
+« Vous... Vous... » Du Qing recula inconsciemment de quelques pas. L'apparition de Wang Lin avait été trop soudaine; il ne l'avait absolument pas remarqué. Si Wang Lin avait attaqué, il aurait été gravement blessé.
 
 Une sensation de froid sembla émaner du corps de Wang Lin. Cette aura glaciale se dissipa lorsque l'aura de la Secte du Dragon Bleu enveloppa Wang Lin, mais Du Qing eut tout de même l'impression qu'une rafale de vent glacial lui avait soufflé au visage.
 
 Le choc et l'horreur dans ses yeux se muèrent en une peur profonde. À cet instant, Wang Lin devint infiniment plus mystérieux et terrifiant aux yeux de Du Qing.
 
-Du Qing réprima le choc dans son cœur et dit calmement : « Rien... La plupart des disciples sont rentrés, ils ont trouvé beaucoup de veines secondaires et de sous-veines... Certaines veines scellées ont également été ramenées... »
+Du Qing réprima le choc dans son cœur et dit calmement: « Rien... La plupart des disciples sont rentrés, ils ont trouvé beaucoup de veines secondaires et de sous-veines... Certaines veines scellées ont également été ramenées... »
 
 Wang Lin lança un regard désinvolte à Du Qing. Sous ce regard, Du Qing baissa inconsciemment la tête.
 
@@ -44,9 +44,9 @@ Wang Lin lança un regard désinvolte à Du Qing. Sous ce regard, Du Qing baissa
 
 Ce n'est qu'une fois Wang Lin parti que Du Qing se détendit. Cependant, le fait que Wang Lin soit revenu en volant fit resurgir le doute dans son cœur.
 
-« Absolument impossible ! Il ne devrait pas avoir fusionné avec le monde ; sinon, il serait parti en un éclair... Son aura avait disparu auparavant, il a donc dû se téléporter. Oui, c'est une téléportation. Après tant d'échecs, il a dû faire cela pour sauver la face... » Plus Du Qing y pensait, plus cela lui semblait logique. Il se trouva même ridicule d'avoir eu peur ainsi.
+« Absolument impossible! Il ne devrait pas avoir fusionné avec le monde; sinon, il serait parti en un éclair... Son aura avait disparu auparavant, il a donc dû se téléporter. Oui, c'est une téléportation. Après tant d'échecs, il a dû faire cela pour sauver la face... » Plus Du Qing y pensait, plus cela lui semblait logique. Il se trouva même ridicule d'avoir eu peur ainsi.
 
-« J'ai déjà dit qu'il ne pouvait pas fusionner avec le monde ! Il n'en est absolument pas capable ! Il se surestime vraiment ! » Du Qing ricana et agita ses manches pour partir. Cependant, son corps trembla soudainement et ses yeux se fixèrent sur l'herbe où Wang Lin s'était tenu. Ses yeux faillirent sortir de leurs orbites et une peur monstrueuse envahit son cœur.
+« J'ai déjà dit qu'il ne pouvait pas fusionner avec le monde! Il n'en est absolument pas capable! Il se surestime vraiment! » Du Qing ricana et agita ses manches pour partir. Cependant, son corps trembla soudainement et ses yeux se fixèrent sur l'herbe où Wang Lin s'était tenu. Ses yeux faillirent sortir de leurs orbites et une peur monstrueuse envahit son cœur.
 
 Son esprit bourdonna comme si d'innombrables éclairs de tonnerre avaient explosé dans son crâne. Tout ce qui l'entourait disparut, ne laissant que la zone où Wang Lin se tenait.
 
@@ -56,9 +56,9 @@ Non loin de là, sur l'herbe où Wang Lin s'était tenu, reposait une fine couch
 
 Dans tout le continent du Taureau Céleste, la neige verte n'existait que sur la Montagne Céleste, à l'extrême ouest. Même en volant à pleine vitesse, il aurait fallu plusieurs mois à Du Qing pour faire l'aller-retour.
 
-« La neige de la Montagne Céleste... Cet homme... est un génie céleste ! » Du Qing resta silencieux un long moment avant de marmonner cette phrase. À cet instant, le dédain et le mépris qu'il avait éprouvés envers Wang Lin ces sept derniers mois disparurent, remplacés par un sentiment de mystère et d'incertitude.
+« La neige de la Montagne Céleste... Cet homme... est un génie céleste! » Du Qing resta silencieux un long moment avant de marmonner cette phrase. À cet instant, le dédain et le mépris qu'il avait éprouvés envers Wang Lin ces sept derniers mois disparurent, remplacés par un sentiment de mystère et d'incertitude.
 
-Une peur viscérale envers Wang Lin grandit en lui. Cela n'avait rien à voir avec la cultivation, mais plutôt avec les mystères qui entouraient l'homme.
+Une peur viscérale envers Wang Lin grandit en lui. Cela n'avait rien à voir avec la culture, mais plutôt avec les mystères qui entouraient l'homme.
 
 Dans la grotte, Wang Lin tapota ses vêtements pour en chasser le froid, puis s'assit. Après sept mois, il avait enfin éveillé son avatar dans le vide.
 
@@ -70,9 +70,9 @@ Une fois l'avatar parvenu à maturité, Wang Lin comprendrait parfaitement toute
 
 Simultanément, la puissante pression se délesta comme de la glace qui fond. D'innombrables fissures semblèrent apparaître et le sens divin de Wang Lin fusionna immédiatement avec le monde, au lieu de tenter de s'y frayer un chemin par la force.
 
-Tout cela était dû à son avatar !
+Tout cela était dû à son avatar!
 
-Au moment où son sens divin fusionna avec le monde, son corps disparut pour se fondre dans l'environnement. Il ressentit alors la même sensation qu'au moment où il utilisait la Déviation Spatiale dans le monde de la grotte ; une sensation qu'il n'avait pas éprouvée depuis longtemps.
+Au moment où son sens divin fusionna avec le monde, son corps disparut pour se fondre dans l'environnement. Il ressentit alors la même sensation qu'au moment où il utilisait la Déviation Spatiale dans le monde de la grotte; une sensation qu'il n'avait pas éprouvée depuis longtemps.
 
 D'une simple pensée, il apparut sur la Montagne Céleste de ce continent et vit la neige verte tomber. La première fois qu'il avait utilisé la Déviation Spatiale ici, il l'avait fait sans direction précise, se retrouvant n'importe où par hasard.
 
@@ -80,7 +80,7 @@ Mais lorsqu'il retourna à la Secte du Dragon Bleu, l'image de la secte apparut 
 
 Il ne lui fallut qu'un battement de cils pour faire ce voyage aller-retour. Sans la neige verte déposée sur ses pieds, même Du Qing n'aurait pas su où Wang Lin était allé.
 
-« L'avatar n'a grandi que quelques jours et il apporte déjà un tel renforcement... Avec plus de temps, mon avatar deviendra le corps le plus puissant ! » Wang Lin l'avait compris depuis longtemps.
+« L'avatar n'a grandi que quelques jours et il apporte déjà un tel renforcement... Avec plus de temps, mon avatar deviendra le corps le plus puissant! » Wang Lin l'avait compris depuis longtemps.
 
 « Il est temps d'aller à la Grande Secte des Âmes pour absorber la veine principale de terre-feu. Avant cela, je dois absorber le reste des veines secondaires pour voir quelle part du corps véritable d'essence de feu je peux former. » Wang Lin savait que plus l'objectif était ambitieux, plus la tâche serait ardue.
 
@@ -90,7 +90,7 @@ Une demi-heure plus tard, Du Qing vint le saluer, apportant certaines des veines
 
 Wang Lin ne prit pas la peine de feindre la politesse et absorba directement ces veines de terre-feu. Cependant, elles contenaient peu de volonté de feu, ce qui n'aidait que très peu à la formation de son corps véritable d'essence de feu.
 
-La carte, en revanche, s'avéra très utile. Après avoir récupéré le jade, Wang Lin prit congé de Du Qing. Ce dernier comprit les intentions de Wang Lin ; il ne pouvait participer à cette entreprise, mais il n'en rapporterait pas non plus l'existence. Après tout, il espérait encore gagner ses faveurs.
+La carte, en revanche, s'avéra très utile. Après avoir récupéré le jade, Wang Lin prit congé de Du Qing. Ce dernier comprit les intentions de Wang Lin; il ne pouvait participer à cette entreprise, mais il n'en rapporterait pas non plus l'existence. Après tout, il espérait encore gagner ses faveurs.
 
 Plus important encore, le regard que Wang Lin lui avait lancé avant de partir était d'un calme absolu. Des ondulations résonnèrent sous les pieds de Wang Lin et il disparut soudainement. Cette scène fut plus terrifiante que n'importe quelle menace.
 
@@ -108,7 +108,7 @@ Il devait venir ici. Ici, il pouvait ressentir l'aura du monde caverneux et les 
 
 Wang Lin émergea du brouillard noir et jeta un regard vers la montagne intérieure. Il réfléchit un instant avant de pousser un soupir et de reprendre sa route.
 
-« Situ, Qing Shui, Li Qianmei, et tous ceux qui se sont réincarnés... Où êtes-vous tous maintenant... ? » Wang Lin tourna le dos pour partir, son allure dégageant une profonde solitude.
+« Situ, Qing Shui, Li Qianmei, et tous ceux qui se sont réincarnés... Où êtes-vous tous maintenant...? » Wang Lin tourna le dos pour partir, son allure dégageant une profonde solitude.
 
 Un jour plus tard, dans la partie orientale du continent du Taureau Céleste, sur la Montagne Céleste où se trouvait la Grande Secte des Âmes, un jeune homme aux cheveux blancs se tenait au sommet du ciel alors que la neige verte tombait. Il pouvait voir l'autre versant de la montagne à travers les flocons.
 

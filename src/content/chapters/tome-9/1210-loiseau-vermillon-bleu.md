@@ -24,7 +24,7 @@ Bien qu'il possédât les sorts de la Secte des Bêtes de Bataille, dérober les
 
 Il s'enfuyait alors à toute vitesse, poursuivi par une bête de brume. Son cœur battait la chamade tandis qu'il s'élançait dans le lointain. Un rugissement retentit derrière lui, suivi d'une bourrasque de vent qui le talonnait.
 
-Soudain, l'horizon devint blanc et les lumières aux sept couleurs se dissipèrent. Une vague de chaleur inimaginable déferla depuis l'horizon ; de loin, la scène semblait capable de faire trembler les cieux.
+Soudain, l'horizon devint blanc et les lumières aux sept couleurs se dissipèrent. Une vague de chaleur inimaginable déferla depuis l'horizon; de loin, la scène semblait capable de faire trembler les cieux.
 
 La bête de brume qui poursuivait Chen Tianjun fut un instant déconcertée. Elle renonça aussitôt à sa traque et retourna se réfugier dans la brume.
 
@@ -36,74 +36,74 @@ Il percevait également l'aura de Wang Lin au cœur de cet océan de flammes.
 
 Le brasier continua de se propager jusqu'à encercler totalement la région extérieure du Royaume aux Sept Couleurs. Certaines bêtes chargèrent en rugissant, semblant ne point craindre le feu. Des créatures semblables à des pythons de feu évoluaient dans les flammes sans aucune gêne, affichant même une certaine morgue envers l'incendie.
 
-Alors que les flammes s'étendaient sur tout le Royaume aux Sept Couleurs, le troisième éveil de l'Oiseau Vermillon commença !
+Alors que les flammes s'étendaient sur tout le Royaume aux Sept Couleurs, le troisième éveil de l'Oiseau Vermillon commença!
 
-Tandis que Wang Lin restait assis, sa chair divine ancestrale se dessécha comme si toute l'eau de son corps s'était évaporée. Sa peau sèche semblait vieillir prématurément ; c'était une vision terrifiante.
+Tandis que Wang Lin restait assis, sa chair divine ancestrale se dessécha comme si toute l'eau de son corps s'était évaporée. Sa peau sèche semblait vieillir prématurément; c'était une vision terrifiante.
 
 Le feu autour de lui était à son paroxysme. Une chaleur infinie émanait de son corps, formant un vortex qui tournait lentement au-dessus de sa tête.
 
-Un cri de douleur s'échappa de son être. L'Oiseau Vermillon blanc luttait pour prendre son envol. Il semblait que ce troisième éveil était à la fois une épreuve et une crise existentielle !
+Un cri de douleur s'échappa de son être. L'Oiseau Vermillon blanc luttait pour prendre son envol. Il semblait que ce troisième éveil était à la fois une épreuve et une crise existentielle!
 
-L'esprit de Wang Lin était embrumé. Il avait l'impression de devenir lui-même un Oiseau Vermillon. La graine de feu en son sein libérait sans cesse une chaleur infinie, mais plus elle s'en dégageait, plus la température augmentait. À la fin, il semblait sur le point de s'autoconsumer !
+L'esprit de Wang Lin était embrumé. Il avait l'impression de devenir lui-même un Oiseau Vermillon. La graine de feu en son sein libérait sans cesse une chaleur infinie, mais plus elle s'en dégageait, plus la température augmentait. À la fin, il semblait sur le point de s'autoconsumer!
 
 Il avait la sensation qu'au moindre retard dans l'évacuation de cette chaleur, il serait réduit en cendres.
 
 C'était un cycle sans fin. Plus il libérait de chaleur, plus elle se régénérait. Ce cycle perdura jusqu'à ce que l'Oiseau Vermillon pousse un cri assourdissant, tel le rugissement féroce d'un être agonisant.
 
-Wang Lin n'avait pas éprouvé une telle sensation lors des deux éveils précédents. Cette troisième fois était d'une difficulté extrême ! Il sentit que la chaleur de son corps brûlait même son âme originelle, ce qui le surprit profondément. Il ne pensait pas que le troisième éveil de l'Oiseau Vermillon serait si radicalement différent.
+Wang Lin n'avait pas éprouvé une telle sensation lors des deux éveils précédents. Cette troisième fois était d'une difficulté extrême! Il sentit que la chaleur de son corps brûlait même son âme originelle, ce qui le surprit profondément. Il ne pensait pas que le troisième éveil de l'Oiseau Vermillon serait si radicalement différent.
 
 La chaleur augmenta jusqu'à ce que son corps ne puisse plus la relâcher assez vite. La sensation de brûlure devint plus aiguë et sa peau se craquela davantage. Les fissures finirent par se rejoindre, donnant l'impression que son enveloppe charnelle allait s'effondrer.
 
 Wang Lin ouvrit soudainement les yeux et poussa un rugissement, comme s'il voulait expulser toute la chaleur accumulée. Une puissante onde thermique jaillit de sa bouche lors de ce cri de douleur. La vague de chaleur tourbillonna autour de lui, et chaque pore de sa peau luttait contre elle.
 
-« Oiseau Vermillon... éveil... Oiseau Vermillon... » La conscience de Wang Lin devenait floue. Il évacuait la chaleur par pur instinct. Cependant, cette méthode ne pouvait que retarder l'échéance ; elle ne traiterait pas le mal à la racine.
+« Oiseau Vermillon... éveil... Oiseau Vermillon... » La conscience de Wang Lin devenait floue. Il évacuait la chaleur par pur instinct. Cependant, cette méthode ne pouvait que retarder l'échéance; elle ne traiterait pas le mal à la racine.
 
-Si cela persistait, Wang Lin mourrait sans aucun doute !
+Si cela persistait, Wang Lin mourrait sans aucun doute!
 
 Ses yeux injectés de sang révélaient un regard de démence.
 
-« Soit je brûle jusqu'à la mort, soit je renaîtrai par le feu ! » Wang Lin croyait en la persévérance et au travail acharné, porté par une volonté défiant les cieux. Plus les flammes étaient intenses, plus sa détermination devenait puissante !
+« Soit je brûle jusqu'à la mort, soit je renaîtrai par le feu! » Wang Lin croyait en la persévérance et au travail acharné, porté par une volonté défiant les cieux. Plus les flammes étaient intenses, plus sa détermination devenait puissante!
 
-« Puisque je ne peux pas continuer à l'évacuer, alors je ne le ferai plus ; je laisserai cette chaleur stagner en moi. Je veux voir ce que ce feu a dans le ventre ! » Wang Lin laissa échapper un rire douloureux, son expression devenant encore plus démente. Il scella tous les pores de son corps, l'isolant hermétiquement du monde extérieur. Il permit à la chaleur intérieure d'augmenter de manière incontrôlable sans en laisser passer la moindre parcelle !
+« Puisque je ne peux pas continuer à l'évacuer, alors je ne le ferai plus; je laisserai cette chaleur stagner en moi. Je veux voir ce que ce feu a dans le ventre! » Wang Lin laissa échapper un rire douloureux, son expression devenant encore plus démente. Il scella tous les pores de son corps, l'isolant hermétiquement du monde extérieur. Il permit à la chaleur intérieure d'augmenter de manière incontrôlable sans en laisser passer la moindre parcelle!
 
-Cette audace insensée paraissait simple, mais combien d'individus au monde auraient réellement pu agir ainsi ?
+Cette audace insensée paraissait simple, mais combien d'individus au monde auraient réellement pu agir ainsi?
 
 En se scellant lui-même, Wang Lin fit grimper le feu en son sein jusqu'à un degré terrifiant. La température devint si élevée qu'il faillit s'effondrer, mais il endura tout.
 
-Le temps passa lentement. La chaleur intérieure devint plus intense encore. Son corps oscillait entre le rouge et le blanc, provoquant l'effondrement du monde environnant. À cet instant, le feu dans le corps de Wang Lin atteignit son apogée et explosa soudainement !
+Le temps passa lentement. La chaleur intérieure devint plus intense encore. Son corps oscillait entre le rouge et le blanc, provoquant l'effondrement du monde environnant. À cet instant, le feu dans le corps de Wang Lin atteignit son apogée et explosa soudainement!
 
-Une chaleur indescriptible jaillit, consumant son corps. Il fut enveloppé de flammes au point de devenir invisible. Ces flammes furent d'abord blanches, puis virèrent progressivement au bleu !
+Une chaleur indescriptible jaillit, consumant son corps. Il fut enveloppé de flammes au point de devenir invisible. Ces flammes furent d'abord blanches, puis virèrent progressivement au bleu!
 
-Dès l'apparition des flammes bleues, elles se propagèrent instantanément. Elles étaient bien plus brûlantes que les blanches et remplacèrent tout ce qui existait dans le monde !
+Dès l'apparition des flammes bleues, elles se propagèrent instantanément. Elles étaient bien plus brûlantes que les blanches et remplacèrent tout ce qui existait dans le monde!
 
-En s'étendant dans toutes les directions, elles plongèrent l'univers entier dans une teinte azurée. Les flammes bleues balayèrent le royaume, transformant le Royaume aux Sept Couleurs en un enfer de feu bleu en un clin d'œil !
+En s'étendant dans toutes les directions, elles plongèrent l'univers entier dans une teinte azurée. Les flammes bleues balayèrent le royaume, transformant le Royaume aux Sept Couleurs en un enfer de feu bleu en un clin d'œil!
 
 Le lieu, autrefois peuplé de bêtes féroces et baigné de flammes blanches, fut instantanément envahi par une lumière bleue démoniaque.
 
-D'un éclat fulgurant, toutes les flammes blanches mutèrent en bleu !
+D'un éclat fulgurant, toutes les flammes blanches mutèrent en bleu!
 
 Les bêtes féroces qui ne craignaient point le feu ou qui tentaient d'afficher leur puissance furent prises de terreur. Elles se transformèrent rapidement en brume pour tenter de résister, semblant extrêmement terrifiées par ce nouveau brasier.
 
-Même les pythons de feu qui affichaient un tel mépris commencèrent à rugir de peur. Ils se changèrent promptement en brume. L'un d'eux, un peu trop lent, fut soudainement encerclé par la lumière bleue. Le serpent poussa un cri déchirant avant d'être brûlé à mort. Son âme fut absorbée par les flammes et devint une partie de leur volonté !
+Même les pythons de feu qui affichaient un tel mépris commencèrent à rugir de peur. Ils se changèrent promptement en brume. L'un d'eux, un peu trop lent, fut soudainement encerclé par la lumière bleue. Le serpent poussa un cri déchirant avant d'être brûlé à mort. Son âme fut absorbée par les flammes et devint une partie de leur volonté!
 
-Il y avait très peu de feux capables de consumer une bête de feu équivalente à un cultivateur Nirvana Shatterer au sommet !
+Il y avait très peu de feux capables de consumer une bête de feu équivalente à un cultivateur Nirvana Shatterer au sommet!
 
-Alors que les flammes bleues gagnaient encore du terrain, les grottes des vallées s'effondrèrent. Les restrictions étaient d'une fragilité dérisoire face à ce brasier !
+Alors que les flammes bleues gagnaient encore du terrain, les grottes des vallées s'effondrèrent. Les restrictions étaient d'une fragilité dérisoire face à ce brasier!
 
-À cet instant, le Royaume aux Sept Couleurs tout entier était en combustion. Les flammes bleues semblaient rugir contre le monde ! Dans les profondeurs du royaume, le vieil homme aux cheveux blancs se précipita vers Wang Lin. Il était rapide, mais lorsqu'il approcha de lui, son visage changea radicalement.
+À cet instant, le Royaume aux Sept Couleurs tout entier était en combustion. Les flammes bleues semblaient rugir contre le monde! Dans les profondeurs du royaume, le vieil homme aux cheveux blancs se précipita vers Wang Lin. Il était rapide, mais lorsqu'il approcha de lui, son visage changea radicalement.
 
 Il vit devant lui une lumière bleue capable de faire trembler les cieux, alors que les flammes s'abattaient sur lui comme une vague en colère. Le vieillard pâlit, puis ses mains formèrent précipitamment un sceau pour sortir un trésor magique. Grâce à ce geste, il eut la chance de survivre aux flammes bleues.
 
 Cependant, la sueur perlant sur son front et l'effroi dans ses yeux témoignaient de sa terreur profonde.
 
-« Ceci... Quelle est cette flamme ? » Il avait vu tant de choses au cours de sa vie de cultivateur, mais il n'avait jamais rencontré de telles flammes bleues. Elles pouvaient détruire le corps d'un cultivateur Nirvana Shatterer et consumer son âme originelle. Ce spectacle bouleversa profondément le vieil homme !
+« Ceci... Quelle est cette flamme? » Il avait vu tant de choses au cours de sa vie de cultivateur, mais il n'avait jamais rencontré de telles flammes bleues. Elles pouvaient détruire le corps d'un cultivateur Nirvana Shatterer et consumer son âme originelle. Ce spectacle bouleversa profondément le vieil homme!
 
-À la source des flammes bleues, là où Wang Lin était assis, la lumière était si éclatante qu'aucune autre couleur ne pouvait subsister. Au cœur de ces flammes d'une beauté indescriptible, le cri d'un Oiseau Vermillon résonna !
+À la source des flammes bleues, là où Wang Lin était assis, la lumière était si éclatante qu'aucune autre couleur ne pouvait subsister. Au cœur de ces flammes d'une beauté indescriptible, le cri d'un Oiseau Vermillon résonna!
 
-Au moment où ce cri retentit, un Oiseau Vermillon bleu apparut au milieu des flammes, comme s'il venait de renaître. À son apparition, toutes les flammes bleues du Royaume aux Sept Couleurs semblèrent s'emballer, comme pour l'acclamer !
+Au moment où ce cri retentit, un Oiseau Vermillon bleu apparut au milieu des flammes, comme s'il venait de renaître. À son apparition, toutes les flammes bleues du Royaume aux Sept Couleurs semblèrent s'emballer, comme pour l'acclamer!
 
 Sous l'Oiseau Vermillon Bleu, une silhouette gracile s'avança, un pas après l'autre...
 
-Le troisième éveil de l'Oiseau Vermillon était une véritable renaissance par le feu !
+Le troisième éveil de l'Oiseau Vermillon était une véritable renaissance par le feu!
 
 À cet instant, loin de la Mer des Nuages, dans la zone interdite de l'Alliance où se trouvait la Secte des Quatre Divinités, tous les membres de la Secte Divine de l'Oiseau Vermillon sentirent le feu en leur sein brûler avec frénésie. Pour la première fois, ils perdirent le contrôle de leurs flammes, qui jaillirent de leurs corps pour les envelopper.

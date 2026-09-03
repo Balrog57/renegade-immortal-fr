@@ -6,37 +6,37 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1715 - Blood Lines in the Eye as the Rule
 slug: les-lignees-de-sang-dans-lil-comme-regle
 ---
-Qu'étaient les règles ? Peu de gens s'en préoccupaient probablement. Et puis, quelle était la distinction avec les lois ? C'était une question sur laquelle les hommes méditaient depuis des millions d'années sans jamais trouver de réponse.
+Qu'étaient les règles? Peu de gens s'en préoccupaient probablement. Et puis, quelle était la distinction avec les lois? C'était une question sur laquelle les hommes méditaient depuis des millions d'années sans jamais trouver de réponse.
 
 C'était un sujet qui déconcertait même Wang Lin. Parfois, il pensait avoir enfin compris, mais la plupart du temps, il ne faisait que réfuté ses propres hypothèses.
 
 Règles, lois, formation du monde. Telle était l'actuelle spéculation de Wang Lin.
 
-Qu'étaient le ciel et la terre ? Les cieux et la terre du monde des cavernes étaient le Dao Céleste. Qu'est-ce qui permettait à celui-ci de déterminer les règles et les lois de ce monde et d'en être l'origine ?
+Qu'étaient le ciel et la terre? Les cieux et la terre du monde des cavernes étaient le Dao Céleste. Qu'est-ce qui permettait à celui-ci de déterminer les règles et les lois de ce monde et d'en être l'origine?
 
 Wang Lin ne comprenait pas. Bien que son essence martiale ait formé une nouvelle loi, il ignorait encore sa véritable nature. Il savait seulement que, qu'il s'agisse de lois ou de règles, elles étaient intangibles. Cependant, si elles devenaient tangibles, elles se manifesteraient sous forme de lignes s'entremêlant autour de toute chose.
 
 À l'instar des innombrables lignes floues qui apparaissaient autour d'un être lorsqu'il utilisait le sort « Arrêt ». Ces lignes représentaient la compréhension que Wang Lin avait des règles et des lois.
 
-Chaque ligne était unique ; elles s'intersectaient pour former les règles, et la volonté qui surplombait l'ensemble constituait la loi.
+Chaque ligne était unique; elles s'intersectaient pour former les règles, et la volonté qui surplombait l'ensemble constituait la loi.
 
-C'était cela, le ciel et la terre ; c'était cela, le Dao Céleste !
+C'était cela, le ciel et la terre; c'était cela, le Dao Céleste!
 
-Selon la compréhension de Wang Lin, lorsque le monde naquit, les premières créatures adorèrent les cieux jusqu'à ce que le doute s'installe, pour finalement commencer à les remettre en question. Elles commencèrent alors à imiter les règles et les lois afin de donner naissance à une technique !
+Selon la compréhension de Wang Lin, lorsque le monde naquit, les premières créatures adorèrent les cieux jusqu'à ce que le doute s'installe, pour finalement commencer à les remettre en question. Elles commencèrent alors à imiter les règles et les lois afin de donner naissance à une technique!
 
-Cette technique était celle des formations et des restrictions !
+Cette technique était celle des formations et des restrictions!
 
 Au cours de ces jours de compréhension, il n'étudiait pas la différence entre les restrictions, mais cherchait l'origine même de ces dernières.
 
 À ses yeux, si ces lignes invisibles étaient les règles et les lois, il lui faudrait former ses propres lignes s'il voulait créer sa propre essence de restriction.
 
-Pour réussir, ces lignes devraient devenir une partie intégrante de son corps !
+Pour réussir, ces lignes devraient devenir une partie intégrante de son corps!
 
-Il avait ouvert le Voile Fantomatique et, alors qu'il était entouré d'innombrables restrictions, une idée lui vint : utiliser les veines sanguines de ses yeux !
+Il avait ouvert le Voile Fantomatique et, alors qu'il était entouré d'innombrables restrictions, une idée lui vint: utiliser les veines sanguines de ses yeux!
 
-Les vaisseaux sanguins de ses yeux deviendraient les lignes des règles du monde. Après avoir fusionné avec toutes les restrictions, ses yeux deviendraient semblables au ciel et à la terre. Ses yeux seraient l'essence même de la restriction, et ses pensées deviendraient la volonté des règles de ce monde !
+Les vaisseaux sanguins de ses yeux deviendraient les lignes des règles du monde. Après avoir fusionné avec toutes les restrictions, ses yeux deviendraient semblables au ciel et à la terre. Ses yeux seraient l'essence même de la restriction, et ses pensées deviendraient la volonté des règles de ce monde!
 
-Personne n'avait jamais envisagé une telle méthode à travers les âges ; Wang Lin était le premier. Il était audacieux, et une fois sa décision prise, il ne revenait jamais en arrière.
+Personne n'avait jamais envisagé une telle méthode à travers les âges; Wang Lin était le premier. Il était audacieux, et une fois sa décision prise, il ne revenait jamais en arrière.
 
 Un œil rouge illusoire apparut devant lui, laissant entrevoir clairement ses veines sanguines. Wang Lin poussa un rugissement et les vaisseaux s'étendirent, enveloppant une immense quantité de restrictions.
 
@@ -54,15 +54,15 @@ Les six épées d'essence tournaient lentement autour de Wang Lin. L'aura des es
 
 Tout dans cet espace s'apaisa, comme si rien ne s'était produit. Seul Wang Lin restait là, assis et immobile.
 
-Cependant, une aura extrêmement puissante émanait de son corps. Cette aura était le fruit de sa puissante cultivation au stade moyen du Vide Spirituel. À cet instant, l'aura semblait bouillir, montrant des signes d'ascension.
+Cependant, une aura extrêmement puissante émanait de son corps. Cette aura était le fruit de sa puissante culture au stade moyen du Vide Spirituel. À cet instant, l'aura semblait bouillir, montrant des signes d'ascension.
 
-Cette puissance devint toujours plus intense. Tandis qu'elle se propageait, les six épées d'essence autour de Wang Lin bourdonnèrent de joie, célébrant la naissance d'une septième essence !
+Cette puissance devint toujours plus intense. Tandis qu'elle se propageait, les six épées d'essence autour de Wang Lin bourdonnèrent de joie, célébrant la naissance d'une septième essence!
 
-Les yeux de Wang Lin s'ouvrirent soudainement, révélant un regard qui aurait terrifié quiconque. Son regard n'avait aucune couleur, mais si quelqu'un croisait ses yeux à cet instant, il aurait l'illusion qu'ils étaient rouge sang !
+Les yeux de Wang Lin s'ouvrirent soudainement, révélant un regard qui aurait terrifié quiconque. Son regard n'avait aucune couleur, mais si quelqu'un croisait ses yeux à cet instant, il aurait l'illusion qu'ils étaient rouge sang!
 
 À la source de ce regard se trouvaient des lignes sanguines. Ces veines s'entrecroisaient telles les règles du monde.
 
-Chaque ligne de sang contenait des restrictions. Le regard de Wang Lin était calme alors qu'il scrutait l'espace environnant. Il pouvait voir d'innombrables lignes floues ; ces lignes étaient les règles.
+Chaque ligne de sang contenait des restrictions. Le regard de Wang Lin était calme alors qu'il scrutait l'espace environnant. Il pouvait voir d'innombrables lignes floues; ces lignes étaient les règles.
 
 Wang Lin leva la main droite et saisit délicatement un élément invisible. Le geste paraissait ordinaire, mais il venait de saisir une ligne que nul autre ne pouvait percevoir.
 
@@ -72,9 +72,9 @@ Lorsque Wang Lin relâcha la ligne, la glace au loin se brisa et vola en éclats
 
 L'expression de Wang Lin resta impassible tandis que sa main droite saisissait une autre ligne. Au loin, l'espace s'effondra soudainement pour former un trou noir. Ce dernier libéra une puissante force d'aspiration qui engloutit la poussière environnante.
 
-Après un long moment, Wang Lin ferma les yeux. Lorsqu'il les rouvrit, sa main droite forma un sceau et pointa à trois pouces de ses yeux. La lueur rouge de son regard devint progressivement monstrueuse. Les lignes sanguines dans ses yeux se mirent en mouvement. Il endura une douleur intense jusqu'à ce qu'elles fusionnent toutes en une unique ligne !
+Après un long moment, Wang Lin ferma les yeux. Lorsqu'il les rouvrit, sa main droite forma un sceau et pointa à trois pouces de ses yeux. La lueur rouge de son regard devint progressivement monstrueuse. Les lignes sanguines dans ses yeux se mirent en mouvement. Il endura une douleur intense jusqu'à ce qu'elles fusionnent toutes en une unique ligne!
 
-Un œil, un Dao !
+Un œil, un Dao!
 
 Cette lignée sanguine était la synthèse de toutes les autres. Elle n'était pas verticale comme la pupille d'un python, mais horizontale, traversant la pupille de Wang Lin. La lumière rouge se propagea et se concentra à l'extrémité du doigt de Wang Lin. L'éclat devint de plus en plus intense jusqu'à devenir une lumière de restriction écarlate et fantomatique.
 
@@ -82,7 +82,7 @@ Après un long moment, Wang Lin abaissa sa main droite et pointa vers l'avant. U
 
 Cette épée était illusoire, semblant contenir d'innombrables restrictions en son sein.
 
-Dès que l'épée apparut, les longs cheveux de Wang Lin s'agitèrent sans qu'aucun vent ne soufflât, et des bruits de craquements résonnèrent dans son corps. Son aura intérieure augmenta considérablement, passant du stade moyen du Vide Spirituel au stade avancé du Vide Spirituel !
+Dès que l'épée apparut, les longs cheveux de Wang Lin s'agitèrent sans qu'aucun vent ne soufflât, et des bruits de craquements résonnèrent dans son corps. Son aura intérieure augmenta considérablement, passant du stade moyen du Vide Spirituel au stade avancé du Vide Spirituel!
 
 Wang Lin leva soudainement la tête et serra le poing droit. Sous l'effet de sa montée en puissance, l'espace autour de lui trembla comme s'il l'avait saisi physiquement.
 
@@ -92,11 +92,11 @@ Wang Lin tendit la main vers le vide et le Voile Fantomatique, qui présentait j
 
 Le visage fantomatique sur la voile demeurait étrange, mais il semblait désormais plus familier à Wang Lin.
 
-Ce Voile Fantomatique était désormais son propre trésor !
+Ce Voile Fantomatique était désormais son propre trésor!
 
 « Le sort d'illusion du Grand Secte des Âmes du Continent Astral Immortel est également une forme de restriction. Il fait partie de l'essence même de la restriction. Les restrictions sont illusoires, tout comme les règles. Si vous dites qu'elles existent, elles existent. Mais quand on est assez puissant pour les ignorer, elles cessent d'exister...
 
-« C'est une illusion... Elle ressemble au vrai et au faux, mais elle en est très différente ! Bien que j'aie compris l'essence de la restriction, elle n'est pas complète. Elle ne s'est formée qu'à partir de ma propre compréhension...
+« C'est une illusion... Elle ressemble au vrai et au faux, mais elle en est très différente! Bien que j'aie compris l'essence de la restriction, elle n'est pas complète. Elle ne s'est formée qu'à partir de ma propre compréhension...
 
 « Pour que la véritable essence de la restriction se manifeste, il faudrait que l'on se transforme soi-même en ciel et en terre. Faire de ses propres règles les règles du ciel et de la terre. Faire de sa propre volonté la volonté du ciel et de la terre. C'est extrêmement difficile, difficile, difficile... »
 
@@ -112,8 +112,8 @@ Au même moment, sur le Continent Astral Immortel, au sein des terres célestes,
 
 « Xuan Luo, tu es bien plus faible qu'autrefois. L'heure de ta réincarnation doit avoir sonné... Je ne sais pas si tu as trouvé un gardien. Si ce n'est pas le cas, je peux t'en offrir un. »
 
-Un soleil de sang brillait intensément, et la voix de Xuan Luo s'éleva calmement de l'intérieur : « Dao Yi, tu me bloques le passage depuis que j'ai pénétré dans le Continent Céleste. Si tu continues, je massacrerai l'ensemble de ta secte ! »
+Un soleil de sang brillait intensément, et la voix de Xuan Luo s'éleva calmement de l'intérieur: « Dao Yi, tu me bloques le passage depuis que j'ai pénétré dans le Continent Céleste. Si tu continues, je massacrerai l'ensemble de ta secte! »
 
-« Massacrer ma secte ? Puisque tu es si pressé, c'est que tu as des affaires importantes à régler dans mes terres célestes ! »
+« Massacrer ma secte? Puisque tu es si pressé, c'est que tu as des affaires importantes à régler dans mes terres célestes! »
 
-« Tout ce que j'ai à faire est important. Vas-tu m'ouvrir la voie ou non ?! » Xuan Luo ne perdit même pas de temps en complots, une froideur glaciale brillant dans ses yeux.
+« Tout ce que j'ai à faire est important. Vas-tu m'ouvrir la voie ou non?! » Xuan Luo ne perdit même pas de temps en complots, une froideur glaciale brillant dans ses yeux.

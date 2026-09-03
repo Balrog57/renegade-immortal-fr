@@ -18,13 +18,13 @@ Un cercueil violet émergea lentement du sol effondré. Le suaire funèbre exhal
 
 C'était une personne âgée. On pouvait vaguement distinguer qu'il s'agissait d'une femme. Elle semblait tout droit sortie des enfers. Il ne lui restait que quelques mèches de cheveux éparses, elle portait une robe royale délavée et son corps était entièrement noirci.
 
-Trois dagues étaient plantées dans son corps : une entre les sourcils, une dans la poitrine et une dans le dantian.
+Trois dagues étaient plantées dans son corps: une entre les sourcils, une dans la poitrine et une dans le dantian.
 
-« Salutations, Ancêtre de l'Empereur Saint ! » À l'instant même de son apparition, tous les membres de l'Ancient Dao s'agenouillèrent à nouveau. Leurs voix se fondirent en une onde qui résonna à travers le monde.
+« Salutations, Ancêtre de l'Empereur Saint! » À l'instant même de son apparition, tous les membres de l'Ancient Dao s'agenouillèrent à nouveau. Leurs voix se fondirent en une onde qui résonna à travers le monde.
 
-Les membres de l'Ancient Dao témoignaient envers elle du même respect qu'envers l'Ancêtre Ancêtre. L'excitation qui brillait dans leurs yeux prouvait que cette vieille femme possédait un statut extraordinaire !
+Les membres de l'Ancient Dao témoignaient envers elle du même respect qu'envers l'Ancêtre Ancêtre. L'excitation qui brillait dans leurs yeux prouvait que cette vieille femme possédait un statut extraordinaire!
 
-Parmi les générations passées des Empereurs de l'Ancient Dao, une seule personne pouvait être appelée l'Empereur Saint !
+Parmi les générations passées des Empereurs de l'Ancient Dao, une seule personne pouvait être appelée l'Empereur Saint!
 
 En voyant la vieille femme, Xuan Luo se remémora le passé. Il poussa un soupir et son expression devint complexe.
 
@@ -38,7 +38,7 @@ Ces quatre tables avaient manifestement été préparées pour le Grand Empyrean
 
 Wang Lin ignorait qui était cette personne, mais après avoir vu la vieille femme et entendu Xuan Luo prononcer le nom de « Ye Wei », il s'en souvint. Lors de son arrivée à l'Ancient Dao, il avait étudié l'histoire des générations passées d'empereurs.
 
-Dans les dizaines de milliers d'années d'histoire de l'Ancient Dao, il y avait eu une femme. Elle fut la seule femme à être devenue Empereur de l'Ancient Dao !
+Dans les dizaines de milliers d'années d'histoire de l'Ancient Dao, il y avait eu une femme. Elle fut la seule femme à être devenue Empereur de l'Ancient Dao!
 
 Son accession au trône avait provoqué un tollé dans tout l'Ancient Dao. Après avoir subi les critiques des membres du clan, le Grand Empyrean Gu Dao avait publié un décret pour la reconnaître officiellement, ce qui finit par apaiser les tensions.
 
@@ -46,7 +46,7 @@ Cette femme faisait également partie de la famille impériale. À cette époque
 
 En raison de ses contributions et du fait qu'elle avait mené l'Ancient Dao à surpasser les clans Ancient Shi et Ancient Ji, elle fut nommée l'Empereur Saint par les empereurs suivants.
 
-Les habitants de l'Ancient Dao la surnommaient également l'Ancêtre de l'Empereur Saint !
+Les habitants de l'Ancient Dao la surnommaient également l'Ancêtre de l'Empereur Saint!
 
 Son nom était Ye Wei... En entendant ce nom, Wang Lin se remémora tout ce qu'il savait d'elle.
 
@@ -56,17 +56,17 @@ Tout cela traversa instantanément l'esprit de Wang Lin. Il fixa la vieille femm
 
 En voyant la vieille femme, Song Zhi parut terrifiée. Wang Lin resserra sa prise sur elle pour la rassurer.
 
-La vieille femme regarda Wang Lin et dit d'une voix rauque : « Laisse derrière toi la tête de l'Ancêtre Céleste et l'âme de l'Empereur Céleste, et je te déclarerai innocent ! Sinon, même si tu peux emprunter le pouvoir de l'Ancêtre Ancêtre pour invoquer son ombre, crois-tu vraiment que le palais de l'Ancient Dao est un endroit où l'on vient et part comme bon nous semble ?! » L'aura de mort émanant de son corps sembla s'intensifier.
+La vieille femme regarda Wang Lin et dit d'une voix rauque: « Laisse derrière toi la tête de l'Ancêtre Céleste et l'âme de l'Empereur Céleste, et je te déclarerai innocent! Sinon, même si tu peux emprunter le pouvoir de l'Ancêtre Ancêtre pour invoquer son ombre, crois-tu vraiment que le palais de l'Ancient Dao est un endroit où l'on vient et part comme bon nous semble?! » L'aura de mort émanant de son corps sembla s'intensifier.
 
-Elle poursuivit d'une voix sombre : « Ma cultivation n'est pas aussi puissante que la tienne, mais ceci est le palais de l'Ancient Dao, qui abrite la Grande Formation des Dix Mille. Cette formation fut établie par l'Ancêtre Ancêtre, et chaque génération d'empereur ne peut en activer que 20 à 30 %. Cependant, mon corps fusionne avec la formation ; tant que je suis dans le palais, je ne peux mourir. Je peux activer jusqu'à 70 % de sa puissance ! »
+Elle poursuivit d'une voix sombre: « Ma culture n'est pas aussi puissante que la tienne, mais ceci est le palais de l'Ancient Dao, qui abrite la Grande Formation des Dix Mille. Cette formation fut établie par l'Ancêtre Ancêtre, et chaque génération d'empereur ne peut en activer que 20 à 30 %. Cependant, mon corps fusionne avec la formation; tant que je suis dans le palais, je ne peux mourir. Je peux activer jusqu'à 70 % de sa puissance! »
 
 L'expression de Wang Lin restait calme, mais la froideur de son regard s'accentua.
 
-« Si tu veux mes biens, tente donc de les prendre ! » répondit lentement Wang Lin. Soudain, son soleil de Grand Empyrean apparut. Les couleurs noir et blanc resplendirent et les cheveux de Wang Lin s'agitèrent sans qu'aucun vent ne souffle. Une ombre de l'Ancient Dao, identique à lui, se dessina sous son soleil de Grand Empyrean.
+« Si tu veux mes biens, tente donc de les prendre! » répondit lentement Wang Lin. Soudain, son soleil de Grand Empyrean apparut. Les couleurs noir et blanc resplendirent et les cheveux de Wang Lin s'agitèrent sans qu'aucun vent ne souffle. Une ombre de l'Ancient Dao, identique à lui, se dessina sous son soleil de Grand Empyrean.
 
 L'ombre semblait porter le soleil de l'empereur et fixa froidement la vieille femme.
 
-Wang Lin ne pouvait brûler le sang de son âme qu'une seule fois pour invoquer l'ombre de l'Ancêtre Ancêtre. Il venait de l'utiliser ; son sang d'âme était donc dispersé dans tout son corps. Il lui faudrait du temps pour le rassembler et pouvoir l'utiliser à nouveau.
+Wang Lin ne pouvait brûler le sang de son âme qu'une seule fois pour invoquer l'ombre de l'Ancêtre Ancêtre. Il venait de l'utiliser; son sang d'âme était donc dispersé dans tout son corps. Il lui faudrait du temps pour le rassembler et pouvoir l'utiliser à nouveau.
 
 Les yeux ternes de la vieille femme s'illuminèrent et elle leva son bras osseux. Juste au moment où elle allait porter un coup, un soupir s'échappa de Xuan Luo.
 
@@ -74,35 +74,33 @@ Ce soupir atteignit les oreilles de la vieille femme, faisant trembler ses mains
 
 « Ye Wei... C'est mon disciple. » Xuan Luo regarda la vieille femme avec une expression complexe, mais une pointe de tendresse perçait dans ses yeux. C'était comme si la vieille femme devant lui n'était plus hideuse, mais redevenait la femme magnifique et brillante d'autrefois.
 
-La vieille femme resta silencieuse un instant avant de regarder Xuan Luo. Ses yeux ternes reflétaient une émotion trouble lorsqu'elle dit d'une voix rauque : « Il a été autrefois ton disciple. »
+La vieille femme resta silencieuse un instant avant de regarder Xuan Luo. Ses yeux ternes reflétaient une émotion trouble lorsqu'elle dit d'une voix rauque: « Il a été autrefois ton disciple. »
 
-« Je sais que tu aimais Ye Dao. Lorsqu'il était enfant, il s'était introduit par inadvertance dans ton lieu de cultivation en isolement, et tu as cru qu'un destin vous liait...
+« Je sais que tu aimais Ye Dao. Lorsqu'il était enfant, il s'était introduit par inadvertance dans ton lieu de culture en isolement, et tu as cru qu'un destin vous liait...
 
 « J'avais clairement estimé que cet enfant n'était pas bon. Son caractère était trop arrogant et il ne supportait personne. À l'origine, je ne voulais pas le choisir comme empereur, mais il possédait ton aura, alors je l'ai choisi.
 
-« Aujourd'hui, il a forcé mon seul disciple à rompre tout lien avec moi, et maintenant ce dernier ne peut plus rester dans l'Ancient Dao. Penses-tu que Ye Dao ait fait ce qu'il fallait ?
+« Aujourd'hui, il a forcé mon seul disciple à rompre tout lien avec moi, et maintenant ce dernier ne peut plus rester dans l'Ancient Dao. Penses-tu que Ye Dao ait fait ce qu'il fallait?
 
-« En tant qu'empereur, aurait-il dû agir ainsi ?! Crois-tu vraiment que cette formation puisse piéger Wang Lin ?! » À la fin de son discours, Xuan Luo se mit à rugir. Ses yeux étaient emplis de tristesse et, lorsqu'il regarda Wang Lin, sa douleur devint déchirante.
+« En tant qu'empereur, aurait-il dû agir ainsi?! Crois-tu vraiment que cette formation puisse piéger Wang Lin?! » À la fin de son discours, Xuan Luo se mit à rugir. Ses yeux étaient emplis de tristesse et, lorsqu'il regarda Wang Lin, sa douleur devint déchirante.
 
 Il ne pourrait jamais oublier ce sourire qui était en réalité un cri. Puis cette révérence après le sourire, suivie de la paume que Wang Lin avait utilisée pour mettre fin à ses jours afin de rompre leur lien.
 
 Il comprit que son statut de maître de Wang Lin s'était évanoui lorsque le corps de ce dernier s'était effondré.
 
-La vieille femme réfléchit en silence. Un instant plus tard, elle déclara d'une voix rauque :
+La vieille femme réfléchit en silence. Un instant plus tard, elle déclara d'une voix rauque:
 
-« L'enfant Ye Dao méritait bel et bien la mort, mais en tant qu'empereur, il ne peut mourir pour rien. Aujourd'hui, si Wang Lin ne laisse pas derrière lui la tête de l'Ancêtre Céleste et l'âme de l'Empereur Céleste, je déclencherai une guerre ! De plus, je ne crois pas que cette formation puisse le retenir ! »
+« L'enfant Ye Dao méritait bel et bien la mort, mais en tant qu'empereur, il ne peut mourir pour rien. Aujourd'hui, si Wang Lin ne laisse pas derrière lui la tête de l'Ancêtre Céleste et l'âme de l'Empereur Céleste, je déclencherai une guerre! De plus, je ne crois pas que cette formation puisse le retenir! »
 
 Dès qu'elle eut fini de parler, Wang Lin éclata de rire, la froideur de son regard devenant plus étrange encore. Il leva la main droite et les Huit Daos Extrêmes de l'Ancêtre Céleste commencèrent à se déployer.
 
-La fumée verte était le Dao Extrême du Feu !
-
-Les ondulations bleues étaient le Dao Extrême de l'Eau !
-
-La lumière dorée était le Dao Extrême du Métal !
+La fumée verte était le Dao Extrême du Feu!
+Les ondulations bleues étaient le Dao Extrême de l'Eau!
+La lumière dorée était le Dao Extrême du Métal!
 
 Wang Lin avait appris six des Huit Daos Extrêmes de l'Ancêtre Céleste lors des Épreuves Empyrées. D'un mouvement de manche, les six Daos apparurent l'un après l'autre.
 
-Outre l'eau, le feu et le métal, il y avait aussi le bois et la terre. Une fois les cinq éléments complets, le sixième fut le Dao Extrême de la Vie et de la Mort !
+Outre l'eau, le feu et le métal, il y avait aussi le bois et la terre. Une fois les cinq éléments complets, le sixième fut le Dao Extrême de la Vie et de la Mort!
 
 Quant au septième, le Dao Extrême de la Richesse, et au dernier, le Dao Extrême du Ciel, bien que Wang Lin ne les ait pas encore obtenus, il pouvait les ressentir. Avec suffisamment de temps, il ne lui serait pas impossible de les maîtriser également.
 
@@ -120,7 +118,7 @@ Tandis qu'elle hésitait, Wang Lin ricana et ses cheveux passèrent progressivem
 
 L'expression de la vieille femme changea une nouvelle fois.
 
-« Ye Wei ! Je t'ai promis de te protéger toute ma vie... de garder l'Ancient Dao pour l'éternité... Je suis fatigué... Laisse-le partir. Tu ne fais pas le poids face à lui et cette formation ne pourra pas l'arrêter. Je te sauve... » Le visage de Xuan Luo sembla vieillir subitement, mais lorsqu'il regarda la vieille femme, une tendresse immuable depuis des années brilla dans ses yeux.
+« Ye Wei! Je t'ai promis de te protéger toute ma vie... de garder l'Ancient Dao pour l'éternité... Je suis fatigué... Laisse-le partir. Tu ne fais pas le poids face à lui et cette formation ne pourra pas l'arrêter. Je te sauve... » Le visage de Xuan Luo sembla vieillir subitement, mais lorsqu'il regarda la vieille femme, une tendresse immuable depuis des années brilla dans ses yeux.
 
 La vieille femme resta silencieuse un long moment avant d'un geste de la main, faisant dissiper la lumière violette qui enveloppait le palais.
 

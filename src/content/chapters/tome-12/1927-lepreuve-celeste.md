@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1927 - Empyrean Trial
 slug: lepreuve-celeste
 ---
-Sur le Continent de la Mer Montagneuse du Sud, il existait une mer intérieure nommée la Mer Montagneuse. Cette mer était vaste ; parfois, on pouvait apercevoir d'innombrables oiseaux marins survolant l'azur du ciel. Le fracas des vagues résonnait tandis que la brise de la mer d'ouest soufflait vers le rivage.
+Sur le Continent de la Mer Montagneuse du Sud, il existait une mer intérieure nommée la Mer Montagneuse. Cette mer était vaste; parfois, on pouvait apercevoir d'innombrables oiseaux marins survolant l'azur du ciel. Le fracas des vagues résonnait tandis que la brise de la mer d'ouest soufflait vers le rivage.
 
 La Mer Montagneuse occupait plus de 70 % du Continent de la Mer Montagneuse, les 30 % restants étant constitués de terres entourant cette étendue marine.
 
@@ -18,23 +18,23 @@ Wang Lin vivait dans cette grotte depuis trois ans et y avait disposé une multi
 
 Dans la grotte flottait un brouillard bleuâtre. Dissimulé en son sein se trouvait un dragon marin dont la taille avait été réduite de nombreuses fois.
 
-Assis au fond de la cavité, Wang Lin ferma lentement les yeux tandis que ses mains exécutaient rapidement des sceaux. Ces sceaux étaient extrêmement spéciaux ; Wang Lin les avait perfectionnés après les avoir vérifiés à maintes reprises.
+Assis au fond de la cavité, Wang Lin ferma lentement les yeux tandis que ses mains exécutaient rapidement des sceaux. Ces sceaux étaient extrêmement spéciaux; Wang Lin les avait perfectionnés après les avoir vérifiés à maintes reprises.
 
-« Avant de m'emparer de l'Arbre de la Mer Montagneuse, je vais découvrir quel genre d'endroit mystérieux est cette Épreuve Céleste ! » Wang Lin allait utiliser la méthode d'entrée qu'il avait étudiée durant les cinquante dernières années. Son Sens Divin se concentra au sommet de son crâne avant de jaillir vers le haut en une lumière éclatante.
+« Avant de m'emparer de l'Arbre de la Mer Montagneuse, je vais découvrir quel genre d'endroit mystérieux est cette Épreuve Céleste! » Wang Lin allait utiliser la méthode d'entrée qu'il avait étudiée durant les cinquante dernières années. Son Sens Divin se concentra au sommet de son crâne avant de jaillir vers le haut en une lumière éclatante.
 
 Cette lueur était celle de son Sens Divin. Après s'être concentrée un instant sur la tête de Wang Lin, elle s'élança vers le ciel à une vitesse inimaginable.
 
 Elle traversa la grotte et la montagne pour percer les cieux. Aucun observateur extérieur ne pouvait voir ni ressentir cette lumière. Les sceaux utilisés par Wang Lin dissimulaient toutes les fluctuations du Sens Divin, protégeant ainsi tous les Exaltés Célestes lorsqu'ils pénétraient dans l'Épreuve Céleste.
 
-On racontait que ces sceaux avaient été transmis par l'Ancêtre Céleste !
+On racontait que ces sceaux avaient été transmis par l'Ancêtre Céleste!
 
-Le Sens Divin de Wang Lin continua de s'élever jusqu'à briser le vide. Il était tel une épée céleste prête à fendre la voûte du Continent Astral Immortel !
+Le Sens Divin de Wang Lin continua de s'élever jusqu'à briser le vide. Il était tel une épée céleste prête à fendre la voûte du Continent Astral Immortel!
 
 Au moment où son Sens Divin atteignit son apogée, des grondements tonitruants résonnèrent dans l'esprit de Wang Lin. Il eut l'impression que le ciel s'était transformé en un vortex géant aspirant sa conscience.
 
 Sa vision se brouilla. Lorsqu'il retrouva la clarté, il observa les environs et fut frappé de stupeur.
 
-Il se trouvait sur un continent d'environ 10 000 kilomètres de large. Ce continent, très exigu, flottait dans le ciel. Des vents hurlants tourbillonnaient sans fin autour de lui, parcourus par des lignes noires en mouvement. Ces lignes possédaient une puissance terrifiante ; il semblait qu'un simple contact avec l'une d'elles suffirait à vous anéantir.
+Il se trouvait sur un continent d'environ 10 000 kilomètres de large. Ce continent, très exigu, flottait dans le ciel. Des vents hurlants tourbillonnaient sans fin autour de lui, parcourus par des lignes noires en mouvement. Ces lignes possédaient une puissance terrifiante; il semblait qu'un simple contact avec l'une d'elles suffirait à vous anéantir.
 
 Au centre du continent trônait un palais gigantesque. Cette structure dégageait une aura antique, entièrement noire et empreinte de majesté. Quiconque la contemplait ne pouvait s'empêcher de ressentir un profond sentiment de révérence.
 
@@ -42,19 +42,19 @@ Alors que Wang Lin arrivait et commençait son observation, de nombreux Sens Div
 
 Chacun de ces sens portait la pression d'un Exalté Céleste, et ils étaient près de deux cents.
 
-« Wang Lin ? »
+« Wang Lin? »
 
-« L'Exalté Céleste aux cheveux blancs ! »
+« L'Exalté Céleste aux cheveux blancs! »
 
-« C'est lui ! » Parmi ces présences, se trouvaient des Exaltés Célestes qui avaient combattu Wang Lin au cours des cinquante dernières années. En le voyant, ils le reconnurent instantanément.
+« C'est lui! » Parmi ces présences, se trouvaient des Exaltés Célestes qui avaient combattu Wang Lin au cours des cinquante dernières années. En le voyant, ils le reconnurent instantanément.
 
 L'expression de Wang Lin resta imperturbable. En examinant les alentours, il constata qu'il se trouvait près d'une ancienne matrice de transfert. Cette matrice était extrêmement complexe et, à première vue, Wang Lin sentit que son Sens Divin risquait d'être aspiré par elle.
 
 Après un long moment, Wang Lin retira son attention et sortit de la matrice. Il observa attentivement son corps, ayant l'impression d'être dans sa forme physique. S'il n'avait pas su qu'il ne s'agissait que de son âme originelle, il aurait eu du mal à percevoir la différence.
 
-« L'Épreuve Céleste a été créée par l'Ancêtre Céleste. Elle est véritablement mystérieuse ! » Wang Lin vola vers le palais d'où émanaient tous ces Sens Divins.
+« L'Épreuve Céleste a été créée par l'Ancêtre Céleste. Elle est véritablement mystérieuse! » Wang Lin vola vers le palais d'où émanaient tous ces Sens Divins.
 
-Plus il s'approchait, plus son choc grandissait. Le palais antique paraissait immense de loin, mais de près, il était encore plus prodigieux. Plus incroyable encore, Wang Lin découvrit qu'un enchaînement de palais colossaux surplombait celui-ci !
+Plus il s'approchait, plus son choc grandissait. Le palais antique paraissait immense de loin, mais de près, il était encore plus prodigieux. Plus incroyable encore, Wang Lin découvrit qu'un enchaînement de palais colossaux surplombait celui-ci!
 
 Au total, dix-neuf palais flottaient dans les airs, reliés entre eux comme un dragon de pierre. Les palais supérieurs s'étendaient vers les cieux, dont on ne percevait plus que les contours vagues.
 
@@ -74,19 +74,19 @@ Alors qu'il méditait, une lumière dorée et éclatante jaillit du septième pa
 
 Wang Lin leva également la tête lorsqu'une silhouette noire s'échappa du septième palais. Il s'agissait d'un homme d'âge moyen aux longs cheveux flottants. Il dégageait une aura puissante alors qu'il bondissait du septième au huitième palais.
 
-« L'Exalté Céleste Zhu Lin a franchi le septième niveau ! »
+« L'Exalté Céleste Zhu Lin a franchi le septième niveau! »
 
-« Réussir à franchir le septième niveau signifie qu'il a fusionné au moins soixante-trois sorts. Il n'en était pas capable auparavant ! »
+« Réussir à franchir le septième niveau signifie qu'il a fusionné au moins soixante-trois sorts. Il n'en était pas capable auparavant! »
 
 « Il suit le Grand Exalté Céleste Jiu Di depuis mille ans. Il a manifestement beaucoup progressé... »
 
 « Le huitième niveau n'est rien, mais le neuvième étage est le plus crucial. Si quelqu'un parvient à franchir le neuvième niveau, alors chaque Grand Exalté Céleste lui prêtera attention. »
 
-« Le neuvième niveau... est bien trop difficile ! Ceux qui parviennent à le franchir sont infiniment proches d'un Exalté Céleste Ascendant. Un seul pas de plus et ils deviendront le 49e Ascendant de mon clan céleste ! »
+« Le neuvième niveau... est bien trop difficile! Ceux qui parviennent à le franchir sont infiniment proches d'un Exalté Céleste Ascendant. Un seul pas de plus et ils deviendront le 49e Ascendant de mon clan céleste! »
 
 « Même le plus puissant des Ascendants, Ming Dao, s'est arrêté au seizième niveau sans pouvoir aller plus loin. »
 
-« La rumeur prétend que si quelqu'un franchit le dix-neuvième niveau, cela signifie qu'il possède une puissance capable de faire vaciller les Grands Exaltés Célestes eux-mêmes ! »
+« La rumeur prétend que si quelqu'un franchit le dix-neuvième niveau, cela signifie qu'il possède une puissance capable de faire vaciller les Grands Exaltés Célestes eux-mêmes! »
 
 Tandis que la lumière dorée brillait, les quelque deux cents Exaltés Célestés échangeaient frénétiquement des messages par Sens Divin.
 
@@ -98,7 +98,7 @@ L'Exalté Céleste Zhu Lin affichait une expression sombre. Sans même regarder 
 
 Par la suite, Wang Lin vit des lueurs dorées jaillir des divers palais, les occupants étant constamment expulsés. Le niveau le plus élevé d'où l'on était éjecté était le huitième palais, comme pour Zhu Lin, tandis que les plus bas étaient les deuxième ou troisième niveaux.
 
-Wang Lin ne se précipita pas pour tenter sa chance ; il resta assis pour observer. Durant trois jours, de nombreux cultivateurs passèrent, mais la plupart choisirent de rester sans repartir.
+Wang Lin ne se précipita pas pour tenter sa chance; il resta assis pour observer. Durant trois jours, de nombreux cultivateurs passèrent, mais la plupart choisirent de rester sans repartir.
 
 Au cours de ces trois jours, l'Exalté Céleste Zhu Lin tenta à nouveau d'affronter le huitième palais, mais échoua encore une fois.
 
@@ -108,11 +108,11 @@ Seuls les Exaltés Célestes qui avaient combattu Wang Lin le regardèrent appro
 
 « Puisque l'Exalté Céleste aux cheveux blancs se rend au premier palais, ce doit être sa première fois ici. Je me demande combien de niveaux il parviendra à franchir. »
 
-« Cet homme est très étrange. Sa cultivation est simple, mais sa puissance de combat est stupéfiante. Je ne pourrais pas l'affronter. Voyons jusqu'où il peut aller. »
+« Cet homme est très étrange. Sa culture est simple, mais sa puissance de combat est stupéfiante. Je ne pourrais pas l'affronter. Voyons jusqu'où il peut aller. »
 
 « Wang Lin... En quelques décennies, il est devenu une figure célèbre dans tout le Continent Sud. On dit que le Grand Exalté Céleste Dao Yi a tenté de le recruter, mais qu'il a décliné l'offre. » Une douzaine de paires d'yeux suivirent Wang Lin alors qu'il disparaissait à l'intérieur du palais.
 
-Dès qu'il pénétra dans le premier palais, il eut l'impression que le monde entier avait changé. Il découvrit que l'intérieur même du palais était un système stellaire !
+Dès qu'il pénétra dans le premier palais, il eut l'impression que le monde entier avait changé. Il découvrit que l'intérieur même du palais était un système stellaire!
 
 Ce système était vaste et contenait d'innombrables étoiles. Chaque astre brillait intensément, et il se tenait au cœur de cette immensité cosmique.
 

@@ -14,37 +14,37 @@ Wang Lin ne cilla même pas, contrôlant la flamme froide pour affiner le fourre
 
 Cette flamme froide était une création qu'il avait élaborée en tentant de copier la flamme du noyau d'un cultivateur au stade de la Formation du Noyau. N'ayant personne pour le conseiller, il s'était montré extrêmement prudent. Après avoir longuement théorisé, il estimait que sa flamme froide était suffisante pour affiner le fourreau.
 
-Le temps passa lentement. Trois jours plus tard, Ye Zizai revint sur la plaine surplombant le Secte des Cadavres tel une météorite. Dès que ses pieds touchèrent le sol, il disparut sans laisser de trace.
+Le temps passa lentement. Trois jours plus tard, Ye Zizai revint sur la plaine surplombant la Secte des Cadavres tel une météorite. Dès que ses pieds touchèrent le sol, il disparut sans laisser de trace.
 
 Lorsqu'il réapparut, il se trouvait déjà dans sa propre chambre. Il était très troublé en songeant à son accord avec les trois autres sectes démoniaques.
 
 L'examen de qualification pour accéder au champ de bataille étranger avait été remporté par les sectes démoniaques auparavant, mais la présence actuelle de Punnan Zi et de son Secte Xuan Dao rendait l'issue incertaine.
 
-Les sourcils froncés, il murmura : « Es-tu certain de pouvoir tuer Punnan Zi ? »
+Les sourcils froncés, il murmura: « Es-tu certain de pouvoir tuer Punnan Zi? »
 
-Une voix rauque s'échappa du corps de Ye Zizai : « Bien que ce junior ne soit qu'au milieu du stade de l'Âme Naissante, il se trouve au sommet de cette étape. S'il a de la chance, il pourra percer le stade avancé d'ici cent ans et devenir le maître d'un pays de cultivation de rang 3. Si ma possession est complète, il ne sera pas un problème, mais pour l'instant, je ne souhaite pas compliquer les choses. »
+Une voix rauque s'échappa du corps de Ye Zizai: « Bien que ce junior ne soit qu'au milieu du stade de l'Âme Naissante, il se trouve au sommet de cette étape. S'il a de la chance, il pourra percer le stade avancé d'ici cent ans et devenir le maître d'un pays de culture de rang 3. Si ma possession est complète, il ne sera pas un problème, mais pour l'instant, je ne souhaite pas compliquer les choses. »
 
 Ye Zizai resta longuement en silence pour réfléchir. Après un moment, il sortit un morceau de jade dont la teinte verte était ponctuée d'éclats de sang scintillants.
 
 « Que tous les disciples au stade de l'Établissement des Fondations des grottes 77 à 99 se rassemblent immédiatement dans la grotte 36. » Après avoir parlé, il marqua une pause et jeta un regard vers le recoin où il avait enfermé Adai. Puis, prenant une décision, il plaça un jade sur son front avant de le lancer.
 
-Mu Rong était en pleine cultivation lorsque ses yeux s'ouvrirent brusquement : un jade venait de jaillir de son sac de rangement. Son expression changea légèrement et il le ramassa, l'esprit troublé. Après un long silence, il soupira et marmonna : « Heureusement que j'ai franchi le stade du milieu de l'Établissement des Fondations il y a trois ans pour passer de la grotte 82 à la 72, sinon ma vie serait en grand danger aujourd'hui. »
+Mu Rong était en pleine culture lorsque ses yeux s'ouvrirent brusquement: un jade venait de jaillir de son sac de rangement. Son expression changea légèrement et il le ramassa, l'esprit troublé. Après un long silence, il soupira et marmonna: « Heureusement que j'ai franchi le stade du milieu de l'Établissement des Fondations il y a trois ans pour passer de la grotte 82 à la 72, sinon ma vie serait en grand danger aujourd'hui. »
 
 Soudain, une fumée verte apparut devant lui, prenant la forme d'un morceau de jade.
 
 Mu Rong fut stupéfait. Après avoir examiné le jade, il eut un ricanement et se dirigea vers la grotte de Wang Lin.
 
-Peu de temps après, il arriva devant l'entrée de la grotte de Wang Lin. Voyant que celle-ci était scellée, il pressa sa main contre l'ouverture et utilisa son énergie spirituelle pour faire vibrer la cavité. Il cria alors : « Ancêtre, le Premier Ancêtre rassemble les cultivateurs de l'Établissement des Fondations dans la grotte 36. Je suis ici pour vous y guider ! »
+Peu de temps après, il arriva devant l'entrée de la grotte de Wang Lin. Voyant que celle-ci était scellée, il pressa sa main contre l'ouverture et utilisa son énergie spirituelle pour faire vibrer la cavité. Il cria alors: « Ancêtre, le Premier Ancêtre rassemble les cultivateurs de l'Établissement des Fondations dans la grotte 36. Je suis ici pour vous y guider! »
 
 N'obtenant aucune réponse, il fronça les sourcils. D'après le message du Premier Ancêtre, Wang Lin ne semblait pas être un favori. De plus, avant de partir, le Premier Ancêtre avait ordonné à lui et à plusieurs autres cultivateurs de l'Établissement des Fondations de garder Wang Lin sous surveillance. En somme, Wang Lin était traité comme un prisonnier.
 
-Mais Mu Rong était perspicace ; il ne prononcerait rien de tout cela à voix haute.
+Mais Mu Rong était perspicace; il ne prononcerait rien de tout cela à voix haute.
 
 À cet instant précis, la grotte scellée s'ouvrit dans un craquement. Un Wang Lin à l'air épuisé en sortit.
 
-Mu Rong regarda Wang Lin et sourit : « Ancêtre, que vous est-il arrivé ? »
+Mu Rong regarda Wang Lin et sourit: « Ancêtre, que vous est-il arrivé? »
 
-Wang Lin ne répondit pas, mais sortit son jade bleu foncé et dit : « Frère Mu, veuillez me guider vers la grotte 36. »
+Wang Lin ne répondit pas, mais sortit son jade bleu foncé et dit: « Frère Mu, veuillez me guider vers la grotte 36. »
 
 Mu Rong n'y vit aucun inconvénient. Il hocha la tête et marcha devant Wang Lin.
 
@@ -64,7 +64,7 @@ Il n'y avait aucun cultivateur du milieu du stade de l'Établissement des Fondat
 
 Les pupilles de Wang Lin se rétractèrent lorsque des gaz s'échappèrent des seize flammes bleues. Les émanations se rassemblèrent pour former la silhouette de Ye Zizai. Wang Lin remarqua qu'à son apparition, les yeux de tous les occupants de la grotte se remplirent d'admiration.
 
-Le regard de Ye Zizai balaya l'assistance et s'arrêta sur Wang Lin durant quelques secondes. Il déclara d'un ton plat : « Le champ de bataille étranger, qui ne s'ouvre que tous les cent ans, est sur le point de réapparaître. Pour obtenir le droit d'y entrer, nous devrons peut-être combattre les sectes orthodoxes. La règle est stricte : les cultivateurs de la Formation du Noyau et de l'Âme Naissante n'ont pas le droit d'entrer. Bientôt, vous serez tous téléportés dans la Vallée Jue Ming. Du Chen sera responsable de tout le monde là-bas. Du Chen, approche. »
+Le regard de Ye Zizai balaya l'assistance et s'arrêta sur Wang Lin durant quelques secondes. Il déclara d'un ton plat: « Le champ de bataille étranger, qui ne s'ouvre que tous les cent ans, est sur le point de réapparaître. Pour obtenir le droit d'y entrer, nous devrons peut-être combattre les sectes orthodoxes. La règle est stricte: les cultivateurs de la Formation du Noyau et de l'Âme Naissante n'ont pas le droit d'entrer. Bientôt, vous serez tous téléportés dans la Vallée Jue Ming. Du Chen sera responsable de tout le monde là-bas. Du Chen, approche. »
 
 Un homme d'âge moyen vêtu de noir s'avança. Wang Lin remarqua qu'il faisait partie des trois cultivateurs du stade avancé de l'Établissement des Fondations ayant déjà atteint le royaume de la pseudo-Formation du Noyau.
 
@@ -72,13 +72,13 @@ Un homme d'âge moyen vêtu de noir s'avança. Wang Lin remarqua qu'il faisait p
 
 L'expression de Wang Lin resta impassible tandis qu'il fixait silencieusement Ye Zizai.
 
-Ye Zizai poursuivit d'un ton calme : « Ces jades contiennent un fragment de l'âme de chacun de vous, à l'exception de la vôtre. »
+Ye Zizai poursuivit d'un ton calme: « Ces jades contiennent un fragment de l'âme de chacun de vous, à l'exception de la vôtre. »
 
 Sans dire un mot, Wang Lin se mordit la langue et cracha un peu de sang. Il pressa sa main droite contre son front et une lumière dorée jaillit, transformant son sang en une goutte d'or pur.
 
 La technique permettant d'extraire un fragment de son âme était inscrite dans le jade que Ye Zizai lui avait remis.
 
-Wang Lin pointa la goutte de sang doré. Elle s'élança et vint se poser sur l'un des jades tenus par Ye Zizai. Ce dernier fut stupéfait en voyant Wang Lin. Il ne s'attendait pas à une telle coopération. À l'origine, il était prêt à tuer Wang Lin s'il résistait. Il avait déjà décidé de ne plus utiliser Wang Lin comme marionnette ou cible de possession ; après tout, hormis sa méthode de cultivation étrange, le talent de Wang Lin n'égalait pas celui des candidats qu'il avait déjà sélectionnés. N'importe lequel des individus qu'il avait préparés possédait un talent bien supérieur à celui de Wang Lin, c'est pourquoi il avait finalement choisi Adai.
+Wang Lin pointa la goutte de sang doré. Elle s'élança et vint se poser sur l'un des jades tenus par Ye Zizai. Ce dernier fut stupéfait en voyant Wang Lin. Il ne s'attendait pas à une telle coopération. À l'origine, il était prêt à tuer Wang Lin s'il résistait. Il avait déjà décidé de ne plus utiliser Wang Lin comme marionnette ou cible de possession; après tout, hormis sa méthode de culture étrange, le talent de Wang Lin n'égalait pas celui des candidats qu'il avait déjà sélectionnés. N'importe lequel des individus qu'il avait préparés possédait un talent bien supérieur à celui de Wang Lin, c'est pourquoi il avait finalement choisi Adai.
 
 Voyant que Wang Lin obéissait, Ye Zizai fit un geste de la main et une immense ouverture se déchaîna. L'intérieur était d'une obscurité totale et une force d'aspiration en émanait.
 
@@ -86,17 +86,17 @@ Ye Zizai lança les trois jades contenant les fragments d'âme vers Du Chen et d
 
 Le doute dans le cœur de Wang Lin s'intensifia, mais son visage resta de marbre. Il mémorisa avec précision le cultivateur qui détenait le jade contenant une partie de son âme.
 
-Ye Zizai dit d'une voix monocorde : « Partez, j'attendrai les bonnes nouvelles. »
+Ye Zizai dit d'une voix monocorde: « Partez, j'attendrai les bonnes nouvelles. »
 
 Du Chen inclina respectueusement la tête. Il fut le premier à s'engouffrer dans la grotte géante avant de disparaître.
 
-Wang Lin ne montra aucune hésitation et disparut à son tour du Secte des Cadavres.
+Wang Lin ne montra aucune hésitation et disparut à son tour de la Secte des Cadavres.
 
 Une fois tout le monde parti, une voix rauque résonna dans la cavité.
 
-« Ye Zizai, avec plus de vingt marionnettes et ce gamin en sacrifice, une fois que les marionnettes les auront consumés, leur niveau de cultivation bondira au stade de pseudo-Formation du Noyau. Cette fois, la qualification du Secte des Cadavres est assurée. »
+« Ye Zizai, avec plus de vingt marionnettes et ce gamin en sacrifice, une fois que les marionnettes les auront consumés, leur niveau de culture bondira au stade de pseudo-Formation du Noyau. Cette fois, la qualification de la Secte des Cadavres est assurée. »
 
-Ye Zizai répondit calmement : « L'énergie Yin de Wang Lin est très pure, il doit donc receler des secrets. Si c'était il y a quelques années, j'aurais pris le temps d'enquêter, mais il ne me reste plus que trois mois à vivre. Le jour où le champ de bataille s'ouvrira sera le jour de ma mort, cela n'a donc plus d'intérêt. Puisque je ne vais pas utiliser son corps, autant l'utiliser comme nourriture pour renforcer les marionnettes. »
+Ye Zizai répondit calmement: « L'énergie Yin de Wang Lin est très pure, il doit donc receler des secrets. Si c'était il y a quelques années, j'aurais pris le temps d'enquêter, mais il ne me reste plus que trois mois à vivre. Le jour où le champ de bataille s'ouvrira sera le jour de ma mort, cela n'a donc plus d'intérêt. Puisque je ne vais pas utiliser son corps, autant l'utiliser comme nourriture pour renforcer les marionnettes. »
 
 « Luo Cha, je te demande de faire progresser Adai jusqu'au stade de la Formation du Noyau. Une fois le champ de bataille ouvert, va me trouver une excellente marionnette. En échange, je me rendrai dans la jungle pour aider le Seigneur Zi à posséder mon jeune frère de discipline, Wu Yu. »
 

@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1232 - Shocked Appearance
 slug: apparition-choquante
 ---
-« Feu du monde, écoutez mon commandement : brûlez ! » La voix de Wang Lin laissait transparaître une intention glaciale. À l'instant même où il parla, le feu entourant le mille-pattes subit un changement stupéfiant !
+« Feu du monde, écoutez mon commandement: brûlez! » La voix de Wang Lin laissait transparaître une intention glaciale. À l'instant même où il parla, le feu entourant le mille-pattes subit un changement stupéfiant!
 
-L'Oiseau Vermillon de Wang Lin avait traversé son troisième éveil et s'était fusionné avec la loi du feu, devenant une partie intégrante de celle-ci. Devant Wang Lin, à moins que leur feu ne soit en dehors de la loi, il pourrait l'éteindre dès qu'il le souhaiterait !
+L'Oiseau Vermillon de Wang Lin avait traversé son troisième éveil et s'était fusionné avec la loi du feu, devenant une partie intégrante de celle-ci. Devant Wang Lin, à moins que leur feu ne soit en dehors de la loi, il pourrait l'éteindre dès qu'il le souhaiterait!
 
 Dès que les paroles de Wang Lin furent prononcées, la mer de feu entourant le mille-pattes rouge trembla soudainement avant de s'élancer sur la créature.
 
@@ -16,9 +16,9 @@ Simultanément, des bruits de craquements résonnèrent à l'intérieur du corps
 
 Au moment où les yeux du mille-pattes se remplirent de terreur, le feu en son sein explosa. Une série de cris plaintifs retentit, mais tout s'arrêta rapidement.
 
-Une boule de feu d'environ 1 000 pieds de large apparut, illuminant la brume environnante. Elle s'éteignit progressivement, et le mille-pattes à l'intérieur fut réduit en cendres !
+Une boule de feu d'environ 1 000 pieds de large apparut, illuminant la brume environnante. Elle s'éteignit progressivement, et le mille-pattes à l'intérieur fut réduit en cendres!
 
-Tout cela se produisit en un instant, et Wang Lin n'avait fait que lever un doigt !
+Tout cela se produisit en un instant, et Wang Lin n'avait fait que lever un doigt!
 
 Il ne daigna pas regarder le résultat. Après avoir pointé du doigt, il se retourna pour suivre l'Empreinte de l'Esprit Guerrier.
 
@@ -28,7 +28,7 @@ La haine qui animait le mille-pattes bleu de dix mille pieds s'intensifia. Il po
 
 « Si mes blessures étaient guéries, il ne serait pas difficile de tuer cette bête de rang 12... Même maintenant, puisqu'il s'agit d'une bête de feu, cela ne devrait pas être simple. » Wang Lin fronça les sourcils, et peu après, une lueur d'intention meurtrière traversa son visage.
 
-« Chercher la mort ! »
+« Chercher la mort! »
 
 Une lumière rouge surgit de la brume à la droite de Wang Lin, projetant une mer de feu. Cette mer de feu mesurait plus de 10 000 pieds de large et semblait prête à consumer la brume elle-même. Elle fonça droit sur Wang Lin, tandis qu'un autre mille-pattes féroce de 1 000 pieds chargeait également dans sa direction. Il était extrêmement rapide et se rapprocha en un instant.
 
@@ -50,7 +50,7 @@ Tout cela se produisit en un éclair. Wang Lin émergea de la brume avec une exp
 
 En chemin, aucune autre bête féroce ne barra sa route. Il était évident que la bataille qui venait de se dérouler avait plongé les créatures dans une terreur extrême.
 
-Cependant, le mille-pattes bleu de dix mille pieds qui approchait était toujours furieux, mais il était simplement trop loin. Même à pleine vitesse, il lui faudrait encore beaucoup de temps pour rattraper sa proie. Tandis qu'il rugissait, le mille-pattes bleu devint fou et dense ; un feu bleu apparut autour de lui. Puis, son corps se rétracta soudainement dans une série de craquements résonnant en son sein.
+Cependant, le mille-pattes bleu de dix mille pieds qui approchait était toujours furieux, mais il était simplement trop loin. Même à pleine vitesse, il lui faudrait encore beaucoup de temps pour rattraper sa proie. Tandis qu'il rugissait, le mille-pattes bleu devint fou et dense; un feu bleu apparut autour de lui. Puis, son corps se rétracta soudainement dans une série de craquements résonnant en son sein.
 
 En un instant, un éclat bleu se propagea sur toute sa longueur de dix mille pieds. C'était comme si une force invisible avait ouvert une fissure du début à la fin de son corps.
 
@@ -64,7 +64,7 @@ Wang Lin progressait rapidement à travers le Royaume de la Brume des Bêtes du 
 
 Plus il restait dans cette brume, plus Wang Lin sentait que cet endroit était singulier. Plus il passait de temps ici, plus les bêtes féroces s'accumulaient, rendant toute sortie extrêmement difficile à moins d'une récupération complète.
 
-Wang Lin mit près de quatre jours pour atteindre la lisière du Royaume de la Brume des Bêtes du Chaos. Une fois dehors, il atteindrait la région de rang 8 ! Cependant, à cet instant, Wang Lin se retourna et pointa sa main droite vers l'Empreinte de l'Esprit Guerrier. Celle-ci bougea soudainement pour apparaître devant lui.
+Wang Lin mit près de quatre jours pour atteindre la lisière du Royaume de la Brume des Bêtes du Chaos. Une fois dehors, il atteindrait la région de rang 8! Cependant, à cet instant, Wang Lin se retourna et pointa sa main droite vers l'Empreinte de l'Esprit Guerrier. Celle-ci bougea soudainement pour apparaître devant lui.
 
 Simultanément, sans hésiter, Wang Lin forma un sceau et le dirigea vers l'Empreinte. Le sceau qu'il avait placé pour stopper l'absorption d'énergie originelle s'effondra, et l'objet commença à absorber l'énergie avec frénésie.
 
@@ -80,25 +80,25 @@ La créature poussa un sifflement qui fit trembler les cieux et fixa férocement
 
 Son expression féroce et ses pinces acérées lui donnaient l'air de vouloir dévorer Wang Lin vivant. Cette scène, combinée à l'empreinte géante qui la suivait, offrait un spectacle d'une beauté inattendue.
 
-L'expression de Wang Lin demeura glaciale tandis que l'étoile de la loi scintillait entre ses sourcils. Elle tourna rapidement alors qu'un feu bleu se propageait depuis son corps. Comparé au bleu clair du mille-pattes, ce bleu était saisissant !
+L'expression de Wang Lin demeura glaciale tandis que l'étoile de la loi scintillait entre ses sourcils. Elle tourna rapidement alors qu'un feu bleu se propageait depuis son corps. Comparé au bleu clair du mille-pattes, ce bleu était saisissant!
 
 Le corps du mille-pattes marqua un temps d'arrêt indescriptible et ses yeux devinrent sérieux. Cependant, il ne recula pas et chargea avec acharnement. Le feu entourant son corps devint encore plus majestueux et une lumière bleue brilla intensément.
 
-Wang Lin leva sa main droite et pointa du doigt. Face à quiconque manipule le feu, nul besoin de sorts complexes pour décider de l'issue du combat ! Sous la pointe de son doigt, le feu bleu profond qui l'entourait se condensa et jaillit.
+Wang Lin leva sa main droite et pointa du doigt. Face à quiconque manipule le feu, nul besoin de sorts complexes pour décider de l'issue du combat! Sous la pointe de son doigt, le feu bleu profond qui l'entourait se condensa et jaillit.
 
 En s'élançant, la lumière bleue flascha et se métamorphosa en un immense Oiseau Vermillon bleu. L'oiseau poussa un cri et chargea le mille-pattes.
 
-Le mille-pattes poussa immédiatement un rugissement ; sa partie supérieure se redressa telle un serpent pour faire face à l'Oiseau Vermillon. Le feu autour de lui se condensa frénétiquement pour former une force monstrueuse à l'extérieur de son corps, avant de percuter l'oiseau qui approchait à grande vitesse.
+Le mille-pattes poussa immédiatement un rugissement; sa partie supérieure se redressa telle un serpent pour faire face à l'Oiseau Vermillon. Le feu autour de lui se condensa frénétiquement pour former une force monstrueuse à l'extérieur de son corps, avant de percuter l'oiseau qui approchait à grande vitesse.
 
-Un grondement assourdissant résonna à travers le Royaume de la Brume des Bêtes du Chaos, et le sens des bêtes de plusieurs spécimens de rang 12 se dirigea instantanément vers ce point. Cependant, à cet instant précis, une aura d'une puissance telle qu'elle choqua même Wang Lin émana des profondeurs du Royaume et supprima les autres bêtes de rang 12 !
+Un grondement assourdissant résonna à travers le Royaume de la Brume des Bêtes du Chaos, et le sens des bêtes de plusieurs spécimens de rang 12 se dirigea instantanément vers ce point. Cependant, à cet instant précis, une aura d'une puissance telle qu'elle choqua même Wang Lin émana des profondeurs du Royaume et supprima les autres bêtes de rang 12!
 
 Le fracas fut céleste lorsque les deux feux entrèrent en collision. L'Oiseau Vermillon poussa un cri de détresse avant de se replier dans le corps de Wang Lin. Dès son retour, Wang Lin s'envola au loin.
 
 La mer de feu devant le mille-pattes s'effondra instantanément et son corps explosa sous la pression du feu repoussé. La moitié de sa carcasse était un amas sanglant, mais il ne mourut pas. Il laissa échapper un sifflement misérable et se retira rapidement dans la brume qui se dissipait.
 
-Dans le brouillard, le vieil homme de la Secte Everlast avait tout observé, et il était sous le choc !
+Dans le brouillard, le vieil homme de la Secte Everlast avait tout observé, et il était sous le choc!
 
-« Qui est cet individu ?! Il contrôle un feu étonnamment plus puissant que celui du mille-pattes de feu et possède un niveau de cultivation extrêmement élevé. Sans ses blessures, même moi je ne serais pas confiant pour l'affronter !! Mais il n'est pas de la Secte Divine. J'ai déjà vu l'Empreinte de l'Esprit Guerrier par le passé, et bien que la sienne soit très similaire, ce n'est pas elle ! »
+« Qui est cet individu?! Il contrôle un feu étonnamment plus puissant que celui du mille-pattes de feu et possède un niveau de culture extrêmement élevé. Sans ses blessures, même moi je ne serais pas confiant pour l'affronter!! Mais il n'est pas de la Secte Divine. J'ai déjà vu l'Empreinte de l'Esprit Guerrier par le passé, et bien que la sienne soit très similaire, ce n'est pas elle! »
 
 Trois disciples suivaient le vieil homme. Ils étaient tous stupéfaits et terrifiés par ce qu'ils venaient de voir. Ils se croyaient puissants, mais ce spectacle avait ébranlé leur esprit.
 
@@ -106,4 +106,4 @@ En particulier, les yeux de la belle cultivatrice s'illuminèrent alors qu'elle 
 
 À cet instant, l'aura qui avait supprimé celles des bêtes de rang 12 balaya le brouillard avec colère. Le vieil homme redressa brusquement la tête comme s'il se remémorait quelque chose, et son expression changea. D'un revers de manche, il entraîna ses trois disciples vers le troisième chemin.
 
-« Je ne peux plus laisser ces trois-là s'entraîner ici ! »
+« Je ne peux plus laisser ces trois-là s'entraîner ici! »

@@ -1,26 +1,26 @@
 ---
 n: 1780
-title: "D'un simple geste, le Dao des Nuages est bouleversé !"
+title: "D'un simple geste, le Dao des Nuages est bouleversé!"
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1780 - With the Flip of a Hand the Cloud Dao is Turned Upside Down!"
 slug: dun-simple-geste-le-dao-des-nuages-est-bouleverse
 ---
-Chapitre 1780 - D'un simple geste, le Dao des Nuages est bouleversé !
+Chapitre 1780 - D'un simple geste, le Dao des Nuages est bouleversé!
 
 La pluie tombait avec intensité et les voix s'élevaient de plus en plus fort. Pourtant, les neuf bâtons d'encens continuaient de brûler sans montrer le moindre signe d'extinction. La fumée continuait de monter et, quelle que fût la force de l'averse, celle-ci ne parvenait pas à la dissiper.
 
 La fumée se mêlant à la pluie, l'image ainsi créée était d'une beauté saisissante, tel un rêve éthéré.
 
-Alors que la pluie s'abattait, un parapluie fut tenu au-dessus de la tête de Wang Lin. C'était le jeune homme qui l'avait suivi ; il affichait une expression embarrassée et décida de ne pas croiser le regard de Wang Lin tout en maintenant l'abri.
+Alors que la pluie s'abattait, un parapluie fut tenu au-dessus de la tête de Wang Lin. C'était le jeune homme qui l'avait suivi; il affichait une expression embarrassée et décida de ne pas croiser le regard de Wang Lin tout en maintenant l'abri.
 
 Sur la place, près de cent cultivateurs observaient la scène. Un groupe, dirigé par un jeune homme en robe noire, fronçait les sourcils, prêt à réprimander Wang Lin, quand la troisième cloche sonna.
 
 Au son de la cloche, la fumée qui flottait dans l'air se distordit et s'agglutina pour former un vortex. En tournant, ce vortex repoussa la pluie, et une silhouette floue apparut lentement au centre du tourbillon.
 
-La silhouette en sortit et se tint debout dans le ciel !
+La silhouette en sortit et se tint debout dans le ciel!
 
-« Bienvenue de votre retraite, Maître ! » Les cultivateurs environnants, au nombre de près de cent, joignirent les mains en signe de respect devant la silhouette.
+« Bienvenue de votre retraite, Maître! » Les cultivateurs environnants, au nombre de près de cent, joignirent les mains en signe de respect devant la silhouette.
 
 Il s'agissait d'un homme d'âge moyen à la chevelure noire retombant sur ses épaules. Il n'était pas particulièrement beau, mais il dégageait un tempérament étrange et une aura surnaturelle.
 
@@ -42,7 +42,7 @@ S’avançant sous la pluie, Wang Lin entra dans la salle sous les regards envie
 
 Wang Lin avait déjà vu cette scène dans les souvenirs de la troisième âme. Il savait qu'après avoir donné quelques instructions, le maître de Su Dao leur enseignerait un art.
 
-Il s'agissait de l'un des trois arts les plus puissants de la Secte Dong Lin : l'Introduction au Dao Céleste des Nuages. Si l'on parvenait à atteindre le sommet de cet art, on pouvait en comprendre l'essence même.
+Il s'agissait de l'un des trois arts les plus puissants de la Secte Dong Lin: l'Introduction au Dao Céleste des Nuages. Si l'on parvenait à atteindre le sommet de cet art, on pouvait en comprendre l'essence même.
 
 L'art introductif était court mais mystérieux, et tout le monde n'était pas capable de le cultiver. Une fois l'art activé, des nuages apparaissaient. Si les nuages étaient ténus, cela signifiait que la personne n'était pas apte à apprendre cet art. S'ils étaient denses et qu'une ombre se dessinait en leur sein, alors l'aptitude était confirmée.
 
@@ -64,15 +64,15 @@ Logiquement, il devrait suivre les souvenirs de Seven-Colored afin de fusionner 
 
 Mais rien ne garantissait que cela arriverait. De plus, Wang Lin ne voulait pas fusionner totalement avec la troisième âme. S'il le faisait, Xie Qing ne pourrait jamais s'éveiller. Dès l'instant où la fusion serait complète, Xie Qing disparaîtrait et Wang Lin deviendrait le nouveau Seven-Colored.
 
-Et par-dessus tout, Wang Lin n'était pas disposé à agir ainsi !
+Et par-dessus tout, Wang Lin n'était pas disposé à agir ainsi!
 
-« ...Cet art est l'un des trois plus puissants de la Secte Dong Lin, il se nomme le Dao Céleste des Nuages. Vos niveaux de cultivation ne sont pas encore assez élevés pour le maîtriser, vous devez donc d'abord apprendre l'art introductif. Cependant, cet apprentissage comporte une restriction : seule une personne par lignée peut l'étudier en cette génération. Aujourd'hui, je vous ai choisis tous les deux pour trouver celui qui sera le plus apte... » La voix de l'homme d'âge moyen résonna. Il commença à expliquer la méthode de sélection, précisant l'importance de la densité des nuages et du temps requis pour un cycle.
+«...Cet art est l'un des trois plus puissants de la Secte Dong Lin, il se nomme le Dao Céleste des Nuages. Vos niveaux de culture ne sont pas encore assez élevés pour le maîtriser, vous devez donc d'abord apprendre l'art introductif. Cependant, cet apprentissage comporte une restriction: seule une personne par lignée peut l'étudier en cette génération. Aujourd'hui, je vous ai choisis tous les deux pour trouver celui qui sera le plus apte... » La voix de l'homme d'âge moyen résonna. Il commença à expliquer la méthode de sélection, précisant l'importance de la densité des nuages et du temps requis pour un cycle.
 
 Zhou Li baissa la tête, ses yeux trahissant un désir qu'il peinait à dissimuler.
 
 « Le Dao Céleste est endommagé, et sa réparation prendra beaucoup de temps... » dit lentement l'homme d'âge moyen, avant d'enseigner l'art introductif. Puis, d'un geste de la main droite, il projeta deux nuages qui pénétrèrent dans les corps de Wang Lin et de Zhou Li.
 
-« Les nuages sont entrés en vous. Asseyez-vous immédiatement et faites circuler ces nuages le plus rapidement possible. Le premier à réussir aura l'avantage ! Durant ce processus, restez concentrés et ne laissez aucune pensée extérieure vous troubler ! » Tandis qu'il parlait, Zhou Li s'assit aussitôt.
+« Les nuages sont entrés en vous. Asseyez-vous immédiatement et faites circuler ces nuages le plus rapidement possible. Le premier à réussir aura l'avantage! Durant ce processus, restez concentrés et ne laissez aucune pensée extérieure vous troubler! » Tandis qu'il parlait, Zhou Li s'assit aussitôt.
 
 Wang Lin fit de même. Juste au moment où il allait faire circuler le nuage en lui, Zhou Li leva les yeux vers lui, le regard sombre et menaçant.
 
@@ -90,9 +90,9 @@ Le temps s'écoulait lentement. Une respiration, deux respirations, trois respir
 
 Les nuages entourant le corps de Wang Lin devinrent si denses qu'ils enveloppèrent la majeure partie de la salle. Ils tourbillonnaient violemment, et des grondements sourds semblaient en émaner.
 
-À cet instant, la vingtième respiration sonnait ; Zhou Li avait à peine réussi à faire un cycle pour produire quelques nuages. Comparé à Wang Lin, c'était insignifiant.
+À cet instant, la vingtième respiration sonnait; Zhou Li avait à peine réussi à faire un cycle pour produire quelques nuages. Comparé à Wang Lin, c'était insignifiant.
 
-Dès que les nuages sortirent de son corps, l'énergie de Wang Lin entra en furie et prit la forme d'une tête de dragon gigantesque !
+Dès que les nuages sortirent de son corps, l'énergie de Wang Lin entra en furie et prit la forme d'une tête de dragon gigantesque!
 
 Cette tête de dragon était féroce, ses yeux brûlant d'un éclat sauvage alors qu'elle dévorait Zhou Li. Les nuages de ce dernier furent rapidement absorbés par le dragon. Zhou Li cracha du sang, paraissant totalement affaibli.
 
@@ -100,21 +100,21 @@ La mémoire venait d'être modifiée. Dès que l'ordre fut inversé, la grande s
 
 Simultanément, la place à l'extérieur, la montagne, la chaîne de montagnes, et jusqu'à la Secte Dong Lin tout entière commencèrent à se tordre. C'était comme si le monde entier était sur le point de s'effondrer.
 
-Telle fut la scène stupéfiante qui se produisit après la modification de la mémoire !
+Telle fut la scène stupéfiante qui se produisit après la modification de la mémoire!
 
-« Bien ! Su Dao, tu es la deuxième personne de ta lignée à être apte à apprendre le Dao Céleste des Nuages ! » rit l'homme d'âge moyen alors que sa forme se déformait. Il lança un regard à Zhou Li, terrifié, et reprit :
+« Bien! Su Dao, tu es la deuxième personne de ta lignée à être apte à apprendre le Dao Céleste des Nuages! » rit l'homme d'âge moyen alors que sa forme se déformait. Il lança un regard à Zhou Li, terrifié, et reprit:
 
-« Zhou Li, bien que tu n'aies pas la qualification pour le Dao Céleste des Nuages, ton Maître t'enseignera la Technique Céleste aux Sept Couleurs ! »
+« Zhou Li, bien que tu n'aies pas la qualification pour le Dao Céleste des Nuages, ton Maître t'enseignera la Technique Céleste aux Sept Couleurs! »
 
 Alors que les paroles de l'homme résonnaient, une douleur déchirante lacéra l'esprit de Wang Lin, comme si tout allait s'écrouler. L'aura des huit portes apparut soudainement avant de se dissiper rapidement. Puis, la distorsion s'estompa lentement pour laisser place à la normale.
 
-Cependant, une vague immense s'était déchaînée dans le cœur de Wang Lin !
+Cependant, une vague immense s'était déchaînée dans le cœur de Wang Lin!
 
-« Je comprends ! En modifiant les souvenirs du Souverain Céleste aux Sept Couleurs pour créer des contradictions, ces moments de confusion me permettront de ressentir les huit portes ! Plus la contradiction et la confusion seront grandes, plus le ressenti sera clair. Je peux même m'en servir pour trouver la véritable porte ! »
+« Je comprends! En modifiant les souvenirs du Souverain Céleste aux Sept Couleurs pour créer des contradictions, ces moments de confusion me permettront de ressentir les huit portes! Plus la contradiction et la confusion seront grandes, plus le ressenti sera clair. Je peux même m'en servir pour trouver la véritable porte! »
 
-« Voilà ma seconde méthode ! Modifier les souvenirs du Souverain Céleste aux Sept Couleurs ! »
+« Voilà ma seconde méthode! Modifier les souvenirs du Souverain Céleste aux Sept Couleurs! »
 
-« Su Dao, tu dois consacrer du temps à la pratique de ce sort. Dans cinq mois, la compétition entre les membres de ta génération au sein de la Secte Dong Lin débutera. Les dix premiers pourront accéder au Bassin Dong Lin. Si tu y parviens, tes accomplissements futurs seront incommensurables ! »
+« Su Dao, tu dois consacrer du temps à la pratique de ce sort. Dans cinq mois, la compétition entre les membres de ta génération au sein de la Secte Dong Lin débutera. Les dix premiers pourront accéder au Bassin Dong Lin. Si tu y parviens, tes accomplissements futurs seront incommensurables! »
 
 Tout avait changé.
 

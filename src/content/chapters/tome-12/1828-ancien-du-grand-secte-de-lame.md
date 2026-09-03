@@ -1,14 +1,14 @@
 ---
 n: 1828
-title: "Ancien du Grand Secte de l'Âme !"
+title: "Ancien du Grand Secte de l'Âme!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1828 - Elder of the Great Soul Sect!"
 slug: ancien-du-grand-secte-de-lame
 ---
-Chapitre 1828 - Ancien du Grand Secte de l'Âme !
+Chapitre 1828 - Ancien du Grand Secte de l'Âme!
 
-Wang Lin est de retour !
+Wang Lin est de retour!
 
 Ces trois mots jaillirent dans l'esprit de Wang Lin comme des éclairs de tonnerre. Sous le choc, il recula de plusieurs pas, s'éloignant du pont brisé.
 
@@ -16,19 +16,19 @@ L'expression de Wang Lin devint incertaine tandis qu'il contemplait la tablette 
 
 « Intéressant... Je ne m'attendais pas à une telle découverte sur le Continent Astral Immortel... Une divination capable de calculer le flux du temps. Cette méthode est véritablement fascinante... »
 
-« Le Grand Secte de l'Âme est-il lié à mon destin ? » Songea Wang Lin un instant.
+« Le Grand Secte de l'Âme est-il lié à mon destin? » Songea Wang Lin un instant.
 
-« J'ignore ce que je pourrais rencontrer si je me téléporte encore quelques fois, mais il est inutile d'essayer ! Que ce soit l'Estimé Taureau Vert ou un puissant ancêtre d'une époque révolue, quelqu'un a prédit ma venue au Grand Secte de l'Âme et mon intention d'absorber la veine principale de feu terrestre... »
+« J'ignore ce que je pourrais rencontrer si je me téléporte encore quelques fois, mais il est inutile d'essayer! Que ce soit l'Estimé Taureau Vert ou un puissant ancêtre d'une époque révolue, quelqu'un a prédit ma venue au Grand Secte de l'Âme et mon intention d'absorber la veine principale de feu terrestre... »
 
 « Le fait qu'ils m'attendent ici signifie qu'ils cherchent à nouer une relation avec moi... » Wang Lin réfléchit un instant, puis esquissa soudain un sourire.
 
-« Ce plan est très facile à briser, mais pourquoi le ferais-je ? Le Grand Secte de l'Âme veut que je devienne un Ancien, et de mon côté, je compte utiliser le Grand Secte de l'Âme pour en apprendre davantage sur le Continent Astral Immortel ! » Wang Lin fit un pas en arrière. Des ondulations se propagèrent et il disparut.
+« Ce plan est très facile à briser, mais pourquoi le ferais-je? Le Grand Secte de l'Âme veut que je devienne un Ancien, et de mon côté, je compte utiliser le Grand Secte de l'Âme pour en apprendre davantage sur le Continent Astral Immortel! » Wang Lin fit un pas en arrière. Des ondulations se propagèrent et il disparut.
 
 La neige bleue tombait sur la Montagne Céleste comme si elle ne connaissait point de lassitude. La neige des cimes était frappée par les rayons du soleil, dont la lumière se diffusait pour créer une sensation indescriptible, liant la terre aux cieux.
 
 Le corps véritable d'essence de l'Estimé Taureau Vert était assis dans la neige. Ses cheveux ne bougeaient nullement sous le vent, ce qui paraissait très étrange.
 
-Devant lui, un bâton d'encens sculpté dans la neige fondait lentement. Il n'en restait qu'une infime partie ; il ne tarderait pas à disparaître totalement.
+Devant lui, un bâton d'encens sculpté dans la neige fondait lentement. Il n'en restait qu'une infime partie; il ne tarderait pas à disparaître totalement.
 
 Le temps s'écoulait ainsi, sans que l'on s'en aperçoive.
 
@@ -54,11 +54,11 @@ Le Grand Secte de l'Âme comptait de nombreux sommets principaux. La montagne ro
 
 D'autres étaient même entourés par un visage fantomatique gigantesque, dont les hurlements silencieux se transformaient en ondulations parcourant toute la zone.
 
-Au total, trois cent soixante sommets principaux constituaient les racines du Grand Secte de l'Âme !
+Au total, trois cent soixante sommets principaux constituaient les racines du Grand Secte de l'Âme!
 
 Certains pics étaient très distants, d'autres très proches. Les vallées de chaque chaîne de montagnes abritaient d'innombrables pavillons magnifiques, des temples, des places et des grottes.
 
-Les cent mille disciples du Grand Secte de l'Âme résidaient dans ces vallées et pratiquaient une multitude de méthodes de cultivation différentes. Le secte possédait de nombreux sorts ; outre ceux hérités de la destruction d'innombrables autres sectes au fil des ans, les disciples disposaient de nombreuses techniques à leur portée.
+Les cent mille disciples du Grand Secte de l'Âme résidaient dans ces vallées et pratiquaient une multitude de méthodes de culture différentes. Le secte possédait de nombreux sorts; outre ceux hérités de la destruction d'innombrables autres sectes au fil des ans, les disciples disposaient de nombreuses techniques à leur portée.
 
 À cet instant, la montagne rouge avait totalement changé. Elle n'était plus rouge, mais d'un violet sombre. Elle était parsemée de fissures et dans un état pitoyable.
 
@@ -66,15 +66,15 @@ La jeune femme qui possédait cette montagne s'appelait Yan Lu. Elle paraissait 
 
 Dès que Wang Lin et l'Estimé Taureau Vert apparurent à l'horizon, Yan Lu tourna les yeux vers eux. Son regard se glaça et son visage se couvrit d'une intention meurtrière.
 
-« Disciples de la Montagne de la Veine de Flamme, écoutez mon ordre ! Suivez le Maître pour traquer et tuer le voleur qui a détruit mon pic ! » Yan Lu se transforma en un rayon de lumière et s'élança, suivie par plus d'une douzaine de disciples principaux, parmi lesquels Fan Shanmeng et Fan Shanlu.
+« Disciples de la Montagne de la Veine de Flamme, écoutez mon ordre! Suivez le Maître pour traquer et tuer le voleur qui a détruit mon pic! » Yan Lu se transforma en un rayon de lumière et s'élança, suivie par plus d'une douzaine de disciples principaux, parmi lesquels Fan Shanmeng et Fan Shanlu.
 
 À première vue, ce groupe de maîtres et de disciples n'était composé que de femmes, toutes d'une grande beauté. Elles prirent la forme d'un phénix en volant vers l'avant pour faire face à Wang Lin et à l'Estimé Taureau Vert.
 
-Après être retourné au Grand Secte de l'Âme, l'expression de Wang Lin resta inchangée, bien que ses émotions fussent très différentes. Lors de sa première entrée, il s'était faufilé ; cette fois, il passait par la grande porte.
+Après être retourné au Grand Secte de l'Âme, l'expression de Wang Lin resta inchangée, bien que ses émotions fussent très différentes. Lors de sa première entrée, il s'était faufilé; cette fois, il passait par la grande porte.
 
-Il n'avait pas échangé un mot avec l'Estimé Taureau Vert durant le trajet. En apercevant le Grand Secte de l'Âme, l'Estimé était sur le point de parler quand il fronça soudainement les sourcils. Wang Lin remarqua également le phénix géant qui surgissait du secte. Cette jeune femme était magnifique, mais empreinte d'une soif de sang effrayante. C'était la propriétaire de la veine principale de feu terrestre, celle-là même qui avait traqué Wang Lin dans les profondeurs !
+Il n'avait pas échangé un mot avec l'Estimé Taureau Vert durant le trajet. En apercevant le Grand Secte de l'Âme, l'Estimé était sur le point de parler quand il fronça soudainement les sourcils. Wang Lin remarqua également le phénix géant qui surgissait du secte. Cette jeune femme était magnifique, mais empreinte d'une soif de sang effrayante. C'était la propriétaire de la veine principale de feu terrestre, celle-là même qui avait traqué Wang Lin dans les profondeurs!
 
-« Petit voleur, tu as détruit ma montagne. Je ne laisserai pas passer cela ! » La jeune femme ne laissa aucun répit à l'Estimé Taureau Vert pour s'exprimer. Avec son niveau de cultivation, comment aurait-elle pu ignorer la situation ? L'Ancien avait ramené Wang Lin, non comme un prisonnier, mais plutôt comme un invité.
+« Petit voleur, tu as détruit ma montagne. Je ne laisserai pas passer cela! » La jeune femme ne laissa aucun répit à l'Estimé Taureau Vert pour s'exprimer. Avec son niveau de culture, comment aurait-elle pu ignorer la situation? L'Ancien avait ramené Wang Lin, non comme un prisonnier, mais plutôt comme un invité.
 
 Elle s'était exprimée immédiatement afin que, même face à l'Ancien, celui-ci soit contraint de lui fournir des explications. Après tout, elle était une Ancienne du Grand Secte de l'Âme.
 
@@ -90,36 +90,36 @@ Une telle manœuvre consistait à porter l'affaire au grand jour devant tout le 
 
 Les actions de Yan Lu étaient chargées d'intentions multiples, prouvant son caractère exceptionnel. Tandis qu'elle chargeait, de puissantes auras jaillirent des sommets du Grand Secte de l'Âme et convergèrent vers le lieu de la confrontation.
 
-Ces figures possédaient des niveaux de cultivation variés. La plus forte se trouvait au début du stade de la Tribulation du Vide, tandis que la plus faible était encore au niveau du Vide Spirituel.
+Ces figures possédaient des niveaux de culture variés. La plus forte se trouvait au début du stade de la Tribulation du Vide, tandis que la plus faible était encore au niveau du Vide Spirituel.
 
-« Je remercie l'Ancien d'avoir capturé ce petit voleur. Petit voleur, voyons où tu pourras te cacher cette fois ! » Yan Lu chargea soudainement Wang Lin. Il vit la belle femme se métamorphoser en une tête de phénix dont le bec gigantesque fonçait sur lui.
+« Je remercie l'Ancien d'avoir capturé ce petit voleur. Petit voleur, voyons où tu pourras te cacher cette fois! » Yan Lu chargea soudainement Wang Lin. Il vit la belle femme se métamorphoser en une tête de phénix dont le bec gigantesque fonçait sur lui.
 
-De loin, on aurait dit un phénix flamboyant dévorant les cieux !
+De loin, on aurait dit un phénix flamboyant dévorant les cieux!
 
-L'aura d'un cultivateur de la Tribulation du Vide émanait du phénix, mais sa cultivation semblait instable, prête à s'effondrer. La jeune femme était manifestement blessée par les assauts précédents de Wang Lin. De plus, le désastre de sa montagne et la rage provoquée par la réapparition soudaine de Wang Lin avaient ébranlé son esprit.
+L'aura d'un cultivateur de la Tribulation du Vide émanait du phénix, mais sa culture semblait instable, prête à s'effondrer. La jeune femme était manifestement blessée par les assauts précédents de Wang Lin. De plus, le désastre de sa montagne et la rage provoquée par la réapparition soudaine de Wang Lin avaient ébranlé son esprit.
 
-Les yeux de Wang Lin brillèrent d'un éclat vif. Plutôt que de reculer, il laissa échapper un rire qui se propagea dans toutes les directions. Puisqu'il avait décidé de rejoindre le Grand Secte de l'Âme et d'en devenir un Ancien, il lui fallait démontrer sa puissance !
+Les yeux de Wang Lin brillèrent d'un éclat vif. Plutôt que de reculer, il laissa échapper un rire qui se propagea dans toutes les directions. Puisqu'il avait décidé de rejoindre le Grand Secte de l'Âme et d'en devenir un Ancien, il lui fallait démontrer sa puissance!
 
-L'Ancien du Grand Secte de l'Âme savait que Wang Lin venait du Monde des Grottes et devait connaître son lignage du Dao Antique ; Wang Lin n'avait donc pas besoin de se retenir. Quant à la manière de dissimuler cela, il appartenait à l'Ancien d'en décider.
+L'Ancien du Grand Secte de l'Âme savait que Wang Lin venait du Monde des Grottes et devait connaître son lignage du Dao Antique; Wang Lin n'avait donc pas besoin de se retenir. Quant à la manière de dissimuler cela, il appartenait à l'Ancien d'en décider.
 
 Après avoir pris sa décision, Wang Lin fit un pas en avant et leva la main droite. Il ferma le poing et lança un coup dans le vide.
 
-« Dieu Tremble, Formation d'Armée ! »
+« Dieu Tremble, Formation d'Armée! »
 
-Ce coup frappa le ciel, provoquant un grondement et une distorsion de l'espace. Un vortex gigantesque se forma et se mit à tourner frénétiquement. Le monde semblait pivoter, tout semblait tourbillonner, mais seul Wang Lin demeurait immobile !
+Ce coup frappa le ciel, provoquant un grondement et une distorsion de l'espace. Un vortex gigantesque se forma et se mit à tourner frénétiquement. Le monde semblait pivoter, tout semblait tourbillonner, mais seul Wang Lin demeurait immobile!
 
 Dès que le vortex apparut et que le monde commença sa rotation, le phénix de Yan Lu fut aspiré. L'oiseau semblait sur le point de s'effondrer sous l'effet des distorsions.
 
-Lorsque Wang Lin avait utilisé ce sort contre le Vieux Fantôme Zhan, celui-ci était au début du stade de la Tribulation du Vide. Le voir l'utiliser à nouveau maintenant était tout aussi stupéfiant !
+Lorsque Wang Lin avait utilisé ce sort contre le Vieux Fantôme Zhan, celui-ci était au début du stade de la Tribulation du Vide. Le voir l'utiliser à nouveau maintenant était tout aussi stupéfiant!
 
 À l'instant où ce sort se manifesta, les expressions de tous les Anciens du Grand Secte de l'Âme changèrent. Même les pupilles de Yan Lu se rétractèrent. Elle avait combattu Wang Lin durant quelques échanges, mais n'avait jamais vu ce sort.
 
-« L'aura du Dao Antique ! »
+« L'aura du Dao Antique! »
 
-« C'est l'aura d'un cultivateur des pays Antiques ! Cet homme... cet homme n'appartient pas à mon clan céleste ! »
+« C'est l'aura d'un cultivateur des pays Antiques! Cet homme... cet homme n'appartient pas à mon clan céleste! »
 
-« Il est issu des pays Antiques ! »
+« Il est issu des pays Antiques! »
 
 L'Estimé Taureau Vert fronça les sourcils et agita la main droite dans un soupir. Une force puissante enveloppa la zone, dissimulant l'aura du Dao Antique de Wang Lin pour que les autres ne puissent plus la percevoir.
 
-« Sort démoniaque : Le Vent Ardant se transforme en Montagne ! » Tandis que Wang Lin se tenait là, ses cheveux blancs flottaient au vent, lui conférant une allure majestueuse. Il ouvrit la main pour former une paume et l'abattit d'un geste.
+« Sort démoniaque: Le Vent Ardant se transforme en Montagne! » Tandis que Wang Lin se tenait là, ses cheveux blancs flottaient au vent, lui conférant une allure majestueuse. Il ouvrit la main pour former une paume et l'abattit d'un geste.

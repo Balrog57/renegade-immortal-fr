@@ -34,7 +34,7 @@ Au-delà de cela, il ne trouva aucun autre indice.
 
 « Cet objet a pu rester indemne du doigt de l'Ancien Dieu, il n'est donc manifestement pas ordinaire, mais comment puis-je l'utiliser... Greed a dit qu'il lui avait fallu les âmes de 9 999 empereurs pour pouvoir l'activer. » Wang Lin commença à réfléchir.
 
-« Quel est le rapport entre les âmes d'empereurs et les cinq esprits élémentaires ? Quelle est la connexion... Le propriétaire de la couronne était-il un empereur possédant les cinq esprits élémentaires, et ce serait le seul moyen de l'activer ? » Wang Lin secoua la tête, incapable de comprendre.
+« Quel est le rapport entre les âmes d'empereurs et les cinq esprits élémentaires? Quelle est la connexion... Le propriétaire de la couronne était-il un empereur possédant les cinq esprits élémentaires, et ce serait le seul moyen de l'activer? » Wang Lin secoua la tête, incapable de comprendre.
 
 De plus, après l'avoir examinée longuement, il ne put identifier aucun autre matériau que l'os du dragon de flammes. Il n'avait pu reconnaître cet os que grâce aux souvenirs hérités de Tu Si.
 
@@ -50,7 +50,7 @@ Trois mois passèrent en un éclair. Personne n'était venu durant ce laps de te
 
 Wang Lin craignait initialement que la moitié de l'os ne suffise pas à achever la perle défiant le ciel, mais désormais, l'image représentant l'élément métallique était complète.
 
-L'élément métallique de la perle défiant le ciel fut parachevé sous les yeux de Wang Lin !
+L'élément métallique de la perle défiant le ciel fut parachevé sous les yeux de Wang Lin!
 
 La perle émit une lueur éclatante et se transforma en un objet semblable à un cristal. Une aura ancienne jaillit soudainement de la perle.
 
@@ -66,7 +66,7 @@ Il avait attendu près de mille ans pour enfin achever la perle défiant le ciel
 
 Ce trésor l'avait accompagné durant une très longue période, mais en fin de compte, sa compréhension de celui-ci était trop superficielle.
 
-« Qu'est-ce que cette perle défiant le ciel exactement... Pourrait-elle vraiment provenir de l'ancien Royaume Céleste comme la femme l'a affirmé ? » La main de Wang Lin bougea. Ses deux doigts formèrent un pinceau et dessinèrent le symbole apparu dans son esprit.
+« Qu'est-ce que cette perle défiant le ciel exactement... Pourrait-elle vraiment provenir de l'ancien Royaume Céleste comme la femme l'a affirmé? » La main de Wang Lin bougea. Ses deux doigts formèrent un pinceau et dessinèrent le symbole apparu dans son esprit.
 
 Ce symbole était extrêmement complexe, et chaque trait dégageait une aura ancienne. Sous le regard attentif de Wang Lin, ce symbole prit progressivement forme.
 
@@ -76,11 +76,11 @@ L'aura ancienne devint extrêmement dense à cet instant. L'aura que le démon d
 
 Wang Lin prit une profonde inspiration. Au moment où le symbole fut achevé, il frappa du plat de la main. Le symbole flotta alors lentement vers la perle défiant le ciel qui levitait dans les airs.
 
-Un rayon de lumière violette jaillit de la perle. Cette lueur était si intense que Wang Lin peinait à garder les yeux ouverts. Tout le corps de la marionnette céleste dégagea une odeur de décomposition ; son corps commença même à se désintégrer à vue d'œil.
+Un rayon de lumière violette jaillit de la perle. Cette lueur était si intense que Wang Lin peinait à garder les yeux ouverts. Tout le corps de la marionnette céleste dégagea une odeur de décomposition; son corps commença même à se désintégrer à vue d'œil.
 
 Wang Lin fut extrêmement choqué. D'une simple pensée, il fit retourner la garde céleste dans son ombre et la décomposition cessa enfin. Cependant, l'odeur de putréfaction persistait.
 
-Ce n'était pas seulement le cas pour la garde céleste ; les trois âmes primaires subissaient le même sort. Si Wang Lin n'avait pas réagi promptement, elles se seraient totalement désintégrées en quelques respirations.
+Ce n'était pas seulement le cas pour la garde céleste; les trois âmes primaires subissaient le même sort. Si Wang Lin n'avait pas réagi promptement, elles se seraient totalement désintégrées en quelques respirations.
 
 La lumière violette s'étendit et grandit lentement, finissant par recouvrir la planète entière. C'était comme si la planète était drapée d'un voile pourpre. À cet instant, la lueur violette atteignit son apogée.
 
@@ -88,19 +88,19 @@ La planète entière commença à se désintégrer, comme si un sortilège avait
 
 Cette lumière violette ne s'arrêta pas et continua de s'étendre. Même certains astéroïdes furent emportés par cette lueur violente, certains s'effondrant immédiatement en poussière.
 
-C'était comme si Wang Lin et la perle étaient les seules choses subsistant au monde ; tout le reste n'était que cette terrifiante lumière violette.
+C'était comme si Wang Lin et la perle étaient les seules choses subsistant au monde; tout le reste n'était que cette terrifiante lumière violette.
 
 Cette scène étrange fit violemment trembler le cœur de Wang Lin. Bien qu'il eût eu de nombreuses spéculations sur la perle défiant le ciel, il n'aurait jamais imaginé qu'elle changerait ainsi une fois achevée.
 
 La diffusion de la lumière violette cessa alors que Wang Lin était encore sous le choc. La majorité des forces élémentaires qui s'étaient rassemblées se dissipèrent à cet instant. Presque toute l'énergie accumulée au cours des mille dernières années fut libérée d'un coup.
 
-La lumière violette restait dense autour de la perle défiant le ciel, et une immense porte apparut lentement dans un fracas assourdissant !
+La lumière violette restait dense autour de la perle défiant le ciel, et une immense porte apparut lentement dans un fracas assourdissant!
 
 Cette porte était si démesurée que Wang Lin n'était qu'une insignifiante fourmi face à elle.
 
 Une restriction se forma et recouvrit la zone touchée par la lumière violette. Wang Lin eut peine à l'observer, car son cœur trembla dès le premier regard sur cette barrière. Il était inutile de tenter de l'étudier.
 
-Aucune créature vivante ne pouvait franchir cette restriction !
+Aucune créature vivante ne pouvait franchir cette restriction!
 
 C'était comme si la zone couverte par la lumière violette avait été extraite du Système Stellaire d'Allheaven par un sortilège inimaginable, pour être isolée de tout le reste.
 
@@ -110,38 +110,38 @@ En contemplant cette porte immense, non seulement son esprit vacilla, mais il re
 
 Sentant sa propre crainte, les yeux de Wang Lin trahirent une lutte intérieure. Son Tao ne l'autorisait pas à craindre, mais cette peur était presque instinctive et il ne pouvait tout simplement pas l'effacer.
 
-C'était comme si ce qui se dressait devant lui appartenait à un niveau totalement différent, un gouffre impossible à franchir !
+C'était comme si ce qui se dressait devant lui appartenait à un niveau totalement différent, un gouffre impossible à franchir!
 
 Wang Lin n'avait pas ressenti cela depuis très longtemps. Même face au Serpent de Lune, il n'avait éprouvé que de la surprise. Il n'avait jamais connu ce tremblement de l'âme qui lui donnait l'impression de ne pouvoir opposer la moindre résistance.
 
-C'était comme s'il redevenait l'adolescent mortel debout au pied du pic de la Secte Heng Yue, levant les yeux vers cette immense secte de cultivation. Il ressentait ce genre de crainte révérencieuse qui vient du plus profond du cœur !
+C'était comme s'il redevenait l'adolescent mortel debout au pied du pic de la Secte Heng Yue, levant les yeux vers cette immense secte de culture. Il ressentait ce genre de crainte révérencieuse qui vient du plus profond du cœur!
 
-À mesure que la cultivation et l'expérience de Wang Lin augmentaient, ce sentiment s'était progressivement évanoui. Même face à la rétribution divine dans la Terre des Esprits Démoniques, il s'était appuyé sur son cœur taoïste pour persévérer et résister !
+À mesure que la culture et l'expérience de Wang Lin augmentaient, ce sentiment s'était progressivement évanoui. Même face à la rétribution divine dans la Terre des Esprits Démoniques, il s'était appuyé sur son cœur taoïste pour persévérer et résister!
 
-Mais en cet instant, bien que cette porte gigantesque ne dégageât aucune pression directe, son esprit et son corps tremblaient !
+Mais en cet instant, bien que cette porte gigantesque ne dégageât aucune pression directe, son esprit et son corps tremblaient!
 
-Ne jamais céder !
+Ne jamais céder!
 
-Les yeux de Wang Lin devinrent injectés de sang et son corps tremblait alors qu'il serrait les dents et redressait la tête. Il ne baisserait jamais le front !
+Les yeux de Wang Lin devinrent injectés de sang et son corps tremblait alors qu'il serrait les dents et redressait la tête. Il ne baisserait jamais le front!
 
-Tout comme autrefois à la Secte Heng Yue, lorsqu'il était animé d'une persévérance sans faille en gravissant la montagne. Même si son corps entier était couvert de sang, il continuerait de lutter !
+Tout comme autrefois à la Secte Heng Yue, lorsqu'il était animé d'une persévérance sans faille en gravissant la montagne. Même si son corps entier était couvert de sang, il continuerait de lutter!
 
-À cet instant, l'effroi émanant de son âme tentait de le submerger comme une marée, voulant que Wang Lin se soumette. Cependant, Wang Lin ne pouvait pas, et ne voulait pas !
+À cet instant, l'effroi émanant de son âme tentait de le submerger comme une marée, voulant que Wang Lin se soumette. Cependant, Wang Lin ne pouvait pas, et ne voulait pas!
 
-Car ce qui le soutenait, c'étaient les âmes de Wan Er et de Wang Ping à l'intérieur de la perle défiant le ciel !
+Car ce qui le soutenait, c'étaient les âmes de Wan Er et de Wang Ping à l'intérieur de la perle défiant le ciel!
 
-Il n'autoriserait jamais personne à blesser ces deux âmes !
+Il n'autoriserait jamais personne à blesser ces deux âmes!
 
-« Perle défiant le ciel, c'est moi qui t'ai achevée. Si les cieux veulent tuer ceux que je chéris, je massacrerai les cieux. Si tu me défies, alors je te détruirai ! » Bien que la voix de Wang Lin tremblât, elle possédait une aura d'indomptabilité alors qu'il hurlait chaque mot !
+« Perle défiant le ciel, c'est moi qui t'ai achevée. Si les cieux veulent tuer ceux que je chéris, je massacrerai les cieux. Si tu me défies, alors je te détruirai! » Bien que la voix de Wang Lin tremblât, elle possédait une aura d'indomptabilité alors qu'il hurlait chaque mot!
 
 Son Tao inflexible fit s'agiter le dragon de tonnerre ancien à l'intérieur de son âme originelle, parcourant son corps avec frénésie. Des éclairs et le tonnerre remplirent également son corps fait d'électricité.
 
-Le tonnerre se propagea depuis les pieds de Wang Lin pour s'élever dans les airs. À cet instant, Wang Lin ressemblait à un céleste du tonnerre !
+Le tonnerre se propagea depuis les pieds de Wang Lin pour s'élever dans les airs. À cet instant, Wang Lin ressemblait à un céleste du tonnerre!
 
-Il contrôlait la puissance du tonnerre ! Ce tonnerre portait une volonté indomptable et le Tao persistant de Wang Lin !
+Il contrôlait la puissance du tonnerre! Ce tonnerre portait une volonté indomptable et le Tao persistant de Wang Lin!
 
-La terre s'effondrait, mais le corps de Wang Lin continuait de lutter. Ses yeux étaient injectés de sang tandis que son Tao réprimait la sensation d'effroi venant des profondeurs de son âme. Il fixa la porte immense avec un regard indomptable !
+La terre s'effondrait, mais le corps de Wang Lin continuait de lutter. Ses yeux étaient injectés de sang tandis que son Tao réprimait la sensation d'effroi venant des profondeurs de son âme. Il fixa la porte immense avec un regard indomptable!
 
 L'immense porte apparue dans le monde était recouverte d'une lumière violette dense, comme si quelque chose se cachait dans la brume. À cet instant, sous le regard de Wang Lin, cette lueur forma un bras gigantesque à l'extérieur de la porte. Il fit un geste vers Wang Lin, comme pour l'appeler.
 
-Grâce à sa vue exceptionnelle, Wang Lin remarqua immédiatement que ce bras géant n'appartenait pas à un Dieu Ancien !
+Grâce à sa vue exceptionnelle, Wang Lin remarqua immédiatement que ce bras géant n'appartenait pas à un Dieu Ancien!

@@ -10,7 +10,7 @@ Il existait sur le Continent Astral Immortel une créature nommée le Poisson-Œ
 
 Les jeunes Poissons-Œil restaient souvent tapis dans les sédiments des rivières sans jamais se manifester. Avec le temps, les spécimens adultes pouvaient atteindre 10 000 pieds de long. Ils perçaient alors les sédiments pour s'enfoncer dans les profondeurs, voyageant sous terre jusqu'à une montagne voisine où ils venaient s'endormir.
 
-Sur le Continent Astral Immortel, la plupart des Poissons-Œil étaient scellés par des sectes pour servir de bêtes protectrices, mais ils n'étaient guère aimés des cultivateurs. Lorsqu'ils pénétraient dans une montagne, ils fusionnaient avec elle ; bien que cela dotât la montagne d'un esprit, celle-ci finissait bientôt par se transformer en sable jaune.
+Sur le Continent Astral Immortel, la plupart des Poissons-Œil étaient scellés par des sectes pour servir de bêtes protectrices, mais ils n'étaient guère aimés des cultivateurs. Lorsqu'ils pénétraient dans une montagne, ils fusionnaient avec elle; bien que cela dotât la montagne d'un esprit, celle-ci finissait bientôt par se transformer en sable jaune.
 
 Ces Poissons-Œil, qui dévoraient l'énergie céleste, devaient être scellés. En vérité, presque tous ceux que l'on trouvait sur le Continent Astral Immortel étaient immédiatement mis sous sceau.
 
@@ -26,7 +26,7 @@ Il saisit une poignée de sable jaune et y décela une trace d'énergie spiritue
 
 « Et celle-ci est la dernière... » Le Sens Divin de Wang Lin se rétracta, tandis que toute la structure de la planète s'imprimait dans son esprit.
 
-« Je peux tendre une embuscade ici ! » Les yeux de Wang Lin s'illuminèrent d'un éclat froid. Sa main droite traça des sceaux et d'innombrables restrictions apparurent pour former l'Ombrelle Brûlante du Royaume.
+« Je peux tendre une embuscade ici! » Les yeux de Wang Lin s'illuminèrent d'un éclat froid. Sa main droite traça des sceaux et d'innombrables restrictions apparurent pour former l'Ombrelle Brûlante du Royaume.
 
 Dès que l'ombrelle se manifesta, une vague de chaleur jaillit et se répandit dans le ciel. Les nuages se dispersèrent sous l'apparition de cette structure gigantesque. Une fois déployée, la canopée fusionna avec le mât de l'ombrelle, formant un pilier semblable à un axe reliant le ciel et la terre.
 
@@ -34,41 +34,35 @@ Wang Lin leva les yeux vers l'ombrelle incandescente et mordit sa langue pour en
 
 L'Ombrelle Brûlante du Royaume s'était fondue dans le vide, les rendant impossibles à distinguer. Cependant, quiconque pénétrerait sur cette planète serait enveloppé par les flammes.
 
-C'était la première embuscade !
+C'était la première embuscade!
 
-La respiration de Wang Lin était légèrement haletante. Même avec sa cultivation avancée au stade du Vide Spirituel, l'utilisation de ce sort était éprouvante, surtout lorsqu'il cherchait à en libérer toute la puissance.
+La respiration de Wang Lin était légèrement haletante. Même avec sa culture avancée au stade du Vide Spirituel, l'utilisation de ce sort était éprouvante, surtout lorsqu'il cherchait à en libérer toute la puissance.
 
 « Je dois pouvoir en extraire davantage... » Wang Lin leva la main droite et pointa son œil gauche. L'essence de feu apparut dans son regard et les flammes rugirent. D'un geste du bras, une mer de feu jaillit de son œil gauche, se transformant en un Oiseau Vermillon de feu qui s'élança vers le ciel.
 
-L'Oiseau Vermillon était colossal ; ses plumes caudales se déployèrent telles celles d'un phénix. Après avoir décrit quelques cercles dans l'éther, il disparut.
+L'Oiseau Vermillon était colossal; ses plumes caudales se déployèrent telles celles d'un phénix. Après avoir décrit quelques cercles dans l'éther, il disparut.
 
-Wang Lin ferma les yeux pour cultiver calmement un instant, puis les rouvrit brusquement. Ses mains formèrent des sceaux et il commença à murmurer. Un instant plus tard, une lumière aux sept couleurs jaillit de ses paumes.
+Wang Lin ferma les yeux pour cultiver calmement un instant, puis les rouvrit brusquement. Ses mains formèrent des sceaux et il commença à murmurer. Un instant plus tard, une lumière aux sept couleurs jaillit de ses paumes. Cette lueur rappelait les sorts du Daoïste aux Sept Couleurs. Mais sous la maîtrise de Wang Lin, elle était encore plus éblouissante, recouvrant chaque parcelle de la planète.
 
-Cette lueur rappelait les sorts du Daoïste aux Sept Couleurs. Mais sous la maîtrise de Wang Lin, elle était encore plus éblouissante, recouvrant chaque parcelle de la planète.
+« Lance du Daoïste aux Sept Couleurs! » rugit Wang Lin en écartant les bras. Le ciel gronda alors que la lumière multicolore convergeait pour former une lance monumentale. Cette arme dégageait une aura terrifiante et émettait un chant sacré lors de son apparition, avant de foncer vers le sol et de se planter avec fracas à la droite de Wang Lin.
 
-« Lance du Daoïste aux Sept Couleurs ! » rugit Wang Lin en écartant les bras. Le ciel gronda alors que la lumière multicolore convergeait pour former une lance monumentale. Cette arme dégageait une aura terrifiante et émettait un chant sacré lors de son apparition, avant de foncer vers le sol et de se planter avec fracas à la droite de Wang Lin.
-
-C'était la deuxième embuscade !
+C'était la deuxième embuscade!
 
 Après avoir enchaîné ces deux sorts surpuissants, Wang Lin paraissait épuisé, mais il ne s'arrêta pas. Il pointa l'espace entre ses sourcils et une ombre surgit au-dessus de lui. Cette ombre se sépara progressivement jusqu'à ce que son corps original et son avatar se scindent.
 
 Le corps original, porteur de l'héritage du Dao Ancien, s'élança vers le ciel. D'un geste de la main droite, il fit changer les couleurs du monde tandis que la Hache Brise-Ciel apparaissait. Le corps d'origine la saisit et disparut dans un éclair.
 
-L'attaque à pleine puissance de l'héritage du Dao Ancien constituait la troisième embuscade !
+L'attaque à pleine puissance de l'héritage du Dao Ancien constituait la troisième embuscade!
 
-Après ces trois assauts, le visage de Wang Lin s'assombrit et son souffle devint court. Il se régénéra pendant la durée d'un demi-encens avant de rouvrir les yeux. D'un revers de main, il fit apparaître la Voile Fantomatique.
+Après ces trois assauts, le visage de Wang Lin s'assombrit et son souffle devint court. Il se régénéra pendant la durée d'un demi-encens avant de rouvrir les yeux. D'un revers de main, il fit apparaître la Voile Fantomatique. Cet objet issu du Continent Astral Immortel était un trésor puissant! Bien qu'il ne le maîtrisait pas encore totalement, il pouvait l'utiliser pour projeter des illusions. Après une courte réflexion, Wang Lin mordit son index gauche et laissa couler son sang sur le visage spectral.
 
-Cet objet issu du Continent Astral Immortel était un trésor puissant ! Bien qu'il ne le maîtrisait pas encore totalement, il pouvait l'utiliser pour projeter des illusions. Après une courte réflexion, Wang Lin mordit son index gauche et laissa couler son sang sur le visage spectral.
+Le sang fut instantanément absorbé par le visage fantomatique. En seulement trois respirations, la moitié de son sang avait disparu, rendant le teint de Wang Lin livide. À la quatrième respiration, le visage cessa l'absorption et ses yeux brillèrent d'une lueur démoniaque. Wang Lin brandit la voile et l'agita; le visage fantomatique s'envola en poussant un rugissement silencieux, son corps se dilatant jusqu'à engloutir la planète avant de disparaître.
 
-Le sang fut instantanément absorbé par le visage fantomatique. En seulement trois respirations, la moitié de son sang avait disparu, rendant le teint de Wang Lin livide. À la quatrième respiration, le visage cessa l'absorption et ses yeux brillèrent d'une lueur démoniaque. Wang Lin brandit la voile et l'agita ; le visage fantomatique s'envola en poussant un rugissement silencieux, son corps se dilatant jusqu'à engloutir la planète avant de disparaître.
+Une fois le visage disparu, le monde sembla transmuté, bien qu'il fût difficile de discerner la nature exacte du changement. Cette illusion spectrale était la quatrième embuscade de Wang Lin!
 
-Une fois le visage disparu, le monde sembla transmuté, bien qu'il fût difficile de discerner la nature exacte du changement. Cette illusion spectrale était la quatrième embuscade de Wang Lin !
+Le front de Wang Lin était trempé de sueur. Il s'essuya et prit une profonde inspiration. Il pointa le ciel de sa main droite et un rugissement fit trembler l'univers. Un minuscule point spectral apparut, puis se dilata rapidement pour devenir la Bête du Nether. Bien que son corps ne fût pas totalement déployé — mesurant seulement 1 000 pieds —, ses yeux froids et impitoyables auraient pu glacer le cœur de n'importe qui.
 
-Le front de Wang Lin était trempé de sueur. Il s'essuya et prit une profonde inspiration. Il pointa le ciel de sa main droite et un rugissement fit trembler l'univers.
-
-Un minuscule point spectral apparut, puis se dilata rapidement pour devenir la Bête du Nether. Bien que son corps ne fût pas totalement déployé — mesurant seulement 1 000 pieds —, ses yeux froids et impitoyables auraient pu glacer le cœur de n'importe qui.
-
-Sous l'ordre de Wang Lin, la Bête du Nether ferma les yeux et son corps s'amincit, se transformant finalement en une brume épaisse qui enveloppa le monde. Tout devint flou dans ce brouillard impénétrable. Cette Bête du Nether était la cinquième embuscade !
+Sous l'ordre de Wang Lin, la Bête du Nether ferma les yeux et son corps s'amincit, se transformant finalement en une brume épaisse qui enveloppa le monde. Tout devint flou dans ce brouillard impénétrable. Cette Bête du Nether était la cinquième embuscade!
 
 L'avatar de Wang Lin se rassit sur le sable jaune, accablé par la fatigue. C'était la première fois qu'il déployait une telle série de sorts simultanément. Dans un combat ordinaire, il n'aurait jamais eu le temps de les enchaîner ainsi, mais ici, l' circumstances le permettaient.
 
@@ -78,17 +72,13 @@ Alors que cette effluve se propageait, la planète entière trembla. Ce séisme 
 
 Après un long moment, les secousses s'apaisèrent et Wang Lin poussa un soupir de soulagement.
 
-« Le Poisson-Œil est ma sixième embuscade ! »
+« Le Poisson-Œil est ma sixième embuscade! »
 
-Une lueur froide traversa le regard de Wang Lin, mêlée à une pointe de lumière dorée contenant une lignée céleste extrêmement riche. C'était la dernière trace de sang céleste qu'il possédait.
+Une lueur froide traversa le regard de Wang Lin, mêlée à une pointe de lumière dorée contenant une lignée céleste extrêmement riche. C'était la dernière trace de sang céleste qu'il possédait. Sa main droite plongea dans le vide et, dans un éclat doré, l'Arc de Li Guang apparut. Wang Lin le saisit et leva les yeux vers le ciel. Après un long moment, il ferma les yeux pour simuler tous les scénarios possibles.
 
-Sa main droite plongea dans le vide et, dans un éclat doré, l'Arc de Li Guang apparut. Wang Lin le saisit et leva les yeux vers le ciel. Après un long moment, il ferma les yeux pour simuler tous les scénarios possibles.
+L'Arc de Li Guang était sa dernière embuscade: la septième! Ces sept pièges composaient une trappe absolument terrifiante!
 
-L'Arc de Li Guang était sa dernière embuscade : la septième ! Ces sept pièges composaient une trappe absolument terrifiante !
-
-Le temps s'écoula lentement. En un éclair, un autre encens se consuma. Wang Lin ouvrit les yeux, résolu.
-
-Il agita la main gauche et une baguette d'encens noire, non allumée, apparut devant lui. Il l'alluma d'un geste, et une fumée noire s'éleva dans l'air comme un signal de détresse.
+Le temps s'écoula lentement. En un éclair, un autre encens se consuma. Wang Lin ouvrit les yeux, résolu. Il agita la main gauche et une baguette d'encens noire, non allumée, apparut devant lui. Il l'alluma d'un geste, et une fumée noire s'éleva dans l'air comme un signal de détresse.
 
 Ce n'était pas fini. Une fois l'encens allumé, Wang Lin le jeta à trente pieds de là, dans les sables jaunes. La flamme vacillait tandis que la fumée devenait plus dense encore.
 
@@ -96,6 +86,6 @@ Sa main gauche s'étira de nouveau vers le vide pour en extraire Zi Xia, qui ava
 
 Mais le regard de Wang Lin demeura glacial. Dès que son doigt toucha son front, les yeux de Zi Xia s'ouvrirent. Elle lutta, sa main droite agissant hors de son contrôle pour agripper le vide, faisant apparaître un jade de message dans sa paume. Malgré ses efforts désespérés, elle ne pouvait maîtriser son corps. Elle envoya un message et le jade brilla intensément avant de voler en éclats.
 
-Les sept embuscades étaient prêtes. Avec l'encens brûlant et le jade brisé, il avait posé l'appât. Il ne lui restait plus qu'à attendre que la proie surgisse pour déclencher une bataille épique sur cette planète !
+Les sept embuscades étaient prêtes. Avec l'encens brûlant et le jade brisé, il avait posé l'appât. Il ne lui restait plus qu'à attendre que la proie surgisse pour déclencher une bataille épique sur cette planète!
 
-Wang Lin ne pensait pas pouvoir tuer le Daoïste aux Sept Couleurs ou le Vieux Fantôme Zhan, mais il n'en avait pas besoin. Parfois, infliger de graves blessures produisait le même effet. Après tout, que ce soit l'un ou l'autre, si l'un d'eux était grièvement blessé, cela constituerait une opportunité inespérée pour l'autre !
+Wang Lin ne pensait pas pouvoir tuer le Daoïste aux Sept Couleurs ou le Vieux Fantôme Zhan, mais il n'en avait pas besoin. Parfois, infliger de graves blessures produisait le même effet. Après tout, que ce soit l'un ou l'autre, si l'un d'eux était grièvement blessé, cela constituerait une opportunité inespérée pour l'autre!

@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1591 - When You Don’t Wake Up
 slug: quand-vous-ne-vous-reveillez-pas
 ---
-La jeune fille portait une robe d'un vert éclatant et était d'une grande beauté. Le manche de son ombrelle ressemblait à un tronc d'arbre, et même la toile évoquait des feuilles ; les fines nervures de l'étoffe rappelaient les veines du feuillage. L'ensemble dégageait une atmosphère très singulière.
+La jeune fille portait une robe d'un vert éclatant et était d'une grande beauté. Le manche de son ombrelle ressemblait à un tronc d'arbre, et même la toile évoquait des feuilles; les fines nervures de l'étoffe rappelaient les veines du feuillage. L'ensemble dégageait une atmosphère très singulière.
 
 Le teint de la jeune fille était rosé et d'une grande finesse. Ses sourcils froncés et son regard perçant lui conféraient une beauté d'un tout autre genre.
 
@@ -18,7 +18,7 @@ C'était la première fois qu'il quittait son village de montagne, et il n'avait
 
 La jeune fille avait initialement une expression sombre, mais en voyant Wang Lin la fixer avant de rougir, elle ne put s'empêcher de sourire. Son humeur était aussi changeante que la météo.
 
-« Hé, l'érudit, tu as assez regardé ! » La jeune fille sourit, et sa voix, semblable au tintement de clochettes cristallines, tourbillonna à travers la pluie pour atteindre les oreilles de Wang Lin.
+« Hé, l'érudit, tu as assez regardé! » La jeune fille sourit, et sa voix, semblable au tintement de clochettes cristallines, tourbillonna à travers la pluie pour atteindre les oreilles de Wang Lin.
 
 Le visage de Wang Lin, d'ordinaire empreint d'une aura de lettré, devint encore plus rouge, jusqu'à l'incarnat de ses oreilles. Il s'inclina précipitamment devant la jeune fille sur le bateau.
 
@@ -26,7 +26,7 @@ Le visage de Wang Lin, d'ordinaire empreint d'une aura de lettré, devint encore
 
 Le rire de la jeune fille résonna. En observant l'expression gauche de Wang Lin, elle s'apprêtait à parler quand une voix douce et mélodieuse s'éleva de l'intérieur du bateau.
 
-« Sœur cadette ! »
+« Sœur cadette! »
 
 Alors que la voix résonnait, le coin de l'auvent du bateau fut écarté par une main semblable au jade, révélant la silhouette délicate d'une autre jeune femme. Lorsque le visage de cette dernière apparut aux yeux de Wang Lin, la pluie du monde sembla s'immobiliser.
 
@@ -36,9 +36,9 @@ Elle était magnifique, mais une pointe de tristesse perçait dans son regard. S
 
 On y décelait également une trace d'agacement alors qu'elle regardait la jeune fille en vert.
 
-La jeune fille en vert sourit et attira la jeune femme en violet vers elle. Elle pointa Wang Lin du doigt, sa voix s'élevant comme celle d'un oiseau chanteur :
+La jeune fille en vert sourit et attira la jeune femme en violet vers elle. Elle pointa Wang Lin du doigt, sa voix s'élevant comme celle d'un oiseau chanteur:
 
-« Sœur aînée, cet érudit est vraiment impoli. Il a d'abord parlé sans respect, puis il m'a dévisagée. Mais il a l'air un peu niais, c'est assez amusant ! »
+« Sœur aînée, cet érudit est vraiment impoli. Il a d'abord parlé sans respect, puis il m'a dévisagée. Mais il a l'air un peu niais, c'est assez amusant! »
 
 La jeune femme en violet sourit et son regard suivit la pluie vers Wang Lin, qui cherchait refuge sur la rive. En le voyant, elle fut surprise un instant. Après l'avoir observé de plus près, une lueur de confusion traversa ses yeux.
 
@@ -46,15 +46,15 @@ La jeune femme en violet sourit et son regard suivit la pluie vers Wang Lin, qui
 
 Le visage de Wang Lin devint encore plus cramoisi sous le regard de ces deux femmes. Il toussa plusieurs fois et joignit à nouveau les mains, incapable de trouver ses mots. Il détourna rapidement les yeux vers la montagne et les nuages sombres pour apaiser son cœur qui battait la chamade.
 
-« Wang Lin, ah, Wang Lin... tu as lu tant de livres, comment peux-tu regarder deux jeunes filles ainsi ? Reste calme. Une fois que la pluie cessera, je devrai reprendre ma route. » Wang Lin prit une profonde inspiration de l'air chargé d'humidité et parvint lentement à calmer ses émotions.
+« Wang Lin, ah, Wang Lin... tu as lu tant de livres, comment peux-tu regarder deux jeunes filles ainsi? Reste calme. Une fois que la pluie cessera, je devrai reprendre ma route. » Wang Lin prit une profonde inspiration de l'air chargé d'humidité et parvint lentement à calmer ses émotions.
 
-La jeune femme en violet observa Wang Lin un instant avant de dire doucement : « Monsieur, je crains que la pluie ne persiste toute la nuit. Puisque le destin nous a fait nous rencontrer, pourquoi ne pas monter à bord pour vous abriter ? Il y aura une halte pour séjourner à la prochaine station. »
+La jeune femme en violet observa Wang Lin un instant avant de dire doucement: « Monsieur, je crains que la pluie ne persiste toute la nuit. Puisque le destin nous a fait nous rencontrer, pourquoi ne pas monter à bord pour vous abriter? Il y aura une halte pour séjourner à la prochaine station. »
 
 Bien que ses paroles fussent légères, elles perçèrent l'averse et se propagèrent dans l'air.
 
 « Cela... » Wang Lin hésita un moment et leva les yeux vers le ciel. Les nuages noirs recouvraient l'horizon et la pluie ne semblait pas vouloir s'arrêter de sitôt. Elle pourrait effectivement durer toute la nuit.
 
-« Nous vous proposons de nous abriter sur notre bateau avec de bonnes intentions, et vous hésitez encore ? Pensez-vous que nous allons vous dévorer ? » La jeune fille en vert, voyant l'hésitation de Wang Lin, le fixa d'un air provocateur.
+« Nous vous proposons de nous abriter sur notre bateau avec de bonnes intentions, et vous hésitez encore? Pensez-vous que nous allons vous dévorer? » La jeune fille en vert, voyant l'hésitation de Wang Lin, le fixa d'un air provocateur.
 
 « Sœur cadette. » La jeune femme en violet lança un regard impuissant à la jeune fille en vert.
 
@@ -84,11 +84,11 @@ Au loin, alors que le ciel s'obscurcissait, le bateau finissait par disparaître
 
 « Wang Lin... Pourquoi ai-je l'impression de l'avoir déjà vu... Même son nom me semble si familier... » La jeune femme en violet regardait Wang Lin, et la confusion qui l'habitait réapparaissait.
 
-« Hein ? Tu t'appelles Wang Lin ? J'ai aussi l'impression d'avoir déjà entendu ce nom... » fit remarquer la jeune fille en vert, son regard fixé sur lui, plongée dans ses pensées.
+« Hein? Tu t'appelles Wang Lin? J'ai aussi l'impression d'avoir déjà entendu ce nom... » fit remarquer la jeune fille en vert, son regard fixé sur lui, plongée dans ses pensées.
 
-La jeune fille en vert réfléchit longuement avant de lever la tête. Elle sourit à Wang Lin et dit d'une voix mélodieuse : « C'est étrange, je ne pense pas vous avoir déjà vu, et votre nom ne me dit rien du tout... »
+La jeune fille en vert réfléchit longuement avant de lever la tête. Elle sourit à Wang Lin et dit d'une voix mélodieuse: « C'est étrange, je ne pense pas vous avoir déjà vu, et votre nom ne me dit rien du tout... »
 
-« Je m'appelle Xu Fei, et voici ma sœur aînée Zhou. Quant à son nom, vous n'aurez qu'à lui demander ! » Xu Fei fit un clin d'œil, d'un air espiègle et mignon.
+« Je m'appelle Xu Fei, et voici ma sœur aînée Zhou. Quant à son nom, vous n'aurez qu'à lui demander! » Xu Fei fit un clin d'œil, d'un air espiègle et mignon.
 
 « Je me nomme Zhou Rui », dit doucement la jeune femme en violet. La confusion persistait dans ses yeux, car même Xu Fei trouvait le nom de Wang Lin familier. Elle ne parvenait simplement pas à comprendre pourquoi.
 
@@ -102,7 +102,7 @@ En observant la scène, Wang Lin fut soudainement saisi d'une transe.
 
 Dans cette nuit noire sur la rivière silencieuse, il semblait que ce bateau était la seule chose subsistant au monde. Les deux magnifiques jeunes filles à bord lui donnaient l'impression que rien de tout cela n'était réel.
 
-Le corps de Wang Lin se refroidit durant son état de transe. Sa vision se brouilla et une somnolence l'envahit, mais il lutta pour rester conscient. S'appuyant contre la paroi, il murmura lentement : « Vous vous appelez respectivement sœur cadette et sœur aînée... Mademoiselle Zhou vous a également porté à bord d'un bond... Vous devez être des expertes en arts martiaux. »
+Le corps de Wang Lin se refroidit durant son état de transe. Sa vision se brouilla et une somnolence l'envahit, mais il lutta pour rester conscient. S'appuyant contre la paroi, il murmura lentement: « Vous vous appelez respectivement sœur cadette et sœur aînée... Mademoiselle Zhou vous a également porté à bord d'un bond... Vous devez être des expertes en arts martiaux. »
 
 « Nous ne sommes pas des gens du monde des arts martiaux. Vous êtes vraiment intéressant, l'érudit. Nous sommes des êtres qui cultivent vers l'immortalité, de véritables immortels... » La voix devint indistincte, semblant s'éloigner de plus en plus à mesure que la somnolence de Wang Lin progressait.
 
@@ -112,14 +112,14 @@ Il lui sembla vaguement entendre quelqu'un mentionner la Secte Heng Yue...
 
 Le bateau tangua légèrement, faisant osciller le chandelier. La jeune fille en vert regarda son aînée avec une expression confuse.
 
-« Sœur aînée, il n'est qu'un mortel. Pourquoi avez-vous utilisé un sort pour l'endormir ? »
+« Sœur aînée, il n'est qu'un mortel. Pourquoi avez-vous utilisé un sort pour l'endormir? »
 
-La jeune femme en violet contempla Wang Lin endormi. Après un long silence, elle dit doucement : « Je dois absolument avoir déjà rencontré cet homme ! Pourtant, je ne parviens pas à me souvenir d'où. Même toi as trouvé son nom familier. »
+La jeune femme en violet contempla Wang Lin endormi. Après un long silence, elle dit doucement: « Je dois absolument avoir déjà rencontré cet homme! Pourtant, je ne parviens pas à me souvenir d'où. Même toi as trouvé son nom familier. »
 
 « Wang Lin... Wang Lin... » La jeune fille en robe vert vif fronça les sourcils, l'incertitude se lisant dans ses yeux.
 
 Un instant plus tard, la jeune femme en violet secoua la tête et soupira. « Laisse tomber, ne pensons plus à cela. Peut-être nous sommes-nous rencontrés dans une vie antérieure... »
 
-« Une vie antérieure ? » La jeune fille en vert rit en levant les yeux vers le ciel nocturne.
+« Une vie antérieure? » La jeune fille en vert rit en levant les yeux vers le ciel nocturne.
 
-« Sœur aînée, il est temps. Nous devons rejoindre Wang Zhuo. Cette fois, le Maître de la Secte a détecté une lumière dorée provenant de l'Est et a prédit la naissance d'un trésor. De nombreuses sectes pourraient se mettre en quête. Bien que nos niveaux de cultivation ne soient pas assez élevés pour y participer, ce sera une expérience enrichissante. »
+« Sœur aînée, il est temps. Nous devons rejoindre Wang Zhuo. Cette fois, le Maître de la Secte a détecté une lumière dorée provenant de l'Est et a prédit la naissance d'un trésor. De nombreuses sectes pourraient se mettre en quête. Bien que nos niveaux de culture ne soient pas assez élevés pour y participer, ce sera une expérience enrichissante. »

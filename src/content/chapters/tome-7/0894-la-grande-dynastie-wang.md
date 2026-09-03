@@ -10,31 +10,31 @@ Il ne fallut que peu de réflexion à Wang Lin pour comprendre pourquoi les cult
 
 En vérité, cela confirmait les soupçons de Wang Lin. Le cultivateur aux grandes oreilles, Zhou Wutai, éprouvait une immense gratitude envers Wang Lin pour lui avoir permis d'accéder au rang de Suzaku. Cependant, après le départ de Wang Lin, il n'avait jamais eu l'occasion de lui témoigner sa reconnaissance.
 
-Zhou Wutai était un homme de parole ; il n'oubliait jamais ce que Wang Lin avait fait pour lui.
+Zhou Wutai était un homme de parole; il n'oubliait jamais ce que Wang Lin avait fait pour lui.
 
 Par conséquent, qu'il s'agisse des descendants de Wang Lin, de la secte qu'il avait laissée derrière lui ou même du pays de Zhao, tous avaient progressivement prospéré sous la protection de Zhou Wutai.
 
-Grâce au statut de nouveau Suzaku de Zhou Wutai, il fut fort aisé d'élever la famille Wang au rang de noblesse royale. Cela permit également au pays de Zhao de croître par paliers jusqu'à devenir un pays de cultivation de rang 5.
+Grâce au statut de nouveau Suzaku de Zhou Wutai, il fut fort aisé d'élever la famille Wang au rang de noblesse royale. Cela permit également au pays de Zhao de croître par paliers jusqu'à devenir un pays de culture de rang 5.
 
 Le peuple savait naturellement que tout cela n'était fait que pour le compte de Wang Lin. Les exploits de Wang Lin dans la Tombe de Suzaku s'étaient propagés aux quatre coins du monde. Après mûre réflexion, Zhou Wutai avait progressivement convaincu l'ensemble des cultivateurs de reconnaître Wang Lin comme le gardien et l'ancêtre de la planète Suzaku.
 
-Zhou Wutai avait une autre raison d'agir ainsi. Lorsqu'il était devenu Suzaku, il n'était qu'au stade de la Transformation de l'Âme, n'ayant même pas atteint le stade d'Ascendant. Il était le Suzaku le plus faible et ne possédait pas la puissance nécessaire pour régner. Ainsi, il ne pouvait que s'appuyer sur la renommée de Wang Lin pour asseoir son autorité et réprimer toute opposition !
+Zhou Wutai avait une autre raison d'agir ainsi. Lorsqu'il était devenu Suzaku, il n'était qu'au stade de la Transformation de l'Âme, n'ayant même pas atteint le stade d'Ascendant. Il était le Suzaku le plus faible et ne possédait pas la puissance nécessaire pour régner. Ainsi, il ne pouvait que s'appuyer sur la renommée de Wang Lin pour asseoir son autorité et réprimer toute opposition!
 
 Tandis que Wang Lin réfléchissait, bien qu'il n'eût pas pu tout deviner, il en saisit l'essentiel. Il laissa échapper un soupir. Peu importait les motivations de Zhou Wutai, Wang Lin se devait de lui rendre la pareille.
 
-Pendant qu'il volait, Ta Shan et le garçon à la grosse tête le suivaient ; l'expression de Ta Shan demeurait glaciale tout au long du trajet. Quant au garçon à la grosse tête, après avoir vu Wang Lin rentrer chez lui, ses sentiments envers sa propre famille étaient devenus plus complexes encore. Il voyait bien que tous ceux qui étaient ici respectaient Xu Mu avec une sincérité profonde. Le garçon savait que s'il retournait dans sa famille avec son niveau de cultivation actuel, il recevrait lui aussi des marques de respect ; pourtant, il savait que ce respect serait hypocrite.
+Pendant qu'il volait, Ta Shan et le garçon à la grosse tête le suivaient; l'expression de Ta Shan demeurait glaciale tout au long du trajet. Quant au garçon à la grosse tête, après avoir vu Wang Lin rentrer chez lui, ses sentiments envers sa propre famille étaient devenus plus complexes encore. Il voyait bien que tous ceux qui étaient ici respectaient Xu Mu avec une sincérité profonde. Le garçon savait que s'il retournait dans sa famille avec son niveau de culture actuel, il recevrait lui aussi des marques de respect; pourtant, il savait que ce respect serait hypocrite.
 
 Une vaste cité apparut au loin. Cette ville, semblable à un dragon enroulé, exhalait une aura de richesse opulente. Ses murs étaient faits de pierre noire d'où émanaient des fluctuations magiques.
 
 Avant même de s'en approcher, Wang Lin perçut la présence de nombreuses restrictions puissantes à l'intérieur de la ville. Elles étaient si nombreuses que, si elles étaient toutes activées, elles représenteraient une menace réelle, même pour des cultivateurs Ascendants.
 
-C'était la seule cité impériale mortelle de la planète Suzaku en dehors des terres occupées par le Clan Immortel Abandonné !
+C'était la seule cité impériale mortelle de la planète Suzaku en dehors des terres occupées par le Clan Immortel Abandonné!
 
-La Grande Dynastie Wang !
+La Grande Dynastie Wang!
 
 Fondée il y a 437 ans, elle était devenue le clan mortel le plus influent après le Clan Immortel Abandonné.
 
-La famille royale Wang possédait une lignée séculaire. Plus de 400 ans de consolidation avaient permis à la dynastie d'amasser une armée colossale et d'attirer d'innombrables artistes martiaux. Cependant, ce qui faisait la véritable puissance de la dynastie, c'était l'immense nombre de cultivateurs !
+La famille royale Wang possédait une lignée séculaire. Plus de 400 ans de consolidation avaient permis à la dynastie d'amasser une armée colossale et d'attirer d'innombrables artistes martiaux. Cependant, ce qui faisait la véritable puissance de la dynastie, c'était l'immense nombre de cultivateurs!
 
 Outre la Secte du Ciel Nuageux, Zhou Wutai et diverses autres sectes servaient de soutiens. Grâce à cela, les membres du clan Wang jouissaient d'un statut extrêmement élevé.
 
@@ -46,7 +46,7 @@ Cette capitale était d'un luxe excessif. Les routes étaient pavées de pierres
 
 Si cela s'était arrêté là, cela n'aurait pas été problématique, mais les arbres environnants étaient tous drapés de soie. Bien que ce spectacle fût luxueux, il n'était que le reflet d'une corruption profonde.
 
-Grâce à son niveau de cultivation actuel, Wang Lin pouvait percevoir des réalités invisibles aux autres : la tristesse, la colère, la peur et diverses autres auras capables de troubler l'esprit humain.
+Grâce à son niveau de culture actuel, Wang Lin pouvait percevoir des réalités invisibles aux autres: la tristesse, la colère, la peur et diverses autres auras capables de troubler l'esprit humain.
 
 Si l'on vivait ici trop longtemps, sa personnalité s'altérait et ses émotions devenaient instables, ce qui finissait par raccourcir sa durée de vie.
 
@@ -58,9 +58,9 @@ Ce ressentiment émanait des foyers de chaque village et s'accumulait là où vi
 
 C'était particulièrement frappant dans le nord-ouest, une région au sol rouge jonché de cadavres. Une masse colossale de ressentiment s'en échappait pour se propager à travers la zone. Si les autres cités éprouvaient un fort ressentiment, celui de la capitale était une flamme démoniaque monstrueuse qui s'élançait vers le ciel.
 
-Seul un être ayant le niveau de cultivation de Wang Lin pouvait remarquer cela, et seulement après une recherche minutieuse. Pour quiconque manquait de puissance, il était impossible de le détecter.
+Seul un être ayant le niveau de culture de Wang Lin pouvait remarquer cela, et seulement après une recherche minutieuse. Pour quiconque manquait de puissance, il était impossible de le détecter.
 
-— Absurde ! grogna Wang Lin d'un ton sombre en marchant dans la rue. Il s'était réjoui de voir la prospérité des descendants de sa lignée, mais cette richesse était bâtie sur le ressentiment, et les membres de la famille Wang en étaient les premières victimes. Si tel était le prix, cette richesse n'avait aucune valeur !
+— Absurde! grogna Wang Lin d'un ton sombre en marchant dans la rue. Il s'était réjoui de voir la prospérité des descendants de sa lignée, mais cette richesse était bâtie sur le ressentiment, et les membres de la famille Wang en étaient les premières victimes. Si tel était le prix, cette richesse n'avait aucune valeur!
 
 Alors qu'il avançait, l'écho de sabots retentit au loin. Les passants paniquèrent et s'écartèrent précipitamment. Wang Lin recula de quelques pas et observa la scène d'un regard sombre.
 
@@ -78,9 +78,9 @@ Une fois le groupe passé, un groupe de soldats accourut pour nettoyer les tache
 
 Ce n'est que lorsque tout fut terminé que la foule recommença à bavarder et que l'agitation reprit son cours normal.
 
-— Hélas, quelle malchance ! Qui a été assez aveugle pour provoquer le 16e Prince cette fois ? Je crains qu'il ne soit traîné dans toute la capitale avant de recevoir l'autorisation de mourir !
+— Hélas, quelle malchance! Qui a été assez aveugle pour provoquer le 16e Prince cette fois? Je crains qu'il ne soit traîné dans toute la capitale avant de recevoir l'autorisation de mourir!
 
-— Non, dans notre Grande Dynastie Wang, la famille Wang est le ciel même. Même les immortels sont leurs serviteurs ; qui oserait les défier ?
+— Non, dans notre Grande Dynastie Wang, la famille Wang est le ciel même. Même les immortels sont leurs serviteurs; qui oserait les défier?
 
 — Ne parlons pas de ça. Il y a quelques mois, le Maître National contemplait le ciel nocturne et a perçu un signe funeste venant du nord-ouest. En conséquence, des centaines de milliers de personnes y ont été massacrées. On dit que même aujourd'hui, le nord-ouest est jonché de cadavres.
 
@@ -88,27 +88,27 @@ Ce n'est que lorsque tout fut terminé que la foule recommença à bavarder et q
 
 L'expression de Wang Lin devint extrêmement sombre. Il voyait clairement que ce jeune homme appartenait à la lignée des Wang.
 
-D'une voix calme, Wang Lin dit : — Ta Shan, amène-le ici !
+D'une voix calme, Wang Lin dit: — Ta Shan, amène-le ici!
 
-Sans dire un mot, Ta Shan se retourna et disparut. Un instant plus tard, il réapparut en tenant une personne dans sa main : le jeune homme aux vêtements élégants.
+Sans dire un mot, Ta Shan se retourna et disparut. Un instant plus tard, il réapparut en tenant une personne dans sa main: le jeune homme aux vêtements élégants.
 
-À cet instant, ses yeux étaient remplis d'horreur et il ne cessait de jurer : — Tu oses m'arrêter ? De quelle secte viens-tu ?! Sais-tu qui je suis ? Je suis un membre de la famille Wang !
+À cet instant, ses yeux étaient remplis d'horreur et il ne cessait de jurer: — Tu oses m'arrêter? De quelle secte viens-tu?! Sais-tu qui je suis? Je suis un membre de la famille Wang!
 
 L'expression de Ta Shan resta de marbre tandis qu'il s'avançait vers Wang Lin. Le jeune homme fut immédiatement projeté au sol.
 
 Cette scène stupéfia instantanément la foule dispersée, qui s'éclipsa sans l'ombre d'une hésitation, les yeux emplis de terreur.
 
-Le jeune homme aux vêtements élégants afficha un visage féroce en se relevant pour fixer Ta Shan. Bien qu'il fût secrètement terrifié, il ne le montra pas et hurla : — Je suis un membre de la famille Wang, et tu oses m'agresser ? Peu importe ta secte, tu es un homme mort !
+Le jeune homme aux vêtements élégants afficha un visage féroce en se relevant pour fixer Ta Shan. Bien qu'il fût secrètement terrifié, il ne le montra pas et hurla: — Je suis un membre de la famille Wang, et tu oses m'agresser? Peu importe ta secte, tu es un homme mort!
 
 Le regard de Wang Lin était glacial alors qu'il fixait le jeune homme. Il percevait un gaz noir dense émanant de sa tête. Ce gaz formait un serpent qui ouvrait la gueule et rugissait silencieusement vers Ta Shan.
 
-Ceux dont la cultivation n'avait pas atteint la deuxième étape ne pourraient détecter cela ; ils ressentiraient seulement une aura glaciale jaillir du jeune homme, faisant trembler leur cœur.
+Ceux dont la culture n'avait pas atteint la deuxième étape ne pourraient détecter cela; ils ressentiraient seulement une aura glaciale jaillir du jeune homme, faisant trembler leur cœur.
 
 C'est à ce moment précis que des cris retentirent dans la rue au loin. Le groupe qui s'était éloigné revenait en force, massacrant tout sur son passage. Deux traînées d'énergie d'épée menaient la charge, suivies par les serviteurs. Les artistes martiaux étaient imprégnés d'une intention meurtrière.
 
-Parmi les arrivants, quelques jeunes gens chevauchaient des chevaux et hurlaient avec fureur : — Attrapez ce voleur !
+Parmi les arrivants, quelques jeunes gens chevauchaient des chevaux et hurlaient avec fureur: — Attrapez ce voleur!
 
-— Un assassin ! Protégez le Prince !
+— Un assassin! Protégez le Prince!
 
 Les deux traînées d'énergie d'épée chargèrent en premier vers Ta Shan. Ils attaquèrent sans réfléchir. Ils n'avaient même pas remarqué ces inconnus, et lorsqu'ils ouvrirent les yeux, le Prince avait disparu.
 

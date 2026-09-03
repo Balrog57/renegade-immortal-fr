@@ -12,7 +12,7 @@ C'était un matin de printemps. De la fumée s'échappait des diverses demeures 
 
 La cinquième maison à l'est du village était une humble bâtisse. Une femme d'un certain âge était accroupie dans la cuisine, attisant le foyer pour préparer le repas.
 
-Sa silhouette, légèrement voûtée, portait les marques du temps. La fumée du bois de chauffage lui irritait la gorge, la faisant tousser ; elle saisit alors rapidement un éventail en bambou et l'agita pour dissiper la fumée.
+Sa silhouette, légèrement voûtée, portait les marques du temps. La fumée du bois de chauffage lui irritait la gorge, la faisant tousser; elle saisit alors rapidement un éventail en bambou et l'agita pour dissiper la fumée.
 
 « Maman de Ru... » Une voix l'appela depuis la pièce voisine de la cuisine.
 
@@ -22,9 +22,9 @@ Après avoir ouvert la porte, elle vit un vieil homme assis sur le lit. Ses yeux
 
 L'homme n'était plus que peau et os, et ses yeux étaient dépourvus de toute lueur.
 
-La femme s'approcha du lit ; en regardant l'homme, les larmes lui montèrent aux yeux.
+La femme s'approcha du lit; en regardant l'homme, les larmes lui montèrent aux yeux.
 
-« Mari, que veux-tu manger ? »
+« Mari, que veux-tu manger? »
 
 L'homme leva la main droite et la femme l'aida promptement à se redresser.
 
@@ -36,7 +36,7 @@ Les larmes de la femme commencèrent à couler. « Oui, elle reviendra bientôt.
 
 « Je regrette ma décision d'alors. Je n'aurais pas dû laisser ce taoïste l'emporter. En un clin d'œil, vingt ans ont passé et je ne sais absolument pas comment elle va... » L'homme semblait avoir vieilli de plusieurs années.
 
-La femme essuya ses larmes et murmura : « Ne t'inquiète pas, notre fille a une bonne fortune ; elle est certainement en sécurité. »
+La femme essuya ses larmes et murmura: « Ne t'inquiète pas, notre fille a une bonne fortune; elle est certainement en sécurité. »
 
 Ces deux personnes étaient les parents de Zhou Ru. Lors de l'invasion du Clan Immortel Délaissé, ils avaient été contraints de s'installer ici pour fuir la guerre.
 
@@ -56,25 +56,25 @@ La femme, surprise, se retourna pour voir ce que son mari contemplait. En aperce
 
 Une jeune fille se tenait là. Elle était très charmante, avec de longs cheveux noirs et fluides. Son apparence ressemblait étrangement aux souvenirs flous que le couple gardait de Zhou Ru.
 
-La femme murmura avec hésitation : « Toi... »
+La femme murmura avec hésitation: « Toi... »
 
-« Maman !!! » Des larmes jaillirent soudainement des yeux de la jeune fille qui se précipita vers elle en pleurant.
+« Maman!!! » Des larmes jaillirent soudainement des yeux de la jeune fille qui se précipita vers elle en pleurant.
 
-« Ru Er... c'est vraiment Ru Er ! Mari, elle est vraiment revenue ! » La femme, transportée par l'émotion, laissa les larmes couler sur ses joues. Elle serra la jeune fille dans ses bras et éclata en sanglots.
+« Ru Er... c'est vraiment Ru Er! Mari, elle est vraiment revenue! » La femme, transportée par l'émotion, laissa les larmes couler sur ses joues. Elle serra la jeune fille dans ses bras et éclata en sanglots.
 
-Le père de Zhou Ru sembla soudain investi d'une force inimaginable ; il se redressa seul. Il regarda Zhou Ru, les larmes aux yeux, et s'exclama : « Que le Ciel nous fasse grâce ! Que le Ciel nous fasse grâce ! Ma fille est revenue à la maison ! »
+Le père de Zhou Ru sembla soudain investi d'une force inimaginable; il se redressa seul. Il regarda Zhou Ru, les larmes aux yeux, et s'exclama: « Que le Ciel nous fasse grâce! Que le Ciel nous fasse grâce! Ma fille est revenue à la maison! »
 
 À l'extérieur de la maison, Wang Lin soupira. Il éprouvait un sentiment de regret envers ces deux êtres. D'un geste de la main droite, il envoya un rayon d'énergie spirituelle pénétrer silencieusement les corps des parents de Zhou Ru.
 
-Le corps du père retrouva instantanément sa vitalité et sa santé ; il en fut de même pour la mère.
+Le corps du père retrouva instantanément sa vitalité et sa santé; il en fut de même pour la mère.
 
-« Ru Er, l'oncle doit partir ! » Après une courte réflexion, Wang Lin s'en alla. Il paraissait d'une tristesse et d'une solitude infinies.
+« Ru Er, l'oncle doit partir! » Après une courte réflexion, Wang Lin s'en alla. Il paraissait d'une tristesse et d'une solitude infinies.
 
-À l'intérieur, Zhou Ru sembla percevoir quelque chose ; elle regarda par la fenêtre et aperçut cette silhouette mélancolique.
+À l'intérieur, Zhou Ru sembla percevoir quelque chose; elle regarda par la fenêtre et aperçut cette silhouette mélancolique.
 
-« Oncle, Ru Er aura-t-elle la chance de te revoir dans cette vie... ? » pensa-t-elle. La tristesse dans son cœur s'intensifia.
+« Oncle, Ru Er aura-t-elle la chance de te revoir dans cette vie...? » pensa-t-elle. La tristesse dans son cœur s'intensifia.
 
-Dans son cœur, Wang Lin était plus important que ses propres parents ; après tout, elle l'accompagnait depuis son enfance.
+Dans son cœur, Wang Lin était plus important que ses propres parents; après tout, elle l'accompagnait depuis son enfance.
 
 « Oncle, je continuerai à cultiver jusqu'à ce que je puisse quitter la planète Suzaku. Quand j'en serai capable, je... je viendrai te trouver... À ce moment-là, la petite Ru Er ne sera plus un fardeau pour toi. »
 
@@ -88,29 +88,29 @@ Pays de Chu.
 
 Le corps de Wang Lin apparut devant la Secte du Ciel Nuageux.
 
-« Tie Yan, viens me voir ! » La voix de Wang Lin résonna à travers toute la secte.
+« Tie Yan, viens me voir! » La voix de Wang Lin résonna à travers toute la secte.
 
-Un rayon de lumière s'élança rapidement de la secte et s'arrêta à dix pieds de Wang Lin, révélant un vieil homme : c'était Tie Yan.
+Un rayon de lumière s'élança rapidement de la secte et s'arrêta à 33 mètres de Wang Lin, révélant un vieil homme: c'était Tie Yan.
 
-Tie Yan avait atteint la Formation de l'Âme, et le pays de Chu était devenu un pays de cultivation de rang 4.
+Tie Yan avait atteint la Formation de l'Âme, et le pays de Chu était devenu un pays de culture de rang 4.
 
-« Tie Yan est là ! » Le vieil homme joignit les mains et se tint respectueusement. Son cœur débordait d'admiration pour Wang Lin. Sur la planète Suzaku, le nom de ce dernier était une légende.
+« Tie Yan est là! » Le vieil homme joignit les mains et se tint respectueusement. Son cœur débordait d'admiration pour Wang Lin. Sur la planète Suzaku, le nom de ce dernier était une légende.
 
-Wang Lin, également connu sous le nom de Ceng Niu, avait tranché le bras de Red Butterfly, tué Qian Feng, surpris Liu Mei, forcé Zi Xin à battre en retraite et, d'un seul mot, avait fait de Zhou Wutai le 15e Suzaku.
+Wang Lin, également connu sous le nom de Ceng Niu, avait tranché le bras de Papillon Rouge, tué Qian Feng, surpris Liu Mei, forcé Zi Xin à battre en retraite et, d'un seul mot, avait fait de Zhou Wutai le 15e Suzaku.
 
-Tous ces récits s'étaient propagés parmi les cultivateurs de la planète Suzaku ; presque personne n'ignorait ses exploits.
+Tous ces récits s'étaient propagés parmi les cultivateurs de la planète Suzaku; presque personne n'ignorait ses exploits.
 
 Pour Tie Yan, Wang Lin était le ciel lui-même, et ses paroles étaient des lois célestes auxquelles nul ne pouvait résister.
 
 Wang Lin fit un geste de la main droite et un sac de rangement vola vers Tie Yan pour atterrir dans sa main.
 
-« Si Zhou Ru parvient par elle-même au stade de l'Âme Naissante, donne-lui ceci ! Si elle n'y parvient pas, oublie cela ! Un sceau a été placé dessus par mes soins. Ce sceau est très simple ; il te suffira de l'étudier attentivement pour pouvoir le briser un jour. »
+« Si Zhou Ru parvient par elle-même au stade de l'Âme Naissante, donne-lui ceci! Si elle n'y parvient pas, oublie cela! Un sceau a été placé dessus par mes soins. Ce sceau est très simple; il te suffira de l'étudier attentivement pour pouvoir le briser un jour. »
 
 La voix de Wang Lin était d'une sobriété extrême.
 
-Tie Yan fut stupéfait, puis s'exclama rapidement : « Tie Yan n'osera jamais ! C'est votre présent pour Zhou Ru. Même si je devais mourir, je n'oserais point tenter de l'ouvrir ! »
+Tie Yan fut stupéfait, puis s'exclama rapidement: « Tie Yan n'osera jamais! C'est votre présent pour Zhou Ru. Même si je devais mourir, je n'oserais point tenter de l'ouvrir! »
 
-Wang Lin regarda Tie Yan et hocha la tête. « Mieux vaut ne pas le convoiter, sans quoi tu en subiras les conséquences. Souviens-toi bien de cela ! »
+Wang Lin regarda Tie Yan et hocha la tête. « Mieux vaut ne pas le convoiter, sans quoi tu en subiras les conséquences. Souviens-toi bien de cela! »
 
 Le cœur de Tie Yan trembla et il grava ces mots dans sa mémoire. Il n'oserait jamais braver les paroles de Wang Lin ni douter de sa parole. Ce sentiment l'accompagnerait jusqu'à sa mort.
 
@@ -120,7 +120,7 @@ Tie Yan était trempé de sueur. Il rangea soigneusement le sac de rangement et 
 
 Dans l'extrême nord de la planète Suzaku, là où se trouvait autrefois le pays de Xue Yue, là où les vents glacés pouvaient glacer jusqu'aux os.
 
-On ne savait quand, mais un champ de roses y avait poussé ; cependant, ces roses n'étaient pas rouges, mais blanches.
+On ne savait quand, mais un champ de roses y avait poussé; cependant, ces roses n'étaient pas rouges, mais blanches.
 
 Des étendues de roses blanches fleurissaient dans ce lieu glacial, et leur parfum imprégnait l'atmosphère.
 
@@ -136,7 +136,7 @@ C'était comme si une jeune femme dansait au milieu de la vallée, instillant un
 
 Le jeune homme en blanc se tint silencieusement derrière la rose bleue. Il la contempla longuement avant de s'accroupir pour la cueillir délicatement. Puis, il fit demi-tour et partit...
 
-Alors que le jeune homme s'éloignait, toutes les roses blanches commencèrent à flétrir et à mourir ; c'était comme si elles n'avaient poussé que pour accompagner cette rose bleue.
+Alors que le jeune homme s'éloignait, toutes les roses blanches commencèrent à flétrir et à mourir; c'était comme si elles n'avaient poussé que pour accompagner cette rose bleue.
 
 Une fois la rose bleue emportée, elles perdirent leur raison d'être et ne purent que se disperser...
 
@@ -160,9 +160,9 @@ Après trois jours, le jeune homme finit par bouger. Il s'agenouilla lentement e
 
 À cet instant, une foule immense attendait devant le temple.
 
-Hommes et femmes, jeunes et vieux ; tous portaient des vêtements luxueux et semblaient bénis. On y trouvait même quelques cultivateurs qui, bien que de niveau modeste, dégageaient une aura héroïque.
+Hommes et femmes, jeunes et vieux; tous portaient des vêtements luxueux et semblaient bénis. On y trouvait même quelques cultivateurs qui, bien que de niveau modeste, dégageaient une aura héroïque.
 
-L'homme en tête était Wang Zhuo !
+L'homme en tête était Wang Zhuo!
 
 Un jour auparavant, Wang Zhuo avait senti un appel et s'était rendu ici. En arrivant au temple, il avait perçu la présence de Wang Lin.
 

@@ -16,21 +16,21 @@ Une formation gigantesque s'étendait sous le pavillon, couvrant toute la platef
 
 De loin, cette formation évoquait la fusion du Yin et du Yang, créant un sentiment de chaos en son milieu. Trois auras puissantes s'agitaient également au sein de la formation, semblant vouloir s'en extirper. Ces trois auras formaient trois marques blanches qui se mouvaient à l'intérieur de la formation mais, étrangement, ne se heurtaient jamais.
 
-Actuellement, un homme était assis en position du lotus devant le pavillon des trésors. C'était un homme d'âge moyen vêtu d'une robe noire ; ses sourcils étaient comme des épées, sa peau aussi blanche que le jade et sa barbe, divisée en trois mèches, flottait au vent, lui conférant l'allure d'un être céleste.
+Actuellement, un homme était assis en position du lotus devant le pavillon des trésors. C'était un homme d'âge moyen vêtu d'une robe noire; ses sourcils étaient comme des épées, sa peau aussi blanche que le jade et sa barbe, divisée en trois mèches, flottait au vent, lui conférant l'allure d'un être céleste.
 
-La cultivation de cet homme était totalement dissimulée. À moins d'être un cultivateur de niveau supérieur, il serait très difficile de percer ses secrets. Il restait là, l'expression sereine, comme si rien au monde n'avait d'importance. Pour l'instant, toute son attention était focalisée sur l'objet posé sur ses genoux !
+La culture de cet homme était totalement dissimulée. À moins d'être un cultivateur de niveau supérieur, il serait très difficile de percer ses secrets. Il restait là, l'expression sereine, comme si rien au monde n'avait d'importance. Pour l'instant, toute son attention était focalisée sur l'objet posé sur ses genoux!
 
 Sur les genoux de cet homme reposait une épée de sept pieds de long. L'épée était entièrement verte et émanait une lueur fantomatique. Sous la lumière du soleil, la zone environnante se trouvait baignée par cette clarté verdâtre, peignant tout ce qui l'entourait en vert.
 
 Wang Lin se tenait à plusieurs dizaines de mètres du pavillon des trésors, fixant l'homme assis devant lui.
 
-« La cultivation de cet homme est au sommet du stade avancé de la Formation de l'Âme, mais une intention d'épée très bien dissimulée réside en lui ! »
+« La culture de cet homme est au sommet du stade avancé de la Formation de l'Âme, mais une intention d'épée très bien dissimulée réside en lui! »
 
-L'homme d'âge moyen ouvrit les yeux et vit Wang Lin debout non loin de là. Surpris, il se leva prestement, joignit ses mains et dit respectueusement : « Le disciple Zhang Xiangfan salue le Septième Ancêtre ! » L'épée verte se transforma alors en un rayon de lumière pour disparaître dans son corps.
+L'homme d'âge moyen ouvrit les yeux et vit Wang Lin debout non loin de là. Surpris, il se leva prestement, joignit ses mains et dit respectueusement: « Le disciple Zhang Xiangfan salue le Septième Ancêtre! » L'épée verte se transforma alors en un rayon de lumière pour disparaître dans son corps.
 
-Le regard de Wang Lin se posa sur le front de Zhang Xiangfan, puis il demanda calmement : « Puis-je voir ton épée volante ? »
+Le regard de Wang Lin se posa sur le front de Zhang Xiangfan, puis il demanda calmement: « Puis-je voir ton épée volante? »
 
-Zhang Xiangfan fut déconcerté. Il hocha la tête et répondit : « L'épée volante du disciple n'est qu'un objet ordinaire. Je l'ai acquise dans une boutique à l'extérieur de la secte, elle n'a rien de spécial. Si le Septième Ancêtre souhaite la voir, alors je n'y vois aucun inconvénient. » Sur ces mots, il pointa l'espace entre ses sourcils et poussa un rugissement sourd. Une lumière verte jaillit, prit la forme de l'épée de sept pieds et libéra des ondes d'hymnes d'épée.
+Zhang Xiangfan fut déconcerté. Il hocha la tête et répondit: « L'épée volante du disciple n'est qu'un objet ordinaire. Je l'ai acquise dans une boutique à l'extérieur de la secte, elle n'a rien de spécial. Si le Septième Ancêtre souhaite la voir, alors je n'y vois aucun inconvénient. » Sur ces mots, il pointa l'espace entre ses sourcils et poussa un rugissement sourd. Une lumière verte jaillit, prit la forme de l'épée de sept pieds et libéra des ondes d'hymnes d'épée.
 
 Le regard de Wang Lin resta impassible tandis qu'il tendait la main. Lorsqu'il saisit l'épée verte, il la tira vers lui pour l'examiner attentivement.
 
@@ -40,7 +40,7 @@ Le cœur de Wang Lin se mit à trembler lorsqu'il effleura doucement la lame de 
 
 « Zhou Yi... » pensa Wang Lin.
 
-La trace d'intention d'épée sur cette lame était précisément celle que Zhou Yi dégageait lorsqu'il s'était transformé en esprit d'épée !
+La trace d'intention d'épée sur cette lame était précisément celle que Zhou Yi dégageait lorsqu'il s'était transformé en esprit d'épée!
 
 À l'époque, Zhou Yi avait poursuivi le Saint de l'Épée Ling Tianhou. Plus de cent ans s'étaient écoulés depuis cet événement.
 
@@ -48,21 +48,21 @@ C'était la première fois qu'il ressentait l'intention d'épée de Zhou Yi. S'i
 
 Il n'y avait qu'une infime trace d'intention dans l'épée. Après l'avoir ressentie, Wang Lin réfléchit un instant et frotta la lame volante. L'épée commença soudainement à briller d'un vert éclatant et un rayon de lumière en jaillit. Cette lumière se mua en une étoile verte qui flotta devant Wang Lin.
 
-En contemplant l'étoile, Wang Lin soupira. Il s'en saisit, regarda Zhang Xiangfan qui semblait désemparé, et déclara : « Une trace de l'intention d'épée d'un vieil ami se trouve dans son arme, je la récupère donc. Cependant, je ne te traiterai pas durement. Tiens, prends ce jade. Il contient 18 restrictions ; applique-les sur n'importe quelle épée volante, quelle que soit sa qualité, et leur puissance sera multipliée par plusieurs ! »
+En contemplant l'étoile, Wang Lin soupira. Il s'en saisit, regarda Zhang Xiangfan qui semblait désemparé, et déclara: « Une trace de l'intention d'épée d'un vieil ami se trouve dans son arme, je la récupère donc. Cependant, je ne te traiterai pas durement. Tiens, prends ce jade. Il contient 18 restrictions; applique-les sur n'importe quelle épée volante, quelle que soit sa qualité, et leur puissance sera multipliée par plusieurs! »
 
 Sur ces mots, Wang Lin frappa son sac de rangement. Un morceau de jade apparut dans sa main et il le lança à Zhang Xiangfan.
 
 Quant à l'épée volante verte, Wang Lin la lui rendit également. Bien que Zhang Xiangfan affichât un respect profond, ses yeux trahissaient la douleur d'une perte. Il accepta le jade sans trop d'attentes et l'examina inconsciemment, avant d'être instantanément frappé de stupeur.
 
-Peu après, il leva brusquement la tête et dit respectueusement : « Merci, Septième Ancêtre ! »
+Peu après, il leva brusquement la tête et dit respectueusement: « Merci, Septième Ancêtre! »
 
-Zhang Xiangfan, fort de sa longue expérience de cultivation, comprit immédiatement que ces 18 restrictions n'avaient rien de banal. Il s'agissait de 18 restrictions d'attaque, et le plus rare était qu'elles pouvaient être cumulées. Zhang Xiangfan réprima l'excitation qui bouillonnait en lui. Il aurait voulu se retirer en cultivation fermée dès à présent pour imprimer ces 18 restrictions sur une épée ; alors, il n'aurait plus jamais à craindre de cultivateurs au stade avancé de la Formation de l'Âme !
+Zhang Xiangfan, fort de sa longue expérience de culture, comprit immédiatement que ces 18 restrictions n'avaient rien de banal. Il s'agissait de 18 restrictions d'attaque, et le plus rare était qu'elles pouvaient être cumulées. Zhang Xiangfan réprima l'excitation qui bouillonnait en lui. Il aurait voulu se retirer en culture fermée dès à présent pour imprimer ces 18 restrictions sur une épée; alors, il n'aurait plus jamais à craindre de cultivateurs au stade avancé de la Formation de l'Âme!
 
 Ces 18 restrictions n'étaient que deux groupes de restrictions que Wang Lin avait étudiés à partir du chapeau de paille de Yunque Zi. Cela était loin d'être suffisant pour permettre au drapeau de restrictions d'atteindre le stade suivant.
 
-Wang Lin ne perdit pas de temps et annonça directement : « Je suis venu récupérer mes jades célestes ! »
+Wang Lin ne perdit pas de temps et annonça directement: « Je suis venu récupérer mes jades célestes! »
 
-Zhang Xiangfan hocha promptement la tête : « Septième Ancêtre, vous recevez 100 jades célestes chaque mois. Donnez-moi votre jeton et je vais activer le réseau de transfert pour vous. »
+Zhang Xiangfan hocha promptement la tête: « Septième Ancêtre, vous recevez 100 jades célestes chaque mois. Donnez-moi votre jeton et je vais activer le réseau de transfert pour vous. »
 
 Wang Lin resta silencieux, agita la main et lança le jeton.
 
@@ -76,17 +76,17 @@ Le jeton commença à flotter dans les airs tandis que les trois auras jaillissa
 
 Après quelques respirations, le jeton projeta une puissante lumière pourpre qui illumina les environs. Les trois auras sortirent du jeton et fusionnèrent en une seule. Cette aura combinée vola vers le pavillon des trésors, s'arrêta devant le septième étage et se mua en une gigantesque porte de lumière.
 
-Zhang Xiangfan dit rapidement et avec respect : « Septième Ancêtre, je vous prie d'entrer avec le jeton. »
+Zhang Xiangfan dit rapidement et avec respect: « Septième Ancêtre, je vous prie d'entrer avec le jeton. »
 
 Sans un mot, Wang Lin avança, saisit le jeton et vola directement vers le septième étage.
 
-Cette porte de lumière servait manifestement de réseau de transfert. Au moment où Wang Lin franchit le seuil, sa vision se troubla ; lorsqu'elle redevint claire, il se trouvait dans un monde semblable au royaume céleste.
+Cette porte de lumière servait manifestement de réseau de transfert. Au moment où Wang Lin franchit le seuil, sa vision se troubla; lorsqu'elle redevint claire, il se trouvait dans un monde semblable au royaume céleste.
 
 L'endroit était imprégné du parfum des fleurs, une eau cristalline coulait dans un ruisseau, le ciel était paré de nuages aux sept couleurs et des grues passaient parfois en vol.
 
 À cet instant, les nuages multicolores se rassemblèrent rapidement pour former une silhouette. Wang Lin ne pouvait distinguer les traits de ce visage, mais d'immenses vagues d'énergie spirituelle céleste s'en dégageaient.
 
-« Le jeton ! »
+« Le jeton! »
 
 Une voix majestueuse émana de cette figure gigantesque.
 
@@ -94,19 +94,19 @@ Le regard de Wang Lin resta calme alors qu'il lançait le jeton. Ce dernier vola
 
 Peu après, le géant reprit la parole.
 
-« Le septième disciple de la division pourpre n'a pas retiré de jades célestes depuis 103 ans. Souhaitez-vous tous les récupérer en une seule fois ? »
+« Le septième disciple de la division pourpre n'a pas retiré de jades célestes depuis 103 ans. Souhaitez-vous tous les récupérer en une seule fois? »
 
-Wang Lin fut surpris. Même avec sa force mentale, il ne put s'empêcher d'être ébranlé. Il prit une profonde inspiration et déclara : « Je veux tout retirer ! »
+Wang Lin fut surpris. Même avec sa force mentale, il ne put s'empêcher d'être ébranlé. Il prit une profonde inspiration et déclara: « Je veux tout retirer! »
 
-« Un total de 123 600 pièces ! » Tandis que la voix du géant résonnait, d'innombrables jades célestes jaillirent du corps de la figure pour s'accumuler devant Wang Lin.
+« Un total de 123 600 pièces! » Tandis que la voix du géant résonnait, d'innombrables jades célestes jaillirent du corps de la figure pour s'accumuler devant Wang Lin.
 
 Wang Lin fixa l'amas de jades qui croissait à vue d'œil et sentit sa gorge s'assécher. Il n'aurait jamais imaginé que la Secte du Destin céleste distribue les jades de cette manière.
 
 « Si une place de disciple reste vacante pendant des dizaines de milliers d'années, la quantité de jades accumulée atteindra un niveau inimaginable... Les jades célestes sont censés être rares, alors pourquoi la Secte Céleste en possède-t-elle autant... » Wang Lin prit une grande inspiration. À cet instant, les jades formaient déjà une petite montagne. Ses yeux s'illuminèrent alors qu'il les rangeait rapidement dans son sac de rangement.
 
-Une fois terminé, il toucha son sac ; il avait toujours l'impression que ce n'était pas réel.
+Une fois terminé, il toucha son sac; il avait toujours l'impression que ce n'était pas réel.
 
-Il eut un sourire amer et secoua la tête. Ce n'était donc pas étonnant que l'on le traite de rustre ; ses connaissances étaient encore insuffisantes. Ces quelque 100 000 jades suffisaient déjà à lui faire perdre la raison. Si quelqu'un avait tenté de l'arrêter, peu importe qui il eût été, Wang Lin aurait attaqué sans la moindre hésitation.
+Il eut un sourire amer et secoua la tête. Ce n'était donc pas étonnant que l'on le traite de rustre; ses connaissances étaient encore insuffisantes. Ces quelque 100 000 jades suffisaient déjà à lui faire perdre la raison. Si quelqu'un avait tenté de l'arrêter, peu importe qui il eût été, Wang Lin aurait attaqué sans la moindre hésitation.
 
 Il prit une profonde inspiration et ses yeux retrouvèrent leur clarté. Ce n'est qu'à ce moment-là qu'il se remit du choc provoqué par les jades célestes.
 

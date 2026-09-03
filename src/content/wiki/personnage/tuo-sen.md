@@ -10,34 +10,33 @@ sections: ["{\"heading\":\"Contexte\",\"body\":\"Dans le passé, **Tu Si** prati
 
 ## Description
 
-**Tuo Sen** (托森, *Tuō Sēn*) est un **Dieu Antique** et l'un des principaux antagonistes de Wang Lin pendant la majeure partie de l'œuvre. Tuo Sen et Wang Lin finirent par se réconcilier à la fin.
+**Tuo Sen** (*Tuō Sēn*) est un **Dieu Antique** et l'un des principaux antagonistes de Wang Lin pendant la majeure partie de l'œuvre. Tuo Sen et Wang Lin finirent par se réconcilier à la fin.
 
 ### Fiche signalétique
 
-- **Nom chinois :** 托森
-- **Pinyin :** Tuō Sēn
-- **Alias :** Tu Si (Forme Originelle), Mo Lihai (Marionnette)
-- **Statut vital :** Vivant
-- **Âge :** 100 000+
-- **Genre :** Homme
-- **Espèce :** Dieu Antique
-- **Cheveux :** Rouges
-- **Yeux :** Violet
-- **Corps :** Corps Antique
-- **Lignée :** Clan Antique
-- **Niveau de cultivation :** Dieu Antique 8 Étoiles (sans Héritage de Connaissance, infiniment proche de 9 Étoiles) → Dieu Antique 9 Étoiles
-- **Pouvoir de combat :** Étape initiale du Vide Arcane
-- **Ami :** Wang Lin
-- **Ennemi :** Wang Lin (anciennement)
-- **Alliés :** Magicien Démon Céleste, Seigneur Démon Six Désirs, Bossu Meng, Duanmu Ji, Wang Qingyue, Gun Lan (toutes marionnettes)
-- **Occupation :** Souverain de la Terre du Dieu Antique
-- **Système stellaire :** Système Stellaire de l'Alliance
-- **Royaume :** Royaume Scellé
-- **Monde :** Monde de la Grotte de Wang Lin
-- **Planète :** Planète Suzaku
-- **Continent :** Mer des Démons
-- **Région :** Étoiles Brisées Chaotiques
-- **Première apparition :** Chapitre ~400 (Tome 3)
+- **Pinyin:** Tuō Sēn
+- **Alias:** Tu Si (Forme Originelle), Mo Lihai (Marionnette)
+- **Statut vital:** Vivant
+- **Âge:** 100 000+
+- **Genre:** Homme
+- **Espèce:** Dieu Antique
+- **Cheveux:** Rouges
+- **Yeux:** Violet
+- **Corps:** Corps Antique
+- **Lignée:** Clan Antique
+- **Niveau de cultivation:** Dieu Antique 8 Étoiles (sans Héritage de Connaissance, infiniment proche de 9 Étoiles) → Dieu Antique 9 Étoiles
+- **Pouvoir de combat:** Étape initiale du Vide Arcane
+- **Ami:** Wang Lin
+- **Ennemi:** Wang Lin (anciennement)
+- **Alliés:** Magicien Démon Céleste, Seigneur Démon Six Désirs, Bossu Meng, Duanmu Ji, Wang Qingyue, Gun Lan (toutes marionnettes)
+- **Occupation:** Souverain de la Terre du Dieu Antique
+- **Système stellaire:** Système Stellaire de l'Alliance
+- **Royaume:** Royaume Scellé
+- **Monde:** Monde de la Grotte de Wang Lin
+- **Planète:** Planète Suzaku
+- **Continent:** Mer des Démons
+- **Région:** Étoiles Brisées Chaotiques
+- **Première apparition:** Chapitre ~400 (Tome 3)
 
 ## Citation célèbre
 

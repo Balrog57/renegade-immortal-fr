@@ -10,7 +10,7 @@ slug: larc-en-ciel-sous-la-pluie
 
 « Le choix du Fou n'était peut-être pas celui de la réincarnation, mais Zhou Ru et Situ, eux, l'ont choisie... Ils n'ont pas choisi de vivre, car ils avaient choisi de s'intégrer à cette vie. Ils avaient trop de liens auxquels ils ne voulaient renoncer.
 
-« Zhou Ru ne pouvait abandonner ses parents et son affection dans cette existence. Situ ne pouvait abandonner la vie des soldats qui le suivaient. Une réincarnation est une vie entière, et l'on possède tant d'attaches au cours d'une vie. Comment pourrait-on tout trancher si facilement ?
+« Zhou Ru ne pouvait abandonner ses parents et son affection dans cette existence. Situ ne pouvait abandonner la vie des soldats qui le suivaient. Une réincarnation est une vie entière, et l'on possède tant d'attaches au cours d'une vie. Comment pourrait-on tout trancher si facilement?
 
 « C'est là le pouvoir de la réincarnation... Elle peut rendre quelqu'un incapable de se libérer, ou lui ôter toute volonté de le faire. » Une confusion régnait dans les yeux de Wang Lin, mais il semblait puiser une plus grande illumination au cœur même de ce trouble.
 
@@ -28,9 +28,9 @@ L'antre était d'un luxe extrême, éclairé par d'innombrables perles de nuit q
 
 À cet instant, un cultivateur était assis dans la pièce principale de la grotte.
 
-Ce dernier ne paraissait pas vieux, mais son corps était aussi menu qu'un nain. Sa tête était disproportionnée ; comparée à celle-ci, son petit corps semblait hors de propos.
+Ce dernier ne paraissait pas vieux, mais son corps était aussi menu qu'un nain. Sa tête était disproportionnée; comparée à celle-ci, son petit corps semblait hors de propos.
 
-Ce cultivateur à la grosse tête était d'un tempérament morose, et au fur et à mesure qu'il pratiquait sa cultivation, toute la grotte se glaçait.
+Ce cultivateur à la grosse tête était d'un tempérament morose, et au fur et à mesure qu'il pratiquait sa culture, toute la grotte se glaçait.
 
 « Grosse Tête... » Tandis que le cultivateur méditait, une voix surgit soudainement et résonna dans la froide caverne.
 
@@ -38,21 +38,21 @@ Le cœur du cultivateur tressaillit et il ouvrit brusquement les yeux. Sans hés
 
 Wang Lin afficha une expression étrange. La lumière verte était en réalité un mille-pattes qui se précipitait vers lui, gueule ouverte. Wang Lin pointa du doigt le mille-pattes, et celui-ci se figea instantanément dans les airs.
 
-Le cultivateur à la grosse tête fut stupéfait. Ce mille-pattes avait été raffiné dans son âme originelle ; il pouvait donc tenir tête à quelqu'un de plus fort que lui. Cela aurait dû lui donner le temps de s'échapper ou de lancer une nouvelle attaque.
+Le cultivateur à la grosse tête fut stupéfait. Ce mille-pattes avait été raffiné dans son âme originelle; il pouvait donc tenir tête à quelqu'un de plus fort que lui. Cela aurait dû lui donner le temps de s'échapper ou de lancer une nouvelle attaque.
 
 Pourtant, il venait d'être si facilement immobilisé par l'inconnu devant lui. Il ne parvint même pas à identifier quel sort avait été utilisé.
 
-« Ma Tao, comptes-tu me tuer ?! » rugit Grosse Tête. Son corps s'agita et une épaisse brume se répandit autour de lui. Il tentait de prendre la fuite.
+« Ma Tao, comptes-tu me tuer?! » rugit Grosse Tête. Son corps s'agita et une épaisse brume se répandit autour de lui. Il tentait de prendre la fuite.
 
-« Ma Tao ? » Wang Lin fut surpris et pointa le brouillard. Un rayon de lumière perça la brume et frappa entre les sourcils du cultivateur alors qu'il s'enfuyait.
+« Ma Tao? » Wang Lin fut surpris et pointa le brouillard. Un rayon de lumière perça la brume et frappa entre les sourcils du cultivateur alors qu'il s'enfuyait.
 
 Le corps de Grosse Tête trembla et la confusion se lut dans ses yeux. Divers souvenirs affluèrent dans son esprit. Simultanément, Wang Lin tendit la main, et la puissance du monde environnant se condensa pour former une petite épée.
 
-Cette lame, forgée par les forces de l'univers et créée grâce au sort de foi de Wang Lin, était un trésor absolu !
+Cette lame, forgée par les forces de l'univers et créée grâce au sort de foi de Wang Lin, était un trésor absolu!
 
-D'un geste, la petite épée fendit le brouillard et se planta dans la paroi. Au cœur de la brume, Grosse Tête retrouvait peu à peu la mémoire. Un léger sourire apparut sur les lèvres de Wang Lin ; d'un revers de manche, il rassembla l'énergie du monde pour transformer une grande quantité de pilules en une calebasse. Il la déposa au sol avant de partir.
+D'un geste, la petite épée fendit le brouillard et se planta dans la paroi. Au cœur de la brume, Grosse Tête retrouvait peu à peu la mémoire. Un léger sourire apparut sur les lèvres de Wang Lin; d'un revers de manche, il rassembla l'énergie du monde pour transformer une grande quantité de pilules en une calebasse. Il la déposa au sol avant de partir.
 
-Longtemps après, la brume se dissipa et Grosse Tête sortit, l'expression complexe et l'esprit embrumé. Il resta assis là, contemplant la grotte vide pendant un long moment, avant de lever les yeux et de murmurer :
+Longtemps après, la brume se dissipa et Grosse Tête sortit, l'expression complexe et l'esprit embrumé. Il resta assis là, contemplant la grotte vide pendant un long moment, avant de lever les yeux et de murmurer:
 
 « Maître... » Il vit l'épée qui l'avait terrifié et la calebasse remplie de pilules. Des larmes coulèrent sur ses joues.
 
@@ -66,11 +66,11 @@ Les cultivateurs restèrent perplexes un instant, puis, après avoir débattu, i
 
 Continent Est, dans le continent Nan Ni, Wang Lin passa brièvement près d'une petite secte. Elle ne comptait pas beaucoup de cultivateurs, environ mille âmes seulement. L'emplacement de la secte n'était guère propice et l'énergie spirituelle y était peu dense.
 
-Depuis que l'édit des Grands Empyrées avait annoncé l'ouverture du Royaume Divin Immémorial, des courants sous-jacents agitaient le continent. Cela signifiait que les petites sectes ne pouvaient plus vivre en paix et devaient désormais s'en remettre aux grandes puissances pour survivre.
+Depuis que l'édit des Grands Empereurs avait annoncé l'ouverture du Royaume Divin Immémorial, des courants sous-jacents agitaient le continent. Cela signifiait que les petites sectes ne pouvaient plus vivre en paix et devaient désormais s'en remettre aux grandes puissances pour survivre.
 
 La guerre était imminente, et une modeste secte comme celle-ci aurait du mal à subsister dans l'affrontement entre les Anciens et les Célestes.
 
-Shen Bao était le maître de cette secte, et sa cultivation était extraordinaire. Il était rongé par l'anxiété, ignorant ce que l'avenir lui réservait ou si sa secte existerait encore après la guerre dans quelques siècles.
+Shen Bao était le maître de cette secte, et sa culture était extraordinaire. Il était rongé par l'anxiété, ignorant ce que l'avenir lui réservait ou si sa secte existerait encore après la guerre dans quelques siècles.
 
 Il avait déployé des efforts colossaux pour atteindre son rang de maître de secte. Il ne voulait pas renoncer à tout cela, mais aujourd'hui, la seule issue consistait à se soumettre à une puissance supérieure.
 
@@ -88,7 +88,7 @@ Quoi qu'il advienne, Wang Lin laissait toujours derrière lui de quoi les proté
 
 La Secte Soleil et Lune était la plus puissante du continent Tian Fang. Elle comptait plus de 100 000 membres et figurait parmi les neuf sectes et treize factions du Continent Est.
 
-Le nombre de génies y était immense, mais aucun ne pouvait égaler une femme nommée Qing Hong. Son talent était si rare qu'on ne le croisait qu'une fois tous les dix mille ans !
+Le nombre de génies y était immense, mais aucun ne pouvait égaler une femme nommée Qing Hong. Son talent était si rare qu'on ne le croisait qu'une fois tous les dix mille ans!
 
 Il y a des centaines d'années, elle était devenue disciple de la Secte Soleil et Lune. En moins de mille ans, elle avait atteint la troisième étape pour atteindre le sommet du Nirvana Vide, n'étant plus qu'à un pas du Vide Spirituel.
 

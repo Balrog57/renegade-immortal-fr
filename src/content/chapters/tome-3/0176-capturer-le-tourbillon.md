@@ -12,7 +12,7 @@ Le corps de Wang Lin se mua en un nuage de fumée alors qu'il s'échappait prest
 
 Wang Lin eut un ricanement méprisant. Ses yeux demeuraient parfaitement calmes, sans la moindre trace de panique. Alors que le groupe de tornades se rapprochait, l'une d'elles accéléra soudainement pour se placer aux côtés de Wang Lin. Elle l'enveloppa et s'élança rapidement hors de l'encerclement.
 
-Tout cela se passa trop vite pour que les autres tornades puissent réagir ; et même si elles l'avaient pu, elles n'auraient pas été assez intelligentes pour comprendre le stratagème.
+Tout cela se passa trop vite pour que les autres tornades puissent réagir; et même si elles l'avaient pu, elles n'auraient pas été assez intelligentes pour comprendre le stratagème.
 
 Wang Lin resta au cœur de la tornade et fonça vers le vortex de la seconde épreuve. Au moment où il s'extirpa du tourbillon, il ordonna secrètement au second démon de prendre le contrôle d'une autre tornade.
 
@@ -22,7 +22,7 @@ La créature royale balaya les environs du regard avant de se poser dans la torn
 
 Quant à la tornade royale, elle arborait une étrange expression sur son visage tandis qu'elle transportait Hunchback Meng et disparaissait lentement dans la direction opposée.
 
-La différence entre les tornades était considérable ; elle dépendait du nombre de petites créatures qu'elles contenaient. Plus leur nombre était élevé, plus la tornade allait vite. En conséquence, les tourbillons formèrent une ligne en poursuivant Wang Lin. La tornade que contrôlait Wang Lin possédait un nombre décent de petites créatures, sa vitesse n'était donc pas lente non plus.
+La différence entre les tornades était considérable; elle dépendait du nombre de petites créatures qu'elles contenaient. Plus leur nombre était élevé, plus la tornade allait vite. En conséquence, les tourbillons formèrent une ligne en poursuivant Wang Lin. La tornade que contrôlait Wang Lin possédait un nombre décent de petites créatures, sa vitesse n'était donc pas lente non plus.
 
 Bien que les tornades le traquent, Wang Lin n'avait aucune crainte. Au lieu de cela, il calcula la vitesse de ces tourbillons avant de se retourner pour observer les plus proches. Il ouvrit la bouche et cracha une lueur cristalline. L'épée volante se téléporta instantanément vers les tornades qu'il avait ciblées.
 
@@ -32,7 +32,7 @@ Grâce à la présence du Sens Divin du Royaume Ji et au tranchant de l'épée v
 
 Wang Lin ne marqua pas de pause. Sa main pointa rapidement et un rayon de lumière jaillit entre les tourbillons. Soudain, la majorité des grandes tornades que Wang Lin surveillait s'effondrèrent.
 
-À ce moment-là, il vit les sens divins derrière lui commencer à fusionner ; il agita donc la main et l'épée cristalline revint vers lui en un éclair. Ce n'était pas que Wang Lin refusait le combat, mais ces petites créatures étaient désormais sur leurs gardes. Il avait réussi à les prendre par surprise auparavant, mais s'il continuait, l'épée volante serait bloquée par les sens divins fusionnés lorsqu'elle approcherait d'une tornade.
+À ce moment-là, il vit les sens divins derrière lui commencer à fusionner; il agita donc la main et l'épée cristalline revint vers lui en un éclair. Ce n'était pas que Wang Lin refusait le combat, mais ces petites créatures étaient désormais sur leurs gardes. Il avait réussi à les prendre par surprise auparavant, mais s'il continuait, l'épée volante serait bloquée par les sens divins fusionnés lorsqu'elle approcherait d'une tornade.
 
 Il ne voulait pas finir comme Hunchback Meng, à se battre jusqu'à ce que son trésor vital se brise en deux.
 
@@ -48,7 +48,7 @@ Alors que le grand vortex céleste apparut à la vue de Wang Lin, ses yeux se mi
 
 Même maintenant, s'il renonçait à se cacher dans la tornade et qu'il chargeait de toutes ses forces, il aurait 80 % de chances de réussir, mais ce n'était pas ce que Wang Lin prévoyait de faire.
 
-Il ignorait quels dangers l'attendaient dans la seconde épreuve. Il était fort peu probable qu'il ait la chance de voir quelqu'un lui ouvrir le passage comme ce fut le cas ici lors de la première épreuve ; il ne devait donc pas charger avec imprudence.
+Il ignorait quels dangers l'attendaient dans la seconde épreuve. Il était fort peu probable qu'il ait la chance de voir quelqu'un lui ouvrir le passage comme ce fut le cas ici lors de la première épreuve; il ne devait donc pas charger avec imprudence.
 
 Par conséquent, le toujours prudent Wang Lin tourna son attention vers les tornades derrière lui. Son plan consistait à emporter quelques-unes de ces tornades avec lui dans la seconde épreuve. De cette façon, il disposerait de moyens de défense pour la suite.
 
@@ -70,7 +70,7 @@ Au moment où Wang Lin quitta sa tornade, toutes les petites créatures, à l'ex
 
 À cet instant, le corps de Wang Lin était déjà à l'intérieur du vortex. Les tornades qui le poursuivaient étaient également entrées dans le vortex. Elles s'arrêtèrent soudainement, et certaines, à l'arrière du groupe, étaient sur le point de battre en retraite.
 
-Cependant, comment Wang Lin pouvait-il les laisser agir à leur guise ? Il regarda les quelque 40 tornades qui le traquaient et cria : « Restez là pour moi ! »
+Cependant, comment Wang Lin pouvait-il les laisser agir à leur guise? Il regarda les quelque 40 tornades qui le traquaient et cria: « Restez là pour moi! »
 
 Tout en parlant, il injecta de l'énergie spirituelle dans l'objet qu'il avait sorti de son sac durant le premier souffle. Soudain, un anneau de lumière s'étendit et enveloppa toutes les tornades.
 
@@ -92,7 +92,7 @@ Wang Lin rétracta son Sens Divin et regarda en arrière. La formation du dragon
 
 Simultanément, Wang Lin pointa son front. Le second démon apparut rapidement et lança un rugissement de défi vers ces tornades.
 
-Toutes les tornades s'arrêtèrent net. Une des petites créatures jaillit de l'un des tourbillons et percuta le second démon. Wang Lin observa la scène avec calme. Cela faisait partie de son plan. S'il n'avait pas laissé le second démon défier les autres lors de la première épreuve, c'est parce qu'il y avait tout simplement trop de tornades en poursuite pour pouvoir s'arrêter ; dès que le second démon aurait commencé à les provoquer, cela aurait attiré encore plus de tourbillons. Si le second démon échouait, Wang Lin se serait retrouvé sans aucun moyen de fuite.
+Toutes les tornades s'arrêtèrent net. Une des petites créatures jaillit de l'un des tourbillons et percuta le second démon. Wang Lin observa la scène avec calme. Cela faisait partie de son plan. S'il n'avait pas laissé le second démon défier les autres lors de la première épreuve, c'est parce qu'il y avait tout simplement trop de tornades en poursuite pour pouvoir s'arrêter; dès que le second démon aurait commencé à les provoquer, cela aurait attiré encore plus de tourbillons. Si le second démon échouait, Wang Lin se serait retrouvé sans aucun moyen de fuite.
 
 Mais maintenant qu'il n'y avait plus que ces 40 tornades, la situation était radicalement différente.
 

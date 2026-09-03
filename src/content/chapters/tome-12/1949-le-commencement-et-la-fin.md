@@ -10,7 +10,7 @@ Alors que la voix résonnait dans l'esprit de Wang Lin, la lumière qu'il percev
 
 Une compréhension de l'absolu commencement émergea progressivement tandis que Wang Lin était baigné par cette lumière.
 
-Il ne s'agissait pas d'une transmission, mais d'une manifestation de l'essence complète de l'absolu commencement devant Wang Lin. La mesure de ce qu'un individu pouvait appréhender n'avait rien à voir avec le Bassin Dong Lin ; tout dépendait de la capacité de chacun.
+Il ne s'agissait pas d'une transmission, mais d'une manifestation de l'essence complète de l'absolu commencement devant Wang Lin. La mesure de ce qu'un individu pouvait appréhender n'avait rien à voir avec le Bassin Dong Lin; tout dépendait de la capacité de chacun.
 
 Peut-être que certains percevraient la lumière dès la première fois et obtiendraient une compréhension de l'absolu commencement. Peut-être qu'après leur départ, une graine de l'absolu commencement germerait dans leur cœur.
 
@@ -38,9 +38,9 @@ Il s'immergea et utilisa le Dao de la tromperie pour échapper à l'inspection d
 
 « Cette essence de l'absolu commencement était la source de toute chaleur issue de la lumière... » Wang Lin était transporté par cette voix, et il voyait clairement la lumière de son œil gauche l'envelopper totalement. Dans cette clarté, c'était comme s'il contemplait des centaines de millions de levers de soleil.
 
-À travers ces millions d'aurores, Wang Lin ressentit une aura. Cette aura était une existence pure, directe et juste !
+À travers ces millions d'aurores, Wang Lin ressentit une aura. Cette aura était une existence pure, directe et juste!
 
-Ceux qui étaient imprégnés par cette aura devaient être des êtres de droiture. Ils ne portaient peut-être pas le poids du monde sur leurs épaules, mais ils étaient des êtres capables d'assumer chacune de leurs décisions !
+Ceux qui étaient imprégnés par cette aura devaient être des êtres de droiture. Ils ne portaient peut-être pas le poids du monde sur leurs épaules, mais ils étaient des êtres capables d'assumer chacune de leurs décisions!
 
 Après un long moment, Wang Lin ouvrit les yeux à l'issue de sa cinquième compréhension. La lumière dans son œil gauche persista durant plusieurs respirations avant de se dissiper lentement.
 
@@ -54,11 +54,11 @@ Dans l'œil gauche de Wang Lin, sous l'éclat de la lumière, les contours d'un 
 
 Le temps passa. Wang Lin restait immergé dans le Bassin Dong Lin, et à mesure que les jours défilaient, la durée de ses immersions augmentait considérablement.
 
-Le deuxième jour, juste avant l'aube, alors que le ciel était encore plongé dans l'obscurité, Wang Lin ouvrit les yeux au fond du bassin. Son œil gauche libéra une lumière infinie et un soleil apparut en son sein !
+Le deuxième jour, juste avant l'aube, alors que le ciel était encore plongé dans l'obscurité, Wang Lin ouvrit les yeux au fond du bassin. Son œil gauche libéra une lumière infinie et un soleil apparut en son sein!
 
-Le ciel était normalement sombre et le soleil n'était pas encore venu ; il aurait fallu attendre encore un peu. Pourtant, dès que les yeux de Wang Lin s'ouvrirent, la lumière de son œil gauche jaillit. C'était comme si Wang Lin avait supplanté le soleil, dissipant l'obscurité du monde avec une demi-heure d'avance.
+Le ciel était normalement sombre et le soleil n'était pas encore venu; il aurait fallu attendre encore un peu. Pourtant, dès que les yeux de Wang Lin s'ouvrirent, la lumière de son œil gauche jaillit. C'était comme si Wang Lin avait supplanté le soleil, dissipant l'obscurité du monde avec une demi-heure d'avance.
 
-« Comprendre l'essence de l'absolu commencement permet de contrôler le lever du soleil et d'inverser la nuit et le jour ! Sundered Night n'était qu'un sort auparavant, mais désormais, après avoir compris l'absolu commencement, elle peut remplacer le soleil ! » grommela Wang Lin alors que la lumière de son œil gauche enveloppait tout son corps.
+« Comprendre l'essence de l'absolu commencement permet de contrôler le lever du soleil et d'inverser la nuit et le jour! Sundered Night n'était qu'un sort auparavant, mais désormais, après avoir compris l'absolu commencement, elle peut remplacer le soleil! » grommela Wang Lin alors que la lumière de son œil gauche enveloppait tout son corps.
 
 Liu Jinbiao et le dragon marin s'étaient retirés depuis longtemps, n'osant s'approcher. Wang Lin, drapé dans une lumière aussi vive qu'un lever de soleil, s'éleva vers les cieux.
 

@@ -10,15 +10,15 @@ Chaque fois qu'il voyait quelqu'un mourir de froid, la douleur qui lui transper�
 
 Il craignait que son épouse ne finisse par le quitter si elle ne pouvait supporter ces conditions de vie infernales.
 
-En plus de sa femme, il s'inquiétait pour Wang Lin. Dans son esprit, l'oncle Wang était déjà vieux. Son corps tiendrait-il le coup face à ce froid glacial ?
+En plus de sa femme, il s'inquiétait pour Wang Lin. Dans son esprit, l'oncle Wang était déjà vieux. Son corps tiendrait-il le coup face à ce froid glacial?
 
-Il avait déjà perdu ses parents ; il ne voulait pas que l'oncle Wang le quitte lui aussi.
+Il avait déjà perdu ses parents; il ne voulait pas que l'oncle Wang le quitte lui aussi.
 
 Le fils de Da Niu, Ceng Xiaoniu, venait tout juste d'intégrer la Secte Nuage Blanc et n'était qu'au stade de la Condensation de Qi. Bien que son statut fût bien supérieur à celui des mortels, avec un tel niveau, il était impuissant dans cette guerre.
 
 Par conséquent, malgré ses efforts pour retrouver ses parents, l'Alliance des Quatre Sectes était trop vaste. Presque tous les mortels avaient été déplacés pour déblayer la neige et étaient dispersés aux quatre coins du pays.
 
-À moins de posséder un niveau de cultivation extrêmement élevé, il n'y avait aucun moyen de retrouver ses parents.
+À moins de posséder un niveau de culture extrêmement élevé, il n'y avait aucun moyen de retrouver ses parents.
 
 Da Niu avait perdu le compte des jours où cette neige tombait sans relâche. Chaque matin, il se réveillait pour découvrir, à ses côtés, un nouveau cadavre figé par le gel.
 
@@ -34,7 +34,7 @@ Les flocons dans le ciel s'amenuisaient, mais la chute ne cessait jamais.
 
 Durant ces jours sombres, de nombreux mortels tentaient de s'enfuir en secret vers les pays voisins. Même s'ils devaient tout abandonner, ils espéraient au moins y trouver un semblant de vie.
 
-On racontait que dans les pays adjacents, les nuages n'existaient pas. C'était là-bas que régnait le véritable printemps ; tout y était normal et le soleil y brillait de mille feux.
+On racontait que dans les pays adjacents, les nuages n'existaient pas. C'était là-bas que régnait le véritable printemps; tout y était normal et le soleil y brillait de mille feux.
 
 Le matin, Da Niu fut le premier à s'éveiller. Il se leva de son lit. Derrière lui dormait le second fils d'un marchand de la même rue. Ce jeune homme était un travailleur acharné qui collaborait souvent avec Da Niu.
 
@@ -46,21 +46,21 @@ Il regrettait sa maison, sa femme, son fils, l'oncle Wang, sa boutique et la cha
 
 À ce moment-là, un autre occupant se leva et fixa Da Niu. Il remarqua aussitôt que, durant la nuit, cinq personnes avaient péri de froid dans cette pièce.
 
-Un silence pesant s'installa alors que chacun sombrait dans ses pensées. Après un long moment, un cri retentit à l'extérieur de la maison : « Tout le monde, sortez immédiatement ! Quiconque traîne sera jeté dans la neige pour y mourir de froid ! »
+Un silence pesant s'installa alors que chacun sombrait dans ses pensées. Après un long moment, un cri retentit à l'extérieur de la maison: « Tout le monde, sortez immédiatement! Quiconque traîne sera jeté dans la neige pour y mourir de froid! »
 
 Un soupir collectif s'éleva et tous sortirent lentement. Leurs regards étaient vides et leurs visages blafards. Ces derniers mois passés à déblayer la neige avaient fini par les épuiser. Au début, les provisions étaient suffisantes, mais désormais, elles se raréfiaient, au point qu'ils ne pouvaient plus soutenir l'effort de travail.
 
-Da Niu pleurait encore à terre. Un homme d'âge moyen, qui était un ami proche, le releva et lui dit : « Da Niu, allons-y. Tant que nous sommes en vie, l'espoir demeure. »
+Da Niu pleurait encore à terre. Un homme d'âge moyen, qui était un ami proche, le releva et lui dit: « Da Niu, allons-y. Tant que nous sommes en vie, l'espoir demeure. »
 
 Tandis qu'il se faisait aider, Da Niu jeta un dernier regard vers le garçon qui gisait là, immobile, et ses larmes coulèrent de nouveau.
 
 En sortant de la pièce, le vent glacial le frappa et le fit frissonner, mais une chaleur émana rapidement de la petite sculpture autour de son cou.
 
-Il pressa sa main contre sa poitrine en regardant les gens sortir par la porte. Il serra les dents et prit une décision : il allait retrouver sa femme et quitter ce pays. Une fois que cette neige cesserait enfin, il reviendrait.
+Il pressa sa main contre sa poitrine en regardant les gens sortir par la porte. Il serra les dents et prit une décision: il allait retrouver sa femme et quitter ce pays. Une fois que cette neige cesserait enfin, il reviendrait.
 
 Tard dans la nuit, alors que tout le monde s'était endormi, il quitta secrètement la maison. Le vent glacé le faisait trembler, mais il s'enfonça malgré tout dans la neige.
 
-Des troupes militaires encadraient la zone, mais elles ne pouvaient pas empêcher indéfiniment les gens de fuir. Dans cette région, ils avaient au moins une chance de survivre ; partir revenait sans doute à courir vers la mort.
+Des troupes militaires encadraient la zone, mais elles ne pouvaient pas empêcher indéfiniment les gens de fuir. Dans cette région, ils avaient au moins une chance de survivre; partir revenait sans doute à courir vers la mort.
 
 Au début, les soldats les interceptaient, mais avec le temps, ils finirent par abandonner. Après tout, si quelqu'un cherche la mort, nul ne peut vraiment l'en empêcher.
 
@@ -84,7 +84,7 @@ Mais l'apparence actuelle de cet homme était radicalement différente du vieill
 
 Le Wang Lin d'alors ressemblait trait pour trait à celui qu'il voyait maintenant.
 
-« Oncle Wang... » murmura Da Niu. Il réfléchit un instant, comprenant que l'oncle qui l'avait vu grandir n'était pas un homme ordinaire. Après un silence, il demanda : « Vous... vous êtes un immortel ? »
+« Oncle Wang... » murmura Da Niu. Il réfléchit un instant, comprenant que l'oncle qui l'avait vu grandir n'était pas un homme ordinaire. Après un silence, il demanda: « Vous... vous êtes un immortel? »
 
 Wang Lin observa les environs. Enfin, il tourna son regard vers Da Niu, hocha la tête et sourit. « Ce n'est rien. L'oncle Wang est là, alors ne crains rien. Allons chercher ta femme. »
 
@@ -94,11 +94,11 @@ Wang Lin soupira et posa un doigt sur le front de Da Niu. Ce dernier ressentit u
 
 Wang Lin fit un geste de la main droite. Une douce lumière enveloppa Da Niu, et Wang Lin s'envola avec lui.
 
-À 30 000 kilomètres de là, dans une autre demeure remplie de mortels déblayant la neige, Wang Lin trouva l'épouse de Da Niu. Lorsqu'il leur avait donné les sculptures, il y avait laissé une trace de son Sens Divin afin de pouvoir les secourir en cas de péril.
+À 15 000 kilomètres de là, dans une autre demeure remplie de mortels déblayant la neige, Wang Lin trouva l'épouse de Da Niu. Lorsqu'il leur avait donné les sculptures, il y avait laissé une trace de son Sens Divin afin de pouvoir les secourir en cas de péril.
 
-Cette relation était une graine qu'il avait plantée avec Da Niu trente ans auparavant ; il lui fallait maintenant les sauver pour récolter le fruit.
+Cette relation était une graine qu'il avait plantée avec Da Niu trente ans auparavant; il lui fallait maintenant les sauver pour récolter le fruit.
 
-Wang Lin se déplaça avec célérité, portant le couple, et atteignit la frontière. Deux barrières de lumière bloquaient le passage : l'une appartenait à l'Alliance des Quatre Sectes, l'autre au territoire d'en face.
+Wang Lin se déplaça avec célérité, portant le couple, et atteignit la frontière. Deux barrières de lumière bloquaient le passage: l'une appartenait à l'Alliance des Quatre Sectes, l'autre au territoire d'en face.
 
 Wang Lin déposa le couple et posa sa main sur la barrière lumineuse. Il y injecta son énergie spirituelle, ouvrant ainsi un tunnel permettant de passer.
 
@@ -108,12 +108,12 @@ Quelque temps plus tard, Da Niu ouvrit les yeux. Il eut l'impression d'avoir sim
 
 Il poussa un soupir, puis regarda soudain la femme à ses côtés et poussa un cri. Il se redressa précipitamment pour la secouer. La femme se réveilla et fixa Da Niu avec étonnement. Après un instant, les deux s'étreignirent en pleurant.
 
-Après avoir cessé de sangloter, l'épouse de Da Niu demanda : « Da Niu, pourquoi sommes-nous ici ? Je me souviens qu'au moment où je m'endormais, j'étais encore dans la maison. »
+Après avoir cessé de sangloter, l'épouse de Da Niu demanda: « Da Niu, pourquoi sommes-nous ici? Je me souviens qu'au moment où je m'endormais, j'étais encore dans la maison. »
 
 Da Niu resta silencieux, le regard perdu vers le ciel. Après un long moment, il soupira. Il savait que ce qui venait de se produire n'était pas un rêve, mais la réalité. Sans un mot, il serra simplement sa femme contre lui avant de porter son regard vers le tunnel et le paquet posé au sol.
 
-En ouvrant le paquet, il y découvrit une grande quantité d'or. Lui et sa femme se prosternèrent tous deux en direction de la capitale tandis qu'il murmurait : « Oncle Wang... merci... »
+En ouvrant le paquet, il y découvrit une grande quantité d'or. Lui et sa femme se prosternèrent tous deux en direction de la capitale tandis qu'il murmurait: « Oncle Wang... merci... »
 
 Il ramassa le paquet et entraîna sa femme à travers le tunnel. Peu après que Da Niu eut quitté l'Alliance des Quatre Sectes, Wang Lin apparut à l'endroit même où ils s'étaient prosternés. En regardant les silhouettes de Da Niu et de son épouse s'éloigner, ses yeux se remplirent de larmes.
 
-Grâce à son Sens Divin, il savait qu'une petite ville se trouvait non loin de là ; il leur suffisait de suivre la route principale pour l'atteindre. Da Niu passa le reste de sa vie là-bas. Jusqu'à son dernier souffle, il ne put oublier l'oncle Wang qui l'avait vu grandir. Hélas, il n'eut jamais la chance de revoir Wang Lin.
+Grâce à son Sens Divin, il savait qu'une petite ville se trouvait non loin de là; il leur suffisait de suivre la route principale pour l'atteindre. Da Niu passa le reste de sa vie là-bas. Jusqu'à son dernier souffle, il ne put oublier l'oncle Wang qui l'avait vu grandir. Hélas, il n'eut jamais la chance de revoir Wang Lin.

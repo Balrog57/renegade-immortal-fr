@@ -4,27 +4,26 @@ title: Er Gen
 type: auteur
 categories: ["Auteur", "Écrivain", "Xianxia"]
 url: "https://xian-ni.fandom.com/wiki/Er_Gen"
-sections: ["{\"heading\":\"Biographie\",\"body\":\"Er Gen (耳根), de son vrai nom Liu Yong (刘勇), est un auteur chinois de xianxia né à Mudanjiang, dans la province du Heilongjiang. Il est l'un des auteurs les plus populaires du genre xianxia sur la plateforme Qidian, où il est classé comme Auteur Platine.\"}"]
+sections: ["{\"heading\":\"Biographie\",\"body\":\"Er Gen, de son vrai nom Liu Yong, est un auteur chinois de xianxia né à Mudanjiang, dans la province du Heilongjiang. Il est l'un des auteurs les plus populaires du genre xianxia sur la plateforme Qidian, où il est classé comme Auteur Platine.\"}"]
 ---
 
-**Er Gen** (耳根), de son vrai nom **Liu Yong** (刘勇), est l'auteur de *Renegade Immortal* (仙逆). Il est considéré comme l'un des écrivains les plus influents du genre xianxia, membre de la Neuvième Assemblée Nationale de l'Association des Écrivains de Chine.
+**Er Gen**, de son vrai nom **Liu Yong**, est l'auteur de *Renegade Immortal*. Il est considéré comme l'un des écrivains les plus influents du genre xianxia, membre de la Neuvième Assemblée Nationale de l'Association des Écrivains de Chine.
 
 ### Fiche signalétique
 
-- **Nom chinois :** 耳根
-- **Vrai nom :** Liu Yong (刘勇)
-- **Lieu de naissance :** Mudanjiang, Heilongjiang, Chine
-- **Profession :** Auteur — Auteur Platine de Qidian
-- **Genre :** Xianxia, Fantasy de cultivation
-- **Plateforme :** Qidian (起点中文网)
-- **Œuvre phare :** *Renegade Immortal* (仙逆, 2009-2012)
-- **Membre :** Association des Écrivains de Chine
+- **Vrai nom:** Liu Yong 
+- **Lieu de naissance:** Mudanjiang, Heilongjiang, Chine
+- **Profession:** Auteur — Auteur Platine de Qidian
+- **Genre:** Xianxia, Fantasy de cultivation
+- **Plateforme:** Qidian 
+- **Œuvre phare:** *Renegade Immortal* (2009-2012)
+- **Membre:** Association des Écrivains de Chine
 
 ---
 
 ## Biographie
 
-Er Gen (耳根), de son vrai nom Liu Yong, est un auteur chinois de romans web de xianxia originaire de Mudanjiang, dans la province du Heilongjiang. Il est un Auteur Platine de Qidian, la plus haute distinction du site, et membre de la Neuvième Assemblée Nationale de l'Association des Écrivains de Chine.
+Er Gen, de son vrai nom Liu Yong, est un auteur chinois de romans web de xianxia originaire de Mudanjiang, dans la province du Heilongjiang. Il est un Auteur Platine de Qidian, la plus haute distinction du site, et membre de la Neuvième Assemblée Nationale de l'Association des Écrivains de Chine.
 
 Son style se caractérise par des systèmes de cultivation complexes, des protagonistes déterminés et des mondes vastes et interconnectés. Ses œuvres partagent un univers commun, avec des clins d'œil et des personnages qui traversent ses romans.
 
@@ -36,18 +35,18 @@ Son style se caractérise par des systèmes de cultivation complexes, des protag
 
 | Titre | Année | Chapitres | Volumes | Résumé |
 |-------|-------|-----------|---------|--------|
-| **Renegade Immortal** (仙逆) | 2009-2012 | 2088 | 13 | L'histoire de Wang Lin, un jeune homme sans talent qui défie le ciel pour sauver ceux qu'il aime. |
-| **Pursuit of the Truth** (求魔 — Qiú Mó) | 2012 | 1484 | 7 | Un jeune homme cherche la vérité dans un monde où les démons règnent. |
-| **I Shall Seal the Heavens** (我欲封天 — Wǒ Yù Fēng Tiān) | 2014 | 1613 + 3 side-stories | 10 | Meng Hao, un étudiant ordinaire, se lance dans la cultivation et scelle les cieux. |
-| **A Will Eternal** (一念永恒 — Yī Niàn Yǒng Héng) | 2016 | 1314 | 7 | Bai Xiaochun, un jeune alchimiste lâche mais chanceux, poursuit l'immortalité. |
-| **A World Worth Protecting** (三寸人间 — Sān Cùn Rén Jiān) | 2018 | 1457 | 3 | Wang Baole, disciple de Wang Lin, navigue dans un monde futuriste de cultivation. |
-| **Beyond Time** (光阴之外 — Guāngyīn zhī Wài) | 2022 | 1354 | 14 | Xu Qing, un enfant des rues, gravit les échelons de la cultivation dans un monde post-apocalyptique. |
+| **Renegade Immortal** | 2009-2012 | 2088 | 13 | L'histoire de Wang Lin, un jeune homme sans talent qui défie le ciel pour sauver ceux qu'il aime. |
+| **Pursuit of the Truth** (— Qiú Mó) | 2012 | 1484 | 7 | Un jeune homme cherche la vérité dans un monde où les démons règnent. |
+| **I Shall Seal the Heavens** (— Wǒ Yù Fēng Tiān) | 2014 | 1613 + 3 side-stories | 10 | Meng Hao, un étudiant ordinaire, se lance dans la cultivation et scelle les cieux. |
+| **A Will Eternal** (— Yī Niàn Yǒng Héng) | 2016 | 1314 | 7 | Bai Xiaochun, un jeune alchimiste lâche mais chanceux, poursuit l'immortalité. |
+| **A World Worth Protecting** (— Sān Cùn Rén Jiān) | 2018 | 1457 | 3 | Wang Baole, disciple de Wang Lin, navigue dans un monde futuriste de cultivation. |
+| **Beyond Time** (— Guāngyīn zhī Wài) | 2022 | 1354 | 14 | Xu Qing, un enfant des rues, gravit les échelons de la cultivation dans un monde post-apocalyptique. |
 
 ### Roman abandonné
 
 | Titre | Année | Chapitres | Note |
 |-------|-------|-----------|------|
-| **Against Heaven** (天逆 — Tiān Nì) | 2013 | 118 (3 vol.) | Abandonné |
+| **Against Heaven** (— Tiān Nì) | 2013 | 118 (3 vol.) | Abandonné |
 
 ### Univers partagé
 
@@ -82,7 +81,7 @@ Diffusé sur **Tencent Video** depuis le 25 septembre 2023. La saison 2 a obtenu
 
 ### Film d'animation
 
-**« Bataille de l'Avènement Divin »** (神临之战, *Shen Lin Zhi Zhan*) — sorti en 2025, ce film d'animation a été #1 des meilleures ventes payantes sur Tencent Video. Un deuxième film a été annoncé en août 2025.
+**« Bataille de l'Avènement Divin »** (*Shen Lin Zhi Zhan*) — sorti en 2025, ce film d'animation a été #1 des meilleures ventes payantes sur Tencent Video. Un deuxième film a été annoncé en août 2025.
 
 ### Manhua
 
@@ -90,7 +89,7 @@ Adaptation en bande dessinée depuis mars 2012, publiée sur Youman, Manga King 
 
 ### Jeu mobile
 
-*Xian Ni* (全民仙逆) — jeu mobile sorti en 2015.
+*Xian Ni* — jeu mobile sorti en 2015.
 
 ---
 

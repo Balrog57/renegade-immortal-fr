@@ -10,7 +10,7 @@ Le Grand Secte de l'Âme était situé au cœur d'une chaîne de montagnes dont 
 
 Des ondulations résonnaient autour du massif. Ces vibrations semblaient contenir une force d'âme, et d'innombrables silhouettes cachées paraissaient laisser échapper des rugissements silencieux en son sein.
 
-Cet endroit était l'une des deux sectes les plus puissantes du Continent du Taureau Céleste : le Grand Secte de l'Âme !
+Cet endroit était l'une des deux sectes les plus puissantes du Continent du Taureau Céleste: le Grand Secte de l'Âme!
 
 Une neige verdâtre tombait sur la Montagne Céleste. Elle recouvrait le corps et les cheveux de Wang Lin, ainsi que le sol. Il restait immobile au milieu des flocons.
 
@@ -28,7 +28,7 @@ Une puissante vague de vitalité pulsait au sein du Grand Secte de l'Âme. D'un 
 
 Cent mille cultivateurs représentaient un nombre colossal, pourtant, cachés dans les replis des montagnes, on ne trouvait aucune trace d'eux.
 
-De nombreuses auras d'essence extrêmement puissantes émanaient des montagnes ; elles appartenaient à des cultivateurs de la troisième étape.
+De nombreuses auras d'essence extrêmement puissantes émanaient des montagnes; elles appartenaient à des cultivateurs de la troisième étape.
 
 « Le Grand Secte de l'Âme du Continent Astral Immortel... Il est en effet très puissant. Une seule secte suffit à balayer le Monde des Grottes. » Wang Lin observa la scène avec calme tout en réfléchissant.
 
@@ -36,9 +36,9 @@ Sans son véritable corps d'essence de feu, Wang Lin n'aurait pas provoqué un t
 
 Durant ces derniers jours, il avait absorbé de nombreux filons secondaires. L'essence de feu dans son corps avait atteint un seuil critique et ne serait plus affectée par ces petits filons.
 
-Il s'était déjà préparé à cela. Après tout, c'était comparable à la consommation de pilules : plus on dévore de pilules de même qualité, moins elles ont d'effet, jusqu'à devenir inutiles.
+Il s'était déjà préparé à cela. Après tout, c'était comparable à la consommation de pilules: plus on dévore de pilules de même qualité, moins elles ont d'effet, jusqu'à devenir inutiles.
 
-À moins de pouvoir dévorer des pilules de qualité supérieure, telle que la volonté de ce principal filon de feu terrestre !
+À moins de pouvoir dévorer des pilules de qualité supérieure, telle que la volonté de ce principal filon de feu terrestre!
 
 Wang Lin ferma légèrement les yeux et son corps flotta silencieusement vers l'avant, sans le moindre bruit, en direction du Grand Secte de l'Âme.
 
@@ -46,7 +46,7 @@ Tout en avançant, son corps clignotait. Il franchissait de grandes distances co
 
 Après plusieurs heures, Wang Lin parcourut le chemin qui aurait pris plusieurs jours à des cultivateurs et arriva à la chaîne de montagnes abritant le Grand Secte de l'Âme. Ici, les fluctuations de la puissance d'âme devenaient encore plus fortes et denses. Des forces cachées empêchaient Wang Lin de pénétrer.
 
-« Malheureusement, je ne peux pas sortir la Voile Fantomatique de mon espace de stockage ; sinon, j'aurais pu emprunter sa puissance pour infiltrer le Grand Secte de l'Âme. » Wang Lin s'arrêta et contempla les montagnes non loin de là. Il fixa la montagne rouge et poussa un soupir.
+« Malheureusement, je ne peux pas sortir la Voile Fantomatique de mon espace de stockage; sinon, j'aurais pu emprunter sa puissance pour infiltrer le Grand Secte de l'Âme. » Wang Lin s'arrêta et contempla les montagnes non loin de là. Il fixa la montagne rouge et poussa un soupir.
 
 Son aura avait été totalement dissimulée et il ressemblait désormais à un mortel. Après s'être assis, il ferma les yeux et commença à attendre.
 
@@ -62,13 +62,13 @@ Autrement, ils n'auraient pu créer un sort d'illusion multicouche.
 
 Par conséquent, tenter d'entrer dans le corps d'un disciple risquait de faire découvrir Wang Lin par la formation avant même qu'il ne s'aperçoive du moindre problème.
 
-Wang Lin ne pouvait tenter l'expérience qu'une seule fois et refusait de prendre un tel risque. Il préférait compter sur sa propre cultivation et sa compréhension des restrictions.
+Wang Lin ne pouvait tenter l'expérience qu'une seule fois et refusait de prendre un tel risque. Il préférait compter sur sa propre culture et sa compréhension des restrictions.
 
 Ce dont il avait besoin, c'était d'une fluctuation dans la formation.
 
 En un éclair, trois jours passèrent. Durant ces trois jours, un total de 314 disciples étaient entrés et sortis, provoquant 314 fluctuations de la formation.
 
-Wang Lin ne bougea pas avec précipitation ; il continua d'observer. Il utilisait sa compréhension des restrictions pour déceler un point faible.
+Wang Lin ne bougea pas avec précipitation; il continua d'observer. Il utilisait sa compréhension des restrictions pour déceler un point faible.
 
 Après tout, Wang Lin possédait la rare essence de restriction.
 
@@ -98,21 +98,21 @@ Alors qu'il n'était pas loin de la montagne rouge, trois rayons de lumière s'e
 
 Wang Lin ne prit même pas la peine de les regarder. Il avait déjà vu trop souvent des traînées de lumière de ce genre.
 
-Cependant, à cet instant précis, un Sens Divin éclata soudainement depuis la montagne rouge et descendit. Il couvrit rapidement la majeure partie du massif. Ce Sens Divin était d'une puissance redoutable ; ce n'était pas l'apanage d'un cultivateur ordinaire. C'était quelqu'un qui avait traversé neuf Tribulations Arcanes et atteint le début du stade de la Tribulation du Vide.
+Cependant, à cet instant précis, un Sens Divin éclata soudainement depuis la montagne rouge et descendit. Il couvrit rapidement la majeure partie du massif. Ce Sens Divin était d'une puissance redoutable; ce n'était pas l'apanage d'un cultivateur ordinaire. C'était quelqu'un qui avait traversé neuf Tribulations Arcanes et atteint le début du stade de la Tribulation du Vide.
 
-Ce Sens Divin contenait une nuance Yin, un trait qui ne pouvait être détecté qu'une fois un certain niveau de cultivation atteint. Dès que Wang Lin perçut ce Sens Divin, il comprit qu'il s'agissait d'une cultivatrice.
+Ce Sens Divin contenait une nuance Yin, un trait qui ne pouvait être détecté qu'une fois un certain niveau de culture atteint. Dès que Wang Lin perçut ce Sens Divin, il comprit qu'il s'agissait d'une cultivatrice.
 
 Cette projection s'était déployée trop soudainement. Si Wang Lin n'avait pas été sur ses gardes, il aurait été découvert dans un moment de panique. Tandis que le Sens Divin se propageait, la fumée de Wang Lin recula.
 
-Il se déplaçait à la même vitesse que le Sens Divin : l'un s'étendait tandis que l'autre se retirait.
+Il se déplaçait à la même vitesse que le Sens Divin: l'un s'étendait tandis que l'autre se retirait.
 
 Toutefois, ce Sens Divin se propageait comme un éventail dont la montagne rouge était le centre. Wang Lin pouvait l'éviter pour l'instant, mais il ne tarderait pas à être détecté.
 
 Alors que le Sens Divin balayait la zone, des ondulations résonnèrent à travers la formation du Grand Secte de l'Âme et celle-ci se scella. Cette scène choqua Wang Lin.
 
-« Me suis-je fait repérer ? » Wang Lin n'eut pas le temps de réfléchir alors que le Sens Divin se rapprochait de lui. Il recula, mais il semblait ne plus avoir nulle part où se cacher. Il vola vers les trois rayons de lumière qui s'éloignaient au loin.
+« Me suis-je fait repérer? » Wang Lin n'eut pas le temps de réfléchir alors que le Sens Divin se rapprochait de lui. Il recula, mais il semblait ne plus avoir nulle part où se cacher. Il vola vers les trois rayons de lumière qui s'éloignaient au loin.
 
-Il se déplaça à sa vitesse maximale pour pénétrer dans le corps de l'homme. La raison n'était pas le niveau de cultivation de ce dernier, mais le fait que le Sens Divin appartînt à une femme. D'après l'expérience de Wang Lin, la plupart des femmes à ce stade de cultivation étaient arrogantes et méprisaient les disciples masculins ; elles ne pratiquaient donc pas de recherches trop minutieuses. Après tout, une fouille détaillée équivalait à regarder quelqu'un nu.
+Il se déplaça à sa vitesse maximale pour pénétrer dans le corps de l'homme. La raison n'était pas le niveau de culture de ce dernier, mais le fait que le Sens Divin appartînt à une femme. D'après l'expérience de Wang Lin, la plupart des femmes à ce stade de culture étaient arrogantes et méprisaient les disciples masculins; elles ne pratiquaient donc pas de recherches trop minutieuses. Après tout, une fouille détaillée équivalait à regarder quelqu'un nu.
 
 Au moment où Wang Lin pénétra dans l'homme, le Sens Divin passa.
 
@@ -120,4 +120,4 @@ Il ne s'attarda pas, mais balaya directement la distance. Après avoir couvert t
 
 « Ce n'est pas que j'ai été découvert, c'est simplement que le Grand Secte de l'Âme a pour habitude d'avoir un puissant cultivateur en alerte qui déploie périodiquement son Sens Divin... » Wang Lin se rassembla à l'intérieur du corps de l'homme et forma un vortex entouré de restrictions.
 
-Tandis que Wang Lin réfléchissait, la femme à ses côtés le réprimanda : « Pourquoi restes-tu là debout ? Si nous sommes en retard pour livrer le Fruit de la Division de l'Âme à la Sœur Aînée, nous serons punis ! »
+Tandis que Wang Lin réfléchissait, la femme à ses côtés le réprimanda: « Pourquoi restes-tu là debout? Si nous sommes en retard pour livrer le Fruit de la Division de l'Âme à la Sœur Aînée, nous serons punis! »

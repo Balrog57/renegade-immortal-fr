@@ -19,17 +19,17 @@ Un membre du clan tenta de voler l'**Âme du Dragon de Foudre Antique** de **Wan
 
 ### Fiche signalétique
 
-- **Nom :** Clan de la Foudre Dispersée (Scatter Thunder Clan)
-- **Statut :** L'un des sept grands clans antiques
-- **Affiliation :** Conseil Souverain (Sovereign Council)
-- **Ancêtre fondateur :** Seul membre à avoir atteint la Troisième Étape
-- **Capacité :** Manipulation de la foudre (6 types spéciaux)
-- **Territoire :** 7 millions de mondes formant un royaume scellé
-- **Activité :** Création de la Tribulation Divine pour tuer les cultivateurs de la Formation de l'Âme et extraire leur foudre
-- **Ennemi :** Wang Lin
-- **Système stellaire :** Système Stellaire Primordial Antique (Ancient Primordial Star System)
-- **Royaume :** Royaume Extérieur (Outer Realm)
-- **Monde :** Monde de la Grotte de Wang Lin
+- **Nom:** Clan de la Foudre Dispersée (Scatter Thunder Clan)
+- **Statut:** L'un des sept grands clans antiques
+- **Affiliation:** Conseil Souverain (Sovereign Council)
+- **Ancêtre fondateur:** Seul membre à avoir atteint la Troisième Étape
+- **Capacité:** Manipulation de la foudre (6 types spéciaux)
+- **Territoire:** 7 millions de mondes formant un royaume scellé
+- **Activité:** Création de la Tribulation Divine pour tuer les cultivateurs de la Formation de l'Âme et extraire leur foudre
+- **Ennemi:** Wang Lin
+- **Système stellaire:** Système Stellaire Primordial Antique (Ancient Primordial Star System)
+- **Royaume:** Royaume Extérieur (Outer Realm)
+- **Monde:** Monde de la Grotte de Wang Lin
 
 ## Contexte
 

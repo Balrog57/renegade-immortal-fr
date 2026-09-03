@@ -8,7 +8,7 @@ slug: le-pouvoir-du-char-de-destruction-des-dieux
 ---
 Une fois la tempête noire dissipée, un rideau de brume sombre subsista.
 
-La vieille femme s'avança et s'apprêta à pénétrer dans cette brume quand son expression changea soudainement ; elle tordit son corps selon un angle impossible pour se rétracter.
+La vieille femme s'avança et s'apprêta à pénétrer dans cette brume quand son expression changea soudainement; elle tordit son corps selon un angle impossible pour se rétracter.
 
 Une faux fendit l'air, passa près d'elle, puis disparut de nouveau dans la brume noire.
 
@@ -22,7 +22,7 @@ Cet homme était massif. Il saisit l'une des faux à mains nues et la broya d'un
 
 Les trois faux restantes regagnèrent rapidement la brume noire pour y disparaître.
 
-Ce colosse était presque entièrement recouvert de tatouages. Cependant, ceux-ci différaient de ceux des autres : loin de flotter à la surface de l'épiderme, ils étaient gravés profondément dans sa chair.
+Ce colosse était presque entièrement recouvert de tatouages. Cependant, ceux-ci différaient de ceux des autres: loin de flotter à la surface de l'épiderme, ils étaient gravés profondément dans sa chair.
 
 À l'apparition de cet homme, la vieille femme laissa échapper un grognement mais ne dit mot.
 
@@ -32,7 +32,7 @@ Le visage de l'Ancien Hu était sombre alors qu'il observait Xu Luo et Yun Meng 
 
 Xu Luo poussa un cri de douleur, cracha une bouchée de sang et s'effondra au sol. Cependant, juste avant qu'il ne touche terre, une immense quantité d'aura blanc laiteux jaillit de son corps pour être absorbée par l'arbre de la réincarnation.
 
-Les yeux de Wang Lin s'illuminèrent en observant l'Ancien Hu. Cet homme était véritablement impitoyable ; il n'hésitait pas à sacrifier son propre disciple de secte pour accélérer la croissance du fruit de la réincarnation. Toutefois, cela relevait des affaires internes de sa secte ; Wang Lin n'avait aucun droit d'intervenir, et il n'en avait guère envie non plus.
+Les yeux de Wang Lin s'illuminèrent en observant l'Ancien Hu. Cet homme était véritablement impitoyable; il n'hésitait pas à sacrifier son propre disciple de secte pour accélérer la croissance du fruit de la réincarnation. Toutefois, cela relevait des affaires internes de sa secte; Wang Lin n'avait aucun droit d'intervenir, et il n'en avait guère envie non plus.
 
 Alors que le corps de Xu Luo percutait le sol, les trois points jaunes sur l'arbre de la réincarnation brillèrent intensément avant de lentement prendre forme.
 
@@ -46,7 +46,7 @@ Wang Lin et l'Ancien Hu se précipitèrent vers l'arbre simultanément. Étant d
 
 Quant à l'Ancien Hu, il saisit un fruit dans chaque main et recula prestement. Son regard porté sur Wang Lin était empreint de prudence.
 
-Sans la moindre hésitation, Wang Lin frappa l'arbre de la réincarnation de sa main. Le tronc se brisa à sa base ; Wang Lin le saisit alors pour le porter sur son épaule. D'un geste de la main, il rappela le drapeau de restriction vers lui, puis s'enfuit avec rapidité.
+Sans la moindre hésitation, Wang Lin frappa l'arbre de la réincarnation de sa main. Le tronc se brisa à sa base; Wang Lin le saisit alors pour le porter sur son épaule. D'un geste de la main, il rappela le drapeau de restriction vers lui, puis s'enfuit avec rapidité.
 
 L'Ancien Hu fit de même, mais les deux hommes choisirent des directions opposées.
 
@@ -64,9 +64,9 @@ Sur son front, un tatouage mystérieux et en pleine croissance apparut.
 
 Face à l'homme massif qui lui barrait la route, l'expression de Wang Lin était sombre. Il sortit promptement l'épée céleste et la abattit. Le colosse laissa échapper un rire et intercepta la lame avec sa main nue.
 
-Bang !
+Bang!
 
-La main de l'homme fut déchirée au point de mettre les os à nu. On pouvait même y voir des tatouages gravés sur l'os. Bien que projeté en arrière, ses yeux brillaient d'une soif de combat ; il se rétablit aussitôt et chargea de nouveau Wang Lin.
+La main de l'homme fut déchirée au point de mettre les os à nu. On pouvait même y voir des tatouages gravés sur l'os. Bien que projeté en arrière, ses yeux brillaient d'une soif de combat; il se rétablit aussitôt et chargea de nouveau Wang Lin.
 
 Wang Lin sentit l'onde de choc émaner de l'épée céleste. Il utilisa cette force pour reculer afin de tenter de s'échapper.
 
@@ -76,7 +76,7 @@ Au moment où il reculait, il aperçut le tatouage sur le front de Qiu Siping. S
 
 Le colosse poussa un rugissement et poursuivit Wang Lin.
 
-À cet instant, quelques chamans restants tentèrent d'intercepter Wang Lin. Une intention meurtrière traversa le regard de Wang Lin qui hurla : « Écartez-vous ! »
+À cet instant, quelques chamans restants tentèrent d'intercepter Wang Lin. Une intention meurtrière traversa le regard de Wang Lin qui hurla: « Écartez-vous! »
 
 Il fit un mouvement horizontal avec l'épée céleste, tranchant deux sauvages en deux. Voyant cela, les autres hésitèrent, et Wang Lin profita de cette brève pause pour les transpercer.
 
@@ -86,19 +86,19 @@ Tous deux étaient d'une rapidité fulgurante. En un clin d'œil, ils disparuren
 
 Quant au chaman aux six feuilles qui venait de terminer le raffinage de Qiu Siping, il détacha son regard de la direction prise par Wang Lin pour se tourner vers l'Ancien Hu, qui combattait alors la vieille femme. Il se lécha les lèvres en fixant le sac de rangement de l'Ancien Hu. Le sac émettait une lueur jaune, une lumière si vive qu'aucun sac de rangement ne pouvait la dissimuler.
 
-Wang Lin portait l'arbre de la réincarnation sur son épaule. Cet arbre était singulier ; peu importait ses efforts, il ne parvenait pas à le ranger dans son sac. Si le fruit de la réincarnation était bien dans son sac de rangement, il ne pouvait cependant masquer la lumière jaune qui attirait tous les regards.
+Wang Lin portait l'arbre de la réincarnation sur son épaule. Cet arbre était singulier; peu importait ses efforts, il ne parvenait pas à le ranger dans son sac. Si le fruit de la réincarnation était bien dans son sac de rangement, il ne pouvait cependant masquer la lumière jaune qui attirait tous les regards.
 
-Le colosse derrière lui poursuivait Wang Lin à vive allure. En observant le dos de ce dernier, une soif de combat envahit ses yeux. Il lança à Wang Lin, dans une langue que celui-ci comprenait : « Étranger, tu ne t'échapperas pas. Et si nous nous battions ? »
+Le colosse derrière lui poursuivait Wang Lin à vive allure. En observant le dos de ce dernier, une soif de combat envahit ses yeux. Il lança à Wang Lin, dans une langue que celui-ci comprenait: « Étranger, tu ne t'échapperas pas. Et si nous nous battions? »
 
-Le regard de Wang Lin était empreint d'une intention meurtrière tandis qu'il touchait le bracelet à son poignet. Il abattit l'épée céleste vers l'homme et répondit : « Très bien, je relève le défi ! »
+Le regard de Wang Lin était empreint d'une intention meurtrière tandis qu'il touchait le bracelet à son poignet. Il abattit l'épée céleste vers l'homme et répondit: « Très bien, je relève le défi! »
 
 L'homme robuste rit. Sans esquiver, il plaça ses deux mains devant sa poitrine. Il bloqua l'épée avec ses avant-bras, provoquant un fracas retentissant à l'impact. Sa chair fut entaillée, mais les os de ses bras restèrent intacts.
 
-La volonté de combat dans ses yeux s'intensifia et il cria : « Chi Mu, guerrier aux six feuilles ! »
+La volonté de combat dans ses yeux s'intensifia et il cria: « Chi Mu, guerrier aux six feuilles! »
 
-Le regard de Wang Lin devint glacial et il répliqua : « Wang Lin, cultivateur de la Formation de l'Âme ! »
+Le regard de Wang Lin devint glacial et il répliqua: « Wang Lin, cultivateur de la Formation de l'Âme! »
 
-Chi Mu fit un pas en avant et lâcha un coup de poing qui généra une onde de choc sonore vers Wang Lin. Ce dernier manœuvra l'épée céleste, provoquant une explosion à trente pieds devant lui. Wang Lin sentit immédiatement sa main s'engourdir.
+Chi Mu fit un pas en avant et lâcha un coup de poing qui généra une onde de choc sonore vers Wang Lin. Ce dernier manœuvra l'épée céleste, provoquant une explosion à 99 mètres devant lui. Wang Lin sentit immédiatement sa main s'engourdir.
 
 « Si mon corps originel était ici, je pourrais certainement rivaliser avec cet homme », pensa Wang Lin, les yeux brillants. Il agita la main droite et le piège à bêtes vola vers l'avant.
 
@@ -106,21 +106,21 @@ Dans un fracas assourdissant, le Char de Guerre du Dieu Tueur apparut devant lui
 
 Chi Mu fut stupéfait et son visage pâlit.
 
-« Char de Guerre du Dieu Tueur, voyons si tu es digne de ton nom ! » Les yeux de Wang Lin devinrent froids. S'il ne tuait pas cet homme maintenant, il ne pourrait jamais s'échapper.
+« Char de Guerre du Dieu Tueur, voyons si tu es digne de ton nom! » Les yeux de Wang Lin devinrent froids. S'il ne tuait pas cet homme maintenant, il ne pourrait jamais s'échapper.
 
 La bête sur le char de guerre se tourna soudainement vers Wang Lin. Après l'avoir dévisagé, elle poussa un second rugissement. Les pointes du char émettent une lumière noire qui se concentra lentement sur l'esprit de la bête.
 
 Chi Mu ressentit un sentiment de danger inédit. N'attendant pas que le char soit pleinement activé, il chargea immédiatement et abattit son poing.
 
-Wang Lin eut un ricanement méprisant. Il esquiva et frappa avec l'épée céleste. Une autre explosion se produisit à trente pieds de distance, déviant la main de Chi Mu. Ce dernier dut se forcer à s'arrêter avant de charger à nouveau vers le char.
+Wang Lin eut un ricanement méprisant. Il esquiva et frappa avec l'épée céleste. Une autre explosion se produisit à 99 mètres de distance, déviant la main de Chi Mu. Ce dernier dut se forcer à s'arrêter avant de charger à nouveau vers le char.
 
 Wang Lin abattit l'épée céleste une nouvelle fois. Cette fois, il ne s'arrêta pas après un seul coup et enchaîna les assauts. Il porta dix coups d'épée successifs.
 
-Bang ! Bang ! Bang !
+Bang! Bang! Bang!
 
 Le corps de Chi Mu fut projeté en arrière, sa poitrine présentant des blessures si profondes qu'elles révélaient l'os. Des fissures commencèrent même à apparaître sur ses os thoraciques, mais elles guérirent rapidement sous l'éclat des tatouages.
 
-Le cri de Xu Liguo retentit de l'intérieur de l'épée céleste. Xu Liguo et les âmes errantes ne pouvaient pas contrôler pleinement l'arme ; une utilisation excessive risquait de les faire disparaître.
+Le cri de Xu Liguo retentit de l'intérieur de l'épée céleste. Xu Liguo et les âmes errantes ne pouvaient pas contrôler pleinement l'arme; une utilisation excessive risquait de les faire disparaître.
 
 Entendant l'avertissement de Xu Liguo, Wang Lin cessa d'utiliser l'épée. À cet instant, l'esprit de la bête avait fini d'absorber la lumière noire des pointes, et son corps s'était considérablement agrandi.
 

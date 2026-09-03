@@ -32,17 +32,17 @@ La planète Ran Yun était une planète subordonnée à la planète Mille Illusi
 
 Après le départ de Sun Tai, Wang Lin cultiva tranquillement dans sa pièce. Il y avait plus de cinquante mille morceaux de jade céleste dans le sac que Sun Tai avait laissé derrière lui. C'était là la limite de ce que Sun Tai avait pu obtenir.
 
-En ajoutant les jades célestes précédents, Wang Lin possédait un total d'un peu moins de trois cents mille jades célestes. Ses yeux s'illuminèrent et il murmura pour lui-même : « Cela devrait à peine suffire ! »
+En ajoutant les jades célestes précédents, Wang Lin possédait un total d'un peu moins de trois cents mille jades célestes. Ses yeux s'illuminèrent et il murmura pour lui-même: « Cela devrait à peine suffire! »
 
 Il se leva et disparut de la pièce. Lorsqu'il réapparut, il se trouvait à plus de cinquante mille kilomètres de la demeure. Son sens divin balaya les environs avant qu'il ne frappe son sac de rangement, libérant une immense quantité de jades célestes.
 
 Wang Lin s'assit en position du lotus et ses mains formèrent des sceaux, déployant des restrictions. Une fois la dizaine de restrictions établie, les jades célestes chutèrent un à un, formant une formation gigantesque.
 
-Cette formation était sans nom ; c'était une technique que Wang Lin avait lui-même dérivée de la troisième capacité de son fleuve des enfers. Elle pouvait absorber une quantité massive de jades célestes et utiliser l'impact puissant de leur destruction pour améliorer sa cultivation.
+Cette formation était sans nom; c'était une technique que Wang Lin avait lui-même dérivée de la troisième capacité de son fleuve des enfers. Elle pouvait absorber une quantité massive de jades célestes et utiliser l'impact puissant de leur destruction pour améliorer sa culture.
 
 Alors que plus de trois cents mille jades célestes descendaient, Wang Lin frappa à nouveau son sac et la Formation de l'Épée aux Sept Étoiles s'envola. Elle gravitait autour de lui pour le protéger. Le garde céleste surgit également de son ombre avant de se fondre dans le néant. Si quiconque osait le déranger, le garde céleste tuerait sans la moindre hésitation.
 
-Après une profonde inspiration, Wang Lin ferma les yeux. Ses mains formèrent un sceau qu'il posa sur ses genoux, puis il murmura doucement : « Briser ! »
+Après une profonde inspiration, Wang Lin ferma les yeux. Ses mains formèrent un sceau qu'il posa sur ses genoux, puis il murmura doucement: « Briser! »
 
 Le son de sa voix devint un sortilège et se propagea comme un grondement tonitruant. Il provoqua l'explosion immédiate des jades célestes environnants, qui se transformèrent en poussière. À cet instant, il semblait que les cieux et la terre fussent recouverts par la poussière des jades. Soudain, une force inimaginable d'énergie spirituelle céleste explosa.
 
@@ -58,7 +58,7 @@ Alors qu'il cultivait, Sun Xi ouvrit soudainement les yeux, le regard empreint d
 
 La deuxième personne était un homme d'âge moyen situé dans les profondeurs d'un glacier à l'autre extrémité de la planète Ran Yun. Cet homme se trouvait dans une glace éternelle, absorbant l'énergie glaciale. Au moment où l'explosion d'énergie spirituelle eut lieu, il ouvrit les yeux. Son regard émit une lueur froide alors qu'il scrutait la direction de la mystérieuse tempête.
 
-« Est-ce un avertissement... ? » L'homme hésita un instant, puis ignora le phénomène.
+« Est-ce un avertissement...? » L'homme hésita un instant, puis ignora le phénomène.
 
 La troisième personne se trouvait au centre de la planète Ran Yun, là où résidait la famille Ran.
 
@@ -66,9 +66,9 @@ Dans la demeure ancestrale de la famille Ran, un vieil homme aux cheveux d'un bl
 
 Juste au moment où il allait parler, il détecta l'apparition de la tempête d'énergie spirituelle céleste. Il se leva immédiatement et regarda la tempête d'un air sombre.
 
-Après un long silence, il murmura pour lui-même : « Que cherche-t-il à faire... ? »
+Après un long silence, il murmura pour lui-même: « Que cherche-t-il à faire...? »
 
-Au cœur du tourbillon, la main de Wang Lin forma un sceau. Il ouvrit soudainement les yeux et cria : « Absorber ! »
+Au cœur du tourbillon, la main de Wang Lin forma un sceau. Il ouvrit soudainement les yeux et cria: « Absorber! »
 
 Ce mot unique fut comme un coup de tonnerre capable de briser le vortex. Wang Lin ouvrit la bouche et le tourbillon fut rapidement aspiré en son sein.
 
@@ -86,9 +86,9 @@ Le fleuve des enfers s'estompa progressivement jusqu'à disparaître sans laisse
 
 Wang Lin prit une profonde inspiration. Il se leva, le regard aussi vif qu'une torche.
 
-« Il ne me manque qu'un éveil dans mon domaine pour atteindre le stade intermédiaire de l'Ascendant ! Cependant, je ne peux précipiter cet éveil... Cela pourrait arriver dans un instant, dans dix ans ou dans cent ans... »
+« Il ne me manque qu'un éveil dans mon domaine pour atteindre le stade intermédiaire de l'Ascendant! Cependant, je ne peux précipiter cet éveil... Cela pourrait arriver dans un instant, dans dix ans ou dans cent ans... »
 
-« Il est maintenant temps de régler quelques comptes... Je voulais cultiver paisiblement sur la planète Ran Yun, mais certains refusent cette paix. Puisqu'il veut m'impliquer dans cette affaire, il devra faire preuve d'une sincérité suffisante ! Je présume que ces trois-là ont compris le sens de ma démonstration de tout à l'heure. » Wang Lin esquissa un rictus et fit un geste de la main. La Formation de l'Épée aux Sept Étoiles retourna dans son sac et le garde céleste regagna son ombre.
+« Il est maintenant temps de régler quelques comptes... Je voulais cultiver paisiblement sur la planète Ran Yun, mais certains refusent cette paix. Puisqu'il veut m'impliquer dans cette affaire, il devra faire preuve d'une sincérité suffisante! Je présume que ces trois-là ont compris le sens de ma démonstration de tout à l'heure. » Wang Lin esquissa un rictus et fit un geste de la main. La Formation de l'Épée aux Sept Étoiles retourna dans son sac et le garde céleste regagna son ombre.
 
 En marchant, il utilisa une téléportation de grande envergure. Simultanément, il déploya son sens divin pour couvrir la planète entière. Après avoir verrouillé la cible — un cultivateur au stade intermédiaire de l'Ascendant —, Wang Lin disparut.
 
@@ -96,38 +96,38 @@ Dans la demeure ancestrale de la famille Ran, l'expression du vieil homme change
 
 D'un geste de la main, l'ancêtre fit surgir un éclair dans le ciel avec un fracas assourdissant.
 
-« Le Tonnerre de la Paume », l'un des sorts ascendants des ancêtres de la famille Ran !
+« Le Tonnerre de la Paume », l'un des sorts ascendants des ancêtres de la famille Ran!
 
 L'éclair chargea le vide. À cet instant, un grognement froid émana du néant et la silhouette de Wang Lin apparut. Il ne bougea pas, mais l'ombre sous ses pieds vacilla. Le garde céleste surgit devant lui et le Tonnerre de la Paume s'effondra instantanément.
 
 Au même moment, l'ombre du garde céleste apparut devant l'ancêtre de la famille Ran et le poussa doucement. Ce dernier cracha immédiatement du sang et fut projeté en arrière comme une météorite. Il cracha encore davantage de sang, son visage devenant d'une pâleur extrême. Il sortit précipitamment une grande quantité de pilules de son sac pour les dévorer.
 
-Tout cela se produisit en un éclair ; si vite que l'ancêtre de la famille Ran ne ressentit qu'un effroi et une peur profonde au fond de son cœur.
+Tout cela se produisit en un éclair; si vite que l'ancêtre de la famille Ran ne ressentit qu'un effroi et une peur profonde au fond de son cœur.
 
-« Quel est exactement son niveau de cultivation... C'est terrifiant ! Il ne voulait pas me tuer, sinon je serais sans aucun doute mort sur le coup ! Cet homme... sa cultivation pourrait-elle être au sommet du stade tardif de l'Ascendant ?! » haleta le vieil homme.
+« Quel est exactement son niveau de culture... C'est terrifiant! Il ne voulait pas me tuer, sinon je serais sans aucun doute mort sur le coup! Cet homme... sa culture pourrait-elle être au sommet du stade tardif de l'Ascendant?! » haleta le vieil homme.
 
-L'ombre du garde céleste disparut derrière Wang Lin. Ce dernier regarda froidement l'ancêtre et demanda calmement : « Est-ce vous qui vouliez m'impliquer dans les affaires d'il y a quatre ans ? »
+L'ombre du garde céleste disparut derrière Wang Lin. Ce dernier regarda froidement l'ancêtre et demanda calmement: « Est-ce vous qui vouliez m'impliquer dans les affaires d'il y a quatre ans? »
 
-L'esprit du vieil homme trembla. Après une courte réflexion, il serra les dents et dit : « Cher cultivateur, cette affaire est de ma faute. Je n'ai fait cela que parce que... »
+L'esprit du vieil homme trembla. Après une courte réflexion, il serra les dents et dit: « Cher cultivateur, cette affaire est de ma faute. Je n'ai fait cela que parce que... »
 
-« Je n'ai pas l'intention d'écouter vos excuses. Si vous voulez bénéficier de ma protection, vous devez prouver votre sincérité ! La sincérité dont vous avez fait preuve jusqu'ici est insuffisante ! » Wang Lin avait les mains derrière le dos et paraissait très calme.
+« Je n'ai pas l'intention d'écouter vos excuses. Si vous voulez bénéficier de ma protection, vous devez prouver votre sincérité! La sincérité dont vous avez fait preuve jusqu'ici est insuffisante! » Wang Lin avait les mains derrière le dos et paraissait très calme.
 
-Le vieil homme prit une profonde inspiration. Des centaines d'idées tournèrent dans sa tête avant qu'il ne demande aussitôt : « Que voulez-vous dire par là, cher cultivateur ? »
+Le vieil homme prit une profonde inspiration. Des centaines d'idées tournèrent dans sa tête avant qu'il ne demande aussitôt: « Que voulez-vous dire par là, cher cultivateur? »
 
-Wang Lin répondit lentement : « Donnez-moi quatre-vingt-dix pour cent de tous les jades célestes que votre famille possède ! »
+Wang Lin répondit lentement: « Donnez-moi quatre-vingt-dix pour cent de tous les jades célestes que votre famille possède! »
 
 L'homme réfléchit et commença à hésiter.
 
-Wang Lin regarda devant lui et dit calmement : « Vous deux, sortez également ! »
+Wang Lin regarda devant lui et dit calmement: « Vous deux, sortez également! »
 
 Deux illusions apparurent là où Wang Lin fixait le vide. C'étaient Sun Xi et l'homme d'âge moyen du glacier. Leurs yeux étaient remplis de terreur. La scène où l'ancêtre de la famille Ran avait failli perdre la vie d'un seul coup les avait profondément ébranlés.
 
-« Vous, vous donnerez soixante-dix pour cent des jades célestes de votre famille en échange de ma protection ! » Wang Lin pointa Sun Xi du doigt.
+« Vous, vous donnerez soixante-dix pour cent des jades célestes de votre famille en échange de ma protection! » Wang Lin pointa Sun Xi du doigt.
 
-Le regard de Sun Xi devint grave et il hocha immédiatement la tête. « Cher cultivateur Xu, j'accepte ! Tant que je peux m'extraire de l'ombre d'il y a quatre ans, j'accepte cette condition ! »
+Le regard de Sun Xi devint grave et il hocha immédiatement la tête. « Cher cultivateur Xu, j'accepte! Tant que je peux m'extraire de l'ombre d'il y a quatre ans, j'accepte cette condition! »
 
-« Quant à vous, donnez-moi quatre-vingt-dix pour cent des jades célestes de votre famille ! » Le regard de Wang Lin se posa sur l'homme d'âge moyen qui se trouvait dans le glacier.
+« Quant à vous, donnez-moi quatre-vingt-dix pour cent des jades célestes de votre famille! » Le regard de Wang Lin se posa sur l'homme d'âge moyen qui se trouvait dans le glacier.
 
-« En outre, je veux les pilules restantes et le sac de rangement du membre de la famille Huan impliqué il y a quatre ans. Apportez-moi tout, sans rien oublier ! »
+« En outre, je veux les pilules restantes et le sac de rangement du membre de la famille Huan impliqué il y a quatre ans. Apportez-moi tout, sans rien oublier! »
 
-« Aussi, si je n'ai pas assez de jades célestes, vous devrez tous en trouver davantage pour moi. S'il n'y en a pas assez pour ma cultivation, alors je ne me soucierai plus de cette affaire ! »
+« Aussi, si je n'ai pas assez de jades célestes, vous devrez tous en trouver davantage pour moi. S'il n'y en a pas assez pour ma culture, alors je ne me soucierai plus de cette affaire! »

@@ -10,23 +10,23 @@ L'expression de Wang Lin resta inchangée, mais cela piqua sa curiosité. Ce qu'
 
 Cet état fut nommé Gui Xi.
 
-La seule façon de résoudre ce problème était de placer le cultivateur dans un lieu sûr et de le laisser expulser les démons de son corps par ses propres moyens. Si une aide extérieure souhaitait intervenir, l'intervenant devait être plusieurs fois plus puissant que le cultivateur piégé, voire posséder un niveau de cultivation supérieur d'un royaume entier ; sinon, le cultivateur piégé n'aurait d'autre choix que de s'en sortir seul.
+La seule façon de résoudre ce problème était de placer le cultivateur dans un lieu sûr et de le laisser expulser les démons de son corps par ses propres moyens. Si une aide extérieure souhaitait intervenir, l'intervenant devait être plusieurs fois plus puissant que le cultivateur piégé, voire posséder un niveau de culture supérieur d'un royaume entier; sinon, le cultivateur piégé n'aurait d'autre choix que de s'en sortir seul.
 
 Si un cultivateur restait bloqué en état de Gui Xi pendant une période trop longue, le démon prendrait alors totalement le contrôle. Son âme finirait par disparaître et son corps pourrirait.
 
-Cependant, dans l'ensemble, la plupart des cultivateurs entrant en Gui Xi finissaient par se réveiller ; ils perdaient certes une partie de leur cultivation, mais cela restait préférable à la perte de la vie.
+Cependant, dans l'ensemble, la plupart des cultivateurs entrant en Gui Xi finissaient par se réveiller; ils perdaient certes une partie de leur culture, mais cela restait préférable à la perte de la vie.
 
-Le Gui Xi n'était pas un phénomène courant dans le monde de la cultivation. Du moins, Wang Lin n'avait encore jamais entendu parler d'un cultivateur piégé par cet état.
+Le Gui Xi n'était pas un phénomène courant dans le monde de la culture. Du moins, Wang Lin n'avait encore jamais entendu parler d'un cultivateur piégé par cet état.
 
 Une fois que Qiu Siping eut fini de parler, il regarda Wang Lin, cherchant à déceler des indices, mais l'expression de ce dernier ne changea absolument pas. Elle demeura aussi calme qu'à l'accoutumée.
 
-Wang Lin réfléchit un instant. La lueur rouge dans ses yeux s'estompa et il demanda : « Comment savez-vous où se trouvent les cultivateurs en état de Gui Xi ? »
+Wang Lin réfléchit un instant. La lueur rouge dans ses yeux s'estompa et il demanda: « Comment savez-vous où se trouvent les cultivateurs en état de Gui Xi? »
 
 Un vague de soulagement envahit Qiu Siping. Tant que Wang Lin posait des questions, cela signifiait que l'accord précédent — qui limitait la parole à trois phrases — était nul et non avenu. Qiu Siping ne doutait aucunement que si ses trois phrases n'avaient pas impressionné Wang Lin, celui-ci l'aurait tué sans la moindre hésitation.
 
-Tous deux étaient au stade avancé de la Formation du Noyau, et pourtant, un tel écart de puissance les séparait. Qiu Siping sourit amèrement intérieurement. Il sentait que la seule raison pour laquelle Wang Lin était plus fort était qu'il possédait un trésor lui permettant d'augmenter sa puissance d'attaque. Autrement, comment aurait-il pu être aussi impuissant face à lui ?
+Tous deux étaient au stade avancé de la Formation du Noyau, et pourtant, un tel écart de puissance les séparait. Qiu Siping sourit amèrement intérieurement. Il sentait que la seule raison pour laquelle Wang Lin était plus fort était qu'il possédait un trésor lui permettant d'augmenter sa puissance d'attaque. Autrement, comment aurait-il pu être aussi impuissant face à lui?
 
-En entendant la question de Wang Lin, il répondit promptement : « Cher compagnon cultivateur, c'est une longue histoire. Et si nous nous asseyions pour que je vous la raconte ? »
+En entendant la question de Wang Lin, il répondit promptement: « Cher compagnon cultivateur, c'est une longue histoire. Et si nous nous asseyions pour que je vous la raconte? »
 
 Wang Lin le regarda et hocha légèrement la tête.
 
@@ -36,7 +36,7 @@ Après le départ de Qiu Siping, Wang Lin déplaça son corps avec souplesse et 
 
 Bien qu'il soit parti après Qiu Siping, il arriva en même temps que lui. L'expression de Qiu Siping semblait calme, mais son cœur était bouleversé et ses pupilles se contractèrent avant de reprendre rapidement leur aspect normal.
 
-Il savait que c'était un avertissement de Wang Lin : s'il tentait la moindre ruse pour s'échapper, il n'y arriverait pas.
+Il savait que c'était un avertissement de Wang Lin: s'il tentait la moindre ruse pour s'échapper, il n'y arriverait pas.
 
 En vérité, c'était précisément l'intention de Wang Lin. Qiu Siping avait désormais toute son attention. En fait, tout ce qui touchait à la formation de l'Âme Naissante l'intéresserait.
 
@@ -52,25 +52,25 @@ Il voulait que tous ceux qui avaient secrètement aidé la famille Teng soient p
 
 Plus important encore, il voulait arracher l'âme de Teng Huayuan. Il voulait l'écorcher, le dépecer et tout ce qu'il pourrait imaginer pour le faire payer les quatre cents ans de souffrance qu'il avait infligés à Wang Lin.
 
-Qiu Siping agita la main droite, faisant apparaître une bouteille de vin et deux coupes. Il se servit personnellement, prit l'une des coupes et en but une gorgée. Il sourit : « Cher compagnon cultivateur, c'est un vin de haute qualité élaboré à partir du fruit Can Yun de la partie nord de la Mer des Démons. Une seule gorgée suffit pour en savourer les arômes longtemps. Pourquoi ne pas l'essayer ? »
+Qiu Siping agita la main droite, faisant apparaître une bouteille de vin et deux coupes. Il se servit personnellement, prit l'une des coupes et en but une gorgée. Il sourit: « Cher compagnon cultivateur, c'est un vin de haute qualité élaboré à partir du fruit Can Yun de la partie nord de la Mer des Démons. Une seule gorgée suffit pour en savourer les arômes longtemps. Pourquoi ne pas l'essayer? »
 
 Wang Lin n'insista pas pour obtenir une réponse immédiate. Il prit la coupe et l'examina attentivement, comme si le vin recelait quelque chose d'intéressant.
 
 Le liquide de haute qualité dans la coupe affichait une couleur vert jade cristalline. Très magnifique.
 
-Qiu Siping savoura son vin pendant un long moment et, constatant que Wang Lin ne semblait pas s'intéresser à ces futilités, il sourit avec prudence : « Cher compagnon cultivateur, si quelqu'un d'autre m'avait posé cette question, je ne lui aurais certainement rien dit. Mais vous êtes différent. Nous sommes tous deux au stade avancé de la Formation du Noyau et nous rêvons tous les deux d'atteindre ce stade élevé et lointain de l'Âme Naissante. »
+Qiu Siping savoura son vin pendant un long moment et, constatant que Wang Lin ne semblait pas s'intéresser à ces futilités, il sourit avec prudence: « Cher compagnon cultivateur, si quelqu'un d'autre m'avait posé cette question, je ne lui aurais certainement rien dit. Mais vous êtes différent. Nous sommes tous deux au stade avancé de la Formation du Noyau et nous rêvons tous les deux d'atteindre ce stade élevé et lointain de l'Âme Naissante. »
 
-« Quant à ces Âmes Naissantes piégées en état de Gui Xi... l'une d'elles est mon maître ! »
+« Quant à ces Âmes Naissantes piégées en état de Gui Xi... l'une d'elles est mon maître! »
 
 Sur ces mots, le regard de Qiu Siping se posa sur Wang Lin.
 
-Wang Lin fixa la coupe un instant de plus avant de la reposer. Il dit d'un ton neutre : « Tuer votre maître ? Ce n'est pas un problème. Je l'ai déjà fait par le passé. »
+Wang Lin fixa la coupe un instant de plus avant de la reposer. Il dit d'un ton neutre: « Tuer votre maître? Ce n'est pas un problème. Je l'ai déjà fait par le passé. »
 
-Qiu Siping laissa échapper un rire et déclara : « Pour ne rien vous cacher, cher compagnon, il n'avait aucune intention pure lorsqu'il m'a pris comme disciple. Lui et mon frère martial sont tous deux des cultivateurs de l'Âme Naissante. Lorsqu'ils étaient en retraite de cultivation, je les ai secrètement sabotés. Avec le recul, ils sont en état de Gui Xi depuis trente ans. D'après mes calculs, ces deux-là devraient être presque totalement possédés par les démons, ce qui signifie que c'est le moment idéal pour s'emparer de leurs Âmes Naissantes. En en récupérant une chacun, nos chances de progresser vers le stade de l'Âme Naissante seront considérablement accrues. »
+Qiu Siping laissa échapper un rire et déclara: « Pour ne rien vous cacher, cher compagnon, il n'avait aucune intention pure lorsqu'il m'a pris comme disciple. Lui et mon frère martial sont tous deux des cultivateurs de l'Âme Naissante. Lorsqu'ils étaient en retraite de culture, je les ai secrètement sabotés. Avec le recul, ils sont en état de Gui Xi depuis trente ans. D'après mes calculs, ces deux-là devraient être presque totalement possédés par les démons, ce qui signifie que c'est le moment idéal pour s'emparer de leurs Âmes Naissantes. En en récupérant une chacun, nos chances de progresser vers le stade de l'Âme Naissante seront considérablement accrues. »
 
-Wang Lin arqua les sourcils. Il réfléchit un moment, puis dit lentement : « Je ne vois pas le rapport avec la connaissance des anciennes restrictions. »
+Wang Lin arqua les sourcils. Il réfléchit un moment, puis dit lentement: « Je ne vois pas le rapport avec la connaissance des anciennes restrictions. »
 
-Qiu Siping esquissa un sourire amer. Il but le reste de son vin et dit : « L'endroit où mon maître cultive est une ancienne grotte de cultivation. Il l'a découverte par hasard et en a fait sa demeure. »
+Qiu Siping esquissa un sourire amer. Il but le reste de son vin et dit: « L'endroit où mon maître cultive est une ancienne grotte de culture. Il l'a découverte par hasard et en a fait sa demeure. »
 
 « J'ai pu les saboter pendant leur retraite parce que je m'y préparais depuis des années. J'ai passé de longues années à étudier les anciennes restrictions de cette grotte. »
 
@@ -78,23 +78,23 @@ Qiu Siping esquissa un sourire amer. Il but le reste de son vin et dit : « L'en
 
 Wang Lin fronça légèrement les sourcils et commença à méditer.
 
-Qiu Siping frappa son sac de rangement de la main droite, en sortit quelques morceaux de jade et les posa sur la table. Il dit : « Ce sont des symboles de restriction que j'ai copiés dans la grotte. Avec votre savoir sur les anciennes restrictions, vous devriez être capable de dire s'ils sont authentiques ou non. »
+Qiu Siping frappa son sac de rangement de la main droite, en sortit quelques morceaux de jade et les posa sur la table. Il dit: « Ce sont des symboles de restriction que j'ai copiés dans la grotte. Avec votre savoir sur les anciennes restrictions, vous devriez être capable de dire s'ils sont authentiques ou non. »
 
-Après avoir entendu cela, Wang Lin prit un morceau de jade et le scruta avec son Sens Divin. Après un court instant, il le reposa et en saisit un autre. Finalement, tous les morceaux furent examinés. Les symboles contenus dans ces jades servaient à une restriction de protection ; il s'agissait probablement d'une barrière destinée à garder un lieu.
+Après avoir entendu cela, Wang Lin prit un morceau de jade et le scruta avec son Sens Divin. Après un court instant, il le reposa et en saisit un autre. Finalement, tous les morceaux furent examinés. Les symboles contenus dans ces jades servaient à une restriction de protection; il s'agissait probablement d'une barrière destinée à garder un lieu.
 
-Qiu Siping demanda : « Cher compagnon cultivateur, qu'en pensez-vous ? »
+Qiu Siping demanda: « Cher compagnon cultivateur, qu'en pensez-vous? »
 
-Wang Lin réfléchit longuement avant de lever la tête. Il regarda Qiu Siping et demanda : « À quel niveau de cultivation se trouvent ces deux cultivateurs de l'Âme Naissante ? »
+Wang Lin réfléchit longuement avant de lever la tête. Il regarda Qiu Siping et demanda: « À quel niveau de culture se trouvent ces deux cultivateurs de l'Âme Naissante? »
 
-Qiu Siping répondit immédiatement : « Mon maître est au début du stade de l'Âme Naissante, tandis que mon frère martial vient tout juste de former la sienne. Si vous parvenez à ouvrir la grotte, alors l'Âme Naissante de mon maître vous appartiendra. »
+Qiu Siping répondit immédiatement: « Mon maître est au début du stade de l'Âme Naissante, tandis que mon frère martial vient tout juste de former la sienne. Si vous parvenez à ouvrir la grotte, alors l'Âme Naissante de mon maître vous appartiendra. »
 
-Wang Lin réfléchit encore un moment, puis dit : « Je ne peux pas décider immédiatement. Je vais y réfléchir quelques jours, puis je prendrai ma décision. »
+Wang Lin réfléchit encore un moment, puis dit: « Je ne peux pas décider immédiatement. Je vais y réfléchir quelques jours, puis je prendrai ma décision. »
 
-Cela ne sembla pas déranger Qiu Siping. Il hocha la tête et dit : « C'est compréhensible. J'ai également besoin de quelques jours pour préparer certains trésors magiques. Puisque nous sommes passés d'ennemis à alliés, je tiens à m'excuser à nouveau pour tous les malentendus passés. » Sur ce, il se leva, fit quelques pas en arrière et s'inclina devant Wang Lin.
+Cela ne sembla pas déranger Qiu Siping. Il hocha la tête et dit: « C'est compréhensible. J'ai également besoin de quelques jours pour préparer certains trésors magiques. Puisque nous sommes passés d'ennemis à alliés, je tiens à m'excuser à nouveau pour tous les malentendus passés. » Sur ce, il se leva, fit quelques pas en arrière et s'inclina devant Wang Lin.
 
 L'expression de Wang Lin resta impassible, mais il était déjà sur ses gardes. Pour lui, les agissements de Qiu Siping indiquaient que celui-ci prétendait vouloir passer outre le passé.
 
-Mais avec la personnalité actuelle de Wang Lin, il ne se laisserait pas duper par un tel comportement. Il se leva, joignit les mains et dit : « Cher compagnon cultivateur, puisque c'est ainsi, retrouvons-nous ici dans sept jours. Je prends congé. »
+Mais avec la personnalité actuelle de Wang Lin, il ne se laisserait pas duper par un tel comportement. Il se leva, joignit les mains et dit: « Cher compagnon cultivateur, puisque c'est ainsi, retrouvons-nous ici dans sept jours. Je prends congé. »
 
 Qiu Siping sourit. Il hocha la tête et joignit également ses mains.
 
@@ -128,7 +128,7 @@ Aussitôt, le jade commença à briller d'une lumière vive. L'éclat s'intensif
 
 Wang Lin scruta à nouveau la pierre. Cette fois, il pouvait aisément voir ce qu'elle contenait. Après l'avoir observée un instant, il ricana intérieurement. Il semblait que cette Yun Fei méritait vraiment de mourir. Lorsqu'elle avait rencontré Wang Lin pour la première fois, elle avait tenté d'échanger des remèdes populaires contre sa vie.
 
-En voyant ce morceau de jade, Wang Lin ne fut pas perturbé. Bien que quelques pilules fussent tentantes, ce n'était pas crucial. S'il n'avait pas reçu l'héritage, il aurait peut-être essayé d'en fabriquer ; mais désormais, avec les herbes nécessaires, il obtiendrait des résultats similaires en les consommant directement.
+En voyant ce morceau de jade, Wang Lin ne fut pas perturbé. Bien que quelques pilules fussent tentantes, ce n'était pas crucial. S'il n'avait pas reçu l'héritage, il aurait peut-être essayé d'en fabriquer; mais désormais, avec les herbes nécessaires, il obtiendrait des résultats similaires en les consommant directement.
 
 Cependant, en examinant le vrai jade, il comprit que bien que les ingrédients fussent identiques, les proportions différaient légèrement.
 
@@ -140,7 +140,7 @@ Ses pensées antérieures étaient totalement erronées. S'il avait les ingrédi
 
 Cette alchimie consistait à utiliser les effets distincts des matériaux et à les fusionner pour engendrer un effet nouveau.
 
-Il n'était pas étonnant que Wang Lin l'ignorât. Les anciens dieux fabriquaient rarement des pilules ; et même lorsqu'ils le faisaient, ils se contentaient d'écraser les ingrédients ensemble avant de les avaler.
+Il n'était pas étonnant que Wang Lin l'ignorât. Les anciens dieux fabriquaient rarement des pilules; et même lorsqu'ils le faisaient, ils se contentaient d'écraser les ingrédients ensemble avant de les avaler.
 
 Toutes ses expériences passées n'avaient presque rien à voir avec l'alchimie. Seule Li Muwan en avait parlé, mais Wang Lin, à l'époque, était trop concentré sur la Formation du Noyau pour s'y attarder.
 
@@ -154,13 +154,13 @@ Il commença à raffiner le drapeau tout en gardant un œil sur Qiu Siping via X
 
 Xu Liguo était actuellement très excité. Il sentait que sa place dans le cœur de son maître était bien supérieure à celle du numéro deux, ce qui le rendait extrêmement fier.
 
-Il faut dire que l'apparition du numéro deux l'inquiétait également ; il craignait la férocité de ce rival. Mais comme il avait été le premier à suivre le maître, il refusait d'être surpassé.
+Il faut dire que l'apparition du numéro deux l'inquiétait également; il craignait la férocité de ce rival. Mais comme il avait été le premier à suivre le maître, il refusait d'être surpassé.
 
 Sinon, il devrait craindre l'arrivée des numéros 3, 4, 5... jusqu'au numéro 90 qui finiraient par le détrôner. Cela serait pour lui plus douloureux que la mort infligée par Wang Lin.
 
 Xu Liguo décida secrètement qu'il n'en permettrait pas la moindre possibilité. Il restait le numéro un et devait maintenir sa position. Fort de cette détermination, il devint beaucoup plus obéissant, s'efforçant d'accomplir tout ce que Wang Lin lui demandait.
 
-En secret, il avait abandonné sa paresse pour devenir travailleur. Il ne faisait plus de distinction dans sa nourriture : dès qu'une âme apparaissait, il se précipitait pour la dévorer.
+En secret, il avait abandonné sa paresse pour devenir travailleur. Il ne faisait plus de distinction dans sa nourriture: dès qu'une âme apparaissait, il se précipitait pour la dévorer.
 
 Cependant, après chaque capture, le fait de devoir remettre une partie à Wang Lin lui était insupportable, comme si l'on lui arrachait des morceaux de chair.
 
@@ -170,35 +170,35 @@ Il suivait désormais Qiu Siping de près. Peu importe la vitesse du cultivateur
 
 Cet homme était au stade intermédiaire de la Formation du Noyau. Il avait fallu beaucoup d'efforts pour finalement consommer son âme. Quant à son noyau, comme le maître ne l'avait pas réclamé, il l'avait secrètement dévoré.
 
-Il fixa Qiu Siping devant lui, une idée gourmande germant dans son esprit : si seulement le maître pouvait massacrer ce cultivateur de la Formation du Noyau et lui offrir le trophée, ce serait parfait.
+Il fixa Qiu Siping devant lui, une idée gourmande germant dans son esprit: si seulement le maître pouvait massacrer ce cultivateur de la Formation du Noyau et lui offrir le trophée, ce serait parfait.
 
-À ses yeux, cet homme était très rusé. Il ne volait jamais en ligne droite, multipliant les virages et se retournant sans cesse pour vérifier ses arrières, mais Xu Liguo parvenait tout de même à le suivre. Le démon pensait : « Je ne savais pas que le vol pouvait comporter autant de ruses. À l'avenir, quand je rivaliserai avec le numéro deux, j'utiliserai ces techniques. »
+À ses yeux, cet homme était très rusé. Il ne volait jamais en ligne droite, multipliant les virages et se retournant sans cesse pour vérifier ses arrières, mais Xu Liguo parvenait tout de même à le suivre. Le démon pensait: « Je ne savais pas que le vol pouvait comporter autant de ruses. À l'avenir, quand je rivaliserai avec le numéro deux, j'utiliserai ces techniques. »
 
 À cet instant précis, Qiu Siping ralentit soudainement et atterrit au sol. Il scruta les environs. Hormis la brume naturelle de la Mer des Démons, rien ne bougeait.
 
-Une fois posé, il ricana : « Cher compagnon cultivateur, vous vous cachez depuis trop longtemps, autant sortir maintenant ! »
+Une fois posé, il ricana: « Cher compagnon cultivateur, vous vous cachez depuis trop longtemps, autant sortir maintenant! »
 
 Le démon Xu Liguo fut stupéfait. Il se tenait juste derrière Qiu Siping et fut choqué par ce cri. Il crut avoir été découvert.
 
-Il s'apprêtait à reculer quand il s'arrêta net : Qiu Siping s'était retourné et fixait sa direction.
+Il s'apprêtait à reculer quand il s'arrêta net: Qiu Siping s'était retourné et fixait sa direction.
 
 Le visage de Xu Liguo devint féroce. S'il affrontait Qiu Siping et consommait son noyau, il deviendrait plus fort. Même si le maître posait des questions, il pourrait prétendre que c'était Qiu Siping qui l'avait attaqué en premier. Il devait le dévorer d'abord.
 
-Il s'apprêtait à bondir quand il s'arrêta de nouveau : Qiu Siping se retourna vers une autre direction et cria : « Cher compagnon cultivateur, si vous ne vous montrez pas maintenant, je serai contraint d'agir ! »
+Il s'apprêtait à bondir quand il s'arrêta de nouveau: Qiu Siping se retourna vers une autre direction et cria: « Cher compagnon cultivateur, si vous ne vous montrez pas maintenant, je serai contraint d'agir! »
 
-Le démon Xu Liguo était perplexe : « Je suis juste là, ne m'as-tu pas vu à l'instant ? Pourquoi dis-tu que je ne me montre pas ? »
+Le démon Xu Liguo était perplexe: « Je suis juste là, ne m'as-tu pas vu à l'instant? Pourquoi dis-tu que je ne me montre pas? »
 
-Enragé, il se dirigea vers Qiu Siping. À moins de trois mètres, il pensa : « Agis ! Dès que tu feras un geste, je te dévorerai. Même si je ne peux pas tout prendre, j'en prendrai la moitié, alors agis ! »
+Enragé, il se dirigea vers Qiu Siping. À moins de trois mètres, il pensa: « Agis! Dès que tu feras un geste, je te dévorerai. Même si je ne peux pas tout prendre, j'en prendrai la moitié, alors agis! »
 
 Cependant, après avoir attendu un moment, Qiu Siping se retourna à nouveau.
 
-Cette fois, Xu Liguo, qui réagissait lentement, comprit que quelque chose clochait et se repositionna devant Qiu Siping. Après l'avoir observé, il hurla intérieurement : « Espèce de salaud, tu ne m'as même pas vu et tu oses faire semblant ! »
+Cette fois, Xu Liguo, qui réagissait lentement, comprit que quelque chose clochait et se repositionna devant Qiu Siping. Après l'avoir observé, il hurla intérieurement: « Espèce de salaud, tu ne m'as même pas vu et tu oses faire semblant! »
 
-Qiu Siping attendit encore. Il finit par conclure qu'il n'y avait personne aux alentours et que personne ne le suivait, mais la méfiance l'habitait toujours ; il s'assit donc en tailleur pour laisser passer le temps.
+Qiu Siping attendit encore. Il finit par conclure qu'il n'y avait personne aux alentours et que personne ne le suivait, mais la méfiance l'habitait toujours; il s'assit donc en tailleur pour laisser passer le temps.
 
 Xu Liguo flottait furieusement sur le côté, hésitant à désobéir aux ordres de son maître pour attaquer cet homme.
 
-Cet individu était d'une audace insupportable. Il osait provoquer le grand Xu Liguo !
+Cet individu était d'une audace insupportable. Il osait provoquer le grand Xu Liguo!
 
 Mais après avoir longuement pesé le pour et le contre, il réprima sa colère. C'était un moment crucial. S'il commettait une erreur maintenant, le numéro deux le surpasserait. Il décida d'attendre que sa position soit plus solidement établie avant de s'en soucier.
 
@@ -220,15 +220,15 @@ De même, si l'objectif était de piéger l'ennemi, la capacité de capture apr�
 
 En substance, la puissance du drapeau dépend de l'intention de son créateur. Cela semble simple en théorie, mais atteindre un tel niveau est extrêmement difficile.
 
-Par exemple : au premier niveau avec 999 restrictions, chaque groupe de neuf forme un ensemble, ce qui exige 111 restrictions différentes.
+Par exemple: au premier niveau avec 999 restrictions, chaque groupe de neuf forme un ensemble, ce qui exige 111 restrictions différentes.
 
 Pour suivre une seule voie, il faudrait placer 111 restrictions d'attaque distinctes, ce qui est déjà très complexe, bien que possible pour un expert.
 
-Mais qu'en est-il du deuxième niveau, nécessitant 9 999 restrictions ? Cela implique 1 111 groupes, et la difficulté de maintenir une voie unique devient dix fois plus élevée.
+Mais qu'en est-il du deuxième niveau, nécessitant 9 999 restrictions? Cela implique 1 111 groupes, et la difficulté de maintenir une voie unique devient dix fois plus élevée.
 
 Sans parler du troisième niveau exigeant 99 999 restrictions, soit cent fois plus difficile que le premier, car peu de gens possèdent autant de types de restrictions uniques.
 
-Quant au niveau ultime, avec 999 999 restrictions, la difficulté est multipliée par mille. Un tel drapeau est un objet mythique ; d'après les souvenirs de Wang Lin, ils existent, mais il n'y a jamais eu de drapeau de ce calibre constitué uniquement de restrictions d'attaque ou de défense.
+Quant au niveau ultime, avec 999 999 restrictions, la difficulté est multipliée par mille. Un tel drapeau est un objet mythique; d'après les souvenirs de Wang Lin, ils existent, mais il n'y a jamais eu de drapeau de ce calibre constitué uniquement de restrictions d'attaque ou de défense.
 
 Les drapeaux purement offensifs ou défensifs atteignent au mieux le troisième niveau, mais leur puissance peut rivaliser avec un drapeau de niveau ultime et, dans certains aspects, même le surpasser.
 
@@ -236,7 +236,7 @@ Ainsi, si la création est simple, l'obtention de la puissance est une tâche he
 
 Le drapeau que Wang Lin fabriquait n'était pas monothématique. Il y incluait des restrictions d'attaque, de défense, de garde, de recherche et de piégeage.
 
-C'était le seul moyen pour lui de produire rapidement un objet utile. Wang Lin savait qu'au sein de cette Mer des Démons, une crise mortelle pouvait survenir à tout instant ; il devait donc tester la puissance de ce drapeau avant de décider s'il consacrerait du temps à un modèle spécialisé.
+C'était le seul moyen pour lui de produire rapidement un objet utile. Wang Lin savait qu'au sein de cette Mer des Démons, une crise mortelle pouvait survenir à tout instant; il devait donc tester la puissance de ce drapeau avant de décider s'il consacrerait du temps à un modèle spécialisé.
 
 Après tout, possédant trois pierres d'encre, il pouvait fabriquer au total trois drapeaux.
 
@@ -248,7 +248,7 @@ Une grotte était enfouie dans cet endroit désertique. Bien que modeste, elle �
 
 À l'intérieur, il vit Qiu Siping feuilletant des ouvrages. La pièce ressemblait à une mer de livres, tous entassés densément. La plupart étaient très anciens et non présentés sous forme de jade, mais gravés sur du bambou.
 
-Qiu Siping lisait chaque ouvrage avec soin avant de les ranger délicatement. Soudain, son visage s'illumina ; il saisit un rouleau de bambou, l'ouvrit sur la table et l'examina avec attention.
+Qiu Siping lisait chaque ouvrage avec soin avant de les ranger délicatement. Soudain, son visage s'illumina; il saisit un rouleau de bambou, l'ouvrit sur la table et l'examina avec attention.
 
 Xu Liguo s'apprêtait à avancer quand une douce lumière émana de la pièce, bloquant tout accès extérieur. Au moment où l'éclat jaillit, Qiu Siping leva brusquement les yeux. Il scruta les environs avec son Sens Divin, mais ne trouva rien. Pourtant, il continuait de surveiller les alentours, cherchant quelque chose.
 
@@ -264,13 +264,13 @@ Le temps s'écoulait. Sur les sept jours précédant le rendez-vous, cinq étaie
 
 Trois silhouettes siégeaient autour de la table. Celle du milieu avait les cheveux blancs et des yeux empreints d'une rage majestueuse.
 
-De chaque côté se tenaient un homme et une femme. L'homme avait le visage sombre et le regard froid ; il semblait avoir une vingtaine d'années. La femme possédait un visage magnifique et une silhouette gracieuse, ses yeux trahissant une tristesse qui rendait son apparence plus vivante.
+De chaque côté se tenaient un homme et une femme. L'homme avait le visage sombre et le regard froid; il semblait avoir une vingtaine d'années. La femme possédait un visage magnifique et une silhouette gracieuse, ses yeux trahissant une tristesse qui rendait son apparence plus vivante.
 
 Qiu Siping observa silencieusement ces trois figures. Lorsque son regard se posa sur la femme, il fut empreint de tendresse, mais lorsqu'il se tourna vers le vieillard, ses yeux furent remplis de haine.
 
-« Vieux commandant, frère aîné... J'ai enfin trouvé quelqu'un capable d'utiliser les anciennes restrictions. Vous n'auriez jamais imaginé que je puisse pénétrer dans ce lieu pour vous retrouver. Cette fois, ce trésor sera mien ! »
+« Vieux commandant, frère aîné... J'ai enfin trouvé quelqu'un capable d'utiliser les anciennes restrictions. Vous n'auriez jamais imaginé que je puisse pénétrer dans ce lieu pour vous retrouver. Cette fois, ce trésor sera mien! »
 
-Qiu Siping éclata soudain d'un rire empreint de folie. Il tendit la main pour caresser doucement le visage de la femme et murmura : « Je te ramènerai à la vie, même si le prix à payer est l'intégralité de la Mer des Démons ! »
+Qiu Siping éclata soudain d'un rire empreint de folie. Il tendit la main pour caresser doucement le visage de la femme et murmura: « Je te ramènerai à la vie, même si le prix à payer est l'intégralité de la Mer des Démons! »
 
 Il prit une profonde inspiration, retira sa main, projeta un autre rayon de lumière et le mur se referma.
 
@@ -290,15 +290,15 @@ Au sein du nuage rouge, des précipitations gazeuses commencèrent à tomber. D�
 
 À cet instant, dans la partie orientale de la zone intérieure de la Mer des Démons, un homme sortit d'une montagne faite de crânes. Il était imprégné d'une odeur de mort et sa silhouette restait indistincte.
 
-Il leva les yeux vers les nuages comme s'il pouvait voir à travers eux, percevant le nuage rouge. Il grommela : « Rétribution divine ? Impossible. Depuis que le monde ancien a été détruit par la catastrophe, il ne devrait plus y avoir de rétribution divine. Tous les cultivateurs actuels trompent les cieux pour cultiver ; comment cela pourrait-il provoquer une telle réaction ? Se peut-il que des anciens cultivateurs aient survécu ? Si tel est le cas, ce seront des suppléments de très haute qualité ! » Sur ces mots, son corps s'élança vers la formation du nuage rouge.
+Il leva les yeux vers les nuages comme s'il pouvait voir à travers eux, percevant le nuage rouge. Il grommela: « Rétribution divine? Impossible. Depuis que le monde ancien a été détruit par la catastrophe, il ne devrait plus y avoir de rétribution divine. Tous les cultivateurs actuels trompent les cieux pour cultiver; comment cela pourrait-il provoquer une telle réaction? Se peut-il que des anciens cultivateurs aient survécu? Si tel est le cas, ce seront des suppléments de très haute qualité! » Sur ces mots, son corps s'élança vers la formation du nuage rouge.
 
 Dans la partie orientale de la Mer des Démons se trouvait un bassin rempli d'eau de mer. Comme ce n'était pas encore la saison pour que les nuages se transforment en eau, le spectacle était prodigieux.
 
-L'eau commença soudainement à s'agiter violemment. Un homme vêtu d'une robe bleue surgit des profondeurs, provoquant de grandes vagues. Marchant sur l'écume, il flotta lentement vers le ciel. Il fixa les cieux avec un air de choc : « Rétribution divine ? Depuis quand de tels événements se produisent-ils dans la Mer des Démons ? Cette rétribution devrait attirer tous les vieux monstres qui se cachent. » Un léger sourire étira ses lèvres. Son corps plana au-dessus de l'eau et, d'un geste de la main, il fit s'élever l'eau du bassin dans les airs.
+L'eau commença soudainement à s'agiter violemment. Un homme vêtu d'une robe bleue surgit des profondeurs, provoquant de grandes vagues. Marchant sur l'écume, il flotta lentement vers le ciel. Il fixa les cieux avec un air de choc: « Rétribution divine? Depuis quand de tels événements se produisent-ils dans la Mer des Démons? Cette rétribution devrait attirer tous les vieux monstres qui se cachent. » Un léger sourire étira ses lèvres. Son corps plana au-dessus de l'eau et, d'un geste de la main, il fit s'élever l'eau du bassin dans les airs.
 
 La scène était saisissante. L'homme replongea dans les eaux. D'un mouvement de la main, il projeta l'eau vers le nuage rouge comme une charge de chevaux au galop.
 
-Comparée à la vitesse d'un cultivateur de l'Âme Naissante utilisant une téléportation instantanée, sa course était plusieurs fois plus rapide ; l'eau accélérait sans cesse jusqu'à disparaître soudainement.
+Comparée à la vitesse d'un cultivateur de l'Âme Naissante utilisant une téléportation instantanée, sa course était plusieurs fois plus rapide; l'eau accélérait sans cesse jusqu'à disparaître soudainement.
 
 Au point sud de la Mer des Démons, dans le troisième étage du Pavillon de Raffinage des Trésors d'une ville commune, un vieillard aux cheveux blancs et au visage ridé brandissait l'os d'une bête en faisant l'étalage de ses connaissances devant un cultivateur de l'Établissement des Fondations.
 

@@ -8,7 +8,7 @@ slug: le-village-des-nuages-de-feu
 ---
 Au cours de la dernière demi-lune, Wang Lin avait mis de côté quelques provisions sèches qu'il avait emballées avec soin. Sous la lueur de la lune, il quitta le village.
 
-À cet instant, un souvenir surgit soudainement : il y avait cinq cents ans, lorsqu'il avait été rejeté par la Secte Heng Yue, il était également parti de chez lui au milieu de la nuit. Son voyage avait alors commencé. Cinq cents ans s'étaient écoulés depuis ce jour.
+À cet instant, un souvenir surgit soudainement: il y avait cinq cents ans, lorsqu'il avait été rejeté par la Secte Heng Yue, il était également parti de chez lui au milieu de la nuit. Son voyage avait alors commencé. Cinq cents ans s'étaient écoulés depuis ce jour.
 
 Il poussa un soupir et s'enfonça dans la distance.
 
@@ -18,33 +18,33 @@ Tard dans la nuit, le vent froid soufflait et le corps de Wang Lin frissonna. Il
 
 En chemin, Wang Lin manquait constamment de souffle et devait s'accorder des pauses. Son voyage était donc naturellement très lent. Sept jours plus tard, il marchait toujours sur la route principale.
 
-Bien qu'il fût dépourvu d'énergie spirituelle, il parvenait encore à en ressentir la présence. Il avait décelé quelques lieux imprégnés de cette essence, mais peu importait ses efforts de cultivation, il ne parvenait pas à en accumuler la moindre parcelle dans son corps.
+Bien qu'il fût dépourvu d'énergie spirituelle, il parvenait encore à en ressentir la présence. Il avait décelé quelques lieux imprégnés de cette essence, mais peu importait ses efforts de culture, il ne parvenait pas à en accumuler la moindre parcelle dans son corps.
 
-Wang Lin pensa avec amertume : « Peut-être que seules les sectes locales possèdent des lieux où l'énergie spirituelle est dense. »
+Wang Lin pensa avec amertume: « Peut-être que seules les sectes locales possèdent des lieux où l'énergie spirituelle est dense. »
 
-Cependant, comment pourrait-il intégrer une secte avec son état actuel ?
+Cependant, comment pourrait-il intégrer une secte avec son état actuel?
 
-Il soupira et leva les yeux vers le ciel, une pointe de désespoir envahissant son cœur. Mais ce sentiment fut promptement écrasé par sa détermination. Il prit une profonde inspiration et murmura : « Xue Yue et le Clan des Démons Géants, je n'oublierai pas ce qui s'est passé. Un jour, je vous ferai payer cent fois ce que vous m'avez infligé ! »
+Il soupira et leva les yeux vers le ciel, une pointe de désespoir envahissant son cœur. Mais ce sentiment fut promptement écrasé par sa détermination. Il prit une profonde inspiration et murmura: « Xue Yue et le Clan des Démons Géants, je n'oublierai pas ce qui s'est passé. Un jour, je vous ferai payer cent fois ce que vous m'avez infligé! »
 
 Le regard empreint de résolution, il se redressa et reprit sa marche.
 
 Mais à cet instant précis, des bruits de sabots retentirent derrière lui. Ce son était particulièrement strident dans le silence de la nuit.
 
-Aussitôt qu'il entendit ce bruit, un groupe de chevaux noirs surgit, les uns après les autres. Sur leurs dos siégeaient des hommes massifs aux visages de meurtriers. L'un d'eux aperçut Wang Lin au passage et tira brusquement sur les rênes en s'exclamant : « Haha, quel gamin laid ! Quel arbre à billets ! » Il tendit la main pour l'agripper.
+Aussitôt qu'il entendit ce bruit, un groupe de chevaux noirs surgit, les uns après les autres. Sur leurs dos siégeaient des hommes massifs aux visages de meurtriers. L'un d'eux aperçut Wang Lin au passage et tira brusquement sur les rênes en s'exclamant: « Haha, quel gamin laid! Quel arbre à billets! » Il tendit la main pour l'agripper.
 
-Un cri retentit de l'avant : « Quatrième Ma, que fais-tu ?! »
+Un cri retentit de l'avant: « Quatrième Ma, que fais-tu?! »
 
-« Patron, j'ai trouvé un arbre à billets ! Si nous brisons les jambes de ce gamin laid, nous pourrons l'utiliser pour bloquer les chariots de la compagnie d'escorte Heavenly Power sur la route. C'est bien mieux que d'utiliser nos propres frères ! » L'homme massif marqué d'une cicatrice commanda à son cheval de charger.
+« Patron, j'ai trouvé un arbre à billets! Si nous brisons les jambes de ce gamin laid, nous pourrons l'utiliser pour bloquer les chariots de la compagnie d'escorte Heavenly Power sur la route. C'est bien mieux que d'utiliser nos propres frères! » L'homme massif marqué d'une cicatrice commanda à son cheval de charger.
 
-L'homme balafrire chargea, souleva Wang Lin et sourit : « Patron, regardez ! »
+L'homme balafrire chargea, souleva Wang Lin et sourit: « Patron, regardez! »
 
-Wang Lin avait les yeux clos. Il bouillonnait de rage ; que quelques simples arts martiaux du monde mortel puissent l'humilier ainsi était insupportable.
+Wang Lin avait les yeux clos. Il bouillonnait de rage; que quelques simples arts martiaux du monde mortel puissent l'humilier ainsi était insupportable.
 
-Un homme colossal siégeait sur le cheval de tête. Il observa Wang Lin et hocha la tête : « Très bien, emmenez-le. »
+Un homme colossal siégeait sur le cheval de tête. Il observa Wang Lin et hocha la tête: « Très bien, emmenez-le. »
 
 Le groupe de dix-huit cavaliers galopa alors dans la nuit.
 
-Ils s'arrêtèrent à un embranchement, à mille cinq cents kilomètres de là. Chacun d'eux mit rapidement un masque, se dispersa sur les côtés de la route et se dissimula. Leurs mouvements étaient empreints d'une grande habileté ; il était évident qu'ils pratiquaient ce genre de forfait régulièrement.
+Ils s'arrêtèrent à un embranchement, à mille cinq cents kilomètres de là. Chacun d'eux mit rapidement un masque, se dispersa sur les côtés de la route et se dissimula. Leurs mouvements étaient empreints d'une grande habileté; il était évident qu'ils pratiquaient ce genre de forfait régulièrement.
 
 En un clin d'œil, il ne restait plus que l'homme balafré et Wang Lin. Ce dernier le maintenait fermement.
 
@@ -60,47 +60,47 @@ Allongé là, une intention meurtrière bouillonnait en lui. Il n'avait jamais �
 
 Le temps passa lentement. Une heure plus tard, le bruit des chariots se fit entendre au loin, se rapprochant progressivement.
 
-Soudain, les convois s'arrêtèrent et un homme bondit d'une monture. Il arriva rapidement auprès de Wang Lin et s'écria : « Chef, c'est un cadavre ! »
+Soudain, les convois s'arrêtèrent et un homme bondit d'une monture. Il arriva rapidement auprès de Wang Lin et s'écria: « Chef, c'est un cadavre! »
 
 Sur ces mots, il sauta à terre et envoya Wang Lin rouler sur le bas-côté, avant de remonter en selle pour rejoindre les chariots.
 
 Les convois reprirent leur marche, mais alors qu'ils passaient à l'endroit où se trouvait Wang Lin, des torches s'allumèrent soudainement tout autour d'eux et des rires emplirent l'air.
 
-« Compagnie d'escorte Heavenly Power, pensiez-vous que je ne vous pillerais pas si vous preniez le chemin détourné ? Restez là pour moi ! » Un cri puissant jaillit de la forêt alors que dix-huit hommes cruels en sortaient.
+« Compagnie d'escorte Heavenly Power, pensiez-vous que je ne vous pillerais pas si vous preniez le chemin détourné? Restez là pour moi! » Un cri puissant jaillit de la forêt alors que dix-huit hommes cruels en sortaient.
 
 À l'aide d'une torche, l'un d'eux mit à feu la pâte appliquée sur Wang Lin. Celle-ci se mua en un gaz qui enveloppa rapidement les chariots.
 
-« Le Poison des Nuages de Feu ! » hurla quelqu'un dans le convoi. Peu après, chaque membre de l'escorte sentit sa force s'évaporer de son corps.
+« Le Poison des Nuages de Feu! » hurla quelqu'un dans le convoi. Peu après, chaque membre de l'escorte sentit sa force s'évaporer de son corps.
 
-« C'est exact. C'est le poison spécial utilisé par les dix-huit Héros des Nuages de Feu ! Héhé, ce poison affecte le sang et s'active par le feu. Aujourd'hui, aucun d'entre vous n'échappera à la mort ! »
+« C'est exact. C'est le poison spécial utilisé par les dix-huit Héros des Nuages de Feu! Héhé, ce poison affecte le sang et s'active par le feu. Aujourd'hui, aucun d'entre vous n'échappera à la mort! »
 
 Le massacre commença. En moins de cinq minutes, plus de la moitié de l'escorte fut massacrée.
 
 Des cris successifs déchirèrent la nuit. Sous la lumière des torches, les dix-huit bandits paraissaient particulièrement démoniaques alors qu'ils achevaient les survivants.
 
-« Haha, grand frère, il y avait même trois femmes ! De quoi nous amuser une fois rentrés ! » L'homme balafré trancha la tête d'un homme avant de s'emparer de l'une des femmes. Elle était jolie, mais son visage, déformé par les hurlements, était pâle et pétrifié par la peur.
+« Haha, grand frère, il y avait même trois femmes! De quoi nous amuser une fois rentrés! » L'homme balafré trancha la tête d'un homme avant de s'emparer de l'une des femmes. Elle était jolie, mais son visage, déformé par les hurlements, était pâle et pétrifié par la peur.
 
 L'homme ricana. Il la malmença un instant avant de la jeter sur son dos, ignorant ses coups. Deux autres hommes s'approchèrent rapidement pour saisir les deux autres femmes en riant de la première. Bientôt, des chevaux surgirent du bord de la route.
 
-L'homme colossal sortit une boîte et l'examina. Avec un air de satisfaction extrême, il s'écria : « Frères, en route ! »
+L'homme colossal sortit une boîte et l'examina. Avec un air de satisfaction extrême, il s'écria: « Frères, en route! »
 
-Ils montèrent tous en selle, sur le point de partir avec les trois femmes en pleurs. L'homme balafré, la femme sur l'épaule, passa devant Wang Lin et lança : « Chef, ce gamin respire encore. Et si nous le gardions quelques jours pour le réutiliser ? »
+Ils montèrent tous en selle, sur le point de partir avec les trois femmes en pleurs. L'homme balafré, la femme sur l'épaule, passa devant Wang Lin et lança: « Chef, ce gamin respire encore. Et si nous le gardions quelques jours pour le réutiliser? »
 
 Le chef acquiesça et partit prestement à cheval. L'homme balafré donna un coup de pied en Wang Lin pour qu'il soit récupéré par un autre bandit. Ils s'éloignèrent dans un tumulte de cris, laissant derrière eux des cadavres exhalant une puissante odeur de sang.
 
-Au lever du soleil, les dix-huit hommes atteignirent la moitié de la montagne. Un immense village s'y trouvait, arborant sur un panneau à l'entrée trois grands caractères :
+Au lever du soleil, les dix-huit hommes atteignirent la moitié de la montagne. Un immense village s'y trouvait, arborant sur un panneau à l'entrée trois grands caractères:
 
-« Village des Nuages de Feu ! »
+« Village des Nuages de Feu! »
 
-« Tout le monde est de retour ! Ouvrez la porte ! »
+« Tout le monde est de retour! Ouvrez la porte! »
 
-La porte du village s'ouvrit et les dix-huit hommes entrèrent rapidement. Bientôt, le village s'anima d'une effervescence sinistre. L'homme balafré qui portait la femme descendit de cheval : « Chef, je vais aller m'amuser un peu ! » Il pénétra dans une maison, et bientôt, les cris déchirants d'une femme purent être entendus.
+La porte du village s'ouvrit et les dix-huit hommes entrèrent rapidement. Bientôt, le village s'anima d'une effervescence sinistre. L'homme balafré qui portait la femme descendit de cheval: « Chef, je vais aller m'amuser un peu! » Il pénétra dans une maison, et bientôt, les cris déchirants d'une femme purent être entendus.
 
 Ces brigands étaient manifestement accoutumés à ces pratiques et éclatèrent de rire. Les deux autres femmes furent également emmenées.
 
 Quant à Wang Lin, il fut jeté dans une prison aquatique située à l'arrière du village.
 
-L'obscurité régnait dans la cage ; nul son, nulle lumière. Il ne sentait rien sous ses pieds, comme s'il était suspendu dans le vide. Son corps oscillait d'avant en arrière. Wang Lin bougea sa tête enflée et la douleur fulgurante de ses membres lui brûla la peau comme un feu dévorant.
+L'obscurité régnait dans la cage; nul son, nulle lumière. Il ne sentait rien sous ses pieds, comme s'il était suspendu dans le vide. Son corps oscillait d'avant en arrière. Wang Lin bougea sa tête enflée et la douleur fulgurante de ses membres lui brûla la peau comme un feu dévorant.
 
 Wang Lin ouvrit les yeux, retrouvant soudainement toute sa lucidité.
 
@@ -118,4 +118,4 @@ Le Wang Lin capable de mouvoir les cieux et de faire trembler la terre n'existai
 
 Tandis que Wang Lin réfléchissait en silence, ses yeux s'illuminèrent progressivement. Cette cage aquatique possédait une énergie spirituelle plus dense que n'importe quel autre endroit visité depuis son départ du village.
 
-Cette énergie ne provenait pas de la montagne, mais de l'eau !
+Cette énergie ne provenait pas de la montagne, mais de l'eau!

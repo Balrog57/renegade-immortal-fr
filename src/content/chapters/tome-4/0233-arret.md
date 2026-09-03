@@ -16,7 +16,7 @@ Après un bref examen, Wang Lin rangea l'épée volante. Fixant l'océan infini 
 
 Quatre-vingt-dix-neuf restrictions formèrent quatre-vingt-dix-neuf dragons. Ces derniers tournoyaient frénétiquement autour de l'ancienne restriction. À chaque passage, d'innombrables plantes rouges mouraient en crachant des quantités infinies de liquide rouge.
 
-Les mains de Wang Lin lancèrent rapidement plusieurs sceaux et il cria : « Ouvrez ! »
+Les mains de Wang Lin lancèrent rapidement plusieurs sceaux et il cria: « Ouvrez! »
 
 Soudain, la mer de liquide rouge se fendit en deux, comme si de gigantesques mains l'écartaient. Le liquide se déplaça sur les côtés, révélant l'ancien réseau de transfert.
 
@@ -30,13 +30,13 @@ Au cours du mois nécessaire pour atteindre ce lieu, Wang Lin avait commencé à
 
 Bien que le concept des anciens réseaux de transfert fût complexe, Wang Lin possédait déjà de solides connaissances en formations et en réseaux de transfert. De plus, comme son but était de réparer et non de construire, il parvint à en saisir certains principes.
 
-Toutefois, ses seules connaissances ne lui permettaient pas de savoir s'il y parviendrait ; trouver un spécialiste des anciens réseaux de transfert dans la Mer des Démons serait extrêmement difficile, à moins que le Seigneur Démon des Six Désirs ne revienne à la vie.
+Toutefois, ses seules connaissances ne lui permettaient pas de savoir s'il y parviendrait; trouver un spécialiste des anciens réseaux de transfert dans la Mer des Démons serait extrêmement difficile, à moins que le Seigneur Démon des Six Désirs ne revienne à la vie.
 
 Wang Lin chercha pendant sept jours selon les indications de la carte avant de finalement découvrir un autre ancien réseau de transfert. L'endroit était infesté de bêtes sauvages, mais la bête moustique les chassa rapidement toutes.
 
-Ce qui surprit le plus Wang Lin fut l'état de ce réseau : il était parfaitement intact. Après l'avoir étudié un moment, son regard se posa sur une section spécifique. Cette partie était nettement différente des autres. Wang Lin fut stupéfait ; il réalisa que cette section avait été ajoutée ultérieurement par quelqu'un ayant réparé cet ancien réseau.
+Ce qui surprit le plus Wang Lin fut l'état de ce réseau: il était parfaitement intact. Après l'avoir étudié un moment, son regard se posa sur une section spécifique. Cette partie était nettement différente des autres. Wang Lin fut stupéfait; il réalisa que cette section avait été ajoutée ultérieurement par quelqu'un ayant réparé cet ancien réseau.
 
-Wang Lin réfléchit. Il ne comprenait pas pourquoi quelqu'un aurait voulu réparer ce réseau de transfert. Cherchaient-ils, eux aussi, à se transférer vers un autre continent ?
+Wang Lin réfléchit. Il ne comprenait pas pourquoi quelqu'un aurait voulu réparer ce réseau de transfert. Cherchaient-ils, eux aussi, à se transférer vers un autre continent?
 
 Un instant plus tard, Wang Lin retira certaines pièces du réseau. Après une brève hésitation, il détruisit une partie de la formation avant de repartir sur le dos de la bête moustique.
 
@@ -56,7 +56,7 @@ Les yeux de Wang Lin brillèrent d'une intention meurtrière. S'il laissait un t
 
 L'homme en noir était d'âge moyen, un peu maigre, avec un visage particulièrement méchant. Voyant que Wang Lin avait échappé à son attaque surprise, il sortit un sceau de pierre de son sac de rangement. Il poussa un rugissement et le sceau se mit à tournoyer, grandissant à chaque rotation. Lorsqu'il atteignit la taille d'une petite montagne, il s'abattit sur Wang Lin.
 
-Cependant, au moment même où il lança son trésor magique, son visage pâlit en voyant l'éclair rouge dans les yeux de Wang Lin, et il se retourna aussitôt pour fuir. Il abandonna même son trésor ; sans maître pour le contrôler, celui-ci rétrécit instantanément à la taille d'une paume avant de tomber au sol.
+Cependant, au moment même où il lança son trésor magique, son visage pâlit en voyant l'éclair rouge dans les yeux de Wang Lin, et il se retourna aussitôt pour fuir. Il abandonna même son trésor; sans maître pour le contrôler, celui-ci rétrécit instantanément à la taille d'une paume avant de tomber au sol.
 
 Wang Lin fronça les sourcils. Son Domaine de Ji jaillit et rattrapa immédiatement l'individu. L'homme, horrifié, serra les dents et, juste au moment où le Domaine de Ji pénétrait son corps, il explosa.
 
@@ -68,7 +68,7 @@ L'expression de Wang Lin resta sombre. Bien que son Domaine de Ji ait tué l'hom
 
 Wang Lin réfléchit un instant avant de repartir précipitamment. L'explosion ayant détruit tous les sacs de rangement de l'homme, il n'en restait aucune trace. Quelques jours plus tard, Wang Lin revint au réseau de transfert recouvert de plantes rouges pour entamer ses réparations.
 
-Pendant la phase de restauration, le drapeau de restriction resta constamment actif ; c'était le seul moyen d'empêcher les plantes rouges de reprendre le dessus. Après trois jours de travail minutieux, Wang Lin acheva la réparation du réseau.
+Pendant la phase de restauration, le drapeau de restriction resta constamment actif; c'était le seul moyen d'empêcher les plantes rouges de reprendre le dessus. Après trois jours de travail minutieux, Wang Lin acheva la réparation du réseau.
 
 En trois jours, il avait épuisé presque toute son énergie pour cette tâche. Une fois terminé, il s'assit en tailleur pour récupérer son énergie spirituelle. Une fois rétabli, il inséra une pierre spirituelle de qualité supérieure dans le logement du réseau.
 
@@ -92,11 +92,11 @@ Le sentiment de danger dans le cœur de Wang Lin s'intensifia. Il prit une profo
 
 Il utilisa sa vitesse maximale pour atteindre sa destination.
 
-Le huitième jour, il arriva au réseau indiqué sur la carte. À sa vue, Wang Lin sentit son sang se glacer : ce réseau était également en parfait état.
+Le huitième jour, il arriva au réseau indiqué sur la carte. À sa vue, Wang Lin sentit son sang se glacer: ce réseau était également en parfait état.
 
 Il n'hésita pas, mais au moment où il s'apprêtait à le démonter, l'appareil s'illumina brusquement. Des piliers de lumière jaillirent vers le ciel et les silhouettes floues d'individus apparurent dans le réseau. Une puissante intention meurtrière émanait de ces figures qui gagnaient en netteté.
 
-Au même instant où la lumière jaillit, Wang Lin saisit les composants du coin nord-est. Son énergie spirituelle afflua pour arracher de force cette pièce. Alors qu'il l'extrayait, un rugissement colérique retentit parmi les silhouettes : « Arrête ! »
+Au même instant où la lumière jaillit, Wang Lin saisit les composants du coin nord-est. Son énergie spirituelle afflua pour arracher de force cette pièce. Alors qu'il l'extrayait, un rugissement colérique retentit parmi les silhouettes: « Arrête! »
 
 Loin de s'arrêter, Wang Lin accéléra son geste et retira la pièce. Il leva ensuite la tête et fixa froidement les silhouettes alors qu'elles disparaissaient lentement dans la lumière. S'il s'était arrêté, il aurait été tué à l'instant même de leur arrivée. Puisque ce groupe osait envahir la Mer des Démons, des cultivateurs en étape de Séparation Spirituelle devaient faire partie du cortège.
 
@@ -104,7 +104,7 @@ Loin de s'arrêter, Wang Lin accéléra son geste et retira la pièce. Il leva e
 
 Quant au réseau où se trouvait Wang Lin, il y avait bien un homme en noir, mais celui-ci avait déjà été éliminé par lui.
 
-La Mer des Démons fut plongée dans un chaos total. La tension accumulée finit par exploser : quatre pays de cultivation s'étaient alliés pour attaquer la Mer des Démons, envoyant des dizaines de milliers de cultivateurs via les anciens réseaux. Une bataille titanesque venait de commencer. Les 999 cités de la Mer des Démons devinrent instantanément des champs de bataille sanglants.
+La Mer des Démons fut plongée dans un chaos total. La tension accumulée finit par exploser: quatre pays de culture s'étaient alliés pour attaquer la Mer des Démons, envoyant des dizaines de milliers de cultivateurs via les anciens réseaux. Une bataille titanesque venait de commencer. Les 999 cités de la Mer des Démons devinrent instantanément des champs de bataille sanglants.
 
 Wang Lin avait pressenti l'événement dès qu'il avait vu les réseaux intacts et les gardes en noir. La vue des silhouettes dans le réseau n'avait fait que confirmer ses soupçons. Il comprit qu'il devait quitter la Mer des Démons au plus vite. En s'élançant, il toucha les matériaux nécessaires et prit une profonde inspiration.
 

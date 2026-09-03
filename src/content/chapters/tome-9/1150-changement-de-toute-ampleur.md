@@ -18,27 +18,27 @@ Ce n'était pas un cas isolé. En l'espace de sept courtes minutes, pas moins d'
 
 Diverses bêtes spirituelles se trouvaient au sein de ces éclats de lumière, chacune portant un cultivateur sur son dos.
 
-Aucun de ces cultivateurs n'appartenait à la région de rang 5 ; ils provenaient tous de la région de rang 6. L'apparition de ces individus fit trembler la région de rang 5.
+Aucun de ces cultivateurs n'appartenait à la région de rang 5; ils provenaient tous de la région de rang 6. L'apparition de ces individus fit trembler la région de rang 5.
 
 Ce n'était pas le seul endroit où cela se produisait. Le phénomène se répétait dans plus de six lieux différents au sein de la région de rang 5. Ces cultivateurs affichaient tous des expressions sombres, mais ils dissimulaient sous leurs traits une extase mêlée d'une cupidité sans fin.
 
-Tous ces cultivateurs venus de la région de rang 6 poursuivaient un objectif unique : un continent sauvage de la région de rang 5 !
+Tous ces cultivateurs venus de la région de rang 6 poursuivaient un objectif unique: un continent sauvage de la région de rang 5!
 
 Le sol au nord du continent où se trouvait Wang Lin continuait de trembler, comme si une masse colossale s'y abattait. Le brouillard était violemment brassé et repoussé vers l'avant.
 
-Certaines bêtes ailées poussèrent des cris en s'éloignant précipitamment de la brume. Au sol, de nombreuses autres créatures féroces se dispersèrent ; pour elles, le grondement émanant du brouillard était d'une terreur absolue.
+Certaines bêtes ailées poussèrent des cris en s'éloignant précipitamment de la brume. Au sol, de nombreuses autres créatures féroces se dispersèrent; pour elles, le grondement émanant du brouillard était d'une terreur absolue.
 
-Un instant plus tard, une silhouette gigantesque de plus de mille pieds de haut apparut dans la brume. Cette figure était extrêmement robuste et, en s'approchant, elle finit par se révéler : c'était un immense singe noir !
+Un instant plus tard, une silhouette gigantesque de plus de mille pieds de haut apparut dans la brume. Cette figure était extrêmement robuste et, en s'approchant, elle finit par se révéler: c'était un immense singe noir!
 
 Des bêtes semblables à des taureaux aux yeux rouges poursuivaient le singe noir, labourant le brouillard et soulevant une tempête de poussière.
 
 Outre ces taureaux, sept autres types de troupeaux de bêtes se mêlaient dans une longue file. Il semblait qu'ils refusassent d'abandonner leur poursuite du singe noir, fût-ce au prix de leur vie.
 
-Dans le ciel, des bêtes aviaires chassaient avec frénésie. Quiconque contemplait cette scène en aurait le cuir chevelu hérissé. Même les puissants cultivateurs auraient été stupéfaits par une telle multitude ! On distinguait manifestement certaines bêtes de rang 5 mêlées à la foule, lançant des sorts contre le singe noir.
+Dans le ciel, des bêtes aviaires chassaient avec frénésie. Quiconque contemplait cette scène en aurait le cuir chevelu hérissé. Même les puissants cultivateurs auraient été stupéfaits par une telle multitude! On distinguait manifestement certaines bêtes de rang 5 mêlées à la foule, lançant des sorts contre le singe noir.
 
-Cependant, le singe noir était extrêmement agile et possédait une peau très épaisse ; il esquivait la plupart des sortilèges, et ceux qui l'atteignaient n'avaient que peu d'effet sur lui.
+Cependant, le singe noir était extrêmement agile et possédait une peau très épaisse; il esquivait la plupart des sortilèges, et ceux qui l'atteignaient n'avaient que peu d'effet sur lui.
 
-Le singe noir galopait sur le sol, et chaque grondement était le fruit de ses pas ! Il se déplaçait à une vitesse fulgurante, créant de puissantes bourrasques dans sa course. Une montagne se dressait devant lui. Tandis qu'il courait, il enfonça sans pitié le sol de ses pattes, faisant éclater la terre. Il franchit directement la montagne d'un bond et chargea vers une autre montagne.
+Le singe noir galopait sur le sol, et chaque grondement était le fruit de ses pas! Il se déplaçait à une vitesse fulgurante, créant de puissantes bourrasques dans sa course. Une montagne se dressait devant lui. Tandis qu'il courait, il enfonça sans pitié le sol de ses pattes, faisant éclater la terre. Il franchit directement la montagne d'un bond et chargea vers une autre montagne.
 
 En quelques respirations à peine, il atteignit le sommet. Plusieurs bêtes semblables à des aigles chargèrent le singe noir.
 
@@ -52,7 +52,7 @@ La main du singe ne s'arrêta pas là. Après avoir détruit le nid, il saisit d
 
 Le singe noir poussa un rugissement de joie et s'élança au loin.
 
-Les bêtes aviaires poussèrent des cris stridents, et pas moins de mille d'entre elles rejoignirent la marée bestiale en furie pour poursuivre le singe noir !
+Les bêtes aviaires poussèrent des cris stridents, et pas moins de mille d'entre elles rejoignirent la marée bestiale en furie pour poursuivre le singe noir!
 
 Le singe écrasa le rocher qu'il tenait dans sa main, libérant l'herbe rouge, et la lança par-dessus son épaule. Wang Lin, qui était assis sur l'épaule de la bête, la saisit au vol. Après l'avoir inspectée, il la rangea dans son espace de stockage.
 
@@ -60,11 +60,11 @@ Wang Lin tapota doucement le corps du singe noir. La bête le sentit immédiatem
 
 La terre tremblait. De loin, on voyait le singe noir bondir et s'élancer, soulevant de la poussière partout sur son passage. Derrière lui, l'estampée de bêtes ne le lâchait pas d'une semelle.
 
-Très peu de cultivateurs osaient provoquer ainsi des bêtes féroces sur un continent sauvage pour voler des herbes avec une telle arrogance. La puissance d'une seule bête n'était peut-être pas une menace, mais une fois que des milliers, des dizaines de milliers ou des centaines de milliers de créatures se rassemblaient, leur force combinée était suffisante pour terrasser n'importe qui !
+Très peu de cultivateurs osaient provoquer ainsi des bêtes féroces sur un continent sauvage pour voler des herbes avec une telle arrogance. La puissance d'une seule bête n'était peut-être pas une menace, mais une fois que des milliers, des dizaines de milliers ou des centaines de milliers de créatures se rassemblaient, leur force combinée était suffisante pour terrasser n'importe qui!
 
 Certains cultivateurs de sectes de rang 5 observaient la scène de loin. Ils restaient là, pétrifiés comme des poulets engourdis, incapables de prononcer un mot.
 
-Ils formaient un groupe de sept et s'étaient montrés très prudents dès leur arrivée, craignant d'attirer trop de bêtes ; ils n'avaient donc naturellement récolté que peu d'herbes. En voyant l'arrogance du singe noir, ils en furent totalement stupéfaits.
+Ils formaient un groupe de sept et s'étaient montrés très prudents dès leur arrivée, craignant d'attirer trop de bêtes; ils n'avaient donc naturellement récolté que peu d'herbes. En voyant l'arrogance du singe noir, ils en furent totalement stupéfaits.
 
 Le singe noir courait à toute allure et, d'un bond, franchit des milliers de pieds pour atteindre une autre montagne. Le sommet de cette montagne, semblable à une lame, était extrêmement escarpé, mais cela n'était rien pour le singe. Arrivé au sommet, l'animal tendit la main vers un bouquet de fleurs de brume qui y croissaient.
 
@@ -72,9 +72,9 @@ Il s'empara immédiatement des fleurs nichées dans la brume.
 
 C'est à cet instant qu'un cri retentit dans les airs. C'était une bête aviaire de rang 5, haute de près de 500 pieds, qui chargeait le singe.
 
-Elle était trop rapide : en un clin d'œil, elle se trouvait à moins de mille pieds !
+Elle était trop rapide: en un clin d'œil, elle se trouvait à moins de mille pieds!
 
-L'expression de Wang Lin resta neutre, comme s'il ne l'avait même pas remarquée. Les yeux du singe noir se plissèrent ; il agrippa le sommet de la montagne et bascula son corps par-dessus la crête. Son pied droit robuste frappa instantanément l'aigle noir.
+L'expression de Wang Lin resta neutre, comme s'il ne l'avait même pas remarquée. Les yeux du singe noir se plissèrent; il agrippa le sommet de la montagne et bascula son corps par-dessus la crête. Son pied droit robuste frappa instantanément l'aigle noir.
 
 L'aigle poussa un cri de douleur tandis que le sang jaillissait de toutes parts. Le singe noir ne s'attarda pas pour combattre, mais utilisa l'élan du choc pour bondir au loin.
 
@@ -82,7 +82,7 @@ D'autres bêtes encore plus féroces se mirent à sa poursuite.
 
 ***
 
-Shi Luoxing était assis en position de lotus dans une vallée sombre. Son visage était pâle et du sang séché maculait le coin de sa bouche. Ses cheveux noirs étaient ébouriffés ; il était dans un état déplorable.
+Shi Luoxing était assis en position de lotus dans une vallée sombre. Son visage était pâle et du sang séché maculait le coin de sa bouche. Ses cheveux noirs étaient ébouriffés; il était dans un état déplorable.
 
 Un hurlement fantomatique continuait de résonner et de siffler dans la zone. Peu de temps après, quatre silhouettes titubèrent dans la vallée et, lorsqu'elles furent à moins de dix mètres de Shi Luoxing, l'une d'elles cracha une bouchée de sang.
 
@@ -94,22 +94,22 @@ Lui et ses disciples se trouvaient dans cette vallée saturée de brume. Des âm
 
 Cette formation était d'une grande complexité. Elle recueillait les âmes de ceux qui étaient morts au fil des innombrables années sur le continent sauvage, les transformait en quelque chose de tangible et les utilisait pour alimenter la structure.
 
-Ces âmes mortes ne pouvaient être raffinées en pilules, car l'alchimie exigeait les âmes de bêtes vivantes ! Une âme morte n'était guère plus qu'un vestige de ressentiment formé au moment du trépas et refusant de se dissiper.
+Ces âmes mortes ne pouvaient être raffinées en pilules, car l'alchimie exigeait les âmes de bêtes vivantes! Une âme morte n'était guère plus qu'un vestige de ressentiment formé au moment du trépas et refusant de se dissiper.
 
 Une vieille femme était assise au sommet de l'un des huit crânes. Elle n'était qu'un amas d'os, aussi hideuse qu'un spectre en colère. Si un mortel la voyait, il en mourrait de terreur. Elle ouvrit les yeux, et son regard dégageait une intention sinistre.
 
-— Compagnon cultivateur Shi, il ne vous reste que quatre de vos dix-neuf disciples. Pourquoi continuer à gaspiller leurs vies ? Si vous me remettez cet objet, cette vieille femme s'en ira immédiatement.
+— Compagnon cultivateur Shi, il ne vous reste que quatre de vos dix-neuf disciples. Pourquoi continuer à gaspiller leurs vies? Si vous me remettez cet objet, cette vieille femme s'en ira immédiatement.
 
 Une voix lugubre résonna dans toute la vallée, pénétrant clairement les oreilles des cinq personnes. Les visages des quatre jeunes devinrent livides alors qu'ils regardaient silencieusement leur maître.
 
-— Shi Luoxing, il ne vaut pas la peine de perdre la vie pour un simple bien matériel. Bien que votre niveau de cultivation soit élevé, vous avez été empoisonné par le venin de ma Secte des Cinq Poisons. Si vous tentez d'utiliser toute votre puissance prochainement, vous mourrez à coup sûr. Réfléchissez-y à deux fois.
+— Shi Luoxing, il ne vaut pas la peine de perdre la vie pour un simple bien matériel. Bien que votre niveau de culture soit élevé, vous avez été empoisonné par le venin de ma Secte des Cinq Poisons. Si vous tentez d'utiliser toute votre puissance prochainement, vous mourrez à coup sûr. Réfléchissez-y à deux fois.
 
-Le visage de Shi Luoxing se crispa alors qu'il ouvrait lentement les yeux. Son regard brillait intensément, mais une pointe d'amertume marquait ses traits. Il était le disciple principal du Secte du Flux Clair dans la région 6, et il se trouvait au stade avancé du Nirvana Purificateur. Après avoir trouvé quelques indices, il avait secrètement emmené ses disciples dans la région 3 pour mener des recherches.
+Le visage de Shi Luoxing se crispa alors qu'il ouvrait lentement les yeux. Son regard brillait intensément, mais une pointe d'amertume marquait ses traits. Il était le disciple principal de la Secte du Flux Clair dans la région 6, et il se trouvait au stade avancé du Nirvana Purificateur. Après avoir trouvé quelques indices, il avait secrètement emmené ses disciples dans la région 3 pour mener des recherches.
 
 À l'origine, il ne pensait pas que ces indices soient fiables, mais il s'avéra qu'ils étaient vrais et que tout se déroulait sans encombre. Cependant, une fois l'objet trouvé, non seulement sa position fut révélée, mais la nature même de ce qu'il avait obtenu fut divulguée. Il fut alors assiégé et perdit d'innombrables disciples. Il avait même été frappé par un poison étrange et avait dû fuir vers cette vallée pour tenter de l'expulser.
 
 Toutefois, avant qu'il ne puisse dissiper ce venin mystérieux, il fut intercepté par cette vieille femme de la Secte des Cinq Poisons. Elle avait utilisé la formation de sa secte pour le piéger dans la vallée. Il avait déjà envoyé un message secret à son propre secteur, mais il faudrait du temps avant que les renforts n'arrivent.
 
-— Compagnon cultivateur Shi, même si votre Secte du Flux Clair envoie des renforts, cela sera inutile ! D'après ce que cette vieille femme sait, au sein de la région 6, outre ma Secte des Cinq Poisons, les sectes du Pic Spirituel, des Sorts Daoïstes, de l'Évasion et de la Collection Démoniaque sont déjà sur les talons et convoitent ce que vous détenez !
+— Compagnon cultivateur Shi, même si votre Secte du Flux Clair envoie des renforts, cela sera inutile! D'après ce que cette vieille femme sait, au sein de la région 6, outre ma Secte des Cinq Poisons, les sectes du Pic Spirituel, des Sorts Daoïstes, de l'Évasion et de la Collection Démoniaque sont déjà sur les talons et convoitent ce que vous détenez!
 
-— Le jade du Secte Céleste Briseur de Cieux de la région 8 et la recette légendaire d'une pilule du Nirvana Vide !
+— Le jade de la Secte Céleste Briseur de Cieux de la région 8 et la recette légendaire d'une pilule du Nirvana Vide!

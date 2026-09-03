@@ -10,7 +10,7 @@ Cette grotte comptait neuf salles, toutes vides, mais à cet instant, les yeux d
 
 Le morceau de métal indiquait clairement comment ouvrir les portes de ces salles et précisait qu'il y en avait au total dix. L'emplacement du Chariot Tueur de Dieux se trouvait dans la dixième salle.
 
-« Il n'y a que neuf salles de pierre. Où est la dixième ? » Wang Lin fronça les sourcils. Il avait déjà déployé son sens divin, mais n'avait rien trouvé d'autre.
+« Il n'y a que neuf salles de pierre. Où est la dixième? » Wang Lin fronça les sourcils. Il avait déjà déployé son sens divin, mais n'avait rien trouvé d'autre.
 
 Wang Lin fit quelques pas en avant et toucha le mur. La paroi était froide, mais rien d'inhabituel ne s'en dégageait.
 
@@ -18,11 +18,11 @@ Après une courte réflexion, il frappa son sac de rangement. Le morceau de mét
 
 Dès qu'il fut révélé, le métal émit soudain une lumière éclatante et commença à chauffer. Wang Lin ressentit un soudain regain d'excitation. Il recula et lança le morceau de métal en l'air.
 
-Soudain, l'éclat du métal s'intensifia jusqu'à ce qu'il commence à fondre. Cependant, aucun liquide ne s'en écoula ; au lieu de cela, il se transforma en un nuage de fumée.
+Soudain, l'éclat du métal s'intensifia jusqu'à ce qu'il commence à fondre. Cependant, aucun liquide ne s'en écoula; au lieu de cela, il se transforma en un nuage de fumée.
 
 Au sein de cette fumée en forme de champignon, une silhouette se forma lentement. Cet homme était très beau. Ses cheveux flottaient bien qu'il n'y eût aucun vent. Il dégageait une aura d'une grande majesté.
 
-Les yeux de Wang Lin s'illuminèrent ; il recula de quelques pas et fixa la scène d'un regard froid.
+Les yeux de Wang Lin s'illuminèrent; il recula de quelques pas et fixa la scène d'un regard froid.
 
 Une fois la silhouette apparue, celle-ci forma un sceau manuel, créant une lumière dorée qui enveloppa toute la grotte. Soudain, des grondements retentirent alors que l'entièreté de la caverne commençait à s'enfoncer.
 
@@ -34,7 +34,7 @@ La silhouette traça d'étranges sceaux et pointa la porte violette avant de dis
 
 Wang Lin prit une profonde inspiration et se tourna vers la porte violette. En incluant celle-ci, la grotte comptait désormais un total de dix salles.
 
-Wang Lin songea intérieurement : « Cette silhouette devait être le Céleste des Trésors Célestes. C'est véritablement un maître du raffinage de trésors. Même si des gens trouvaient cette grotte, très peu seraient capables de débusquer la salle contenant le véritable trésor. »
+Wang Lin songea intérieurement: « Cette silhouette devait être le Céleste des Trésors Célestes. C'est véritablement un maître du raffinage de trésors. Même si des gens trouvaient cette grotte, très peu seraient capables de débusquer la salle contenant le véritable trésor. »
 
 Ses yeux brillèrent alors qu'il s'approchait de la porte violette. Après avoir hésité un instant, il reproduisit rapidement les sceaux montrés par la silhouette et pressa la porte.
 
@@ -48,7 +48,7 @@ Il n'était pas exagéré de parler d'objets monstrueux, car ils semblaient reco
 
 Ce n'étaient là que les parties supérieures de ces objets. Leurs bases ressemblaient à de grands chars de guerre utilisés par les mortels, dotés de quatre grandes roues.
 
-Ces chars mesuraient environ dix pieds de large. Avec les trois unités au centre, ils occupaient presque tout l'espace de la pièce.
+Ces chars mesuraient environ 33 mètres de large. Avec les trois unités au centre, ils occupaient presque tout l'espace de la pièce.
 
 Lorsque Wang Lin entra dans la salle, trois âmes de bêtes apparurent au-dessus de leurs chars respectifs. Les créatures semblaient plus féroces encore que leurs montures et se mirent immédiatement à rugir face à lui.
 
@@ -58,13 +58,13 @@ L'une des bêtes avait une tête triangulaire et un corps de bœuf. Elle paraiss
 
 En voyant cette créature, Wang Lin fouilla immédiatement dans les souvenirs de Tu Si, mais ne trouva rien. Toutefois, l'univers recelait tant de types de bêtes qu'il n'était pas rare de croiser des créatures inconnues de Tu Si.
 
-Les trois âmes de bêtes étaient très similaires ; seule leur taille variait. Celle du centre paraissait immense, tandis que les deux autres sur les côtés étaient plus petites.
+Les trois âmes de bêtes étaient très similaires; seule leur taille variait. Celle du centre paraissait immense, tandis que les deux autres sur les côtés étaient plus petites.
 
 Une fois apparues, leurs yeux rouges se fixèrent sur Wang Lin avec hostilité. Elles rugirent et chargèrent pour tenter de le dévorer.
 
 Le regard de Wang Lin resta serein alors qu'il reculait d'un pas.
 
-Mais au moment où les trois âmes de bêtes bondirent en avant, d'innombrables chaînes aussi épaisses que des bras apparurent sur elles. Ces chaînes traversèrent même l'essence des âmes et se mirent à briller dès qu'elles s'approchèrent à moins de trois pieds de Wang Lin.
+Mais au moment où les trois âmes de bêtes bondirent en avant, d'innombrables chaînes aussi épaisses que des bras apparurent sur elles. Ces chaînes traversèrent même l'essence des âmes et se mirent à briller dès qu'elles s'approchèrent à moins de 10 mètres de Wang Lin.
 
 Les trois âmes de bêtes poussèrent soudain des rugissements de douleur, leurs corps étant violemment ramenés en arrière par les chaînes pour être immobilisés sur les chars.
 
@@ -72,7 +72,7 @@ Seule la plus grande âme de bête au centre avait réussi à progresser de quel
 
 Cependant, les trois âmes de bêtes refusaient de céder et commencèrent à se débattre. La grotte trembla comme si elle allait s'effondrer à tout instant.
 
-Wang Lin se calma. Bien qu'il ignorât le nom de ces âmes de bêtes, il avait appris comment les maîtriser grâce au morceau de métal. Il savait également que chaque chariot contenait une âme de bête et que les chaînes empêchaient ces dernières de s'éloigner de plus de trois pieds de leur monture.
+Wang Lin se calma. Bien qu'il ignorât le nom de ces âmes de bêtes, il avait appris comment les maîtriser grâce au morceau de métal. Il savait également que chaque chariot contenait une âme de bête et que les chaînes empêchaient ces dernières de s'éloigner de plus de 10 mètres de leur monture.
 
 Observant la lutte des trois âmes, Wang Lin enchaîna rapidement les sceaux en suivant les informations du morceau de métal. À chaque sceau terminé, celui-ci se transformait promptement en un anneau noir.
 
@@ -80,7 +80,7 @@ En voyant ces anneaux, les trois âmes de bêtes se débattirent avec encore plu
 
 Graduellement, les mouvements de Wang Lin s'accélérèrent et de nouveaux anneaux apparurent. Bientôt, plus de cent anneaux remplirent la pièce. D'un geste du doigt, il les fit tous voler vers l'un des chars.
 
-« Scellement ! »
+« Scellement! »
 
 Tous les anneaux tombèrent telle une pluie et enveloppèrent le chariot.
 
@@ -90,7 +90,7 @@ En montant, la taille du char changea. Il rétrécit lentement jusqu'à n'attein
 
 Wang Lin l'examina avant de le ranger dans son sac de rangement.
 
-S'il voulait utiliser ces chars, il devait être capable de soumettre les âmes de bêtes. Cependant, il n'était pas encore assez puissant pour cela ; il ne pouvait donc qu'utiliser la méthode du morceau de métal pour plonger les âmes dans un état de sommeil.
+S'il voulait utiliser ces chars, il devait être capable de soumettre les âmes de bêtes. Cependant, il n'était pas encore assez puissant pour cela; il ne pouvait donc qu'utiliser la méthode du morceau de métal pour plonger les âmes dans un état de sommeil.
 
 En vérité, le Céleste des Trésors Célestes n'aurait jamais imaginé qu'un cultivateur de la Formation de l'Âme puisse mettre la main sur les Chariots Tueurs de Dieux. Il était convaincu qu'il fallait atteindre au moins le stade de la Transformation de l'Âme pour espérer les contrôler.
 
@@ -100,11 +100,11 @@ Enfin, il ne restait plus qu'un seul chariot. Celui-ci abritait la plus petite �
 
 Voyant ses deux compagnons ainsi scellés, la bête continua de rugir.
 
-Si c'était le Céleste des Trésors Célestes d'autrefois, il aurait obéi ; mais face à ce minuscule cultivateur qu'il pourrait tuer d'une simple gifle s'il était à pleine puissance, son orgueil refusait toute soumission.
+Si c'était le Céleste des Trésors Célestes d'autrefois, il aurait obéi; mais face à ce minuscule cultivateur qu'il pourrait tuer d'une simple gifle s'il était à pleine puissance, son orgueil refusait toute soumission.
 
-Wang Lin fixa la créature. Il hésitait : devait-il prendre le risque ? S'il réussissait, il pourrait temporairement contrôler la bête, mais en cas d'échec, il courrait un grand danger.
+Wang Lin fixa la créature. Il hésitait: devait-il prendre le risque? S'il réussissait, il pourrait temporairement contrôler la bête, mais en cas d'échec, il courrait un grand danger.
 
-Après réflexion, il toucha le piège à bêtes qu'il tenait en main. Logiquement, ce piège devrait fonctionner, mais cette âme de bête avait probablement été une bête céleste de son vivant. Un problème résidait dans l'efficacité même du piège ; l'autre était de savoir s'il pourrait supporter la quantité d'énergie spirituelle qui serait absorbée.
+Après réflexion, il toucha le piège à bêtes qu'il tenait en main. Logiquement, ce piège devrait fonctionner, mais cette âme de bête avait probablement été une bête céleste de son vivant. Un problème résidait dans l'efficacité même du piège; l'autre était de savoir s'il pourrait supporter la quantité d'énergie spirituelle qui serait absorbée.
 
 Il pesa le pour et le contre, puis renonça à prendre le risque et scella également ce dernier chariot.
 
@@ -112,10 +112,10 @@ Il pesa le pour et le contre, puis renonça à prendre le risque et scella égal
 
 Il rangea rapidement tout dans son sac de rangement, puis les examina avec soin. Enfin, il se dirigea vers la porte violette et utilisa la même méthode qu'auparavant pour relever la grotte et en sortir.
 
-Wang Lin songea : « Ces Chariots Tueurs de Dieux sont vraiment extraordinaires. Ils ne nécessitent aucune pierre spirituelle pour s'activer, utilisant uniquement la puissance de l'âme de bête emprisonnée. Cela permet d'économiser énormément de ressources, mais si ces chars avaient eu besoin de pierres spirituelles, ils auraient probablement exigé des jades célestes. »
+Wang Lin songea: « Ces Chariots Tueurs de Dieux sont vraiment extraordinaires. Ils ne nécessitent aucune pierre spirituelle pour s'activer, utilisant uniquement la puissance de l'âme de bête emprisonnée. Cela permet d'économiser énormément de ressources, mais si ces chars avaient eu besoin de pierres spirituelles, ils auraient probablement exigé des jades célestes. »
 
 « Je me demande seulement si l'activation du char affecte l'âme de la bête. En temps normal, aucune source d'énergie n'est infinie dans ce monde. L'âme de la bête risque d'être endommagée après un certain nombre d'utilisations, voire de disparaître totalement. Malheureusement, le Céleste des Trésors Célestes n'a laissé aucune information à ce sujet. » Wang Lin leva les yeux vers le ciel et s'enfonça dans une profonde réflexion.
 
-« Je pense que le Céleste des Trésors Célestes n'a pas eu assez de temps avant sa mort pour inscrire toutes les informations dans le métal ; il n'a laissé que l'essentiel. Cela signifie que je vais devoir mener mes propres recherches pour mieux comprendre ces Chariots Tueurs de Dieux. » Wang Lin réfléchit encore un moment, puis toucha son sac de rangement en affichant un léger sourire.
+« Je pense que le Céleste des Trésors Célestes n'a pas eu assez de temps avant sa mort pour inscrire toutes les informations dans le métal; il n'a laissé que l'essentiel. Cela signifie que je vais devoir mener mes propres recherches pour mieux comprendre ces Chariots Tueurs de Dieux. » Wang Lin réfléchit encore un moment, puis toucha son sac de rangement en affichant un léger sourire.
 
-« La récolte de ce voyage dans le Royaume Céleste est excellente, mais le danger fut tout aussi grand. Si quelque chose s'était mal passé lors de l'effondrement de ce fragment, je serais sans doute mort à présent. Plus le risque est grand, plus la récompense est immense. Cette maxime est bien vraie ! Par conséquent, je devrai réfléchir avec soin à l'invitation de Chi Hu. » Wang Lin flotta dans les airs, plongé dans ses pensées.
+« La récolte de ce voyage dans le Royaume Céleste est excellente, mais le danger fut tout aussi grand. Si quelque chose s'était mal passé lors de l'effondrement de ce fragment, je serais sans doute mort à présent. Plus le risque est grand, plus la récompense est immense. Cette maxime est bien vraie! Par conséquent, je devrai réfléchir avec soin à l'invitation de Chi Hu. » Wang Lin flotta dans les airs, plongé dans ses pensées.

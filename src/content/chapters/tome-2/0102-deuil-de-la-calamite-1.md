@@ -12,35 +12,35 @@ Au moment où la lumière verte apparut, la température de la zone chuta brusqu
 
 L'énergie Yin de l'épée était d'une tyrannie absolue. Toutes les plantes environnantes se figèrent soudainement. Même les cultivateurs au premier stade de l'Établissement des Fondations sentirent leur corps s'engourdir alors que le givre commençait à se former sur leurs vêtements.
 
-Le cultivateur qui tenait le jade contenant l'étincelle d'âme de Wang Lin fut frappé de stupeur. Il n'eut pas le temps de broyer le jade ; il ne put que reculer précipitamment. Mais même dans ses rêves les plus fous, il ne s'attendait pas à ce que l'épée volante se mette à bourdonner avant de disparaître soudainement de sa vue. Il lança rapidement des trésors magiques pour se défendre, mais il était déjà trop tard.
+Le cultivateur qui tenait le jade contenant l'étincelle d'âme de Wang Lin fut frappé de stupeur. Il n'eut pas le temps de broyer le jade; il ne put que reculer précipitamment. Mais même dans ses rêves les plus fous, il ne s'attendait pas à ce que l'épée volante se mette à bourdonner avant de disparaître soudainement de sa vue. Il lança rapidement des trésors magiques pour se défendre, mais il était déjà trop tard.
 
 L'épée volante réapparut à un mètre du cultivateur et lui transperça la gorge. Le sang jaillit de la blessure. Il pressa ses deux mains contre son cou et s'effondra, le visage figé par l'incrédulité.
 
 Wang Lin bondit. Il saisit le jade et le projeta dans son sac de rangement.
 
-Tout cela s'était produit avec une rapidité fulgurante ; on aurait pu comparer cet acte à un coup de foudre. Simultanément, les deux autres cultivateurs avaient broyé leurs jades. Une fumée rose apparut et se propagea en vagues dans les environs.
+Tout cela s'était produit avec une rapidité fulgurante; on aurait pu comparer cet acte à un coup de foudre. Simultanément, les deux autres cultivateurs avaient broyé leurs jades. Une fumée rose apparut et se propagea en vagues dans les environs.
 
-Dès que les cercueils transportés par les disciples du Secte des Cadavres entrèrent en contact avec la fumée rose, des bruits de grattements s'élevèrent de l'intérieur. C'était comme si des personnes gisaient dans ces cercueils et en grattaient les parois avec leurs ongles.
+Dès que les cercueils transportés par les disciples de la Secte des Cadavres entrèrent en contact avec la fumée rose, des bruits de grattements s'élevèrent de l'intérieur. C'était comme si des personnes gisaient dans ces cercueils et en grattaient les parois avec leurs ongles.
 
-Quant aux cultivateurs au premier stade de l'Établissement des Fondations, ils semblaient tous frappés par une technique de contention ; ils étaient totalement incapables de bouger.
+Quant aux cultivateurs au premier stade de l'Établissement des Fondations, ils semblaient tous frappés par une technique de contention; ils étaient totalement incapables de bouger.
 
 Après avoir broyé leurs jades, les deux cultivateurs du dernier stade de l'Établissement des Fondations ne daignèrent même pas regarder Wang Lin et se précipitèrent vers la porte qui était sur le point de s'effondrer.
 
 Ils disparurent dans l'ouverture en un éclair, puis la porte se dissipa en de multiples éclats de lumière dorée avant de s'évanouir sans laisser de trace.
 
-Wang Lin ne prononça pas un mot. Il recula rapidement tout en observant les disciples du Secte des Cadavres, plongé dans ses réflexions.
+Wang Lin ne prononça pas un mot. Il recula rapidement tout en observant les disciples de la Secte des Cadavres, plongé dans ses réflexions.
 
 Les bruits de grattements devinrent plus assourdissants, jusqu'à ce que l'un des cercueils se brise et qu'une main s'en échappe, suivie d'un bruit de respiration lourde.
 
 Lentement, une momie aux longs cheveux noirs redressa le buste dans le cercueil. Ses yeux émettaient une lueur verte tandis qu'elle balayait les environs du regard, jusqu'à ce que sa vue se pose enfin sur son maître.
 
-Ses yeux injectés de sang devinrent glacials ; elle poussa un cri et s'agrippa à son maître. Elle respirait violemment par le nez. Le cultivateur au premier stade de l'Établissement des Fondations trembla alors que son corps se transformait en une vapeur blanche, laquelle fut aussitôt inhalée par la marionnette cadavérique.
+Ses yeux injectés de sang devinrent glacials; elle poussa un cri et s'agrippa à son maître. Elle respirait violemment par le nez. Le cultivateur au premier stade de l'Établissement des Fondations trembla alors que son corps se transformait en une vapeur blanche, laquelle fut aussitôt inhalée par la marionnette cadavérique.
 
 Simultanément, le corps desséché de la momie commença à se régénérer.
 
 Peu de temps après, le cultivateur n'était plus qu'un sac d'os, tandis que la marionnette cadavérique avait retrouvé une apparence humaine.
 
-La marionnette aspira de nouveau et le cultivateur poussa un cri mortel. Un gaz jaune s'échappa du corps du défunt ; la marionnette saisit ce gaz et l'engouffra dans sa bouche.
+La marionnette aspira de nouveau et le cultivateur poussa un cri mortel. Un gaz jaune s'échappa du corps du défunt; la marionnette saisit ce gaz et l'engouffra dans sa bouche.
 
 Bientôt, la marionnette changea d'apparence jusqu'à ressembler trait pour trait au cultivateur qui venait de mourir.
 
@@ -48,41 +48,41 @@ Au même moment, les cercueils se brisèrent les uns après les autres, et les m
 
 Cependant, toutes ne réagirent pas ainsi. Environ un tiers des marionnettes sortirent simplement pour rester là, l'air confus.
 
-Wang Lin était stupéfait devant ce spectacle. Toutes les marionnettes qui avaient pris l'apparence de leurs maîtres possédaient une cultivation du dernier stade de l'Établissement des Fondations. Wang Lin fixa ces monstres, le cuir chevelu engourdi par la terreur, tout en reculant lentement.
+Wang Lin était stupéfait devant ce spectacle. Toutes les marionnettes qui avaient pris l'apparence de leurs maîtres possédaient une culture du dernier stade de l'Établissement des Fondations. Wang Lin fixa ces monstres, le cuir chevelu engourdi par la terreur, tout en reculant lentement.
 
-Des cris retentirent bientôt dans cette direction. Toutes les marionnettes ayant revêtu la forme de leurs maîtres se jetèrent sur les disciples restants du Secte des Cadavres.
+Des cris retentirent bientôt dans cette direction. Toutes les marionnettes ayant revêtu la forme de leurs maîtres se jetèrent sur les disciples restants de la Secte des Cadavres.
 
 Le sang et les membres volaient dans les airs. Wang Lin fit volte-face et s'enfuit sans un mot.
 
-Après avoir parcouru une grande distance, Wang Lin s'arrêta à la lisière d'une jungle. Il avait le sentiment d'avoir enfin découvert la véritable férocité du Secte des Cadavres. S'il n'avait pas empêché ce cultivateur de broyer le jade, il serait devenu la nourriture de ces créatures.
+Après avoir parcouru une grande distance, Wang Lin s'arrêta à la lisière d'une jungle. Il avait le sentiment d'avoir enfin découvert la véritable férocité de la Secte des Cadavres. S'il n'avait pas empêché ce cultivateur de broyer le jade, il serait devenu la nourriture de ces créatures.
 
-Wang Lin eut un rire froid dans son cœur. Il savait que la Vallée Jue Ming était extrêmement dangereuse, car les sectes orthodoxes et démoniaques y étaient toutes rassemblées pour la compétition visant à obtenir le droit d'accéder au champ de bataille étranger. Wang Lin ne voulait pas s'immiscer dans ces troubles ; il souhaitait simplement trouver des lieux imprégnés d'un Yin extrême pour se consacrer à une cultivation en porte close et devenir plus fort.
+Wang Lin eut un rire froid dans son cœur. Il savait que la Vallée Jue Ming était extrêmement dangereuse, car les sectes orthodoxes et démoniaques y étaient toutes rassemblées pour la compétition visant à obtenir le droit d'accéder au champ de bataille étranger. Wang Lin ne voulait pas s'immiscer dans ces troubles; il souhaitait simplement trouver des lieux imprégnés d'un Yin extrême pour se consacrer à une culture en porte close et devenir plus fort.
 
-Plus il côtoyait le monde de la cultivation, plus les dangers s'intensifiaient. Il avait l'impression qu'un seul faux pas pourrait lui être fatal. Mais puisqu'il était déjà entré dans ce monde, la seule façon d'assurer sa sécurité était de gagner en puissance.
+Plus il côtoyait le monde de la culture, plus les dangers s'intensifiaient. Il avait l'impression qu'un seul faux pas pourrait lui être fatal. Mais puisqu'il était déjà entré dans ce monde, la seule façon d'assurer sa sécurité était de gagner en puissance.
 
 Parallèlement, l'élément bois dont le joyau défiant le ciel avait besoin demeurait une priorité absolue pour lui.
 
 Alors qu'il était absorbé par ses pensées, Wang Lin recula brusquement. Une lueur noire fendit l'air là où il se tenait un instant plus tôt, suivie d'un rire.
 
-« Petit garnement, tu esquives vite ! » Un jeune homme vêtu de luxueux habits sortit lentement de l'ombre. Après avoir inspecté Wang Lin, il demanda : « De quelle secte es-tu ? »
+« Petit garnement, tu esquives vite! » Un jeune homme vêtu de luxueux habits sortit lentement de l'ombre. Après avoir inspecté Wang Lin, il demanda: « De quelle secte es-tu? »
 
-Wang Lin répondit froidement : « Secte des Cadavres. »
+Wang Lin répondit froidement: « Secte des Cadavres. »
 
-Le jeune homme élégamment vêtu fut surpris. Il demanda : « Secte des Cadavres ? La rumeur prétend que tous les disciples de cette secte transportent un cercueil. Où est le tien ? »
+Le jeune homme élégamment vêtu fut surpris. Il demanda: « Secte des Cadavres? La rumeur prétend que tous les disciples de cette secte transportent un cercueil. Où est le tien? »
 
 Wang Lin le fixa en fronçant les sourcils.
 
-Le jeune homme laissa échapper un reniflement méprisant. Il pointa un doigt vers Wang Lin et une lueur noire apparut dans sa main : « Peu importe que tu sois de la Secte des Cadavres ou non. Remets-moi ton sac de rangement. »
+Le jeune homme laissa échapper un reniflement méprisant. Il pointa un doigt vers Wang Lin et une lueur noire apparut dans sa main: « Peu importe que tu sois de la Secte des Cadavres ou non. Remets-moi ton sac de rangement. »
 
 Une lueur glaciale passa dans les yeux de Wang Lin. Il déploya son Sens Divin et découvrit que trois autres personnes se cachaient dans la jungle. Sans dire un mot, il recula de quelques pas.
 
 Voyant Wang Lin reculer, le jeune homme afficha un regard de mépris. D'un geste de la main, il projeta l'éclat noir vers la poitrine de Wang Lin, visant le cœur.
 
-Wang Lin haussa les sourcils et agita ses manches ; une technique d'attraction forma une main gigantesque devant lui. La lueur noire pénétra de quelques centimètres la barrière de la technique avant de se dissiper.
+Wang Lin haussa les sourcils et agita ses manches; une technique d'attraction forma une main gigantesque devant lui. La lueur noire pénétra de quelques centimètres la barrière de la technique avant de se dissiper.
 
 Wang Lin lança un regard froid au jeune homme. Grâce à son Sens Divin, il nota que les trois individus cachés dans la jungle accéléraient pour converger vers eux. Ne voulant pas perdre de temps avec eux, il entreprit de s'éloigner rapidement.
 
-Le jeune homme entra dans une rage folle. Bien que leurs niveaux de cultivation fussent tous deux au début du stade de l'Établissement des Fondations, il était soutenu par trois compagnons, dont l'un atteignait le milieu de l'Établissement des Fondations. Ces quatre-là ne faisaient pas partie des membres du Secte Tian Dao et avaient décidé d'en profiter pour dépouiller les passants.
+Le jeune homme entra dans une rage folle. Bien que leurs niveaux de culture fussent tous deux au début du stade de l'Établissement des Fondations, il était soutenu par trois compagnons, dont l'un atteignait le milieu de l'Établissement des Fondations. Ces quatre-là ne faisaient pas partie des membres de la Secte Tian Dao et avaient décidé d'en profiter pour dépouiller les passants.
 
 Il faut dire que lors de cette compétition, toutes les sectes avaient distribué de nombreux trésors magiques afin d'accroître la puissance de leurs disciples au stade de l'Établissement des Fondations.
 
@@ -90,7 +90,7 @@ En voyant que Wang Lin était seul, le jeune homme fut pris d'une pulsion meurtr
 
 Cette règle était d'un vert éclatant et dégageait un parfum puissant dès son apparition. Le jeune homme prit une profonde inspiration et, sans un mot, pointa l'objet vers l'avant. La règle trembla et un énorme champignon noir en jaillit, se détachant pour flotter dans les airs.
 
-L'expression du jeune homme devint sérieuse tandis qu'il extrayait rapidement un objet de son sac pour le lancer. Wang Lin vit un éclair rouge : une guêpe écarlate fondit sur le champignon et le dévora en quelques bouchées seulement.
+L'expression du jeune homme devint sérieuse tandis qu'il extrayait rapidement un objet de son sac pour le lancer. Wang Lin vit un éclair rouge: une guêpe écarlate fondit sur le champignon et le dévora en quelques bouchées seulement.
 
 La guêpe grandit soudainement, atteignant la taille d'un poing. Elle poussa un cri strident et chargea vers Wang Lin.
 
@@ -104,7 +104,7 @@ Le jeune homme luxueux n'eut même pas le temps de réagir avant de mourir.
 
 La guêpe effectua une boucle dans les airs et se mit à la poursuite de Wang Lin.
 
-Au même moment, trois silhouettes surgirent de la jungle : deux hommes et une femme. L'un des hommes, le visage sombre en voyant le cadavre au sol, hurla : « Poursuivez-le ! »
+Au même moment, trois silhouettes surgirent de la jungle: deux hommes et une femme. L'un des hommes, le visage sombre en voyant le cadavre au sol, hurla: « Poursuivez-le! »
 
 À cet instant précis, dans une petite ville à la frontière nord de Zhao, deux invités indésirables firent leur apparition. L'un était très maigre, vêtu d'une robe noire, avec un regard venimeux.
 
@@ -112,10 +112,10 @@ Au même moment, trois silhouettes surgirent de la jungle : deux hommes et une f
 
 Il se tenait actuellement à l'extérieur de la ville, un miroir antique à la main. Ses mains traçaient inlassablement des sceaux tandis qu'il effectuait des calculs.
 
-L'homme en robe noire, empreint d'une intention meurtrière, demanda : « Compagnon cultivateur Qiming, avez-vous réussi vos calculs ? »
+L'homme en robe noire, empreint d'une intention meurtrière, demanda: « Compagnon cultivateur Qiming, avez-vous réussi vos calculs? »
 
-Le cultivateur fronça les sourcils : « Teng Huayuan, vous ne connaissez ni le nom ni l'apparence de cet individu. Comment suis-je censé le trouver avec la seule puissance d'une malédiction ? »
+Le cultivateur fronça les sourcils: « Teng Huayuan, vous ne connaissez ni le nom ni l'apparence de cet individu. Comment suis-je censé le trouver avec la seule puissance d'une malédiction? »
 
-Le vieillard en robe noire était Teng Huayuan. Il fixa l'autre homme et déclara solennellement : « Compagnon cultivateur Qiming, je suis prêt à vous offrir le jeton de la Vallée Wu Feng en échange de votre capacité à prédire les cieux. Si vous parvenez à retrouver la famille de cet homme, je vous aiderai pour tout ce que vous désirerez, tant que mes capacités le permettent. »
+Le vieillard en robe noire était Teng Huayuan. Il fixa l'autre homme et déclara solennellement: « Compagnon cultivateur Qiming, je suis prêt à vous offrir le jeton de la Vallée Wu Feng en échange de votre capacité à prédire les cieux. Si vous parvenez à retrouver la famille de cet homme, je vous aiderai pour tout ce que vous désirerez, tant que mes capacités le permettent. »
 
-Le cultivateur réfléchit un instant, soupira, puis répondit : « Très bien, je ferai de mon mieux. Mais Compagnon Teng, toute vengeance a une origine et toute dette finit par être recouvrée. J'espère que vous ne tuerez pas trop... »
+Le cultivateur réfléchit un instant, soupira, puis répondit: « Très bien, je ferai de mon mieux. Mais Compagnon Teng, toute vengeance a une origine et toute dette finit par être recouvrée. J'espère que vous ne tuerez pas trop... »

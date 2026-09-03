@@ -6,17 +6,17 @@ bookTitle: Clean Sweep
 en: Chapter 304 - The Collapse of a Celestial Realm Fragment.
 slug: leffondrement-dun-fragment-de-royaume-celeste
 ---
-Les calculs de Sun Lei étaient d'une grande précision. Il avait attendu si longtemps pour enfin révéler la puissance de ce éventail. Son but était d'utiliser Wang Lin comme appât : alors que les créatures célestes poursuivraient ce dernier, il pourrait s'échapper.
+Les calculs de Sun Lei étaient d'une grande précision. Il avait attendu si longtemps pour enfin révéler la puissance de ce éventail. Son but était d'utiliser Wang Lin comme appât: alors que les créatures célestes poursuivraient ce dernier, il pourrait s'échapper.
 
 Autrement, même en obtenant le trésor, il serait toujours traqué par ces bêtes. Après tout, une fois le trésor entre ses mains, les créatures deviendraient folles et la poursuite serait bien plus intense qu'au cours des deux précédentes tentatives.
 
-Il l'avait déjà anticipé : une fois le trésor acquis, il jetterait le squelette vers Wang Lin. Il était convaincu que les créatures se précipiteraient sur Wang Lin, qui serait plus proche, plutôt que sur lui.
+Il l'avait déjà anticipé: une fois le trésor acquis, il jetterait le squelette vers Wang Lin. Il était convaincu que les créatures se précipiteraient sur Wang Lin, qui serait plus proche, plutôt que sur lui.
 
-Les yeux de Wang Lin s'illuminèrent. Il était resté sur ses gardes face à Sun Lei durant tout ce temps ; comment pourrait-il le laisser réussir ? Bien que cette glace noire fût effectivement étrange, il tenait déjà la sculpture du vieillard dans sa main.
+Les yeux de Wang Lin s'illuminèrent. Il était resté sur ses gardes face à Sun Lei durant tout ce temps; comment pourrait-il le laisser réussir? Bien que cette glace noire fût effectivement étrange, il tenait déjà la sculpture du vieillard dans sa main.
 
 À l'instant même où la glace noire scella la zone, le domaine temporel de la sculpture en bois fut libéré.
 
-Avancer fait partie du temps, reculer fait partie du temps, et s'arrêter fait aussi partie du temps. C'est là toute la puissance d'un domaine temporel : la manipulation du temps selon sa propre volonté.
+Avancer fait partie du temps, reculer fait partie du temps, et s'arrêter fait aussi partie du temps. C'est là toute la puissance d'un domaine temporel: la manipulation du temps selon sa propre volonté.
 
 Wang Lin avait cultivé longtemps dans la perle défiant le ciel et maîtrisait parfaitement l'art de manipuler le temps. C'était aussi ce qui lui avait permis de graver ce domaine temporel au sein même de la sculpture.
 
@@ -26,7 +26,7 @@ En empruntant un fragment de pouvoir du domaine temporel, Wang Lin ne fut pas en
 
 Il se déplaça à une vitesse dépassant même celle de Sun Lei, passant devant les créatures célestes pour apparaître à l'entrée de la grotte.
 
-« Cher compagnon cultivateur Sun Lei, vous ne m'avez toujours pas donné le bois purificateur, comment avez-vous pu vous précipiter ainsi ? »
+« Cher compagnon cultivateur Sun Lei, vous ne m'avez toujours pas donné le bois purificateur, comment avez-vous pu vous précipiter ainsi? »
 
 Sun Lei fut stupéfait et son visage se décomposa. Cependant, c'était un homme décisif. Sans dire un mot, il frappa son sac de rangement et en lança le bois purificateur.
 
@@ -40,13 +40,13 @@ Mais dès que sa main toucha l'arme, il poussa un gémissement misérable alors 
 
 Wang Lin ne da même pas un regard vers lui et s'élança hors de la grotte. Il sortit son drapeau de restriction, qui émit de nombreux dragons faits de brume noire. Ces derniers encerclèrent Wang Lin, puis il chargea directement vers le haut, perçant les parois.
 
-Les yeux de Sun Lei devinrent rouges de rage ; il poussa un rugissement de frustration et tendit à nouveau la main vers l'épée. Cette fois, il endura la douleur et parvint enfin à saisir l'épée céleste. Cependant, au même instant, un cri perçant lui échappa alors que sa main était transpercée de multiples fois. Une partie de l'énergie de l'épée traversa sa main pour frapper sa poitrine, faisant fondre l'armure d'argent qu'il portait.
+Les yeux de Sun Lei devinrent rouges de rage; il poussa un rugissement de frustration et tendit à nouveau la main vers l'épée. Cette fois, il endura la douleur et parvint enfin à saisir l'épée céleste. Cependant, au même instant, un cri perçant lui échappa alors que sa main était transpercée de multiples fois. Une partie de l'énergie de l'épée traversa sa main pour frapper sa poitrine, faisant fondre l'armure d'argent qu'il portait.
 
-Sun Lei retira promptement sa main et renonça à l'épée. Il poussa un rugissement de colère et s'élança hors de la grotte. Selon ses calculs, huit respirations s'étaient écoulées ; s'il partait maintenant, il pourrait encore s'en sortir. S'il tardait davantage, la situation deviendrait périlleuse.
+Sun Lei retira promptement sa main et renonça à l'épée. Il poussa un rugissement de colère et s'élança hors de la grotte. Selon ses calculs, huit respirations s'étaient écoulées; s'il partait maintenant, il pourrait encore s'en sortir. S'il tardait davantage, la situation deviendrait périlleuse.
 
 Mais rien au monde ne peut être parfaitement calculé. La créature céleste noire se libéra soudainement de la glace noire, poussa un rugissement strident et chargea vers Sun Lei.
 
-L'expression de Sun Lei changea brusquement, ses yeux emplis d'incrédulité. Son maître avait pourtant affirmé que le trésor gèlerait une zone pendant dix respirations. Cela aurait dû durer dix respirations, comment cela pouvait-il être moins ?
+L'expression de Sun Lei changea brusquement, ses yeux emplis d'incrédulité. Son maître avait pourtant affirmé que le trésor gèlerait une zone pendant dix respirations. Cela aurait dû durer dix respirations, comment cela pouvait-il être moins?
 
 Il ignorait que, parce que la créature céleste noire avait absorbé la boule de foudre du crapaud tonnerre, elle avait acquis une parcelle du pouvoir des cieux, réduisant ainsi le temps de gel d'une respiration.
 
@@ -54,11 +54,11 @@ De plus, le domaine temporel de Wang Lin avait légèrement ralenti la glace noi
 
 Sun Lei fut terrassé par le choc. Il n'avait pas le temps d'esquiver. Sentant la mort approcher alors qu'il regardait Wang Lin s'éloigner, un profond sentiment de frustration l'envahit.
 
-Une lueur de folie apparut dans son regard ; il frappa son front et une perle noire en jaillit. Il afficha alors une expression de désespoir déchirant, jamais vue auparavant.
+Une lueur de folie apparut dans son regard; il frappa son front et une perle noire en jaillit. Il afficha alors une expression de désespoir déchirant, jamais vue auparavant.
 
-Cette perle noire était le fruit de centaines d'années de cultivation et n'avait pris une forme solide qu'en atteignant le stade de la Formation de l'Âme. Selon la méthode de cultivation de sa secte, cette perle était la clé pour former une seconde âme originelle. En perdant cette perle, son niveau de cultivation chuterait drastiquement, passant du milieu du stade de la Formation de l'Âme au stade de la Condensation de Qi.
+Cette perle noire était le fruit de centaines d'années de culture et n'avait pris une forme solide qu'en atteignant le stade de la Formation de l'Âme. Selon la méthode de culture de sa secte, cette perle était la clé pour former une seconde âme originelle. En perdant cette perle, son niveau de culture chuterait drastiquement, passant du milieu du stade de la Formation de l'Âme au stade de la Condensation de Qi.
 
-Sun Lei ferma les yeux et ordonna : « Explose ! »
+Sun Lei ferma les yeux et ordonna: « Explose! »
 
 La perle noire libéra soudain une lumière ténébreuse et explosa. Un anneau de lumière noire se propagea. La créature céleste se comprima brusquement en une sphère pour tenter de bloquer le choc.
 
@@ -80,7 +80,7 @@ Quant à Wang Lin, alors qu'il s'échappait, il sentit soudain la force destruct
 
 Choqué, il s'apprêta à utiliser la téléportation avant de se forcer à s'arrêter. Il sentait le sol autour de lui trembler, générant des vagues de grondements sourds.
 
-« Le fragment du royaume céleste est en train de s'effondrer ? » Wang Lin fut soulagé de ne pas avoir utilisé la téléportation, sans quoi il aurait pu se retrouver projeté dans une faille spatiale.
+« Le fragment du royaume céleste est en train de s'effondrer? » Wang Lin fut soulagé de ne pas avoir utilisé la téléportation, sans quoi il aurait pu se retrouver projeté dans une faille spatiale.
 
 Il jura intérieurement. Il s'enveloppa de son drapeau de restriction et chargea comme l'éclair. Privé du pouvoir mystérieux, sa vitesse était revenue à la normale.
 
@@ -92,21 +92,21 @@ Il fut frappé de stupeur. L'effondrement du fragment se poursuivait et, en un c
 
 Wang Lin prit une inspiration glacée et s'élança vers le haut avec précipitation.
 
-La dévoration continuait : 500 pieds, 300 pieds, 200 pieds, 100 pieds...
+La dévoration continuait: 500 pieds, 300 pieds, 200 pieds, 330 mètres...
 
-Le visage de Wang Lin était livide. Il était encore loin d'atteindre la surface. La vitesse de l'engloutissement était trop grande ; il était clair qu'il n'arriverait pas à s'échapper à temps.
+Le visage de Wang Lin était livide. Il était encore loin d'atteindre la surface. La vitesse de l'engloutissement était trop grande; il était clair qu'il n'arriverait pas à s'échapper à temps.
 
-Une expression impitoyable se dessina dans ses yeux alors qu'il sortait un petit cristal de son sac de rangement : c'était de l'énergie spirituelle céleste condensée.
+Une expression impitoyable se dessina dans ses yeux alors qu'il sortait un petit cristal de son sac de rangement: c'était de l'énergie spirituelle céleste condensée.
 
-Le vide se rapprochait encore : 100 pieds, 50 pieds, 30 pieds...
+Le vide se rapprochait encore: 330 mètres, 165 mètres, 99 mètres...
 
-Wang Lin vit qu'à 30 pieds de lui, une gueule semblait déjà grande ouverte.
+Wang Lin vit qu'à 99 mètres de lui, une gueule semblait déjà grande ouverte.
 
 Il avala le cristal et ressentit, pour la toute première fois, une douleur dans son âme. C'était une souffrance causée par l'excès d'énergie spirituelle céleste dans son corps.
 
 À cet instant, Wang Lin eut l'impression que son âme originelle pouvait s'effondrer à tout moment, mais au cœur de cette douleur, un fragment de puissance naquit. Ce pouvoir lui donna la sensation qu'il pouvait soutenir le monde entier sur ses épaules.
 
-Le vide environnant se rapprochait de plus en plus : 30 pieds, 20 pieds, 10 pieds...
+Le vide environnant se rapprochait de plus en plus: 30 pieds, 66 mètres, 33 mètres...
 
 Le corps de Wang Lin s'élança soudainement vers le haut tel une météore. Au moment où le vide atteignit sa position, sa vitesse décupla et il jaillit hors du sol.
 
@@ -136,4 +136,4 @@ Son corps disparut pour réapparaître sur la plateforme. Il cracha une bouchée
 
 Wang Lin avait rassemblé des dizaines de milliers d'âmes errantes lors de son voyage sur le champ de bataille étranger. Maintenant qu'elles étaient toutes libérées, elles formèrent un tourbillon noir autour de lui. Cela fit changer l'expression de tous les spectateurs sur la plateforme, qui reculèrent immédiatement.
 
-Wang Lin s'écroula au sol. Il lutta pour s'asseoir en position du lotus avant d'engloutir sept ou huit flacons de pilules et de commencer sa cultivation.
+Wang Lin s'écroula au sol. Il lutta pour s'asseoir en position du lotus avant d'engloutir sept ou huit flacons de pilules et de commencer sa culture.

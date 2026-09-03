@@ -1,12 +1,12 @@
 ---
 n: 2069
-title: "Si Nan !"
+title: "Si Nan!"
 book: 13
 bookTitle: Light of the coming end
 en: "Chapter 2069 Si Nan!"
 slug: si-nan
 ---
-Chapitre 2069 : Si Nan !
+Chapitre 2069: Si Nan!
 
 Wang Lin respectait la décision du fou. Chacun avait ses propres responsabilités, Wang Lin le comprenait parfaitement.
 
@@ -34,13 +34,13 @@ Peu après, le martèlement des sabots se fit entendre sur la route impériale. 
 
 Cet homme portait également une armure. Après avoir atterri, il se mit à genoux et joignit les mains en signe de respect.
 
-« Rapport ! Le groupe du Roi Nan se trouve à cinquante kilomètres ! » annonça le soldat d'une voix forte, avant de baisser la tête pour attendre ses ordres.
+« Rapport! Le groupe du Roi Nan se trouve à cinquante kilomètres! » annonça le soldat d'une voix forte, avant de baisser la tête pour attendre ses ordres.
 
-Au sein du groupe, un vieil homme dégageait une aura de puissance sans même avoir besoin de manifester sa colère. Il se trouvait au centre de l'escorte et ordonna promptement : « Continuez les reconnaissances ! L'avant-garde doit aller accueillir le groupe du Roi Nan ! »
+Au sein du groupe, un vieil homme dégageait une aura de puissance sans même avoir besoin de manifester sa colère. Il se trouvait au centre de l'escorte et ordonna promptement: « Continuez les reconnaissances! L'avant-garde doit aller accueillir le groupe du Roi Nan! »
 
 Dès qu'il eut fini de parler, un homme d'âge mûr s'avança prestement. Après avoir salué le vieil homme, il partit avec dix mille soldats du camp, soulevant un immense nuage de poussière dans son sillage.
 
-Aux côtés du vieux général, un fonctionnaire s'approcha et murmura : « Grand Général, ce Roi Nan semble arriver... avec de mauvaises intentions. »
+Aux côtés du vieux général, un fonctionnaire s'approcha et murmura: « Grand Général, ce Roi Nan semble arriver... avec de mauvaises intentions. »
 
 « La rumeur dit que le Roi Nan est un épicurien extrêmement dépensier. Tous tremblent sur son passage. »
 
@@ -50,15 +50,15 @@ Le vieux général restait silencieux, comme s'il n'avait rien entendu. Il demeu
 
 En tant que Grand Général de la frontière, contrôlant près d'un demi-million d'hommes sans être issu de la noblesse, il suscitait naturellement l'envie et le mécontentement. Si le pays de Wu Xuan n'avait pas absolument besoin d'un général invincible comme lui, il aurait été contraint à la retraite depuis longtemps.
 
-« On raconte que le Roi Nan est extrêmement arrogant et attache une importance démesurée aux apparences. Si la cérémonie d'accueil n'est pas assez grandiose, il risque de s'offusquer... Grand Général, ne devrions-nous pas envoyer plus d'hommes ? »
+« On raconte que le Roi Nan est extrêmement arrogant et attache une importance démesurée aux apparences. Si la cérémonie d'accueil n'est pas assez grandiose, il risque de s'offusquer... Grand Général, ne devrions-nous pas envoyer plus d'hommes? »
 
-« Grand Général, ce humble serviteur pense aussi que nous devrions multiplier les salutations. Puisque le Roi Nan aime le faste, accueillons-le avec notre armée de cent mille hommes ! Alignons nos soldats tout au long des rues pour qu'il contemple la puissance de notre nation ! »
+« Grand Général, ce humble serviteur pense aussi que nous devrions multiplier les salutations. Puisque le Roi Nan aime le faste, accueillons-le avec notre armée de cent mille hommes! Alignons nos soldats tout au long des rues pour qu'il contemple la puissance de notre nation! »
 
 « Grand Général, n'hésitez pas. Le Roi Nan est un homme méprisable qui vise déjà votre position. Face à un tel individu, nous devrions... »
 
 Le vieux général fronça les sourcils et leva la main. Le silence retomba instantanément et tous les regards se tournèrent vers lui. Son prestige au sein de cette armée était incontesté.
 
-« Mes soldats sont des héros qui ont survécu à des décennies de carnage. Je refuse de les utiliser pour une simple cérémonie d'accueil envers le Roi Nan. Rassemblez seulement mille hommes ; ma présence personnelle suffira ! » La détermination dans la voix du vieux général était telle que personne n'osa s'y opposer.
+« Mes soldats sont des héros qui ont survécu à des décennies de carnage. Je refuse de les utiliser pour une simple cérémonie d'accueil envers le Roi Nan. Rassemblez seulement mille hommes; ma présence personnelle suffira! » La détermination dans la voix du vieux général était telle que personne n'osa s'y opposer.
 
 Après son allocution, l'expression des subordonnés devint grave et ils joignirent les mains en signe d'assentiment.
 
@@ -66,11 +66,11 @@ Après son allocution, l'expression des subordonnés devint grave et ils joignir
 
 Des sons de musique s'échappaient de la grande calèche, mêlés aux rires des femmes. L'intérieur semblait particulièrement animé.
 
-« Bien, bien ! Dansez encore ! Ce roi vous récompensera ! » La voix d'un homme couvrit les éclats de rire. On percevait même de légers gémissements provenant de l'habitacle.
+« Bien, bien! Dansez encore! Ce roi vous récompensera! » La voix d'un homme couvrit les éclats de rire. On percevait même de légers gémissements provenant de l'habitacle.
 
 Les gardes environnants, habitués à ce spectacle, n'y prêtaient plus aucune attention.
 
-Après quelques kilomètres, un jeune homme vêtu de bleu, assis près de la calèche, poussa un cri strident : « Le Roi Nan ordonne l'arrêt de la marche ! »
+Après quelques kilomètres, un jeune homme vêtu de bleu, assis près de la calèche, poussa un cri strident: « Le Roi Nan ordonne l'arrêt de la marche! »
 
 À ces ordres, la longue colonne de véhicules s'immobilisa progressivement. De magnifiques femmes sortirent de l'immense calèche de tête. Leurs vêtements étaient en désordre, preuve qu'elles venaient à peine de se rhabiller. Elles paraissaient épuisées alors qu'elles se dirigeaient vers les calèches de queue.
 
@@ -86,26 +86,26 @@ Une heure plus tard, le convoi atteignit les abords du camp militaire. Des gémi
 
 À mesure qu'ils approchaient, ces sons devinrent plus distincts et furent entendus par l'ensemble des soldats présents. Le vieux général fronça les sourcils, un profond dégoût se lisant dans ses yeux.
 
-Il laissa échapper un grognement et s'avança. Une escorte de fonctionnaires le suivit, imprégnée d'une intention meurtrière. À son approche, les gardes entourant la calèche devinrent nerveux ; ils sentaient l'aura létale du vieux général et en frémissaient.
+Il laissa échapper un grognement et s'avança. Une escorte de fonctionnaires le suivit, imprégnée d'une intention meurtrière. À son approche, les gardes entourant la calèche devinrent nerveux; ils sentaient l'aura létale du vieux général et en frémissaient.
 
-Malgré leur crainte, les gardes s'avancèrent. Le jeune homme sur la calèche se leva brusquement et hurla : « Arrêtez ! Roi Nan... »
+Malgré leur crainte, les gardes s'avancèrent. Le jeune homme sur la calèche se leva brusquement et hurla: « Arrêtez! Roi Nan... »
 
-Avant qu'il ne puisse achever sa phrase, un général d'âge mûr situé aux côtés du vieux chef afficha un regard féroce et tonna : « Qui êtes-vous ?! »
+Avant qu'il ne puisse achever sa phrase, un général d'âge mûr situé aux côtés du vieux chef afficha un regard féroce et tonna: « Qui êtes-vous?! »
 
 Sous la pression invisible de ce cri, tous les regards des soldats se fixèrent sur le jeune homme. Son visage pâlit instantanément et il n'osa plus proférer un mot.
 
-« Si Nan ! Que faites-vous donc ?! » Alors que le vieux général approchait, un rugissement jaillit de la calèche. Aussitôt, les gémissements cessèrent brusquement.
+« Si Nan! Que faites-vous donc?! » Alors que le vieux général approchait, un rugissement jaillit de la calèche. Aussitôt, les gémissements cessèrent brusquement.
 
-Le vieil homme, dégageant une pression solennelle sans pour autant être en colère, se tint près de la calèche et déclara : « Ce vieux Général Si Nan salue le Roi Nan ! »
+Le vieil homme, dégageant une pression solennelle sans pour autant être en colère, se tint près de la calèche et déclara: « Ce vieux Général Si Nan salue le Roi Nan! »
 
 Après un silence pesant, un rideau fut écarté et un homme d'âge mûr en sortit. Ses yeux étaient sombres, presque vitreux. Il se dressa sur la calèche pour contempler le vieux général. Un éclair de mélancolie traversa son visage lorsqu'il esquissa soudain un sourire.
 
-« Digne de mon Grand Général Si Nan de Wu Xuan ! Avec vous pour protéger la frontière, notre pays n'a rien à craindre. Ce roi est venu récompenser son général ! »
+« Digne de mon Grand Général Si Nan de Wu Xuan! Avec vous pour protéger la frontière, notre pays n'a rien à craindre. Ce roi est venu récompenser son général! »
 
-« Oh ? Dans ce cas, je vous prie d'entrer dans le camp ! » Le vieux général regarda le Roi Nan avec une indifférence glaciale. Son regard exerçait une pression immense sur l'homme. De plus, l'intention meurtrière et les regards de glace de toute l'assemblée firent perler la sueur sur le front du souverain.
+« Oh? Dans ce cas, je vous prie d'entrer dans le camp! » Le vieux général regarda le Roi Nan avec une indifférence glaciale. Son regard exerçait une pression immense sur l'homme. De plus, l'intention meurtrière et les regards de glace de toute l'assemblée firent perler la sueur sur le front du souverain.
 
-Le Roi Nan força un sourire et répondit précipitamment : « Ce n'est pas nécessaire... Ce roi peut rester ici, il n'y a point besoin d'entrer. »
+Le Roi Nan força un sourire et répondit précipitamment: « Ce n'est pas nécessaire... Ce roi peut rester ici, il n'y a point besoin d'entrer. »
 
-Nul ne savait que Wang Lin avait tout observé, du début à la fin. Suspendu dans le ciel, son regard était rivé sur un seul homme : le vieux général, Si Nan !
+Nul ne savait que Wang Lin avait tout observé, du début à la fin. Suspendu dans le ciel, son regard était rivé sur un seul homme: le vieux général, Si Nan!
 
 « Il n'est pas devenu roi, mais Grand Général... Je me demande ce qu'il pensera lorsqu'il retrouvera ses souvenirs... » Wang Lin esquissa un sourire. Il était profondément heureux.

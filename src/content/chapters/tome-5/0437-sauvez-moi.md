@@ -10,11 +10,11 @@ Chapitre 437 - Sauvez-moi...
 
 Ce son parvint aux oreilles de Wang Lin et pénétra directement dans son âme. C'était exactement le même cri qu'auparavant.
 
-Il ignora la voix et se faufila rapidement à travers l'étroite ouverture. Grâce à sa cultivation, il put atteindre rapidement la chambre cachée en passant par ce petit trou dans le mur.
+Il ignora la voix et se faufila rapidement à travers l'étroite ouverture. Grâce à sa culture, il put atteindre rapidement la chambre cachée en passant par ce petit trou dans le mur.
 
 Peu de temps après, Wang Lin déboucha dans une grotte dont les parois étaient percées d'innombrables petites ouvertures. Il entra par l'une d'elles.
 
-Au centre de la cavité reposait un cercueil gigantesque. Ce dernier semblait tout à fait ordinaire et ne comportait aucune décoration ; pourtant, une puissante aura Yin s'en échappait. Cette aura se manifestait sous forme d'un gaz blanc qui était aspiré par les orifices du mur.
+Au centre de la cavité reposait un cercueil gigantesque. Ce dernier semblait tout à fait ordinaire et ne comportait aucune décoration; pourtant, une puissante aura Yin s'en échappait. Cette aura se manifestait sous forme d'un gaz blanc qui était aspiré par les orifices du mur.
 
 Le cercueil était totalement vide, à l'exception de l'immense ouverture qui le traversait. C'était de là que provenait l'aura Yin.
 
@@ -42,9 +42,9 @@ La silhouette de Wang Lin apparut dans les airs. Ses yeux s'illuminèrent alors 
 
 De temps à autre, des éclats de lumière fantomatique émanaient de la brume tandis que des vignes pourpres s'agitaient. Plus les vignes bougeaient, plus la brume blanche se densifiait.
 
-Les yeux de Wang Lin brillèrent ; il prit une profonde inspiration et expira avec force. Une rafale de vent surgit et balaya une grande quantité de brume, mais dès qu'elle fut dissipée, une nouvelle couche apparut instantanément.
+Les yeux de Wang Lin brillèrent; il prit une profonde inspiration et expira avec force. Une rafale de vent surgit et balaya une grande quantité de brume, mais dès qu'elle fut dissipée, une nouvelle couche apparut instantanément.
 
-Wang Lin resta calme et laissa échapper un froid reniflement. Il frappa son sac de rangement et en sortit un jade céleste. Il le tint dans sa main gauche tandis que sa main droite traçait un sceau. Pointant la brume blanche, il murmura : « Vent, déploie-toi ! »
+Wang Lin resta calme et laissa échapper un froid reniflement. Il frappa son sac de rangement et en sortit un jade céleste. Il le tint dans sa main gauche tandis que sa main droite traçait un sceau. Pointant la brume blanche, il murmura: « Vent, déploie-toi! »
 
 C'était une compétence de vent basique, utilisable par des cultivateurs au stade de l'Établissement des Fondations, mais Wang Lin l'utilisait ici avec une énergie spirituelle céleste, rendant sa puissance dépassant l'entendement. Une bourrasque plusieurs fois plus puissante jaillit et s'élança vers la brume blanche.
 
@@ -58,7 +58,7 @@ Le haut du cadavre était recouvert de plantes pourpres et verdâtres. À chaque
 
 Ce qui stupéfia Wang Lin, c'est qu'une hache ténue et vacillante scintillait sur le front de ce géant.
 
-Il en était désormais certain : cet être était l'ancêtre fondateur du Clan des Démons Géants, celui qui avait conduit son clan jusqu'ici.
+Il en était désormais certain: cet être était l'ancêtre fondateur du Clan des Démons Géants, celui qui avait conduit son clan jusqu'ici.
 
 C'était lui qui, armé de sa hache monumentale, s'était jeté dans l'armée du Clan des Immortels Déchus pour terrasser trois chamans à neuf feuilles.
 
@@ -74,9 +74,9 @@ Quant aux plantes pourpres et verdâtres, leurs racines ressemblaient à des aig
 
 Ce n'était pas la première fois que Wang Lin assistait à une telle scène, mais il en restait tout de même frappé.
 
-Le corps de cet ancêtre du Clan des Démons Géants, bien qu'il ne fût pas aussi robuste que celui d'un ancien dieu, était plusieurs fois plus puissant que le corps d'ancien dieu à trois étoiles actuel de Wang Lin ; il était comparable à un corps d'ancien dieu de cinq ou six étoiles.
+Le corps de cet ancêtre du Clan des Démons Géants, bien qu'il ne fût pas aussi robuste que celui d'un ancien dieu, était plusieurs fois plus puissant que le corps d'ancien dieu à trois étoiles actuel de Wang Lin; il était comparable à un corps d'ancien dieu de cinq ou six étoiles.
 
-« Le niveau de cultivation de l'ancêtre fondateur du Clan des Démons Géants est véritablement prodigieux ! » Les yeux de Wang Lin brillèrent d'intérêt.
+« Le niveau de culture de l'ancêtre fondateur du Clan des Démons Géants est véritablement prodigieux! » Les yeux de Wang Lin brillèrent d'intérêt.
 
 « Sauvez-moi... sauvez-moi... » Les appels devinrent plus fréquents. Il semblait que l'ancêtre avait remarqué la présence de Wang Lin.
 
@@ -108,13 +108,13 @@ Après avoir saisi une poignée de ces plantes, Wang Lin les pressa contre le co
 
 Le regard de Wang Lin s'illumina. Il observa les plantes alentour qui n'osaient plus approcher et ricana.
 
-« Ces tentacules sont intéressantes ! » Il toucha son sac de rangement et en sortit une fiole de jade. Il l'avait obtenue par hasard lors de son voyage dans le Royaume Céleste. Cette fiole n'avait rien d'exceptionnel, si ce n'est sa capacité à contenir d'énormes quantités de liquide, fonctionnant de manière similaire à un sac de rangement.
+« Ces tentacules sont intéressantes! » Il toucha son sac de rangement et en sortit une fiole de jade. Il l'avait obtenue par hasard lors de son voyage dans le Royaume Céleste. Cette fiole n'avait rien d'exceptionnel, si ce n'est sa capacité à contenir d'énormes quantités de liquide, fonctionnant de manière similaire à un sac de rangement.
 
 Tenant la fiole d'une main, Wang Lin pressa l'autre sur une plaie du corps du géant. En exerçant une pression, il fit jaillir le sang dans la fiole de jade.
 
-« Sauvez-moi... » Wang Lin se tenait sur le géant. Cet appel à l'aide lui semblait être murmuré directement à son oreille ; il était d'une clarté absolue.
+« Sauvez-moi... » Wang Lin se tenait sur le géant. Cet appel à l'aide lui semblait être murmuré directement à son oreille; il était d'une clarté absolue.
 
-Wang Lin continua d'ignorer l'ancêtre fondateur du Clan des Démons Géants ; il ne sauverait personne qu'il ne pouvait contrôler, à moins d'en tirer un bénéfice direct. Une fois que cet être aurait retrouvé sa cultivation, il n'aurait plus aucune utilité pour Wang Lin.
+Wang Lin continua d'ignorer l'ancêtre fondateur du Clan des Démons Géants; il ne sauverait personne qu'il ne pouvait contrôler, à moins d'en tirer un bénéfice direct. Une fois que cet être aurait retrouvé sa culture, il n'aurait plus aucune utilité pour Wang Lin.
 
 Et même si cet homme lui promettait de riches trésors, cela ne suffirait pas à tenter Wang Lin. Hormis le sang qu'il était venu chercher, il ne voulait s'embarrasser d'aucun trouble inutile.
 

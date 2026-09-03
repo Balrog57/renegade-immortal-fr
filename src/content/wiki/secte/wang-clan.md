@@ -17,15 +17,15 @@ La majeure partie du clan fut massacrée par **Teng Huayuan** en représailles a
 
 ### Fiche signalétique
 
-- **Nom :** Clan Wang (Wang Clan)
-- **Composition :** Mortels (certains avec talent de cultivation)
-- **Localisation :** Pays de Zhao, Planète Suzaku
-- **Membre notable :** Wang Lin
-- **Bourreau du clan :** Teng Huayuan
-- **Cause du massacre :** Représailles après la mort de Teng Li tué par Wang Lin
-- **Système stellaire :** Système Stellaire de l'Alliance
-- **Monde :** Monde de la Grotte de Wang Lin
-- **Royaume :** Royaume Scellé
+- **Nom:** Clan Wang (Wang Clan)
+- **Composition:** Mortels (certains avec talent de cultivation)
+- **Localisation:** Pays de Zhao, Planète Suzaku
+- **Membre notable:** Wang Lin
+- **Bourreau du clan:** Teng Huayuan
+- **Cause du massacre:** Représailles après la mort de Teng Li tué par Wang Lin
+- **Système stellaire:** Système Stellaire de l'Alliance
+- **Monde:** Monde de la Grotte de Wang Lin
+- **Royaume:** Royaume Scellé
 
 ## Histoire
 

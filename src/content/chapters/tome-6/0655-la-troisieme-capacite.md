@@ -8,7 +8,7 @@ slug: la-troisieme-capacite
 ---
 La puissante aspiration provenant de l'extérieur tirait sur le corps de Wang Lin. L'ouverture de la fissure ressemblait à la gueule d'une bête assoiffée de dévorer Wang Lin.
 
-L'aspiration était si intense que ses vêtements et ses cheveux étaient violemment attirés vers la crevasse. Des bosses irrégulières apparaissaient sous la peau de Wang Lin ; c'était sa propre chair et son sang qui subissaient la force de succion.
+L'aspiration était si intense que ses vêtements et ses cheveux étaient violemment attirés vers la crevasse. Des bosses irrégulières apparaissaient sous la peau de Wang Lin; c'était sa propre chair et son sang qui subissaient la force de succion.
 
 Wang Lin resta en position du lotus pendant sept jours. Durant cette période, il s'habitua à l'intensité de l'aspiration en ce lieu. Ce jour-là, il ouvrit les yeux et fit un pas de plus.
 
@@ -20,7 +20,7 @@ L'expression de Wang Lin était sombre alors qu'il s'asseyait lentement. Il ajus
 
 Le flux sanguin dans son corps était presque à l'arrêt. Si ce n'était pas pour l'énergie spirituelle céleste qui circulait en lui, de nombreuses parties de son corps seraient déjà gravement blessées.
 
-« Ce n'est toujours pas suffisant ! » Songea Wang Lin un instant avant d'interrompre la circulation de l'énergie spirituelle céleste dans son corps. Dès qu'il le fit, il fut brusquement expulsé de la fissure.
+« Ce n'est toujours pas suffisant! » Songea Wang Lin un instant avant d'interrompre la circulation de l'énergie spirituelle céleste dans son corps. Dès qu'il le fit, il fut brusquement expulsé de la fissure.
 
 Au moment où son corps atteignit le bord de la crevasse, Wang Lin frappa sa sacoche de stockage. Les sept épées s'envolèrent immédiatement pour former une formation. Elles chutèrent comme des flèches et se plantèrent dans le sol tout autour de lui.
 
@@ -34,17 +34,17 @@ Au-delà de son origine, même son intention de tuer semblait se condenser pour 
 
 Après un long moment, les yeux de Wang Lin s'illuminèrent et il avança de trois mètres. Les sept épées bougèrent avec lui. La force d'aspiration augmenta à nouveau, et une nouvelle ligne rouge apparut sous sa peau.
 
-La puissance du vide encerclait les sept épées, provoquant des explosions de chants d'épée. Les esprits contenus dans les lames en sortirent pour fusionner ; ils ne gardèrent pas de forme fixe, changeant constamment de silhouette pour résister à la succion.
+La puissance du vide encerclait les sept épées, provoquant des explosions de chants d'épée. Les esprits contenus dans les lames en sortirent pour fusionner; ils ne gardèrent pas de forme fixe, changeant constamment de silhouette pour résister à la succion.
 
 Parallèlement, les éclairs reliant les sept épées crépitèrent alors que les lames se resserraient. Elles semblaient s'être fusionnées avec le sol au fur et à mesure de leur progression.
 
 À mesure que Wang Lin avançait, de plus en plus de lignes rouges apparaissaient sous sa peau. Elles devinrent si denses qu'elles recouvrirent tout son corps, le rendant entièrement rouge.
 
-Il y avait tant de lignes rouges que, si l'on devait les compter, on en trouverait un million !
+Il y avait tant de lignes rouges que, si l'on devait les compter, on en trouverait un million!
 
-Exactement autant que la quantité d'énergie de boucherie !
+Exactement autant que la quantité d'énergie de boucherie!
 
-Les lignes rouges sous la peau de Wang Lin vacillèrent, mais son esprit demeura calme alors qu'il prenait une profonde inspiration. À cet instant, il atteignit le bord de la fissure, mais cela ne suffisait pas encore à expulser l'intention de tuer de son corps ; cela servait seulement à l'exposer.
+Les lignes rouges sous la peau de Wang Lin vacillèrent, mais son esprit demeura calme alors qu'il prenait une profonde inspiration. À cet instant, il atteignit le bord de la fissure, mais cela ne suffisait pas encore à expulser l'intention de tuer de son corps; cela servait seulement à l'exposer.
 
 En contemplant le monde d'obscurité au-delà de la fissure, les yeux de Wang Lin s'illuminèrent. Cette lumière lui permit de distinguer, à deux cents mètres de profondeur, un rocher qui émergeait de la paroi. L'ancien réseau de transfert se trouvait sur cette roche.
 
@@ -62,7 +62,7 @@ L'atmosphère environnante était saturée d'une aura froide et dense, et la for
 
 La vitesse de la formation des Sept Étoiles atteignit ses limites, mais la force produite ne suffisait pas à contrer l'aspiration. Le corps de Wang Lin fut entraîné vers le bas avec la formation d'épées.
 
-À ce moment précis, les yeux de Wang Lin s'illuminèrent et une silhouette noire apparut soudainement sous ses pieds. Cette figure semblait intimement liée à lui ; elle se mit à murmurer en formant des sceaux de ses mains.
+À ce moment précis, les yeux de Wang Lin s'illuminèrent et une silhouette noire apparut soudainement sous ses pieds. Cette figure semblait intimement liée à lui; elle se mit à murmurer en formant des sceaux de ses mains.
 
 En un instant, la silhouette noire créa un tourbillon si puissant qu'il parvint à suspendre l'aspiration un court moment. Il transporta Wang Lin et la formation d'épées vers le rocher géant.
 
@@ -82,7 +82,7 @@ On aurait dit que Wang Lin avait soudainement poussé une fourrure rouge, tant d
 
 Ce cycle se répéta inlassablement. Après un temps indéterminé, la peau de Wang Lin ne fut plus totalement rouge, laissant progressivement apparaître sa carnation naturelle. Wang Lin prit une grande inspiration et ouvrit brusquement les yeux. Le pantin émergea de son ombre pour créer un nouveau tourbillon, le ramenant ainsi dans la fissure.
 
-Après avoir lutté pour pénétrer à nouveau dans la fissure, Wang Lin atteignit un endroit où l'aspiration était inexistante. Il était épuisé ; on aurait dit qu'il venait de combattre un cultivateur Ascendant au stade avancé pendant dix jours et dix nuits sans relâche.
+Après avoir lutté pour pénétrer à nouveau dans la fissure, Wang Lin atteignit un endroit où l'aspiration était inexistante. Il était épuisé; on aurait dit qu'il venait de combattre un cultivateur Ascendant au stade avancé pendant dix jours et dix nuits sans relâche.
 
 Ces derniers jours, il avait dû résister à la puissance de succion, manipuler la formation des Sept Étoiles, forcer l'expulsion des lignes rouges et faire circuler l'énergie spirituelle céleste pour stabiliser son être.
 
@@ -94,15 +94,15 @@ Cela perdura pendant plusieurs mois. Ce jour-là, Wang Lin était piégé ici de
 
 C'était la toute dernière trace de ces lignes dans son corps. Au moment où elle fut forcée de sortir, Wang Lin ouvrit les yeux. Son regard trahissait sa fatigue, mais une lueur de froideur y brillait également.
 
-« Art de la Boucherie Céleste ! »
+« Art de la Boucherie Céleste! »
 
 Il réfléchit longuement, et la froideur dans ses yeux s'estompa lentement. Il baissa la tête vers le réseau de transfert, lui jeta un dernier regard, puis ne s'en soucia plus pour se concentrer sur la force d'aspiration environnante.
 
 Ce n'est qu'en s'intégrant à cette force qu'il pourrait percevoir ses subtilités. Pour comprendre l'aspiration, il devait cesser de lui résister et ouvrir son esprit. Il devait devenir transparent afin que la succion puisse traverser son corps.
 
-Jour après jour, année après année... Wang Lin resta assis là pendant trois ans !
+Jour après jour, année après année... Wang Lin resta assis là pendant trois ans!
 
-La formation des Sept Étoiles ne tournait plus et les épées étaient plantées dans le sol autour de lui. Wang Lin semblait n'avoir fait qu'un avec le rocher. Au début, la force d'aspiration provoquait encore de légers mouvements, mais progressivement, il devint comme transparent ; l'aspiration passait simplement à travers lui.
+La formation des Sept Étoiles ne tournait plus et les épées étaient plantées dans le sol autour de lui. Wang Lin semblait n'avoir fait qu'un avec le rocher. Au début, la force d'aspiration provoquait encore de légers mouvements, mais progressivement, il devint comme transparent; l'aspiration passait simplement à travers lui.
 
 Le temps s'écoula, et trois autres années passèrent.
 
@@ -136,7 +136,7 @@ Au cours de ces dix-sept dernières années, Wang Lin s'était habitué au siffl
 
 Soudain, Wang Lin ouvrit les yeux, et ses pupilles semblèrent crépiter de foudre. Il baissa la tête vers l'abîme sombre qui s'étendait sous lui. La lumière dans ses yeux devint de plus en plus intense, jusqu'à atteindre un paroxysme avant de se dissiper brusquement. Après treize années d'immobilité, Wang Lin se leva lentement et fit un pas en avant.
 
-Il n'utilisa aucun sortilège pour ce mouvement ; il était comme un mortel s'aventurant au bord d'un précipice pour plonger dans le néant. Son corps tomba instantanément vers le fond du puits, et sa silhouette fut engloutie par les ténèbres.
+Il n'utilisa aucun sortilège pour ce mouvement; il était comme un mortel s'aventurant au bord d'un précipice pour plonger dans le néant. Son corps tomba instantanément vers le fond du puits, et sa silhouette fut engloutie par les ténèbres.
 
 Alors qu'il chutait rapidement, Wang Lin garda les yeux clos. La force de succion agissait comme une multitude de mains gigantesques tentant de l'entraîner impitoyablement vers l'abîme.
 
@@ -150,7 +150,7 @@ Fusionner... se transformer en aspiration... devenir l'aspiration...
 
 Wang Lin ouvrit les yeux. Bien que son corps continuât de sombrer, un léger sourire apparut sur ses lèvres. Il prit une grande inspiration, et à cet instant précis, sa chute s'interrompit.
 
-La force d'aspiration passait désormais à travers lui sans aucune entrave. Son âme originelle, sa chair, tout son être avait fusionné avec la succion. Il faisait partie de la force d'aspiration !
+La force d'aspiration passait désormais à travers lui sans aucune entrave. Son âme originelle, sa chair, tout son être avait fusionné avec la succion. Il faisait partie de la force d'aspiration!
 
 Il regarda vers le bas et ne vit aucun fond. Il n'y avait qu'un abîme infini qui semblait capable de dévorer toute l'existence du monde.
 

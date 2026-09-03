@@ -8,7 +8,7 @@ slug: larret
 ---
 Wang Lin détourna son regard de la scène où l'on piétinait le ciel. La dernière chose qu'il avait contemplée était la vaste mer séparant le clan céleste du clan ancestral, et plus particulièrement les neuf piliers qui formaient la porte du Royaume Divin Immémorial.
 
-Cependant, même avec son niveau de cultivation, il ne pouvait toujours pas percevoir clairement le Royaume Divin Immémorial. C'était comme si ce royaume se trouvait bien au-delà des capacités actuelles de Wang Lin.
+Cependant, même avec son niveau de culture, il ne pouvait toujours pas percevoir clairement le Royaume Divin Immémorial. C'était comme si ce royaume se trouvait bien au-delà des capacités actuelles de Wang Lin.
 
 Wang Lin fixa la mer déchaînée et, après un long moment, ferma les yeux. À l'instant même où il les ferma, son regard disparut du Continent Astral Immortel.
 
@@ -18,7 +18,7 @@ Il semblait que tout ce qui s'était produit auparavant avait eu lieu durant les
 
 En observant le Pont du Piétinement du Ciel, en contemplant le troisième, le quatrième... jusqu'au neuvième, et en fixant l'image floue par-delà le neuvième pont, il ne put s'empêcher de ressentir une immense distance. Même son cœur lui semblait lointain, comme si ces ponts représentaient des sommets inaccessibles qui incitaient quiconque les regardait à renoncer.
 
-Dès que cette pensée surgit, elle s'amplifia à l'infini jusqu'à envahir tout le corps de Wang Lin. C'était comme une voix lui murmurant de faire demi-tour et de quitter les lieux ; de s'arrêter et de ne pas tenter de franchir les sept ponts restants.
+Dès que cette pensée surgit, elle s'amplifia à l'infini jusqu'à envahir tout le corps de Wang Lin. C'était comme une voix lui murmurant de faire demi-tour et de quitter les lieux; de s'arrêter et de ne pas tenter de franchir les sept ponts restants.
 
 Wang Lin se tenait au bord du deuxième pont. Il ne lui suffisait que d'un seul pas pour l'achever complètement. Pourtant, après un long moment, il semblait incapable de faire ce dernier pas.
 
@@ -26,7 +26,7 @@ Le temps s'écoula lentement. Wang Lin resta là, le regard calmement porté ver
 
 « Est-ce pour se remettre en question... Si le cœur n'est pas assez fort, si l'on ne possède pas une volonté défiant le ciel, si l'on manque de persévérance, peut-être aurait-on reculé à cet instant même », murmura Wang Lin pour lui-même alors qu'il marchait vers le troisième pont.
 
-Le troisième pont paraissait à la fois très loin et très proche ; pourtant, après trois jours de marche, Wang Lin n'était toujours pas arrivé. Il marcha trois jours de plus, sans que rien ne change. Trois jours supplémentaires passèrent, et le pont semblait toujours aussi lointain et pourtant si proche.
+Le troisième pont paraissait à la fois très loin et très proche; pourtant, après trois jours de marche, Wang Lin n'était toujours pas arrivé. Il marcha trois jours de plus, sans que rien ne change. Trois jours supplémentaires passèrent, et le pont semblait toujours aussi lointain et pourtant si proche.
 
 Au neuvième jour, Wang Lin s'arrêta. Après une courte réflexion, il leva soudainement les yeux. Son regard devint étrange, puis il ferma lentement les paupières.
 
@@ -34,15 +34,15 @@ Il n'avait nul besoin de ses yeux ni de son Sens Divin. Il scella sa vision et s
 
 Il progressait étape par étape, et au neuvième pas, il entendit le chant des oiseaux autour de lui. Une douce lumière semblait percer ses paupières.
 
-Il huma le parfum de la terre, ainsi que cette aura et cette odeur familières : l'arôme du bois et la saveur épicée du tabac.
+Il huma le parfum de la terre, ainsi que cette aura et cette odeur familières: l'arôme du bois et la saveur épicée du tabac.
 
 Ses pas s'arrêtèrent.
 
-« Tie Zhu, comment se passent tes études ? »
+« Tie Zhu, comment se passent tes études? »
 
-« Tie Zhu, tu dois bien étudier. L'examen du comté aura lieu l'année prochaine ; ton avenir en dépendra. Ne finis pas comme moi, coincé dans ce village pour le restant de mes jours. »
+« Tie Zhu, tu dois bien étudier. L'examen du comté aura lieu l'année prochaine; ton avenir en dépendra. Ne finis pas comme moi, coincé dans ce village pour le restant de mes jours. »
 
-« Assez ! Tu le harcèles tous les jours. Je dis que notre Tie Zhu réussira certainement son examen. »
+« Assez! Tu le harcèles tous les jours. Je dis que notre Tie Zhu réussira certainement son examen. »
 
 C'étaient les voix de son père et de sa mère. Ces voix semblaient traverser des millénaires pour atteindre l'ère de Wang Lin. Elles étaient si réelles qu'elles semblaient ramener Wang Lin dans le paisible village de montagne d'autrefois.
 
@@ -56,11 +56,11 @@ Ce troisième pont était probablement l'épreuve des démons intérieurs. Si le
 
 Mais dès lors qu'une personne ouvre les yeux, elle doit affronter ses démons intérieurs, affronter sa propre existence. Par conséquent, les chances de traverser le troisième pont diminuent infiniment.
 
-Les voix de son père et de sa mère résonnaient encore à ses oreilles tandis que les larmes coulaient sur son visage ; il n'hésita pas une seconde et ouvrit les yeux. Devant lui apparurent la maison familière, la cour, la table et la nourriture habituelle.
+Les voix de son père et de sa mère résonnaient encore à ses oreilles tandis que les larmes coulaient sur son visage; il n'hésita pas une seconde et ouvrit les yeux. Devant lui apparurent la maison familière, la cour, la table et la nourriture habituelle.
 
 Il vit son père, qui vidait sa pipe sur le côté. Il vit son visage ridé et ses yeux sévères, mais aussi l'affection tendre qui se cachait derrière cette sévérité.
 
-Il vit sa mère sortir de la maison avec des plats fraîchement préparés. Quelques cheveux blancs parsemaient sa chevelure ; ils n'étaient pas nombreux et restaient pour la plupart dissimulés par ses cheveux noirs, mais Wang Lin les vit.
+Il vit sa mère sortir de la maison avec des plats fraîchement préparés. Quelques cheveux blancs parsemaient sa chevelure; ils n'étaient pas nombreux et restaient pour la plupart dissimulés par ses cheveux noirs, mais Wang Lin les vit.
 
 Sa mère n'était peut-être pas belle aux yeux du monde, mais dans le cœur de Wang Lin, elle était la femme la plus magnifique, un refuge éternel contre les vents de l'existence.
 
@@ -74,19 +74,19 @@ Son père et sa mère n'étaient pas des cultivateurs, et les mortels ne peuvent
 
 « Mais quand mon père et ma mère sont apparus, bien que je susse que c'était faux, j'ai quand même ouvert les yeux », murmura Wang Lin.
 
-« Qui a décidé qu'il fallait fermer les yeux face aux souvenirs du passé et ignorer ces derniers pour maintenir un cœur ferme afin de ne pas succomber à ses démons intérieurs ? »
+« Qui a décidé qu'il fallait fermer les yeux face aux souvenirs du passé et ignorer ces derniers pour maintenir un cœur ferme afin de ne pas succomber à ses démons intérieurs? »
 
 « Qui a décrété qu'il fallait posséder un cœur de Dao inébranlable pour franchir le troisième pont... »
 
 « Qui a déterminé que c'était la seule manière de traverser ce pont... » Les yeux de Wang Lin s'illuminèrent.
 
-« La famille, l'amour et l'amitié sont les piliers de ma vie. Pourquoi devrais-je fermer les yeux ? Je veux garder les yeux ouverts et tout embrasser. J'ouvrirai mon cœur de Dao pour accueillir la totalité de mon existence ! » Wang Lin prit une profonde inspiration et reprit sa marche.
+« La famille, l'amour et l'amitié sont les piliers de ma vie. Pourquoi devrais-je fermer les yeux? Je veux garder les yeux ouverts et tout embrasser. J'ouvrirai mon cœur de Dao pour accueillir la totalité de mon existence! » Wang Lin prit une profonde inspiration et reprit sa marche.
 
-Après neuf pas, il revit ses parents ; après neuf autres pas, il vit Mu Bingmei, Li Qianmei et Li Muwan. Après encore neuf pas, il vit Wang Ping. Il vit l'enfant pauvre tirer sur ses vêtements et lui demander avec sérieux de se mettre à la cultivation. L'enfant voulait accompagner son père toute sa vie, refusant de quitter ce monde et de le laisser seul. Si son père devait rester seul, il souhaitait que sa présence puisse subsister à ses côtés.
+Après neuf pas, il revit ses parents; après neuf autres pas, il vit Mu Bingmei, Li Qianmei et Li Muwan. Après encore neuf pas, il vit Wang Ping. Il vit l'enfant pauvre tirer sur ses vêtements et lui demander avec sérieux de se mettre à la culture. L'enfant voulait accompagner son père toute sa vie, refusant de quitter ce monde et de le laisser seul. Si son père devait rester seul, il souhaitait que sa présence puisse subsister à ses côtés.
 
 Wang Lin vit Situ Nan, Qing Shui, Dun Tian, le vieil Oiseau Vermillon et tant d'autres qui l'avaient aidé. Il les regarda les yeux grands ouverts et continua d'avancer.
 
-Big Head, Red Butterfly, Qing Shuang, Zhou Ru, Qing Lin... et bien d'autres encore. Wang Lin semblait revivre toute son existence à mesure que ces visages apparaissaient.
+Big Head, Papillon Rouge, Qing Shuang, Zhou Ru, Qing Lin... et bien d'autres encore. Wang Lin semblait revivre toute son existence à mesure que ces visages apparaissaient.
 
 Tout au long de ce chemin, Wang Lin ne chercha pas à contrôler ses émotions. Il pleura, sourit, ressentit la douleur et la tristesse... Il continua ainsi pendant longtemps. Il ne sut quand il franchit le troisième pont, mais lorsqu'il atteignit son extrémité, tout disparut. Il resta là un instant et soupira. Il regarda longuement en arrière avant de quitter le troisième pont.
 
@@ -102,7 +102,7 @@ Simultanément, le quatrième pont trembla soudainement devant lui et se fragmen
 
 Au moment où il fut dévoré, dans la chambre secrète du palais du Prince Ji Du, Wang Lin ouvrit brusquement les yeux.
 
-Ses yeux restèrent empreints d'une profonde confusion pendant un long moment. Son corps véritable d'essence de meurtre s'était totalement intégré à son propre corps ; il n'y avait plus d'ombre superposée.
+Ses yeux restèrent empreints d'une profonde confusion pendant un long moment. Son corps véritable d'essence de meurtre s'était totalement intégré à son propre corps; il n'y avait plus d'ombre superposée.
 
 Les essences éthérées flottaient devant lui, et l'âme de l'Empereur Céleste était toujours entourée par son feu d'âme. La chambre secrète était plongée dans le silence.
 

@@ -16,7 +16,7 @@ L'énergie Yin ne pénétra pas directement dans son dantian, mais commença à 
 
 Bien que chaque flux entraînant une certaine perte, l'énergie Yin devenait de plus en plus impétueuse à mesure qu'elle s'engouffrait dans son dantian, comme si elle menait une guerre déchaînée.
 
-Après un long moment, le trou noir commença à se fissurer ; à cet instant précis, Wang Lin transféra rapidement un autre tiers de l'énergie Yin provenant de son corps. D'un seul mouvement, il ouvrit le méridien de son dantian.
+Après un long moment, le trou noir commença à se fissurer; à cet instant précis, Wang Lin transféra rapidement un autre tiers de l'énergie Yin provenant de son corps. D'un seul mouvement, il ouvrit le méridien de son dantian.
 
 Pendant un instant, Wang Lin ressentit une douleur extrême. Au moment où le trou noir se brisa, une puissance mystérieuse commença à saturer son corps. Sans même ciller, Wang Lin entreprit déjà de charger le méridien suivant.
 
@@ -30,13 +30,13 @@ Jusqu'à minuit, moment où l'énergie Yin est la plus dense, le corps de Wang L
 
 Dans un rayon de trois mètres autour de Wang Lin, c'était un véritable broyeur pour l'énergie Yin. Toute cette énergie était dévorée à une vitesse folle.
 
-La masse colossale d'énergie Yin était absorbée par Wang Lin et instantanément ajoutée au tourbillon en son sein. Celui-ci grandissait sans cesse, jusqu'à devenir presque incontrôlable, croissant de manière effrénée. Wang Lin fut immédiatement stupéfait ; il voulut interrompre le processus, mais réalisa qu'il n'avait plus aucun contrôle sur ce tourbillon qui ne cessait de s'étendre. Une pointe d'inquiétude l'envahit, car rien de tel n'était mentionné dans les archives de la Méthode d'Ascension des Enfers.
+La masse colossale d'énergie Yin était absorbée par Wang Lin et instantanément ajoutée au tourbillon en son sein. Celui-ci grandissait sans cesse, jusqu'à devenir presque incontrôlable, croissant de manière effrénée. Wang Lin fut immédiatement stupéfait; il voulut interrompre le processus, mais réalisa qu'il n'avait plus aucun contrôle sur ce tourbillon qui ne cessait de s'étendre. Une pointe d'inquiétude l'envahit, car rien de tel n'était mentionné dans les archives de la Méthode d'Ascension des Enfers.
 
-Wang Lin ignorait que si la Méthode d'Ascension des Enfers était qualifiée de technique démoniaque, c'était en raison de ses variations imprévisibles : certaines étaient extrêmement bénéfiques, tandis que d'autres pouvaient tuer leur utilisateur.
+Wang Lin ignorait que si la Méthode d'Ascension des Enfers était qualifiée de technique démoniaque, c'était en raison de ses variations imprévisibles: certaines étaient extrêmement bénéfiques, tandis que d'autres pouvaient tuer leur utilisateur.
 
 Situ Nan étant toujours endormi, Wang Lin devait faire face à cette situation seul.
 
-À mesure que le tourbillon s'étirait, la force d'aspiration augmentait proportionnellement, et le rayon de trois mètres s'élargit rapidement. C'était un cercle vicieux : plus la portée était grande, plus l'énergie Yin absorbée l'était massive, et plus l'énergie Yin était abondante, plus le tourbillon croissait vite, accélérant encore l'absorption.
+À mesure que le tourbillon s'étirait, la force d'aspiration augmentait proportionnellement, et le rayon de trois mètres s'élargit rapidement. C'était un cercle vicieux: plus la portée était grande, plus l'énergie Yin absorbée l'était massive, et plus l'énergie Yin était abondante, plus le tourbillon croissait vite, accélérant encore l'absorption.
 
 Dix mètres, trente mètres, cinquante mètres, soixante-dix mètres, cent mètres...
 
@@ -50,7 +50,7 @@ Si Wang Lin absorbait auparavant l'énergie Yin environnante de manière continu
 
 En un instant, toute l'énergie Yin dans un rayon de cent mètres fut engloutie par le trou noir, provoquant une perturbation encore plus vaste. Bientôt, le tourbillon passa de cent à cent cinquante mètres, puis deux cents, trois cents, cinq cents, sept cents, pour finalement dépasser les mille mètres.
 
-Si l'on observait la scène depuis le ciel, on aurait été témoin d'un spectacle terrifiant : toute l'énergie Yin convergeait violemment vers un point central unique.
+Si l'on observait la scène depuis le ciel, on aurait été témoin d'un spectacle terrifiant: toute l'énergie Yin convergeait violemment vers un point central unique.
 
 Dans les profondeurs des ruines, l'étrange être à la peau bleue tenait le corps d'une bête dans sa main. Il en mordit un morceau et commença à mâcher lorsqu'il se tourna soudainement vers Wang Lin, affichant une expression de choc. Il jeta précipitamment sa nourriture et courut vers Wang Lin comme un lapin terrifié.
 
@@ -70,7 +70,7 @@ L'énergie spirituelle de son organisme subit un changement radical suite à l'a
 
 Wang Lin était toujours entouré d'énergie Yin et avait la sensation que s'il continuait ainsi, il finirait par exploser. Ce pressentiment fut confirmé lorsqu'il commença à ressentir une sensation de gonflement interne.
 
-Wang Lin serra de nouveau les dents ; c'était maintenant tout ou rien. Il mobilisa l'énergie Yin et décida de tenter la quatrième percée.
+Wang Lin serra de nouveau les dents; c'était maintenant tout ou rien. Il mobilisa l'énergie Yin et décida de tenter la quatrième percée.
 
 Situ Nan avait souligné que les première, quatrième et septième couches étaient extrêmement ardues, car elles marquaient les premières tentatives de percée dans le dantian, la Mer de Qi et le méridien ancestral.
 
@@ -94,19 +94,19 @@ Wang Lin avait absorbé bien trop d'énergie Yin cette nuit-là. Toute l'énergi
 
 En termes de quantité, Wang Lin sentait clairement que son énergie spirituelle Yin était deux fois plus importante qu'auparavant, ce qui signifiait qu'il atteignait désormais le sommet du stade initial de l'Établissement des Fondations.
 
-Il ouvrit les yeux et se remémora les événements de la nuit passée. Bien qu'alarmé, il pesait surtout les avantages et les inconvénients d'un tel mode de cultivation.
+Il ouvrit les yeux et se remémora les événements de la nuit passée. Bien qu'alarmé, il pesait surtout les avantages et les inconvénients d'un tel mode de culture.
 
-L'imprévu survenu durant sa cultivation nocturne lui avait ouvert de nouvelles perspectives.
+L'imprévu survenu durant sa culture nocturne lui avait ouvert de nouvelles perspectives.
 
-L'avantage de cette méthode était évident, mais son danger l'était tout autant. Un seul faux pas et il aurait explosé ; toutefois, grâce à cette expérience, il disposerait d'un meilleur contrôle la prochaine fois, réduisant ainsi les risques.
+L'avantage de cette méthode était évident, mais son danger l'était tout autant. Un seul faux pas et il aurait explosé; toutefois, grâce à cette expérience, il disposerait d'un meilleur contrôle la prochaine fois, réduisant ainsi les risques.
 
-Wang Lin marmonna : « Il semble que je doive trouver un nouvel abri. Bien que la quantité d'énergie Yin soit importante, sa qualité est trop faible pour satisfaire mes besoins de percée. » Pour l'instant, ses chances de progresser étaient trop minces, mais selon les registres, plus la qualité de l'énergie Yin était élevée, plus les chances de réussite augmentaient.
+Wang Lin marmonna: « Il semble que je doive trouver un nouvel abri. Bien que la quantité d'énergie Yin soit importante, sa qualité est trop faible pour satisfaire mes besoins de percée. » Pour l'instant, ses chances de progresser étaient trop minces, mais selon les registres, plus la qualité de l'énergie Yin était élevée, plus les chances de réussite augmentaient.
 
-Wang Lin se souvint du test effectué quelques mois auparavant et se rappela que le pilier entourant la bille de pierre était de haute qualité (rang un) ; il prit alors sa décision.
+Wang Lin se souvint du test effectué quelques mois auparavant et se rappela que le pilier entourant la bille de pierre était de haute qualité (rang un); il prit alors sa décision.
 
 Au même instant, le ciel au-dessus de la forêt s'obscurcit soudainement lorsqu'un vieil homme dégageant une pression colossale apparut silencieusement. Il contemplait la forêt en contrebas, une intention meurtrière fulgurante dans les yeux.
 
-« Li Er, grand-père Tai est là pour te venger ! »
+« Li Er, grand-père Tai est là pour te venger! »
 
 L'homme était l'ancêtre de la famille Teng, Teng Huayuan. Il avait maudit tout le trajet, mais malgré ses efforts, il ne parvenait pas à localiser précisément le meurtrier de son petit-fils. C'était comme si un brouillard l'enveloppait. S'il ne pouvait déterminer l'endroit exact, il savait que le coupable se trouvait dans la jungle en contrebas.
 
@@ -118,4 +118,4 @@ Après avoir hésité un instant, il serra les dents et chargea dans la forêt.
 
 Dans les profondeurs des ruines de la jungle, le couvercle d'un cercueil s'ouvrit sans un bruit. Une main desséchée, émettant une lueur noire et violette, apparut lentement. La main se crispa et, soudain, une sphère d'éclairs violets surgit de sa paume, dégageant une aura funeste.
 
-« Les cent ans sont écoulés ! Mon maître, tu avais abandonné ton corps pour fuir autrefois, mais cette fois, tu ne pourras pas t'échapper ! »
+« Les cent ans sont écoulés! Mon maître, tu avais abandonné ton corps pour fuir autrefois, mais cette fois, tu ne pourras pas t'échapper! »
