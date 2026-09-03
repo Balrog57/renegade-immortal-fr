@@ -26,7 +26,7 @@ La Perle Défiant le Ciel vola lentement vers Wang Lin et flotta devant lui.
 
 Le réseau scintillant environnant fut à nouveau lentement recouvert par le vide. Il ne restait alors plus que l'obscurité et le silence infinis.
 
-Quant au Serpent Moongazer et à Lou Chen, ils étaient isolés à l'extérieur du réseau. Lorsque le vide se propagea, ils disparurent à jamais...
+Quant au Serpent aux yeux de lune et à Lou Chen, ils étaient isolés à l'extérieur du réseau. Lorsque le vide se propagea, ils disparurent à jamais...
 
 Qing Shui observait la scène. La majeure partie de son énergie d'origine céleste avait été scellée. Il regarda Wang Lin, et ses yeux, autrefois confus, devinrent intenses.
 
@@ -56,7 +56,7 @@ Tandis que Wang Lin méditait, son corps commença à rétrécir progressivement
 
 Cinq étoiles de Dieu Antique tournaient entre ses sourcils, dégageant une aura divine antique et féroce! À cet instant, le corps originel de Wang Lin possédait la puissance d'un Dieu Antique à cinq étoiles; il était désormais considéré comme l'un des grands puissants!
 
-Si un Dieu Royal Antique à cinq étoiles utilisait un sortilège, il pouvait combattre des cultivateurs du stade précoce de Nirvana Cleanser! Une fois revenu dans l'espace normal et son énergie d'origine déliée, presque aucun cultivateur de ce stade ne serait son égal!
+Si un Dieu Royal Antique à cinq étoiles utilisait un sortilège, il pouvait combattre des cultivateurs du stade précoce de Purificateur du Nirvana! Une fois revenu dans l'espace normal et son énergie d'origine déliée, presque aucun cultivateur de ce stade ne serait son égal!
 
 Pour la première fois, Wang Lin ressentit le poids de sa propre puissance. Son expression restait calme tandis qu'il observait silencieusement Qing Shui.
 

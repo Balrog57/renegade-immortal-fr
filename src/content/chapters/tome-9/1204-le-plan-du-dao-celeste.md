@@ -86,7 +86,7 @@ Dans la vallée, Wang Lin observa les restes de Sima Mo et resta pensif un long 
 
 En sortant de la vallée, le regard de Wang Lin s'anima. Il devait trouver la tablette qu'il avait aperçue par l'esprit; il devait découvrir l'autre moitié des restes de Zhan Xingye.
 
-Après avoir fouillé les souvenirs de Pang Decai et du Maître Ashen Pine, Wang Lin n'était plus un étranger dans ce Royaume aux Sept Couleurs. Tous les sentiers étaient désormais gravés dans sa mémoire. Il se déplaçait comme un rayon de lumière, sans voler, mais en glissant avec rapidité sur le sol.
+Après avoir fouillé les souvenirs de Pang Decai et du Maître Pin Cendré, Wang Lin n'était plus un étranger dans ce Royaume aux Sept Couleurs. Tous les sentiers étaient désormais gravés dans sa mémoire. Il se déplaçait comme un rayon de lumière, sans voler, mais en glissant avec rapidité sur le sol.
 
 Il traversa diverses vallées avant d'atteindre l'endroit où la vieille femme en vert était emprisonnée. La restriction avait été levée et la vieille femme avait disparu.
 
@@ -100,12 +100,12 @@ Un soupir monta dans son cœur, mais il ne ralentit pas et continua de foncer. I
 
 Ses yeux brillèrent alors qu'il bondissait pour atteindre la tête de la statue.
 
-Dans les souvenirs du Maître Ashen Pine, sa méthode de culture s'intitulait: *La Centaine de Formes d'Origine Sanguine formant l'Âme Naissante*. Le septième esprit du Royaume Scellé qu'il invoquait avait été compris grâce à cette statue.
+Dans les souvenirs du Maître Pin Cendré, sa méthode de culture s'intitulait: *La Centaine de Formes d'Origine Sanguine formant l'Âme Naissante*. Le septième esprit du Royaume Scellé qu'il invoquait avait été compris grâce à cette statue.
 
-Cette technique permettait de cultiver un total de neuf entités semblables à des Âmes Naissantes, mais bien plus puissantes que de véritables Âmes Naissantes. Plus important encore, elles permettaient au Maître Ashen Pine d'augmenter neuf fois la vitesse de culture de ses sortilèges.
+Cette technique permettait de cultiver un total de neuf entités semblables à des Âmes Naissantes, mais bien plus puissantes que de véritables Âmes Naissantes. Plus important encore, elles permettaient au Maître Pin Cendré d'augmenter neuf fois la vitesse de culture de ses sortilèges.
 
 Le plus stupéfiant était que chaque Âme Naissante pouvait forger un sort unique. Souvent, les cultivateurs devaient choisir entre plusieurs sorts incompatibles; peu importe leur puissance, l'un devait être sacrifié pour l'autre, comme c'était le cas pour le sort ancestral Ying Yang de la vieille femme.
 
-Cependant, ce n'était pas un obstacle pour le Maître Ashen Pine: ses neuf Âmes Naissantes de sang pouvaient cultiver des sorts séparément.
+Cependant, ce n'était pas un obstacle pour le Maître Pin Cendré: ses neuf Âmes Naissantes de sang pouvaient cultiver des sorts séparément.
 
 Mais avant son combat contre Wang Lin, l'une de ces âmes avait été capturée par la vieille femme, et lors de leur affrontement, les deux furent si gravement blessés qu'il n'avait pu utiliser les pouvoirs qu'elles renfermaient.

@@ -88,19 +88,19 @@ Une bête féroce et massive montait sur le nuage rouge. Cette créature ressemb
 
 Alors que la bête rugissait en se précipitant, le brouillard céleste se fendit comme si une paire de mains invisibles lui ouvrait le passage.
 
-Lorsque Wang Lin identifia la bête par son Sens Divin, son expression changea radicalement et il s'exclama: « Le Serpent Moongazer! »
+Lorsque Wang Lin identifia la bête par son Sens Divin, son expression changea radicalement et il s'exclama: « Le Serpent aux yeux de lune! »
 
 L'Ancien Dieu avait une impression très profonde de cette bête. Wang Lin prit une inspiration glacée. Sans un mot, il descendit immédiatement pour s'engouffrer dans l'une des fissures du sol.
 
-Simultanément, les informations sur le Serpent Moongazer transmises par l'Ancien Dieu Tu Si traversèrent son esprit. Les yeux de Wang Lin révélèrent soudainement une lueur mystérieuse.
+Simultanément, les informations sur le Serpent aux yeux de lune transmises par l'Ancien Dieu Tu Si traversèrent son esprit. Les yeux de Wang Lin révélèrent soudainement une lueur mystérieuse.
 
-« Un Serpent Moongazer n'est pas une créature née de la nature; c'est un parasite unique qui vit dans le corps d'un Ancien Dieu. Tant que l'Ancien Dieu est en vie, ils absorbent son sang pour survivre, mais ils ne peuvent quitter son corps. Parfois, les Anciens Dieux les utilisaient comme des trésors magiques. »
+« Un Serpent aux yeux de lune n'est pas une créature née de la nature; c'est un parasite unique qui vit dans le corps d'un Ancien Dieu. Tant que l'Ancien Dieu est en vie, ils absorbent son sang pour survivre, mais ils ne peuvent quitter son corps. Parfois, les Anciens Dieux les utilisaient comme des trésors magiques. »
 
-« Une fois qu'un Ancien Dieu meurt, le parasite meurt également. Cependant, il existe une chance rare que le Serpent Moongazer survive et parvienne à quitter le corps de l'Ancien Dieu. Plus l'Ancien Dieu est puissant, plus le Serpent Moongazer l'est aussi. »
+« Une fois qu'un Ancien Dieu meurt, le parasite meurt également. Cependant, il existe une chance rare que le Serpent aux yeux de lune survive et parvienne à quitter le corps de l'Ancien Dieu. Plus l'Ancien Dieu est puissant, plus le Serpent aux yeux de lune l'est aussi. »
 
-« Tous les Serpents Moongazers à l'intérieur de l'Ancien Dieu Tu Si sont morts, c'est pourquoi ils n'étaient pas apparus. Pourtant, un Serpent Moongazer est ici. Se pourrait-il... se pourrait-il que cet endroit abrite les restes d'un Ancien Dieu!? Mais si c'est le cas, cela n'a aucun sens. Comment se fait-il que personne dans le Système Stellaire Allheaven ne l'ait reconnu? Si un puissant cultivateur voyait cette créature, il ne la laisserait pas s'échapper si facilement. »
+« Tous les Serpents aux yeux de lunes à l'intérieur de l'Ancien Dieu Tu Si sont morts, c'est pourquoi ils n'étaient pas apparus. Pourtant, un Serpent aux yeux de lune est ici. Se pourrait-il... se pourrait-il que cet endroit abrite les restes d'un Ancien Dieu!? Mais si c'est le cas, cela n'a aucun sens. Comment se fait-il que personne dans le Système Stellaire Allheaven ne l'ait reconnu? Si un puissant cultivateur voyait cette créature, il ne la laisserait pas s'échapper si facilement. »
 
-Wang Lin, tapi dans une fissure du sol, observait le nuage rouge dans le ciel. Le corps gigantesque du Serpent Moongazer s'éloignant progressivement, il commença à réfléchir en silence.
+Wang Lin, tapi dans une fissure du sol, observait le nuage rouge dans le ciel. Le corps gigantesque du Serpent aux yeux de lune s'éloignant progressivement, il commença à réfléchir en silence.
 
 Au même moment, sur une planète de culture d'apparence très ordinaire du Système Stellaire Alliance, deux femmes vêtues d'habits colorés pénétrèrent dans la capitale d'un pays mortel.
 

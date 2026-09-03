@@ -21,7 +21,7 @@ sections: ["{\"heading\":\"Apparence\",\"body\":\"Qing Yi avait environ la vingt
 - **Espèce:** Humaine
 - **Cheveux:** Noirs
 - **Yeux:** Marrons
-- **Niveau de cultivation:** Condensation de Qi (départ), Formation de l'Âme (Soul Formation)
+- **Niveau de cultivation:** Condensation de Qi (départ), Formation de l'Âme (Formation de l'Âme)
 - **Époux:** Wang Ping
 - **Beaux-parents:** Wang Lin (beau-père), Liu Mei (belle-mère), Li Muwan (belle-mère par alliance)
 - **Empire:** Heaven Empire (Empire Céleste)

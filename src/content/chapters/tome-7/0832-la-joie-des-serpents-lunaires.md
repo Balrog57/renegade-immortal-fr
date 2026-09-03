@@ -78,7 +78,7 @@ Pourtant, au moment où elle le rattrapa et qu'elle commença à former un sceau
 
 « Qu'est-ce que c'est donc?! » Yao Bingyun n'avait jamais rencontré de tel spécimen. L'apparence hideuse du serpent et son corps couvert de poils firent trembler son esprit.
 
-L'aura de ce Serpent Lunaire n'était pas inférieure à celle d'un cultivateur du stade Nirvana Scryer!
+L'aura de ce Serpent Lunaire n'était pas inférieure à celle d'un cultivateur du stade Scruteur du Nirvana!
 
 Dès l'apparition du serpent, Wang Lin retira immédiatement son aura. C'était son dernier recours: provoquer le chaos pour obtenir une chance de s'échapper.
 

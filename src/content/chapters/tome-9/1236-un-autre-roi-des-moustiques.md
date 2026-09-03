@@ -36,13 +36,13 @@ Sans hésiter, Wang Lin s'anima, et les quelque 2 000 bêtes-moustiques qui l'en
 
 Heureusement, le grand essaim ne fit que scruter les environs après son arrivée. Ne trouvant aucun ennemi, ils s'envolèrent, mais cette densité de bêtes-moustiques resta gravée dans la mémoire de Wang Lin.
 
-En particulier, ces moustiques bleus au sein de l'essaim dégageaient des auras non inférieures à celles des cultivateurs du Nirvana Cleanser. Cela fit battre le cœur de Wang Lin d'excitation.
+En particulier, ces moustiques bleus au sein de l'essaim dégageaient des auras non inférieures à celles des cultivateurs du Purificateur du Nirvana. Cela fit battre le cœur de Wang Lin d'excitation.
 
 Les bêtes-moustiques bleues étant bien plus puissantes que les rouges, leur nombre ne devait pas être élevé. Cependant, compte tenu de la population totale des moustiques, ils devaient être nombreux.
 
 Ce qui excita encore davantage Wang Lin, ce furent les moustiques au corps blanc translucide visibles dans les lueurs blanches. L'aura dégagée par ces créatures était suffisante pour éveiller une cupidité dévorante en lui!
 
-C'était l'aura des cultivateurs du Nirvana Shatterer!
+C'était l'aura des cultivateurs du Briseur du Nirvana!
 
 Parmi ces 10 000 bêtes, il y avait près de 300 moustiques blancs. S'il pouvait contrôler cette force, ce serait bien plus avantageux que de diriger des dizaines de milliers de moustiques rouges!
 
@@ -62,7 +62,7 @@ Le cinquième jour après son entrée, alors que Wang Lin progressait vers la r�
 
 Un fragment de Royaume Céleste flottait ici. À mesure qu'ils s'en approchaient, une lueur bleue jaillit. Les yeux de Wang Lin se plissèrent d'excitation: il vit clairement une bête-moustique à l'intérieur de cette lumière bleue!
 
-Ce moustique était entièrement bleu et dégageait l'aura d'un cultivateur du Nirvana Cleanser!
+Ce moustique était entièrement bleu et dégageait l'aura d'un cultivateur du Purificateur du Nirvana!
 
 Il ne voyageait pas en groupe, mais seul. En plein vol, le roi des moustiques sous les ordres de Wang Lin émit un sifflement. Le moustique bleu s'arrêta net et fixa Wang Lin ainsi que le roi des moustiques. De la confusion et de la résistance luisaient dans ses yeux.
 
@@ -112,7 +112,7 @@ L'Âme Originelle de Wang Lin pénétra l'Étoile de la Loi et se fixa au corps 
 
 Après plusieurs heures de vol, plus de cent bêtes-moustiques bleues se rapprochèrent. Chacune d'elles était extrêmement féroce, et leurs gueules dégageaient une aura redoutable.
 
-Wang Lin vit même parmi elles un moustique bleu profond dont l'aura était équivalente à celle d'un cultivateur du Nirvana Cleanser de stade intermédiaire.
+Wang Lin vit même parmi elles un moustique bleu profond dont l'aura était équivalente à celle d'un cultivateur du Purificateur du Nirvana de stade intermédiaire.
 
 Elles passèrent près du roi des moustiques sans s'arrêter. Seul le spécimen bleu profond jeta un regard chargé de confusion lors de leur passage.
 

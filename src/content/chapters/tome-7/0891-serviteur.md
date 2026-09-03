@@ -22,9 +22,9 @@ Cela attira immédiatement l'attention de la famille. Dès lors, il devint l'él
 
 Son enfance avait forgé une personnalité profondément tordue. Au fil de ces millénaires, il avait torturé et tué de nombreuses personnes; hommes ou femmes, tous mouraient dans la misère.
 
-Il était d'une prudence extrême. Lorsqu'il passait à l'acte, il veillait à ce que personne ne puisse trouver la moindre piste. Cependant, il y a trente ans, lors de l'un de ses massacres, sa famille finit par ne plus pouvoir le tolérer. L'ancêtre du stade Nirvana Scryer, au premier niveau, sortit personnellement pour l'éliminer!
+Il était d'une prudence extrême. Lorsqu'il passait à l'acte, il veillait à ce que personne ne puisse trouver la moindre piste. Cependant, il y a trente ans, lors de l'un de ses massacres, sa famille finit par ne plus pouvoir le tolérer. L'ancêtre du stade Scruteur du Nirvana, au premier niveau, sortit personnellement pour l'éliminer!
 
-Chaque membre de la famille pensait que la bataille était gagnée d'avance, mais le garçon à la grosse tête libéra soudainement une culture de stade Nirvana Scryer, premier niveau. Il avait atteint ce stade depuis des décennies, mais l'avait gardé secret. Désormais, il révélait sa véritable puissance et engageait le combat contre son propre ancêtre!
+Chaque membre de la famille pensait que la bataille était gagnée d'avance, mais le garçon à la grosse tête libéra soudainement une culture de stade Scruteur du Nirvana, premier niveau. Il avait atteint ce stade depuis des décennies, mais l'avait gardé secret. Désormais, il révélait sa véritable puissance et engageait le combat contre son propre ancêtre!
 
 Au cours de cet affrontement, l'ancêtre perdit la vie, tandis que le garçon à la grosse tête, gravement blessé, prit la fuite! Après cela, plus aucune nouvelle de lui ne parut jusqu'à la compétition céleste. Sa réapparition provoqua une onde de choc immense au sein de sa famille!
 
@@ -56,11 +56,11 @@ Le gaz noir et blanc enveloppa sa silhouette, faisant rétrécir instantanément
 
 Il cracha violemment une bouchée de sang. Ce sang n'était pas projeté au hasard: chaque goutte fonçait vers Wang Lin!
 
-Chaque goutte contenait une puissante énergie spirituelle céleste. Si ce sang touchait le corps de Wang Lin, celui-ci s'effondrerait sur-le-champ! Après tout, la culture du garçon à la grosse tête n'était pas dérisoire: c'était un cultivateur de second niveau au stade Nirvana Scryer!
+Chaque goutte contenait une puissante énergie spirituelle céleste. Si ce sang touchait le corps de Wang Lin, celui-ci s'effondrerait sur-le-champ! Après tout, la culture du garçon à la grosse tête n'était pas dérisoire: c'était un cultivateur de second niveau au stade Scruteur du Nirvana!
 
 L'expression de Wang Lin resta neutre; il ne chercha même pas à esquiver. Alors que le sang frais approchait, il murmura doucement: « Lier! »
 
-Grâce à sa culture au stade Nirvana Scryer, le sort de Liaison était bien plus puissant qu'auparavant. De plus, au moment où Wang Lin l'utilisa, la perle céleste laissée par Qing Shui tourna frénétiquement, libérant une trace d'énergie originelle céleste dans ce monde!
+Grâce à sa culture au stade Scruteur du Nirvana, le sort de Liaison était bien plus puissant qu'auparavant. De plus, au moment où Wang Lin l'utilisa, la perle céleste laissée par Qing Shui tourna frénétiquement, libérant une trace d'énergie originelle céleste dans ce monde!
 
 Cela permit instantanément au sort de Liaison d'atteindre un niveau de puissance inédit depuis que Wang Lin l'avait appris!
 

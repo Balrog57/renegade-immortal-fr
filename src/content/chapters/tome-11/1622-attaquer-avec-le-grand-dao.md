@@ -62,7 +62,7 @@ Désormais, Wang Lin était un cultivateur du troisième niveau!
 
 Les craquements dans son corps, les rugissements incessants dans son esprit et la sensation d'un confort extrême étaient comme les signes d'une métamorphose. Tout son être était en pleine évolution!
 
-La première étape de la culture, de la Condensation de Qi à l'Ascendant, permettait au corps du cultivateur de renaître. Ensuite, lorsqu'ils atteignaient le stade de Scryer du Nirvana, ils pouvaient absorber l'énergie originelle!
+La première étape de la culture, de la Condensation de Qi à l'Ascendant, permettait au corps du cultivateur de renaître. Ensuite, lorsqu'ils atteignaient le stade du Scruteur du Nirvana, ils pouvaient absorber l'énergie originelle!
 
 Le troisième niveau était la seconde renaissance d'un cultivateur. Son corps s'étendait à l'infini, ne faisant plus qu'un avec le monde lui-même.
 

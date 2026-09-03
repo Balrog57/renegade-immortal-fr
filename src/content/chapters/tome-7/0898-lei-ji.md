@@ -86,7 +86,7 @@ Un rugissement strident retentit, créant une tempête qui chargea vers Wang Lin
 
 En entendant cela, un éclair de compréhension traversa l'esprit de Wang Lin.
 
-« La Secte des Cadavres se spécialise dans le trafic de corps. Dans ce monde, le corps ultime est celui d'un Dieu Ancien! Cependant, les Dieux Anciens se font rares; la Secte des Cadavres a donc élargi ses ambitions au Clan des Démons Géants. Un tel corps, combiné aux sorts d'un cultivateur, est une chose qu'un mortel ne peut affronter. Si un cultivateur du stade Nirvana Scryer possédait ce type de corps avec ses techniques et la capacité de lignée des Démons Géants, ce serait une menace contre laquelle même moi je n'aurais aucune confiance pour lutter, à moins de fusionner avec mon corps originel! »
+« La Secte des Cadavres se spécialise dans le trafic de corps. Dans ce monde, le corps ultime est celui d'un Dieu Ancien! Cependant, les Dieux Anciens se font rares; la Secte des Cadavres a donc élargi ses ambitions au Clan des Démons Géants. Un tel corps, combiné aux sorts d'un cultivateur, est une chose qu'un mortel ne peut affronter. Si un cultivateur du stade Scruteur du Nirvana possédait ce type de corps avec ses techniques et la capacité de lignée des Démons Géants, ce serait une menace contre laquelle même moi je n'aurais aucune confiance pour lutter, à moins de fusionner avec mon corps originel! »
 
 Le visage de Wang Lin s'assombrit. La Secte des Cadavres recelait trop de secrets. Il ignorait si la possession des corps du Clan des Démons Géants était une priorité absolue pour eux.
 

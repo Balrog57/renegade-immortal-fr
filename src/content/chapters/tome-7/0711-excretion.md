@@ -28,17 +28,17 @@ Fort heureusement, il ne se déplaçait pas trop vite, permettant ainsi à la B�
 
 « Ce tentacule me semble familier... » Wang Lin réfléchit silencieusement un instant avant que ses yeux ne s'illuminent en reconnaissant l'origine de l'attaque.
 
-Wang Lin eut un haut-le-cœur. « Cette chose ressemble étrangement à la troisième forme du Serpent Moongazer! »
+Wang Lin eut un haut-le-cœur. « Cette chose ressemble étrangement à la troisième forme du Serpent aux yeux de lune! »
 
-Le Serpent Moongazer possédait trois formes. La première était sa forme dormante, dépourvue de tout pouvoir offensif. Lors de la première venue de Wang Lin, c'était l'état dans lequel il se trouvait.
+Le Serpent aux yeux de lune possédait trois formes. La première était sa forme dormante, dépourvue de tout pouvoir offensif. Lors de la première venue de Wang Lin, c'était l'état dans lequel il se trouvait.
 
-La deuxième forme apparaissait lorsque tous les tentacules étaient rétractés et que le Serpent Moongazer changeait de configuration. Le serpent actuel se trouvait dans cet état.
+La deuxième forme apparaissait lorsque tous les tentacules étaient rétractés et que le Serpent aux yeux de lune changeait de configuration. Le serpent actuel se trouvait dans cet état.
 
-La troisième forme était celle de l'assaut. Tous les tentacules étaient alors déployés et pouvaient s'étendre aussi loin que le corps du serpent lui-même. Si l'on rencontrait un Serpent Moongazer sous cette forme, il fallait fuir impérativement, sous peine d'être attaqué.
+La troisième forme était celle de l'assaut. Tous les tentacules étaient alors déployés et pouvaient s'étendre aussi loin que le corps du serpent lui-même. Si l'on rencontrait un Serpent aux yeux de lune sous cette forme, il fallait fuir impérativement, sous peine d'être attaqué.
 
 En y pensant, l'expression de Wang Lin devint plus sombre encore. Il regarda les mille pieds de brouillard restants et commença à hésiter.
 
-« La dernière fois que je suis venu ici, il y avait deux Serpents Moongazer. L'un était dans le premier état et le second dormait. Pourquoi ont-ils changé maintenant? J'ignore à quel serpent appartient ce tentacule. » Wang Lin réfléchit un instant. S'il partait maintenant, non seulement il aurait gaspillé son temps à récolter les Fruits de l'Ascension Céleste, mais il perdrait également la formation d'épées aux sept étoiles.
+« La dernière fois que je suis venu ici, il y avait deux Serpents aux yeux de lune. L'un était dans le premier état et le second dormait. Pourquoi ont-ils changé maintenant? J'ignore à quel serpent appartient ce tentacule. » Wang Lin réfléchit un instant. S'il partait maintenant, non seulement il aurait gaspillé son temps à récolter les Fruits de l'Ascension Céleste, mais il perdrait également la formation d'épées aux sept étoiles.
 
 « Je ne vais pas perdre un trésor avant même de m'en approcher! » Les yeux de Wang Lin brillèrent d'un regard déterminé. Il n'était vraiment pas disposé à repartir ainsi. Il tapota la tête de la Bête du Tonnerre, qui chargea alors à travers le brouillard sans émettre le moindre rugissement.
 
@@ -48,7 +48,7 @@ Le sol était devenu totalement différent. Les plantes oscillantes d'autrefois 
 
 Il déploya son sens divin et scruta soigneusement la zone avant de pousser un soupir de soulagement.
 
-« Ils ne mesurent que 10 000 pieds de long. Cela signifie qu'il tend vers sa troisième forme mais n'est pas encore totalement éveillé. Cependant, sans stimulation, il est impossible pour le Serpent Moongazer d'en être arrivé là... Quelqu'un doit être venu ici au cours des cent dernières années! » Wang Lin fronça les sourcils.
+« Ils ne mesurent que 10 000 pieds de long. Cela signifie qu'il tend vers sa troisième forme mais n'est pas encore totalement éveillé. Cependant, sans stimulation, il est impossible pour le Serpent aux yeux de lune d'en être arrivé là... Quelqu'un doit être venu ici au cours des cent dernières années! » Wang Lin fronça les sourcils.
 
 « Pourtant, même si quelqu'un est passé par ici, il est peu probable qu'il l'ait stimulé jusqu'à sa troisième forme... Cette affaire est étrange! » Wang Lin sauta de la Bête du Tonnerre et réfléchit. Il se tourna vers elle et lui parla comme s'il s'agissait d'une personne: « Avec tes capacités, tu devrais être capable de détecter les dangers ici. Si tu refuses toujours de reprendre ta forme de char de guerre, cela ne fera qu'augmenter le danger pour nous deux! »
 
@@ -62,7 +62,7 @@ En un éclair, Wang Lin se téléporta. Sa vitesse fut telle qu'il ne laissa qu'
 
 La silhouette de Wang Lin réapparut dans les airs. Il fixa les tentacules au sol, les sourcils encore plus contractés.
 
-« Pour que le Serpent Moongazer soit affecté par les Fruits de l'Ascension Céleste, ils doivent être appliqués sur son point sensible. Mais avec ces tentacules, la tâche sera laborieuse. »
+« Pour que le Serpent aux yeux de lune soit affecté par les Fruits de l'Ascension Céleste, ils doivent être appliqués sur son point sensible. Mais avec ces tentacules, la tâche sera laborieuse. »
 
 Après réflexion, Wang Lin frappa son sac de contenance et une grande quantité de Fruits de l'Ascension Céleste s'en échappa. Ses yeux brillèrent, sa main droite se tendit et il ordonna: « Affiner! »
 
@@ -78,7 +78,7 @@ Les dizaines de tentacules dans la zone ralentirent progressivement leurs mouvem
 
 Wang Lin descendit avec prudence et se faufila entre les membres. Les tentacules semblaient l'ignorer totalement, ce qui lui permit de pousser un soupir de soulagement. Peu après, il atteignit enfin le sol.
 
-Les souvenirs de l'Ancien Dieu mentionnaient le point sensible du Serpent Moongazer: la racine des tentacules. Une infime stimulation à cet endroit suffisait à exciter tout son organisme.
+Les souvenirs de l'Ancien Dieu mentionnaient le point sensible du Serpent aux yeux de lune: la racine des tentacules. Une infime stimulation à cet endroit suffisait à exciter tout son organisme.
 
 Wang Lin sortit avec précaution plusieurs dizaines de Fruits de l'Ascension Céleste et les affina en un liquide rouge. Après y avoir appliqué des restrictions, il permit au liquide de fusionner avec la racine du tentacule.
 
@@ -88,7 +88,7 @@ La teinte rougeâtre des tentacules se dissipa rapidement, et Wang Lin comprit q
 
 À l'instant même où il prit de la hauteur, la brume se dissipa. La couleur des tentacules repassa du cramoisi au rouge foncé. Cependant, des renflements apparurent sur les tentacules avant qu'ils ne s'enfoncent sous terre.
 
-En voyant cela, Wang Lin reconnut la scène: c'était le Serpent Moongazer expulsant les toxines de son corps, tel un mortel déféquant.
+En voyant cela, Wang Lin reconnut la scène: c'était le Serpent aux yeux de lune expulsant les toxines de son corps, tel un mortel déféquant.
 
 La Bête du Tonnerre, qui observait Wang Lin depuis les cieux, était irritée. En voyant les tentacules au sol, son mépris se mua en une indignation plus forte. Elle s'élança et chargea directement vers le sol, des éclairs jaillissant de son corps tandis qu'un grondement retentissait sur toute la planète.
 
@@ -102,7 +102,7 @@ Cependant, l'instant d'après, une puissance mystérieuse émana des tentacules 
 
 Les tentacules se déplacèrent avec une célérité accrue et, en un clin d'œil, ils encerclèrent la Bête du Tonnerre. Peu importait la force avec laquelle elle luttait ou les éclairs qu'elle déchaînait, rien n'avait d'effet sur eux. Elle ne parvenait même pas à briser un seul tentacule!
 
-Wang Lin, resté à distance, affichait une expression extrêmement sombre. Le Serpent Moongazer, sous sa troisième forme, était extrêmement sensible aux sons; ainsi, plus la Bête du Tonnerre rugissait, plus les tentacules se resserraient autour d'elle. Le mépris dans les yeux de la créature disparut, remplacé par une terreur pure.
+Wang Lin, resté à distance, affichait une expression extrêmement sombre. Le Serpent aux yeux de lune, sous sa troisième forme, était extrêmement sensible aux sons; ainsi, plus la Bête du Tonnerre rugissait, plus les tentacules se resserraient autour d'elle. Le mépris dans les yeux de la créature disparut, remplacé par une terreur pure.
 
 Wang Lin envoya une transmission vocale: « Arrête de rugir! » Son visage était de marbre alors qu'il sortait de nouveaux Fruits de l'Ascension Céleste.
 
@@ -112,4 +112,4 @@ Des brins de tentacules, aussi épais que des bras, étaient enroulés autour du
 
 L'expression de l'homme devint sombre lorsqu'il ouvrit soudainement les yeux. Les parois de la caverne se mirent à bouger et une masse de brume rouge s'y engouffra. Des résidus fétides contenant des traces d'électricité parvinrent également, rendant l'odeur absolument insupportable.
 
-Cet homme était Greed. Si Wang Lin avait été présent, il aurait immédiatement reconnu cet endroit comme le lieu où le Serpent Moongazer absorbe ses nutriments et expulse ses déchets.
+Cet homme était Cupidité. Si Wang Lin avait été présent, il aurait immédiatement reconnu cet endroit comme le lieu où le Serpent aux yeux de lune absorbe ses nutriments et expulse ses déchets.

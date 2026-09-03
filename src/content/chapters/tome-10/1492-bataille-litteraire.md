@@ -50,7 +50,7 @@ En entendant cela, Maître Lu Fu se détendit légèrement. Pourtant, en voyant 
 
 C'est pour cela qu'il avait proposé le Pacte de la Bataille Littéraire. Voyant Wang Lin accepter, il ne put s'empêcher de ricaner intérieurement.
 
-« Cet homme est jeune et n'a pas cultivé très longtemps. Bien que son niveau soit tel, il doit manquer de maîtrise dans d'autres domaines! » Maître Lu Fu avait atteint le troisième niveau il y a des dizaines de milliers d'années. Étant resté bloqué au stade initial du Nirvana Void par manque de Flammes Joss, il s'était lancé dans l'exploration du raffinage, de l'alchimie et des restrictions. Il était extrêmement confiant.
+« Cet homme est jeune et n'a pas cultivé très longtemps. Bien que son niveau soit tel, il doit manquer de maîtrise dans d'autres domaines! » Maître Lu Fu avait atteint le troisième niveau il y a des dizaines de milliers d'années. Étant resté bloqué au stade initial du Vide du Nirvana par manque de Flammes Joss, il s'était lancé dans l'exploration du raffinage, de l'alchimie et des restrictions. Il était extrêmement confiant.
 
 Maître Lu Fu dit lentement: « Cher Compagnon, veuillez choisir ce que vous souhaitez raffiner pour la première bataille! »
 
@@ -90,7 +90,7 @@ Maître Lu Fu ouvrit les bras et, d'un geste, un vent puissant jaillit de son co
 
 Wang Lin resta calme lorsque le vent frappa son corps. Ses essences de tonnerre et de feu s'illuminèrent dans ses yeux; après avoir neutralisé les couches de vent, son corps ne bougea pas d'un iota.
 
-La violente rafale percuta le grand arbre, le faisant trembler comme s'il sortait d'un sommeil séculaire. L'aura d'un trésor de type pseudo Nirvana Void se propagea.
+La violente rafale percuta le grand arbre, le faisant trembler comme s'il sortait d'un sommeil séculaire. L'aura d'un trésor de type pseudo Vide du Nirvana se propagea.
 
 « Maintenant, il possède l'essence, mais il lui manque le sang! Puisque ce vieil homme prévoit de laisser ce trésor à Allheaven, il doit être nourri par le sang des cultivateurs d'Allheaven! » Les yeux de Maître Lu Fu s'illuminèrent et sa main droite pointa les dizaines de milliers de cultivateurs devant lui.
 

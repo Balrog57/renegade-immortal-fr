@@ -20,9 +20,9 @@ Une force de contention d'une telle intensité n'était normalement pas une pré
 
 Cependant, en ce moment de crise, le moindre ralentissement entraînerait un résultat inimaginable!
 
-L'expression de Ji Xiantian changea radicalement. Quant à Maître Flamespark, il fut surpris une fraction de seconde avant que l'extase ne l'envahisse. Il s'élança sans hésiter et rejoignit Ji Xiantian. Sa main droite s'abattit sur le corps de ce dernier, le forçant brutalement hors de la fissure! À l'instant même où Ji Xiantian était expulsé, le Serpent Moongazer ouvrit soudainement sa gueule et l'engloutit sans pitié!
+L'expression de Ji Xiantian changea radicalement. Quant à Maître Flamespark, il fut surpris une fraction de seconde avant que l'extase ne l'envahisse. Il s'élança sans hésiter et rejoignit Ji Xiantian. Sa main droite s'abattit sur le corps de ce dernier, le forçant brutalement hors de la fissure! À l'instant même où Ji Xiantian était expulsé, le Serpent aux yeux de lune ouvrit soudainement sa gueule et l'engloutit sans pitié!
 
-Tout se passa avec une rapidité fulgurante. À peine Ji Xiantian fut-il précipité hors de la brèche que le Serpent Moongazer surgit. Un rugissement de rage s'échappa de la gorge de Ji Xiantian alors qu'il était dévoré par la créature!
+Tout se passa avec une rapidité fulgurante. À peine Ji Xiantian fut-il précipité hors de la brèche que le Serpent aux yeux de lune surgit. Un rugissement de rage s'échappa de la gorge de Ji Xiantian alors qu'il était dévoré par la créature!
 
 Au moment où le sort « Arrête » frappa Ji Xiantian, le corps de Wang Lin trembla et il cracha une large traînée de sang. Comme s'il avait été percuté par une force colossale, il recula précipitamment.
 
@@ -72,11 +72,11 @@ Il y avait aussi cette femme vêtue d'une robe de palais. Elle fixait désormais
 
 D'un air serein, Wang Lin activa l'énergie originelle dans son corps. Sentant sa force revenir, il prit une profonde inspiration. Il avait parié sur le bon coup!
 
-Le bois géant continuait de charger vers le champ de bataille du Nord, tandis que les cultivateurs de l'Alliance étaient repoussés. La dévoraison de Ji Xiantian par le Serpent Moongazer avait ébranlé les rangs de l'Alliance, affaiblissant considérablement leur volonté de combattre.
+Le bois géant continuait de charger vers le champ de bataille du Nord, tandis que les cultivateurs de l'Alliance étaient repoussés. La dévoraison de Ji Xiantian par le Serpent aux yeux de lune avait ébranlé les rangs de l'Alliance, affaiblissant considérablement leur volonté de combattre.
 
-Le Serpent Moongazer rugissait avec frénésie, ses tentacules balayant la zone. Tout cultivateur touché par ces membres poussait un cri déchirant avant d'être vidé de sa substance.
+Le Serpent aux yeux de lune rugissait avec frénésie, ses tentacules balayant la zone. Tout cultivateur touché par ces membres poussait un cri déchirant avant d'être vidé de sa substance.
 
-Le Serpent Moongazer était trop puissant!
+Le Serpent aux yeux de lune était trop puissant!
 
 Le Saint Démon Noir et le Saint Dragon Démon reculaient sans cesse. Leurs esprits étaient troublés et ils n'avaient plus la volonté de poursuivre le combat; ils s'apprêtaient à fuir.
 
@@ -98,7 +98,7 @@ L'apparition de ces cultivateurs de l'Alliance attira l'attention de tous. Les m
 
 Du côté d'Allheaven, le Dieu Sanglant et les trois ancêtres observaient la scène avec froideur.
 
-Maître Flamespark s'avança et d'un geste de la main droite, projeta une mer de flammes vers l'avant. Simultanément, le Serpent Moongazer poussa un rugissement et déploya ses tentacules.
+Maître Flamespark s'avança et d'un geste de la main droite, projeta une mer de flammes vers l'avant. Simultanément, le Serpent aux yeux de lune poussa un rugissement et déploya ses tentacules.
 
 Quant aux dizaines de milliers de cultivateurs gravitant autour du bois géant, ils chargèrent immédiatement en déployant leurs trésors magiques. Une guerre totale était sur le point d'éclater!
 
@@ -116,9 +116,9 @@ Maître Flamespark ne connaissait pas ce Wudo Chan. Il était évident que cet h
 
 « Si tu veux combattre, alors combattons! » Alors que la voix glaciale de Maître Flamespark résonnait, il s'élança pour pénétrer dans la brume noire. Cette dernière s'éleva soudainement et se mit à tourbillonner violemment, tandis que des rafales de sorts de feu provoquaient des explosions successives!
 
-« Scellez ce Serpent Moongazer! » ordonna calmement la femme en robe bleue. Les centaines de tours s'élancèrent immédiatement, sifflant dans l'air à une vitesse cent fois supérieure à celle qu'elles avaient auparavant!
+« Scellez ce Serpent aux yeux de lune! » ordonna calmement la femme en robe bleue. Les centaines de tours s'élancèrent immédiatement, sifflant dans l'air à une vitesse cent fois supérieure à celle qu'elles avaient auparavant!
 
-Elles étaient comme des lames projetées droit sur le Serpent Moongazer!
+Elles étaient comme des lames projetées droit sur le Serpent aux yeux de lune!
 
 Wang Lin réalisa intérieurement que la situation tournait au désastre. Il semblait qu'Allheaven soit en position de faiblesse. Il recula silencieusement sur le bois géant, mais il sentit aussitôt un regard féroce peser sur lui.
 

@@ -28,7 +28,7 @@ Ses yeux devinrent froids et un sourire sardonique étira ses lèvres tandis qu'
 
 À l'intérieur du cercueil, Long Daozi serra les poings avec acharnement, provoquant des craquements sinistres dans son corps, comme si ses os se heurtaient violemment. C'était une sensation extrêmement agréable; il pouvait clairement sentir sa culture se rétablir à une vitesse inimaginable.
 
-Passant de Corporeal Yang à Nirvana Scryer, qui était au rang 1 Sky Celestial, il atteignit rapidement le début du stade Nirvana Scryer, soit le rang 3 Sky Celestial.
+Passant de Yang Corporel à Scruteur du Nirvana, qui était au rang 1 Sky Celestial, il atteignit rapidement le début du stade Scruteur du Nirvana, soit le rang 3 Sky Celestial.
 
 « Maître Carefree, vous m'avez bien trompé!! » Les yeux de Long Daozi se remplirent d'une intention meurtrière alors que sa culture explosait. Elle grimpa au rang 6 Sky Celestial, sans même ralentir.
 

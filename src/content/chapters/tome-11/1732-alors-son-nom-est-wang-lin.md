@@ -38,7 +38,7 @@ Au-dessus de la mer, des vagues monstrueuses déferlaient. Un bel homme d'âge m
 
 À l'apparition de l'homme d'âge moyen, les cultivateurs de la Secte Gui Yi environnants ressentirent une nouvelle force les envahir et devinrent exaltés.
 
-Un vieil homme, situé au milieu de la phase de Nettoyage du Nirvana, poussa un rugissement.
+Un vieil homme, situé au milieu de la phase de Purificateur du Nirvana, poussa un rugissement.
 
 « Camarades de la Secte Gui Yi, quelqu'un vient de nous provoquer! Nous l'avons traité avec respect, mais il s'est montré extrêmement arrogant! Il a forcé notre formation et a même volé deux des cinq esprits! »
 

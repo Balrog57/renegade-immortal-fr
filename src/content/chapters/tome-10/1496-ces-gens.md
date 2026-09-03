@@ -32,7 +32,7 @@ Cela dépassait toutes les prévisions de Maître Lu Fu. Bien que choqué, cela 
 
 Cependant, l'apparition de Zhou Jin fut le coup de grâce qui brisa son esprit. La confiance de Maître Lu Fu se désintégra complètement et il fut saisi d'un choc inimaginable!
 
-Il n'aurait jamais pu imaginer que Wang Lin ne possédait pas seulement un esclave de la troisième étape, mais... deux!! Le second avait presque atteint le sommet du début du stade Nirvana Void et n'était guère loin du stade intermédiaire!
+Il n'aurait jamais pu imaginer que Wang Lin ne possédait pas seulement un esclave de la troisième étape, mais... deux!! Le second avait presque atteint le sommet du début du stade Vide du Nirvana et n'était guère loin du stade intermédiaire!
 
 L'expression de Maître Lu Fu était empreinte d'amertume et son esprit bourdonnait.
 

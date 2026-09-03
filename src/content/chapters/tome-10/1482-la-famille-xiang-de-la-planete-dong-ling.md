@@ -12,11 +12,11 @@ Maître Lu Fu prit une profonde inspiration, et l'étonnement dans ses yeux s'in
 
 Cependant, ce choc disparut rapidement et les yeux de Maître Lu Fu s'illuminèrent. Un rictus méprisant étira alors ses lèvres.
 
-« Heureusement, il n'a pas encore atteint le troisième stade! Tant qu'il n'a pas franchi cette étape, je ne crois pas qu'il oserait défier ce vieil homme! Peu importe s'il possède deux essences, ce ne sont que de la mauvaise herbe. S'il ne me provoque pas, cela m'importe peu; mais s'il ose faire un pas de travers, ce vieil homme lui enseignera ce qu'est réellement l'existence d'un cultivateur du troisième stade au début du Nirvana Void! »
+« Heureusement, il n'a pas encore atteint le troisième stade! Tant qu'il n'a pas franchi cette étape, je ne crois pas qu'il oserait défier ce vieil homme! Peu importe s'il possède deux essences, ce ne sont que de la mauvaise herbe. S'il ne me provoque pas, cela m'importe peu; mais s'il ose faire un pas de travers, ce vieil homme lui enseignera ce qu'est réellement l'existence d'un cultivateur du troisième stade au début du Vide du Nirvana! »
 
 La planète Dong Ling, le lieu le plus mystérieux d'Allheaven! Wang Lin avait entendu parler de cet endroit par le passé.
 
-Cette planète n'avait pas de position fixe et dérivait lentement dans la partie orientale d'Allheaven. Même pour un cultivateur au stade de Nirvana Shatterer, il était extrêmement difficile de localiser la planète Dong Ling.
+Cette planète n'avait pas de position fixe et dérivait lentement dans la partie orientale d'Allheaven. Même pour un cultivateur au stade de Briseur du Nirvana, il était extrêmement difficile de localiser la planète Dong Ling.
 
 Même en utilisant son Sens Divin, on ne pouvait la trouver en raison de la structure unique de la planète. La grande majorité des cultivateurs devait s'en remettre à la vue nue pour la débusquer.
 
@@ -80,7 +80,7 @@ Cette famille de culture antique existait depuis bien avant l'effondrement du Ro
 
 Elle restait extrêmement discrète, et ses membres n'étaient pratiquement pas apparus au cours des dizaines de milliers d'années passées. Bien que Wang Lin fût présent à Allheaven lorsque Maître Lu Fu déclencha la guerre, cette famille mystérieuse n'avait envoyé qu'un seul ordre et une seule personne.
 
-L'ordre consistait à octroyer les titres célestes. Il s'agissait du vieil homme qui avait tenté de sceller l'essence du Serpent Moongazer: Maître Yi Mu.
+L'ordre consistait à octroyer les titres célestes. Il s'agissait du vieil homme qui avait tenté de sceller l'essence du Serpent aux yeux de lune: Maître Yi Mu.
 
 Les trois familles de la planète Dong Ling furent mobilisées sous l'Ordre de Sang de la famille Xiang. À cet instant, la planète entière était prête pour la guerre.
 

@@ -8,7 +8,7 @@ slug: le-dao-des-cieux
 ---
 Chapitre 943 - Le Dao des Cieux?
 
-Lou Chen ressentait la douleur du Serpent Moongazer de manière viscérale, tant leur assimilation était profonde. Sans hésiter, il fit un pas en avant et lança un coup de poing.
+Lou Chen ressentait la douleur du Serpent aux yeux de lune de manière viscérale, tant leur assimilation était profonde. Sans hésiter, il fit un pas en avant et lança un coup de poing.
 
 Ce coup se transforma en un grondement surpuissant, décuplant plusieurs fois la force qu'il avait déployée lors de son combat contre Wang Lin! L'éléphant géant poussa un rugissement et se mua en une lueur noire qui enveloppa le poing de Lou Chen. Le cri de la créature résonna de concert avec son assaut; l'éléphant se reforma devant le coup de poing pour charger tête baissée dans les gaz aux sept couleurs.
 
@@ -22,7 +22,7 @@ Au moment où la ligne courbe rouge-pourpre apparut, elle émit un sifflement st
 
 « Le Dao des Cieux? » Une voix grave émana de la fissure, suivie d'un ricanement. À en juger par ce rire, l'être qui s'exprimait n'était point un vieillard!
 
-« Comparé à vous, qui émanez du royaume scellé, je peux effectivement être considéré comme votre Dao des Cieux! Le Serpent Moongazer, deux anciens dieux et vous, qui cultivez le royaume Ji... venez avec moi vers le domaine du Dao des Cieux. Cela peut être considéré comme une grande fortune pour vous tous! »
+« Comparé à vous, qui émanez du royaume scellé, je peux effectivement être considéré comme votre Dao des Cieux! Le Serpent aux yeux de lune, deux anciens dieux et vous, qui cultivez le royaume Ji... venez avec moi vers le domaine du Dao des Cieux. Cela peut être considéré comme une grande fortune pour vous tous! »
 
 Le regard de Qing Shui se glaça et il chargea alors que les gaz aux sept couleurs se refermaient sur lui. La ligne rouge-pourpre fendit les nuées colorées dans un déluge de craquements.
 
@@ -30,11 +30,11 @@ Quant à Wang Lin, les gaz l'encerclaient également. Cette brume contenait une 
 
 Un grondement fracassant retentit: les cent premiers pieds de la Lance Tueuse de Dieux, longue de mille pieds, s'effondrèrent, créant une tempête qui fonça sur les gaz aux sept couleurs.
 
-Le rugissement du Serpent Moongazer devint plus intense encore tandis qu'il continuait de se débattre. Les gaz entourant son corps ressemblaient à un soleil septicolore d'une beauté saisissante. Cependant, ce cri de douleur imprégnait cette splendeur d'une sinistre étrangeté.
+Le rugissement du Serpent aux yeux de lune devint plus intense encore tandis qu'il continuait de se débattre. Les gaz entourant son corps ressemblaient à un soleil septicolore d'une beauté saisissante. Cependant, ce cri de douleur imprégnait cette splendeur d'une sinistre étrangeté.
 
-La moitié du corps colossal du Serpent Moongazer avait déjà été aspirée, et le processus se poursuivait. Grâce à ces gaz, la créature avait perdu toute capacité de résistance; malgré ses efforts, elle ne manifestait plus qu'un désespoir terrifiant.
+La moitié du corps colossal du Serpent aux yeux de lune avait déjà été aspirée, et le processus se poursuivait. Grâce à ces gaz, la créature avait perdu toute capacité de résistance; malgré ses efforts, elle ne manifestait plus qu'un désespoir terrifiant.
 
-Lou Chen, assimilé au Serpent Moongazer, fut transpercé par ce rugissement. Alors qu'il s'élançait, les cinq étoiles tournèrent violemment et l'une d'elles fut expulsée avant de se briser!
+Lou Chen, assimilé au Serpent aux yeux de lune, fut transpercé par ce rugissement. Alors qu'il s'élançait, les cinq étoiles tournèrent violemment et l'une d'elles fut expulsée avant de se briser!
 
 L'étoile brisée d'un ancien dieu!
 
@@ -52,7 +52,7 @@ Boum! Boum! Boum!
 
 À cet instant, le vide fut saturé par ce son majestueux. Sa voix était si intense que même Wang Lin en sentit ses oreilles bourdonner. Le vide sous ses pieds sembla subir l'impact d'une force colossale. De haut, on aurait dit que le vide sur des centaines de milliers de kilomètres avait été raclé, révélant le réseau scintillant en dessous!
 
-Même les gaz entourant Wang Lin et Qing Shui furent repoussés. La fissure qui engloutissait le Serpent Moongazer se déchira, écartant la brume colorée et révélant la silhouette qui s'y cachait.
+Même les gaz entourant Wang Lin et Qing Shui furent repoussés. La fissure qui engloutissait le Serpent aux yeux de lune se déchira, écartant la brume colorée et révélant la silhouette qui s'y cachait.
 
 La figure était désormais totalement exposée: un jeune homme à l'apparence très ordinaire, mais dont les yeux étaient d'une froideur extrême. Ce qui frappait chez lui, c'était une marque en forme de croissant de lune entre ses sourcils!
 
@@ -96,7 +96,7 @@ Le corps de Lou Chen commença à rétrécir alors que la puissance des étoiles
 
 La Hache Brisant les Cieux explosa en d'innombrables particules de lumière, permettant au réseau fragmenté de se reconstituer rapidement.
 
-Le vieillard à l'extérieur du réseau afficha une expression étrange. Puis, d'un geste de la main, il transforma les particules de lumière en trois mains gigantesques. L'une d'elles saisit le Serpent Moongazer et le tira sans pitié hors du réseau!
+Le vieillard à l'extérieur du réseau afficha une expression étrange. Puis, d'un geste de la main, il transforma les particules de lumière en trois mains gigantesques. L'une d'elles saisit le Serpent aux yeux de lune et le tira sans pitié hors du réseau!
 
 La seconde main tendit Lou Chen, qui n'avait plus aucune force pour résister. La troisième main géante se dirigea vers Wang Lin.
 

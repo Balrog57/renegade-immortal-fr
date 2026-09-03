@@ -50,7 +50,7 @@ Une fois qu'Ouyang Long eut fini de s'entretenir avec le vieil homme, il se redr
 
 Le vieil homme laissa échapper une toux sèche et son regard balaya les cultivateurs présents. Sa voix rauque résonna dans la pièce.
 
-« Aujourd'hui est une réunion privée que j'ai organisée, moi, Maître Ashen Pine. Tous les invités sont mes vieux amis et, bien sûr, nous avons également deux nouveaux amis parmi nous. Je ne m'embarrasserai pas de politesses inutiles. Selon les vieilles règles, fixons le premier pari pour le jackpot. » Dès que le vieil homme eut fini de parler, Ouyang Long s'avança immédiatement et sortit six morceaux de jade. Il les distribua à chacun, y compris à Wang Lin, et remit respectueusement le dernier au vieil homme.
+« Aujourd'hui est une réunion privée que j'ai organisée, moi, Maître Pin Cendré. Tous les invités sont mes vieux amis et, bien sûr, nous avons également deux nouveaux amis parmi nous. Je ne m'embarrasserai pas de politesses inutiles. Selon les vieilles règles, fixons le premier pari pour le jackpot. » Dès que le vieil homme eut fini de parler, Ouyang Long s'avança immédiatement et sortit six morceaux de jade. Il les distribua à chacun, y compris à Wang Lin, et remit respectueusement le dernier au vieil homme.
 
 Wang Lin tint le jade et le parcourut de son Sens Divin. Il vit instantanément les informations concernant plus de cent bêtes féroces à l'intérieur.
 
@@ -82,19 +82,19 @@ Ce fragment ressemblait à un os, mais après un examen minutieux, il ne semblai
 
 L'érudit d'âge moyen saisit la pilule noire et la renifla. Un air d'hésitation sur son visage, il se tourna vers le vieil homme:
 
-« Maître Ashen Pine, j'offre 500 jades célestes pour cette pilule! »
+« Maître Pin Cendré, j'offre 500 jades célestes pour cette pilule! »
 
-Maître Ashen Pine secoua la tête et répondit lentement: « Cent fois ce prix! »
+Maître Pin Cendré secoua la tête et répondit lentement: « Cent fois ce prix! »
 
 À ces mots, les yeux de tous les cultivateurs alentour se rétrécirent sur la pilule. Tous étaient au stade Briseur de Nirvana et ne laissaient donc transparaître aucune émotion. Bien qu'ils fixassent l'objet, il était difficile pour un étranger de deviner leurs pensées.
 
-L'homme d'âge moyen resta silencieux un instant avant de sourire. Après avoir entendu le prix, il fut conforté dans sa propre spéculation. Il rangea la pilule et hocha la tête au Maître Ashen Pine.
+L'homme d'âge moyen resta silencieux un instant avant de sourire. Après avoir entendu le prix, il fut conforté dans sa propre spéculation. Il rangea la pilule et hocha la tête au Maître Pin Cendré.
 
-Maître Ashen Pine sourit, son regard se posant sur Wang Lin, puis il rit: « Ce cultivateur est-il intéressé? »
+Maître Pin Cendré sourit, son regard se posant sur Wang Lin, puis il rit: « Ce cultivateur est-il intéressé? »
 
 Wang Lin leva les yeux avec un air d'hésitation. Après une courte réflexion, il dit: « Cette chose est inutile, mais je suis attiré par les raretés. J'offre donc 100 jades célestes. »
 
-Maître Ashen Pine réfléchit un instant et agita la main dans un éclat de rire: « Je n'avais pas l'intention de la vendre; je voulais surtout voir si l'un d'entre vous la reconnaîtrait. Puisque ce cultivateur l'apprécie, je vais vous l'offrir. »
+Maître Pin Cendré réfléchit un instant et agita la main dans un éclat de rire: « Je n'avais pas l'intention de la vendre; je voulais surtout voir si l'un d'entre vous la reconnaîtrait. Puisque ce cultivateur l'apprécie, je vais vous l'offrir. »
 
 Wang Lin joignit les mains pour le remercier et rangea le fragment.
 
@@ -106,7 +106,7 @@ Il s'agissait d'une plume rouge et d'une bulle de la taille d'une tête. Une âm
 
 Dès que ces deux objets furent présentés, tous les regards convergèrent vers eux. En voyant la plume rouge, Wang Lin fut secoué, mais il dissimula parfaitement son choc.
 
-« Le premier objet est la légendaire plume de l'Oiseau Vermillon. Bien qu'il soit difficile de confirmer sa véracité, l'énergie d'origine du feu qu'elle contient est puissante. Le second objet n'a pas besoin de présentation: c'est une âme de bête semi-brumeuse de rang 12. Je n'ai pas autant de règles que Maître Ashen Pine et j'accepterai tout échange, pourvu que l'objet me plaise. » Une fois son discours achevé, l'homme examina silencieusement l'assemblée.
+« Le premier objet est la légendaire plume de l'Oiseau Vermillon. Bien qu'il soit difficile de confirmer sa véracité, l'énergie d'origine du feu qu'elle contient est puissante. Le second objet n'a pas besoin de présentation: c'est une âme de bête semi-brumeuse de rang 12. Je n'ai pas autant de règles que Maître Pin Cendré et j'accepterai tout échange, pourvu que l'objet me plaise. » Une fois son discours achevé, l'homme examina silencieusement l'assemblée.
 
 « Malheureusement, ce n'est qu'une demi-bête brumeuse... Quel dommage! » Wu Qing regarda la créature dans la bulle et secoua la tête avec un soupir.
 

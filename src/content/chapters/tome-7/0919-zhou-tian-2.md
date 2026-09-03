@@ -54,7 +54,7 @@ Bien que ces figures illusoires ne puissent représenter une menace directe pour
 
 Il y avait là un individu à l'expression lugubre, entouré d'une brume noire. La silhouette se révélait par intermittence, dégageant un puissant sentiment de ressentiment et une fluctuation terrifiante.
 
-« Un cultivateur au stade du Scryer du Nirvana! » L'expression de Zhou Tian devint sombre après avoir inspecté les environs.
+« Un cultivateur au stade du Scruteur du Nirvana! » L'expression de Zhou Tian devint sombre après avoir inspecté les environs.
 
 Il y avait des centaines d'âmes célestes aux alentours. La combinaison de la riche énergie spirituelle céleste et du ressentiment pouvait massacrer les cieux!
 
@@ -74,7 +74,7 @@ Il s'agissait d'un homme d'âge mûr à la chevelure rousse, dont l'expression �
 
 « L'Ancêtre Sanguin de la Planète Tian Yun!! » Le cuir chevelu de Zhou Tian s'engourdit et il recula immédiatement sans la moindre hésitation. Il abandonna toute intention de tuer Xu Mu. Ce n'était pas qu'il ne le voulait pas, mais qu'il en était incapable!
 
-Bien qu'il fût au stade intermédiaire du Scryer du Nirvana, ce Xu Mu était trop singulier. Grâce à son intuition, il comprit immédiatement que l'on devait tuer soi-même la cible pour pouvoir emprisonner son âme et s'en servir.
+Bien qu'il fût au stade intermédiaire du Scruteur du Nirvana, ce Xu Mu était trop singulier. Grâce à son intuition, il comprit immédiatement que l'on devait tuer soi-même la cible pour pouvoir emprisonner son âme et s'en servir.
 
 De plus, il connaissait l'Ancêtre Sanguin, et face à ce choc, son cœur devint instantanément craintif.
 

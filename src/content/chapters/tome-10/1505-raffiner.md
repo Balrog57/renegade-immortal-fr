@@ -32,7 +32,7 @@ Le corps de la Bête du Néant devint flou et, en l'espace de quelques milliers 
 
 Tout s'était volatilisé avec la Bête du Néant!
 
-Les yeux de Wang Lin devinrent rouge sang et il poussa un rugissement de rage. Ling Dong, Zhou Jin, le Serpent Moongazer et les Feuilles Anciennes se trouvaient tous à l'intérieur de la Bête du Néant. Si elle s'échappait, le prix à payer serait trop lourd!
+Les yeux de Wang Lin devinrent rouge sang et il poussa un rugissement de rage. Ling Dong, Zhou Jin, le Serpent aux yeux de lune et les Feuilles Anciennes se trouvaient tous à l'intérieur de la Bête du Néant. Si elle s'échappait, le prix à payer serait trop lourd!
 
 La chasse à la Bête du Néant avait pris un tournant imprévu suite à sa dévoration du Royaume aux Sept Couleurs. Bien que Wang Lin l'eût anticipé, il n'aurait jamais pu imaginer qu'un événement aussi absurde se produirait!
 
@@ -82,7 +82,7 @@ Vu d'en haut, cette zone de 800 millions de pieds semblait s'être détachée de
 
 Wang Lin était déjà en proie à la démence. Ses mains ne cessaient de bouger, plaçant des restrictions dans cet espace de 800 millions de pieds, accélérant sans cesse le raffinage!
 
-Le temps pressait; il ne pouvait plus attendre. Une fois les sceaux sur la Bête du Néant dissipés, tout serait perdu! Wang Lin n'avait pas de second Serpent Moongazer, ni de second Ling Dong, ni de second Zhou Jin pour traquer à nouveau la Bête du Néant!
+Le temps pressait; il ne pouvait plus attendre. Une fois les sceaux sur la Bête du Néant dissipés, tout serait perdu! Wang Lin n'avait pas de second Serpent aux yeux de lune, ni de second Ling Dong, ni de second Zhou Jin pour traquer à nouveau la Bête du Néant!
 
 Cependant, la zone de 800 millions de pieds était trop vaste pour être raffinée en si peu de temps. À cet instant, Wang Lin sentit nettement que son lien avec la Bête du Néant s'affaiblissait considérablement!
 

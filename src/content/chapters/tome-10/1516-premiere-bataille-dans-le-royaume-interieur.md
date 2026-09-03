@@ -36,7 +36,7 @@ Le temps passa lentement et les cultivateurs de la Secte Divine se dispersèrent
 
 Maître Hong Shan et Maître South Cloud restèrent silencieux après avoir entendu les paroles de Wang Lin. L'inquiétude se lisait dans leurs yeux; la force du Royaume Extérieur était bien plus grande que ce qu'ils avaient anticipé.
 
-« En piégeant Great Desolation et deux des cinq maîtres du Système Stellaire Antique, vous avez grandement contribué à cette guerre! Sans votre intervention, la bataille contre le Royaume Extérieur aurait été encore plus difficile! » soupira Maître Hong Shan.
+« En piégeant Grande Désolation et deux des cinq maîtres du Système Stellaire Antique, vous avez grandement contribué à cette guerre! Sans votre intervention, la bataille contre le Royaume Extérieur aurait été encore plus difficile! » soupira Maître Hong Shan.
 
 « Cette Bête des Enfers semble un peu différente de mes souvenirs. Elle a dévoré la tempête dorée, vous devriez donc l'observer de plus près. Cette cloche dorée avait manifestement été envoyée par le Royaume Céleste Antique pour cette bataille, mais elle a été détruite par le Daoïste Water! »
 
@@ -126,7 +126,7 @@ Une marque se trouvait entre les sourcils de chaque individu. Au milieu de cette
 
 Quatre personnes flottaient au loin. À la tête du groupe se trouvait un vieil homme vêtu d'une robe taoïste. Ses yeux brillaient et la marque entre ses sourcils représentait un serpent noir! C'était Maître Enlighten East! Bien qu'il ne fût pas l'un des cinq maîtres, il se situait au début du stade de l'Espace Arcane!
 
-À ses côtés se tenait un jeune homme très beau, mais aux yeux étroits. Lorsqu'il les plissait, ils devenaient deux lignes dégageant une lueur froide. Une brume enveloppait son corps, lui donnant un aspect étrange, et la marque entre ses sourcils était une brume noire en rotation! L'estimable Nan Zhao! Bien que son niveau de culture ne fût pas aussi élevé que celui de Great Desolation — étant seulement au début du stade de l'Esprit Vide — sa maîtrise des poisons était tout aussi célèbre!
+À ses côtés se tenait un jeune homme très beau, mais aux yeux étroits. Lorsqu'il les plissait, ils devenaient deux lignes dégageant une lueur froide. Une brume enveloppait son corps, lui donnant un aspect étrange, et la marque entre ses sourcils était une brume noire en rotation! L'estimable Nan Zhao! Bien que son niveau de culture ne fût pas aussi élevé que celui de Grande Désolation — étant seulement au début du stade de l'Esprit Vide — sa maîtrise des poisons était tout aussi célèbre!
 
 Près d'eux se trouvait l'ancêtre lugubre du Clan de l'Hirondelle de Feu, fixant la formation avec une soif de sang démente!
 

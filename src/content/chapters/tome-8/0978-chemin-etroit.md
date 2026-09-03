@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 978 - Narrow Road
 slug: chemin-etroit
 ---
-Son énergie d'origine de cultivateur au stade intermédiaire du Nirvana Scryer balaya la planète Da Lou comme une tempête. Un vortex se forma, prenant Wang Lin pour centre. Ce vortex hurlait en enveloppant la planète entière.
+Son énergie d'origine de cultivateur au stade intermédiaire du Scruteur du Nirvana balaya la planète Da Lou comme une tempête. Un vortex se forma, prenant Wang Lin pour centre. Ce vortex hurlait en enveloppant la planète entière.
 
 Soudain, chaque disciple de la Secte de l'Épée de Da Lou eut l'impression qu'une montagne s'abattait sur lui. Leur énergie spirituelle commença à circuler d'elle-même pour résister; c'était comme s'ils ne pourraient pas survivre sans cet effort.
 
@@ -84,11 +84,11 @@ Wang Lin pointa la main droite vers l'avant et Lei Ji chargea dans un rugissemen
 
 Tout au long du trajet, quiconque croisait Wang Lin se mettait à chuchoter et à le regarder avec respect. Dans le monde de la culture, la force commandait le respect!
 
-Assis sur le dos de Lei Ji, Wang Lin restait plongé dans son énergie d'origine, approfondissant sa compréhension du stade sommet du Nirvana Scryer.
+Assis sur le dos de Lei Ji, Wang Lin restait plongé dans son énergie d'origine, approfondissant sa compréhension du stade sommet du Scruteur du Nirvana.
 
-Ses yeux s'illuminèrent et il pensa: « Autrefois, ma culture était au début du Nirvana Scryer et, grâce à mon corps de Dieu Ancien, je pouvais affronter des cultivateurs au début du Nirvana Cleanser... Maintenant que j'ai atteint le stade intermédiaire du Nirvana Scryer, les cultivateurs au début du Nirvana Cleanser ne sont plus un problème. Je peux désormais rivaliser avec ceux du stade intermédiaire! »
+Ses yeux s'illuminèrent et il pensa: « Autrefois, ma culture était au début du Scruteur du Nirvana et, grâce à mon corps de Dieu Ancien, je pouvais affronter des cultivateurs au début du Purificateur du Nirvana... Maintenant que j'ai atteint le stade intermédiaire du Scruteur du Nirvana, les cultivateurs au début du Purificateur du Nirvana ne sont plus un problème. Je peux désormais rivaliser avec ceux du stade intermédiaire! »
 
-« À l'époque, l'Ancêtre de Sang était au stade intermédiaire du Nirvana Cleanser. Si je retournais dans le passé, je devrais pouvoir l'affronter! Bien que mes chances de victoire restent faibles, si un cultivateur au milieu du Nirvana Cleanser voulait me tuer, ce ne serait pas aussi facile! »
+« À l'époque, l'Ancêtre de Sang était au stade intermédiaire du Purificateur du Nirvana. Si je retournais dans le passé, je devrais pouvoir l'affronter! Bien que mes chances de victoire restent faibles, si un cultivateur au milieu du Purificateur du Nirvana voulait me tuer, ce ne serait pas aussi facile! »
 
 À cet instant, à environ 5 000 kilomètres de Wang Lin, un objet semblable à un navire avançait lentement. Ce bateau était entièrement noir, mesurait trois 330 mètres de long et émettait des ondes de fluctuations.
 

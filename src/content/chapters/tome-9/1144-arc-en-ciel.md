@@ -102,7 +102,7 @@ Un fracas assourdissant retentit et le cristal de glace vola en éclats sanglant
 
 Tout cela se produisit en quelques respirations! Une exécution instantanée!
 
-Jusque dans la mort, le vieil homme ne put croire qu'il avait été tué si rapidement! Pourtant, sa fin n'avait rien d'illogique. Que ce soit l'énergie de massacre ou l'invocation de la pluie, ces sorts étaient assez puissants pour terrifier n'importe quel cultivateur. De plus, l'attaque provenant du trésor de Pseudo-Nirvana Void était suffisante pour arracher une couche de peau à un cultivateur au sommet de la Purification du Nirvana s'il ne mourait pas sur le coup!
+Jusque dans la mort, le vieil homme ne put croire qu'il avait été tué si rapidement! Pourtant, sa fin n'avait rien d'illogique. Que ce soit l'énergie de massacre ou l'invocation de la pluie, ces sorts étaient assez puissants pour terrifier n'importe quel cultivateur. De plus, l'attaque provenant du trésor de Pseudo-Vide du Nirvana était suffisante pour arracher une couche de peau à un cultivateur au sommet de la Purification du Nirvana s'il ne mourait pas sur le coup!
 
 Sans même mentionner l'expérience de combat de Wang Lin, Song Wude n'était pas mort des mains d'un inconnu quelconque!
 

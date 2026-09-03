@@ -42,7 +42,7 @@ Après un soupir, Wang Lin rangea le Cercueil Évitant le Ciel dans son sac et s
 
 « Zhou Wutai, puisque tu es le Suzaku, j'utiliserai la planète Suzaku pour clore mon karma avec toi! » Le regard de Wang Lin était calme; tandis que des ondulations apparaissaient sous ses pieds, il disparut.
 
-La silhouette de Wang Lin apparut aux côtés d'une planète inhabitée dans le Système Stellaire de l'Alliance. Tout en observant l'astre devant lui, il leva la main droite. Sa culture au stade initial du Nirvana Scryer se manifesta sans retenue et ses yeux s'illuminèrent. Puis, sa main tendue tira impitoyablement!
+La silhouette de Wang Lin apparut aux côtés d'une planète inhabitée dans le Système Stellaire de l'Alliance. Tout en observant l'astre devant lui, il leva la main droite. Sa culture au stade initial du Scruteur du Nirvana se manifesta sans retenue et ses yeux s'illuminèrent. Puis, sa main tendue tira impitoyablement!
 
 La planète trembla violemment. Un instant plus tard, une aura antique émana de l'astre, comme si une main géante et invisible tentait de l'arracher.
 

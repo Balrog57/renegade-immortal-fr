@@ -70,7 +70,7 @@ Pourtant, au plus profond des ténèbres et du froid de la faille, un homme d'â
 
 Une sphère de lumière blanche flottait devant lui. Cette lumière semblait contenir des âmes, bien qu'il fût impossible d'en distinguer le contenu avec précision. Elle tournait lentement, laissant échapper de fines lignes blanches qui étaient inhalées par l'homme.
 
-Après un long moment, l'homme ouvrit lentement les yeux et fixa la lumière blanche. Il murmura: « Un esprit dao de rang 6 est véritablement prodigieux. Je n'en ai absorbé que 60 %, et je ressens déjà les signes d'un dépassement du stade initial de Nirvana Void... Bien que je sois encore loin d'une percée, c'est une sensation qui ne m'était pas revenue depuis longtemps... Les quatre royaumes du vide: Nirvana, Esprit, Arcane, Tribulation! »
+Après un long moment, l'homme ouvrit lentement les yeux et fixa la lumière blanche. Il murmura: « Un esprit dao de rang 6 est véritablement prodigieux. Je n'en ai absorbé que 60 %, et je ressens déjà les signes d'un dépassement du stade initial de Vide du Nirvana... Bien que je sois encore loin d'une percée, c'est une sensation qui ne m'était pas revenue depuis longtemps... Les quatre royaumes du vide: Nirvana, Esprit, Arcane, Tribulation! »
 
 L'expression de l'homme changea soudainement et il leva les yeux. Un rayon de lumière rouge perça le vide et s'engouffra dans la faille, surgissant brusquement devant lui!
 

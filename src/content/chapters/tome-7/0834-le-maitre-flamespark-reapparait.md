@@ -10,7 +10,7 @@ Les cultivateurs face au Serpent Lunaire ne ressentirent qu'une bourrasque de ve
 
 Le corps gigantesque du Serpent Lunaire chargea droit devant avec une vitesse fulgurante, provoquant des craquements sonores comme si l'espace lui-même était sur le point de s'effondrer.
 
-La majorité des cultivateurs traquant Wang Lin étaient au stade de l'Ascendant tardif ou de l'Yin Illusoire. Il n'y avait pas beaucoup de cultivateurs du Yang Corporel, et encore moins ceux ayant atteint le stade du Nirvana Scryer.
+La majorité des cultivateurs traquant Wang Lin étaient au stade de l'Ascendant tardif ou de l'Yin Illusoire. Il n'y avait pas beaucoup de cultivateurs du Yang Corporel, et encore moins ceux ayant atteint le stade du Scruteur du Nirvana.
 
 Les plus malchanceux furent directement percutés par le Serpent Lunaire, leurs corps s'effondrant instantanément. Quant à leurs âmes originelles, elles furent brisées sur le coup, sans la moindre chance de s'échapper.
 
@@ -44,7 +44,7 @@ Ces petits spécimens étaient infiniment plus menus que le grand original, qui 
 
 À l'apparition de ces petits Serpents Lunaires, le carnage atteignit son paroxysme. Les innombrables créatures se dispersèrent et commencèrent à dévorer les cultivateurs alentour.
 
-Quant aux membres de la famille Yao, seuls ceux au stade du Nirvana Scryer purent s'échapper; tous les autres avaient péri! Quant aux familles de culture venues en renfort, la majorité succomba à la fureur du Serpent Lunaire.
+Quant aux membres de la famille Yao, seuls ceux au stade du Scruteur du Nirvana purent s'échapper; tous les autres avaient péri! Quant aux familles de culture venues en renfort, la majorité succomba à la fureur du Serpent Lunaire.
 
 L'espace entier fut imprégné d'une épaisse odeur de sang.
 

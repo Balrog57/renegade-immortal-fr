@@ -8,7 +8,7 @@ slug: planete-divine-de-loiseau-vermillon
 ---
 Au plus profond de l'Alliance, il existait quelques endroits que même l'Alliance ne pouvait contrôler. Malgré l'immensité de l'Alliance de Culture, pas un seul de ses membres ne pouvait faire un demi-pas dans ces lieux!
 
-Quiconque y pénétrait s'exposait à une mort certaine, sans aucune chance de survie. Même les cultivateurs du stade de Nettoyage du Nirvana n'oseraient même pas y poser le pied.
+Quiconque y pénétrait s'exposait à une mort certaine, sans aucune chance de survie. Même les cultivateurs du stade de Purificateur du Nirvana n'oseraient même pas y poser le pied.
 
 Seuls ceux ayant atteint le stade de Briseur de Nirvana avaient le courage d'y entrer. Et encore, ils devaient faire preuve d'une prudence extrême, car la moindre erreur signifiait la mort.
 
@@ -148,7 +148,7 @@ Maître Vide, le Tout-Voyant et tous les autres apparurent également dans l'ima
 « Cette personne a traversé l'Éveil de l'Oiseau Vermillon dans un lieu si périlleux... Maître Vide est une figure clé de l'Alliance. Il ne permettra certainement pas à ma Secte de l'Oiseau Vermillon d'avoir un tel éveil! »
 « Cependant, je n'ai jamais vu celui qui s'est éveillé. Comment a-t-il obtenu la Lignée de l'Oiseau Vermillon? »
 
-Les neuf personnes observaient la scène au cœur de la sphère de feu. À cet instant précis, une puissante Sens Divin émana des profondeurs du système stellaire embrasé. Cette présence était si forte qu'elle fit même vaciller les flammes du système!
+Les neuf personnes observaient la scène au cœur de la sphère de feu. À cet instant précis, un puissant Sens Divin émana des profondeurs du système stellaire embrasé. Cette présence était si forte qu'elle fit même vaciller les flammes du système!
 
 « Il n'est pas nécessaire de douter de l'identité de cet enfant. Sa marque lui a été transmise par l'un de mes avatars. Mobilisez toute la puissance de la secte et utilisez le véritable esprit comme guide. Ramenez-le en toute sécurité, quel qu'en soit le prix! »
 

@@ -32,9 +32,9 @@ Après un long moment, il poussa un soupir et cessa de songer à ces pensées ir
 
 « Si je ne me trompe pas, ces arbres ont été plantés par quelqu'un. Après que la statue a scellé le crâne, les arbres ont absorbé l'aura de dieu ancien contenue dans la tête.
 
-« S'ils sont tous morts et desséchés, c'est parce que toute la puissance de dieu ancien présente dans le crâne s'est dissipée avec le temps. Privés de cette puissance, ils ont dépéri. Lorsque Greed est venu ici, il n'a vu qu'un seul arbre encore debout. S'il n'était pas venu, il est probable que le dernier arbre se serait également éteint.
+« S'ils sont tous morts et desséchés, c'est parce que toute la puissance de dieu ancien présente dans le crâne s'est dissipée avec le temps. Privés de cette puissance, ils ont dépéri. Lorsque Cupidité est venu ici, il n'a vu qu'un seul arbre encore debout. S'il n'était pas venu, il est probable que le dernier arbre se serait également éteint.
 
-« On peut dire qu'en dehors de Greed, personne n'est venu ici depuis fort longtemps, y compris la personne qui a planté ces arbres. Il est probable qu'il les ait plantés et ne soit jamais revenu… »
+« On peut dire qu'en dehors de Cupidité, personne n'est venu ici depuis fort longtemps, y compris la personne qui a planté ces arbres. Il est probable qu'il les ait plantés et ne soit jamais revenu… »
 
 Les yeux de Wang Lin brillèrent. Après une courte réflexion, son regard devint résolu. Il s'assit entre les sourcils du crâne et prit une profonde inspiration. Puis, ses mains formèrent des sceaux et une immense quantité de restrictions envahit le ciel, érigeant une barrière protectrice.
 

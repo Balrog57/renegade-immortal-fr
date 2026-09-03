@@ -76,7 +76,7 @@ Le colosse s'effondra dans un fracas retentissant. Au même moment, par la combi
 
 Cependant, juste au moment où les trois géants s'effondraient, Luo Su passa à l'action! C'était la première fois qu'il agissait physiquement au lieu d'utiliser son sens divin. Il se déplaça comme un éclair. Sa vitesse était phénoménale et, alors qu'il convergeait vers Wang Lin, il pointa son doigt vers lui!
 
-En lançant cette attaque, Luo Su engagea toute sa culture. Sa puissance de stade intermédiaire du Nirvana Scryer jaillit soudainement de son doigt. Le regard de Wang Lin se glaça. Il était trop tard pour reculer; il ouvrit donc la bouche et cracha le Sceau Céleste.
+En lançant cette attaque, Luo Su engagea toute sa culture. Sa puissance de stade intermédiaire du Scruteur du Nirvana jaillit soudainement de son doigt. Le regard de Wang Lin se glaça. Il était trop tard pour reculer; il ouvrit donc la bouche et cracha le Sceau Céleste.
 
 Le doigt de Luo Su percuta le Sceau Céleste, faisant trembler l'objet. Wang Lin ressentit immédiatement une force dévastatrice en émaner. Cette force n'affecta pas son corps, mais elle projeta directement son âme originelle hors de lui. Bien qu'elle ne l'ait expulsée que de trois pouces, avant que Wang Lin ne puisse la ramener, Luo Su afficha un sourire sinistre, retira son doigt et recula!
 
@@ -90,7 +90,7 @@ Le cultivateur désigné par Luo Su descendit sans mot dire. Pourtant, à cet in
 
 S'il avait été réellement non qualifié, cela aurait été acceptable, mais il était évident que ce Luo Su le sabotait délibérément. Le regard de Wang Lin devint d'une froideur extrême alors qu'il s'avançait d'un pas lourd. Il ne prit même pas la peine de regarder le cultivateur qui descendait. Ce dernier sentit un vent glacial passer, ce qui fit changer son expression et le poussa à s'écarter précipitamment tout en pestant intérieurement.
 
-« Tu oses dire que je ne suis pas qualifié?! » Tandis que Wang Lin approchait, une intention meurtrière monstrueuse explosa de son corps. Le stade intermédiaire du Nirvana Scryer n'était pas un sommet inatteignable. Wang Lin avait emprunté le chemin du massacre dès le début de sa culture. Bien qu'il ne fût pas certain de vaincre un cultivateur Nirvana Scryer de ce niveau, il ne pourrait se satisfaire d'un simple départ! De plus, avec la présence de Qing Shui, Wang Lin n'avait rien à craindre!
+« Tu oses dire que je ne suis pas qualifié?! » Tandis que Wang Lin approchait, une intention meurtrière monstrueuse explosa de son corps. Le stade intermédiaire du Scruteur du Nirvana n'était pas un sommet inatteignable. Wang Lin avait emprunté le chemin du massacre dès le début de sa culture. Bien qu'il ne fût pas certain de vaincre un cultivateur Scruteur du Nirvana de ce niveau, il ne pourrait se satisfaire d'un simple départ! De plus, avec la présence de Qing Shui, Wang Lin n'avait rien à craindre!
 
 En s'élançant, Wang Lin leva la main et le sort « Appel du Vent » enveloppa les environs. Tandis que le vent noir rugissait, il couvrit le ciel et deux dragons noirs apparurent. Ils poussèrent des hurlements qui firent trembler les cieux et chargèrent vers Luo Su.
 

@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1231 - Fire Centipede
 slug: centipede-de-feu
 ---
-L'Empreinte de l'Esprit Guerrier était immense. Elle avait absorbé tellement d'énergie originelle que la puissance qu'elle contenait pouvait faire trembler de peur un cultivateur du stade Nirvana Shatterer.
+L'Empreinte de l'Esprit Guerrier était immense. Elle avait absorbé tellement d'énergie originelle que la puissance qu'elle contenait pouvait faire trembler de peur un cultivateur du stade Briseur du Nirvana.
 
 Trois jours plus tôt, l'Empreinte de l'Esprit Guerrier avait atteint les limites de contrôle de Wang Lin; il avait donc coupé sa capacité à absorber davantage d'énergie originelle. Le brouillard sur son chemin était constamment repoussé tandis qu'il se rapprochait de la région de rang 8.
 
@@ -30,9 +30,9 @@ Toutefois, hormis les disciples des sectes de rang 8 et ceux ayant obtenu un jad
 
 À cet instant, sur le troisième chemin du Royaume du Brouillard des Bêtes du Chaos, quatre cultivateurs se précipitaient. Celui qui menait la marche était un vieil homme vêtu d'une robe taoïste noire et blanche, arborant une chevelure gris argenté. Bien qu'âgé, son regard était vif comme l'éclair. Le brouillard devant lui reculait souvent sous la seule force de sa vue.
 
-Ce vieil homme dégageait une puissante aura de Nirvana Shatterer; il avait manifestement atteint le sommet de ce stade. Les lois du monde convergeaient en lui à chacun de ses mouvements.
+Ce vieil homme dégageait une puissante aura de Briseur du Nirvana; il avait manifestement atteint le sommet de ce stade. Les lois du monde convergeaient en lui à chacun de ses mouvements.
 
-Derrière lui suivaient trois personnes, deux hommes et une femme. Ils paraissaient jeunes et se situaient au stade Nirvana Cleanser. Bien que la femme portât également une robe taoïste, celle-ci ne pouvait dissimuler ses formes voluptueuses, bien qu'elle conservait une apparence très pure. Elle dégageait un charme extrême, et le moindre mouvement de ses yeux suffisait à embraser le désir des deux hommes à ses côtés.
+Derrière lui suivaient trois personnes, deux hommes et une femme. Ils paraissaient jeunes et se situaient au stade Purificateur du Nirvana. Bien que la femme portât également une robe taoïste, celle-ci ne pouvait dissimuler ses formes voluptueuses, bien qu'elle conservait une apparence très pure. Elle dégageait un charme extrême, et le moindre mouvement de ses yeux suffisait à embraser le désir des deux hommes à ses côtés.
 
 Tandis qu'ils volaient, la femme demanda d'une voix suave: « Maître, où nous emmenez-vous? »
 
@@ -64,7 +64,7 @@ Cette centipède était plutôt laide, et les deux pinces géantes sur les côt�
 
 Dès l'apparition de la créature, les bêtes environnantes détectées par le sens divin de Wang Lin cessèrent de rugir et se dispersèrent. C'était comme si cette centipède était le roi de la zone et que sa présence imposait la retraite aux autres bêtes.
 
-Les yeux de Wang Lin étaient calmes. Grâce à son niveau de culture, il vit immédiatement que cette centipède était de rang 11, ce qui équivalait à un cultivateur du stade Nirvana Shatterer de niveau intermédiaire. Wang Lin fut surpris qu'une bête de ce niveau ose se dresser devant l'Empreinte de l'Esprit Guerrier.
+Les yeux de Wang Lin étaient calmes. Grâce à son niveau de culture, il vit immédiatement que cette centipède était de rang 11, ce qui équivalait à un cultivateur du stade Briseur du Nirvana de niveau intermédiaire. Wang Lin fut surpris qu'une bête de ce niveau ose se dresser devant l'Empreinte de l'Esprit Guerrier.
 
 En un instant, la centipède rouge jaillit du brouillard en poussant un sifflement strident. Ce cri était assourdissant et résonnait comme un tonnerre grondant, faisant tourbillonner le brouillard environnant avec une violence accrue.
 

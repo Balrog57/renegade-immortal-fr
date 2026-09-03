@@ -78,7 +78,7 @@ Lorsque la peinture se manifesta, toute la planète frémit. Des ondulations ré
 
 L'œuvre se déploya, devenant de plus en plus nette, révélant des montagnes et des rivières magnifiques!
 
-Wang Lin avait déjà vu la Peinture de Montagnes et de Rivières. Greed possédait un paravent qui en contenait une copie. Mais aujourd'hui, Wang Lin contemplait l'œuvre authentique, un trésor du Royaume Céleste de la Pluie!
+Wang Lin avait déjà vu la Peinture de Montagnes et de Rivières. Cupidité possédait un paravent qui en contenait une copie. Mais aujourd'hui, Wang Lin contemplait l'œuvre authentique, un trésor du Royaume Céleste de la Pluie!
 
 « À l'époque, l'Alliance de Culture fut la première à pénétrer dans le Royaume Céleste de la Pluie lors de son effondrement, récoltant ainsi de nombreux trésors. Il semble que ce soit vrai! » Wang Lin ressentit une pression écrasante en observant la peinture!
 

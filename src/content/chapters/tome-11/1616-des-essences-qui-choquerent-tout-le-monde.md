@@ -46,7 +46,7 @@ C'était l'Empreinte du Karma. Qu'il soit impossible de la voir distinctement é
 
 Le Maître South Cloud était tout aussi sous le choc. Son niveau de culture était très élevé, et lorsqu'il ressentit les trois essences provenant de la Porte du Vide, son visage se décomposa. Son esprit vacilla tandis que son regard se verrouillait sur la Porte.
 
-« C'est vraiment une troisième essence! Dans ce vaste monde, il existe quelqu'un capable de résister à la tentation du troisième pas, possédant la fortune et la compréhension nécessaires pour parachever trois essences. Une fois qu'il aura ouvert la Porte du Vide, même s'il n'est qu'au stade Nirvana Void, il sera capable d'assassiner des cultivateurs Spirit Void! »
+« C'est vraiment une troisième essence! Dans ce vaste monde, il existe quelqu'un capable de résister à la tentation du troisième pas, possédant la fortune et la compréhension nécessaires pour parachever trois essences. Une fois qu'il aura ouvert la Porte du Vide, même s'il n'est qu'au stade Vide du Nirvana, il sera capable d'assassiner des cultivateurs Vide Spirituel! »
 
 Situ Nan, le Maître Long Pan et le Maître Lu Fu étaient tous stupéfaits. L'apparition soudaine de cette Porte du Vide les avait choqués deux fois de suite. Ils ignoraient s'il s'agissait d'une bénédiction ou d'un désastre.
 
@@ -84,7 +84,7 @@ Au moment où cette quatrième essence se manifesta, le premier à s'effondrer f
 
 Le jeune homme en robe verte pâlit. Trois essences l'avaient déjà bouleversé, lui laissant croire qu'il s'agissait là de la limite, mais une quatrième venait de surgir.
 
-« Quelqu'un possédant quatre essences peut être considéré comme un Enfant du Ciel. S'il ouvre la Porte du Vide avec quatre essences, même un cultivateur du stade intermédiaire Spirit Void ne serait pas son égal... Mais qui est-il!? »
+« Quelqu'un possédant quatre essences peut être considéré comme un Enfant du Ciel. S'il ouvre la Porte du Vide avec quatre essences, même un cultivateur du stade intermédiaire Vide Spirituel ne serait pas son égal... Mais qui est-il!? »
 
 « Qui possède une telle fortune, une telle patience et une telle compréhension? Si cette personne provient du Royaume Intérieur, elle doit être éliminée, sans quoi les conséquences seront infinies! »
 
@@ -98,7 +98,7 @@ Cette cinquième essence était faite de Vérité et de Faux. Après son apparit
 
 « Une cinquième essence!!! C'est... c'est... » L'expression du jeune homme en robe verte changea totalement. Son corps, jusque-là immobile, recula de plusieurs dizaines de pas tout en pointant la Porte du Vide. Une peur inédite se lut dans ses yeux.
 
-« Cinq essences... ce sont réellement cinq essences. Si cette personne ne parvient pas à ouvrir la Porte du Vide, ce n'est pas un problème, mais s'il y parvient, il pourra affronter des cultivateurs du stade avancé de Spirit Void! »
+« Cinq essences... ce sont réellement cinq essences. Si cette personne ne parvient pas à ouvrir la Porte du Vide, ce n'est pas un problème, mais s'il y parvient, il pourra affronter des cultivateurs du stade avancé de Vide Spirituel! »
 
 L'esprit de tous les cultivateurs alentour trembla de manière incontrôlable. Ils étaient sans cesse repoussés par la pression croissante de la Porte du Vide.
 

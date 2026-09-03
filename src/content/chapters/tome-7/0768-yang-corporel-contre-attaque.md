@@ -74,7 +74,7 @@ Son niveau de culture grimpa de manière effrénée alors qu'il dévorait les nu
 
 L'Ancêtre de Sang retint son souffle en fixant Wang Lin. Voyant que ce dernier était littéralement en train d'avaler les nuages, il n'en crut pas ses yeux et murmura: « Fou... Ce Wang Lin est un fou... Personne n'oserait prendre l'initiative face à une rétribution divine... Je ne peux pas le laisser faire! » Les yeux de l'Ancêtre de Sang brillèrent d'une lueur meurtrière et il s'élança immédiatement.
 
-Après avoir été ainsi affaibli, il n'était plus qu'au sommet du stade Yang Corporel, à un seul pas du stade Nirvana Scryer. Cependant, il était convaincu que cela suffisait amplement pour tuer Wang Lin!
+Après avoir été ainsi affaibli, il n'était plus qu'au sommet du stade Yang Corporel, à un seul pas du stade Scruteur du Nirvana. Cependant, il était convaincu que cela suffisait amplement pour tuer Wang Lin!
 
 Il se mua en une ombre de sang et fonça droit sur Wang Lin au cœur des nuages. À cet instant, Wang Lin ressentit soudainement un sentiment de péril imminent. Ses yeux devinrent glacials lorsqu'il aperçut l'ombre de sang fendre la brume vers lui.
 
@@ -116,7 +116,7 @@ Et cela ne s'arrêta pas là. Tandis que l'énergie originelle était absorbée 
 
 Le changement physique de Wang Lin fit vaciller l'expression de l'Ancêtre de Sang. Il sentit même son cuir chevelu picoter.
 
-« Je ne peux pas le laisser continuer. S'il poursuit sur cette lancée, il pourrait atteindre le début du stade Nirvana Scryer! » Les yeux de l'Ancêtre de Sang devinrent injectés de sang. En observant la rétribution divine, il avait ajusté son corps et s'était désormais reformé en chair.
+« Je ne peux pas le laisser continuer. S'il poursuit sur cette lancée, il pourrait atteindre le début du stade Scruteur du Nirvana! » Les yeux de l'Ancêtre de Sang devinrent injectés de sang. En observant la rétribution divine, il avait ajusté son corps et s'était désormais reformé en chair.
 
 Un sentiment encore plus puissant qu'auparavant envahit Wang Lin. Ses yeux brillèrent comme des torches et il eut l'impression de tenir le monde entier entre ses mains. Il prit une profonde inspiration alors que l'Ancêtre de Sang se rapprochait. Il plaça ensuite son doigt entre ses sourcils, libérant son âme originelle.
 

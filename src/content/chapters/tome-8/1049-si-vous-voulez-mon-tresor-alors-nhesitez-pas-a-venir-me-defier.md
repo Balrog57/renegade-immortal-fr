@@ -28,15 +28,15 @@ Parallèlement au cube de glace, l'avatar de Maître Void fut réduit en d'innom
 
 Mais cela ne s'arrêta pas là. Les vingt-trois grandes épées semblèrent former un filet et chargèrent Maître Void. Ce dernier, qui était encore plongé dans la compréhension de l'origine source, pâlit soudainement et cracha du sang. Il était horrifié par la situation.
 
-« Ceci... Ceci n'est pas un ordinaire trésor de Pseudo Nirvana Void! » Il ne s'attendait pas à ce que Wang Lin possède un trésor aussi puissant et soit si difficile à tuer. Maintenant que son avatar d'âme originelle était détruit, il subissait de graves blessures.
+« Ceci... Ceci n'est pas un ordinaire trésor de Pseudo Vide du Nirvana! » Il ne s'attendait pas à ce que Wang Lin possède un trésor aussi puissant et soit si difficile à tuer. Maintenant que son avatar d'âme originelle était détruit, il subissait de graves blessures.
 
-Son cuir chevelu fut engourdi en voyant les vingt-trois épées qui avaient anéanti son avatar d'âme originelle charger vers lui, portées par son propre trésor Pseudo Nirvana Void. Cependant, il n'avait besoin que de quelques respirations supplémentaires pour comprendre pleinement les mystères de l'origine source. Si l'on voulait le forcer à esquiver, autant tenter de le tuer directement.
+Son cuir chevelu fut engourdi en voyant les vingt-trois épées qui avaient anéanti son avatar d'âme originelle charger vers lui, portées par son propre trésor Pseudo Vide du Nirvana. Cependant, il n'avait besoin que de quelques respirations supplémentaires pour comprendre pleinement les mystères de l'origine source. Si l'on voulait le forcer à esquiver, autant tenter de le tuer directement.
 
 « Au diable tout ça! » Maître Void s'était cultivé pendant d'innombrables années et avait naturellement deviné que Wang Lin utilisait l'origine source comme appât pour le contraindre dans une situation où il ne pouvait utiliser toute sa puissance. Cela l'avait forcé à concentrer l'essentiel de ses efforts sur la compréhension de l'origine, créant ainsi une formation mortelle dont il ne pouvait ni avancer ni reculer!
 
 Au lieu de battre en retraite, il frappa son sac de contenance. Une carapace de tortue noire de la taille de son poing apparut dans sa main. Elle était d'un noir absolu et dégageait une pression colossale. On ignorait de quel endroit cette carapace avait été extraite.
 
-Cette carapace de tortue était également un trésor Pseudo Nirvana Void. En tant que membre éminent de l'Alliance de la Culture, il ne manquait naturellement pas de trésors! Après avoir lancé la carapace, Maître Void serra les dents et ne prêta plus attention au reste. Son sens divin se propagea avec frénésie tandis qu'il tentait de saisir l'origine source. Il sentait qu'il n'était qu'à un cheveu de découvrir le chemin vers la troisième étape dont il rêvait depuis des éons!
+Cette carapace de tortue était également un trésor Pseudo Vide du Nirvana. En tant que membre éminent de l'Alliance de la Culture, il ne manquait naturellement pas de trésors! Après avoir lancé la carapace, Maître Void serra les dents et ne prêta plus attention au reste. Son sens divin se propagea avec frénésie tandis qu'il tentait de saisir l'origine source. Il sentait qu'il n'était qu'à un cheveu de découvrir le chemin vers la troisième étape dont il rêvait depuis des éons!
 
 La carapace de tortue vola et flotta devant Maître Void. Elle dégagea une immense quantité de lumière noire, mais au moment même où cette lueur commençait à briller, les vingt-trois grandes épées s'écrasèrent sur elle. Un grondement tonitruant retentit; bien que la carapace fût repoussée, elle parvint à résister à l'assaut.
 

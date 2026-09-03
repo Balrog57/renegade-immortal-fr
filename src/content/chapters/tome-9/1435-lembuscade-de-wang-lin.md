@@ -88,7 +88,7 @@ Il ignorait que la véritable raison pour laquelle Wang Lin avait ciblé la jeun
 
 Le Clan de l'Extermination des Sceaux! L'un des petits clans du Système Stellaire Antique! Avec cette femme, tous les sorts de Wang Lin auraient pu être scellés. Et une fois scellés, les conséquences auraient été imprévisibles!
 
-Du point de vue de Wang Lin, bien que son niveau de culture ne fût pas élevé, le danger qu'elle représentait n'était en rien inférieur à celui de cet homme du Nirvana Void!
+Du point de vue de Wang Lin, bien que son niveau de culture ne fût pas élevé, le danger qu'elle représentait n'était en rien inférieur à celui de cet homme du Vide du Nirvana!
 
 « Quel homme impitoyable... » Un léger soupir s'échappa de l'homme costaud. La lumière revint progressivement dans les yeux de la jeune fille dont le front avait été transpercé par l'épée de sang.
 

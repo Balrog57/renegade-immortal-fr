@@ -100,9 +100,9 @@ C'était comme si cette lumière avait quitté le Continent Astral Immortel depu
 
 Une pointe d'épée écarlate apparut au cœur de la lueur sanglante! Elle avait transpercé l'horloge sur trois pouces, et c'était d'elle que provenait cette lumière choquante!
 
-« L'épée de Ye Mo!! » L'un des éclats de lumière arriva plus vite que les autres et se rapprocha instantanément. C'était un homme d'âge moyen vêtu d'une robe étrange. Ses yeux brillaient, dégageant la puissance de son apogée de culture Arcane Void.
+« L'épée de Ye Mo!! » L'un des éclats de lumière arriva plus vite que les autres et se rapprocha instantanément. C'était un homme d'âge moyen vêtu d'une robe étrange. Ses yeux brillaient, dégageant la puissance de son apogée de culture Vide Arcanique.
 
-Une trace de pouvoir Arcane Tribulant émanait de sa culture Arcane Void. Il était évident que cet homme avait déjà surmonté un nombre inconnu de Tribulations Arcanes!
+Une trace de pouvoir Arcane Tribulant émanait de sa culture Vide Arcanique. Il était évident que cet homme avait déjà surmonté un nombre inconnu de Tribulations Arcanes!
 
 Alors qu'il s'approchait, les autres rayons de lumière arrivèrent, révélant huit personnes. Tous se tenaient sous l'horloge, fixant la pointe de l'épée qui l'avait transpercée avec des regards perplexes!
 

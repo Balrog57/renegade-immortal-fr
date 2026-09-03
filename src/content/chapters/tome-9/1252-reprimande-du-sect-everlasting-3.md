@@ -1,6 +1,6 @@
 ---
 n: 1252
-title: Réprimande du Sect Everlasting (3)
+title: Réprimande du Secte Éternelle (3)
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1252 - Rebuking the Everlasting Sect (3)
@@ -32,7 +32,7 @@ Les membres de la Secte Everlasting étaient de plus en plus exaltés par la com
 
 La lutte entre les deux sectes de rang 6 n'avait plus d'intérêt, mais une personne se leva, tout comme Lu Yuncong l'avait fait autrefois!
 
-Il s'agissait de Yuan Fei, le disciple principal de la Secte Giant Spirit. Toujours plongé dans une culture en isolement, il avait quitté sa secte il y a de nombreuses années pour ne revenir que deux siècles plus tard. Par conséquent, il avait manqué deux compétitions. C'était un homme d'âge mûr, au stade initial du Nirvana Shatterer. Il était extrêmement féroce; ceux qui l'affrontaient finissaient souvent gravement blessés.
+Il s'agissait de Yuan Fei, le disciple principal de la Secte Giant Spirit. Toujours plongé dans une culture en isolement, il avait quitté sa secte il y a de nombreuses années pour ne revenir que deux siècles plus tard. Par conséquent, il avait manqué deux compétitions. C'était un homme d'âge mûr, au stade initial du Briseur du Nirvana. Il était extrêmement féroce; ceux qui l'affrontaient finissaient souvent gravement blessés.
 
 Cet homme occupait la première place parmi les juniors de sa secte de rang 6. Si ce n'était son absence constante, la Secte Celestial Music n'aurait jamais obtenu sa position de premier rang et Lu Yingjie ne serait pas devenu célèbre.
 

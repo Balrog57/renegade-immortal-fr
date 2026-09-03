@@ -22,13 +22,13 @@ Daoist Water avait personnellement vu le Souverain les utiliser contre son propr
 
 Ensuite, les trois seigneurs du Système Stellaire Antique et plusieurs cultivateurs du Royaume Céleste Antique avaient entamé une bataille à mort contre son maître. Ce que le Souverain avait déployé, c'étaient les 108 Clous Divins du Vide aux Sept Couleurs!
 
-À cet instant précis, en voyant l'un de ces clous, il fut saisi d'effroi et battit en retraite précipitamment. Il connaissait trop bien la puissance de cet objet. Si un cultivateur ordinaire du troisième niveau, au stade du Nirvana Void, se faisait percer par un clou, il subirait des dommages irréparables!
+À cet instant précis, en voyant l'un de ces clous, il fut saisi d'effroi et battit en retraite précipitamment. Il connaissait trop bien la puissance de cet objet. Si un cultivateur ordinaire du troisième niveau, au stade du Vide du Nirvana, se faisait percer par un clou, il subirait des dommages irréparables!
 
 Ces clous n'avaient pas été conçus pour tuer des cultivateurs ordinaires, mais spécifiquement pour anéantir les cultivateurs du troisième niveau!
 
 Cette singularité des clous aux sept couleurs était un mystère que même le Souverain n'avait pu élucider. Il savait seulement qu'ils étaient redoutables contre les puissants et inefficaces contre les faibles. Plus le niveau de culture était élevé, plus les dégâts infligés étaient dévastateurs!
 
-Il était impossible de comprendre cet aspect étrange sans connaître l'origine du météore. Les cultivateurs du stade Nirvana Shatterer pouvaient survivre à un impact, comme Sima qui avait trouvé un moyen de s'en libérer, ou Wang Lin dont le corps était assez puissant pour le rejeter.
+Il était impossible de comprendre cet aspect étrange sans connaître l'origine du météore. Les cultivateurs du stade Briseur du Nirvana pouvaient survivre à un impact, comme Sima qui avait trouvé un moyen de s'en libérer, ou Wang Lin dont le corps était assez puissant pour le rejeter.
 
 Cependant, pour les cultivateurs du troisième niveau, s'en défaire était d'une difficulté extrême!
 

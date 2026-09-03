@@ -16,7 +16,7 @@ Ce simple rire contenait toute la puissance de culture de Maître Lu Fu, un cult
 
 C'était comme si une bourrasque puissante s'abattait sur lui. La véritable force de Maître Lu Fu était révélée: si Wang Lin avait été un cultivateur du cinquième niveau de la Peste Céleste, son corps aurait été déchiré par ce rire et son âme originelle aurait été anéantie!
 
-Même d'autres cultivateurs du troisième pas au stade initial du Nirvana Void seraient incapables de poursuivre leur progression après avoir résisté à un tel éclat de rire!
+Même d'autres cultivateurs du troisième pas au stade initial du Vide du Nirvana seraient incapables de poursuivre leur progression après avoir résisté à un tel éclat de rire!
 
 Cependant, Wang Lin n'avait pas encore atteint le troisième pas. Il était devenu un dieu antique à sept étoiles grâce à l'héritage de l'Ordre Antique; il pouvait donc résister à la puissance d'un cultivateur du troisième pas en s'appuyant sur la force de son corps!
 

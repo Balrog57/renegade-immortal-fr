@@ -14,7 +14,7 @@ En observant Wang Lin et le roi moustique qui s'éloignaient au loin, Du Qing af
 
 « Cet homme est un génie des cieux, semblable aux véritables disciples de ces grandes sectes; je ne peux l'égaler... Mais moi, Du Qing, j'ai acquis mon niveau de culture et mes trésors par mes propres efforts. Bien qu'il soit supérieur à moi, je parie que tout ce qu'il possède lui a été offert par ce Grand Empyrean... Humph, il n'a que de la chance. » Ce n'est qu'en pensant cela que Du Qing se sentit un peu mieux.
 
-S'il avait découvert l'identité et l'origine de Wang Lin, et s'il avait appris les deux mille ans de tribulations que celui-ci avait endurés, son cœur ne serait pas aussi apaisé. Même s'il était né dans le Monde des Grottes avec la chance de Greed, il n'aurait jamais pu en sortir comme Wang Lin après deux mille ans!
+S'il avait découvert l'identité et l'origine de Wang Lin, et s'il avait appris les deux mille ans de tribulations que celui-ci avait endurés, son cœur ne serait pas aussi apaisé. Même s'il était né dans le Monde des Grottes avec la chance de Cupidité, il n'aurait jamais pu en sortir comme Wang Lin après deux mille ans!
 
 En un éclair, une demi-mois s'écoula. Durant cette période, Wang Lin s'arrêta à plusieurs reprises pour attendre que Du Qing le rattrape. Après avoir volé sans interruption pendant quinze jours, le roi moustique était toujours en pleine forme et ne montrait aucun signe de fatigue. Ayant subi de nombreuses métamorphoses, sa vitesse avait atteint un degré terrifiant. Même Du Qing ne parvenait pas à tenir son rythme.
 

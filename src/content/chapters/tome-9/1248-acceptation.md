@@ -52,7 +52,7 @@ Si cela s'était arrêté là, tout aurait été simple, mais parmi les rares b�
 
 Lorsqu'elle rugit, son hésitation disparut pour laisser place à un regard déterminé. Elle chargea vers le roi moustique de Wang Lin telle une météorite violette.
 
-En voyant cette bête moustique violette, Wang Lin afficha une expression de joie! Une bête moustique violette possédait une aura équivalente à celle d'un cultivateur au sommet du Nirvana Shatterer!
+En voyant cette bête moustique violette, Wang Lin afficha une expression de joie! Une bête moustique violette possédait une aura équivalente à celle d'un cultivateur au sommet du Briseur du Nirvana!
 
 La joie de Wang Lin ne s'arrêta pas là; une autre émotion l'envahit. Alors que la première bête violette approchait, une autre, d'un violet pâle, décida elle aussi de suivre!
 

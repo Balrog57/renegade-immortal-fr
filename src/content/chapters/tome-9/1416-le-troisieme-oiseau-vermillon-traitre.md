@@ -42,9 +42,9 @@ Ce vieil homme était l'un des cinq maîtres, le corps original du Maître Dao M
 
 Au même moment, à l'extérieur des Terres Déchues, une bête gigantesque et ovoïde, de la taille d'une planète de culture, s'approchait lentement. Le vieil homme assis sur son dos, marqué du tatouage Yin et Yang, avait les yeux clos, mais il les ouvrit soudainement pour scruter l'horizon avec une lueur étrange.
 
-« C'est... » Avant qu'il ne puisse finir sa réflexion, la Moongazer sous lui trembla soudainement et fixa le lointain. Des éclats de peur et d'excitation brillèrent dans ses yeux alors qu'elle ouvrait la gueule pour pousser un rugissement fracassant.
+« C'est... » Avant qu'il ne puisse finir sa réflexion, le serpent aux yeux de lune sous lui trembla soudainement et fixa le lointain. Des éclats de peur et d'excitation brillèrent dans ses yeux alors qu'elle ouvrait la gueule pour pousser un rugissement fracassant.
 
-Le vieil homme au tatouage Yin et Yang hésita un instant avant de changer de direction, guidant la Moongazer vers la localisation de la Tombe de l'Ordre Antique.
+Le vieil homme au tatouage Yin et Yang hésita un instant avant de changer de direction, guidant le serpent aux yeux de lune vers la localisation de la Tombe de l'Ordre Antique.
 
 Sur la Planète de l'Empereur Suprême, tous les regards étaient tournés vers l'encens céleste quand l'expression du jeune homme changea brusquement. Sans hésiter, il joignit les mains devant le Vieux Oiseau Vermillon et sourit: « Amis, j'ai une autre affaire à régler, je ne resterai donc pas pour la cérémonie. Adieu! »
 

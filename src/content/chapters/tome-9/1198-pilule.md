@@ -26,9 +26,9 @@ Après avoir longuement réfléchi, Wang Lin agita ses manches et collecta les d
 
 Son regard parcourut la première grotte. N'ayant rien trouvé d'autre, il en sortit.
 
-Le fait de pénétrer et de quitter cette grotte fit peser sur Wang Lin une pression semblable à une montagne, et son expression devint extrêmement sombre. En particulier, il pensa à sa bataille précédente contre Maître Ashen Pine. Le sort qu'il avait utilisé pour invoquer le septième esprit du royaume était très similaire au sort que les étrangers utilisaient.
+Le fait de pénétrer et de quitter cette grotte fit peser sur Wang Lin une pression semblable à une montagne, et son expression devint extrêmement sombre. En particulier, il pensa à sa bataille précédente contre Maître Pin Cendré. Le sort qu'il avait utilisé pour invoquer le septième esprit du royaume était très similaire au sort que les étrangers utilisaient.
 
-« Quelle est l'identité de ce Maître Ashen Pine? » Wang Lin s'éloigna de la grotte et leva les yeux vers le ciel aux sept couleurs. Il se souvenait qu'au sein du vide, là où il avait rencontré pour la première fois les gens du royaume extérieur, il y avait également une lumière aux sept couleurs provenant de ce dernier...
+« Quelle est l'identité de ce Maître Pin Cendré? » Wang Lin s'éloigna de la grotte et leva les yeux vers le ciel aux sept couleurs. Il se souvenait qu'au sein du vide, là où il avait rencontré pour la première fois les gens du royaume extérieur, il y avait également une lumière aux sept couleurs provenant de ce dernier...
 
 Plus il entrait en contact avec cet endroit et plus il le comprenait, plus il se sentait confus.
 
@@ -88,9 +88,9 @@ Ce rugissement était bien plus puissant que celui d'une bête de rang 12; il é
 
 « Une pilule de rang 13!! » Wang Lin prit une profonde inspiration et rangea soigneusement deux des bouteilles, ne laissant que la première. Il la prit et se dirigea vers la grotte contenant le fourneau.
 
-Il fallait atteindre le stade intermédiaire du Nirvana Shatterer pour pouvoir consommer une pilule de rang 11, sans quoi l'âme originelle ne pourrait pas contrer la violente âme de bête. Le résultat ne serait que la dévoration de l'âme originelle par celle de la bête. C'était un fait connu de tous les cultivateurs de la Mer des Nuages. Bien que les pilules puissent aider à augmenter le niveau de culture, il fallait faire preuve d'une prudence extrême!
+Il fallait atteindre le stade intermédiaire du Briseur du Nirvana pour pouvoir consommer une pilule de rang 11, sans quoi l'âme originelle ne pourrait pas contrer la violente âme de bête. Le résultat ne serait que la dévoration de l'âme originelle par celle de la bête. C'était un fait connu de tous les cultivateurs de la Mer des Nuages. Bien que les pilules puissent aider à augmenter le niveau de culture, il fallait faire preuve d'une prudence extrême!
 
-Le véritable niveau de culture de Wang Lin, en faisant abstraction de son corps de Dieu Ancien, n'était que le début du stade Nirvana Cleanser. Il ne pouvait pas consommer directement une pilule de rang 11; il devait donc la raffiner à nouveau!
+Le véritable niveau de culture de Wang Lin, en faisant abstraction de son corps de Dieu Ancien, n'était que le début du stade Purificateur du Nirvana. Il ne pouvait pas consommer directement une pilule de rang 11; il devait donc la raffiner à nouveau!
 
 Dans la grotte au fourneau, Wang Lin réfléchit et une étincelle brilla dans son œil gauche. Le feu apparut instantanément et se précipita dans le fourneau. Celui-ci trembla et ses marquages s'activèrent lentement.
 
@@ -98,7 +98,7 @@ Sortant une pilule de rang 11, Wang Lin la plaça à l'intérieur du fourneau. S
 
 Le double raffinage était une méthode d'alchimie que tous les cultivateurs de la Mer des Nuages devaient maîtriser. Il s'agissait de raffiner une pilule de niveau supérieur afin d'en diviser la puissance. Cette technique dépendait étroitement du fourneau: plus celui-ci était performant, moins l'efficacité était perdue.
 
-Pendant que Wang Lin raffinait la pilule, au plus profond du Royaume aux Sept Couleurs, bien au-delà de l'endroit où se trouvait Maître Ashen Pine, s'étendait un lieu enveloppé d'un brouillard rendant toute vision impossible.
+Pendant que Wang Lin raffinait la pilule, au plus profond du Royaume aux Sept Couleurs, bien au-delà de l'endroit où se trouvait Maître Pin Cendré, s'étendait un lieu enveloppé d'un brouillard rendant toute vision impossible.
 
 Un autel y était niché, drapé de brume. À cet instant, une lumière vive jaillit de l'autel, perçant le brouillard environnant et le repoussant pour révéler une zone vide.
 

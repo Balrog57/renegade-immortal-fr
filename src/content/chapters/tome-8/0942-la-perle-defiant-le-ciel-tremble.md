@@ -86,17 +86,17 @@ Wang Lin cracha une bouchée de sang et se retira rapidement pour éviter l'onde
 
 Lou Chen regarda Wang Lin et dit d'une voix lente: « Tu es digne de devenir un Dieu Antique! »
 
-Au moment où il parla, le Serpent Moongazer au loin laissa paraître une lueur démoniaque dans ses yeux, puis poussa un rugissement. Ce cri fit trembler le corps de Lou Chen, qui fut pris de convulsions. Ses veines gonflèrent et son expression devint féroce. Regardant le serpent, il rugit: « Sale animal, ne t'interpose plus! »
+Au moment où il parla, le Serpent aux yeux de lune au loin laissa paraître une lueur démoniaque dans ses yeux, puis poussa un rugissement. Ce cri fit trembler le corps de Lou Chen, qui fut pris de convulsions. Ses veines gonflèrent et son expression devint féroce. Regardant le serpent, il rugit: « Sale animal, ne t'interpose plus! »
 
-Le regard du Serpent Moongazer se glaça et son rugissement devint encore plus intense. Une volonté émanait de ce cri, faisant trembler Lou Chen et lui arrachant une expression de douleur.
+Le regard du Serpent aux yeux de lune se glaça et son rugissement devint encore plus intense. Une volonté émanait de ce cri, faisant trembler Lou Chen et lui arrachant une expression de douleur.
 
-Cependant, à cet instant précis, un changement stupéfiant se produisit. Une grande partie du filet apparut dans l'espace occupé par le Serpent Moongazer, et ces deux lueurs fantomatiques réapparurent!
+Cependant, à cet instant précis, un changement stupéfiant se produisit. Une grande partie du filet apparut dans l'espace occupé par le Serpent aux yeux de lune, et ces deux lueurs fantomatiques réapparurent!
 
 Qing Shui avait observé la scène de près. À ce moment, ses yeux s'illuminèrent alors qu'il fixait le filet près du serpent. Son visage devint extrêmement sombre.
 
 Wang Lin vit également la scène, ses pupilles se rétractant de peur. Quant à Lou Chen, il remarqua aussi que quelque chose ne tournait pas rond.
 
-Le corps massif du Serpent Moongazer trembla soudainement et il poussa un rugissement. La confusion et la peur se lisaient dans ses yeux; il était sur le point de s'enfuir de cet endroit.
+Le corps massif du Serpent aux yeux de lune trembla soudainement et il poussa un rugissement. La confusion et la peur se lisaient dans ses yeux; il était sur le point de s'enfuir de cet endroit.
 
 Le filet, le plus proche du serpent, se déchira brusquement. À l'instant même de la déchirure, l'ouverture s'élargit pour révéler une immensité vertigineuse!
 
@@ -110,12 +110,12 @@ Au moment où ces lueurs chargèrent, Wang Lin, Qing Shui et Lou Chen furent tou
 
 « Ancêtre!! » Lou Chen fixa l'entité qui surgissait de la fissure, terrifié.
 
-Les trois voyaient des choses différentes. Un gaz aux sept couleurs jaillit de la brèche. Ce gaz était extrêmement dense et enveloppa le Serpent Moongazer avant de l'entraîner sans pitié vers la faille.
+Les trois voyaient des choses différentes. Un gaz aux sept couleurs jaillit de la brèche. Ce gaz était extrêmement dense et enveloppa le Serpent aux yeux de lune avant de l'entraîner sans pitié vers la faille.
 
 Le serpent lutta et poussa des rugissements de rage, mais son corps immense semblait avoir perdu toute capacité de résistance, ne pouvant que se laisser happer par la brèche.
 
 Alors que le serpent était aspiré, la fissure s'élargit rapidement.
 
-À cet instant, non seulement le rugissement du Serpent Moongazer perdit tout effet, mais même Yi Muzi et Wudo Chan, qui se trouvaient à l'intérieur de la créature, furent sous le choc. Ils se déplaçaient rapidement dans le corps du serpent lorsque celui-ci fut envahi par le gaz aux sept couleurs. En voyant ce gaz remplir le corps du Serpent Moongazer, ils découvrirent que leur perte d'énergie originelle atteignait un degré terrifiant.
+À cet instant, non seulement le rugissement du Serpent aux yeux de lune perdit tout effet, mais même Yi Muzi et Wudo Chan, qui se trouvaient à l'intérieur de la créature, furent sous le choc. Ils se déplaçaient rapidement dans le corps du serpent lorsque celui-ci fut envahi par le gaz aux sept couleurs. En voyant ce gaz remplir le corps du Serpent aux yeux de lune, ils découvrirent que leur perte d'énergie originelle atteignait un degré terrifiant.
 
 D'immenses quantités de gaz aux sept couleurs jaillirent de la fissure. Ce gaz se divisa en trois flux et fonça droit sur Wang Lin, Lou Chen et Qing Shui!

@@ -8,7 +8,7 @@ slug: briser-les-doigts
 ---
 Alors qu'il chargeait, l'anneau que Wang Lin avait obtenu de Pang Decai brilla, et des rayons de lumière l'enveloppèrent. La clarté tournait avec frénésie, formant une tempête autour de lui. Wang Lin fonça vers la paume gigantesque façonnée par le Royaume aux Sept Couleurs.
 
-Maître Cloud Soul hésita un instant, puis serra les dents et chargea à la suite de Wang Lin.
+Maître Nuage-Âme hésita un instant, puis serra les dents et chargea à la suite de Wang Lin.
 
 Quant à la vieille femme en vert, elle était trop blessée. Sans réfléchir, elle s'éleva dans les airs dans une tentative désespérée d'échapper à la paume.
 
@@ -74,7 +74,7 @@ Les six volcans entrèrent immédiatement en collision avec le doigt dans un fra
 
 D'innombrables âmes de bataille convergèrent et explosèrent soudainement, créant des impacts dévastateurs. L'épée de massacre transperça le doigt avant de se briser en une infinité de filaments d'énergie qui s'engouffrèrent dans la masse.
 
-La terre trembla si violemment que Maître Cloud Soul en cracha du sang et que l'âme originelle de la vieille femme en vert faillit se dissiper. Ce rugissement qui ébranlait les cieux résonna dans tout le royaume.
+La terre trembla si violemment que Maître Nuage-Âme en cracha du sang et que l'âme originelle de la vieille femme en vert faillit se dissiper. Ce rugissement qui ébranlait les cieux résonna dans tout le royaume.
 
 L'auriculaire formé par la montagne s'effondra soudainement!
 
@@ -82,7 +82,7 @@ Dans un fracas de bris, d'innombrables fissures apparurent alors que la partie s
 
 Le visage de Wang Lin devint livide et il cracha du sang. La lumière qui le protégeait vola en éclats et l'anneau de Pang Decai se brisa! Le corps de Wang Lin fut immédiatement projeté en arrière par la violence du choc.
 
-Maître Cloud Soul se trouvait derrière Wang Lin. En étant placé devant lui, il avait pu absorber une partie de la pression. Néanmoins, son âme originelle tremblait, ses méridiens s'étaient brisés et ses os étaient tous fracturés; il n'était plus qu'un amas sanglant.
+Maître Nuage-Âme se trouvait derrière Wang Lin. En étant placé devant lui, il avait pu absorber une partie de la pression. Néanmoins, son âme originelle tremblait, ses méridiens s'étaient brisés et ses os étaient tous fracturés; il n'était plus qu'un amas sanglant.
 
 La vieille femme en vert, étant restée à distance, ne fut que peu affectée par l'onde de choc. Elle avait volé vers le haut et s'était échappée par pur hasard, bien que le choc ait failli provoquer l'effondrement de son corps.
 
@@ -98,11 +98,11 @@ Il devait agir vite, car les trois autres doigts convergeaient également. Il po
 
 Il avait traversé d'innombrables crises au cours de sa vie, mais l'adversaire qui provoquait celle-ci était le plus puissant qu'il ait jamais affronté.
 
-Alors que l'index se rapprochait, la main gauche de Wang Lin plongea dans le vide et le trésor Pseudo Nirvana Void de Maître Ashen Pine — l'épée de cristal — apparut. Il cracha du sang sur la lame pour en extraire tout le potentiel, puis la projeta vers l'index.
+Alors que l'index se rapprochait, la main gauche de Wang Lin plongea dans le vide et le trésor Pseudo Vide du Nirvana de Maître Pin Cendré — l'épée de cristal — apparut. Il cracha du sang sur la lame pour en extraire tout le potentiel, puis la projeta vers l'index.
 
 L'épée de cristal libéra instantanément un chant d'épée qui ébranla les cieux et une énergie monstrueuse. Enveloppée de cette puissance tranchante, elle fonça sur l'index.
 
-Les trésors Pseudo Nirvana Void étaient extrêmement rares dans le Royaume Scellé; c'étaient des artefacts d'une puissance phénoménale! À cet instant, l'épée s'élança avec la force de fendre les cieux et percuta l'index.
+Les trésors Pseudo Vide du Nirvana étaient extrêmement rares dans le Royaume Scellé; c'étaient des artefacts d'une puissance phénoménale! À cet instant, l'épée s'élança avec la force de fendre les cieux et percuta l'index.
 
 Un grondement tonitruant retentit. Ce fracas sembla presque faible comparé au rugissement de Wang Lin, mais il permit à l'épée de cristal de libérer une attaque encore plus dévastatrice.
 
@@ -110,6 +110,6 @@ Un grondement tonitruant retentit. Ce fracas sembla presque faible comparé au r
 
 À peine eut-il prononcé ces mots que l'épée de cristal s'effondra soudainement, générant une onde de choc inimaginable qui fit hésiter l'index!
 
-Il n'eut pas le temps de déplorer la perte de son arme; d'un geste de la main gauche vers son espace de stockage, un autre trésor vola hors de celui-ci. La même aura Pseudo Nirvana Void se propagea.
+Il n'eut pas le temps de déplorer la perte de son arme; d'un geste de la main gauche vers son espace de stockage, un autre trésor vola hors de celui-ci. La même aura Pseudo Vide du Nirvana se propagea.
 
-Il restait un dernier trésor Pseudo Nirvana Void dans l'espace de Maître Ashen Pine: une hache de bataille bleue. Cette hache, affinée par une méthode inconnue, était couverte d'innombrables sceaux.
+Il restait un dernier trésor Pseudo Vide du Nirvana dans l'espace de Maître Pin Cendré: une hache de bataille bleue. Cette hache, affinée par une méthode inconnue, était couverte d'innombrables sceaux.

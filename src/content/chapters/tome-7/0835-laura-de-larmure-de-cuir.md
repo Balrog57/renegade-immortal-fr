@@ -8,35 +8,35 @@ slug: laura-de-larmure-de-cuir
 ---
 De l'autre côté, l'homme en robe noire apparut soudainement. Sa main droite traça un sceau et s'empara du vide, créant un immense vortex. Ce tourbillon traversa l'espace, et tout cultivateur qui le touchait disparaissait instantanément.
 
-Maître Flamespark et l'homme en robe noire étaient d'une rapidité extrême. Tandis que le vieil homme en robe rouge immobilisait le Serpent Moongazer, ils repoussèrent les cultivateurs environnants un par un.
+Maître Flamespark et l'homme en robe noire étaient d'une rapidité extrême. Tandis que le vieil homme en robe rouge immobilisait le Serpent aux yeux de lune, ils repoussèrent les cultivateurs environnants un par un.
 
 S'ils croisaient un membre de la famille Yao, le regard de Maître Flamespark se glaçait et il utilisait intentionnellement dix pour cent de force supplémentaire. Cela leur infligeait de graves blessures avant qu'ils ne fusionnent avec le monde pour disparaître.
 
-Le Serpent Moongazer était furieux!
+Le Serpent aux yeux de lune était furieux!
 
-Bien que le sceau octogonal n'enchaînât que lui, des sceaux octogonaux apparurent également autour de tous les petits Serpents Moongazer, les entravant temporairement.
+Bien que le sceau octogonal n'enchaînât que lui, des sceaux octogonaux apparurent également autour de tous les petits Serpents aux yeux de lune, les entravant temporairement.
 
-La rage emplissait le corps du Serpent Moongazer. Il ne se souvenait même plus depuis combien d'années il était scellé. Il se déchaîna à l'intérieur du sceau octogonal, le faisant trembler violemment.
+La rage emplissait le corps du Serpent aux yeux de lune. Il ne se souvenait même plus depuis combien d'années il était scellé. Il se déchaîna à l'intérieur du sceau octogonal, le faisant trembler violemment.
 
-Alors que le grondement résonnait, la fureur du Serpent Moongazer redoubla. Soudain, deux fissures apparurent sur sa tête: c'étaient ses yeux!
+Alors que le grondement résonnait, la fureur du Serpent aux yeux de lune redoubla. Soudain, deux fissures apparurent sur sa tête: c'étaient ses yeux!
 
-Ses pupilles étaient troubles, comme embrumées de fumée, mais une lueur de folie y brillait. Des paroles étranges jaillirent de sa bouche, puis d'innombrables particules apparurent devant le Serpent Moongazer pour former un doigt colossal et rudimentaire!
+Ses pupilles étaient troubles, comme embrumées de fumée, mais une lueur de folie y brillait. Des paroles étranges jaillirent de sa bouche, puis d'innombrables particules apparurent devant le Serpent aux yeux de lune pour former un doigt colossal et rudimentaire!
 
-La colère du Moongazer était semblable au doigt d'un dieu antique!
+La colère du Serpent aux yeux de lune était semblable au doigt d'un dieu antique!
 
 Sans hésiter, le vieil homme en robe rouge pressa ses deux mains sur le sceau. Son expression devint grave et il hurla: « Vite! » Tandis qu'il parlait, ses vêtements furent projetés en arrière et ses cheveux flottèrent sans qu'aucun vent ne soufflât. Une immense quantité d'énergie originelle se rassembla dans son corps, comme une tempête imminente.
 
-Le doigt créé par le Serpent Moongazer fit trembler l'esprit du vieil homme.
+Le doigt créé par le Serpent aux yeux de lune fit trembler l'esprit du vieil homme.
 
-Alors que le Serpent Moongazer rugissait une fois de plus, le doigt du dieu antique pressa lentement vers le bas sur le sceau octogonal!
+Alors que le Serpent aux yeux de lune rugissait une fois de plus, le doigt du dieu antique pressa lentement vers le bas sur le sceau octogonal!
 
 Lorsque le doigt percuta le sceau, celui-ci se brisa en d'innombrables fragments sans la moindre résistance et fut projeté en arrière. Le visage du vieil homme empourpra de pâleur; il fut repoussé avec les débris vers Maître Flamespark et l'homme d'âge moyen.
 
 À présent, ces deux derniers avaient déjà évacué tous les cultivateurs environnants.
 
-Maître Flamespark fixa le doigt du Serpent Moongazer. Ses yeux brillaient d'excitation: « Quelle magnifique bête lunaire! Si je t'envoie dans le Système Stellaire de l'Alliance, Xuan Zhongzi en sera certainement stupéfait! »
+Maître Flamespark fixa le doigt du Serpent aux yeux de lune. Ses yeux brillaient d'excitation: « Quelle magnifique bête lunaire! Si je t'envoie dans le Système Stellaire de l'Alliance, Xuan Zhongzi en sera certainement stupéfait! »
 
-Alors que le Serpent Moongazer rugissait, le doigt devant lui s'abattit rapidement sur les trois hommes.
+Alors que le Serpent aux yeux de lune rugissait, le doigt devant lui s'abattit rapidement sur les trois hommes.
 
 On aurait dit qu'un véritable dieu antique était apparu, levant son doigt pour pointer le bas!
 
@@ -44,7 +44,7 @@ On aurait dit qu'un véritable dieu antique était apparu, levant son doigt pour
 
 Au moment où il chargea, des flammes enveloppèrent son corps. Une flamme monstrueuse jaillit et l'encercla totalement.
 
-Le doigt du Serpent Moongazer arriva et pressa sur Maître Flamespark. Ce dernier poussa un rugissement en formant un sceau de ses mains, tandis que la flamme à l'intérieur de son corps se condensa en un dragon. Le dragon de feu s'élança vers le doigt du dieu antique.
+Le doigt du Serpent aux yeux de lune arriva et pressa sur Maître Flamespark. Ce dernier poussa un rugissement en formant un sceau de ses mains, tandis que la flamme à l'intérieur de son corps se condensa en un dragon. Le dragon de feu s'élança vers le doigt du dieu antique.
 
 Ce dragon de flammes représentait tout ce que Maître Flamespark possédait. Alors que le dragon fonçait, son propre corps disparut, ne laissant même aucune trace de son âme originelle. Il n'y avait plus que le dragon de feu qui percuta le doigt.
 
@@ -64,9 +64,9 @@ Le dragon de flammes s'effondra!
 L'épée rouge vola en éclats!
 L'aigle noir se dissipa!
 
-Le doigt du dieu antique devint plus terne, mais ne fut pas endommagé. Alors que le Serpent Moongazer rugissait, le doigt balaya immédiatement la zone avant de redevenir des particules de lumière pour retourner dans le corps du Serpent Moongazer.
+Le doigt du dieu antique devint plus terne, mais ne fut pas endommagé. Alors que le Serpent aux yeux de lune rugissait, le doigt balaya immédiatement la zone avant de redevenir des particules de lumière pour retourner dans le corps du Serpent aux yeux de lune.
 
-Le regard du Serpent Moongazer devint glacial; il ouvrit la gueule et tous les petits serpents y retournèrent. Le grand Serpent Moongazer avança lentement, ses innombrables tentacules oscillant, avant de disparaître parmi les étoiles.
+Le regard du Serpent aux yeux de lune devint glacial; il ouvrit la gueule et tous les petits serpents y retournèrent. Le grand Serpent aux yeux de lune avança lentement, ses innombrables tentacules oscillant, avant de disparaître parmi les étoiles.
 
 À cet instant, dans une pièce secrète du Temple Céleste du Tonnerre, trois personnes étaient assises. Une formation ancienne occupait la pièce, et les trois hommes siégeaient aux points clés de celle-ci.
 
@@ -96,11 +96,11 @@ Cet homme était d'une folie pure. Non seulement il était puissant, mais il ét
 
 Une telle férocité pouvait être comparée à celle des cultivateurs de la planète Dong Lin. En conséquence, plus personne n'envisageait de s'en mêler. Parallèlement, les rumeurs sur les actes de Xu Mu dans le Royaume Céleste du Tonnerre commençaient à se répandre et restaient gravées dans le cœur de chacun.
 
-Le nom de Maître Démon était devenu célèbre au-delà de toute imagination. Bien sûr, Wang Lin n'en savait rien. Pour l'instant, il se déplaçait prudemment à l'intérieur du Serpent Moongazer, l'expression sombre.
+Le nom de Maître Démon était devenu célèbre au-delà de toute imagination. Bien sûr, Wang Lin n'en savait rien. Pour l'instant, il se déplaçait prudemment à l'intérieur du Serpent aux yeux de lune, l'expression sombre.
 
-D'innombrables petits Serpents Moongazer le poursuivaient. Leurs tentacules étaient courbés comme s'ils étaient en pleine excitation. Ils ouvraient constamment leurs grandes gueules alors qu'ils traquaient Wang Lin, comme pour dévorer les vestiges de son aura.
+D'innombrables petits Serpents aux yeux de lune le poursuivaient. Leurs tentacules étaient courbés comme s'ils étaient en pleine excitation. Ils ouvraient constamment leurs grandes gueules alors qu'ils traquaient Wang Lin, comme pour dévorer les vestiges de son aura.
 
-Wang Lin fronça les sourcils tout en avançant. Il avait déjà senti que quelque chose clochait. L'intérieur du Serpent Moongazer était bien différent de la dernière fois. Tous les petits serpents devenaient fébriles en le voyant. Lorsque Yao Bingyun l'avait attaqué, l'un d'eux l'avait même aidé.
+Wang Lin fronça les sourcils tout en avançant. Il avait déjà senti que quelque chose clochait. L'intérieur du Serpent aux yeux de lune était bien différent de la dernière fois. Tous les petits serpents devenaient fébriles en le voyant. Lorsque Yao Bingyun l'avait attaqué, l'un d'eux l'avait même aidé.
 
 Cette scène fit réfléchir Wang Lin.
 
@@ -108,14 +108,14 @@ Cette scène fit réfléchir Wang Lin.
 
 Après cela, son corps vacilla et il changea rapidement de direction.
 
-Les Serpents Moongazer qui le poursuivaient devinrent immédiatement furieux, comme si on leur avait arraché quelque chose qu'ils chérissaient. Ils se séparèrent pour fouiller la zone sans relâche.
+Les Serpents aux yeux de lune qui le poursuivaient devinrent immédiatement furieux, comme si on leur avait arraché quelque chose qu'ils chérissaient. Ils se séparèrent pour fouiller la zone sans relâche.
 
-Wang Lin poussa un soupir de soulagement en progressant avec prudence à travers les entrailles du serpent, cherchant l'emplacement du fourneau de Greed. Ce fourneau était une source d'excitation immense pour lui.
+Wang Lin poussa un soupir de soulagement en progressant avec prudence à travers les entrailles du serpent, cherchant l'emplacement du fourneau de Cupidité. Ce fourneau était une source d'excitation immense pour lui.
 
-Cependant, des vagues de vibrations se propagèrent soudainement à travers le corps du Serpent Moongazer. À mesure que les ondulations s'étendaient, elles convergèrent rapidement vers Wang Lin.
+Cependant, des vagues de vibrations se propagèrent soudainement à travers le corps du Serpent aux yeux de lune. À mesure que les ondulations s'étendaient, elles convergèrent rapidement vers Wang Lin.
 
 L'expression de Wang Lin changea et il recula promptement pour éviter les ondes. Pourtant, des ondulations apparurent également derrière lui. Elles étaient trop rapides et traversèrent immédiatement son corps.
 
-En un instant, les ondes se dissipèrent. C'était comme si elles avaient servi à détecter toute anomalie interne. À cet instant précis, le Serpent Moongazer avait trouvé Wang Lin!
+En un instant, les ondes se dissipèrent. C'était comme si elles avaient servi à détecter toute anomalie interne. À cet instant précis, le Serpent aux yeux de lune avait trouvé Wang Lin!
 
 Un rugissement étouffé résonna dans les entrailles du serpent. C'était son sort capable de briser l'âme originelle. Au début, le son était léger, puis il devint plus intense. Finalement, c'était comme un tonnerre incessant et assourdissant qui grondait dans ses oreilles.

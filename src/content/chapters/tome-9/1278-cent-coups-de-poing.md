@@ -32,7 +32,7 @@ Wang Lin poussa un rugissement et lança un coup de poing. Ce coup était si dé
 
 Un fracas tonnerre retentit et toute la région de rang 5 sembla vaciller. Le poing de Wang Lin percuta la paume droite du Daoïste Water! *Bang!* Wang Lin cracha du sang et son corps fut projeté en arrière, mais il parvint à se stabiliser après avoir parcouru 10 000 pieds. Une expression de folie sur son visage, il chargea de nouveau.
 
-L'expression du Daoïste Water demeura immuable, bien que sa main droite fût légèrement engourdie. Il utilisait toute sa puissance pour contenir le clou aux sept couleurs et n'avait détourné qu'une fraction de sa force, mais cette paume seule aurait suffi à détruire un cultivateur au sommet du stade Nirvana Shatterer.
+L'expression du Daoïste Water demeura immuable, bien que sa main droite fût légèrement engourdie. Il utilisait toute sa puissance pour contenir le clou aux sept couleurs et n'avait détourné qu'une fraction de sa force, mais cette paume seule aurait suffi à détruire un cultivateur au sommet du stade Briseur du Nirvana.
 
 « Échanger sa vie contre de la puissance... ce n'est qu'un regain temporaire. Je veux voir combien de coups tu es capable de porter! »
 

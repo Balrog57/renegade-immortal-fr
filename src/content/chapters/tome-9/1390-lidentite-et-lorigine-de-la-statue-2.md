@@ -24,47 +24,47 @@ slug: lidentite-et-lorigine-de-la-statue-2
 
 Je sentis que la statue était un trésor. Au moment où je la saisis, un vortex apparut. C'était le même vortex qui m'avait amené ici. Extatique, je me précipitai à l'intérieur.
 
-Après en être sorti, je me retrouvai dans un système stellaire étranger. Plus tard, j'appris que j'étais arrivé dans le Royaume Extérieur... » Après avoir fini son récit, Greed regarda Wang Lin.
+Après en être sorti, je me retrouvai dans un système stellaire étranger. Plus tard, j'appris que j'étais arrivé dans le Royaume Extérieur... » Après avoir fini son récit, Cupidité regarda Wang Lin.
 
 Wang Lin fronça les sourcils et commença à réfléchir.
 
-Une lueur passa dans les yeux de Greed. À mi-chemin de son récit, il réalisa que son corps n'était plus figé. Le sort d'arrêt semblait avoir expiré.
+Une lueur passa dans les yeux de Cupidité. À mi-chemin de son récit, il réalisa que son corps n'était plus figé. Le sort d'arrêt semblait avoir expiré.
 
-Voyant Wang Lin plongé dans ses pensées, Greed devint extrêmement nerveux; il recula lentement avant de soudainement accélérer. Juste au moment où il allait s'échapper, Wang Lin leva la main droite et fit un geste désinvolte.
+Voyant Wang Lin plongé dans ses pensées, Cupidité devint extrêmement nerveux; il recula lentement avant de soudainement accélérer. Juste au moment où il allait s'échapper, Wang Lin leva la main droite et fit un geste désinvolte.
 
-Instantanément, Greed poussa un cri déchirant, saisi par une main invisible qui le tira violemment vers Wang Lin. La paume de Wang Lin frôla presque le front de Greed, tandis qu'une force d'aspiration mystérieuse émanait de sa main pour pénétrer directement dans l'esprit de Greed.
+Instantanément, Cupidité poussa un cri déchirant, saisi par une main invisible qui le tira violemment vers Wang Lin. La paume de Wang Lin frôla presque le front de Cupidité, tandis qu'une force d'aspiration mystérieuse émanait de sa main pour pénétrer directement dans l'esprit de Cupidité.
 
-La terreur envahit Greed qui hurla: « Tu avais promis de ne pas me tuer! »
+La terreur envahit Cupidité qui hurla: « Tu avais promis de ne pas me tuer! »
 
-Au moment même où il criait, la main droite de Wang Lin se posa sur le front de Greed. Son Sens Divin s'engouffra dans l'âme originelle de Greed et balaya ses souvenirs!
+Au moment même où il criait, la main droite de Wang Lin se posa sur le front de Cupidité. Son Sens Divin s'engouffra dans l'âme originelle de Cupidité et balaya ses souvenirs!
 
-Simultanément, accompagnant la puissance du Sens Divin de Wang Lin, le tonnerre gronda et se rassembla dans sa main droite. Les éclairs pénétrèrent l'âme originelle de Greed pour la purifier.
+Simultanément, accompagnant la puissance du Sens Divin de Wang Lin, le tonnerre gronda et se rassembla dans sa main droite. Les éclairs pénétrèrent l'âme originelle de Cupidité pour la purifier.
 
-Le corps de Greed trembla violemment et, en un instant, il fut couvert de sueur. L'action ne dura qu'un éclair de seconde, puis Wang Lin agita la main, projetant Greed au loin.
+Le corps de Cupidité trembla violemment et, en un instant, il fut couvert de sueur. L'action ne dura qu'un éclair de seconde, puis Wang Lin agita la main, projetant Cupidité au loin.
 
 « Je ne prendrai pas tes trésors sans raison. Tu peux partir! »
 
-Le visage de Greed était livide; il mordit sa lèvre et cracha du sang. Sa vitesse augmenta considérablement alors qu'il s'enfuyait. En un clin d'œil, il ne laissa aucune trace de son passage.
+Le visage de Cupidité était livide; il mordit sa lèvre et cracha du sang. Sa vitesse augmenta considérablement alors qu'il s'enfuyait. En un clin d'œil, il ne laissa aucune trace de son passage.
 
-Les yeux de Greed étaient emplis d'une peur persistante, mêlée à un sentiment d'injustice.
+Les yeux de Cupidité étaient emplis d'une peur persistante, mêlée à un sentiment d'injustice.
 
-« C'est la deuxième fois qu'il me dépouille de tous mes trésors! Je jure que je ne laisserai jamais cela arriver une troisième fois! La plupart de mes richesses ont été prises, rester dans les Terres Déchues est trop dangereux. Je dois vite retourner dans ma grotte pour récupérer ce qui reste et fuir! » Greed se sentait profondément lésé et, après s'être téléporté d'innombrables fois pour s'assurer que Wang Lin ne le suivait pas, il disparut.
+« C'est la deuxième fois qu'il me dépouille de tous mes trésors! Je jure que je ne laisserai jamais cela arriver une troisième fois! La plupart de mes richesses ont été prises, rester dans les Terres Déchues est trop dangereux. Je dois vite retourner dans ma grotte pour récupérer ce qui reste et fuir! » Cupidité se sentait profondément lésé et, après s'être téléporté d'innombrables fois pour s'assurer que Wang Lin ne le suivait pas, il disparut.
 
 Lorsqu'il réapparut, il se trouvait sur une planète de culture. Dès son retour, il fonça vers une montagne et agita la main en atteignant la bordure extérieure. La montagne trembla et une fine fissure s'ouvrit.
 
-Greed n'hésita pas à entrer, mais dès qu'il le fit, son corps frémit. Une odeur fétide s'échappa de la fissure et lui frappa le visage. L'odeur était si pestilentielle qu'il faillit s'évanouir.
+Cupidité n'hésita pas à entrer, mais dès qu'il le fit, son corps frémit. Une odeur fétide s'échappa de la fissure et lui frappa le visage. L'odeur était si pestilentielle qu'il faillit s'évanouir.
 
-« Pourquoi ça pue autant... » jura Greed, alors que son corps tremblait soudainement. Il resta figé un instant avant de se pincer le nez. Après avoir reniflé attentivement à nouveau, l'incrédulité envahit son regard.
+« Pourquoi ça pue autant... » jura Cupidité, alors que son corps tremblait soudainement. Il resta figé un instant avant de se pincer le nez. Après avoir reniflé attentivement à nouveau, l'incrédulité envahit son regard.
 
 « L'odeur de mon corps a disparu! Même mon odorat est retrouvé. Je ne pouvais pas sentir cette puanteur dans la grotte auparavant! »
 
-Les yeux de Greed brillaient de joie. Durant ces centaines d'années, il avait déployé des efforts immenses pour se débarrasser de cette odeur corporelle. Après avoir rencontré Wang Lin et perdu la chance d'obtenir le cadavre de l'ancien scorpion, il avait désespéré. Pourtant, l'odeur venait de disparaître inopinément!
+Les yeux de Cupidité brillaient de joie. Durant ces centaines d'années, il avait déployé des efforts immenses pour se débarrasser de cette odeur corporelle. Après avoir rencontré Wang Lin et perdu la chance d'obtenir le cadavre de l'ancien scorpion, il avait désespéré. Pourtant, l'odeur venait de disparaître inopinément!
 
-« Je ne prendrai pas tes trésors sans raison, tu peux partir... » Greed se remémora les paroles de Wang Lin avant son départ, et une expression complexe se dessina sur son visage.
+« Je ne prendrai pas tes trésors sans raison, tu peux partir... » Cupidité se remémora les paroles de Wang Lin avant son départ, et une expression complexe se dessina sur son visage.
 
-Après avoir laissé Greed filer, Wang Lin fit volte-face pour retourner vers le Clan du Scorpion Noir. Greed était sorti du Royaume Intérieur avant lui et avait collecté tous ces trésors pour lui. Après avoir obtenu les richesses durement acquises de Greed, sans compter la joie d'avoir rencontré quelqu'un de son monde, comment Wang Lin aurait-il pu vouloir le tuer?
+Après avoir laissé Cupidité filer, Wang Lin fit volte-face pour retourner vers le Clan du Scorpion Noir. Cupidité était sorti du Royaume Intérieur avant lui et avait collecté tous ces trésors pour lui. Après avoir obtenu les richesses durement acquises de Cupidité, sans compter la joie d'avoir rencontré quelqu'un de son monde, comment Wang Lin aurait-il pu vouloir le tuer?
 
-« Ce Greed est mon étoile porte-bonheur. Je ne peux pas le tuer, je dois le laisser partir. J'ai hâte de notre troisième rencontre. Il aura probablement encore plus de trésors à m'offrir! » Wang Lin sourit alors qu'il apparaissait au-dessus de la planète du Clan des Scorpions Noirs.
+« Ce Cupidité est mon étoile porte-bonheur. Je ne peux pas le tuer, je dois le laisser partir. J'ai hâte de notre troisième rencontre. Il aura probablement encore plus de trésors à m'offrir! » Wang Lin sourit alors qu'il apparaissait au-dessus de la planète du Clan des Scorpions Noirs.
 
 Les quelque 1 000 cultivateurs du Clan de l'Évasion Nuageuse n'avaient pas osé partir et attendaient toujours là. Zhong Big Red était devenu plus enjoué et avait choisi quelques cultivateurs de haut niveau pour le soigner. Allongé, il continuait de laisser échapper des reniflements méprisants.
 

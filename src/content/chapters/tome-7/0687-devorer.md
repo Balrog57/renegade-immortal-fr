@@ -6,11 +6,11 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 687 - Devour
 slug: devorer
 ---
-Ce n'était pas la première fois que Wang Lin assistait à un sort d'extraction d'âme. Dans la Terre des Esprits Démoniaques, il avait vu Greed extraire l'âme d'une montagne céleste.
+Ce n'était pas la première fois que Wang Lin assistait à un sort d'extraction d'âme. Dans la Terre des Esprits Démoniaques, il avait vu Cupidité extraire l'âme d'une montagne céleste.
 
 La scène de l'époque l'avait profondément marqué. Un tel sort était extrêmement puissant; ce n'était pas une technique que des cultivateurs ordinaires pouvaient contrôler ou maîtriser.
 
-Désormais, en faisant l'expérience directe du démon dispersé prenant le contrôle de son corps pour extirper l'âme de la planète, il réalisait que ce sort était des millions de fois plus profond que celui de Greed.
+Désormais, en faisant l'expérience directe du démon dispersé prenant le contrôle de son corps pour extirper l'âme de la planète, il réalisait que ce sort était des millions de fois plus profond que celui de Cupidité.
 
 Tout dans ce monde, jusqu'au moindre brin d'herbe, possède la vie, et cela signifie qu'ils possèdent une âme. Ces âmes sont insaisissables et invisibles, mais elles peuvent être clairement ressenties.
 
@@ -58,7 +58,7 @@ Que ce soit la figure céleste ou le démon dispersé, les deux possédaient la 
 
 À cet instant, une petite fissure apparut dans cette porte, lui permettant d'entrevoir le niveau suivant et de ressentir personnellement la puissance de cette étape supérieure.
 
-« Ceci... est la puissance du second pas... Comparé à Greed, à l'ancêtre de la famille Huan ou à Qian Kuizi, qui sont tous au second pas, il est clair qu'ils ne font que commencer à l'atteindre. »
+« Ceci... est la puissance du second pas... Comparé à Cupidité, à l'ancêtre de la famille Huan ou à Qian Kuizi, qui sont tous au second pas, il est clair qu'ils ne font que commencer à l'atteindre. »
 
 « Le second pas de la culture est trop terrifiant! » L'esprit de Wang Lin fut ébranlé.
 

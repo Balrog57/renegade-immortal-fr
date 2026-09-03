@@ -32,7 +32,7 @@ Cette couronne semblait avoir acquis une once d'esprit par rapport à auparavant
 
 Au-delà de cela, il ne trouva aucun autre indice.
 
-« Cet objet a pu rester indemne du doigt de l'Ancien Dieu, il n'est donc manifestement pas ordinaire, mais comment puis-je l'utiliser... Greed a dit qu'il lui avait fallu les âmes de 9 999 empereurs pour pouvoir l'activer. » Wang Lin commença à réfléchir.
+« Cet objet a pu rester indemne du doigt de l'Ancien Dieu, il n'est donc manifestement pas ordinaire, mais comment puis-je l'utiliser... Cupidité a dit qu'il lui avait fallu les âmes de 9 999 empereurs pour pouvoir l'activer. » Wang Lin commença à réfléchir.
 
 « Quel est le rapport entre les âmes d'empereurs et les cinq esprits élémentaires? Quelle est la connexion... Le propriétaire de la couronne était-il un empereur possédant les cinq esprits élémentaires, et ce serait le seul moyen de l'activer? » Wang Lin secoua la tête, incapable de comprendre.
 

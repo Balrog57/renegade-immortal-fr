@@ -24,9 +24,9 @@ Au sommet du pavillon, après le premier éclat, quatre autres rayons de lumièr
 
 « Cinq rayons de lumière... Cette personne est en réalité entrée au cinquième étage! » La cultivatrice Lu, privée de son corps, observa les cinq faisceaux avec un air d'incrédulité.
 
-« Il semblerait que nous ayons sous-estimé le compagnon cultivateur Xu. Il est absolument au sommet du stade Corporel Yang, et peut-être même à demi-pas du stade Nirvana Scryer. Il a tout juste atteint les critères pour accéder au cinquième étage! » Les yeux du cultivateur nommé Xu s'illuminèrent.
+« Il semblerait que nous ayons sous-estimé le compagnon cultivateur Xu. Il est absolument au sommet du stade Corporel Yang, et peut-être même à demi-pas du stade Scruteur du Nirvana. Il a tout juste atteint les critères pour accéder au cinquième étage! » Les yeux du cultivateur nommé Xu s'illuminèrent.
 
-Le cultivateur Chen reprit lentement: « S'il était au stade Nirvana Scryer, il lui serait impossible d'entrer dans le Royaume Céleste du Tonnerre, à moins que... »
+Le cultivateur Chen reprit lentement: « S'il était au stade Scruteur du Nirvana, il lui serait impossible d'entrer dans le Royaume Céleste du Tonnerre, à moins que... »
 
 Avant qu'il n'ait pu achever sa phrase, de nouveaux éclats surgirent du Pavillon des Collections. Cette fois, deux rayons de lumière apparurent, s'alignant avec les cinq précédents.
 

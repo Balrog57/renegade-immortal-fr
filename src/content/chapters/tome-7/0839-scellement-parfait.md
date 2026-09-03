@@ -62,13 +62,13 @@ Des centaines de milliers de runes dorées apparurent et coulèrent comme un fle
 
 Alors que les innombrables runes dorées achevaient le scellement de Yao Bingyun, Wang Lin se détendit. Il recula vers le fourneau et, de sa main droite, forma un nouveau sceau. Puis, pointant Yao Bingyun, il murmura doucement: « Change de position! »
 
-Le fourneau trembla, comme si une force capable de fendre les cieux était apparue à l'intérieur du corps du Serpent Moongazer. Tandis que cette puissance emplissait la zone, le corps de Yao Bingyun disparut sans laisser de trace.
+Le fourneau trembla, comme si une force capable de fendre les cieux était apparue à l'intérieur du corps du Serpent aux yeux de lune. Tandis que cette puissance emplissait la zone, le corps de Yao Bingyun disparut sans laisser de trace.
 
 Lorsqu'elle réapparut, Wang Lin la saisit et la rangea dans son sac comme un trésor.
 
 « Ce n'est pas l'endroit idéal pour raffiner une garde céleste! » Les yeux de Wang Lin brillèrent et il retourna au sommet du fourneau. D'une simple pensée, le fourneau commença à flotter lentement vers l'avant.
 
-En chemin, la brume blanche entourant le fourneau semblait s'isoler, faisant en sorte que les tentacules ne l'importunent pas. Autrefois, c'était ainsi que Greed avait réussi à éviter les petits serpents Moongazer et leurs tentacules pour s'échapper à plusieurs reprises, bien qu'il échouât toujours à cause des capacités du Serpent Moongazer principal.
+En chemin, la brume blanche entourant le fourneau semblait s'isoler, faisant en sorte que les tentacules ne l'importunent pas. Autrefois, c'était ainsi que Cupidité avait réussi à éviter les petits serpents aux yeux de lune et leurs tentacules pour s'échapper à plusieurs reprises, bien qu'il échouât toujours à cause des capacités du Serpent aux yeux de lune principal.
 
 Cela prouvait néanmoins que la brume blanche du fourneau possédait un effet de furtivité à l'intérieur du serpent.
 
@@ -86,7 +86,7 @@ Toutefois, cette vitalité était bien trop faible. C'était comme une bougie da
 
 L'expression de Wang Lin changea légèrement et il poursuivit sa route. De plus en plus d'individus dotés d'une vitalité résiduelle apparurent, et au fur et à mesure qu'il progressait, cette vitalité devenait plus robuste.
 
-Wang Lin s'arrêta soudainement, fixa le tunnel sans fin et pensa: « Il semble que ce serpent Moongazer absorbe d'abord la vitalité de l'extérieur. Plus je m'enfonce, plus les personnes piégées ici possèdent de vitalité. Je me demande si je peux trouver quelqu'un de conscient ici! »
+Wang Lin s'arrêta soudainement, fixa le tunnel sans fin et pensa: « Il semble que ce serpent aux yeux de lune absorbe d'abord la vitalité de l'extérieur. Plus je m'enfonce, plus les personnes piégées ici possèdent de vitalité. Je me demande si je peux trouver quelqu'un de conscient ici! »
 
 Les yeux de Wang Lin s'illuminèrent et il accéléra sa course vers les profondeurs.
 
@@ -112,9 +112,9 @@ Cette voix portait une force infinie qui lui donnait l'impérieuse nécessité d
 
 Après un instant de réflexion silencieuse, Wang Lin ferma les yeux, avant de les rouvrir brusquement, le regard empreint de résolution. Il se précipita vers la source de cet appel sans la moindre hésitation.
 
-À cet instant, alors que le serpent Moongazer était redevenu une planète quelques mois auparavant et s'était rendormi, tout était calme. C'était comme si le temps s'était arrêté.
+À cet instant, alors que le serpent aux yeux de lune était redevenu une planète quelques mois auparavant et s'était rendormi, tout était calme. C'était comme si le temps s'était arrêté.
 
-Pourtant, ce jour-là, un rayon de lumière transportant une aura terrifiante surgit du lointain. Il s'agissait d'un homme d'âge moyen: l'homme en robe noire qui avait combattu le serpent Moongazer!
+Pourtant, ce jour-là, un rayon de lumière transportant une aura terrifiante surgit du lointain. Il s'agissait d'un homme d'âge moyen: l'homme en robe noire qui avait combattu le serpent aux yeux de lune!
 
 Cette fois, il était venu avec son corps originel. Derrière lui se dressait l'image d'un aigle noir de trois cents mètres de haut. Les yeux de cet aigle, semblables à des éclairs, étaient d'une froideur absolue.
 

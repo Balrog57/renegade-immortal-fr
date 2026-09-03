@@ -86,17 +86,17 @@ Hormis Liu Jinbiao, nul ne savait ce que Wang Lin lui avait inculqué durant ce 
 
 « Le second appât est posé... Clan du Souci-Feu, ne me décevez pas! »
 
-Wang Lin esquissa un sourire narquois et agita la main, créant une déchirure vers son espace de stockage. Une statue en vola. C'était celle qu'il avait obtenue de Greed.
+Wang Lin esquissa un sourire narquois et agita la main, créant une déchirure vers son espace de stockage. Une statue en vola. C'était celle qu'il avait obtenue de Cupidité.
 
-« Greed m'a offert de nombreux trésors. Je dois imprégner mon Sens Divin dans chacun d'eux et en apprendre les pouvoirs afin de pouvoir déployer leur pleine puissance au combat! »
+« Cupidité m'a offert de nombreux trésors. Je dois imprégner mon Sens Divin dans chacun d'eux et en apprendre les pouvoirs afin de pouvoir déployer leur pleine puissance au combat! »
 
-« Cette statue est manifestement son trésor le plus puissant; sinon, il ne l'aurait pas gardée pour la fin! » Les yeux de Wang Lin s'illuminèrent. Tout le monde ne pouvait atteindre le second royaume de la tromperie comme Liu Jinbiao pour altérer ses propres souvenirs. Greed, au moins, n'en était pas capable.
+« Cette statue est manifestement son trésor le plus puissant; sinon, il ne l'aurait pas gardée pour la fin! » Les yeux de Wang Lin s'illuminèrent. Tout le monde ne pouvait atteindre le second royaume de la tromperie comme Liu Jinbiao pour altérer ses propres souvenirs. Cupidité, au moins, n'en était pas capable.
 
-Wang Lin avait fouillé la mémoire de Greed et appris que ses paroles étaient pour l'essentiel vraies. Il en avait également tiré deux points clés!
+Wang Lin avait fouillé la mémoire de Cupidité et appris que ses paroles étaient pour l'essentiel vraies. Il en avait également tiré deux points clés!
 
 Le premier concernait l'endroit où le vortex était apparu dans Allheaven.
 
-Le second indiquait l'endroit où Greed était apparu après être sorti de cette tombe antique!
+Le second indiquait l'endroit où Cupidité était apparu après être sorti de cette tombe antique!
 
 « Ces deux informations devraient m'être utiles. Je devrais explorer ce secteur dans le Système d'Étoiles Anciennes, je pourrais y trouver des gains! Quant à la tombe, elle ressemble fort à la rumeur de la Tombe de l'Ordre Ancien! » Le regard de Wang Lin balaya la statue tandis qu'il méditait.
 

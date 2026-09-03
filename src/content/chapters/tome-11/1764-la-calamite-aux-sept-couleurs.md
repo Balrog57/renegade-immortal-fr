@@ -14,7 +14,7 @@ Alors que le rugissement résonnait, la planète entière commença à trembler.
 
 C'était une créature gigantesque recouverte de terre, haute de 10 000 pieds. Semblable à un ver géant, la seule partie émergée était sa gueule; de loin, on aurait dit que son ouverture couvrait la majeure partie de son visage. Elle ouvrit la bouche et chargea le Daoïste aux Sept Couleurs.
 
-Les yeux de la bête restaient clos, comme s'ils avaient été scellés à jamais. Si elle avait possédé de nombreuses tentacules autour du corps, elle aurait ressemblé au Serpent Moongazer, mais son apparence actuelle était bien différente.
+Les yeux de la bête restaient clos, comme s'ils avaient été scellés à jamais. Si elle avait possédé de nombreuses tentacules autour du corps, elle aurait ressemblé au Serpent aux yeux de lune, mais son apparence actuelle était bien différente.
 
 La bête fondit instantanément sur le Daoïste aux Sept Couleurs. Juste au moment où elle s'apprêtait à le dévorer, celui-ci forma un sceau de la main et frappa l'animal.
 

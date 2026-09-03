@@ -8,7 +8,7 @@ slug: dieu-ancien-royal-a-quatre-etoiles
 ---
 Alors que Wang Lin inspirait, l'étoile violette trembla et se précipita vers lui. Juste au moment où elle allait être dévorée par Wang Lin, le Serpent Regardant la Lune laissa échapper un rugissement. Soudain, une aura de dieu ancien extrêmement puissante explosa du corps du serpent.
 
-Au même instant, Yi Muzi et Wudo Chan affichèrent une étrange lueur dans leurs yeux et se lancèrent tous deux vers l'étoile violette. Cependant, ayant déjà épuisé une grande partie de leur énergie originelle lors de la bataille précédente, leur niveau de culture était tombé directement au stade du Scryer du Nirvana.
+Au même instant, Yi Muzi et Wudo Chan affichèrent une étrange lueur dans leurs yeux et se lancèrent tous deux vers l'étoile violette. Cependant, ayant déjà épuisé une grande partie de leur énergie originelle lors de la bataille précédente, leur niveau de culture était tombé directement au stade du Scruteur du Nirvana.
 
 Les deux hommes chargèrent rapidement l'étoile violette en attaquant sous deux angles différents.
 
@@ -30,7 +30,7 @@ Les pupilles de Yi Muzi et Wudo Chan se rétractèrent alors qu'ils fixaient Wan
 
 Wang Lin serra le poing et éclata de rire. Ce sentiment de dominer le monde le remplissait d'une confiance absolue. À cet instant, il se retourna brusquement, son corps gigantesque dépassant Yi Muzi et Wudo Chan dans sa course, et chargea directement le dragon doré qui contemplait la scène, hébété!
 
-Le dragon doré avait été blessé à maintes reprises et avait utilisé de nombreux sorts. De plus, une grande partie de son énergie originelle avait été scellée; ainsi, la puissance qu'il pouvait déployer n'était plus que celle du début du stade Scryer du Nirvana!
+Le dragon doré avait été blessé à maintes reprises et avait utilisé de nombreux sorts. De plus, une grande partie de son énergie originelle avait été scellée; ainsi, la puissance qu'il pouvait déployer n'était plus que celle du début du stade Scruteur du Nirvana!
 
 Voyant le corps colossal de mille pieds de Wang Lin fondre sur lui, le dragon doré se rétracta rapidement pour reprendre une forme humaine vêtue d'une robe de dragon. Tout en reculant, il forma un sceau de ses mains, faisant pivoter frénétiquement les cinq talismans autour de sa tête, et hurla: « Feu Empoisonné! »
 

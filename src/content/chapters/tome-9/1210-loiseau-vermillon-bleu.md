@@ -86,7 +86,7 @@ Les bêtes féroces qui ne craignaient point le feu ou qui tentaient d'afficher 
 
 Même les pythons de feu qui affichaient un tel mépris commencèrent à rugir de peur. Ils se changèrent promptement en brume. L'un d'eux, un peu trop lent, fut soudainement encerclé par la lumière bleue. Le serpent poussa un cri déchirant avant d'être brûlé à mort. Son âme fut absorbée par les flammes et devint une partie de leur volonté!
 
-Il y avait très peu de feux capables de consumer une bête de feu équivalente à un cultivateur Nirvana Shatterer au sommet!
+Il y avait très peu de feux capables de consumer une bête de feu équivalente à un cultivateur Briseur du Nirvana au sommet!
 
 Alors que les flammes bleues gagnaient encore du terrain, les grottes des vallées s'effondrèrent. Les restrictions étaient d'une fragilité dérisoire face à ce brasier!
 
@@ -96,7 +96,7 @@ Il vit devant lui une lumière bleue capable de faire trembler les cieux, alors 
 
 Cependant, la sueur perlant sur son front et l'effroi dans ses yeux témoignaient de sa terreur profonde.
 
-« Ceci... Quelle est cette flamme? » Il avait vu tant de choses au cours de sa vie de cultivateur, mais il n'avait jamais rencontré de telles flammes bleues. Elles pouvaient détruire le corps d'un cultivateur Nirvana Shatterer et consumer son âme originelle. Ce spectacle bouleversa profondément le vieil homme!
+« Ceci... Quelle est cette flamme? » Il avait vu tant de choses au cours de sa vie de cultivateur, mais il n'avait jamais rencontré de telles flammes bleues. Elles pouvaient détruire le corps d'un cultivateur Briseur du Nirvana et consumer son âme originelle. Ce spectacle bouleversa profondément le vieil homme!
 
 À la source des flammes bleues, là où Wang Lin était assis, la lumière était si éclatante qu'aucune autre couleur ne pouvait subsister. Au cœur de ces flammes d'une beauté indescriptible, le cri d'un Oiseau Vermillon résonna!
 

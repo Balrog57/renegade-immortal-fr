@@ -14,9 +14,9 @@ En conséquence, les enchères se multiplièrent.
 
 Cependant, le vieillard ne daigna toujours pas hocher la tête, ce qui fit froncer les sourcils aux cultivateurs environnants.
 
-Maître Ashen Pine fixa la bulle, les yeux brillants d'intérêt. Après un long moment, il détourna le regard et envoya un message au vieil homme. L'expression de ce dernier changea pour la première fois, mais après une courte réflexion, il secoua la tête.
+Maître Pin Cendré fixa la bulle, les yeux brillants d'intérêt. Après un long moment, il détourna le regard et envoya un message au vieil homme. L'expression de ce dernier changea pour la première fois, mais après une courte réflexion, il secoua la tête.
 
-Maître Ashen Pine soupira et cessa de proposer des offres.
+Maître Pin Cendré soupira et cessa de proposer des offres.
 
 À cet instant précis, la vieille femme qui n'avait été émue par aucun trésor agita sa main droite, et un jade vola vers le vieil homme vêtu de noir. Ce dernier scruta le jade avec son Sens Divin, et ses yeux brillèrent comme jamais auparavant. Il ferma les paupières et médita longuement, mais refusa toujours d'acquiescer.
 
@@ -60,7 +60,7 @@ Ce dernier regarda la jeune femme et dit: « Nous sommes dans une vente aux ench
 
 Wang Lin demeurait calme. Il réfléchit un instant, puis déclara: « Trente mille. »
 
-À sa parole, un silence immédiat s'abattit sur l'assemblée. La belle femme reporta son attention sur Wang Lin, le regard devenu sérieux. Un homme capable de débourser trente mille jades célestes devait sans doute bénéficier du soutien d'une puissance considérable, même s'il n'avait pas atteint le stade du Briseur de Nirvana. De plus, sa présence à l'enchère privée de Maître Ashen Pine prouvait qu'il ne pouvait être un simple roturier. On ne saurait se fier uniquement au niveau de culture d'un individu.
+À sa parole, un silence immédiat s'abattit sur l'assemblée. La belle femme reporta son attention sur Wang Lin, le regard devenu sérieux. Un homme capable de débourser trente mille jades célestes devait sans doute bénéficier du soutien d'une puissance considérable, même s'il n'avait pas atteint le stade du Briseur de Nirvana. De plus, sa présence à l'enchère privée de Maître Pin Cendré prouvait qu'il ne pouvait être un simple roturier. On ne saurait se fier uniquement au niveau de culture d'un individu.
 
 Après une courte réflexion, la belle femme secoua la tête et cessa toute enchère.
 
@@ -74,7 +74,7 @@ Ce détail suffisait à lever le voile: cet homme devait posséder quelque chose
 
 Les pupilles de la vieille femme en vert, qui venait d'acquérir l'âme de la bête, se contractèrent. Elle fixa Wang Lin et commença à songer.
 
-Maître Ashen Pine souriait toujours en observant la scène. Il n'était pas surpris que Wang Lin dispose de tant de jades célestes; le simple dépôt versé à Ouyang Long comptait déjà des milliers de jades. Cela témoignait déjà de son audace et de sa détermination.
+Maître Pin Cendré souriait toujours en observant la scène. Il n'était pas surpris que Wang Lin dispose de tant de jades célestes; le simple dépôt versé à Ouyang Long comptait déjà des milliers de jades. Cela témoignait déjà de son audace et de sa détermination.
 
 Le vieil homme en noir s'apprêtait à rire et à parler, mais Wu Qing l'interrompit par un éclat de rire: « Trente-cinq mille jades célestes. Cher cultivateur Lu, ce n'est pas que ce vieil homme souhaite rivaliser avec vous. Je le fais car cet objet me sera d'une grande utilité. »
 
@@ -88,7 +88,7 @@ Le vieil homme en noir s'apprêtait à rire et à parler, mais Wu Qing l'interro
 
 La belle femme fronça les sourcils. Elle n'était pas seule: tous les vieux monstres manifestèrent leur mécontentement. Ils étaient venus pour commercer et trouvaient ce genre de comportement absolument répugnant, à moins qu'une vendetta ne soit en jeu.
 
-Même Maître Ashen Pine laissa paraître un soupçon d'insatisfaction.
+Même Maître Pin Cendré laissa paraître un soupçon d'insatisfaction.
 
 « Puisque le cultivateur Wu souhaite rivaliser avec moi jusqu'au bout... » Wang Lin était furieux, mais il sourit et fixa Wu Qing d'un regard profond.
 
@@ -102,37 +102,37 @@ L'enchère prit fin peu de temps après, et chacun quitta les lieux un à un. Qu
 
 « Cet homme possède une fortune colossale en jades célestes... » Même en partant, Wu Qing souriait encore. Il lança un dernier regard à Wang Lin avant de quitter la pièce.
 
-À cet instant, Wang Lin et Maître Ashen Pine étaient les seuls restés. Quant à Ouyang Long, il était parti avec les autres vieux monstres.
+À cet instant, Wang Lin et Maître Pin Cendré étaient les seuls restés. Quant à Ouyang Long, il était parti avec les autres vieux monstres.
 
-« C'était la première fois que Wu Qing était invité par ce vieil homme. Je ne m'attendais pas à un tel comportement. C'est ma faute pour ne pas avoir reconnu sa vraie nature; cela pourrait causer des ennuis au cultivateur », dit Maître Ashen Pine en secouant la tête, visiblement contrarié par l'acte de Wu Qing.
+« C'était la première fois que Wu Qing était invité par ce vieil homme. Je ne m'attendais pas à un tel comportement. C'est ma faute pour ne pas avoir reconnu sa vraie nature; cela pourrait causer des ennuis au cultivateur », dit Maître Pin Cendré en secouant la tête, visiblement contrarié par l'acte de Wu Qing.
 
 « Ce n'est rien », répondit Wang Lin, imperturbable.
 
-Maître Ashen Pine réfléchit un instant et proposa: « Voici ce que je suggère: le cultivateur peut séjourner dans la ville principale quelque temps. Une fois l'enchère terminée, moi et quelques-uns de mes vieux amis partirons. Nous pourrons vous accompagner afin que Wu Qing n'ose plus nourrir de pensées malveillantes à votre égard. »
+Maître Pin Cendré réfléchit un instant et proposa: « Voici ce que je suggère: le cultivateur peut séjourner dans la ville principale quelque temps. Une fois l'enchère terminée, moi et quelques-uns de mes vieux amis partirons. Nous pourrons vous accompagner afin que Wu Qing n'ose plus nourrir de pensées malveillantes à votre égard. »
 
-Sans attendre la réponse de Wang Lin, le visage de Maître Ashen Pine se fit grave: « Le cultivateur souhaite échanger cinq mille cristaux d'origine. Est-ce bien exact? »
+Sans attendre la réponse de Wang Lin, le visage de Maître Pin Cendré se fit grave: « Le cultivateur souhaite échanger cinq mille cristaux d'origine. Est-ce bien exact? »
 
 Wang Lin acquiesça sans mot dire.
 
-La main droite de Maître Ashen Pine s'étira vers le vide pour ouvrir son espace de stockage. Il en sortit un sac de rangement et le lança à Wang Lin, tout en le fixant d'un regard intense. Personne ne pouvait lire dans ses pensées.
+La main droite de Maître Pin Cendré s'étira vers le vide pour ouvrir son espace de stockage. Il en sortit un sac de rangement et le lança à Wang Lin, tout en le fixant d'un regard intense. Personne ne pouvait lire dans ses pensées.
 
-Wang Lin attrapa le sac et l'examina avec son Sens Divin. Il contenait cinq mille cristaux d'origine. Les cristaux d'origine étaient extrêmement rares dans la Mer Nuageuse, et une telle quantité représentait une somme astronomique. On ignorait comment Maître Ashen Pine avait pu s'en procurer autant.
+Wang Lin attrapa le sac et l'examina avec son Sens Divin. Il contenait cinq mille cristaux d'origine. Les cristaux d'origine étaient extrêmement rares dans la Mer Nuageuse, et une telle quantité représentait une somme astronomique. On ignorait comment Maître Pin Cendré avait pu s'en procurer autant.
 
-Après avoir rangé le sac, Wang Lin ouvrit son propre espace de stockage et sortit le sac qu'il avait préparé avec ses jades célestes. Il le lança à Maître Ashen Pine qui l'attrapa. Après l'avoir inspecté par son Sens Divin, ce dernier afficha un sourire.
+Après avoir rangé le sac, Wang Lin ouvrit son propre espace de stockage et sortit le sac qu'il avait préparé avec ses jades célestes. Il le lança à Maître Pin Cendré qui l'attrapa. Après l'avoir inspecté par son Sens Divin, ce dernier afficha un sourire.
 
 « Possédez-vous encore des Pilules d'Origine Chaotique? » demanda Wang Lin.
 
-« J'ai obtenu ces pilules par hasard dans une relique. Il n'y en avait que neuf, et j'ai encore grand besoin des huit autres », déclina Maître Ashen Pine.
+« J'ai obtenu ces pilules par hasard dans une relique. Il n'y en avait que neuf, et j'ai encore grand besoin des huit autres », déclina Maître Pin Cendré.
 
 Wang Lin ne discuta plus et se leva pour partir.
 
-Une fois Wang Lin sorti, le sourire de Maître Ashen Pine s'effaça et il marmonna: « Mes cristaux d'origine ne sont pas quelque chose que l'on peut acquérir si aisément... »
+Une fois Wang Lin sorti, le sourire de Maître Pin Cendré s'effaça et il marmonna: « Mes cristaux d'origine ne sont pas quelque chose que l'on peut acquérir si aisément... »
 
-En sortant de la pièce, l'expression de Wang Lin était neutre, mais il laissa échapper un reniflement froid. Puisqu'il avait osé venir ici, il ne craignait pas que l'on découvre sa fortune en jades célestes. Tout comme Maître Ashen Pine, qui n'était qu'un membre de la Secte des Jades Précieux mais possédait tant de cristaux d'origine.
+En sortant de la pièce, l'expression de Wang Lin était neutre, mais il laissa échapper un reniflement froid. Puisqu'il avait osé venir ici, il ne craignait pas que l'on découvre sa fortune en jades célestes. Tout comme Maître Pin Cendré, qui n'était qu'un membre de la Secte des Jades Précieux mais possédait tant de cristaux d'origine.
 
 En songeant à ces cristaux, le cœur de Wang Lin manqua un battement tandis qu'il s'engageait dans le passage.
 
-« Ce Maître Ashen Pine a certainement des intentions malveillantes, mais il ignore que les miennes sont bien plus viles que les siennes! Cinq mille cristaux d'origine ne suffiront pas à nourrir cette bête mutée. Si je veux que la bête-moustique atteigne le même rang et puisse me protéger dans le Royaume Céleste du Vent, il me faudra une quantité phénoménale de cristaux d'origine! »
+« Ce Maître Pin Cendré a certainement des intentions malveillantes, mais il ignore que les miennes sont bien plus viles que les siennes! Cinq mille cristaux d'origine ne suffiront pas à nourrir cette bête mutée. Si je veux que la bête-moustique atteigne le même rang et puisse me protéger dans le Royaume Céleste du Vent, il me faudra une quantité phénoménale de cristaux d'origine! »
 
 En quittant le passage, Wang Lin croisa Ouyang Long en chemin. Ce dernier le raccompagna au pavillon avant que Wang Lin ne reparte. Le ciel n'était plus lumineux et l'agitation s'était apaisée.
 

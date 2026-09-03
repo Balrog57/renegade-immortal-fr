@@ -34,13 +34,13 @@ Wang Lin s'éleva dans les airs, ce qui lui permit de voir clairement à travers
 
 Ces quatre créatures n'étaient que les tentacules de cette tumeur!
 
-Cela ressemblait au Serpent Moongazer, mais ce n'était certainement pas lui!
+Cela ressemblait au Serpent aux yeux de lune, mais ce n'était certainement pas lui!
 
 En examinant l'arbre desséché, Wang Lin avait compris qu'un crâne immense était enterré là. Toute cette forêt poussait sur ce crâne!
 
 Wang Lin avait ressenti une force vitale violente sous le sol et l'avait provoquée pour forcer la créature à attaquer. C'est pourquoi il s'était envolé pour frapper le premier, sans la moindre hésitation.
 
-Avec son niveau de culture actuel, Wang Lin possédait même la puissance nécessaire pour combattre le Serpent Moongazer d'Allheaven, et encore moins cette bête qui, bien que similaire, était bien plus faible!
+Avec son niveau de culture actuel, Wang Lin possédait même la puissance nécessaire pour combattre le Serpent aux yeux de lune d'Allheaven, et encore moins cette bête qui, bien que similaire, était bien plus faible!
 
 Même Ling Dong, qui approchait du troisième stade, était devenu son esclave. Cela témoignait de l'ascension fulgurante et de la force prodigieuse de Wang Lin!
 
@@ -52,7 +52,7 @@ Des cris de douleur déchirèrent l'air tandis que le feu s'enfonçait profondé
 
 Soudain, une lumière violette violente jaillit parmi les hurlements. La tumeur cachée à l'intérieur se contracta jusqu'à se transformer en un rayon de lumière, tentant de s'échapper vers le ciel.
 
-Lorsqu'elle apparut, la forme de la tumeur fut révélée: une masse gigantesque entourée de nombreux tentacules, dégageant une odeur nauséabonde. Elle ressemblait trop au Serpent Moongazer; si elle n'avait pas été dépourvue de toute puissance d'Ancien Dieu, Wang Lin aurait cru face à un spécimen muté!
+Lorsqu'elle apparut, la forme de la tumeur fut révélée: une masse gigantesque entourée de nombreux tentacules, dégageant une odeur nauséabonde. Elle ressemblait trop au Serpent aux yeux de lune; si elle n'avait pas été dépourvue de toute puissance d'Ancien Dieu, Wang Lin aurait cru face à un spécimen muté!
 
 Le regard de Wang Lin se fit glacial tandis que le tatouage du tonnerre s'illumina dans son œil droit. En un clin d'œil, le ciel fut recouvert par un gigantesque vortex de foudre. Le tatouage du tonnerre prit l'apparence du firmament et s'abattit sur la tumeur.
 

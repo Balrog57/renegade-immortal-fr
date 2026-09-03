@@ -28,7 +28,7 @@ Les pupilles de Wang Lin se rétractèrent. Dès l'instant où la silhouette du 
 
 À cet instant précis, il ne fut nullement lent, se déplaçant tel un rayon de lumière. Il utilisa toute sa puissance pour s'éloigner.
 
-Le Dieu de Sang resta calme en observant la fuite de Wang Lin, comme s'il contemplait une simple fourmi. Il leva sa main droite pour le pointer du doigt et déclara: « Donne-moi l'objet que tu as obtenu à l'intérieur du Serpent Moongazer! »
+Le Dieu de Sang resta calme en observant la fuite de Wang Lin, comme s'il contemplait une simple fourmi. Il leva sa main droite pour le pointer du doigt et déclara: « Donne-moi l'objet que tu as obtenu à l'intérieur du Serpent aux yeux de lune! »
 
 Sa voix était calme, mais lorsqu'elle franchit ses lèvres, elle se mua en des rugissements tonitruants et inimaginables. Ces grondements étaient si puissants qu'ils firent trembler violemment le monde environnant.
 

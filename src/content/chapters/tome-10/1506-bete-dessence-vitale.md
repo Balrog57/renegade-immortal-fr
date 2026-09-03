@@ -88,7 +88,7 @@ Un Dieu Ancien de 60 000 pieds de haut apparut parmi les étoiles!
 
 Wang Lin serra son immense poing et scruta l'horizon. Sa puissance de Dieu Ancien circulait dans tout son être, et cette vitalité décuplée le remplissait de confiance.
 
-« Il n'est pas étonnant que les souvenirs de Tu Si affirment qu'il faut posséder une bête d'essence vitale et donner naissance à un Serpent Moongazer pour être véritablement considéré comme un Dieu Ancien... Bien que je ne possède aucun Serpent Moongazer, cette seule bête d'essence vitale suffit déjà à porter mon corps à ce niveau! »
+« Il n'est pas étonnant que les souvenirs de Tu Si affirment qu'il faut posséder une bête d'essence vitale et donner naissance à un Serpent aux yeux de lune pour être véritablement considéré comme un Dieu Ancien... Bien que je ne possède aucun Serpent aux yeux de lune, cette seule bête d'essence vitale suffit déjà à porter mon corps à ce niveau! »
 
 Les yeux de Wang Lin s'illuminèrent et son corps de 60 000 pieds se rétracta rapidement. Dans un concert de craquements, il reprit la taille d'un cultivateur ordinaire. Cependant, son apparence avait radicalement changé!
 
@@ -102,7 +102,7 @@ Wang Lin réfléchit et projeta une parcelle de son Sens Divin dans la Bête du 
 
 Après Ling Dong, ce fut au tour de Zhou Jin et des Feuilles Anciennes d'être recrachés.
 
-Enfin, le gigantesque Serpent Moongazer apparut. La gueule de la Bête du Néant continua de s'élargir jusqu'à ressembler à un trou noir titanesque, avant de recracher le serpent. Ce dernier grandit rapidement pour retrouver sa taille initiale.
+Enfin, le gigantesque Serpent aux yeux de lune apparut. La gueule de la Bête du Néant continua de s'élargir jusqu'à ressembler à un trou noir titanesque, avant de recracher le serpent. Ce dernier grandit rapidement pour retrouver sa taille initiale.
 
 Wang Lin remit Zhou Jin et Ling Dong dans le Fourneau Impérial avant de le ranger dans sa première étoile. Il rangea ensuite tout le reste et fronça les sourcils en observant la Bête du Néant.
 

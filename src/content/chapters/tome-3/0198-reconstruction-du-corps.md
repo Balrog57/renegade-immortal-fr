@@ -136,7 +136,7 @@ Les yeux de Wang Lin s'illuminèrent. Lorsqu'il était arrivé ici, il ne s'atte
 
 Il avait prévu d'absorber l'héritage de connaissances, de trouver la pierre d'encre nécessaire à la fabrication du Drapeau de Restriction, puis de retourner dans son corps pour quitter la Terre de l'Ancien Dieu où il était prisonnier depuis tant d'années.
 
-Si tout s'était déroulé comme prévu, sa récolte aurait été immense. Non seulement il avait appris l'art des restrictions et la méthode de fabrication du drapeau, mais il avait aussi obtenu les sacs de rangement de Hunchback Meng et de l'Empereur Antique. Sans oublier le piège à bêtes et les 20 pierres spirituelles de qualité supérieure. Avec les 10 instruments, sa récolte aurait été véritablement prodigieuse.
+Si tout s'était déroulé comme prévu, sa récolte aurait été immense. Non seulement il avait appris l'art des restrictions et la méthode de fabrication du drapeau, mais il avait aussi obtenu les sacs de rangement de Bossu Meng et de l'Empereur Antique. Sans oublier le piège à bêtes et les 20 pierres spirituelles de qualité supérieure. Avec les 10 instruments, sa récolte aurait été véritablement prodigieuse.
 
 Et il y avait, par-dessus tout, l'inestimable héritage de connaissances.
 

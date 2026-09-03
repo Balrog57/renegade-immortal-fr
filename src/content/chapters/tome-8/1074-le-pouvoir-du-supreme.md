@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1074 - The Supremes Power
 slug: le-pouvoir-du-supreme
 ---
-Au moment où les trois All-Seers attaquèrent, une silhouette apparut dans le soleil. C'était Wang Lin! Wang Lin était devenu le soleil lui-même, et des éclats de lumière dorée émanaient de son corps!
+Au moment où les trois Omniscients attaquèrent, une silhouette apparut dans le soleil. C'était Wang Lin! Wang Lin était devenu le soleil lui-même, et des éclats de lumière dorée émanaient de son corps!
 
 La mer en contrebas révélait la Terre des Esprits Démoniaques, comme si tout ce qui se trouvait devant eux était suspendu entre le réel et l'irréel.
 

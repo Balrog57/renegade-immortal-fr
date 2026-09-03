@@ -1,6 +1,6 @@
 ---
 n: 1255
-title: Réprimande au Sect Everlasting (6)
+title: Réprimande au Secte Éternelle (6)
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1255 - Rebuking the Everlasting Sect (6)
@@ -12,7 +12,7 @@ Ces cultivateurs d'élite étaient souvent choisis par la Secte Everlasting pour
 
 Cette voix calme émanait d'un homme d'âge moyen vêtu d'une robe. Il paraissait serein et son teint était légèrement jaunâtre, comme s'il souffrait d'une grave maladie. Après avoir parlé, il sauta de la plateforme; on aurait dit que des nuages invisibles se formaient sous ses pieds alors qu'il approchait progressivement de l'arène.
 
-Cet homme, Yun Shan, était très célèbre dans la région de rang 7. En temps normal, il restait en culture de porte close et ne s'aventurait guère à l'extérieur. Il n'était sorti que pour la compétition du secte principal. Son niveau de culture était élevé; il dégageait une aura de Nirvana Shatterer de stade avancé.
+Cet homme, Yun Shan, était très célèbre dans la région de rang 7. En temps normal, il restait en culture de porte close et ne s'aventurait guère à l'extérieur. Il n'était sorti que pour la compétition du secte principal. Son niveau de culture était élevé; il dégageait une aura de Briseur du Nirvana de stade avancé.
 
 La rumeur disait qu'il était l'un des trois représentants de la Secte Everlasting pour la compétition entre les sectes de rang 8. La Secte Everlasting lui avait accordé une attention particulière au cours des 1 000 dernières années. D'immenses quantités de pilules, de trésors magiques et même de sorts lui avaient été envoyées pour l'aider. Même l'un des sept Grands Anciens de la Secte Everlasting était allé l'instruire pendant 1 000 ans.
 
@@ -22,7 +22,7 @@ Alors qu'il avançait, les murmures s'élevèrent dans la foule.
 
 Bien que Yun Shan ne paraisse pas vieux, il cultivait depuis des millénaires. Il arriva devant Wang Lin avec calme et joignit les mains: « Cher compagnon cultivateur Lu, veuillez me donner vos conseils! »
 
-Une fois ses mots prononcés, ses yeux brillèrent intensément et sa culture de Nirvana Shatterer de stade avancé éclata. Un vortex se forma autour de lui, prenant sa position comme centre pour balayer l'extérieur. De loin, on pouvait vaguement distinguer un immense tourbillon en rotation lente.
+Une fois ses mots prononcés, ses yeux brillèrent intensément et sa culture de Briseur du Nirvana de stade avancé éclata. Un vortex se forma autour de lui, prenant sa position comme centre pour balayer l'extérieur. De loin, on pouvait vaguement distinguer un immense tourbillon en rotation lente.
 
 Les ombres de neuf tigres rouges apparurent soudainement dans le vortex, et leurs rugissements firent trembler les cieux.
 
@@ -32,7 +32,7 @@ Sur la tribune où siégeait la Secte Everlasting, Feng Hai affichait une expres
 
 Les autres anciens de la Secte Everlasting considéraient Yun Shan comme leur égal. Ils savaient que s'il n'avait pas été désigné pour être l'un des trois compétiteurs face aux autres sectes de rang 8, il serait déjà devenu un ancien de la Secte Everlasting.
 
-Le Maître de la Secte Everlasting plissa les yeux, laissant paraître une pointe d'admiration. Il savait que Yun Shan n'était pas le plus fort des trois élus, mais sa seule culture de Nirvana Shatterer de stade avancé suffisait à afficher la puissance de la Secte Everlasting.
+Le Maître de la Secte Everlasting plissa les yeux, laissant paraître une pointe d'admiration. Il savait que Yun Shan n'était pas le plus fort des trois élus, mais sa seule culture de Briseur du Nirvana de stade avancé suffisait à afficher la puissance de la Secte Everlasting.
 
 Lors des précédentes grandes compétitions entre les sectes de rang 8, la Secte Everlasting s'était approché du bas du classement. Cette fois, le vieil homme était convaincu que même sans victoire, ils ne seraient pas les derniers.
 
@@ -64,7 +64,7 @@ Des rayons de feu jaillirent de la foule pour converger vers Wang Lin. Tout cela
 
 Le visage de Yun Shan se décomposa et il recula immédiatement. Sa main plongea dans le vide pour ouvrir son espace de stockage, prêt à sortir des trésors pour résister.
 
-Cependant, comment Wang Lin pouvait-il le laisser faire? Les cultivateurs de niveau Nirvana Shatterer possédaient tous quelques trésors extrêmement puissants. Si ces derniers étaient déployés, la bataille ne se terminerait pas de sitôt.
+Cependant, comment Wang Lin pouvait-il le laisser faire? Les cultivateurs de niveau Briseur du Nirvana possédaient tous quelques trésors extrêmement puissants. Si ces derniers étaient déployés, la bataille ne se terminerait pas de sitôt.
 
 Les yeux de Wang Lin s'illuminèrent; sa main gauche pointa Yun Shan tandis qu'il murmurait: « Arrête! »
 

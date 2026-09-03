@@ -42,7 +42,7 @@ Le Pouvoir Nirvana, la puissance du nirvana, est infini et engendre ainsi d'inno
 
 L'Âme Spirituelle. Ce stade est une évolution de l'âme. Tout cultivateur atteignant ce niveau subit une mutation où son âme fusionne avec son âme originelle. Cette dernière ne peut plus être appelée âme originelle; elle devient une Âme Spirituelle!
 
-De même, le royaume des Flammes Joss fusionne avec leur âme pour ne faire qu'un avec elle! Bien sûr, certains cultivateurs, comme Miao Yin, ne procèdent pas ainsi pour des raisons particulières. C'est grâce à cela que Wang Lin et Great Desolation avaient eu la grande chance de dérober une partie de ses Flammes Joss!
+De même, le royaume des Flammes Joss fusionne avec leur âme pour ne faire qu'un avec elle! Bien sûr, certains cultivateurs, comme Miao Yin, ne procèdent pas ainsi pour des raisons particulières. C'est grâce à cela que Wang Lin et Grande Désolation avaient eu la grande chance de dérober une partie de ses Flammes Joss!
 
 Par conséquent, dans le corps des cultivateurs de l'Âme Spirituelle, le Pouvoir Nirvana se transforme en une force spirituelle!
 
@@ -68,7 +68,7 @@ L'attaque d'un cultivateur de l'Âme Spirituelle peut entraîner sa cible dans s
 
 Wang Lin était sous le choc. Après tout, il ne connaissait pas grand-chose aux cultivateurs du troisième pas, et encore moins au stade de l'Âme Spirituelle. Même Ling Dong ou Zhou Jin n'en savaient pas beaucoup à ce sujet. À moins de le vivre personnellement, personne ne pouvait l'expliquer!
 
-Wang Lin ressentit même une pointe de mépris envers les cultivateurs de l'Âme Spirituelle dans son cœur. Après tout, dans le Royaume Extérieur, il avait rencontré le Maître du Dao Blue Dream et combattu le Souverain! Il avait même fait équipe avec Great Desolation!
+Wang Lin ressentit même une pointe de mépris envers les cultivateurs de l'Âme Spirituelle dans son cœur. Après tout, dans le Royaume Extérieur, il avait rencontré le Maître du Dao Blue Dream et combattu le Souverain! Il avait même fait équipe avec Grande Désolation!
 
 Cependant, en cet instant, ce mépris disparut sans laisser de trace. Wang Lin comprit!
 

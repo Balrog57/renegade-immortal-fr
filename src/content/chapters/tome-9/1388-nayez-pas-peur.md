@@ -8,7 +8,7 @@ slug: nayez-pas-peur
 ---
 Chapitre 1388 - N'ayez pas peur!
 
-« Nemesis... Il est ma nemesis! Même mes trésors sont contrés! » hurla Greed en reculant précipitamment. Voyant Wang Lin se rapprocher, il jeta sans ménagement la bouteille de jade dans une autre direction!
+« Nemesis... Il est ma nemesis! Même mes trésors sont contrés! » hurla Cupidité en reculant précipitamment. Voyant Wang Lin se rapprocher, il jeta sans ménagement la bouteille de jade dans une autre direction!
 
 Il avait déjà fait cela auparavant... Depuis son arrivée dans le Système Stellaire Antique, chaque fois qu'il repensait à ce qui s'était passé, son cœur lui faisait une douleur atroce. Il avait juré de ne plus jamais sacrifier un trésor pour créer une diversion lors d'une fuite. À ses yeux, perdre un trésor était pire que la mort.
 
@@ -22,45 +22,45 @@ S'il avait su tout cela, il en aurait certainement recraché du sang, mourant pr
 
 « Puis j'ai rencontré cette nemesis qui a dérobé tous mes trésors et tout ce pour quoi j'avais tant lutté. Pourtant, j'ai eu de la chance et je ne suis pas mort. Au contraire, j'ai trouvé encore plus de trésors lors de mes aventures et je suis devenu puissant. Mais ce maudit Wang Lin ne m'a pas lâché et est venu jusqu'ici, dans le Système Stellaire Antique! »
 
-Tandis que Greed se remémorait sa vie, son visage était empreint de chagrin et d'indignation. Il continuait pourtant de fuir.
+Tandis que Cupidité se remémorait sa vie, son visage était empreint de chagrin et d'indignation. Il continuait pourtant de fuir.
 
-Wang Lin esquissa un sourire qui n'en était pas un et fit un pas en avant. En voyant Greed projeter la bouteille dans une autre direction, il cessa sa poursuite pour charger directement vers l'objet.
+Wang Lin esquissa un sourire qui n'en était pas un et fit un pas en avant. En voyant Cupidité projeter la bouteille dans une autre direction, il cessa sa poursuite pour charger directement vers l'objet.
 
-Voyant Wang Lin changer de trajectoire, Greed agita la main. Un grand drapeau apparut: il était doré et sa lumière illumina le vide.
+Voyant Wang Lin changer de trajectoire, Cupidité agita la main. Un grand drapeau apparut: il était doré et sa lumière illumina le vide.
 
 Une étrange créature y était brodée. Elle possédait un corps de dragon sans griffes, mais était dotée de multiples paires d'ailes, avec la moitié de son corps nichée dans les nuages, comme si elle était en plein vol.
 
-Après avoir sorti ce drapeau, Greed l'agita sans pitié et un rugissement tonitruant s'en échappa. La bête sembla prendre vie; elle jaillit du drapeau pour envelopper Greed. Ils se transformèrent en un nuage sombre et s'envolèrent plus vite encore qu'auparavant!
+Après avoir sorti ce drapeau, Cupidité l'agita sans pitié et un rugissement tonitruant s'en échappa. La bête sembla prendre vie; elle jaillit du drapeau pour envelopper Cupidité. Ils se transformèrent en un nuage sombre et s'envolèrent plus vite encore qu'auparavant!
 
-Wang Lin ignora Greed et rattrapa rapidement la bouteille de jade. D'un revers de manche, il la rangea. Puis, riant, il fit demi-tour et poursuivit Greed en utilisant la Distorsion Spatiale!
+Wang Lin ignora Cupidité et rattrapa rapidement la bouteille de jade. D'un revers de manche, il la rangea. Puis, riant, il fit demi-tour et poursuivit Cupidité en utilisant la Distorsion Spatiale!
 
-« Ce Greed est ma bonne étoile! » rit Wang Lin avant de disparaître.
+« Ce Cupidité est ma bonne étoile! » rit Wang Lin avant de disparaître.
 
-Le corps de Greed était enveloppé par les nuages et protégé par cette étrange bête. Cette dernière possédait près de cent paires d'ailes qui, à chaque battement, augmentaient considérablement sa vitesse. Ils fuyaient à une allure dépassant l'entendement humain.
+Le corps de Cupidité était enveloppé par les nuages et protégé par cette étrange bête. Cette dernière possédait près de cent paires d'ailes qui, à chaque battement, augmentaient considérablement sa vitesse. Ils fuyaient à une allure dépassant l'entendement humain.
 
 Des ondulations les suivaient, semblables aux vagues de la mer. Au cœur de ces remous, la silhouette de Wang Lin les traquait, accélérant sans cesse!
 
-Cependant, la vitesse de Greed avait atteint ses limites, lui permettant de maintenir une certaine distance. Bien que l'essence du tonnerre de Wang Lin fût complète, même avec ce pouvoir, il ne pourrait pas le rattraper instantanément.
+Cependant, la vitesse de Cupidité avait atteint ses limites, lui permettant de maintenir une certaine distance. Bien que l'essence du tonnerre de Wang Lin fût complète, même avec ce pouvoir, il ne pourrait pas le rattraper instantanément.
 
-Pourtant, Wang Lin n'était pas pressé. Rencontrer quelqu'un de son monde était une joie. À cet instant, il se sentait comblé. Cette rencontre avec Greed lui apportait autant de surprise que de bonheur!
+Pourtant, Wang Lin n'était pas pressé. Rencontrer quelqu'un de son monde était une joie. À cet instant, il se sentait comblé. Cette rencontre avec Cupidité lui apportait autant de surprise que de bonheur!
 
-Plus précisément, Wang Lin avait déjà remarqué que tous les trésors de Greed étaient liés aux trois clans de l'Ordre Ancien, et il avait identifié l'origine de ces richesses. Pour d'autres, ces lieux seraient sans intérêt, mais pour lui, c'était une fortune inimaginable!
+Plus précisément, Wang Lin avait déjà remarqué que tous les trésors de Cupidité étaient liés aux trois clans de l'Ordre Ancien, et il avait identifié l'origine de ces richesses. Pour d'autres, ces lieux seraient sans intérêt, mais pour lui, c'était une fortune inimaginable!
 
-Quant à Greed, qui venait de lui offrir cette chance inouïe, plus Wang Lin le regardait, plus ce dernier lui devenait sympathique!
+Quant à Cupidité, qui venait de lui offrir cette chance inouïe, plus Wang Lin le regardait, plus ce dernier lui devenait sympathique!
 
-« Un fantôme me hante! Un fantôme me hante! » Greed ressentait une douleur lancinante dans sa poitrine, comme si des aiguilles le transperçaient sans cesse. Cette souffrance venait du spectacle de ses trésors se faisant dérober sous ses yeux.
+« Un fantôme me hante! Un fantôme me hante! » Cupidité ressentait une douleur lancinante dans sa poitrine, comme si des aiguilles le transperçaient sans cesse. Cette souffrance venait du spectacle de ses trésors se faisant dérober sous ses yeux.
 
-« Il a volé les Épées Starling, les Tablettes de Protection Osseuse, le Fourneau Divin, la Lance du Démon de Brume, et il n'a même pas laissé l'Esprit d'Arbre Antique! Même la Feuille d'Arrêt Antique et la Bouteille de l'Âme Démoniaque ont été prises de force. La moitié de mes trésors lui appartiennent désormais, et ce maudit Wang Lin ne me lâchera pas! Il ne s'arrêtera que lorsqu'il aura tout pris! » Plus Greed y pensait, plus il sombrait dans la tristesse et l'indignation. La colère montant en lui, il serra les dents et décida de cesser sa fuite. Il se retourna et fixa violemment Wang Lin.
+« Il a volé les Épées Starling, les Tablettes de Protection Osseuse, le Fourneau Divin, la Lance du Démon de Brume, et il n'a même pas laissé l'Esprit d'Arbre Antique! Même la Feuille d'Arrêt Antique et la Bouteille de l'Âme Démoniaque ont été prises de force. La moitié de mes trésors lui appartiennent désormais, et ce maudit Wang Lin ne me lâchera pas! Il ne s'arrêtera que lorsqu'il aura tout pris! » Plus Cupidité y pensait, plus il sombrait dans la tristesse et l'indignation. La colère montant en lui, il serra les dents et décida de cesser sa fuite. Il se retourna et fixa violemment Wang Lin.
 
-« Ce vieil homme ne fuira plus! Je vais tout donner pour te combattre! » Les yeux de Greed étaient injectés de sang. C'était un être cruel ayant semé la mort sur son passage. S'il n'avait pas été terrifié par Wang Lin, et si la fissure dans son cœur Dao ne faisait pas de ce dernier son pire cauchemar, il n'aurait jamais fui ainsi, finissant dans un état aussi pitoyable.
+« Ce vieil homme ne fuira plus! Je vais tout donner pour te combattre! » Les yeux de Cupidité étaient injectés de sang. C'était un être cruel ayant semé la mort sur son passage. S'il n'avait pas été terrifié par Wang Lin, et si la fissure dans son cœur Dao ne faisait pas de ce dernier son pire cauchemar, il n'aurait jamais fui ainsi, finissant dans un état aussi pitoyable.
 
 Mais, poussé à bout par Wang Lin, il oublia l'instant son tourment. Ses mains formèrent un sceau et une immense faille spatiale se déchira dans le vide.
 
-« Loup démonique, descends et punis les cieux! » rugit Greed. Ses vêtements flottaient et ses cheveux s'agitaient sans vent. Une énergie démoniaque monstrueuse jaillit de la faille devant lui!
+« Loup démonique, descends et punis les cieux! » rugit Cupidité. Ses vêtements flottaient et ses cheveux s'agitaient sans vent. Une énergie démoniaque monstrueuse jaillit de la faille devant lui!
 
 Wang Lin reconnut immédiatement cette aura; c'était celle d'un démon ancien!
 
-L'énergie démoniaque jaillit de la brèche, accompagnée d'une brume rouge qui pénétra rapidement le corps de Greed par ses orifices.
+L'énergie démoniaque jaillit de la brèche, accompagnée d'une brume rouge qui pénétra rapidement le corps de Cupidité par ses orifices.
 
 Des cris de douleur s'échappèrent de sa bouche. Les veines de son corps gonflèrent et son visage se crispa. Ses vêtements éclatèrent, révélant une armure sombre!
 
@@ -68,7 +68,7 @@ L'espace derrière lui sembla se tordre tandis qu'une ombre de cent mille pieds 
 
 Un loup démonique!
 
-Dès l'apparition de la créature, l'énergie démoniaque environnante s'intensifia. Un vortex prit naissance autour de Greed, balayant tout sur son passage!
+Dès l'apparition de la créature, l'énergie démoniaque environnante s'intensifia. Un vortex prit naissance autour de Cupidité, balayant tout sur son passage!
 
 Tout ce qui se trouvait dans un rayon de 50 000 kilomètres fut aspiré par le vortex, au milieu d'un grondement assourdissant.
 
@@ -84,7 +84,7 @@ Alors que l'énergie démoniaque se condensait vers le centre, une force d'aspir
 
 Tout cela se passa à une vitesse fulgurante. En un clin d'œil, ce monde démoniaque se referma pour tenter d'engloutir Wang Lin!
 
-« Tu as volé mes trésors autrefois, maudit soit-tu! Et maintenant tu reviens pour m'en voler encore, maudit soit-tu! Je n'ai jamais été aussi humilié de toute ma vie! Tu mérites la mort! Meurs! Meurs! Meurs! » La voix de Greed était devenue folle.
+« Tu as volé mes trésors autrefois, maudit soit-tu! Et maintenant tu reviens pour m'en voler encore, maudit soit-tu! Je n'ai jamais été aussi humilié de toute ma vie! Tu mérites la mort! Meurs! Meurs! Meurs! » La voix de Cupidité était devenue folle.
 
 Wang Lin resta calme et laissa échapper un froid reniflement. Tandis que le loup géant se rapprochait, des craquements résonnèrent dans son corps. Sa stature s'éleva à plus de 10 000 pieds: il était devenu un Dieu Ancien à 6 étoiles!
 
@@ -104,9 +104,9 @@ D'un seul coup, le loup démonique fut tranché en deux!
 
 Le corps de la créature bascula derrière Wang Lin avant de se dissiper parmi les étoiles. Seuls ses hurlements de regret résonnèrent encore dans ce monde.
 
-L'expression de Wang Lin resta impassible tandis qu'il fixait Greed.
+L'expression de Wang Lin resta impassible tandis qu'il fixait Cupidité.
 
-La terreur envahit le regard de Greed qui recula en hurlant. Il agita la main droite pour sortir son trésor le plus puissant, sans aucune hésitation!
+La terreur envahit le regard de Cupidité qui recula en hurlant. Il agita la main droite pour sortir son trésor le plus puissant, sans aucune hésitation!
 
 C'était une sculpture de bois brisée!
 
@@ -114,6 +114,6 @@ Cependant, au moment même où l'objet apparaissait, la voix calme de Wang Lin r
 
 « Arrête! »
 
-Le corps de Greed se figea instantanément; il ne pouvait plus bouger d'un pouce. La peur dans ses yeux atteignit son paroxysme.
+Le corps de Cupidité se figea instantanément; il ne pouvait plus bouger d'un pouce. La peur dans ses yeux atteignit son paroxysme.
 
 « N'ayez pas peur. Répondez à quelques-unes de mes questions et je ne vous tuerai pas. »

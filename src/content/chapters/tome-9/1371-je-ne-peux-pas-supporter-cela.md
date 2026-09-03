@@ -74,7 +74,7 @@ Zhong Big Red rit et joignit les mains: « Ce n'est rien, ce genre de pilule est
 
 Le vieil homme prit une profonde inspiration et, abandonnant toute politesse, rangea rapidement les pilules. Il regarda Zhong Big Red et murmura: « Petit Frère Zhong, le niveau de culture de ton maître... pourrait-il être... » L'homme hésita avant de poursuivre: « Pourrait-il être au stade Yin et Yang? »
 
-Zhong Big Red s'attendait à ce qu'on l'interroge sur son maître. Son expression devint immédiatement respectueuse et il chuchota: « La culture de mon Maître est transcendante, même moi j'en ignore le niveau exact. Cependant, j'ai vu le Maître terrasser des cultivateurs du Nirvana Scryer d'un seul coup! »
+Zhong Big Red s'attendait à ce qu'on l'interroge sur son maître. Son expression devint immédiatement respectueuse et il chuchota: « La culture de mon Maître est transcendante, même moi j'en ignore le niveau exact. Cependant, j'ai vu le Maître terrasser des cultivateurs du Scruteur du Nirvana d'un seul coup! »
 
 Le vieil homme aspira une bouffée d'air glacial; il n'osait chercher à savoir si c'était vrai ou faux. Peu importait la vérité: quelqu'un capable de distribuer de telles pilules avec autant de désinvolture était une personne qu'il ne fallait pas provoquer.
 

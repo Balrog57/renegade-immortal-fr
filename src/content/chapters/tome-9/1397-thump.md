@@ -44,7 +44,7 @@ Le Patriarche du Clan du Scorpion Obscur murmura: « C'est l'Ancien en chef du C
 
 Le Patriarche du Clan de l'Évasion Nuageuse se tenait naturellement aux côtés de Wang Lin. Lorsqu'il entendit les paroles de l'Ancien en chef du Clan du Serpent de l'Âme, il resta calme et garda la tête baissée, silencieux.
 
-L'Ancien en chef du Clan du Serpent de l'Âme sourit et dit lentement: « La rumeur prétend que le Clan de l'Évasion Nuageuse a invité Greed en tant qu'Ancien honorifique. Avec Greed, je présume que le Clan de l'Évasion Nuageuse est assuré d'obtenir un siège d'Ancien Déchu! Cependant, comment se fait-il que je ne voie pas le Senior Greed? »
+L'Ancien en chef du Clan du Serpent de l'Âme sourit et dit lentement: « La rumeur prétend que le Clan de l'Évasion Nuageuse a invité Cupidité en tant qu'Ancien honorifique. Avec Cupidité, je présume que le Clan de l'Évasion Nuageuse est assuré d'obtenir un siège d'Ancien Déchu! Cependant, comment se fait-il que je ne voie pas le Senior Cupidité? »
 
 Sa voix n'était pas forte, mais elle était imprégnée de sa puissance de culture, ce qui la fit résonner.
 
@@ -52,13 +52,13 @@ Les dix mille cultivateurs présents étaient tous issus des clans de la Terre D
 
 Obtenir des informations était crucial pour décrocher un siège d'Ancien. Après avoir entendu l'Ancien en chef du Clan du Serpent de l'Âme, tous les regards se tournèrent vers le Clan de l'Évasion Nuageuse.
 
-Le nom de Greed était extrêmement célèbre. Le fait qu'il aide le Clan de l'Évasion Nuageuse suffisait à attirer l'attention de tous les autres clans.
+Le nom de Cupidité était extrêmement célèbre. Le fait qu'il aide le Clan de l'Évasion Nuageuse suffisait à attirer l'attention de tous les autres clans.
 
-« Ce vieil homme a entendu dire que le Compagnon Cultivateur Greed est devenu un Ancien honorifique du Clan de l'Évasion Nuageuse. Le Compagnon Cultivateur Greed m'a aidé autrefois, je voulais donc lui rendre visite. Maître Yun Dun, pourquoi le Compagnon Cultivateur Greed n'est-il pas venu? » La personne qui prit la parole était un vieil homme vêtu d'une robe pourpre. Son visage était pâle, mais sa voix était puissante.
+« Ce vieil homme a entendu dire que le Compagnon Cultivateur Cupidité est devenu un Ancien honorifique du Clan de l'Évasion Nuageuse. Le Compagnon Cultivateur Cupidité m'a aidé autrefois, je voulais donc lui rendre visite. Maître Yun Dun, pourquoi le Compagnon Cultivateur Cupidité n'est-il pas venu? » La personne qui prit la parole était un vieil homme vêtu d'une robe pourpre. Son visage était pâle, mais sa voix était puissante.
 
 Trois arcs marquaient son front, semblables à des ondes de l'eau.
 
-Le Patriarche du Clan de l'Évasion Nuageuse leva la tête et regarda Wang Lin. Puis il déclara d'une voix froide: « Le Senior Greed a dû partir pour une affaire urgente et ne viendra pas. Nul besoin de deviner! » avant de baisser la tête.
+Le Patriarche du Clan de l'Évasion Nuageuse leva la tête et regarda Wang Lin. Puis il déclara d'une voix froide: « Le Senior Cupidité a dû partir pour une affaire urgente et ne viendra pas. Nul besoin de deviner! » avant de baisser la tête.
 
 Le vieil homme qui venait de parler vit cette scène, et ses pupilles se contractèrent.
 
@@ -84,17 +84,17 @@ Wang Lin sourit en regardant le vieil homme et dit lentement: « Quoi, nous ne p
 
 Les yeux du 13ème Ancien Déchu s'illuminèrent. Il vit la manière dont le Patriarche du Clan de l'Évasion Nuage regardait Wang Lin et, d'après leur position, comprit que cet homme semblait être celui qui commandait. C'était pour cela qu'il avait parlé.
 
-En tant que 13ème Ancien Déchu, il devait faire une démonstration de force pour assurer sa réélection. Bien que le Clan du Scorpion Obscur fût petit, le Clan de l'Évasion Nuage ne l'était pas. Avec la réputation de Greed, ils étaient l'outil idéal pour étaler sa puissance.
+En tant que 13ème Ancien Déchu, il devait faire une démonstration de force pour assurer sa réélection. Bien que le Clan du Scorpion Obscur fût petit, le Clan de l'Évasion Nuage ne l'était pas. Avec la réputation de Cupidité, ils étaient l'outil idéal pour étaler sa puissance.
 
-D'après ce que le vieil homme savait, Wang Lin était un envoyé de Greed; utiliser Wang Lin pour s'imposer revenait donc à utiliser Greed lui-même! Pourtant, la moquerie dans les yeux des Patriarches du Scorpion Obscur et de l'Évasion Nuageuse lui donna le pressentiment que quelque chose n'allait pas.
+D'après ce que le vieil homme savait, Wang Lin était un envoyé de Cupidité; utiliser Wang Lin pour s'imposer revenait donc à utiliser Cupidité lui-même! Pourtant, la moquerie dans les yeux des Patriarches du Scorpion Obscur et de l'Évasion Nuageuse lui donna le pressentiment que quelque chose n'allait pas.
 
-« Cet homme doit être l'envoyé de Greed. Bien que Greed soit puissant, je suis un Ancien Déchu, il n'y a aucune raison de craindre quoi que ce soit! »
+« Cet homme doit être l'envoyé de Cupidité. Bien que Cupidité soit puissant, je suis un Ancien Déchu, il n'y a aucune raison de craindre quoi que ce soit! »
 
 Pensant cela, le vieil homme renifla froidement: « Seules les personnes qualifiées peuvent parler ainsi. Je me demande si tu en as les qualifications. »
 
-Les anciens et les patriarches étaient de vieux renards; ils devinaient plus ou moins la situation. Ils étaient tous arrivés à la même conclusion: Wang Lin était un envoyé de Greed.
+Les anciens et les patriarches étaient de vieux renards; ils devinaient plus ou moins la situation. Ils étaient tous arrivés à la même conclusion: Wang Lin était un envoyé de Cupidité.
 
-« Tu ne dois pas être originaire de la Terre Déchue. Je te conseille de t'agenouiller rapidement devant moi. Sache que même ton maître, Greed, n'aurait d'autre choix que de s'agenouiller dans une telle situation. » Les yeux de l'Ancien en chef du Clan du Serpent de l'Âme brillèrent. C'était lui qui avait provoqué cela, et il se réjouissait de voir le 13ème Ancien Déchu cibler le Clan de l'Évasion Nuageuse.
+« Tu ne dois pas être originaire de la Terre Déchue. Je te conseille de t'agenouiller rapidement devant moi. Sache que même ton maître, Cupidité, n'aurait d'autre choix que de s'agenouiller dans une telle situation. » Les yeux de l'Ancien en chef du Clan du Serpent de l'Âme brillèrent. C'était lui qui avait provoqué cela, et il se réjouissait de voir le 13ème Ancien Déchu cibler le Clan de l'Évasion Nuageuse.
 
 « Qualifications... » Wang Lin sourit.
 
@@ -120,7 +120,7 @@ Cette scène provoqua un choc immense chez tous les cultivateurs présents.
 
 « Qui est cet individu pour que le Clan du Dragon Blindé lui rende les honneurs? »
 
-« Se pourrait-il qu'il n'ait aucun lien avec Greed? »
+« Se pourrait-il qu'il n'ait aucun lien avec Cupidité? »
 
 L'homme d'âge moyen du Clan du Serpent de l'Âme était stupéfait, ses yeux brillant d'une lueur étrange. Le vieil homme du Clan de la Rivière Tranquille devint livide. Il observa Wang Lin, puis la crainte dans les yeux des membres du Clan du Dragon Blindé. Une pensée terrifiante lui traversa soudainement l'esprit.
 

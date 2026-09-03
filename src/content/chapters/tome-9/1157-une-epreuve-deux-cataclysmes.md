@@ -108,7 +108,7 @@ Ce qui les choqua encore plus fut l'apparition de bêtes féroces dans le brouil
 
 Elles tentèrent de charger à plusieurs reprises, mais furent repoussées. C'était comme si quelque chose d'extrêmement attractif se trouvait ici, mais que leur instinct de conservation les empêchait d'oser. Cela provoquait une hésitation constante.
 
-Parmi elles se trouvaient des bêtes de rang 5 et même de rang 6! Ce qui terrifiait encore plus Li Xiangdong, c'est qu'il aperçut même une bête de rang 7. Une bête de rang 7 suffisait à combattre un cultivateur de stade intermédiaire du Nirvana Cleanser!
+Parmi elles se trouvaient des bêtes de rang 5 et même de rang 6! Ce qui terrifiait encore plus Li Xiangdong, c'est qu'il aperçut même une bête de rang 7. Une bête de rang 7 suffisait à combattre un cultivateur de stade intermédiaire du Purificateur du Nirvana!
 
 « Jeune sœur Lu, je ne sais pas pourquoi tu nous as arrêtés, mais aujourd'hui, nous devons aller voir. Nous devons savoir exactement ce qui provoque cette poussée inattendue d'énergie d'origine et attire toutes ces bêtes féroces cachées dans le brouillard stellaire! » Li Xiangdong pensa à la bête de rang 7 et son esprit trembla. Il fixa Lu Yanfei avec une expression très sérieuse.
 

@@ -48,7 +48,7 @@ Cette nouvelle formation était une création personnelle de Wang Lin. Familier 
 
 « Les cinq Maîtres du Système Stellaire Antique... Le Souverain a été scellé par moi et Blue Dream s'est déplacé vers le Royaume Intérieur. Il ne reste que Miao Yin, Void God et Nine Heaven. Si je les laisse tranquilles, ces trois-là deviendront un problème. Puisqu'ils sont affaiblis, je vais les traquer un par un pour les envoyer à la réincarnation! » Le regard de Wang Lin était glacial alors qu'il pénétrait dans le Système Stellaire Antique. Son Sens Divin se déploya soudainement dans toutes les directions.
 
-Depuis les événements au cœur du monde des grottes, il avait atteint le sommet du stade Spirit Void et son héritage de l'Ancient Dao était presque complet. À cet instant, Wang Lin possédait la puissance nécessaire pour affronter des cultivateurs de stade Arcane Void tardif!
+Depuis les événements au cœur du monde des grottes, il avait atteint le sommet du stade Vide Spirituel et son héritage de l'Ancient Dao était presque complet. À cet instant, Wang Lin possédait la puissance nécessaire pour affronter des cultivateurs de stade Vide Arcanique tardif!
 
 Avec un tel niveau de culture, ses sept essences et ses sorts de l'Ancient Dao, ces trois maîtres blessés du Système Stellaire Antique n'étaient plus à sa mesure!
 
@@ -102,7 +102,7 @@ Miao Yin était assis au fond de l'océan, entouré par l'obscurité. Pourtant, 
 
 Ces ossements étaient principalement ceux d'animaux. Tandis que Miao Yin se soignait dans les abysses, un rugissement sembla se propager à travers l'eau par une méthode mystérieuse.
 
-« Wang Lin, Blue Dream... vous deux ne mourrez pas une belle mort! » Les yeux de Miao Yin s'ouvrirent grand, son visage déformé par la rage. Blessé par Blue Dream, son niveau de culture avait chuté au stade Spirit Void. Il lui faudrait au moins cent ans pour retrouver son apogée, et il se soignait avec acharnement pour tenter de réduire ce délai.
+« Wang Lin, Blue Dream... vous deux ne mourrez pas une belle mort! » Les yeux de Miao Yin s'ouvrirent grand, son visage déformé par la rage. Blessé par Blue Dream, son niveau de culture avait chuté au stade Vide Spirituel. Il lui faudrait au moins cent ans pour retrouver son apogée, et il se soignait avec acharnement pour tenter de réduire ce délai.
 
 Dans son rugissement, Miao Yin tendit la main droite vers l'océan. Un vortex apparut, aspirant un long serpent de mer noir qui trembla, incapable de lutter face à la puissance du tourbillon.
 

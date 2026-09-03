@@ -16,7 +16,7 @@ Le jeune homme marqué par l'éclair fut le plus rapide et s'approcha. Il n'éta
 
 Wang Lin n'avait jamais vu une telle capacité de sa vie. Ce n'était pas qu'ils dissimulaient leur niveau de culture; ils avaient emprunté la puissance des cieux!
 
-Pour être plus précis, ce n'était pas la première fois que Wang Lin affrontait des gens du Royaume Extérieur. Dans le vide, face au Serpent Moongazer, il s'était déjà battu contre eux, mais à l'époque, Wang Lin était trop faible pour attirer leur attention et ne pouvait contrôler son propre destin. Cependant, désormais, Wang Lin était digne de contempler ces trois assaillants avec dédain et moquerie!
+Pour être plus précis, ce n'était pas la première fois que Wang Lin affrontait des gens du Royaume Extérieur. Dans le vide, face au Serpent aux yeux de lune, il s'était déjà battu contre eux, mais à l'époque, Wang Lin était trop faible pour attirer leur attention et ne pouvait contrôler son propre destin. Cependant, désormais, Wang Lin était digne de contempler ces trois assaillants avec dédain et moquerie!
 
 Le jeune homme marqué par l'éclair était enveloppé de foudre; à chacun de ses pas, des craquements tonnantes résonnaient. Il semblait devenir lui-même un éclair tandis qu'il se rapprochait à une vitesse fulgurante. Ses mains formèrent un sceau et la foudre autour de lui prit la forme d'une silhouette gigantesque.
 

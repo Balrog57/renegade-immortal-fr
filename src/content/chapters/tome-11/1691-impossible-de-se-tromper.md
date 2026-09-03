@@ -50,7 +50,7 @@ Wang Lin fut projeté en arrière. Il cracha des quantités massives de sang et 
 
 C'était comme si tout ce qui l'avait précédé n'était qu'une simple mise en scène!
 
-« C'est là la puissance d'un cultivateur Arcane Void au sommet ayant atteint le stade Arcane Tribulant. Sans l'Arc de Li Guang, je ne peux rivaliser... » Wang Lin tituba tandis qu'une douleur fulgurante l'assaillait. Son âme originelle avait été endommagée par l'onde de choc du rebond.
+« C'est là la puissance d'un cultivateur Vide Arcanique au sommet ayant atteint le stade Arcane Tribulant. Sans l'Arc de Li Guang, je ne peux rivaliser... » Wang Lin tituba tandis qu'une douleur fulgurante l'assaillait. Son âme originelle avait été endommagée par l'onde de choc du rebond.
 
 Tout s’était passé très vite. Bien que l'empreinte se fût dissipée, le Souverain éclata d'un rire tonitruant. Il était enfin certain que Wang Lin n'avait plus la force de tirer l'arc une troisième fois. N'ayant plus aucune inquiétude, il marcha vers Wang Lin avec un sourire cruel.
 

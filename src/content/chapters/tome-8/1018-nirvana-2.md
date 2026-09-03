@@ -26,7 +26,7 @@ La gigantesque rune de diamant était visible depuis n'importe quel point du mon
 
 Wang Lin afficha une expression de fatigue. Il n'était pas aisé pour lui d'utiliser un tel sort avec son pouvoir de Dieu Ancien actuel, raison pour laquelle il ne s'en était jamais servi auparavant. Sans le fait que cette bataille déterminerait sa liberté, il ne l'aurait jamais utilisé.
 
-Bien que l'homme nommé Ming Hai fût aussi puissant qu'un cultivateur du Nettoyage du Nirvana, les sorts et les trésors qu'il employait étaient capables de faire trembler le ciel.
+Bien que l'homme nommé Ming Hai fût aussi puissant qu'un cultivateur du Purificateur du Nirvana, les sorts et les trésors qu'il employait étaient capables de faire trembler le ciel.
 
 Alors que les grondements résonnaient, la petite épée blanche fut repoussée et un chant d'épée retentit à travers les cieux!
 

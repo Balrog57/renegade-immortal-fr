@@ -20,7 +20,7 @@ Le vide était peuplé d'une multitude de cultivateurs. À proximité de Wang Li
 
 Ce vieil homme paraissait très âgé; il n'avait même pas besoin d'utiliser de sceaux, il lui suffisait d'agiter les mains pour lancer ses sorts. Chacune de ses techniques était inédite et semblait imprégnée par le poids du temps.
 
-À la vue de cet homme, les yeux de Wang Lin se plissèrent. Il se souvenait vaguement qu'il s'agissait de l'un des anciens cultivateurs raffineurs de Qi présents dans la mer de sang de Tuo Sen. Ce vieil homme possédait une puissance équivalente à celle d'un cultivateur du stade tardif du Nettoyage du Nirvana.
+À la vue de cet homme, les yeux de Wang Lin se plissèrent. Il se souvenait vaguement qu'il s'agissait de l'un des anciens cultivateurs raffineurs de Qi présents dans la mer de sang de Tuo Sen. Ce vieil homme possédait une puissance équivalente à celle d'un cultivateur du stade tardif du Purificateur du Nirvana.
 
 Les cultivateurs qui l'affrontaient possédaient tous des cercueils. Ces derniers étaient ouverts, et les marionnettes de cadavres constituaient la force principale de l'attaque contre le vieil homme.
 

@@ -16,9 +16,9 @@ Le niveau 3 de culture de Hou Fen se situait dans la partie sud de la planète S
 
 Ce jour-là, au sommet du volcan qui trônait au centre de Hou Fen, un groupe de personnes du Sanctuaire du Dieu de la Guerre était rassemblé.
 
-Les six ancêtres Nascent Soul du Sanctuaire du Dieu de la Guerre étaient assis confortablement au sommet de Hou Fen. Lors du combat pour le droit d'accéder au champ de bataille étranger, le Sanctuaire du Dieu de la Guerre avait écrasé la concurrence, étant la seule secte à y avoir pénétré.
+Les six ancêtres de l'Âme Naissante du Sanctuaire du Dieu de la Guerre étaient assis confortablement au sommet de Hou Fen. Lors du combat pour le droit d'accéder au champ de bataille étranger, le Sanctuaire du Dieu de la Guerre avait écrasé la concurrence, étant la seule secte à y avoir pénétré.
 
-La personne qui dirigeait le groupe n'était pas un cultivateur Nascent Soul, mais un Ancien du stade initial de Formation du Noyau nommé Huo Hongfei. Peut-être était-ce dû au fait que sa méthode de culture était le Chemin Divin, car malgré ses 200 ans, il ne paraissait pas vieux du tout; il ressemblait plutôt à un très bel homme d'âge moyen.
+La personne qui dirigeait le groupe n'était pas un cultivateur de l'Âme Naissante, mais un Ancien du stade initial de Formation du Noyau nommé Huo Hongfei. Peut-être était-ce dû au fait que sa méthode de culture était le Chemin Divin, car malgré ses 200 ans, il ne paraissait pas vieux du tout; il ressemblait plutôt à un très bel homme d'âge moyen.
 
 Le Chemin Divin est la méthode de culture suprême du Sanctuaire du Dieu de la Guerre. Seuls ceux qui ont atteint le stade de l'Établissement des Fondations peuvent pratiquer cette méthode, laquelle est censée faciliter l'accès au stade de la Formation du Noyau. Quant à son fonctionnement exact, les profanes l'ignoraient.
 

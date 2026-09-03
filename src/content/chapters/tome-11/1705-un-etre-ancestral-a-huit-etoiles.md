@@ -38,9 +38,9 @@ Cependant, ce Grand Empereur était très mystérieux, et peu de gens savaient �
 
 « Aucune erreur n'est permise dans la réincarnation du Grand Empereur. Ils sont encore en pleine croissance, il n'est pas idéal d'utiliser leur pouvoir de Grand Empereur... Ces deux petits ancêtres, que font-elles donc? » L'homme d'âge moyen frappa du pied et toute la Secte du Soleil Violet trembla. Même le monde extérieur en fut ébranlé.
 
-À l'intérieur de la faille spatiale, Wang Lin était assis sur l'autel et vit l'aura terrifiante qui avait jailli de Greed. Un choc apparut dans ses yeux.
+À l'intérieur de la faille spatiale, Wang Lin était assis sur l'autel et vit l'aura terrifiante qui avait jailli de Cupidité. Un choc apparut dans ses yeux.
 
-Le soleil dans la main de Greed s'étendit rapidement jusqu'à atteindre la taille d'un homme. Les neuf oiseaux de feu poussèrent des cris déchirants en tentant de reculer, mais sous l'éclat de la lumière solaire, ils s'effondrèrent tous.
+Le soleil dans la main de Cupidité s'étendit rapidement jusqu'à atteindre la taille d'un homme. Les neuf oiseaux de feu poussèrent des cris déchirants en tentant de reculer, mais sous l'éclat de la lumière solaire, ils s'effondrèrent tous.
 
 Il y avait aussi le Daoïste aux Sept Couleurs, qui fut stupéfait un instant. Bien qu'il n'ait pas obtenu les souvenirs, certaines choses étaient gravées dans son âme. Même divisé en trois âmes, certains éléments ne pouvaient être effacés.
 
@@ -66,7 +66,7 @@ Dans la faille spatiale de la Mer des Nuages, le Daoïste aux Sept Couleurs s'é
 
 Il ressentait désormais une peur extrême envers la faille de la Mer des Nuages. Il n'aurait jamais pu imaginer que la chasse à Wang Lin provoquerait l'apparition de l'aura d'un Grand Empereur.
 
-Sur l'autel, à l'intérieur de la faille, Wang Lin regarda avec stupeur le soleil entourer Greed et l'entraîner dans la faille.
+Sur l'autel, à l'intérieur de la faille, Wang Lin regarda avec stupeur le soleil entourer Cupidité et l'entraîner dans la faille.
 
 À travers la brèche, Wang Lin vit les deux fillettes à l'intérieur.
 
@@ -76,7 +76,7 @@ Sur l'autel, à l'intérieur de la faille, Wang Lin regarda avec stupeur le sole
 
 « Wa Wa, scelle vite la faille ici. Ces vieux grincheux arrivent. S'ils découvrent cet endroit, nous ne pourrons plus revenir. »
 
-« D'accord, je scelle la faille, et toi, va cacher Greed. Il ne faut pas qu'ils le trouvent. »
+« D'accord, je scelle la faille, et toi, va cacher Cupidité. Il ne faut pas qu'ils le trouvent. »
 
 La faille fut recouverte par un rayon de lumière dorée et disparut progressivement.
 

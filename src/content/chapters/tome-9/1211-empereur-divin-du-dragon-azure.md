@@ -64,7 +64,7 @@ Sur ce geste, l'Oiseau Vermillon Bleu poussa un cri et s'élança soudainement. 
 
 Ce dernier était entouré de neuf fragments d'os de bête qui repoussaient les flammes environnantes, lui permettant de progresser. Cependant, alors qu'il s'approchait, il s'arrêta net et regarda devant lui. Un océan de flammes bleues couvrait le monde et une chaleur intense s'en dégageait. Des craquements sinistres provenaient des neuf fragments d'os entourant le vieillard. Ils semblaient incapables de résister à l'onde de chaleur et étaient sur le point de céder.
 
-« Un feu aussi prodigieux... Il est extrêmement rare de voir une telle chose. Le niveau de culture de cet enfant n'est pas élevé, mais avec ce seul feu, il pourrait combattre des cultivateurs du stade Nirvana Shatterer sans être à la traîne! Hélas... » Les mains du vieil homme formèrent un sceau et son énergie originelle se mit en mouvement. Sa puissance de cultivateur au stade avancé du Nirvana Shatterer se propagea, faisant apparaître une sphère géante entre ses paumes.
+« Un feu aussi prodigieux... Il est extrêmement rare de voir une telle chose. Le niveau de culture de cet enfant n'est pas élevé, mais avec ce seul feu, il pourrait combattre des cultivateurs du stade Briseur du Nirvana sans être à la traîne! Hélas... » Les mains du vieil homme formèrent un sceau et son énergie originelle se mit en mouvement. Sa puissance de cultivateur au stade avancé du Briseur du Nirvana se propagea, faisant apparaître une sphère géante entre ses paumes.
 
 Cette sphère contenait une quantité colossale d'énergie originelle. En tournant, elle dégageait une aura destructrice effrénée.
 
@@ -78,7 +78,7 @@ Il poussa ses mains en avant et un sifflement s'échappa de la sphère, comme un
 
 L'assaut ne s'arrêta pas là. Des rayons de lumière aux sept couleurs se rejoignirent pour former une épée monumentale. Elle oscilla violemment, comme prête à trancher l'océan de flammes en deux.
 
-Ces sorts, façonnés par la lumière aux sept couleurs, étaient les techniques des Défis. Entre les mains du vieil homme, leur puissance surpassait de loin celle que le Maître Ashen Pine avait pu invoquer.
+Ces sorts, façonnés par la lumière aux sept couleurs, étaient les techniques des Défis. Entre les mains du vieil homme, leur puissance surpassait de loin celle que le Maître Pin Cendré avait pu invoquer.
 
 Dès qu'elle apparut, l'épée aux sept couleurs fondit sur sa cible. Elle se transforma en un torrent d'énergie tranchante qui chargea l'Oiseau Vermillon Bleu au cœur des flammes!
 
@@ -100,4 +100,4 @@ Le vieil homme regarda Wang Lin avec une expression grave. Sa main droite pointa
 
 Alors que le vieillard rugissait, la lumière aux sept couleurs sembla entrer en transe et perça la mer de flammes. Des dizaines de figures illusoires surgirent de toutes parts. Il y avait des jeunes et des vieux, des hommes et des femmes parmi ces silhouettes, mais chacune dégageait une aura terrifiante. Tous fixèrent Wang Lin et, presque aussitôt, d'innombrables sorts apparurent autour de ces dizaines d'individus. Chacun de ces sorts était comparable au Doigt Céleste, et tous furent projetés vers Wang Lin.
 
-« Peu importe la puissance de ton feu, tu n'es qu'un cultivateur du stade Nirvana Cleanser, incapable de résister aux sorts des Défis... Ton pouvoir igné est certes impressionnant, mais ce vieil homme possède les trésors offerts par le Souverain. Ton feu ne pourra jamais briser ces trésors », déclara l'homme d'une voix calme.
+« Peu importe la puissance de ton feu, tu n'es qu'un cultivateur du stade Purificateur du Nirvana, incapable de résister aux sorts des Défis... Ton pouvoir igné est certes impressionnant, mais ce vieil homme possède les trésors offerts par le Souverain. Ton feu ne pourra jamais briser ces trésors », déclara l'homme d'une voix calme.

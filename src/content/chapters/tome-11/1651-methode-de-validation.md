@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1651 - Method of Validation
 slug: methode-de-validation
 ---
-Les cultivateurs du Nirvana Void doivent dévorer des esprits du Dao pour solidifier leurs royaumes de Flamme Joss. Ils ont également besoin d'une quantité massive d'âmes de Flamme Joss. Cependant, ce royaume n'est qu'une force externe; ce n'est qu'en atteignant le stade du Void Spirit que l'on peut intégrer le royaume de la Flamme Joss à son propre corps. Ce faisant, les âmes de la Flamme Joss se mettent à leur service, leur permettant ainsi d'utiliser des sorts surpuissants.
+Les cultivateurs du Vide du Nirvana doivent dévorer des esprits du Dao pour solidifier leurs royaumes de Flamme Joss. Ils ont également besoin d'une quantité massive d'âmes de Flamme Joss. Cependant, ce royaume n'est qu'une force externe; ce n'est qu'en atteignant le stade du Void Spirit que l'on peut intégrer le royaume de la Flamme Joss à son propre corps. Ce faisant, les âmes de la Flamme Joss se mettent à leur service, leur permettant ainsi d'utiliser des sorts surpuissants.
 
 Il est extrêmement difficile de progresser à travers les quatre royaumes du Void. Passer du Void Spirit au Void Arcane est l'étape la plus ardue, car elle nécessite une essence éthérée!
 
@@ -78,7 +78,7 @@ La fleur mesurait plus de 10 000 pieds de haut, et il était évident que les al
 
 Le bourgeon floral était circulaire et vaguement transparent; une femme y était assise. Elle était d'une grande beauté et portait une robe légère. Assise là, elle cultivait.
 
-L'aura d'un cultivateur du Nirvana Void au stade intermédiaire émanait du bourgeon. Lorsque l'aura de Wang Lin balaya la Mer Nuageuse, la femme à l'intérieur du bourgeon ouvrit les yeux.
+L'aura d'un cultivateur du Vide du Nirvana au stade intermédiaire émanait du bourgeon. Lorsque l'aura de Wang Lin balaya la Mer Nuageuse, la femme à l'intérieur du bourgeon ouvrit les yeux.
 
 Son regard était empreint de choc. À l'instant où ses yeux s'ouvrirent, les algues infinies de la planète s'agitèrent.
 

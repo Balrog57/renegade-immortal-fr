@@ -10,11 +10,11 @@ Des cultivateurs puissants comme cette vieille femme étaient parfaitement consc
 
 Il était, après tout, un Ancien de rang 6 de la Secte de la Collection des Démons.
 
-Son départ ne manqua pas d'attirer l'attention de nombreux vieux monstres, en particulier ceux qui devinaient ses intentions. Dans la partie est de la ville principale de Peng Lai, Maître Ashen Pine était assis dans la salle où se déroulaient les échanges. Il tenait un jade à la main, l'esprit chargé d'incertitude.
+Son départ ne manqua pas d'attirer l'attention de nombreux vieux monstres, en particulier ceux qui devinaient ses intentions. Dans la partie est de la ville principale de Peng Lai, Maître Pin Cendré était assis dans la salle où se déroulaient les échanges. Il tenait un jade à la main, l'esprit chargé d'incertitude.
 
 « Si je retourne là-bas avec autant de jades célestes, je réussirai à coup sûr! » Il prit une profonde inspiration et s'apprêtait à revoir son plan une dernière fois lorsqu'il redressa brusquement la tête. C'était comme si son regard pouvait percer les murs pour voir Wu Qing fendre les airs à l'extérieur.
 
-« Bien que Wu Qing soit désormais au stade de Briseur de Nirvana, sa cupidité n'a pas diminué; elle a même augmenté. Ce qui est encore plus frappant, c'est que bien qu'il se prenne pour un stratège, il n'est en réalité qu'un homme d'une immense vanité. Je l'ai invité à participer car j'avais entendu parler de frictions entre sa Secte de la Collection des Démons et Lu Zhihao, et je voulais voir si je pouvais provoquer un conflit. Puisqu'il poursuit Lu Zhihao, ce dernier mourra sans aucun doute. Peu importe. Puisque j'ai traité avec lui, je ne laisserai pas ses cristaux d'origine tomber entre les mains d'un autre. » Maître Ashen Pine afficha un sourire sinistre tandis que son sens divin s'élançait pour suivre de près Wu Qing.
+« Bien que Wu Qing soit désormais au stade de Briseur de Nirvana, sa cupidité n'a pas diminué; elle a même augmenté. Ce qui est encore plus frappant, c'est que bien qu'il se prenne pour un stratège, il n'est en réalité qu'un homme d'une immense vanité. Je l'ai invité à participer car j'avais entendu parler de frictions entre sa Secte de la Collection des Démons et Lu Zhihao, et je voulais voir si je pouvais provoquer un conflit. Puisqu'il poursuit Lu Zhihao, ce dernier mourra sans aucun doute. Peu importe. Puisque j'ai traité avec lui, je ne laisserai pas ses cristaux d'origine tomber entre les mains d'un autre. » Maître Pin Cendré afficha un sourire sinistre tandis que son sens divin s'élançait pour suivre de près Wu Qing.
 
 Au quatrième étage d'un restaurant de la ville principale, un homme et une femme étaient assis l'un face à l'autre. L'homme était vêtu de blanc, et sa compagne était une magnifique jeune femme dont la robe fleurie sublimait la beauté du visage.
 
@@ -28,7 +28,7 @@ Le lettré en blanc réfléchit un instant, affichant une expression étrange av
 
 Un vieil homme au visage balafré marchait lentement dans la rue, les mains derrière le dos. Il observait les bâtiments environnants, l'esprit plongé dans la nostalgie.
 
-« Si Maître Ashen Pine ne continuait pas à m'inviter, je crains que je ne remette jamais les pieds à Peng Lai... » Il laissa échapper un soupir en regardant au loin, puis ses yeux s'illuminèrent.
+« Si Maître Pin Cendré ne continuait pas à m'inviter, je crains que je ne remette jamais les pieds à Peng Lai... » Il laissa échapper un soupir en regardant au loin, puis ses yeux s'illuminèrent.
 
 « Quel magnifique exemple de la loi de la jungle, où le fort opprime le faible! Il tente ouvertement de tuer quelqu'un pour ses trésors! » Le vieil homme éclata de rire et apparut sur un toit avant de s'y asseoir. Son sens divin se propagea avec une vitalité manifeste.
 
@@ -36,7 +36,7 @@ Dans l'auberge d'une petite ville, loin de la cité principale, un vieillard mai
 
 « J'ai laissé Wu Qing prendre l'avantage... Quel malheur... »
 
-Tous les vieux monstres ayant participé aux enchères de Maître Ashen Pine pensaient que Wang Lin mourrait sans aucun doute. Tous, sauf le lettré en blanc! Bien qu'il fût quelque peu sceptique, il savait au fond de lui que les cultivateurs du stade de Nettoyeur de Nirvana n'avaient aucune chance face à un Briseur de Nirvana!
+Tous les vieux monstres ayant participé aux enchères de Maître Pin Cendré pensaient que Wang Lin mourrait sans aucun doute. Tous, sauf le lettré en blanc! Bien qu'il fût quelque peu sceptique, il savait au fond de lui que les cultivateurs du stade de Nettoyeur de Nirvana n'avaient aucune chance face à un Briseur de Nirvana!
 
 Non seulement eux, mais d'autres Briseurs de Nirvana présents dans la ville furent alertés par le départ de Wu Qing, et leurs sens divins se déployèrent. L'un d'eux était Tang Lihai!
 
@@ -188,7 +188,7 @@ Au loin, l'homme d'âge mûr de la Secte de la Collection des Démons contemplai
 
 Simultanément, tous les cultivateurs de Peng Lai étaient sous le choc, en particulier les vieux monstres dont les sens divins avaient capté la scène. Tous étaient stupéfaits.
 
-Les yeux de Maître Ashen Pine s'agrandirent et il broya le jade qu'il tenait en fixant l'horizon. Son esprit vacillait et son visage devint pâle alors qu'il se léchait inconsciemment les lèvres.
+Les yeux de Maître Pin Cendré s'agrandirent et il broya le jade qu'il tenait en fixant l'horizon. Son esprit vacillait et son visage devint pâle alors qu'il se léchait inconsciemment les lèvres.
 
 « Il... Il... Qui est-il, au juste...? »
 

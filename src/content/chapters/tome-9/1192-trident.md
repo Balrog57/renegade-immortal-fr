@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1192 - Trident
 slug: trident
 ---
-Alors que Wang Lin s'élançait, il tenta de ranger la bouteille dans son espace de stockage, mais un phénomène très étrange se produisit. Malgré tous ses efforts, il ne parvenait pas à l'y insérer. Wang Lin s'en était en fait douté: si elle avait pu être rangée ainsi, Maître Ashen Pine n'aurait pas eu besoin de la tenir en main.
+Alors que Wang Lin s'élançait, il tenta de ranger la bouteille dans son espace de stockage, mais un phénomène très étrange se produisit. Malgré tous ses efforts, il ne parvenait pas à l'y insérer. Wang Lin s'en était en fait douté: si elle avait pu être rangée ainsi, Maître Pin Cendré n'aurait pas eu besoin de la tenir en main.
 
 Sous l'effet des deux talismans de vitesse, il se déplaçait comme un éclair et fonçait droit devant lui.
 
@@ -20,7 +20,7 @@ Soudain, Wang Lin fit volte-face et sa silhouette commença à gonfler. Une aura
 
 Cinq étoiles claires d'Ancien Dieu tournaient rapidement entre ses sourcils, et une sixième commença à poindre. La peau de son corps colossal était rugueuse, marquée par une texture semblable à des runes. Sa stature titanesque inspirait à quiconque le regardait une terreur profonde, ancrée jusque dans l'âme!
 
-Les pupilles de Maître Ashen Pine se rétractèrent. Il n'avait jamais vu un tel sortilège et son esprit fut frappé de stupeur. Les yeux de la vieille femme brillaient d'une lueur vive, empreints d'incrédulité.
+Les pupilles de Maître Pin Cendré se rétractèrent. Il n'avait jamais vu un tel sortilège et son esprit fut frappé de stupeur. Les yeux de la vieille femme brillaient d'une lueur vive, empreints d'incrédulité.
 
 Wang Lin n'hésita pas à revêtir sa véritable forme d'Ancien Dieu. Il se retourna, leva les yeux vers le ciel et envoya un coup de poing direct au doigt du destin céleste qui descendait.
 
@@ -46,19 +46,19 @@ La restriction se referma et se divisa instantanément en trois segments. Elle s
 
 Un rugissement de tonnerre retentit alors que les trois parties de la restriction étaient tranchées en deux. La lumière noire du trident devint encore plus intense et se mua en trois dragons qui dévorèrent la restriction. Une fois celle-ci consumée, le trident trembla et trois marques apparurent sur lui.
 
-On aurait dit que Wang Lin tenait trois dragons noirs. Ces créatures étaient d'une férocité extrême et continuaient de rugir en tordant leurs corps, lançant des regards monstrueux à Maître Ashen Pine et à la vieille femme en vert.
+On aurait dit que Wang Lin tenait trois dragons noirs. Ces créatures étaient d'une férocité extrême et continuaient de rugir en tordant leurs corps, lançant des regards monstrueux à Maître Pin Cendré et à la vieille femme en vert.
 
 Le regard de Wang Lin se posa sur les deux poursuivants. Lorsqu'il les balaya du regard, ce fut comme si un vent glacial avait transpercé leurs corps, leur infligeant un frisson soudain.
 
 « N'importe qui peut s'emparer d'un trésor céleste. De quel vol parlez-vous? Si vous persistez, je vous massacrerai tous les deux, tout comme ce doigt céleste et cette restriction! » Les paroles de Wang Lin résonnèrent alors qu'il se retournait pour s'enfoncer dans la distance.
 
-Cette scène fit suffoquer Maître Ashen Pine et la vieille femme en vert!
+Cette scène fit suffoquer Maître Pin Cendré et la vieille femme en vert!
 
-« Ceci... ceci est... » L'esprit de Maître Ashen Pine trembla et ne put retrouver son calme pendant un long moment. Il avait cultivé durant des éons et connaissait de nombreuses techniques de raffinement corporel, mais aucune n'avait jamais produit un corps d'une telle ampleur. Ce qui le choquait le plus, c'est que ce corps ne semblait pas être une illusion; il était d'un réalisme absolu!
+« Ceci... ceci est... » L'esprit de Maître Pin Cendré trembla et ne put retrouver son calme pendant un long moment. Il avait cultivé durant des éons et connaissait de nombreuses techniques de raffinement corporel, mais aucune n'avait jamais produit un corps d'une telle ampleur. Ce qui le choquait le plus, c'est que ce corps ne semblait pas être une illusion; il était d'un réalisme absolu!
 
 Le visage de la vieille femme en vert était livide alors qu'elle fixait la silhouette gigantesque sur le point de disparaître par-delà la montagne. Elle serra les dents et poursuivit sa course.
 
-Bien que Maître Ashen Pine fût sous le choc, il s'était préparé durant mille ans et avait dépensé de nombreux trésors pour cet instant. Il n'était pas disposé à laisser sa proie lui échapper! Ses yeux devinrent injectés de sang et il se mit également à la poursuite. Sa main droite pointa plusieurs fois son épaule gauche, et un nouveau bras se forma à partir de la lumière aux sept couleurs.
+Bien que Maître Pin Cendré fût sous le choc, il s'était préparé durant mille ans et avait dépensé de nombreux trésors pour cet instant. Il n'était pas disposé à laisser sa proie lui échapper! Ses yeux devinrent injectés de sang et il se mit également à la poursuite. Sa main droite pointa plusieurs fois son épaule gauche, et un nouveau bras se forma à partir de la lumière aux sept couleurs.
 
 La silhouette de Wang Lin franchit la montagne sans marquer de pause, s'éloignant davantage. En un instant, il atteignit la vallée où il avait disposé sa restriction. Il la franchit d'un pas et s'apprêtait à foncer vers l'avant.
 
@@ -70,7 +70,7 @@ Wang Lin poussa un grognement étouffé en percutant la restriction et lutta pou
 
 Simultanément, les yeux de la vieille femme brillèrent d'une lueur étrange et elle accéléra. Elle sauta de la montagne et se rapprocha instantanément, pénétrant dans la restriction de la vallée.
 
-Maître Ashen Pine suivait derrière, mais ses yeux s'illuminèrent; il hésita un instant à l'entrée de la zone et ne s'y engagea pas totalement. Ce n'était pas qu'il avait percé son secret, mais il se méfiait de la vieille femme en vert.
+Maître Pin Cendré suivait derrière, mais ses yeux s'illuminèrent; il hésita un instant à l'entrée de la zone et ne s'y engagea pas totalement. Ce n'était pas qu'il avait percé son secret, mais il se méfiait de la vieille femme en vert.
 
 Au moment précis où celle-ci entra dans la restriction, Wang Lin se retourna brusquement et pointa le vortex du doigt. Le vortex noir changea soudainement de direction et fonça sur la vieille femme!
 
@@ -82,21 +82,21 @@ Le vortex noir enveloppa également la zone, rendant toute visibilité impossibl
 
 À cet instant, la terre trembla; les cris furieux de la vieille femme s'intensifièrent tandis que des éclairs de lumière rouge sang jaillissaient du vortex. Les hurlements continuaient. Il était évident qu'elle peinait à s'échapper; elle traversait une crise de vie ou de mort.
 
-Cette scène changea radicalement l'expression de Maître Ashen Pine. Fort de sa sagesse, il comprit immédiatement que cette restriction avait été placée par la vieille femme, mais qu'elle avait été détournée par Wang Lin. Wang Lin l'avait entraînée dans son propre piège mortel!
+Cette scène changea radicalement l'expression de Maître Pin Cendré. Fort de sa sagesse, il comprit immédiatement que cette restriction avait été placée par la vieille femme, mais qu'elle avait été détournée par Wang Lin. Wang Lin l'avait entraînée dans son propre piège mortel!
 
-« Cet homme est lui aussi un expert en restrictions! » pensa Maître Ashen Pine en contemplant la formation qui emprisonnait totalement la vieille femme. Il pouvait clairement ressentir sa puissance. Il prit une profonde inspiration, mais ne renonça pas pour autant à sa lutte pour la bouteille de jade.
+« Cet homme est lui aussi un expert en restrictions! » pensa Maître Pin Cendré en contemplant la formation qui emprisonnait totalement la vieille femme. Il pouvait clairement ressentir sa puissance. Il prit une profonde inspiration, mais ne renonça pas pour autant à sa lutte pour la bouteille de jade.
 
-« Que la vieille femme Zhao soit piégée est une chance pour moi. Tant que je tue cet homme nommé Lu, je pourrai récupérer le jade. Grâce à ma connaissance des lieux, personne ne pourra me trouver! » Une lueur d'intention meurtrière traversa les yeux de Maître Ashen Pine et il prit une décision instantanée. Il se déplaça autour des restrictions à l'extérieur de la vallée et ses mains formèrent un sceau. Des dizaines de milliers de particules de lumière dorée apparurent et s'élancèrent toutes vers Wang Lin.
+« Que la vieille femme Zhao soit piégée est une chance pour moi. Tant que je tue cet homme nommé Lu, je pourrai récupérer le jade. Grâce à ma connaissance des lieux, personne ne pourra me trouver! » Une lueur d'intention meurtrière traversa les yeux de Maître Pin Cendré et il prit une décision instantanée. Il se déplaça autour des restrictions à l'extérieur de la vallée et ses mains formèrent un sceau. Des dizaines de milliers de particules de lumière dorée apparurent et s'élancèrent toutes vers Wang Lin.
 
 Une froideur glaciale passa dans les yeux de Wang Lin. Il attendait cette opportunité. Il ne pouvait pas combattre deux cultivateurs du stade intermédiaire de la Brisure du Nirvana simultanément. Il devait en blesser ou en piéger un avant de pouvoir lutter sereinement!
 
-Même sur Peng Lai, Maître Ashen Pine était malveillant. Voyant le sortilège approcher, Wang Lin laissa échapper un reniflement froid et agita le trident qu'il tenait. Les trois dragons rugirent et la pluie d'épées fut projetée vers le ciel; elles ne parvinrent pas à atteindre Wang Lin.
+Même sur Peng Lai, Maître Pin Cendré était malveillant. Voyant le sortilège approcher, Wang Lin laissa échapper un reniflement froid et agita le trident qu'il tenait. Les trois dragons rugirent et la pluie d'épées fut projetée vers le ciel; elles ne parvinrent pas à atteindre Wang Lin.
 
-Le regard de Maître Ashen Pine devint venimeux et il tendit la main vers le vide. Une fissure s'ouvrit dans son espace de stockage, d'où jaillit une épée volante. Cette épée était cristalline et, dès son apparition, l'aura d'un trésor Pseudo-Nirvana Void enveloppa les environs.
+Le regard de Maître Pin Cendré devint venimeux et il tendit la main vers le vide. Une fissure s'ouvrit dans son espace de stockage, d'où jaillit une épée volante. Cette épée était cristalline et, dès son apparition, l'aura d'un trésor Pseudo-Vide du Nirvana enveloppa les environs.
 
 Les pupilles de Wang Lin se rétractèrent.
 
-À cet instant, Maître Ashen Pine poussa un rugissement et lança l'épée de cristal. L'arme émit un sifflement brisant le ciel en fonçant vers Wang Lin.
+À cet instant, Maître Pin Cendré poussa un rugissement et lança l'épée de cristal. L'arme émit un sifflement brisant le ciel en fonçant vers Wang Lin.
 
 Son premier véritable combat contre un cultivateur du stade intermédiaire de la Brisure du Nirvana excitait Wang Lin. Il ne recula pas, mais fit plutôt avancer son trident. Les trois dragons s'envolèrent soudainement de l'arme pour tenter d'engloutir l'épée de cristal.
 

@@ -350,7 +350,7 @@ Wang Lin rangea le drapeau d'un geste. Son visage n'était plus livide. En trois
 
 En utilisant toute l'énergie accumulée, son noyau avait repris de la taille. Sa culture n'avait pas seulement été préservée, elle avait atteint le sommet absolu du stade avancé de la Formation du Noyau.
 
-Wang Lin était convaincu que pour se débarrasser définitivement de ce fil, il devait atteindre le stade de l'Âme Naissante afin d'utiliser la technique du "Transfert de Poison" de Hunchback Meng et le projeter sur un autre corps.
+Wang Lin était convaincu que pour se débarrasser définitivement de ce fil, il devait atteindre le stade de l'Âme Naissante afin d'utiliser la technique du "Transfert de Poison" de Bossu Meng et le projeter sur un autre corps.
 
 Il réfléchit un instant, le regard audacieux. Il ferma les yeux pour tenter de localiser le démon Xu Liguo, mais la distance ne lui permit qu'une direction approximative. Il se mit en route immédiatement.
 

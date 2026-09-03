@@ -16,7 +16,7 @@ Le jeune maître du Clan du Dragon Blindé tendit la main dans le vide et, par u
 
 Wang Lin l'attrapa et l'examina de près.
 
-Cette pilule contenait quatre auras. Ces quatre auras étaient extrêmement chaotiques et formaient un étrange équilibre. Une fois cet équilibre rompu, l'explosion résultante serait équivalente à l'attaque d'un cultivateur du Nirvana Scryer.
+Cette pilule contenait quatre auras. Ces quatre auras étaient extrêmement chaotiques et formaient un étrange équilibre. Une fois cet équilibre rompu, l'explosion résultante serait équivalente à l'attaque d'un cultivateur du Scruteur du Nirvana.
 
 « Une pilule d'âme contre cent de ces pilules! » Les paroles de Wang Lin étaient fermes.
 
@@ -60,7 +60,7 @@ Wang Lin sortit 100 pilules d'âme et les lança au vieil homme. Puis, d'un pas,
 
 Lorsqu'il réapparut, Wang Lin se tenait déjà au sommet d'une montagne. D'un geste de la main, les 10 000 Pilules d'Effondrement du Dragon apparurent autour de lui.
 
-Le regard de Wang Lin devint glacial et il eut un ricanement méprisant: « Bien que les pilules d'âme soient coûteuses, elles n'ont pas la même valeur que cent de ces pilules, chacune étant équivalente à l'attaque d'un cultivateur du Nirvana Scryer! Clan du Dragon Blindé, puisque vous voulez vous impliquer, ne me reprochez pas ma cruauté! »
+Le regard de Wang Lin devint glacial et il eut un ricanement méprisant: « Bien que les pilules d'âme soient coûteuses, elles n'ont pas la même valeur que cent de ces pilules, chacune étant équivalente à l'attaque d'un cultivateur du Scruteur du Nirvana! Clan du Dragon Blindé, puisque vous voulez vous impliquer, ne me reprochez pas ma cruauté! »
 
 Il sourit et agita sa main droite, libérant son aura de culture. Le tatouage de feu dans son œil gauche s'élança et une mer de flammes enveloppa immédiatement les 10 000 pilules.
 

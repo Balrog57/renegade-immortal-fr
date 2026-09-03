@@ -18,7 +18,7 @@ Le réseau de transfert scintilla alors que l'homme en sortait. À cet instant, 
 
 La voix de l'homme était calme, mais lorsqu'il parla, ce fut comme si le tonnerre avait explosé. Tous les cultivateurs présents étaient les élites du Système Stellaire Allheaven. En entendant ces paroles, leurs regards se tournèrent vers lui avec hostilité.
 
-L'expression de Wang Lin resta sereine et il détourna les yeux. Cet homme possédait le même niveau de culture que lui, tous deux étant au stade initial du Nirvana Scryer. Cependant, Wang Lin éprouvait un étrange pressentiment à son égard.
+L'expression de Wang Lin resta sereine et il détourna les yeux. Cet homme possédait le même niveau de culture que lui, tous deux étant au stade initial du Scruteur du Nirvana. Cependant, Wang Lin éprouvait un étrange pressentiment à son égard.
 
 Il était certain de ne jamais avoir croisé cet individu auparavant. Tandis qu'il réfléchissait, les yeux de l'homme en robe blanche s'illuminèrent; il scruta la foule et fixa Wang Lin.
 
@@ -32,7 +32,7 @@ Ce fut comme si deux épées acérées s'étaient croisées en un éclair. Les d
 
 Les yeux de l'homme en robe blanche pétillèrent et il observa attentivement Wang Lin. Lorsque leurs sens divins s'étaient affrontés, non seulement il n'avait pu subjuguer Wang Lin, mais il avait eu la sensation que son propre sens divin allait être percé.
 
-L'expression de Wang Lin demeura imperturbable. Bien que l'autre personne ait le même niveau de culture que lui, au stade initial du Nirvana Scryer, une force étrange résidait dans son sens divin.
+L'expression de Wang Lin demeura imperturbable. Bien que l'autre personne ait le même niveau de culture que lui, au stade initial du Scruteur du Nirvana, une force étrange résidait dans son sens divin.
 
 Peu de personnes avaient pu détecter ce contact; ils n'étaient que quatre au total!
 
@@ -48,7 +48,7 @@ La dernière personne était naturellement celle qui se tenait aux côtés de Wa
 
 À ce moment précis, le ciel devint rouge et une masse de nuages se rassembla. Ces nuages se condensèrent au-dessus de l'assemblée pour former un vieil homme. Il avait les cheveux blancs et dégageait l'aura d'un être céleste. À son apparition, le tonnerre résonna sous ses pieds, comme s'il marchait sur la foudre.
 
-« Je suis l'émissaire de bienvenue du Temple Céleste du Tonnerre. Est-ce toi qui as tué les autres participants du Domaine Est? » Après l'apparition du vieil homme, une aura puissante commença à se propager. D'après l'énergie d'origine qu'il libérait, il se trouvait au stade intermédiaire du Nirvana Scryer!
+« Je suis l'émissaire de bienvenue du Temple Céleste du Tonnerre. Est-ce toi qui as tué les autres participants du Domaine Est? » Après l'apparition du vieil homme, une aura puissante commença à se propager. D'après l'énergie d'origine qu'il libérait, il se trouvait au stade intermédiaire du Scruteur du Nirvana!
 
 Il fixa l'homme en robe blanche et sa voix résonna avec majesté.
 

@@ -82,7 +82,7 @@ Ces trois ombres restèrent là, fixant intensément Wang Lin qui avançait.
 
 « Quels que soient tes griefs envers l'Ancient Shi, cela ne concerne pas notre Ancient Dao! » Le vieil homme ressentait une amertume profonde. Il ignorait pourquoi Wang Lin marchait vers eux.
 
-« Le groupe de trois de Liang Yun possède une culture équivalente à l'Arcane Void. Peut-être que la différence de lignée crée des disparités. Quant à ce vieil homme aux 27 étoiles, sa culture équivaut au niveau du Void Tribulant. »
+« Le groupe de trois de Liang Yun possède une culture équivalente au Vide Arcanique. Peut-être que la différence de lignée crée des disparités. Quant à ce vieil homme aux 27 étoiles, sa culture équivaut au niveau du Tribulant du Vide. »
 
 « Lorsque j'étais dans le monde des cavernes, mes 27 étoiles n'étaient pas complètes; elles se sont progressivement stabilisées durant mes centaines d'années au sein du clan céleste, mais la puissance que je peux déployer est bien supérieure à celle de cet homme. »
 

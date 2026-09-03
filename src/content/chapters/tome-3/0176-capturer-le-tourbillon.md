@@ -6,9 +6,9 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 176 - Capturing the wind pack
 slug: capturer-le-tourbillon
 ---
-Lorsque Hunchback Meng fut emporté par la tornade royale, il fut submergé par une vague de haine.
+Lorsque Bossu Meng fut emporté par la tornade royale, il fut submergé par une vague de haine.
 
-Le corps de Wang Lin se mua en un nuage de fumée alors qu'il s'échappait prestement du groupe de tornades. Quelques tourbillons isolés tentèrent de l'intercepter, comme ils l'avaient fait avec Hunchback Meng.
+Le corps de Wang Lin se mua en un nuage de fumée alors qu'il s'échappait prestement du groupe de tornades. Quelques tourbillons isolés tentèrent de l'intercepter, comme ils l'avaient fait avec Bossu Meng.
 
 Wang Lin eut un ricanement méprisant. Ses yeux demeuraient parfaitement calmes, sans la moindre trace de panique. Alors que le groupe de tornades se rapprochait, l'une d'elles accéléra soudainement pour se placer aux côtés de Wang Lin. Elle l'enveloppa et s'élança rapidement hors de l'encerclement.
 
@@ -20,7 +20,7 @@ S'il avait pu s'échapper aussi rapidement, c'était parce que, jusqu'à cet ins
 
 La créature royale balaya les environs du regard avant de se poser dans la tornade de Wang Lin. Elle afficha une expression confuse avant de lâcher un rugissement tonitruant. Toutes les tornades se mirent à pourchasser Wang Lin.
 
-Quant à la tornade royale, elle arborait une étrange expression sur son visage tandis qu'elle transportait Hunchback Meng et disparaissait lentement dans la direction opposée.
+Quant à la tornade royale, elle arborait une étrange expression sur son visage tandis qu'elle transportait Bossu Meng et disparaissait lentement dans la direction opposée.
 
 La différence entre les tornades était considérable; elle dépendait du nombre de petites créatures qu'elles contenaient. Plus leur nombre était élevé, plus la tornade allait vite. En conséquence, les tourbillons formèrent une ligne en poursuivant Wang Lin. La tornade que contrôlait Wang Lin possédait un nombre décent de petites créatures, sa vitesse n'était donc pas lente non plus.
 
@@ -34,7 +34,7 @@ Wang Lin ne marqua pas de pause. Sa main pointa rapidement et un rayon de lumiè
 
 À ce moment-là, il vit les sens divins derrière lui commencer à fusionner; il agita donc la main et l'épée cristalline revint vers lui en un éclair. Ce n'était pas que Wang Lin refusait le combat, mais ces petites créatures étaient désormais sur leurs gardes. Il avait réussi à les prendre par surprise auparavant, mais s'il continuait, l'épée volante serait bloquée par les sens divins fusionnés lorsqu'elle approcherait d'une tornade.
 
-Il ne voulait pas finir comme Hunchback Meng, à se battre jusqu'à ce que son trésor vital se brise en deux.
+Il ne voulait pas finir comme Bossu Meng, à se battre jusqu'à ce que son trésor vital se brise en deux.
 
 Wang Lin eut un ricanement tandis que l'épée volante revenait vers lui. Il continua sa fuite. Bientôt, la distance entre lui et les tornades s'élargit. Toutes les tornades qu'il avait ciblées étaient les plus grandes, celles qui étaient légèrement plus rapides que lui.
 
@@ -44,7 +44,7 @@ Le regard de Wang Lin restait serein. Lorsque les éclairs de sens divin arrivè
 
 Cette attaque produisit une onde de choc qui propulsa la tornade de Wang Lin vers l'avant, faisant manquer leur cible aux éclairs de sens divin. Lorsque les petites créatures poursuivant Wang Lin fusionnèrent leurs sens divins pour une nouvelle attaque, celui-ci était déjà loin d'elles.
 
-Alors que le grand vortex céleste apparut à la vue de Wang Lin, ses yeux se mirent à briller. En vérité, s'il n'avait pas décidé de voler la montre de Hunchback Meng, il serait déjà entré en toute sécurité dans la seconde épreuve.
+Alors que le grand vortex céleste apparut à la vue de Wang Lin, ses yeux se mirent à briller. En vérité, s'il n'avait pas décidé de voler la montre de Bossu Meng, il serait déjà entré en toute sécurité dans la seconde épreuve.
 
 Même maintenant, s'il renonçait à se cacher dans la tornade et qu'il chargeait de toutes ses forces, il aurait 80 % de chances de réussir, mais ce n'était pas ce que Wang Lin prévoyait de faire.
 
@@ -80,9 +80,9 @@ En un clin d'œil, Wang Lin et la quarantaine de tornades furent aspirés dans l
 
 À ce stade, le reste des tornades avait rattrapé leur retard, mais lorsqu'elles touchèrent le vortex, elles furent repoussées. De plus en plus de tourbillons s'assemblèrent, mais après avoir tenté longuement, ils ne parvinrent toujours pas à pénétrer dans le vortex. Après un certain temps, ils commencèrent lentement à se disperser.
 
-La première épreuve, l'épreuve de la terre, retrouva progressivement son calme. Dans un lieu inconnu de cette épreuve, Hunchback Meng flottait dans les airs. Son corps n'était qu'un amas sanglant et ses yeux étaient emplis de confusion. Devant lui se trouvait le cadavre de la créature royale. L'os de doigt doré sur sa tête apparaissait lentement.
+La première épreuve, l'épreuve de la terre, retrouva progressivement son calme. Dans un lieu inconnu de cette épreuve, Bossu Meng flottait dans les airs. Son corps n'était qu'un amas sanglant et ses yeux étaient emplis de confusion. Devant lui se trouvait le cadavre de la créature royale. L'os de doigt doré sur sa tête apparaissait lentement.
 
-Il pointait vers le front de Hunchback Meng...
+Il pointait vers le front de Bossu Meng...
 
 Quant à Wang Lin, après être sorti du vortex, il déploya rapidement son Sens Divin et fut stupéfait. L'endroit où il se trouvait était un monde gris, n'offrant rien d'autre qu'un pont de pierre noire.
 

@@ -90,16 +90,16 @@ L'orage balaya les étoiles, et un visage gigantesque se dessina vaguement au se
 
 Son visage restait dissimulé dans l'orage alors que celui-ci progressait. Aucun membre du Clan du Tonnerre Dispersé ne put échapper à la mort face à cette tempête!
 
-Un vieil homme Nirvana Scryer du Clan du Tonnerre Dispersé traversait l'espace. Soudain, son corps trembla et il se retourna brusquement. Ses pupilles se rétractèrent, ses yeux remplis d'incrédulité.
+Un vieil homme Scruteur du Nirvana du Clan du Tonnerre Dispersé traversait l'espace. Soudain, son corps trembla et il se retourna brusquement. Ses pupilles se rétractèrent, ses yeux remplis d'incrédulité.
 
 Avant qu'il ne puisse fuir, l'orage passa en trombe et l'engloutit dans sa course!
 
-Alors que Wang Lin entamait son massacre, ni les cultivateurs Yin et Yang, ni ceux du Nirvana Scryer ne purent résister à l'orage et furent tous dévorés!
+Alors que Wang Lin entamait son massacre, ni les cultivateurs Yin et Yang, ni ceux du Scruteur du Nirvana ne purent résister à l'orage et furent tous dévorés!
 
 En seulement quelques jours, près de mille cultivateurs avaient été tués par Wang Lin, et tout ce qui se trouvait sur leurs jetons lui appartenait. Il avait également obtenu quatre éclairs de Tonnerre Spirituel complets grâce à eux!
 
 Ces éclairs de Tonnerre Spirituel furent tous absorbés par son œil droit, qui continuait de croître!
 
-Le quatrième jour après que l'orage de Wang Lin eut englouti trois cultivateurs Nirvana Scryer, son jeton indiquant une rétribution divine se mit à trembler alors qu'il s'apprêtait à bouger. Cependant, les vibrations cessèrent net, car quelqu'un d'autre était déjà parti avant lui!
+Le quatrième jour après que l'orage de Wang Lin eut englouti trois cultivateurs Scruteur du Nirvana, son jeton indiquant une rétribution divine se mit à trembler alors qu'il s'apprêtait à bouger. Cependant, les vibrations cessèrent net, car quelqu'un d'autre était déjà parti avant lui!
 
 L'orage se contracta violemment pour former un puissant vortex, et Wang Lin en sortit. Ses yeux brillèrent alors qu'il avançait, le jeton à la main, avant de disparaître!

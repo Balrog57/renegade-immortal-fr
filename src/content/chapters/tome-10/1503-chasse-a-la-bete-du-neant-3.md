@@ -110,7 +110,7 @@ Il contenait les pouvoirs de Ling Dong et de Zhou Jin; c'était la puissance com
 
 Le feu aux neuf couleurs dans son œil gauche brûla et devint une tempête de flammes qui se fondit également dans ce coup de poing!
 
-Cette attaque était infiniment proche de la puissance totale d'un cultivateur au sommet du stade Nirvana Void! Elle approchait du second vide, le Vide Spirituel!
+Cette attaque était infiniment proche de la puissance totale d'un cultivateur au sommet du stade Vide du Nirvana! Elle approchait du second vide, le Vide Spirituel!
 
 Le coup percuta la gueule fantôme dans un fracas assourdissant. La Bête du Néant rugit, et la gueule fantôme trembla, montrant des signes d'effondrement.
 

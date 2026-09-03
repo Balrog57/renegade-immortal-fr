@@ -68,7 +68,7 @@ La planète Tian Yun apparut au loin dans le champ de vision de Wang Lin. En con
 
 « En un clin d'œil, des centaines d'années se sont écoulées... » Wang Lin secoua la tête et avança.
 
-« Lors de ma première venue, je n'étais qu'un cultivateur en Transformation de l'Âme. La seconde fois que je viens, je peux combattre des cultivateurs au stade du Nettoyage du Nirvana! » Wang Lin progressait, mais fut soudainement surpris. Il s'arrêta net et fixa la planète Tian Yun devant lui.
+« Lors de ma première venue, je n'étais qu'un cultivateur en Transformation de l'Âme. La seconde fois que je viens, je peux combattre des cultivateurs au stade du Purificateur du Nirvana! » Wang Lin progressait, mais fut soudainement surpris. Il s'arrêta net et fixa la planète Tian Yun devant lui.
 
 Il vit des éclats de lumière dorée survoler la planète. C'étaient des rayons d'énergie d'épée entrelacés. En regardant de plus près, ils convergeaient tous vers la Secte du Destin Céleste.
 
@@ -94,7 +94,7 @@ La dernière personne était une femme, d'âge mûr. Elle ne portait pas de paru
 
 Ling Tianhou déclara: « Omniscient, autrefois votre disciple Wang Lin a pris le jeton, et vous avez alors annoncé qu'un mystère des cieux serait révélé aujourd'hui. Ce vieil homme veut voir ce que vous appelez votre mystère des cieux! »
 
-À l'époque, tous ces vieux monstres avaient envoyé Greed pour retrouver Wang Lin. Cependant, plus aucune nouvelle n'était parvenue, et la plupart des sceaux laissés sur Greed avaient disparu. La situation à la Terre des Esprits Démoniaques étant cruciale, les vieux monstres étaient venus chercher l'Omniscient, mus par l'anxiété. Après tout, Wang Lin était un membre de la Secte du Destin Céleste.
+À l'époque, tous ces vieux monstres avaient envoyé Cupidité pour retrouver Wang Lin. Cependant, plus aucune nouvelle n'était parvenue, et la plupart des sceaux laissés sur Cupidité avaient disparu. La situation à la Terre des Esprits Démoniaques étant cruciale, les vieux monstres étaient venus chercher l'Omniscient, mus par l'anxiété. Après tout, Wang Lin était un membre de la Secte du Destin Céleste.
 
 À ce moment-là, l'Omniscient avait gardé une expression sereine et n'avait prononcé qu'une seule phrase:
 

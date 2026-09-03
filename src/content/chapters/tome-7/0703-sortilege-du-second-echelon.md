@@ -34,7 +34,7 @@ Les yeux de Wang Lin étaient injectés de sang alors qu'il fixait le Daoïste d
 
 Alors que le Daoïste du Tonnerre reculait, son expression changea une fois de plus. Il sentit une aura terrifiante descendre des cieux.
 
-« Un sortilège d'énergie originelle! Comment peux-tu utiliser un sortilège d'énergie originelle?! » Tandis que son visage se décomposait, il fut saisi par une crise de vie ou de mort. Le Daoïste du Tonnerre était inférieur à l'ancêtre de la famille Huan. Après tout, le niveau de culture de cet ancêtre se situait initialement au début du stade Nirvana Scryer. Même si sa puissance avait décliné, il restait bien plus redoutable que n'importe quel cultivateur ordinaire de l'Illusoire Yin et du Yang.
+« Un sortilège d'énergie originelle! Comment peux-tu utiliser un sortilège d'énergie originelle?! » Tandis que son visage se décomposait, il fut saisi par une crise de vie ou de mort. Le Daoïste du Tonnerre était inférieur à l'ancêtre de la famille Huan. Après tout, le niveau de culture de cet ancêtre se situait initialement au début du stade Scruteur du Nirvana. Même si sa puissance avait décliné, il restait bien plus redoutable que n'importe quel cultivateur ordinaire de l'Illusoire Yin et du Yang.
 
 Saisi par l'urgence, il pointa son doigt entre ses sourcils et ses yeux projetèrent une lumière blanche. Cette lueur était douce, mais contenait un fragment d'énergie originelle du monde. En un instant, une portion de cette énergie jaillit du corps du Daoïste du Tonnerre pour s'échapper par le sommet de son crâne.
 

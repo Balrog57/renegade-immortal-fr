@@ -7,13 +7,13 @@ en: Chapter 717 - Escaping alive
 slug: sechapper-vivant
 ---
 
-Tous les cheveux de Greed se hérissèrent. Il ne s'était jamais senti aussi proche de la mort, même lorsqu'il avait été capturé par le couple céleste Wang Wei et Hu Juan.
+Tous les cheveux de Cupidité se hérissèrent. Il ne s'était jamais senti aussi proche de la mort, même lorsqu'il avait été capturé par le couple céleste Wang Wei et Hu Juan.
 
 Ce doigt illusoire semblait être issu du Dao céleste; il était comme une extension des cieux eux-mêmes.
 
 Ce n'était pas un simple Dao qu'un cultivateur pouvait appréhender. En réalité, il était infiniment plus puissant que tout ce qu'un individu pouvait concevoir!
 
-Bien que le sommet de la culture de Greed ne fût que l'Illusion Yin, ses connexions étaient extraordinaires. Il connaissait de nombreux êtres du second échelon, et possédait donc de nombreux secrets sur ce stade de culture.
+Bien que le sommet de la culture de Cupidité ne fût que l'Illusion Yin, ses connexions étaient extraordinaires. Il connaissait de nombreux êtres du second échelon, et possédait donc de nombreux secrets sur ce stade de culture.
 
 Il fut capable de discerner d'un seul regard le Dao terrifiant contenu dans ce doigt.
 
@@ -21,49 +21,49 @@ Un doigt pointa vers l'avant. Cela ressemblait à une brise légère, sans la mo
 
 Cependant, ce geste fit se rétracter les pupilles de Wang Lin. Il eut la sensation que son âme originelle allait s'extirper de son corps pour percuter ce doigt.
 
-Greed étant le plus proche, cette sensation était cent fois plus intense pour lui. Sans aucune hésitation, il se réfugia derrière l'Écran Montagne et Rivière.
+Cupidité étant le plus proche, cette sensation était cent fois plus intense pour lui. Sans aucune hésitation, il se réfugia derrière l'Écran Montagne et Rivière.
 
 À cet instant, l'Écran Montagne et Rivière prit possession de la zone, comme si l'espace avait disparu. Pourtant, malgré cela, le doigt perça l'écran tout en s'abattant avec force.
 
-Des bruits de craquements résonnèrent et d'innombrables fissures apparurent sur l'écran. Greed cracha une large bouffée de sang en battant en retraite précipitamment; il continuait de saigner abondamment, ses blessures étant trop graves.
+Des bruits de craquements résonnèrent et d'innombrables fissures apparurent sur l'écran. Cupidité cracha une large bouffée de sang en battant en retraite précipitamment; il continuait de saigner abondamment, ses blessures étant trop graves.
 
-Le doigt de l'ancien dieu ne s'arrêta pas et s'abattit sur Greed.
+Le doigt de l'ancien dieu ne s'arrêta pas et s'abattit sur Cupidité.
 
-Les yeux de Wang Lin s'illuminèrent alors qu'il fixait l'Écran Montagne et Rivière qui, bien que fissuré, conservait toute sa puissance. Un éclat étrange traversa son regard. En voyant le doigt se diriger vers Greed, Wang Lin serra les dents. Il abandonna l'os avec la garde céleste et chargea comme s'il se téléportait.
+Les yeux de Wang Lin s'illuminèrent alors qu'il fixait l'Écran Montagne et Rivière qui, bien que fissuré, conservait toute sa puissance. Un éclat étrange traversa son regard. En voyant le doigt se diriger vers Cupidité, Wang Lin serra les dents. Il abandonna l'os avec la garde céleste et chargea comme s'il se téléportait.
 
 Sa vitesse était prodigieuse; il arriva aux côtés de l'écran en un clin d'œil.
 
-À cet instant, Greed ne se souciait plus que Wang Lin lui dérobe son trésor; il se déplaçait à pleine vitesse pour fuir.
+À cet instant, Cupidité ne se souciait plus que Wang Lin lui dérobe son trésor; il se déplaçait à pleine vitesse pour fuir.
 
 Le doigt de l'ancien dieu s'arrêta soudainement et pivota lentement, comme s'il verrouillait sa cible sur Wang Lin.
 
 Le cuir chevelu de Wang Lin picota. Sans hésiter, il rassembla toute son énergie spirituelle céleste dans son doigt droit et hurla: « Arrête! »
 
-Sa cible n'était pas le doigt de l'ancien dieu, mais Greed!
+Sa cible n'était pas le doigt de l'ancien dieu, mais Cupidité!
 
-Les yeux de Greed devinrent injectés de sang et son corps se figea un instant. Il jura intérieurement. Bien que ce ne fût qu'un bref arrêt, cela attira l'attention du doigt de l'ancien dieu.
+Les yeux de Cupidité devinrent injectés de sang et son corps se figea un instant. Il jura intérieurement. Bien que ce ne fût qu'un bref arrêt, cela attira l'attention du doigt de l'ancien dieu.
 
 Saisissant cette opportunité, Wang Lin saisit l'écran et le rangea dans son sac de stockage, puis battit en retraite sans la moindre hésitation.
 
 Son cœur martelait sa poitrine. Le danger n'était pas encore passé. Il se rua à une vitesse extrême vers la garde céleste.
 
-La garde céleste n'avait cessé de fuir, mais face au gigantesque Serpent Moongazer et au doigt de l'ancien dieu, sa vitesse était manifestement insuffisante.
+La garde céleste n'avait cessé de fuir, mais face au gigantesque Serpent aux yeux de lune et au doigt de l'ancien dieu, sa vitesse était manifestement insuffisante.
 
-Le visage de Greed était d'une pâleur extrême. Alors que le doigt de l'ancien dieu approchait, Greed frappa immédiatement son sac de stockage, et une couronne étincelante apparut. Elle ressemblait à la couronne d'un empereur mortel, sertie de cinq joyaux. Les pouvoirs du métal, du bois, de l'eau, du feu et de la terre jaillirent soudainement de la couronne.
+Le visage de Cupidité était d'une pâleur extrême. Alors que le doigt de l'ancien dieu approchait, Cupidité frappa immédiatement son sac de stockage, et une couronne étincelante apparut. Elle ressemblait à la couronne d'un empereur mortel, sertie de cinq joyaux. Les pouvoirs du métal, du bois, de l'eau, du feu et de la terre jaillirent soudainement de la couronne.
 
-Il se la posa sur la tête sans hésiter. La lumière dorée de la couronne était aveuglante, mais elle enveloppa Greed comme une nappe d'eau. Soudain, une ombre immense surplomba son corps. Cette silhouette indistincte portait une robe de dragon, et un sentiment de majesté envahit soudainement les environs.
+Il se la posa sur la tête sans hésiter. La lumière dorée de la couronne était aveuglante, mais elle enveloppa Cupidité comme une nappe d'eau. Soudain, une ombre immense surplomba son corps. Cette silhouette indistincte portait une robe de dragon, et un sentiment de majesté envahit soudainement les environs.
 
-Greed hurla: « Pour activer la Couronne de l'Empereur Céleste, ce vieil homme a dû tuer 9 999 empereurs mortels et fusionner leurs âmes à l'intérieur afin d'en remplir les exigences! Je veux voir si elle peut résister à ton doigt, vile bête! » L'illusion du doigt de l'ancien dieu s'abattit sur Greed.
+Cupidité hurla: « Pour activer la Couronne de l'Empereur Céleste, ce vieil homme a dû tuer 9 999 empereurs mortels et fusionner leurs âmes à l'intérieur afin d'en remplir les exigences! Je veux voir si elle peut résister à ton doigt, vile bête! » L'illusion du doigt de l'ancien dieu s'abattit sur Cupidité.
 
 Un choc qui ébranla les cieux résonna dans la zone.
 
-Le doigt de l'ancien dieu ne faiblit pas. Après avoir écrasé Greed, il se retira aussitôt.
+Le doigt de l'ancien dieu ne faiblit pas. Après avoir écrasé Cupidité, il se retira aussitôt.
 
-Quant à Greed, son visage était plus pâle que jamais et la lumière dorée qui l'entourait s'effondra. Les âmes des 9 999 empereurs disparurent soudainement et la couronne tomba de sa tête. Chose étrange: la couronne était parfaitement intacte après avoir encaissé le coup du doigt de l'ancien dieu.
+Quant à Cupidité, son visage était plus pâle que jamais et la lumière dorée qui l'entourait s'effondra. Les âmes des 9 999 empereurs disparurent soudainement et la couronne tomba de sa tête. Chose étrange: la couronne était parfaitement intacte après avoir encaissé le coup du doigt de l'ancien dieu.
 
-Une force dévastatrice s'engouffra dans le corps de Greed avec une violence folle. Son corps trembla, puis émit une lumière arc-en-ciel avant d'être projeté comme une météorite. On ignorait s'il était encore en vie lorsqu'il disparut parmi les étoiles.
+Une force dévastatrice s'engouffra dans le corps de Cupidité avec une violence folle. Son corps trembla, puis émit une lumière arc-en-ciel avant d'être projeté comme une météorite. On ignorait s'il était encore en vie lorsqu'il disparut parmi les étoiles.
 
-Les yeux de Wang Lin étaient emplis de terreur. Alors que le doigt de l'ancien dieu s'abattait sur Greed, il n'avait pas cessé de courir pour fuir. Cependant, à cet instant, l'illusion du doigt de l'ancien dieu apparut soudainement derrière lui.
+Les yeux de Wang Lin étaient emplis de terreur. Alors que le doigt de l'ancien dieu s'abattait sur Cupidité, il n'avait pas cessé de courir pour fuir. Cependant, à cet instant, l'illusion du doigt de l'ancien dieu apparut soudainement derrière lui.
 
 L'aura familière d'un ancien dieu enveloppa brusquement la zone.
 
@@ -89,7 +89,7 @@ L'énergie d'épée de Ling Tianhou possédait une certaine puissance, ce qui ra
 
 Une douleur atroce irradia de sa poitrine pour se propager instantanément dans tout son corps. À cet instant, le corps de Wang Lin s'effondra!
 
-D'abord sa chair, puis ses os se transformèrent en poussière et disparurent sans laisser de trace. Le doigt de l'ancien dieu avait détruit le corps de Wang Lin, mais il ne s'arrêta pas là: il s'attaqua ensuite à son âme originelle. Ce Serpent Moongazer était résolu à l'anéantir totalement.
+D'abord sa chair, puis ses os se transformèrent en poussière et disparurent sans laisser de trace. Le doigt de l'ancien dieu avait détruit le corps de Wang Lin, mais il ne s'arrêta pas là: il s'attaqua ensuite à son âme originelle. Ce Serpent aux yeux de lune était résolu à l'anéantir totalement.
 
 À cet instant précis, Wang Lin ressentit soudain cette sensation qui, après avoir dévoré ce dragon de tonnerre ancien, l'avait empêché de laisser son âme originelle quitter son corps. C'était comme si une fine barrière le bloquait.
 
@@ -103,45 +103,45 @@ Dans son rugissement, d'innombrables sphères de tonnerre apparurent et attaquè
 
 Profitant du ralentissement du doigt, Wang Lin saisit le sac de stockage qui était tombé lors de l'effondrement de son corps. Une fois son âme originelle transformée en dragon de tonnerre, il devint plusieurs fois plus rapide que lorsqu'il avait un corps physique. Il empoigna la garde céleste et la moitié de l'os avant de s'enfuir prestement.
 
-En s'échappant, il fut envahi par un sentiment d'amertume. Pourtant, à cet instant même, il vit la couronne laissée par Greed flotter dans les airs.
+En s'échappant, il fut envahi par un sentiment d'amertume. Pourtant, à cet instant même, il vit la couronne laissée par Cupidité flotter dans les airs.
 
 Son cœur rata un battement; il glissa la couronne dans son sac et partit sans même un regard en arrière.
 
-Le doigt de l'ancien dieu se dissipa lentement. Le gigantesque Serpent Moongazer observa Wang Lin au loin, semblant réfléchir. Il regarda ensuite le fourneau que ses tentacules retenaient, puis, après une courte hésitation, il se lança à la poursuite de Wang Lin.
+Le doigt de l'ancien dieu se dissipa lentement. Le gigantesque Serpent aux yeux de lune observa Wang Lin au loin, semblant réfléchir. Il regarda ensuite le fourneau que ses tentacules retenaient, puis, après une courte hésitation, il se lança à la poursuite de Wang Lin.
 
 Wang Lin ne put s'empêcher de maudire la situation en réalisant que le serpent le traquait.
 
-Il devait admettre qu'il avait été imprudent cette fois. Il n'avait pas prévu que l'apparition de Greed provoquerait un tel éveil chez la créature.
+Il devait admettre qu'il avait été imprudent cette fois. Il n'avait pas prévu que l'apparition de Cupidité provoquerait un tel éveil chez la créature.
 
 Autrement, selon ses calculs initiaux, il ne se serait pas retrouvé dans un état aussi pitoyable.
 
 Il avait trop perdu lors de ce périple: la formation d'épée des sept étoiles était détruite, la bannière de restriction s'était effondrée, un rayon de l'énergie d'épée de Ling Tianhou avait été consommé, et son propre corps avait été réduit en poussière, ne laissant que son âme originelle.
 
-Cependant, sa récolte était aussi immense. Son âme originelle était enfin libre, il possédait la moitié de l'os du Serpent Moongazer, la montagne céleste, l'Écran Montagne et Rivière, et enfin cette couronne!
+Cependant, sa récolte était aussi immense. Son âme originelle était enfin libre, il possédait la moitié de l'os du Serpent aux yeux de lune, la montagne céleste, l'Écran Montagne et Rivière, et enfin cette couronne!
 
-Il ne savait s'il avait gagné ou perdu; il ne put qu'émettre un soupir avant d'accélérer encore davantage. Le Serpent Moongazer approchait lentement, couvrant des distances phénoménales à chaque mouvement.
+Il ne savait s'il avait gagné ou perdu; il ne put qu'émettre un soupir avant d'accélérer encore davantage. Le Serpent aux yeux de lune approchait lentement, couvrant des distances phénoménales à chaque mouvement.
 
 Si Wang Lin avait encore eu son corps, il aurait déjà été capturé. Mais sans enveloppe physique, voler sous sa forme d'âme originelle était bien plus rapide.
 
-Tandis qu'il fuyait, l'âme originelle de Wang Lin pénétra dans la boussole des étoiles et s'échappa comme un fou avec la moitié de l'os du Serpent Moongazer.
+Tandis qu'il fuyait, l'âme originelle de Wang Lin pénétra dans la boussole des étoiles et s'échappa comme un fou avec la moitié de l'os du Serpent aux yeux de lune.
 
 Wang Lin n'avait aucune confiance dans sa capacité à échapper une seconde fois au doigt de l'ancien dieu par la seule force du destin. Si le serpent le rattrapait, il serait mort à coup sûr!
 
-Une fois son âme originelle entrée dans la boussole des étoiles, sa vitesse atteignit un niveau inimaginable, parvenant à s'équilibrer avec celle du Serpent Moongazer. Bien qu'il n'ait pas encore échappé à la poursuite, il réussit à maintenir une certaine distance.
+Une fois son âme originelle entrée dans la boussole des étoiles, sa vitesse atteignit un niveau inimaginable, parvenant à s'équilibrer avec celle du Serpent aux yeux de lune. Bien qu'il n'ait pas encore échappé à la poursuite, il réussit à maintenir une certaine distance.
 
 Cependant, ce mode de déplacement était épuisant pour son âme originelle. Déjà gravement blessée, celle-ci voyait ses blessures s'aggraver et sa lumière faiblir.
 
 Wang Lin traversa le domaine Nord et atteignit le domaine Sud du système stellaire d'Allheaven!
 
-Se déplacer à pleine vitesse sur une aussi longue période affaiblit progressivement son âme originelle, qui ne pouvait plus tenir longtemps. Cependant, le Serpent Moongazer ralentit également avant de s'arrêter net à la frontière du domaine Sud. Il émit quelques grondements étouffés, mais n'osa pas franchir la limite.
+Se déplacer à pleine vitesse sur une aussi longue période affaiblit progressivement son âme originelle, qui ne pouvait plus tenir longtemps. Cependant, le Serpent aux yeux de lune ralentit également avant de s'arrêter net à la frontière du domaine Sud. Il émit quelques grondements étouffés, mais n'osa pas franchir la limite.
 
 Chapitre 717 (2) - La Prison de Tonnerre
 
-Wang Lin fut surpris, puis immédiatement envahi par l'extase. Il accéléra sa course et, après un long moment, il remarqua que le Serpent Moongazer ne le poursuivait plus; la distance entre eux ne cessait de croître.
+Wang Lin fut surpris, puis immédiatement envahi par l'extase. Il accéléra sa course et, après un long moment, il remarqua que le Serpent aux yeux de lune ne le poursuivait plus; la distance entre eux ne cessait de croître.
 
 Wang Lin poussa un grand soupir de soulagement, ses yeux trahissant encore une trace de peur persistante.
 
-« Ce Serpent Moongazer est tout simplement trop puissant. S'il n'avait pas été si lent, je serais déjà mort! Comparé à celui dont Tu Si avait le souvenir, il n'y avait rien de similaire entre les deux, hormis leur apparence. Comment ce Serpent Moongazer peut-il être aussi terrifiant?! »
+« Ce Serpent aux yeux de lune est tout simplement trop puissant. S'il n'avait pas été si lent, je serais déjà mort! Comparé à celui dont Tu Si avait le souvenir, il n'y avait rien de similaire entre les deux, hormis leur apparence. Comment ce Serpent aux yeux de lune peut-il être aussi terrifiant?! »
 
 Wang Lin se retourna vers le domaine nord et commença à réfléchir.
 
@@ -157,15 +157,15 @@ Après avoir médité un instant, Wang Lin cessa d'hésiter et s'élança en ava
 
 Les yeux de Wang Lin brillèrent alors qu'il fonçait vers l'espace infini qui s'étendait devant lui.
 
-Le Serpent Moongazer regarda au loin, ses yeux immenses trahissant une hésitation. Après un long moment, son corps colossal commença à battre en retraite. Il semblait se souvenir que quelqu'un l'avait averti de ne pas s'aventurer ici.
+Le Serpent aux yeux de lune regarda au loin, ses yeux immenses trahissant une hésitation. Après un long moment, son corps colossal commença à battre en retraite. Il semblait se souvenir que quelqu'un l'avait averti de ne pas s'aventurer ici.
 
 Cependant, ce souvenir était trop ancien et n'était plus qu'un flou total; seule cette sensation de crise imminente était si puissante qu'elle influençait encore son raisonnement.
 
-Il recula progressivement, ses tentacules oscillant d'avant en arrière tout en dégageant une pression terrifiante. En chemin, de nombreux cultivateurs remarquèrent le Serpent Moongazer. Pourtant, ils n'eurent qu'un seul regard avant que leurs poils ne se hérissent et qu'ils ne tombent dans un état de choc total. Ils firent demi-tour et s'enfuirent, maudissant leur incapacité à s'échapper plus vite.
+Il recula progressivement, ses tentacules oscillant d'avant en arrière tout en dégageant une pression terrifiante. En chemin, de nombreux cultivateurs remarquèrent le Serpent aux yeux de lune. Pourtant, ils n'eurent qu'un seul regard avant que leurs poils ne se hérissent et qu'ils ne tombent dans un état de choc total. Ils firent demi-tour et s'enfuirent, maudissant leur incapacité à s'échapper plus vite.
 
-Le Serpent Moongazer s'arrêta quelque part entre les cinq planètes principales du domaine nord, et son corps commença à se replier lentement en une sphère. Ses innombrables tentacules se rétractèrent progressivement jusqu'à réintégrer son corps.
+Le Serpent aux yeux de lune s'arrêta quelque part entre les cinq planètes principales du domaine nord, et son corps commença à se replier lentement en une sphère. Ses innombrables tentacules se rétractèrent progressivement jusqu'à réintégrer son corps.
 
-Des bouffées de brume jaillirent du corps du Serpent Moongazer et enveloppèrent la zone.
+Des bouffées de brume jaillirent du corps du Serpent aux yeux de lune et enveloppèrent la zone.
 
 Le serpent reprit sa seconde forme et s'enfonça dans un profond sommeil...
 
@@ -173,7 +173,7 @@ Cependant, l'endroit qu'il avait choisi cette fois fit trembler le cœur de tous
 
 Dans le domaine nord, il existait une planète relativement primitive. L'énergie spirituelle y était faible, mais des mortels y vivaient encore. Ce jour-là, un objet tomba du ciel. Enveloppé d'une lumière arc-en-ciel, il s'écrasa dans une plaine au nord de la planète dans un fracas assourdissant.
 
-Tous les os du corps de Greed étaient brisés et ses entrailles s'étaient effondrées. Son âme originelle était gravement endommagée, mais il n'était pas mort!
+Tous les os du corps de Cupidité étaient brisés et ses entrailles s'étaient effondrées. Son âme originelle était gravement endommagée, mais il n'était pas mort!
 
 Loin de mourir, ses yeux étaient empreints d'extase.
 
@@ -181,7 +181,7 @@ Lorsqu'il était arrivé dans le système stellaire Allheaven, son corps était 
 
 Seule la marque de l'Omniscient subsistait.
 
-« Tant que j'ai suffisamment de temps, je suis certain de pouvoir me rétablir un jour! » Greed prit une profonde inspiration, s'enfonça lentement dans le sol et disparut de la plaine.
+« Tant que j'ai suffisamment de temps, je suis certain de pouvoir me rétablir un jour! » Cupidité prit une profonde inspiration, s'enfonça lentement dans le sol et disparut de la plaine.
 
 À partir de ce jour, sur cette planète ordinaire, les habitants sentirent une légère odeur fétide, mais malgré leurs recherches, ils ne purent jamais en trouver la source.
 
@@ -195,7 +195,7 @@ Il approcha lentement. Lorsqu'il aperçut le lieu qui lui inspirait un tel apais
 
 Devant lui s'étendait un champ d'astéroïdes. D'innombrables astéroïdes de toutes tailles semblaient maintenus par une force mystérieuse, orbitant autour d'une zone pour former une barrière naturelle.
 
-Wang Lin sentit que le lieu qui l'apaisait si profondément se trouvait au cœur de ce champ d'astéroïdes. Après réflexion, il décida de ne pas s'y rendre lui-même. Il sortit la boussole stellaire et, tenant l'os du Serpent Moongazer, il contrôla la garde céleste pour qu'elle pénètre lentement dans les profondeurs du champ d'astéroïdes.
+Wang Lin sentit que le lieu qui l'apaisait si profondément se trouvait au cœur de ce champ d'astéroïdes. Après réflexion, il décida de ne pas s'y rendre lui-même. Il sortit la boussole stellaire et, tenant l'os du Serpent aux yeux de lune, il contrôla la garde céleste pour qu'elle pénètre lentement dans les profondeurs du champ d'astéroïdes.
 
 Ce champ était extrêmement vaste. La garde céleste avait volé longtemps sans parvenir à atteindre le centre, mais elle découvrit une scène mystérieuse.
 
@@ -209,7 +209,7 @@ Wang Lin ayant laissé un fragment de son Sens Divin sur la garde céleste, il p
 
 Malgré cela, cette petite planète procurait toujours à Wang Lin un sentiment de bien-être.
 
-« Cet endroit est parfait pour établir une grotte de culture! » Les yeux de Wang Lin s'illuminèrent. Il récupéra l'os du Serpent Moongazer et rejoignit la garde céleste. Bientôt, la petite planète apparut devant lui.
+« Cet endroit est parfait pour établir une grotte de culture! » Les yeux de Wang Lin s'illuminèrent. Il récupéra l'os du Serpent aux yeux de lune et rejoignit la garde céleste. Bientôt, la petite planète apparut devant lui.
 
 « J'ai trouvé ce lieu grâce à mon âme originelle. En étant ici, mes blessures guérissent extrêmement vite! » Songea Wang Lin tandis que la garde céleste lui frayait un chemin vers l'astre.
 
@@ -231,7 +231,7 @@ Ayant compris le karma, le cœur de Wang Lin s'apaisa. En contemplant la petite 
 
 Ce sentiment émanait de son âme originelle, comme si une main massait doucement son essence.
 
-À ce moment précis, l'âme originelle de Wang Lin émit une lumière bleue et des décharges de tonnerre pénétrèrent son corps. En mouvement, une partie de son âme s'étendit vers l'os du Serpent Moongazer, provoquant une série de craquements stridents.
+À ce moment précis, l'âme originelle de Wang Lin émit une lumière bleue et des décharges de tonnerre pénétrèrent son corps. En mouvement, une partie de son âme s'étendit vers l'os du Serpent aux yeux de lune, provoquant une série de craquements stridents.
 
 Pourtant, la garde céleste s'arrêta net. Ses yeux exprimèrent une hésitation rare, comme si elle éprouvait une terreur extrême face au tonnerre.
 
@@ -247,7 +247,7 @@ Le tonnerre ici était issu des cieux et non d'un sortilège. Ses caractéristiq
 
 Sur un ordre, la garde céleste recula pour commencer à cultiver sur un grand astéroïde non loin de là.
 
-Wang Lin rangea la boussole stellaire et emporta l'os du Serpent Moongazer vers les profondeurs de la planète.
+Wang Lin rangea la boussole stellaire et emporta l'os du Serpent aux yeux de lune vers les profondeurs de la planète.
 
 Plus il approchait, plus le tonnerre devenait dense, atteignant un degré terrifiant. N'importe qui d'autre aurait fui cet endroit avec la même crainte que la garde céleste. En effet, le tonnerre ici avait atteint un niveau dépassant ce qu'un corps ou une âme originelle ordinaire pouvait supporter.
 

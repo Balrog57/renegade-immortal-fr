@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1194 - Shattering the Compass
 slug: briser-la-boussole
 ---
-Le visage de Wang Lin était livide, dénué de toute trace de sang, ce qui créait un contraste saisissant avec le sang qui maculait le coin de sa bouche. Il rangea tous ses trésors, y compris l'épée de fer fendue, et battit en retraite. Les âmes naissantes de sang que Maître Ashen Pine avait envoyées ne purent s'échapper et furent capturées par les âmes de bataille de Wang Lin.
+Le visage de Wang Lin était livide, dénué de toute trace de sang, ce qui créait un contraste saisissant avec le sang qui maculait le coin de sa bouche. Il rangea tous ses trésors, y compris l'épée de fer fendue, et battit en retraite. Les âmes naissantes de sang que Maître Pin Cendré avait envoyées ne purent s'échapper et furent capturées par les âmes de bataille de Wang Lin.
 
 Sa vision se brouillait et une somnolence envahissait tout son corps, tandis qu'une douleur intense irradiait de son épaule droite. Il oscillait entre la perte de connaissance et la lucidité. À ses yeux, il semblait y avoir plusieurs chemins se dessiner devant lui.
 
@@ -68,23 +68,23 @@ Au moment où le rugissement céleste retentit, la vieille femme leva soudaineme
 
 Ce fracas résonna à travers tout le Royaume aux Sept Couleurs et franchit la chaîne de montagnes semblable à un mur. Il se propagea dans la brume, la faisant vibrer. Les nombreux Éveillés cessèrent leur chant pour la première fois, regardant autour d'eux avec stupeur.
 
-Dans la brume, entre les sourcils de l'immense statue marquée par un éclair sur le front, flottait un nuage de brouillard aux sept couleurs. L'âme originelle affaiblie de Maître Ashen Pine s'y trouvait pour se soigner. Lorsque le grondement survint, il leva brusquement la tête, saisi d'effroi!
+Dans la brume, entre les sourcils de l'immense statue marquée par un éclair sur le front, flottait un nuage de brouillard aux sept couleurs. L'âme originelle affaiblie de Maître Pin Cendré s'y trouvait pour se soigner. Lorsque le grondement survint, il leva brusquement la tête, saisi d'effroi!
 
 Cette fois, il fut véritablement terrifié!
 
 Il avait prévu que Wang Lin serait puissant, mais il n'avait jamais imaginé qu'il pourrait l'égaler et les blesser tous deux si gravement. En repensant à tous les trésors qu'il avait dépensés, il sentit son cœur saigner, particulièrement pour ces trois perles. Les perdre lui était une douleur atroce, tout comme la perte de l'épée de cristal. Cependant, comparé au clou aux sept couleurs, ces objets étaient insignifiants.
 
-À la pensée du clou aux sept couleurs, Maître Ashen Pine sentit son âme originelle vaciller. Ce clou était son trésor le plus puissant, son atout ultime. Pourtant, même en l'utilisant, il n'avait pu tuer ce cultivateur nommé Lu. Il avait même perdu son propre corps et avait failli mourir.
+À la pensée du clou aux sept couleurs, Maître Pin Cendré sentit son âme originelle vaciller. Ce clou était son trésor le plus puissant, son atout ultime. Pourtant, même en l'utilisant, il n'avait pu tuer ce cultivateur nommé Lu. Il avait même perdu son propre corps et avait failli mourir.
 
 La raison pour laquelle il s'était échappé, outre sa trop grande faiblesse pour continuer le combat, était la certitude que Wang Lin mourrait. Une telle gravité de blessures signifiait que Wang Lin ne pouvait absolument pas échapper au sortilège de la boussole formé par la perle.
 
 Une fois Wang Lin mort, il pourrait contrôler la boussole pour ramener le corps et absorber l'âme originelle. Après s'être rétabli, il pourrait tout obtenir aisément.
 
-Cependant, le rugissement et la sensation que son lien avec l'objet avait été rompu plongèrent Maître Ashen Pine dans une profonde réflexion.
+Cependant, le rugissement et la sensation que son lien avec l'objet avait été rompu plongèrent Maître Pin Cendré dans une profonde réflexion.
 
-« Même avec des blessures aussi graves, il a réussi à briser le sort de la boussole... » Pour la première fois, Maître Ashen Pine éprouva de la crainte envers Wang Lin.
+« Même avec des blessures aussi graves, il a réussi à briser le sort de la boussole... » Pour la première fois, Maître Pin Cendré éprouva de la crainte envers Wang Lin.
 
-La montagne où se trouvait Maître Ashen Pine n'était pas le véritable centre du Royaume aux Sept Couleurs comme il l'avait prétendu. Plus profondément encore, à la lisière du véritable centre, se trouvait une vallée plongée dans les brumes. Le Maître Cloud Soul y était assis, le visage pâle, n'osant pas bouger d'un pouce.
+La montagne où se trouvait Maître Pin Cendré n'était pas le véritable centre du Royaume aux Sept Couleurs comme il l'avait prétendu. Plus profondément encore, à la lisière du véritable centre, se trouvait une vallée plongée dans les brumes. Le Maître Nuage-Âme y était assis, le visage pâle, n'osant pas bouger d'un pouce.
 
 Le sens divin de Wang Lin devenait flou alors qu'il progressait rapidement. Il serra les dents pour maintenir un semblant de lucidité. Sa vision s'obscurcit progressivement tandis qu'il se précipitait dans une vallée déserte, vers une grotte abandonnée. Il eut seulement le temps d'ouvrir son espace de stockage pour laisser sortir la femme en argent et Xu Liguo avant de s'effondrer au sol, inconscient.
 

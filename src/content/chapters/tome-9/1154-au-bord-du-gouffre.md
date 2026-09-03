@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1154 - On the Verge
 slug: au-bord-du-gouffre
 ---
-« Noble Money » pouvait sembler un nom très vulgaire, mais dans la région de rang 6, il était synonyme d'« implacabilité »! En tant qu'Ancien de la Secte Clear Flower, il avait atteint le stade initial de Nirvana Shatterer.
+« Noble Money » pouvait sembler un nom très vulgaire, mais dans la région de rang 6, il était synonyme d'« implacabilité »! En tant qu'Ancien de la Secte Clear Flower, il avait atteint le stade initial de Briseur du Nirvana.
 
 Il possédait des sorts terrifiants et, de par sa personnalité, si vous le provoquiez sans disposer d'un niveau de culture puissant ou d'une secte solide pour vous protéger, la seule issue était la mort.
 
@@ -20,7 +20,7 @@ Cette bataille l'avait rendu célèbre, et chaque secte de la région de rang 6 
 
 En tant que cultivateur natif de la Mer de Nuages, Noble Money connaissait évidemment l'événement cataclysmique qui s'était produit il y a 18 000 ans dans cette région.
 
-Il y a 18 000 ans, dans la Mer de Nuages, la Secte Heaven Breaking était une puissance de rang 8 prête à intégrer la mighty région de rang 9. Deux mois avant ce transfert, ils avaient découvert accidentellement une fissure spatiale, un lieu saturé de restrictions et de dangers. La Secte Heaven Breaking avait rassemblé une immense quantité de cultivateurs pour pénétrer dans la faille, y compris des Anciens au stade Heaven's Blight. Ils s'étaient frayé un passage au prix d'innombrables pertes humaines.
+Il y a 18 000 ans, dans la Mer de Nuages, la Secte Heaven Breaking était une puissance de rang 8 prête à intégrer la mighty région de rang 9. Deux mois avant ce transfert, ils avaient découvert accidentellement une fissure spatiale, un lieu saturé de restrictions et de dangers. La Secte Heaven Breaking avait rassemblé une immense quantité de cultivateurs pour pénétrer dans la faille, y compris des Anciens au stade Fléau des Cieux. Ils s'étaient frayé un passage au prix d'innombrables pertes humaines.
 
 Finalement, ils avaient découvert un cadavre dans les profondeurs de la fissure spatiale.
 
@@ -76,7 +76,7 @@ Sur le chemin parcouru, ce cultivateur aux cheveux blancs n'était pas le premie
 
 Tout en avançant, son regard resta verrouillé sur l'homme aux cheveux blancs. Lui seul, mais aussi une dizaine de disciples de la Secte Clear Flower, fixaient le cultivateur.
 
-Ces regards étaient si pesants que le visage de Wang Lin devint pâle. Un choc visible traversa son expression alors qu'il contemplait avec stupeur ces dix rayons de lumière. Il s'immobilisa en plein vol, comme s'il avait oublié comment planer. Il savait que sa culture était singulière et que les étrangers ne pouvaient pas la percer immédiatement; cela risquait d'attirer des soupçons inutiles. C'est pourquoi il maintenait constamment son énergie originelle au stade intermédiaire de Nirvana Scryer.
+Ces regards étaient si pesants que le visage de Wang Lin devint pâle. Un choc visible traversa son expression alors qu'il contemplait avec stupeur ces dix rayons de lumière. Il s'immobilisa en plein vol, comme s'il avait oublié comment planer. Il savait que sa culture était singulière et que les étrangers ne pouvaient pas la percer immédiatement; cela risquait d'attirer des soupçons inutiles. C'est pourquoi il maintenait constamment son énergie originelle au stade intermédiaire de Scruteur du Nirvana.
 
 Noble Money détourna le regard. Il brûlait d'envie d'atteindre le continent sauvage. À première vue, il ne vit rien d'anormal chez ce cultivateur aux cheveux blancs qui semblait manifestement stupéfait par leur apparition soudaine.
 
@@ -104,6 +104,6 @@ Cette affaire était d'une importance capitale, et Noble Money préférait tuer 
 
 Le visage de Wang Lin changea. Il se leva avec respect, tout en affichant la dose exacte de panique nécessaire: « Compagnons Cultivateurs, que signifie cela? »
 
-« Ne nous forcez pas à agir. Compagnon Cultivateur, suivez-nous, et vite! » Parmi les huit disciples, six étaient au stade Corporeal Yang et deux au stade initial de Nirvana Scryer.
+« Ne nous forcez pas à agir. Compagnon Cultivateur, suivez-nous, et vite! » Parmi les huit disciples, six étaient au stade Yang Corporel et deux au stade initial de Scruteur du Nirvana.
 
 S'ils avaient rencontré Wang Lin dans des circonstances normales, ils n'auraient jamais osé un tel acte, car sa culture était supérieure à la leur. Cependant, en présence de l'Ancien Noble Money et face à une affaire aussi cruciale pour leur secte, ils étaient devenus tous d'une hostilité sans faille.

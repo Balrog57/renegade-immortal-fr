@@ -1,6 +1,6 @@
 ---
 n: 714
-title: Le réveil du Serpent Moongazer
+title: Le réveil du Serpent aux yeux de lune
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 714 - The Moongazer Serpent Awakens
@@ -12,19 +12,19 @@ Ce n'était pas seulement une partie, mais l'intégralité de la structure osseu
 
 C'était comme si une main gigantesque saisissait l'échine d'un être pour la secouer avec fureur, faisant trembler tout son corps.
 
-Le Serpent Moongazer traversait précisément cette épreuve.
+Le Serpent aux yeux de lune traversait précisément cette épreuve.
 
 La planète entière commença à vibrer violemment. La zone entourant Wang Lin était en proie à de puissantes secousses, mais son corps semblait enraciné dans le sol et demeurait parfaitement immobile.
 
-Une douleur atroce se propageait à travers le gigantesque Serpent Moongazer, mais grâce à l'abondance des Fruits d'Ascension Céleste, cette souffrance était considérablement atténuée. De plus, par un étrange mécanisme, cette douleur se muait en une intense sensation d'excitation.
+Une douleur atroce se propageait à travers le gigantesque Serpent aux yeux de lune, mais grâce à l'abondance des Fruits d'Ascension Céleste, cette souffrance était considérablement atténuée. De plus, par un étrange mécanisme, cette douleur se muait en une intense sensation d'excitation.
 
 Des volutes de brume rouge s'échappaient des innombrables tentacules qui recouvraient la planète. Ces derniers tremblaient avec violence, tandis que des rugissements étouffés semblaient sourdre du globe lui-même.
 
 Tous les tentacules à la surface s'étiraient frénétiquement, leur longueur décuplant par rapport aux mille pieds initiaux. Si l'on observait la planète Yun Xia depuis l'espace, elle ressemblerait à un gigantesque oursin!
 
-Au plus profond de la planète Yun Xia, les yeux de Wang Lin brillèrent d'un éclat plus intense encore. Une force d'aspiration infinie émanait de ses bras et se propageait sur les deux segments de l'os. Cette aspiration agissait comme une lame, séparant l'os du corps du Serpent Moongazer.
+Au plus profond de la planète Yun Xia, les yeux de Wang Lin brillèrent d'un éclat plus intense encore. Une force d'aspiration infinie émanait de ses bras et se propageait sur les deux segments de l'os. Cette aspiration agissait comme une lame, séparant l'os du corps du Serpent aux yeux de lune.
 
-Au cours de ce processus, le gigantesque serpent tressaillit avec plus de violence encore. D'innombrables fissures apparurent à la surface de la planète et les tentacules s'étendirent davantage. Simultanément, une masse considérable de terre se détacha du corps du Serpent Moongazer. Vu du ciel, on aurait dit que d'immenses quantités de poussière s'arrachaient à la planète pour flotter dans l'espace.
+Au cours de ce processus, le gigantesque serpent tressaillit avec plus de violence encore. D'innombrables fissures apparurent à la surface de la planète et les tentacules s'étendirent davantage. Simultanément, une masse considérable de terre se détacha du corps du Serpent aux yeux de lune. Vu du ciel, on aurait dit que d'immenses quantités de poussière s'arrachaient à la planète pour flotter dans l'espace.
 
 Pourtant, depuis l'espace, on verrait plutôt d'innombrables masses terrestres se détacher de la planète Yun Xia et dériver lentement.
 
@@ -42,7 +42,7 @@ Ce rugissement fut comme un coup de tonnerre, déversant toute l'énergie de Wan
 
 Ses mains serraient ardemment la section gauche de l'os. Une trace de folie traversait son regard, mais au plus profond de cette démence résidait un calme extraordinaire.
 
-« Lève-toi pour moi! » hurla de nouveau Wang Lin en tirant de toutes ses forces. La terre trembla plus violemment encore et des rugissements de douleur résonnèrent à travers le sol. Cependant, grâce au pouvoir des Fruits d'Ascension Céleste, le gigantesque Serpent Moongazer ne parvenait pas à identifier la nature de cette sensation.
+« Lève-toi pour moi! » hurla de nouveau Wang Lin en tirant de toutes ses forces. La terre trembla plus violemment encore et des rugissements de douleur résonnèrent à travers le sol. Cependant, grâce au pouvoir des Fruits d'Ascension Céleste, le gigantesque Serpent aux yeux de lune ne parvenait pas à identifier la nature de cette sensation.
 
 La terre s'agita davantage; le corps de Wang Lin se tendit et il tira une fois de plus. Il réussit à faire avancer cette moitié de l'os de trois pouces.
 
@@ -68,9 +68,9 @@ Wang Lin et le garde céleste tiraient chacun un segment de l'os, brisant rapide
 
 Leur vitesse était prodigieuse, car Wang Lin utilisait toute sa célérité sans aucune retenue. S'il n'était pas très rapide au début, une fois l'élan pris, il devint de plus en plus véloce!
 
-La terre tremblait et le Serpent Moongazer rugissait avec plus de force encore. Les tentacules libéraient davantage de brume rouge et, sous la stimulation de cette douleur intense, le serpent entama rapidement sa troisième transformation.
+La terre tremblait et le Serpent aux yeux de lune rugissait avec plus de force encore. Les tentacules libéraient davantage de brume rouge et, sous la stimulation de cette douleur intense, le serpent entama rapidement sa troisième transformation.
 
-Toutefois, grâce aux Fruits d'Ascension Céleste, le processus de métamorphose fut considérablement ralenti, empêchant le Serpent Moongazer de déterminer la provenance de cette souffrance.
+Toutefois, grâce aux Fruits d'Ascension Céleste, le processus de métamorphose fut considérablement ralenti, empêchant le Serpent aux yeux de lune de déterminer la provenance de cette souffrance.
 
 Après tout, son corps était trop vaste! De plus, il ne faisait que s'éveiller et demeurait dans un état de torpeur, ce qui rendait les Fruits d'Ascension Céleste encore plus efficaces.
 
@@ -88,11 +88,11 @@ Sa silhouette paraissait insignifiante face à cet os colossal; sans un regard a
 
 Chargez!
 
-Les yeux de Wang Lin étaient injectés de sang et le cycle de son énergie spirituelle céleste avait déjà dépassé ses limites. Une partie de cette énergie s'échappait de son corps, lui infligeant une douleur immense. Pourtant, comparée à la perspective d'obtenir l'os du Serpent Moongazer, cette souffrance était dérisoire.
+Les yeux de Wang Lin étaient injectés de sang et le cycle de son énergie spirituelle céleste avait déjà dépassé ses limites. Une partie de cette énergie s'échappait de son corps, lui infligeant une douleur immense. Pourtant, comparée à la perspective d'obtenir l'os du Serpent aux yeux de lune, cette souffrance était dérisoire.
 
 Wang Lin savait qu'il devait partir vite; le moindre retard et tout serait perdu, au risque de perdre sa vie.
 
-Il ne croyait pas un instant que le Serpent Moongazer laisserait s'échapper la créature qui lui dérobait ses os. Une fois dévoré, il mourrait sans aucun doute!
+Il ne croyait pas un instant que le Serpent aux yeux de lune laisserait s'échapper la créature qui lui dérobait ses os. Une fois dévoré, il mourrait sans aucun doute!
 
 Bien que les tentacules tentassent de les envelopper, l'effet des Fruits d'Ascension Céleste ralentissait leurs mouvements. Cependant, l'os était si imposant que, malgré leur lenteur, de nombreux tentacules parvinrent à s'enrouler autour de lui.
 
@@ -108,7 +108,7 @@ Cet esprit avait été formé par Wang Lin, et il s'éteignait pour lui!
 
 Parce que cette vaste restriction portait un esprit, elle libéra une puissance infinie. En frappant les tentacules, elle les ralentit instantanément.
 
-Le Serpent Moongazer était d'une puissance telle que même l'autodestruction du drapeau ne put trancher les tentacules; cela ne fit que les retarder un court instant!
+Le Serpent aux yeux de lune était d'une puissance telle que même l'autodestruction du drapeau ne put trancher les tentacules; cela ne fit que les retarder un court instant!
 
 Wang Lin poussa un soupir secret, mais tira impitoyablement sans la moindre hésitation. L'os entremêlé fut extirpé et Wang Lin chargea vers le brouillard céleste en portant l'os.
 

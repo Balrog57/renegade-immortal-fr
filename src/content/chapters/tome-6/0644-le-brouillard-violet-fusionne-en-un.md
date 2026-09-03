@@ -10,23 +10,23 @@ Wang Lin afficha un léger sourire. Il joignit les mains devant Zhou Yi et dit: 
 
 Zhou Yi se concentra sur Wang Lin et demanda: « Laquelle? »
 
-Une lueur de sagesse brilla dans les yeux de Wang Lin lorsqu'il dit: « Senior devrait disperser son sens divin d'épée dans ce brouillard violet afin de rendre sa présence aussi vague que possible. Je vais aller à la rencontre de Greed et des autres. »
+Une lueur de sagesse brilla dans les yeux de Wang Lin lorsqu'il dit: « Senior devrait disperser son sens divin d'épée dans ce brouillard violet afin de rendre sa présence aussi vague que possible. Je vais aller à la rencontre de Cupidité et des autres. »
 
 Zhou Yi hocha la tête. « Tu dois être prudent en y allant seul. » Le poids des paroles de Wang Lin s'était considérablement accru dans son cœur après les avoir entendues.
 
-Wang Lin sourit discrètement et dit: « Senior peut être rassuré. Plus tôt, Greed ne s'est contenté que de crier au lieu de nous poursuivre, comme s'il était préoccupé par quelque chose. C'est un homme prudent. »
+Wang Lin sourit discrètement et dit: « Senior peut être rassuré. Plus tôt, Cupidité ne s'est contenté que de crier au lieu de nous poursuivre, comme s'il était préoccupé par quelque chose. C'est un homme prudent. »
 
 Zhou Yi laissa échapper un soupir et ses yeux révélèrent une admiration sans réserve pour Wang Lin. Réussir à tirer une telle conclusion à partir de quelques simples indices n'était pas l'apanage des gens ordinaires!
 
-Wang Lin réfléchit un instant, puis reprit: « Senior, Junior a l'intuition que le but de Greed ici est très probablement lié à un jeton. Ce jeton est le seul moyen de voir le père de Senior Qing Shuang, alors il n'est pas nécessaire que Senior se retienne! »
+Wang Lin réfléchit un instant, puis reprit: « Senior, Junior a l'intuition que le but de Cupidité ici est très probablement lié à un jeton. Ce jeton est le seul moyen de voir le père de Senior Qing Shuang, alors il n'est pas nécessaire que Senior se retienne! »
 
 Les yeux de Zhou Yi devinrent froids et il déclara d'un ton grave: « Wang Lin, tu peux être rassuré! »
 
-Wang Lin ne parla plus. Il joignit les mains devant Zhou Yi avant de s'avancer dans la brume vers Greed et sa compagnie.
+Wang Lin ne parla plus. Il joignit les mains devant Zhou Yi avant de s'avancer dans la brume vers Cupidité et sa compagnie.
 
-En vérité, il n'aurait pas été déraisonnable de rester cachés dans le brouillard violet, permettant à Zhou Yi de les observer avec son sens divin d'épée. Cependant, puisqu'ils avaient déjà été découverts par Greed, plutôt que de se cacher au loin, il valait mieux aller observer la situation en personne.
+En vérité, il n'aurait pas été déraisonnable de rester cachés dans le brouillard violet, permettant à Zhou Yi de les observer avec son sens divin d'épée. Cependant, puisqu'ils avaient déjà été découverts par Cupidité, plutôt que de se cacher au loin, il valait mieux aller observer la situation en personne.
 
-Une autre raison importante était que Wang Lin voulait savoir si Greed le reconnaissait ou non! Il était certain de ne jamais avoir rencontré Greed auparavant.
+Une autre raison importante était que Wang Lin voulait savoir si Cupidité le reconnaissait ou non! Il était certain de ne jamais avoir rencontré Cupidité auparavant.
 
 À l'intérieur du brouillard, Wang Lin déploya son sens divin et progressa. Cinq kilomètres n'étaient pas une grande distance pour lui, malgré la brume. Bientôt, il atteignit la zone dégagée située à cinq kilomètres de là.
 
@@ -36,9 +36,9 @@ Au moment où Wang Lin apparut, six regards se posèrent immédiatement sur lui.
 
 Une intention meurtrière émana soudainement des disciples de la Secte de l'Épée Da Lou. Leurs relations avec la Secte du Destin Céleste avaient toujours été hostiles, mais rien ne justifiait qu'ils commencent à s'entretuer dès maintenant.
 
-Le regard de Wang Lin resta calme tandis qu'il balayait l'assemblée. Son attention ne se fixa pas sur Greed, mais passa simplement à côté de lui.
+Le regard de Wang Lin resta calme tandis qu'il balayait l'assemblée. Son attention ne se fixa pas sur Cupidité, mais passa simplement à côté de lui.
 
-L'expression de Greed ne changea nullement. Il ne regarda Wang Lin qu'au moment précis de son apparition, avant de refermer les yeux.
+L'expression de Cupidité ne changea nullement. Il ne regarda Wang Lin qu'au moment précis de son apparition, avant de refermer les yeux.
 
 Une voix basse s'éleva de la bouche de Chen Long: « Je suis Chen Long. Es-tu Wang Lin, de la Division Violette de la Secte du Destin Céleste? »
 
@@ -80,43 +80,43 @@ Les pupilles de Wang Lin se contractèrent légèrement. Après être entré ici
 
 Au-delà du fait que Chen Long était un homme très rusé, cela confirmait surtout la spéculation de Wang Lin: ils avaient besoin de son aide.
 
-À ce moment précis, Greed ouvrit les yeux. Il fixa froidement Wang Lin et dit d'un ton sinistre: « Petit gamin, pourquoi ton ami ne s'est-il pas manifesté? »
+À ce moment précis, Cupidité ouvrit les yeux. Il fixa froidement Wang Lin et dit d'un ton sinistre: « Petit gamin, pourquoi ton ami ne s'est-il pas manifesté? »
 
-Greed maudissait intérieurement. S'il n'avait pas redouté le sens divin caché dans le brouillard violet, il aurait neutralisé Wang Lin dès son apparition.
+Cupidité maudissait intérieurement. S'il n'avait pas redouté le sens divin caché dans le brouillard violet, il aurait neutralisé Wang Lin dès son apparition.
 
 Durant l'instant bref où Wang Lin était apparu, bien qu'il ait gardé les yeux fermés, il avait ajusté ses sorts à trois reprises. Cependant, à chacune de ces trois tentatives, au moment d'agir, le sens divin dans la brume surgissait soudainement, comme pour l'avertir.
 
-Greed avait hésité, puis avait renoncé.
+Cupidité avait hésité, puis avait renoncé.
 
 Wang Lin répondit d'un ton serein: « Mon ami est de nature froide et n'apprécie guère la compagnie. Senior est-il également membre de la Secte de l'Épée Da Lou? »
 
-Greed lança un regard à Wang Lin et eut un sourire narquois.
+Cupidité lança un regard à Wang Lin et eut un sourire narquois.
 
-Chen Long sourit légèrement et présenta l'homme: « Camarade cultivateur Wang, ce senior est Greed. C'est un expert de la génération de notre Maître. Hélas, s'il n'était pas blessé et ne pouvait utiliser qu'une culture d'Ascendant au stade avancé, il ne serait pas resté piégé ici depuis un siècle! »
+Chen Long sourit légèrement et présenta l'homme: « Camarade cultivateur Wang, ce senior est Cupidité. C'est un expert de la génération de notre Maître. Hélas, s'il n'était pas blessé et ne pouvait utiliser qu'une culture d'Ascendant au stade avancé, il ne serait pas resté piégé ici depuis un siècle! »
 
 Wang Lin pensa: « Ce Chen Long n'est pas simple! » Cet homme avait été capable de distiller toutes les informations essentielles en quelques phrases seulement.
 
-Chen Long ajouta aussitôt: « Senior Greed, puisque le camarade cultivateur Wang et son ami sont arrivés, que diriez-vous d'unir nos forces pour tenter une percée? Peut-être parviendrons-nous à briser ce siège imposé par cette horde de bêtes démoniaques! »
+Chen Long ajouta aussitôt: « Senior Cupidité, puisque le camarade cultivateur Wang et son ami sont arrivés, que diriez-vous d'unir nos forces pour tenter une percée? Peut-être parviendrons-nous à briser ce siège imposé par cette horde de bêtes démoniaques! »
 
 « Une horde de bêtes démoniaques... » L'expression de Wang Lin resta neutre, mais cela avait capté son attention.
 
-Greed s'apprêtait à refuser, mais ses yeux se plissèrent soudainement. Il eut l'impression, à cet instant précis, que le brouillard violet s'était légèrement contracté.
+Cupidité s'apprêtait à refuser, mais ses yeux se plissèrent soudainement. Il eut l'impression, à cet instant précis, que le brouillard violet s'était légèrement contracté.
 
-Après avoir regardé Chen Long, Greed hocha la tête: « Puisque tu t'inquiètes tant de voir ce vieil homme refuser encore, tu dois penser que je suis mal intentionné. Soit, tentons de percer! »
+Après avoir regardé Chen Long, Cupidité hocha la tête: « Puisque tu t'inquiètes tant de voir ce vieil homme refuser encore, tu dois penser que je suis mal intentionné. Soit, tentons de percer! »
 
 Chen Long secoua rapidement la tête: « Le junior n'ose, mais c'est simplement que nous sommes ici depuis trop longtemps. Je m'inquiète pour mes frères cadets dans le Domaine des Esprits Démoniaques... »
 
-Greed ricana et bondit du sol. Il prit la tête de la charge et s'élança directement dans le brouillard.
+Cupidité ricana et bondit du sol. Il prit la tête de la charge et s'élança directement dans le brouillard.
 
 Chen Long prit une profonde inspiration. Il joignit les mains devant Wang Lin et murmura: « Frère Wang, mettons de côté nos différends de secte pour l'instant. Tant que l'on pénètre dans ce brouillard, on ne peut en sortir. Il n'existe qu'une seule issue, mais malheureusement, elle est entourée par une horde de bêtes démoniaques. Si nous voulons partir, nous devons forcer le passage! »
 
-Wang Lin acquiesça et s'élança avec Chen Long, tandis que les autres disciples de la Secte de l'Épée Da Lou suivaient Greed. En volant, Wang Lin laissa les sceaux de vie entourer son corps pour se protéger.
+Wang Lin acquiesça et s'élança avec Chen Long, tandis que les autres disciples de la Secte de l'Épée Da Lou suivaient Cupidité. En volant, Wang Lin laissa les sceaux de vie entourer son corps pour se protéger.
 
 En réalité, il n'était pas le seul. Chen Long utilisait également secrètement un sort pour se protéger, au cas où Wang Lin déciderait de lancer une attaque surprise. Les autres disciples de la Secte de l'Épée Da Lou, et particulièrement Wu Ma, lançaient à Wang Lin des regards venimeux.
 
 Chacun poursuivait ses propres desseins en chargeant dans le brouillard violet vers la sortie.
 
-Greed menait la marche, constamment sur ses gardes. Il percevait vaguement un sens divin apparaître et disparaître au sein de la brume. Il sentait que s'il baissait sa garde une fraction de seconde, ce sens divin l'attaquerait.
+Cupidité menait la marche, constamment sur ses gardes. Il percevait vaguement un sens divin apparaître et disparaître au sein de la brume. Il sentait que s'il baissait sa garde une fraction de seconde, ce sens divin l'attaquerait.
 
 « Maudit soit-il! Quand ce Wang Lin a-t-il obtenu un allié aussi puissant?! »
 
@@ -128,7 +128,7 @@ Le sens divin de Wang Lin se déploya. Lorsqu'il vit ce qui l'attendait, il fut 
 
 La scène devant lui provoquait chez Wang Lin un intense sentiment d'incrédulité. Il eut l'impression de replonger dans le souvenir de l'ancien dieu: une planète mystérieuse grouillante de bêtes-moustiques.
 
-Le choc de Wang Lin était prévisible pour Chen Long et les autres. Cependant, ils ignoraient que non seulement Wang Lin avait reconnu ces créatures, mais qu'il les connaissait intimement. Même Greed ne s'y attendait pas!
+Le choc de Wang Lin était prévisible pour Chen Long et les autres. Cependant, ils ignoraient que non seulement Wang Lin avait reconnu ces créatures, mais qu'il les connaissait intimement. Même Cupidité ne s'y attendait pas!
 
 L'immense horde de bêtes-moustiques formait une masse compacte et émettait des cris stridents. En voyant apparaître des humains, elles redressèrent leurs longs appendices buccaux, révélant leur nature féroce et tyrannique!
 
@@ -144,23 +144,23 @@ Ces moustiques poussèrent des cris et s'envolèrent. Ils encerclèrent la bête
 
 La bête-moustique de Wang Lin hésita un instant avant de les suivre et de disparaître dans la masse. Personne ne remarqua cette scène...
 
-Greed perça le nuage et marqua une pause à la lisière de la brume. Mais soudain, il tourna la tête pour fixer le brouillard, qui commença brusquement à s'agiter.
+Cupidité perça le nuage et marqua une pause à la lisière de la brume. Mais soudain, il tourna la tête pour fixer le brouillard, qui commença brusquement à s'agiter.
 
 Ce remous ne se limita pas à une zone précise; toute la brume violette entra en effervescence. Des rugissements tonitruants jaillirent de l'intérieur, causés par le frottement de la brume contre elle-même.
 
 Ce phénomène attira immédiatement l'attention des membres de la Secte de l'Épée Da Lou et de Wang Lin.
 
-Une pointe d'extase brilla dans les yeux de Greed. Il avait remarqué une anomalie dans la brume, ce qui l'avait poussé à accepter la proposition de Chen Long. À cet instant, il prit une profonde inspiration et frappa son sac de rangement pour en sortir un petit fourneau!
+Une pointe d'extase brilla dans les yeux de Cupidité. Il avait remarqué une anomalie dans la brume, ce qui l'avait poussé à accepter la proposition de Chen Long. À cet instant, il prit une profonde inspiration et frappa son sac de rangement pour en sortir un petit fourneau!
 
-Le fourneau dégagea une vapeur violette qui enveloppa Greed. Il fit un pas et sortit du brouillard.
+Le fourneau dégagea une vapeur violette qui enveloppa Cupidité. Il fit un pas et sortit du brouillard.
 
 À ce moment-là, par la force de sa volonté, il provoqua les bêtes-moustiques à l'extérieur, qui se mirent instantanément à hurler. Ce son, capable d'affecter l'âme, traversa le brouillard violet et rendit les disciples de la Secte de l'Épée Da Lou encore plus impatients.
 
 La brume commença à s'agiter violemment, partant des bords. Sous un certain angle, on pouvait voir que la brume violette se contractait à une vitesse prodigieuse!
 
-Les visages de Chen Long et de ses compagnons changèrent radicalement; ils voulurent immédiatement s'échapper. Mais au moment où ils s'élancèrent, les rires de Greed retentirent. D'un revers de manche, il créa une vague de vent qui contraignit les membres de la Secte de l'Épée Da Lou à s'arrêter net.
+Les visages de Chen Long et de ses compagnons changèrent radicalement; ils voulurent immédiatement s'échapper. Mais au moment où ils s'élancèrent, les rires de Cupidité retentirent. D'un revers de manche, il créa une vague de vent qui contraignit les membres de la Secte de l'Épée Da Lou à s'arrêter net.
 
-« Ce vieil homme a attendu cent ans, et maintenant la brume violette va enfin fusionner en un! Vous tous, vous deviendrez les sacrifices qui accompliront mon vœu! » La voix de Greed résonna dans toute la brume.
+« Ce vieil homme a attendu cent ans, et maintenant la brume violette va enfin fusionner en un! Vous tous, vous deviendrez les sacrifices qui accompliront mon vœu! » La voix de Cupidité résonna dans toute la brume.
 
 Les yeux de Wang Lin devinrent froids, tandis que la voix de Zhou Yi résonnait dans son esprit:
 

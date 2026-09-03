@@ -22,7 +22,7 @@ Zhao Xinmeng regarda Wang Lin et, après avoir hésité un instant, elle dit dou
 
 Elle mordit sa lèvre inférieure, rabattit sa manche, puis regarda Wang Lin avant de s'en aller.
 
-« C'est mon dernier espoir. S'il peut combattre Ling Tianhou, sa culture ne peut pas être seulement au stade du Nirvana Scryer; il est probablement au stade du Nirvana Cleanser. S'il m'aide, il doit être capable de supprimer complètement le sceau... » Zhao Xinmeng laissa échapper un soupir et sa silhouette disparut à l'horizon.
+« C'est mon dernier espoir. S'il peut combattre Ling Tianhou, sa culture ne peut pas être seulement au stade du Scruteur du Nirvana; il est probablement au stade du Purificateur du Nirvana. S'il m'aide, il doit être capable de supprimer complètement le sceau... » Zhao Xinmeng laissa échapper un soupir et sa silhouette disparut à l'horizon.
 
 « Si je demande l'aide d'autrui, avec Maître présent, je crains que personne n'ose m'aider... »
 

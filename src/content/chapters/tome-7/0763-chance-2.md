@@ -8,7 +8,7 @@ slug: chance-2
 ---
 « Ce sort qui fusionne l'âme originelle avec le sang appartient à la lignée de l'ancien Yao. C'est une technique que seuls les descendants directs peuvent utiliser, et aujourd'hui, j'en ai attrapé un! » Le vieil homme se frotta le menton, ses yeux s'illuminant tandis qu'il balayait les gouttes de sang du regard.
 
-« Il est bel et bien digne d'un être lié par le destin à son aîné pour avoir trouvé une méthode aussi inattendue afin de traiter un cultivateur du Nirvana Scryer. Je ne peux rester les bras croisés; je dois l'aider. » Le vieil homme se lécha les lèvres et tendit la main. Toutes les gouttes de sang furent saisies par lui, sans aucune résistance.
+« Il est bel et bien digne d'un être lié par le destin à son aîné pour avoir trouvé une méthode aussi inattendue afin de traiter un cultivateur du Scruteur du Nirvana. Je ne peux rester les bras croisés; je dois l'aider. » Le vieil homme se lécha les lèvres et tendit la main. Toutes les gouttes de sang furent saisies par lui, sans aucune résistance.
 
 D'un simple pincement, toutes les gouttes fusionnèrent instantanément. L'âme originelle de l'Ancêtre de Sang fusionna et s'éveilla à l'unisson.
 
@@ -18,7 +18,7 @@ Le vieil homme joua avec le cercle de fer sur la corne argentée de la Bête de 
 
 L'Ancêtre de Sang réfléchit un instant, puis envoya un message: « Quoi qu'il en soit, je dois remercier Senior pour son aide... »
 
-Le vieil homme poursuivit: « Ce vieil homme est très raisonnable. Vois-tu, je t'ai aidé à réduire le temps de ta fusion. Eh bien... j'ignorais que le sort d'âme originelle et de sang de la famille Yao n'autorisait pas la reconstitution forcée du corps... Il semble qu'en forçant la fusion, ton niveau de culture ait chuté de plusieurs royaumes; tu es désormais au stade avancé du Nirvana Scryer. Comme je l'ignorais, tu ne peux m'en tenir rigueur. »
+Le vieil homme poursuivit: « Ce vieil homme est très raisonnable. Vois-tu, je t'ai aidé à réduire le temps de ta fusion. Eh bien... j'ignorais que le sort d'âme originelle et de sang de la famille Yao n'autorisait pas la reconstitution forcée du corps... Il semble qu'en forçant la fusion, ton niveau de culture ait chuté de plusieurs royaumes; tu es désormais au stade avancé du Scruteur du Nirvana. Comme je l'ignorais, tu ne peux m'en tenir rigueur. »
 
 L'Ancêtre de Sang réfléchit en silence et réprima de force la rage qui bouillonnait dans son âme originelle. Son sens divin projeta un message empreint de sérénité: « Aucun mal n'en est issu. Puisque Senior l'ignorait, c'est mon destin. Si Senior n'a rien d'autre à faire, je vous prie de lever votre sort et de me laisser partir. »
 

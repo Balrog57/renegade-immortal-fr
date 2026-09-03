@@ -10,11 +10,11 @@ Tout en contrôlant son épée volante, une pensée traversa l'esprit de Wang Li
 
 Sans hésiter, il frappa son sac de rangement, et plus de dix épées volantes en jaillirent. Il les avait toutes récupérées lors de la guerre précédente. Ses mains formèrent un sceau tandis qu'il compressait continuellement de l'énergie originelle à l'intérieur des lames. Si l'une de ces épées volantes explosait, elle infligerait des dégâts considérables.
 
-Un éclat de froideur passa dans les yeux de Wang Lin; d'un geste de la main, il dispersa les épées volantes. Elles s'élancèrent comme des éclairs vers tous les points sensibles du Serpent Moongazer qu'il avait identifiés.
+Un éclat de froideur passa dans les yeux de Wang Lin; d'un geste de la main, il dispersa les épées volantes. Elles s'élancèrent comme des éclairs vers tous les points sensibles du Serpent aux yeux de lune qu'il avait identifiés.
 
-« De cette façon, je pourrai provoquer des changements à l'intérieur même du corps du Serpent Moongazer! »
+« De cette façon, je pourrai provoquer des changements à l'intérieur même du corps du Serpent aux yeux de lune! »
 
-C'était une manœuvre que seul Wang Lin pouvait accomplir. N'importe qui d'autre ignorerait tout de la physiologie du Serpent Moongazer, et encore moins ses points vitaux, ce qui aurait rendu toute préparation de secours impossible.
+C'était une manœuvre que seul Wang Lin pouvait accomplir. N'importe qui d'autre ignorerait tout de la physiologie du Serpent aux yeux de lune, et encore moins ses points vitaux, ce qui aurait rendu toute préparation de secours impossible.
 
 Quant à l'épée portant le sens divin de Wang Lin, alors qu'elle approchait du vortex, une vague d'énergie originelle jaillit soudainement de son antre.
 
@@ -24,11 +24,11 @@ La pointe de l'arme s'effondra centimètre par centimètre, jusqu'à la garde. P
 
 Malgré cela, son sens divin fut tout de même touché par cette énergie originelle, et une grande partie de celui-ci se dissipa.
 
-Le visage de Wang Lin devint livide et il s'assit près de l'os du Serpent Moongazer. Il lui fallut un certain temps pour recouvrer ses esprits.
+Le visage de Wang Lin devint livide et il s'assit près de l'os du Serpent aux yeux de lune. Il lui fallut un certain temps pour recouvrer ses esprits.
 
 « Quelle violente poussée d'énergie originelle... Si elle n'était pas ressortie par le vortex, rien de mon sens divin ne subsisterait! » Un éclat glacial brilla dans ses yeux. Il savait que l'énergie qui venait de jaillir n'était que les résidus de la décharge.
 
-Plus important encore, le vortex exerçait une puissante force d'aspiration, faisant partie des propres sorts du Serpent Moongazer. Si la force intérieure tentait de s'échapper, elle serait entravée par le vortex à plusieurs reprises. Même si de l'énergie originelle parvenait à s'extirper, elle en serait considérablement affaiblie.
+Plus important encore, le vortex exerçait une puissante force d'aspiration, faisant partie des propres sorts du Serpent aux yeux de lune. Si la force intérieure tentait de s'échapper, elle serait entravée par le vortex à plusieurs reprises. Même si de l'énergie originelle parvenait à s'extirper, elle en serait considérablement affaiblie.
 
 Frappant son sac de rangement, Wang Lin en sortit une autre épée et enveloppa celle-ci de son sens divin. L'épée volante se transforma en un rayon de lumière et fonça vers l'avant.
 
@@ -68,13 +68,13 @@ Cette lame dégageait des ondes de pression colossales et l'aura d'un véritable
 
 Le regard de Qing Shui demeura glacial; les éclairs rouges précédents s'épaissirent jusqu'à la taille d'un bras pour percuter l'épée d'écailles dorées. En un instant, la foudre et l'épée entrèrent en collision.
 
-Une explosion capable de faire trembler les cieux résonna dans le Serpent Moongazer et une tempête déferla dans le tunnel étroit. À cet instant, le passage fut élargi par la force brute. Des fissures apparurent sur la paroi charnue et du sang vert s'en écoula!
+Une explosion capable de faire trembler les cieux résonna dans le Serpent aux yeux de lune et une tempête déferla dans le tunnel étroit. À cet instant, le passage fut élargi par la force brute. Des fissures apparurent sur la paroi charnue et du sang vert s'en écoula!
 
 Le dragon doré poussa un rugissement de douleur et fut contraint de reculer sous l'impact. Cependant, il s'enroula autour du vénérable Xuan Bao tel un python pour continuer à le protéger.
 
 En conséquence, son corps commença à se briser sous le choc, projetant des éclats de sang doré.
 
-Qing Shui recula également. C'est alors que des rugissements étouffés provinrent de l'intérieur même du Serpent Moongazer. Ce cri émanait du monstre lui-même!
+Qing Shui recula également. C'est alors que des rugissements étouffés provinrent de l'intérieur même du Serpent aux yeux de lune. Ce cri émanait du monstre lui-même!
 
 Alors qu'il rugissait, le tunnel se mit à trembler violemment et une crevasse gigantesque s'ouvrit au-dessus du passage. Une quantité massive de sang vert s'en déversa, accompagnée d'une aura maléfique infinie. Le rugissement devint plus intense encore, comme si quelque chose cherchait à jaillir de cette brèche.
 
@@ -114,7 +114,7 @@ Les yeux clos du vénérable Xuan Bao s'ouvrirent soudainement, empreints de ter
 
 Alors que Qing Shui s'apprêtait à partir avec sa prise, une aura maléfique jaillit soudainement de la fissure supérieure. Elle prit la forme d'un bras rouge sang et percuta de plein fouet le corps de Qing Shui.
 
-Cette aura dense et malveillante contenait également l'essence du Serpent Moongazer.
+Cette aura dense et malveillante contenait également l'essence du Serpent aux yeux de lune.
 
 Le bras fut d'une rapidité telle qu'il semblait posséder le pouvoir de briser tous les sorts. En frappant le corps de Qing Shui, il le fit chanceler. Malgré sa culture, ce dernier ne put résister et fut projeté en arrière, crachant une large traînée de sang.
 

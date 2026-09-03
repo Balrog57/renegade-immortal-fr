@@ -13,9 +13,9 @@ Avec son niveau de culture, un pays de culture de rang 6 ne méritait pas son at
 
 À mesure qu'il s'approchait lentement, l'expression de la vieille femme située aux abords de la planète Suzaku devint sombre. Les autres cultivateurs l'accompagnèrent; ils utilisèrent leur vitesse fulgurante pour retourner sur la planète Suzaku.
 
-En voyant cela, le garçon à la grosse tête éclata de rire, et son sourire stupide s'accentua. Non seulement lui, mais les cultivateurs d'Allheaven devant lui rirent également. À leurs yeux, ce type de planète de culture était tout simplement trop faible! N'importe quel cultivateur du stade Illusory Yin pourrait massacrer la planète entière!
+En voyant cela, le garçon à la grosse tête éclata de rire, et son sourire stupide s'accentua. Non seulement lui, mais les cultivateurs d'Allheaven devant lui rirent également. À leurs yeux, ce type de planète de culture était tout simplement trop faible! N'importe quel cultivateur du stade Yin Illusoire pourrait massacrer la planète entière!
 
-« Messager Céleste, laissez-nous, deux frères, aller sur cette planète! » Un homme d'âge moyen sortit de derrière le garçon à la grosse tête. Il n'était même pas au stade Illusory Yin, mais seulement au sommet du dernier stade de l'Ascendant. Son regard envers le garçon à la grosse tête était empreint de respect.
+« Messager Céleste, laissez-nous, deux frères, aller sur cette planète! » Un homme d'âge moyen sortit de derrière le garçon à la grosse tête. Il n'était même pas au stade Yin Illusoire, mais seulement au sommet du dernier stade de l'Ascendant. Son regard envers le garçon à la grosse tête était empreint de respect.
 
 Un autre homme suivait l'homme d'âge moyen; les deux se ressemblaient comme deux gouttes d'eau.
 

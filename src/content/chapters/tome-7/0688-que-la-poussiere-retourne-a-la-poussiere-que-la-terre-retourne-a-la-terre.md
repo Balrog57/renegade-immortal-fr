@@ -124,6 +124,6 @@ Il avait trop vécu au cours de ses huit cents ans de culture...
 
 Sur la planète Ran Yun, dans le village de la Lune Déchue, une nouvelle famille s'était installée. Cette famille était étrange; elle ne comptait que deux personnes: un jeune homme à l'aura antique et un bébé.
 
-Au même moment, dans le système stellaire d'Allheaven, Greed errait avec une expression sombre. Il y avait tout simplement trop de restrictions sur son corps, au point que chaque fois qu'il y pensait, son cuir chevelu s'engourdissait et son cœur se glaçait.
+Au même moment, dans le système stellaire d'Allheaven, Cupidité errait avec une expression sombre. Il y avait tout simplement trop de restrictions sur son corps, au point que chaque fois qu'il y pensait, son cuir chevelu s'engourdissait et son cœur se glaçait.
 
 « Maudit Wang Lin! Si je ne le trouve pas rapidement, l'une des restrictions de mon corps s'activera et je mourrai sans sépulture! »

@@ -68,11 +68,11 @@ Les 3 000 poils du pinceau étaient la rétribution divine!
 
 La suppression par la pagode était une autre forme de rétribution divine!
 
-La troisième étape de la rétribution divine visant Wang Lin était extrêmement puissante! Si la culture de Wang Lin n'avait été qu'au stade initial du Nirvana Void, il serait sans aucun doute mort ici!
+La troisième étape de la rétribution divine visant Wang Lin était extrêmement puissante! Si la culture de Wang Lin n'avait été qu'au stade initial du Vide du Nirvana, il serait sans aucun doute mort ici!
 
-Même au sommet du Nirvana Void, il aurait péri face à cette rétribution divine!
+Même au sommet du Vide du Nirvana, il aurait péri face à cette rétribution divine!
 
-Et même avec sa culture de milieu de stade Spirit Void, s'il l'avait atteinte normalement avec une seule essence, il n'aurait eu aucune chance de survie contre un tel assaut!
+Et même avec sa culture de milieu de stade Vide Spirituel, s'il l'avait atteinte normalement avec une seule essence, il n'aurait eu aucune chance de survie contre un tel assaut!
 
 La pagode dorée à neuf étages percuta immédiatement la zone où se trouvaient les 3 000 sorts. Après un fracas violent, le silence retomba.
 

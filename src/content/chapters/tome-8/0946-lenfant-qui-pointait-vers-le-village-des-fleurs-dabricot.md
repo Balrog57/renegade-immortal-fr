@@ -15,9 +15,9 @@ Cet individu portait une robe verte et semblait âgé d'une trentaine d'années.
 
 Wang Lin parcourut toute la distance ainsi. Il n'utilisa pas la Déviation Spatiale, se contentant de marcher calmement parmi les étoiles. Cela faisait quatre jours qu'il était revenu du vide.
 
-Il y a quatre jours, lui et Qing Shui avaient ouvert le passage de retour depuis le vide avec l'aide du Maître Flamespark. Wang Lin n'avait que peu parlé de ce qui s'était passé dans le vide; il n'avait pas approfondi la question des localisations d'Yi Muzi, de Wudo Chan ou du Serpent Moongazer.
+Il y a quatre jours, lui et Qing Shui avaient ouvert le passage de retour depuis le vide avec l'aide du Maître Flamespark. Wang Lin n'avait que peu parlé de ce qui s'était passé dans le vide; il n'avait pas approfondi la question des localisations d'Yi Muzi, de Wudo Chan ou du Serpent aux yeux de lune.
 
-Le Maître Flamespark n'avait pas posé trop de questions, mais lorsqu'ils évoquèrent le Serpent Moongazer, il fronça les sourcils.
+Le Maître Flamespark n'avait pas posé trop de questions, mais lorsqu'ils évoquèrent le Serpent aux yeux de lune, il fronça les sourcils.
 
 Wang Lin ne s'attarda pas longtemps avec le Maître Flamespark. Il décida de partir en prétextant une affaire personnelle. Le Maître Flamespark réfléchit silencieusement un long moment et ne força pas Wang Lin à rester. Bien qu'il fût incapable de percer les mystères du corps divin ancien de Wang Lin malgré un niveau de culture bien supérieur, il pouvait ressentir une aura puissante émanant de lui qui le frappait de stupeur.
 

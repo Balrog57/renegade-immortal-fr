@@ -24,19 +24,19 @@ L'éveil de l'Oiseau Vermillon n'avait pas augmenté le niveau de culture de Wan
 
 Son corps de Dieu Ancien s'était adapté aux flammes; désormais, il pouvait invoquer le feu d'un simple geste de la main!
 
-Bien que Wang Lin n'en fût qu'au stade intermédiaire du Nirvana Scryer, il était le cultivateur Nirvana Scryer le plus puissant. Conjugué à son corps de Dieu Ancien, même des cultivateurs au stade avancé du Nirvana Cleanser auraient du mal à gérer ses redoutables sorts de flammes et sa constitution!
+Bien que Wang Lin n'en fût qu'au stade intermédiaire du Scruteur du Nirvana, il était le cultivateur Scruteur du Nirvana le plus puissant. Conjugué à son corps de Dieu Ancien, même des cultivateurs au stade avancé du Purificateur du Nirvana auraient du mal à gérer ses redoutables sorts de flammes et sa constitution!
 
-Cependant, son corps de Dieu Ancien n'étant qu'à cinq étoiles, il y avait une limite à la puissance qu'il pouvait déployer. Manifester la force d'un cultivateur Nirvana Cleanser de stade intermédiaire était son maximum.
+Cependant, son corps de Dieu Ancien n'étant qu'à cinq étoiles, il y avait une limite à la puissance qu'il pouvait déployer. Manifester la force d'un cultivateur Purificateur du Nirvana de stade intermédiaire était son maximum.
 
-Wang Lin aspirait à la puissance nécessaire pour combattre des cultivateurs au stade avancé du Nirvana Cleanser, mais il devait lui-même atteindre ce stade pour y parvenir!
+Wang Lin aspirait à la puissance nécessaire pour combattre des cultivateurs au stade avancé du Purificateur du Nirvana, mais il devait lui-même atteindre ce stade pour y parvenir!
 
-Après tout, la différence entre chaque petite étape au sein de la seconde étape était immense. Même si Wang Lin possédait la puissance d'un Dieu Ancien, certains gouffres ne pouvaient être franchis si facilement, comme l'écart entre le stade intermédiaire et le stade avancé du Nirvana Cleanser!
+Après tout, la différence entre chaque petite étape au sein de la seconde étape était immense. Même si Wang Lin possédait la puissance d'un Dieu Ancien, certains gouffres ne pouvaient être franchis si facilement, comme l'écart entre le stade intermédiaire et le stade avancé du Purificateur du Nirvana!
 
-L'Ancêtre de Sang était resté au stade intermédiaire du Nirvana Cleanser pendant une longue période sans parvenir à atteindre le stade avancé. Cela prouvait la difficulté de la tâche!
+L'Ancêtre de Sang était resté au stade intermédiaire du Purificateur du Nirvana pendant une longue période sans parvenir à atteindre le stade avancé. Cela prouvait la difficulté de la tâche!
 
 En vérité, à moins d'une fortune exceptionnelle, il était très difficile pour les cultivateurs d'atteindre le stade avancé et le sommet de celui-ci. Outre l'élargissement de son propre domaine, il fallait apprendre à contrôler les lois du monde.
 
-Le stade avancé du Nirvana Cleanser exige la fusion de la loi et du domaine. Cette maîtrise atteint son apogée au sommet du stade avancé, jusqu'à ce que l'on entre dans le rêve de la plupart des cultivateurs: le Nirvana Shatterer... le plus haut niveau de culture connu!
+Le stade avancé du Purificateur du Nirvana exige la fusion de la loi et du domaine. Cette maîtrise atteint son apogée au sommet du stade avancé, jusqu'à ce que l'on entre dans le rêve de la plupart des cultivateurs: le Briseur du Nirvana... le plus haut niveau de culture connu!
 
 À cet instant, la mer de flammes s'engouffrait dans le monde de la bouteille et percutait sans relâche le dernier royaume. À chaque impact, la bouteille tremblait.
 

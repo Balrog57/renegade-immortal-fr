@@ -10,11 +10,11 @@ Dans le système stellaire de l'Alliance, Wang Lin avait les cheveux blancs et r
 
 Tout en contemplant ce système stellaire inconnu avec un sentiment de familiarité, Wang Lin restait calme. Il avait quitté ces contrées il y a très longtemps.
 
-Lorsqu'il était parti, il venait d'atteindre le stade d'Ascendant. À son retour, il atteignait déjà celui du Nirvana Scryer.
+Lorsqu'il était parti, il venait d'atteindre le stade d'Ascendant. À son retour, il atteignait déjà celui du Scruteur du Nirvana.
 
 « Omniscient, Ling Tianhou… Moi, Wang Lin, suis de retour! » Les yeux de Wang Lin brillèrent. Dans son sac, il possédait toujours la clé de la grotte des Terres de l'Esprit Démoniaque; il s'était assuré de la garder en lieu sûr.
 
-Le niveau de culture de Wang Lin n'était pas élevé lorsqu'il résidait encore dans le système stellaire de l'Alliance. La puissance la plus haute qu'il connaissait ne dépassait pas les pays de culture de rang 7. Cependant, il était désormais un cultivateur du Nirvana Scryer et, même dans le système stellaire d'Allheaven, il avait attiré l'attention des vieux monstres. Maintenant qu'il était revenu, il pourrait déclencher une tempête s'il le souhaitait.
+Le niveau de culture de Wang Lin n'était pas élevé lorsqu'il résidait encore dans le système stellaire de l'Alliance. La puissance la plus haute qu'il connaissait ne dépassait pas les pays de culture de rang 7. Cependant, il était désormais un cultivateur du Scruteur du Nirvana et, même dans le système stellaire d'Allheaven, il avait attiré l'attention des vieux monstres. Maintenant qu'il était revenu, il pourrait déclencher une tempête s'il le souhaitait.
 
 Toutefois, Wang Lin savait parfaitement que l'Alliance ne pouvait être comparée à Allheaven. Les eaux de l'Alliance étaient bien trop profondes.
 

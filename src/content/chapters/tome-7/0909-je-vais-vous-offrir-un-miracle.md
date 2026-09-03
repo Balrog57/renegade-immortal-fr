@@ -58,7 +58,7 @@ Tandis que le tonnerre grondait, la branche absorba l'intégralité du phénomè
 
 Wang Lin en eut le visage assombri.
 
-« Avec ta culture de stade précoce du Nirvana Scryer, à moins d'un miracle, tu n'es rien face à moi. Il est temps de tout mettre fin! » Les yeux de Yu Fei brillèrent d'une intention meurtrière alors qu'il chargeait à travers le tonnerre. Les cinq épées volantes l'accompagnèrent pour fondre sur Wang Lin.
+« Avec ta culture de stade précoce du Scruteur du Nirvana, à moins d'un miracle, tu n'es rien face à moi. Il est temps de tout mettre fin! » Les yeux de Yu Fei brillèrent d'une intention meurtrière alors qu'il chargeait à travers le tonnerre. Les cinq épées volantes l'accompagnèrent pour fondre sur Wang Lin.
 
 Wang Lin recula tout en fixant Yu Fei qui approchait, et dit calmement: « Je vais t'offrir un miracle! » Sur ces mots, des ondulations apparurent sous ses pieds et il disparut soudainement.
 

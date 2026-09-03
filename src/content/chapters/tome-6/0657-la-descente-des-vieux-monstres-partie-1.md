@@ -122,7 +122,7 @@ Il prit une grande inspiration et frappa son sac de rangement. La formation des 
 
 Alors qu'il s'élevait, le regard de Wang Lin se fit glacial.
 
-« Cependant, puisque ce dernier jeton est entre mes mains, ils ne pourront pas pénétrer dans la véritable grotte sans moi. Même s'ils viennent sur la Terre des Esprits Démoniaques, cela sera inutile. Et même s'ils apprennent par Greed que je possède le jeton, il sera trop tard. Je serai déjà parti pour le système d'Allheaven! »
+« Cependant, puisque ce dernier jeton est entre mes mains, ils ne pourront pas pénétrer dans la véritable grotte sans moi. Même s'ils viennent sur la Terre des Esprits Démoniaques, cela sera inutile. Et même s'ils apprennent par Cupidité que je possède le jeton, il sera trop tard. Je serai déjà parti pour le système d'Allheaven! »
 
 « Une fois que mon niveau de culture aura atteint un point où je pourrai rivaliser avec l'Omniscient et ses compagnons, alors je pourrai revenir et percer le secret de cette grotte! »
 

@@ -16,7 +16,7 @@ L'homme d'âge moyen de la Secte Éternelle était manifestement un haut dignita
 
 Cette remarque était quelque peu impolie. Mu Bingmei fronça les sourcils et, lançant un regard froid à l'homme d'âge moyen, répondit avec calme: « Il n'est pas nécessaire de connaître son nom. Le rencontrer pourrait bien ne pas être une chance pour vous! »
 
-L'homme d'âge moyen rit, nullement offensé, et secoua la tête. « Un simple cultivateur du Nettoyage du Nirvana... J'espérais seulement connaître son nom afin que, si je le croise, je puisse lui offrir une opportunité grandiose. Cependant, puisque la cultivatrice Mu refuse de le dire, passons! »
+L'homme d'âge moyen rit, nullement offensé, et secoua la tête. « Un simple cultivateur du Purificateur du Nirvana... J'espérais seulement connaître son nom afin que, si je le croise, je puisse lui offrir une opportunité grandiose. Cependant, puisque la cultivatrice Mu refuse de le dire, passons! »
 
 Le Maître de la Secte Éternelle, cet homme d'âge moyen, paraissait serein, mais son cœur n'était pas à la fête. Il jeta un regard à l'autre homme, mais finit par garder le silence.
 
@@ -86,7 +86,7 @@ L'environnement était plongé dans un silence absolu. Cette compétition de la 
 
 « Cher compagnon cultivateur, je sollicite votre enseignement. » Sur l'arène, Lu Yanfei affichait un regard ferme en s'inclinant légèrement vers Lu Yuncong.
 
-Lu Yuncong réfléchit un instant avant de se tourner vers le Maître et les Anciens de la Secte Éternelle. Il joignit les mains et sa voix, bien que claire, fit vibrer l'air, trahissant son niveau de culture de Nettoyage du Nirvana.
+Lu Yuncong réfléchit un instant avant de se tourner vers le Maître et les Anciens de la Secte Éternelle. Il joignit les mains et sa voix, bien que claire, fit vibrer l'air, trahissant son niveau de culture de Purificateur du Nirvana.
 
 « Seniors de la secte principale, ce disciple ne souhaite pas affronter la Secte Origine. Cette situation est injuste! »
 

@@ -54,7 +54,7 @@ Tout en parlant, Gu Ya regarda Wang Lin avec embarras et joignit les mains.
 
 « Nous essaierons de satisfaire toutes vos exigences au mieux de nos capacités. » Gu Ya s'inclina profondément et resta ainsi.
 
-Wang Lin réfléchit silencieusement et observa Greed, qui affichait un visage amer.
+Wang Lin réfléchit silencieusement et observa Cupidité, qui affichait un visage amer.
 
 « Petite Gu Ya, pourquoi parles-tu autant? Petit Wang Lin, maintenant qu'il n'y a plus d'autres Grands Empyreans ici, nous te posons la question: viendras-tu ou non? » La petite fille nommée Han Han fit la moue et lança un regard noir à Wang Lin.
 
@@ -82,11 +82,11 @@ Wang Lin fut stupéfait.
 
 Wang Lin esquissa un sourire amer en regardant les deux fillettes et soupira. Il sentit soudain que, comparé aux autres Grands Empyreans, c'étaient ces deux petites filles qui lui procuraient une sensation de convivialité.
 
-En particulier... Les yeux de Wang Lin s'illuminèrent lorsqu'il regarda Greed.
+En particulier... Les yeux de Wang Lin s'illuminèrent lorsqu'il regarda Cupidité.
 
 « J'avais effectivement ignoré un problème auparavant! Même avec le pouvoir du Maître Xuan Luo, il ne pouvait pas extraire des êtres du monde des grottes — il ne pouvait que les protéger pendant leur réincarnation. Même pour moi, le Maître a dû payer un certain prix pour m'aider à partir. »
 
-« Mais le niveau de culture de Greed n'est pas élevé, et pourtant il a été extrait sans effort du monde des grottes par le Grand Empyrean Gemini. » Wang Lin prit une profonde inspiration et son regard balaya les deux fillettes devant lui, s'attardant sur Han Han. Son expression fière était très mignonne.
+« Mais le niveau de culture de Cupidité n'est pas élevé, et pourtant il a été extrait sans effort du monde des grottes par le Grand Empyrean Gemini. » Wang Lin prit une profonde inspiration et son regard balaya les deux fillettes devant lui, s'attardant sur Han Han. Son expression fière était très mignonne.
 
 « Même après avoir subi un accident lors de la réincarnation, le Grand Empyrean Gemini possède encore une telle puissance. S'ils n'avaient pas eu cet accident... ils seraient les Grands Empyreans les plus puissants du clan céleste. Je me demande comment elle se comparerait au Grand Empyrean Dong Lin... »
 
@@ -102,7 +102,7 @@ La réponse de Wang Lin fit immédiatement applaudir Han Han, qui parut encore p
 
 « C'est ça, tu aurais dû le dire plus tôt. Peu importe, je ne laisserai pas mon père te frapper. »
 
-Wa Wa, sur le côté, était également ravie. Maintenant que tout était réglé, elle tira Han Han vers Greed, qui tremblait de peur.
+Wa Wa, sur le côté, était également ravie. Maintenant que tout était réglé, elle tira Han Han vers Cupidité, qui tremblait de peur.
 
 « Petit Loup, ta performance aujourd'hui n'était pas terrible, mais je peux te donner quelques petites fleurs rouges! Han Han, combien de petites fleurs rouges devrions-nous lui donner? »
 
@@ -110,13 +110,13 @@ Wa Wa, sur le côté, était également ravie. Maintenant que tout était régl�
 
 « Donnons-lui six. Je pense que six est plus facile à compter. Tu en as trois et j'en ai trois. »
 
-Gu Ya ignora les deux ancêtres qui maltraitaient Greed et les sons de détresse qu'il émettait. Il fixa Wang Lin, incapable de croire que celui-ci avait accepté si simplement.
+Gu Ya ignora les deux ancêtres qui maltraitaient Cupidité et les sons de détresse qu'il émettait. Il fixa Wang Lin, incapable de croire que celui-ci avait accepté si simplement.
 
 Bien qu'il soit arrivé tardivement, il imaginait aisément que les propositions de Dao Yi, Wu Feng et Jiu Di devaient être extraordinaires et capables de tenter n'importe quel cultivateur.
 
 « Senior, vous... » Gu Ya eut soudain l'impression d'être dans un rêve.
 
-Wang Lin regarda les deux fillettes jouer au loin, tapotant la tête de Greed. Puis il se tourna vers Gu Ya et dit: « Cependant, j'ai une requête. Je ne pourrai pas rester auprès du Grand Empyrean Gemini très longtemps. Je vais faire un voyage dans le Continent Central... Ensuite, je me retirerai en culture fermée et j'ignorerai le monde extérieur. »
+Wang Lin regarda les deux fillettes jouer au loin, tapotant la tête de Cupidité. Puis il se tourna vers Gu Ya et dit: « Cependant, j'ai une requête. Je ne pourrai pas rester auprès du Grand Empyrean Gemini très longtemps. Je vais faire un voyage dans le Continent Central... Ensuite, je me retirerai en culture fermée et j'ignorerai le monde extérieur. »
 
 « Quand je partirai, vous ne pourrez pas m'en empêcher, et si un Grand Empyrean agit contre moi alors que je serai au Continent Central, vous devrez m'aider. Peut-être ne suivrai-je le Grand Empyrean Gemini que pendant quelques années... »
 

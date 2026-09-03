@@ -28,9 +28,9 @@ En un battement de cils, le corps entier de Wang Lin fut recouvert d'innombrable
 
 Les expressions du Maître Démon Neuf Cieux et de la femme en rose changèrent radicalement. Ils ne se souciaient plus de réveiller l'ancien démon et chargèrent Wang Lin.
 
-À cet instant, une autre plateforme s'approcha du vortex. Il s'agissait de Great Desolation, qui pénétra lui aussi dans le vortex dès son arrivée.
+À cet instant, une autre plateforme s'approcha du vortex. Il s'agissait de Grande Désolation, qui pénétra lui aussi dans le vortex dès son arrivée.
 
-Après Great Desolation vint la femme en blanc. Elle fronça les sourcils, rangea sa plateforme et entra dans le vortex.
+Après Grande Désolation vint la femme en blanc. Elle fronça les sourcils, rangea sa plateforme et entra dans le vortex.
 
 Alors que le Maître Démon Neuf Cieux et la femme en rose approchaient, Wang Lin laissa échapper un ricanement.
 
@@ -52,7 +52,7 @@ Une plateforme de rang 9!
 
 L'expression de la femme en rose changea également alors qu'elle fonçait vers la plateforme.
 
-Great Desolation, dévoré par la cupidité, se précipita lui aussi.
+Grande Désolation, dévoré par la cupidité, se précipita lui aussi.
 
 Seule la femme en blanc recula, pensive. Elle semblait vouloir se retirer de cette lutte.
 
@@ -90,9 +90,9 @@ Alors que le vortex se désintégrait, les deux bras géants se rejoignirent. Il
 
 La femme en blanc fut la première à battre en retraite, s'éloignant dans la terreur pour éviter les bras. Cependant, l'onde de choc la frappa, lui faisant cracher du sang et la projetant au loin.
 
-Great Desolation ne fut pas aussi chanceux. Étant le dernier arrivé et le plus proche de l'un des bras, il ne put absolument rien esquiver avant que l'impact ne le percute. Son corps fut réduit en bouillie. Même l'avatar du Maître Dao Miao Yin, un corps de cultivateur de la troisième étape, ne put survivre à un tel coup!
+Grande Désolation ne fut pas aussi chanceux. Étant le dernier arrivé et le plus proche de l'un des bras, il ne put absolument rien esquiver avant que l'impact ne le percute. Son corps fut réduit en bouillie. Même l'avatar du Maître Dao Miao Yin, un corps de cultivateur de la troisième étape, ne put survivre à un tel coup!
 
-Great Desolation poussa un cri déchirant et son âme hurla. Il tenta de s'échapper, mais le souffle de l'impact extingnit purement et simplement son âme.
+Grande Désolation poussa un cri déchirant et son âme hurla. Il tenta de s'échapper, mais le souffle de l'impact extingnit purement et simplement son âme.
 
 Tout cela se produisit en un éclair.
 

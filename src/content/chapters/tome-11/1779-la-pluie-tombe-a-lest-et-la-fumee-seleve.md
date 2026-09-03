@@ -42,7 +42,7 @@ Ce jade était d'une clarté cristalline et n'avait rien d'ordinaire; lorsqu'il 
 
 Cependant, le reflet de Wang Lin dans la rivière différait grandement de son apparence habituelle. Son visage présentait des lèvres rouges, des dents blanches, des sourcils en forme d'épée et des yeux semblables à des étoiles. Ses yeux étaient particulièrement profonds, comme s'ils contenaient une puissance infinie. Devant un tel regard, les hommes étaient condamnés à la déférence et les femmes à l'admiration.
 
-Il avait l'apparence d'un jeune homme d'environ 18 ou 19 ans. C'était l'être le plus beau que Wang Lin ait jamais vu de sa vie. Pourtant, si l'on ajoutait au visage le poids du temps et la mélancolie de l'existence, il devenait extrêmement similaire à la statue que Wang Lin avait prise à Greed!
+Il avait l'apparence d'un jeune homme d'environ 18 ou 19 ans. C'était l'être le plus beau que Wang Lin ait jamais vu de sa vie. Pourtant, si l'on ajoutait au visage le poids du temps et la mélancolie de l'existence, il devenait extrêmement similaire à la statue que Wang Lin avait prise à Cupidité!
 
 En contemplant son reflet dans la rivière, Wang Lin gardait une expression étrange, même après deux mois passés ici.
 

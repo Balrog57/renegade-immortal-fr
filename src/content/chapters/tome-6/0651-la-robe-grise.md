@@ -30,11 +30,11 @@ Après avoir méticuleusement exploré l'espace intérieur du jeton, Wang Lin re
 
 « Mais l'Ancêtre Sanguin, lui, le sait. »
 
-« Chen Long et Greed savent que j'ai obtenu le jeton. Cependant, Chen Long n'a pas tout vu. À sa place, je penserais que Greed aurait fini par s'emparer du jeton! »
+« Chen Long et Cupidité savent que j'ai obtenu le jeton. Cependant, Chen Long n'a pas tout vu. À sa place, je penserais que Cupidité aurait fini par s'emparer du jeton! »
 
 Après une profonde inspiration, Wang Lin détourna le regard. En observant l'obscurité totale par la fissure, son visage se mua en une expression amère.
 
-« Même si j'ai obtenu le jeton, à quoi bon, alors que je suis piégé ici sans pouvoir m'échapper? Il est inutile de tenter une téléportation, puisque même des êtres aussi rusés que Greed ne l'ont pas fait une seule fois. Je me demande simplement si je peux entrer dans la grotte par ici. » Les yeux de Wang Lin se plissèrent tandis qu'il touchait son sac de rangement; un cristal apparut alors dans sa main.
+« Même si j'ai obtenu le jeton, à quoi bon, alors que je suis piégé ici sans pouvoir m'échapper? Il est inutile de tenter une téléportation, puisque même des êtres aussi rusés que Cupidité ne l'ont pas fait une seule fois. Je me demande simplement si je peux entrer dans la grotte par ici. » Les yeux de Wang Lin se plissèrent tandis qu'il touchait son sac de rangement; un cristal apparut alors dans sa main.
 
 Après un long moment, Wang Lin poussa un soupir et esquissa un sourire amer. « Je ne parviens pas à l'activer! »
 
@@ -42,7 +42,7 @@ Il réfléchit un instant et observa les environs. Cette fissure n'était pas la
 
 Wang Lin recula, le regard vacillant.
 
-« Je me demande comment se porte la bête-moustique... Et quel est le résultat du combat entre Senior Zhou Yi et Greed... Pourtant, même si Zhou Yi a triomphé, il ne saura toujours pas où je me trouve. Après tout, même son Sens Divin d'épée ne peut atteindre cet endroit. »
+« Je me demande comment se porte la bête-moustique... Et quel est le résultat du combat entre Senior Zhou Yi et Cupidité... Pourtant, même si Zhou Yi a triomphé, il ne saura toujours pas où je me trouve. Après tout, même son Sens Divin d'épée ne peut atteindre cet endroit. »
 
 Il leva les yeux vers la paroi et son corps s'anima alors qu'il tentait d'utiliser le sort d'Évasion Tellurique. Cependant, dès que son corps effleura le mur, il fut stoppé net. Après une brève réflexion, Wang Lin se rassoit au sol et frappa son sac de rangement. Il en sortit une bannière d'âme, puis une âme qu'il projeta contre la paroi pour l'observer attentivement.
 

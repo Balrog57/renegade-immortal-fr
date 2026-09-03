@@ -18,13 +18,13 @@ Lu Yanfei se tenait aux côtés de Lu Yuncong; elle s'inclina respectueusement e
 
 La plupart des personnes sur les gradins ne prêtèrent pas attention à Lu Yanfei, mais regardèrent Lu Yuncong avec admiration. L'homme d'âge mûr nommé Zhou observa Lu Yuncong avec bienveillance.
 
-« Lu Yuncong, la personne dont tu as parlé est-elle Lu Zihao de la Secte Origin? » La voix de l'homme en blanc était calme et dégageait une pression invisible. Sa culture au sommet du stade Nirvana Shatterer se propagea, mais elle semblait fort naturelle, comme s'il ne révélait pas son véritable niveau.
+« Lu Yuncong, la personne dont tu as parlé est-elle Lu Zihao de la Secte Origin? » La voix de l'homme en blanc était calme et dégageait une pression invisible. Sa culture au sommet du stade Briseur du Nirvana se propagea, mais elle semblait fort naturelle, comme s'il ne révélait pas son véritable niveau.
 
 Lu Yuncong réfléchit un instant puis dit lentement: « Le disciple ne connaît pas le nom de cet homme, mais je suppose qu'il s'agit de Lu Zihao. »
 
 L'homme en blanc regarda calmement Lu Yuncong et demanda: « Quel est son niveau de culture? »
 
-« Début du stade Nirvana Cleanser... Mais... » Lu Yuncong hésita un instant avant de poursuivre: « Le disciple a seulement ressenti une culture au début du stade Nirvana Cleanser, mais il n'a pas pu voir clair en lui, comme s'il cachait son véritable niveau. »
+« Début du stade Purificateur du Nirvana... Mais... » Lu Yuncong hésita un instant avant de poursuivre: « Le disciple a seulement ressenti une culture au début du stade Purificateur du Nirvana, mais il n'a pas pu voir clair en lui, comme s'il cachait son véritable niveau. »
 
 Après ses paroles, les membres de la Secte Éternelle échangèrent des regards. L'homme en blanc réfléchit un moment avant de dire: « Comment as-tu rencontré cet homme? Raconte-nous tout en détail! »
 
@@ -96,10 +96,10 @@ C'était la première fois que Mu Bingmei posait les yeux sur Li Qianmei. La bea
 
 Le Maître de la Secte Éternelle fronça les sourcils en regardant les deux Anciens qui s'étaient levés.
 
-L'un des Anciens, encore sous le choc, prit une profonde inspiration et déclara: « Je ne savais pas qu'il s'agissait de Lu Zihao! Cependant, ce que Lu Yuncong a dit est quelque peu erroné! Comment cet homme pourrait-il n'être qu'un cultivateur au stade Nirvana Cleanser? J'ai emmené mes disciples dans le Domaine de la Brume des Bêtes du Chaos pour l'entraînement et j'ai vu cet homme terrasser avec aisance des centipèdes de feu de rang 11 et blesser gravement une bête de rang 12. S'il n'avait pas été blessé, je crains que même moi ne sois pas de taille face à lui! »
+L'un des Anciens, encore sous le choc, prit une profonde inspiration et déclara: « Je ne savais pas qu'il s'agissait de Lu Zihao! Cependant, ce que Lu Yuncong a dit est quelque peu erroné! Comment cet homme pourrait-il n'être qu'un cultivateur au stade Purificateur du Nirvana? J'ai emmené mes disciples dans le Domaine de la Brume des Bêtes du Chaos pour l'entraînement et j'ai vu cet homme terrasser avec aisance des centipèdes de feu de rang 11 et blesser gravement une bête de rang 12. S'il n'avait pas été blessé, je crains que même moi ne sois pas de taille face à lui! »
 
 Après son intervention, tous les Anciens de la Secte Éternelle furent stupéfaits. Si un autre l'avait affirmé, ils ne l'auraient peut-être pas cru, mais l'Ancien Wu Tian, toujours calme et imperturbable, jouissait d'une immense crédibilité.
 
-« Ainsi, l'Ancien Wu a vu cet homme. Ce vieil homme n'a pas vu son visage, mais j'ai aperçu sa silhouette. Plus tôt, j'ai reçu des rapports des régions de rang 6 et de rang 7. Quelqu'un a surgi de la région de rang 5 pour traverser celle de rang 6. Sa vitesse était prodigieuse, comparable à celle d'un Nirvana Shatterer au sommet ou d'un cultivateur au premier stade du Flétrissement Céleste. Il a survolé d'innombrables continents sans que personne n'ose l'arrêter! »
+« Ainsi, l'Ancien Wu a vu cet homme. Ce vieil homme n'a pas vu son visage, mais j'ai aperçu sa silhouette. Plus tôt, j'ai reçu des rapports des régions de rang 6 et de rang 7. Quelqu'un a surgi de la région de rang 5 pour traverser celle de rang 6. Sa vitesse était prodigieuse, comparable à celle d'un Briseur du Nirvana au sommet ou d'un cultivateur au premier stade du Flétrissement Céleste. Il a survolé d'innombrables continents sans que personne n'ose l'arrêter! »
 
-« Il a forcé le passage dans la région de rang 6 et a brisé la formation pour pénétrer dans la région de rang 7. L'une des sectes affiliées avait déployé trois cultivateurs Nirvana Shatterer pour tenter de l'intercepter. Cet homme a utilisé l'Empreinte d'Esprit de Guerre! Cette technique a pulvérisé plusieurs continents sauvages, et beaucoup ont été contraints de déplacer leurs terres pour lui laisser le passage! Il a chargé jusqu'à la région de rang 8! » Après ces paroles, l'étonnement général atteignit son paroxysme.
+« Il a forcé le passage dans la région de rang 6 et a brisé la formation pour pénétrer dans la région de rang 7. L'une des sectes affiliées avait déployé trois cultivateurs Briseur du Nirvana pour tenter de l'intercepter. Cet homme a utilisé l'Empreinte d'Esprit de Guerre! Cette technique a pulvérisé plusieurs continents sauvages, et beaucoup ont été contraints de déplacer leurs terres pour lui laisser le passage! Il a chargé jusqu'à la région de rang 8! » Après ces paroles, l'étonnement général atteignit son paroxysme.

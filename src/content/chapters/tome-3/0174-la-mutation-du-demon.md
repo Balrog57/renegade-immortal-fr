@@ -40,17 +40,17 @@ Peu de temps après, le nuage passa. Derrière lui se trouvait la tornade reine.
 
 La tornade reine poussa le nuage noir au-delà de la position de Wang Lin et s'éloigna dans les profondeurs. Peu après, la tornade reine revint. Cette fois, elle se déplaçait encore plus vite, poussant des hurlements tonitruants avant de disparaître à nouveau.
 
-Une fois le calme revenu, Wang Lin continua sa progression lente. Il eut un ricanement amer. Ce nuage noir devait avoir été créé par Hunchback Meng. Sans la tornade reine pour le repousser, les petites créatures auraient énormément souffert une fois le nuage dispersé.
+Une fois le calme revenu, Wang Lin continua sa progression lente. Il eut un ricanement amer. Ce nuage noir devait avoir été créé par Bossu Meng. Sans la tornade reine pour le repousser, les petites créatures auraient énormément souffert une fois le nuage dispersé.
 
-Après réflexion, ses yeux s'illuminèrent. Hunchback Meng devait posséder de nombreux trésors et pilules; si ces petites créatures parvenaient à le tuer, Wang Lin pourrait peut-être s'en emparer. En songeant aux richesses d'un puissant cultivateur de la Formation de l'Âme, le cœur de Wang Lin se mit à battre plus vite. Cependant, il chassa rapidement cette idée. Comparés aux trésors, sa vie était bien plus précieuse.
+Après réflexion, ses yeux s'illuminèrent. Bossu Meng devait posséder de nombreux trésors et pilules; si ces petites créatures parvenaient à le tuer, Wang Lin pourrait peut-être s'en emparer. En songeant aux richesses d'un puissant cultivateur de la Formation de l'Âme, le cœur de Wang Lin se mit à battre plus vite. Cependant, il chassa rapidement cette idée. Comparés aux trésors, sa vie était bien plus précieuse.
 
-Après un soupir, Wang Lin abandonna ces pensées irréalistes et reprit sa marche. Toutefois, après avoir confirmé la position de Hunchback Meng, il ne marcha plus en ligne droite, mais fit un détour.
+Après un soupir, Wang Lin abandonna ces pensées irréalistes et reprit sa marche. Toutefois, après avoir confirmé la position de Bossu Meng, il ne marcha plus en ligne droite, mais fit un détour.
 
 Une demi-lune plus tard, il traversa une zone remplie de tornades noires qui le stupéfia dès qu'il les perçut par son Sens Divin.
 
 Le groupe de tornades était extrêmement dense. Le nombre de petites créatures là devait excéder les cent millions. Wang Lin en eut le vertige. Cela le rendit encore plus prudent; il passa un mois entier à contourner ce groupe de tourbillons.
 
-La plupart des tornades noires avaient été attirées par Hunchback Meng, ainsi, bien qu'il y eût quelques frayeurs en chemin, le danger réel restait limité. Wang Lin se trouvait alors à l'intérieur d'une tour noire tout en surveillant la position de Hunchback Meng.
+La plupart des tornades noires avaient été attirées par Bossu Meng, ainsi, bien qu'il y eût quelques frayeurs en chemin, le danger réel restait limité. Wang Lin se trouvait alors à l'intérieur d'une tour noire tout en surveillant la position de Bossu Meng.
 
 Après un ricanement intérieur, il quitta la tour et poursuivit sa route. Au loin, il pouvait distinguer un vortex gigantesque dans le ciel.
 
@@ -62,11 +62,11 @@ Cependant, l'évasion terrestre n'augmentait la vitesse uniquement lorsqu'on ét
 
 Ces derniers mois, Wang Lin avait utilisé cette technique sans relâche, et sa maîtrise s'en trouvait grandement accrue. Il sentait que son savoir n'était rien comparé à la véritable technique d'évasion terrestre, celle qui, disait-on, permettait de parcourir des dizaines de milliers de kilomètres en quelques respirations.
 
-Tout en soupirant, il n'oublia pas de maintenir son Sens Divin déployé pour inspecter les environs. Par chance, de vastes quantités de tornades noires étaient attirées par Hunchback Meng. En avançant ainsi, Wang Lin ne rencontra guère de danger.
+Tout en soupirant, il n'oublia pas de maintenir son Sens Divin déployé pour inspecter les environs. Par chance, de vastes quantités de tornades noires étaient attirées par Bossu Meng. En avançant ainsi, Wang Lin ne rencontra guère de danger.
 
 Trois jours plus tard, le vortex était désormais à portée de vue. Alors qu'il progressait, l'expression de Wang Lin changea brusquement et il s'enfouit dans le sol. Soudain, une force puissante se mit à lui résister. Il vida une grande gorgée de liquide spirituel pour obtenir la puissance nécessaire pour la repousser.
 
-Non loin de là, dix tornades noires apparurent soudainement en direction du vortex. Leur cible était Hunchback Meng. Lorsqu'elles atteignirent l'endroit où se cachait Wang Lin, elles s'arrêtèrent brusquement et commencèrent à encercler la zone.
+Non loin de là, dix tornades noires apparurent soudainement en direction du vortex. Leur cible était Bossu Meng. Lorsqu'elles atteignirent l'endroit où se cachait Wang Lin, elles s'arrêtèrent brusquement et commencèrent à encercler la zone.
 
 Le cœur de Wang Lin sombra. Il avait tenté d'entrer dans l'espace de la perle défiant le ciel auparavant, mais il n'y était pas parvenu depuis son arrivée dans ce désert. Autrement, il se serait contenté de s'y réfugier jusqu'à ce que les tornades passent.
 

@@ -54,7 +54,7 @@ Le tournesol géant libéra une lumière dorée mêlée d'un éclat rouge sang. 
 
 Une force destructrice se propagea rapidement depuis l'intérieur du pilier. Puis, une ombre sans tête apparut vaguement dans la lumière. Cette ombre, vêtue d'une armure et tenant une lance, chargea à travers le pilier!
 
-Par quelque méthode inconnue, cette puissance surpassait les limites des cultivateurs de la cinquième étape de la Peste Céleste et se rapprochait infiniment des sorts de Flamme Divine des cultivateurs du troisième pas! On pourrait même dire que l'aura de ce pilier de lumière était presque identique à celle d'un cultivateur du Nirvana Void au début du troisième pas! Tout cela était dû à cette ombre sans tête nichée dans la lumière!
+Par quelque méthode inconnue, cette puissance surpassait les limites des cultivateurs de la cinquième étape de la Peste Céleste et se rapprochait infiniment des sorts de Flamme Divine des cultivateurs du troisième pas! On pourrait même dire que l'aura de ce pilier de lumière était presque identique à celle d'un cultivateur du Vide du Nirvana au début du troisième pas! Tout cela était dû à cette ombre sans tête nichée dans la lumière!
 
 Wang Lin se retourna brusquement, son regard fulgurant balayant la zone. Il vit l'ombre sans tête. Le pilier de lumière était trop rapide; il se trouvait désormais à moins de dix mètres de Wang Lin! C'était comme s'il ne lui laissait aucune chance d'esquiver!
 
@@ -62,7 +62,7 @@ Mais Wang Lin n'avait nullement l'intention de l'esquiver. Ses yeux brillèrent 
 
 Des grondements tonitruants déchirèrent la planète Dong Ling et se propagèrent dans toutes les directions comme un rugissement assourdissant. Le pilier de lumière percuta la paume droite de Wang Lin. L'ombre sans tête, à l'intérieur du faisceau, projeta sa lance contre la main de Wang Lin!
 
-Le fracas fut assourdissant. Les cheveux blancs de Wang Lin furent balayés par un vent violent. Ses vêtements claquaient avec force, comme s'ils allaient être arrachés de son corps! Cependant, le corps de Wang Lin ne bougea pas d'un pouce. Son expression resta imperturbable. Il venait de contenir une attaque proche de celle d'un cultivateur du Nirvana Void d'une seule main!
+Le fracas fut assourdissant. Les cheveux blancs de Wang Lin furent balayés par un vent violent. Ses vêtements claquaient avec force, comme s'ils allaient être arrachés de son corps! Cependant, le corps de Wang Lin ne bougea pas d'un pouce. Son expression resta imperturbable. Il venait de contenir une attaque proche de celle d'un cultivateur du Vide du Nirvana d'une seule main!
 
 Sous les grondements de tonnerre, le monde semblait se déchirer. Une immense faille apparut dans la terre sous les pieds de Wang Lin. Ce gouffre s'enfonça profondément dans la planète et, à cet instant précis, la partie orientale de Dong Ling se détacha du reste du globe!
 

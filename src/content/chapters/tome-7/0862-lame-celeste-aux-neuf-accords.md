@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 862 - Nine Tune Heavenly Blade
 slug: lame-celeste-aux-neuf-accords
 ---
-Wang Lin utilisa un seul sort pour repousser Tang Yanfeng, révélant ainsi sa culture de Nirvana Scryer au stade initial. À la suite de cette démonstration, les pensées des spectateurs divergèrent lorsqu'ils entendirent les paroles de Zhan Konglie.
+Wang Lin utilisa un seul sort pour repousser Tang Yanfeng, révélant ainsi sa culture de Scruteur du Nirvana au stade initial. À la suite de cette démonstration, les pensées des spectateurs divergèrent lorsqu'ils entendirent les paroles de Zhan Konglie.
 
 Les cultivateurs environnants n'eurent qu'un instant pour réfléchir avant que Zhan Konglie ne s'élance dans l'arène.
 
@@ -16,7 +16,7 @@ L'expression de Wang Lin resta neutre tandis qu'il contemplait Zhan Konglie. Son
 
 À l'époque, il ne pouvait que prétendre être un aîné. Même au sein du Temple Céleste du Tonnerre, son niveau de culture n'était que similaire à celui de Zhan Konglie; pour être tout à fait honnête, il devait encore faire preuve de prudence.
 
-Cependant, sa culture avait désormais franchi l'étape du Corporeal Yang pour atteindre véritablement la deuxième étape. En regardant Zhan Konglie à présent, l'esprit de Wang Lin était serein, sans la moindre ride à sa surface.
+Cependant, sa culture avait désormais franchi l'étape du Yang Corporel pour atteindre véritablement la deuxième étape. En regardant Zhan Konglie à présent, l'esprit de Wang Lin était serein, sans la moindre ride à sa surface.
 
 Wang Lin détourna le regard et dit calmement: « Tu n'es pas mon adversaire. Compte tenu du fait que nous nous connaissons, recule! »
 
@@ -24,7 +24,7 @@ Zhan Konglie réfléchit en silence tout en observant Wang Lin. Ses yeux étaien
 
 « Zhan[1] est mon nom, et c'est aussi mon domaine. Il n'y a que l'intention de bataille! »
 
-« Grâce à ce domaine, mon niveau de culture a progressé par bonds prodigieux, sans aucun obstacle, jusqu'à ce qu'il y a 400 ans, j'atteigne l'étape du Corporeal Yang, mais... Même aujourd'hui, ma culture n'a plus progressé. Senior, ma voie est-elle juste ou fausse?! »
+« Grâce à ce domaine, mon niveau de culture a progressé par bonds prodigieux, sans aucun obstacle, jusqu'à ce qu'il y a 400 ans, j'atteigne l'étape du Yang Corporel, mais... Même aujourd'hui, ma culture n'a plus progressé. Senior, ma voie est-elle juste ou fausse?! »
 
 Après avoir prononcé ces mots, un silence de mort s'abattit sur les environs. Tous les cultivateurs se turent, et même certains des ancêtres restèrent muets. À la lueur de leurs regards, il était évident que cette question leur avait également traversé l'esprit.
 
@@ -34,7 +34,7 @@ Le regard de Wang Lin demeura imperturbable alors qu'il répondait calmement: «
 
 Les yeux de Zhan Konglie brillèrent intensément, avant de s'obscurcir rapidement alors qu'il retombait dans un silence encore plus profond.
 
-« Je présume que la réponse de ton ancêtre consistait à te lancer au défi, à défier tous ceux sous les étoiles dont le niveau de culture est similaire au tien. À continuer de combattre pour comprendre ce que signifie réellement le mot "bataille", à gagner sans cesse pour consolider ton intention de combat jusqu'à atteindre un état de frénésie guerrière. C'est à ce moment-là que tu franchiras l'étape du Nirvana Scryer! »
+« Je présume que la réponse de ton ancêtre consistait à te lancer au défi, à défier tous ceux sous les étoiles dont le niveau de culture est similaire au tien. À continuer de combattre pour comprendre ce que signifie réellement le mot "bataille", à gagner sans cesse pour consolider ton intention de combat jusqu'à atteindre un état de frénésie guerrière. C'est à ce moment-là que tu franchiras l'étape du Scruteur du Nirvana! »
 
 Le corps de Zhan Konglie trembla et il leva soudainement les yeux vers Wang Lin. Bien que les paroles de Wang Lin différassent de celles de Lie Yunzi, le sens profond était extrêmement similaire.
 
@@ -68,7 +68,7 @@ En entendant cela, les yeux des spectateurs s'illuminèrent. Ils fixèrent l'hom
 
 Alors que ces rumeurs se propageaient, les neuf rayons d'énergie tranchante foncèrent sur Wang Lin à une vitesse fulgurante.
 
-Wang Lin restait serein. Le niveau de culture de l'homme en noir était identique au sien: le stade initial du Nirvana Scryer. Les neuf rayons contenaient une loi destructrice qui lui barrait toute voie de retraite.
+Wang Lin restait serein. Le niveau de culture de l'homme en noir était identique au sien: le stade initial du Scruteur du Nirvana. Les neuf rayons contenaient une loi destructrice qui lui barrait toute voie de retraite.
 
 La seule option était la confrontation!
 

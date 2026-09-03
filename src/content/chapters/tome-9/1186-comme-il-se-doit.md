@@ -6,17 +6,17 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1186 - As It Should Be
 slug: comme-il-se-doit
 ---
-« Vous? » Maître Ashen Pine regarda Wang Lin. Tandis qu'il l'observait, la folie qui hantait son regard s'estompa progressivement. Il pensa: « Le corps de cet homme est véritablement étrange. Plus tôt, il a pu résister au dragon par sa seule force physique. Peut-être pourra-t-il briser la formation grâce à la puissance de son corps. »
+« Vous? » Maître Pin Cendré regarda Wang Lin. Tandis qu'il l'observait, la folie qui hantait son regard s'estompa progressivement. Il pensa: « Le corps de cet homme est véritablement étrange. Plus tôt, il a pu résister au dragon par sa seule force physique. Peut-être pourra-t-il briser la formation grâce à la puissance de son corps. »
 
-« Très bien, je vais compter sur le camarade cultivateur Lu. » Maître Ashen Pine joignit les mains et son expression retrouva son calme habituel.
+« Très bien, je vais compter sur le camarade cultivateur Lu. » Maître Pin Cendré joignit les mains et son expression retrouva son calme habituel.
 
-Le vieil homme nommé Pang ricana. Il se disait que si même Maître Ashen Pine, muni de l'armure démoniaque, n'avait pu franchir que neuf pas, combien de pas cet homme appelé Lu pourrait-il espérer parcourir?
+Le vieil homme nommé Pang ricana. Il se disait que si même Maître Pin Cendré, muni de l'armure démoniaque, n'avait pu franchir que neuf pas, combien de pas cet homme appelé Lu pourrait-il espérer parcourir?
 
-Wang Lin observa le rocher. Initialement, il n'avait pas l'intention d'agir, mais en voyant la folie dans les yeux de Maître Ashen Pine, il fut intrigué. Bien que l'endroit fût dangereux, il devait y avoir quelque chose de si important ici pour susciter une telle obsession chez Maître Ashen Pine.
+Wang Lin observa le rocher. Initialement, il n'avait pas l'intention d'agir, mais en voyant la folie dans les yeux de Maître Pin Cendré, il fut intrigué. Bien que l'endroit fût dangereux, il devait y avoir quelque chose de si important ici pour susciter une telle obsession chez Maître Pin Cendré.
 
-S'ils ne pouvaient entrer, Maître Ashen Pine ne les laisserait pas partir. Bien que Wang Lin s'en fût déjà secrètement préparé et n'en fût guère affecté, il voulait savoir ce qui pouvait rendre Maître Ashen Pine si éperdu de rage et de désir.
+S'ils ne pouvaient entrer, Maître Pin Cendré ne les laisserait pas partir. Bien que Wang Lin s'en fût déjà secrètement préparé et n'en fût guère affecté, il voulait savoir ce qui pouvait rendre Maître Pin Cendré si éperdu de rage et de désir.
 
-« Je demande l'aide de la camarade cultivatrice Zhao pour ouvrir la formation. » Wang Lin joignit les mains vers la femme en vert. Celle-ci se retenait manifestement; elle avait profité de l'impatience de Maître Ashen Pine pour l'inciter à tenter l'expérience lui-même, ce qui l'avait conduit à la blessure.
+« Je demande l'aide de la camarade cultivatrice Zhao pour ouvrir la formation. » Wang Lin joignit les mains vers la femme en vert. Celle-ci se retenait manifestement; elle avait profité de l'impatience de Maître Pin Cendré pour l'inciter à tenter l'expérience lui-même, ce qui l'avait conduit à la blessure.
 
 « Nous n'avons même pas encore trouvé le trésor que ces gens commencent déjà à se livrer des luttes secrètes pour affaiblir les autres... » L'expression de Wang Lin demeura neutre, et nul ne put percer ses pensées.
 
@@ -40,7 +40,7 @@ Le visage de Wang Lin était livide et son corps tremblait légèrement. Il semb
 
 À l'extérieur du rocher, la femme en vert fixait Wang Lin d'un air pensif.
 
-« La formation subit un changement... » Maître Ashen Pine fronça les sourcils en observant le corps de Wang Lin. Après l'avoir scruté attentivement, il commença à réfléchir à son propre sixième pas et resta silencieux.
+« La formation subit un changement... » Maître Pin Cendré fronça les sourcils en observant le corps de Wang Lin. Après l'avoir scruté attentivement, il commença à réfléchir à son propre sixième pas et resta silencieux.
 
 Le vieil homme nommé Pang ricana, pensant qu'il avait trop surévalué cet homme. Ce dernier n'avait que la culture, mais aucune ruse. S'il se blessait ici, il ne pourrait plus continuer.
 
@@ -48,7 +48,7 @@ Wang Lin resta immobile au sixième pas durant un long moment avant de faire le 
 
 Dès que le huitième pas fut posé, des craquements retentirent dans le corps de Wang Lin, comme si sa chair et ses os étaient broyés. Des torrents de sang jaillirent, teintant sa robe blanche d'un rouge écarlate.
 
-À cet instant, Maître Ashen Pine fut troublé et s'approcha de quelques pas. Son regard fut aussi fulgurant que la foudre tandis qu'il observait Wang Lin.
+À cet instant, Maître Pin Cendré fut troublé et s'approcha de quelques pas. Son regard fut aussi fulgurant que la foudre tandis qu'il observait Wang Lin.
 
 La femme en vert se leva également, l'expression grave. Quant au vieil homme nommé Pang, son mépris ne fit qu'augmenter dans son cœur.
 
@@ -56,21 +56,21 @@ Le corps de Wang Lin, à l'intérieur du rocher, sembla se tordre. Il leva le pi
 
 Le corps de Wang Lin trembla violemment et les veines de son visage gonflèrent. Ses yeux étaient injectés de sang, mais il parvint à se stabiliser!
 
-L'esprit de Maître Ashen Pine vacilla et il s'écria: « Camarade cultivateur Lu, encore un seul pas! »
+L'esprit de Maître Pin Cendré vacilla et il s'écria: « Camarade cultivateur Lu, encore un seul pas! »
 
 La femme en vert afficha une expression complexe. Elle observa longuement sans voir le moindre signe que Wang Lin ne simulait; tout semblait terriblement réel.
 
 « La formation a changé de manière inattendue. Même s'il voulait faire demi-tour, il ne le pourrait plus. »
 
-« Camarades Ashen Pine et Zhao, j'ai déjà fait mon possible lors de ce voyage. Si je suis gravement blessé, vous tous... » La voix faible de Wang Lin parvint de l'intérieur du rocher.
+« Camarades Pin Cendré et Zhao, j'ai déjà fait mon possible lors de ce voyage. Si je suis gravement blessé, vous tous... » La voix faible de Wang Lin parvint de l'intérieur du rocher.
 
-« Le camarade cultivateur Lu peut être rassuré. Ce vieil homme n'oubliera pas sa promesse! » lança Maître Ashen Pine par transmission de pensée.
+« Le camarade cultivateur Lu peut être rassuré. Ce vieil homme n'oubliera pas sa promesse! » lança Maître Pin Cendré par transmission de pensée.
 
 Wang Lin sembla hésiter au sein du rocher, mais bientôt, il leva le pied droit et fit le dixième pas! À l'instant où ce dixième pas fut posé, la montagne entière rugit et trembla violemment. Des pans entiers de roche s'effondrèrent, alertant les bêtes de brume qui trônaient au sommet.
 
 La Formation de Scellement Céleste en Neuf Pas s'effondra!
 
-Wang Lin cracha encore plus de sang. Alors que la formation se désintégrait, une force puissante projeta Wang Lin hors de la montagne. Les yeux de Maître Ashen Pine s'illuminèrent et il s'élança immédiatement. Sa main droite visa directement le dos de Wang Lin.
+Wang Lin cracha encore plus de sang. Alors que la formation se désintégrait, une force puissante projeta Wang Lin hors de la montagne. Les yeux de Maître Pin Cendré s'illuminèrent et il s'élança immédiatement. Sa main droite visa directement le dos de Wang Lin.
 
 Dès que sa main toucha l'homme, son énergie originelle et son sens divin s'engouffrèrent dans le corps de Wang Lin. Ils circulèrent une fois à travers lui avant de se retirer rapidement.
 
@@ -78,51 +78,51 @@ Il ne pouvait pas tuer Wang Lin devant la femme en vert; cela l'aurait placée d
 
 À cet instant précis, un rugissement bestial retentit soudainement. Une créature semblable à un faucon jaillit de la montagne et chargea le groupe.
 
-Maître Ashen Pine saisit Wang Lin et s'engouffra directement dans le tunnel qui venait d'apparaître suite à l'effondrement de la formation. Le vieil homme nommé Pang et la femme en vert les suivirent précipitamment.
+Maître Pin Cendré saisit Wang Lin et s'engouffra directement dans le tunnel qui venait d'apparaître suite à l'effondrement de la formation. Le vieil homme nommé Pang et la femme en vert les suivirent précipitamment.
 
 Ils progressèrent longtemps à travers le tunnel. Ce n'est que lorsqu'ils n'entendirent plus les rugissements des bêtes qu'ils s'arrêtèrent enfin.
 
-Maître Ashen Pine reposa Wang Lin avec un air de regret et joignit les mains. « Le frère Lu a été prêt à se blesser gravement pour ouvrir la formation. Ce vieil homme s'en souviendra! »
+Maître Pin Cendré reposa Wang Lin avec un air de regret et joignit les mains. « Le frère Lu a été prêt à se blesser gravement pour ouvrir la formation. Ce vieil homme s'en souviendra! »
 
 Le visage de Wang Lin était livide et une trace de sang maculait le coin de ses lèvres. Il fit un geste de la main avec un sourire amer. « Cette formation était très étrange. Après mon sixième pas, une force est apparue derrière moi; je n'avais d'autre choix que d'avancer... »
 
-« Quoi qu'il en soit, le camarade cultivateur Lu a grandement contribué à notre entrée ici! » Maître Ashen Pine parut très sincère et continua de joindre les mains. Voyant la fatigue sur le visage de Wang Lin, il sortit immédiatement des pilules et les lui tendit.
+« Quoi qu'il en soit, le camarade cultivateur Lu a grandement contribué à notre entrée ici! » Maître Pin Cendré parut très sincère et continua de joindre les mains. Voyant la fatigue sur le visage de Wang Lin, il sortit immédiatement des pilules et les lui tendit.
 
 « Frère Lu, reposez-vous et reprenez des forces. Une fois rétabli, nous pourrons reprendre notre marche. »
 
 Wang Lin réfléchit un instant et hocha tristement la tête. Il prit la pilule sans la consommer. Il sortit ses propres médicaments, les avala, puis ferma les yeux pour cultiver.
 
-Les yeux du vieil homme nommé Pang s'illuminèrent d'une lueur de froideur. À cet instant, Maître Ashen Pine le regarda et secoua légèrement la tête.
+Les yeux du vieil homme nommé Pang s'illuminèrent d'une lueur de froideur. À cet instant, Maître Pin Cendré le regarda et secoua légèrement la tête.
 
 Le temps passa lentement. Peu de temps après, Wang Lin ouvrit les yeux et se leva. D'une voix rauque, il dit: « Mes blessures ne guériront pas en un instant. Continuons. »
 
-Maître Ashen Pine acquiesça. La femme en vert soupira intérieurement mais garda le silence.
+Maître Pin Cendré acquiesça. La femme en vert soupira intérieurement mais garda le silence.
 
-Le groupe reprit sa marche dans le tunnel. L'endroit était très calme, seul le bruit de leurs pas résonnait. Après une durée indéterminée, une lumière apparut au loin. Maître Ashen Pine réprima son excitation et pressa le pas.
+Le groupe reprit sa marche dans le tunnel. L'endroit était très calme, seul le bruit de leurs pas résonnait. Après une durée indéterminée, une lumière apparut au loin. Maître Pin Cendré réprima son excitation et pressa le pas.
 
-La lumière marquait la sortie du tunnel. En découvrant l'extérieur, Maître Ashen Pine éclata de rire.
+La lumière marquait la sortie du tunnel. En découvrant l'extérieur, Maître Pin Cendré éclata de rire.
 
 Une vaste vallée s'étendait devant eux, luxuriante de végétation, d'où émanait un parfum floral apaisant. Derrière la vallée se dressait une chaîne de montagnes semblable à une muraille de cité. Ces sommets immenses isolaient le monde extérieur.
 
-« Une fois ce massif franchi, nous entrerons dans la partie intérieure de ce royaume! La grotte de Sima Mo ne se trouve pas dans les montagnes, mais dans une vallée située juste avant. » Maître Ashen Pine rit en s'élançant avec rapidité. La femme en vert le suivit et les deux s'envolèrent.
+« Une fois ce massif franchi, nous entrerons dans la partie intérieure de ce royaume! La grotte de Sima Mo ne se trouve pas dans les montagnes, mais dans une vallée située juste avant. » Maître Pin Cendré rit en s'élançant avec rapidité. La femme en vert le suivit et les deux s'envolèrent.
 
 Le visage de Wang Lin était pâle et la lumière aux sept couleurs paraissait d'autant plus éblouissante. Il prit une grande inspiration et les suivit. Le vieil homme nommé Pang ricana tout en restant non loin de lui.
 
-Bientôt, sous la direction de Maître Ashen Pine, les quatre arrivèrent dans une vallée. Dès leur entrée, ils aperçurent une grotte devant eux.
+Bientôt, sous la direction de Maître Pin Cendré, les quatre arrivèrent dans une vallée. Dès leur entrée, ils aperçurent une grotte devant eux.
 
 La paroi de cette demeure était recouverte d'herbe, signe qu'elle n'avait pas été habitée depuis longtemps. Elle n'était pas très vaste et ne comptait que trois pièces. Le sol était jonché de pilules éparpillées; la plupart s'étaient fossilisées et tomberaient en poussière au moindre contact.
 
-L'esprit de Maître Ashen Pine n'était manifestement pas tourné vers la grotte. Il regarda la femme en vert et déclara: « Je ne prendrai rien ici. Tout appartient aux camarades cultivateurs Zhao et Lu. »
+L'esprit de Maître Pin Cendré n'était manifestement pas tourné vers la grotte. Il regarda la femme en vert et déclara: « Je ne prendrai rien ici. Tout appartient aux camarades cultivateurs Zhao et Lu. »
 
 La femme en vert déploya son sens divin et secoua la tête: « Le camarade cultivateur Lu a payé un prix bien trop lourd, comment pourrais-je prendre quoi que ce soit? Laissez le camarade cultivateur Lu tout récupérer. »
 
 Wang Lin observa les lieux et soupira. « Je ne peux pas continuer votre voyage avec vous deux. Cet endroit est calme et propice à la guérison. »
 
-« Le camarade est gravement blessé, il est préférable que vous vous soigniez ici quelques jours. Une fois que la camarade Zhao et moi serons revenus, nous remettrons naturellement ce qui a été promis. Nous pourrons alors repartir ensemble. » sourit Maître Ashen Pine.
+« Le camarade est gravement blessé, il est préférable que vous vous soigniez ici quelques jours. Une fois que la camarade Zhao et moi serons revenus, nous remettrons naturellement ce qui a été promis. Nous pourrons alors repartir ensemble. » sourit Maître Pin Cendré.
 
 « Je vous en remercie. » Wang Lin acquiesça.
 
-« Cependant, bien que cet endroit soit calme, il reste dangereux en raison de la présence possible de bêtes féroces. Camarade Pang, j'ai une requête à vous faire. » Maître Ashen Pine réfléchit un instant avant de se tourner vers le vieil homme.
+« Cependant, bien que cet endroit soit calme, il reste dangereux en raison de la présence possible de bêtes féroces. Camarade Pang, j'ai une requête à vous faire. » Maître Pin Cendré réfléchit un instant avant de se tourner vers le vieil homme.
 
 « Si le camarade Lu doit guérir seul ici, je serais inquiet. J'aimerais donc demander au camarade Pang de rester pour assurer sa protection. Une partie de ce que la camarade Zhao et moi trouverons vous sera remise en guise de paiement. Qu'en dites-vous? »
 

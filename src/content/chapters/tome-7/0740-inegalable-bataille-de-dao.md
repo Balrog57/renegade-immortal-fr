@@ -14,13 +14,13 @@ Alors que sa silhouette élancée émergeait de la poussière, son visage était
 
 Wang Lin soupira intérieurement. Tuer un cultivateur du deuxième niveau était une tâche extrêmement difficile. Tous ses calculs et ses attaques n'avaient eu qu'un seul but: offrir au garde céleste l'opportunité de porter ce coup. Si cela avait été n'importe quel autre cultivateur du premier niveau, il n'aurait pu parer une telle attaque.
 
-Cependant, il ne pouvait que blesser, et non tuer, un cultivateur de l'étape Illusory Yin qui ne pouvait même pas être considéré comme ayant véritablement atteint le deuxième niveau.
+Cependant, il ne pouvait que blesser, et non tuer, un cultivateur de l'étape Yin Illusoire qui ne pouvait même pas être considéré comme ayant véritablement atteint le deuxième niveau.
 
 « Cet homme est bien plus puissant que le Daoïste du Tonnerre de l'époque. » Wang Lin agita la main et rassembla tous les fragments exposés à la surface.
 
 Wang Lin fixait la flamme de lotus démoniaque qui surplombait la tête de Xu Fenghan.
 
-Xu Fenghan prit une profonde inspiration, pointa le ciel de sa main droite et dit d'un ton sinistre: « Même si tu possèdes cette marionnette, grâce au Dao de mon lotus démoniaque formé lors de mon passage à l'étape Illusory Yin, tu seras réduit en cendres! »
+Xu Fenghan prit une profonde inspiration, pointa le ciel de sa main droite et dit d'un ton sinistre: « Même si tu possèdes cette marionnette, grâce au Dao de mon lotus démoniaque formé lors de mon passage à l'étape Yin Illusoire, tu seras réduit en cendres! »
 
 « Dao du Lotus Démoniaque, première rotation! »
 
@@ -94,7 +94,7 @@ Le lotus trembla et tourna avec frénésie. À cet instant, la sensation que le 
 
 Cette sensation était si terrifiante que le corps de Wang Lin recula instinctivement. Il ne voulait pas fuir, mais il n'avait pas le choix: il avait l'impression qu'il serait annihilé par ce monde en mouvement s'il ne s'écartait pas.
 
-« J'ai déjà tué des cultivateurs Illusory Yin, alors tuer un autre n'est pas impossible! » Le pied droit de Wang Lin frappa le sol pour stopper son mouvement. Son regard inflexible se posa directement sur la rivière des enfers.
+« J'ai déjà tué des cultivateurs Yin Illusoire, alors tuer un autre n'est pas impossible! » Le pied droit de Wang Lin frappa le sol pour stopper son mouvement. Son regard inflexible se posa directement sur la rivière des enfers.
 
 Cette volonté était indissociable de sa confiance. Cette union d'une détermination inébranlable et d'une foi absolue força la rivière des enfers à cesser son effondrement. Une aspiration puissante jaillit alors du cœur du fleuve!
 

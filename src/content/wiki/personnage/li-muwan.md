@@ -21,7 +21,7 @@ sections: ["{\"heading\":\"Aperçu\",\"body\":\"Li Muwan est l'unique épouse de
 - **Espèce:** Humaine
 - **Cheveux:** Noirs
 - **Yeux:** Noirs (roman) · Brun clair (donghua)
-- **Cultivation:** 12e niveau Qi Condensation (début) → Établissement des Fondations → Core Formation avancé → Nascent Soul semi-initial (âme scindée à sa « mort »)
+- **Cultivation:** 12e niveau Condensation du Qi (début) → Établissement des Fondations → Formation du Noyau avancé → Âme Naissante semi-initial (âme scindée à sa « mort »)
 
 ## Aperçu
 
@@ -56,10 +56,10 @@ Dans le roman, Wang Lin la rencontra pour la première fois alors qu'il se trouv
 ## Cultivation
 
 - **Base de cultivation:**
- - 12e niveau Qi Condensation (début)
+ - 12e niveau Condensation du Qi (début)
  - Établissement des Fondations précoce
- - Core Formation avancé
- - Nascent Soul semi-initial (âme scindée lors de sa « mort »)
+ - Formation du Noyau avancé
+ - Âme Naissante semi-initial (âme scindée lors de sa « mort »)
 
 ## Métiers et affiliations
 

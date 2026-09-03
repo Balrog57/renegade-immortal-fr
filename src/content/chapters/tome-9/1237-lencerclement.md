@@ -32,7 +32,7 @@ Song Luohai pensait bien connaître ces bêtes. Son but était de capturer un ro
 
 Trois mois auparavant, Song Luohai avait repéré cet essaim et était convaincu qu'un roi moustique s'y trouvait. Il avait donc passé trois mois à se faufiler ici sans perturber les moustiques rouges ou bleus.
 
-Toutefois, il faisait face à un dilemme. Tout cela était dû aux deux bêtes moustiques blanches qui étaient arrivées il y a une demi-lune. Song Luohai ne les avait vues qu'une seule fois, mais il percevait clairement l'aura et la pression émanant de cultivateurs au stade Nirvana Shatterer.
+Toutefois, il faisait face à un dilemme. Tout cela était dû aux deux bêtes moustiques blanches qui étaient arrivées il y a une demi-lune. Song Luohai ne les avait vues qu'une seule fois, mais il percevait clairement l'aura et la pression émanant de cultivateurs au stade Briseur du Nirvana.
 
 Song Luohai avait méticuleusement préparé ce voyage. Il avait estimé ses chances de réussite à 30 %. Une fois ses spéculations confirmées, son nom résonnerait dans toute la région de rang 8, et même les vieux monstres devraient tenir compte de lui.
 
@@ -40,7 +40,7 @@ Même la région de rang 9 lui accorderait des faveurs. Tous ces avantages étai
 
 Song Luohai avait le sentiment que ces deux créatures avaient vaguement perçu son existence sans pour autant découvrir sa cachette, ce qui les avait empêchées de bouger. Mais au moindre mouvement de sa part, elles le détecteraient instantanément.
 
-Le cœur de Song Luohai était lourd d'amertume depuis quinze jours. Il était extrêmement tendu et n'osait plus bouger. Bien qu'il fût un Ancien de la Secte de l'Âme Silencieuse, il se situait en bas de la hiérarchie, étant seulement au stade intermédiaire du Nirvana Shatterer.
+Le cœur de Song Luohai était lourd d'amertume depuis quinze jours. Il était extrêmement tendu et n'osait plus bouger. Bien qu'il fût un Ancien de la Secte de l'Âme Silencieuse, il se situait en bas de la hiérarchie, étant seulement au stade intermédiaire du Briseur du Nirvana.
 
 Alors que Song Luohai commençait à désespérer, il vit une bête moustique bleue passer à toute allure. Au départ, cela ne l'intéressait guère; il n'avait pas de temps à perdre avec ce qui ne concernait pas sa propre survie.
 

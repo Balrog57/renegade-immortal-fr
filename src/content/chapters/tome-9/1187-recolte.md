@@ -8,13 +8,13 @@ slug: recolte
 ---
 Wang Lin fronça les sourcils et s'apprêta à parler.
 
-« Quoi? Le camarade cultivateur n'est pas satisfait? » L'expression du Maître Ashen Pine se durcit alors qu'il fixait Wang Lin.
+« Quoi? Le camarade cultivateur n'est pas satisfait? » L'expression du Maître Pin Cendré se durcit alors qu'il fixait Wang Lin.
 
 Wang Lin resta silencieux.
 
-« Puisque le camarade cultivateur Lu est d'accord, je m'en remets au camarade cultivateur Pang. » Une fois son discours terminé, le Maître Ashen Pine jeta un regard à la vieille femme en vert et tous deux quittèrent la grotte. Ils se dirigèrent droit vers la chaîne de montagnes qui se dressait au loin comme un mur infranchissable.
+« Puisque le camarade cultivateur Lu est d'accord, je m'en remets au camarade cultivateur Pang. » Une fois son discours terminé, le Maître Pin Cendré jeta un regard à la vieille femme en vert et tous deux quittèrent la grotte. Ils se dirigèrent droit vers la chaîne de montagnes qui se dressait au loin comme un mur infranchissable.
 
-Cependant, avant de partir, la vieille femme en vert lança un dernier regard à Wang Lin. De même, le Maître Ashen Pine observa l'homme âgé nommé Pang.
+Cependant, avant de partir, la vieille femme en vert lança un dernier regard à Wang Lin. De même, le Maître Pin Cendré observa l'homme âgé nommé Pang.
 
 Une fois les deux partis, l'homme nommé Pang afficha un sourire sinistre et fixa Wang Lin. Il fit tourner la bague à son doigt et dit d'une voix lente: « Camarade cultivateur Lu, continuez votre culture. Ce vieil homme veillera bien sur vous. »
 
@@ -34,7 +34,7 @@ L'expression de Wang Lin resta imperturbable alors qu'il répondait lentement: �
 
 L'homme se mit à rire comme un fou, les cicatrices sur son visage lui donnant un air extrêmement féroce. Il fixa Wang Lin d'un regard glacial et lança: « Si vous n'étiez pas blessé, je vous aurais peut-être craint un peu. Cependant, maintenant, je veux voir lequel de nous deux a attiré le désastre! » Il fixa Wang Lin et abattit violemment sa main droite sur lui!
 
-S'il avait attendu jusque-là pour attaquer, c'était pour permettre au Maître Ashen Pine et à la vieille femme en vert de prendre suffisamment de distance. Il craignait que la femme ne remarque rien.
+S'il avait attendu jusque-là pour attaquer, c'était pour permettre au Maître Pin Cendré et à la vieille femme en vert de prendre suffisamment de distance. Il craignait que la femme ne remarque rien.
 
 Les yeux de Wang Lin restèrent aussi calmes qu'une eau dormante. Au moment où la main droite de l'homme s'approcha, un éclair de froideur traversa le regard de Wang Lin. Sa main gauche bougea avec la rapidité de l'éclair et saisit la main de l'agresseur, avant de serrer impitoyablement!
 
@@ -66,9 +66,9 @@ L'âme de Pang hurla immédiatement: « Tu avais promis de ne pas me tuer! »
 
 Wang Lin laissa échapper un froid reniflement. Sa main droite saisit l'âme et força la lecture de ses souvenirs alors qu'il était affaibli. Un instant plus tard, il rangea l'âme agonisante dans son espace de stockage.
 
-En réalité, il n'avait pas décidé de le tuer. Si la mort de cet homme avait alerté le Maître Ashen Pine, cela n'aurait pas valu la peine, car cela aurait compromis ses plans.
+En réalité, il n'avait pas décidé de le tuer. Si la mort de cet homme avait alerté le Maître Pin Cendré, cela n'aurait pas valu la peine, car cela aurait compromis ses plans.
 
-« Cette personne entretient un lien très étroit avec le Maître Ashen Pine; ce dernier possède peut-être sa marque de vie. S'il meurt, le Maître Ashen Pine pourrait le savoir instantanément. » Wang Lin n'en était pas certain, et cela ne figurait pas dans les souvenirs de l'homme, mais il préférait toujours agir avec prudence.
+« Cette personne entretient un lien très étroit avec le Maître Pin Cendré; ce dernier possède peut-être sa marque de vie. S'il meurt, le Maître Pin Cendré pourrait le savoir instantanément. » Wang Lin n'en était pas certain, et cela ne figurait pas dans les souvenirs de l'homme, mais il préférait toujours agir avec prudence.
 
 Après quelques calculs, Wang Lin ouvrit calmement son espace de stockage pour inspecter les possessions du défunt. L'homme était un cultivateur au niveau Briseur de Nirvana, il possédait donc de nombreux trésors: des centaines de milliers de jades célestes et même entre 50 000 et 60 000 cristaux d'origine.
 
@@ -78,7 +78,7 @@ Tout cela restait secondaire. Wang Lin se concentra sur les jades. Parmi eux, il
 
 Les deux cartes concernaient le Royaume aux Sept Couleurs. Divers itinéraires étaient tracés, incluant des endroits où l'on pouvait nourrir des bêtes de brume avec des jades célestes pour obtenir des cristaux d'origine. C'était extrêmement détaillé.
 
-Malheureusement, Wang Lin ne parvint pas à découvrir le véritable objectif du Maître Ashen Pine dans les souvenirs de l'homme. Ce dernier savait seulement qu'un grand nombre d'âmes de bêtes y étaient scellées.
+Malheureusement, Wang Lin ne parvint pas à découvrir le véritable objectif du Maître Pin Cendré dans les souvenirs de l'homme. Ce dernier savait seulement qu'un grand nombre d'âmes de bêtes y étaient scellées.
 
 À part cela, Wang Lin apprit d'autres informations sur le Royaume aux Sept Couleurs.
 
@@ -96,9 +96,9 @@ Ses os étaient totalement noirs et beaucoup s'étaient transformés en poussiè
 
 En observant le squelette, Wang Lin fronça les sourcils. Quelque chose clochait. Pourquoi un cerf se trouvait-il dans une telle grotte? De plus, il était évident que cette courte épée était extraordinaire malgré son sceau. Une fois libérée, sa puissance serait inimaginable. Pourtant, un tel trésor avait été laissé là, planté dans ce cerf.
 
-« Puisque cet endroit n'est pas la grotte de Sima Mo, à qui appartient-elle... » Wang Lin avait fouillé les souvenirs du défunt et avait découvert que ce n'était pas le repaire de Sima Mo. Le Maître Ashen Pine n'avait jamais eu l'intention de l'emmener dans la véritable grotte.
+« Puisque cet endroit n'est pas la grotte de Sima Mo, à qui appartient-elle... » Wang Lin avait fouillé les souvenirs du défunt et avait découvert que ce n'était pas le repaire de Sima Mo. Le Maître Pin Cendré n'avait jamais eu l'intention de l'emmener dans la véritable grotte.
 
-Ce n'était qu'une demeure trouvée au hasard par le Maître Ashen Pine.
+Ce n'était qu'une demeure trouvée au hasard par le Maître Pin Cendré.
 
 Sima Mo possédait bel et bien une grotte dans cette contrée, mais elle ne se trouvait pas ici. Wang Lin en connaissait désormais l'emplacement exact.
 
@@ -120,6 +120,6 @@ Ces rayons formèrent un bouclier extrêmement puissant qui, en tournant autour 
 
 Il prit une profonde inspiration et regarda vers l'extérieur de la grotte, un éclat froid dans les yeux. Il s'élança hors de la caverne pour les poursuivre! En progressant, il ne déployait pas son sens divin; il le gardait étroitement enroulé autour de son corps. Il traversa la vallée en suivant une étrange connexion qu'il ressentait.
 
-Si le Maître Ashen Pine avait vu le chemin emprunté par Wang Lin, il en aurait été stupéfait. Cet itinéraire était exactement le même que celui qu'il avait suivi avec la vieille femme en vert!
+Si le Maître Pin Cendré avait vu le chemin emprunté par Wang Lin, il en aurait été stupéfait. Cet itinéraire était exactement le même que celui qu'il avait suivi avec la vieille femme en vert!
 
 « Comment pourrais-je, Wang Lin, vous laisser porter mon armure de démon dispersé sans rien obtenir en retour? »

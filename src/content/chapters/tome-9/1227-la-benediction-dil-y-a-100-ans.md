@@ -86,7 +86,7 @@ Cependant, au moment où le bracelet apparut et brilla en volant vers le poignet
 
 Le pouce qui descendait se redressa brusquement, propulsant Wang Lin au-delà de lui, vers l'horizon.
 
-Cette scène soudaine surprit Wang Lin, mais il n'hésita pas. Alors qu'il s'élançait, ses deux mains formèrent un sceau. En suivant les souvenirs obtenus du Maître Ashen Pine, il ouvrit une faille pour retourner dans la Mer des Nuages!
+Cette scène soudaine surprit Wang Lin, mais il n'hésita pas. Alors qu'il s'élançait, ses deux mains formèrent un sceau. En suivant les souvenirs obtenus du Maître Pin Cendré, il ouvrit une faille pour retourner dans la Mer des Nuages!
 
 Son corps fendit l'air comme l'éclair vers la brèche. Juste avant qu'il ne disparaisse, la paume formée par le Royaume aux Sept Couleurs ne le poursuivit pas, mais se posa lentement.
 

@@ -132,4 +132,4 @@ Il avait tout vu et était en accord avec les paroles de l'Empereur Céleste. En
 
 À cet instant, au sein de la Secte Violette Yang, le Grand Empereur Gemini avait terminé ses jeux et était retourné auprès du cultivateur d'âge moyen. Ils avaient vu Wang Lin se faire rabaisser et étaient furieux. En voyant Wang Lin s'élancer dans le ciel, ils furent envahis par l'attente.
 
-« Wang... Wang Lin?! » Greed, qui subissait les tourments du Grand Empereur Gemini, fixa le miroir, l'esprit totalement vide.
+« Wang... Wang Lin?! » Cupidité, qui subissait les tourments du Grand Empereur Gemini, fixa le miroir, l'esprit totalement vide.

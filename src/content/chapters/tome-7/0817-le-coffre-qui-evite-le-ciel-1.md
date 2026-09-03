@@ -16,7 +16,7 @@ Wang Lin ne bougea pas. Le niveau de culture de cet homme à la robe noire étai
 
 Cependant, puisque tout son corps n'était fait que d'os, à l'exception de sa tête, cela signifiait que peu importe sa puissance, il ne pouvait utiliser toute sa force.
 
-L'expression de Wang Lin resta calme. La culture que cet homme pouvait déployer ne pouvait être supérieure au début du stade Nirvana Scryer!
+L'expression de Wang Lin resta calme. La culture que cet homme pouvait déployer ne pouvait être supérieure au début du stade Scruteur du Nirvana!
 
 Au moment où ces courtes épées s'approchèrent, Ta Shan surgit par la pensée de Wang Lin. Les blessures qu'il avait subies précédemment n'étaient pas considérables. À cet instant, son corps brilla intensément alors qu'il s'élançait pour porter un coup de poing.
 

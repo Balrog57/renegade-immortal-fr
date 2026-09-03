@@ -102,7 +102,7 @@ Cette fois, Wang Lin sentit nettement une force s'opposer à son utilisation de 
 
 Arrivé à la deuxième tour, il l'explora sans rien trouver. Il ignorait si l'Empereur Ancien et ses compagnons avaient également affronté cette épreuve terrestre. Toutefois, d'après leurs propos et la mention du bouclier de glace, il semblait qu'ils allaient plutôt subir l'épreuve aquatique.
 
-À cet instant précis, à des dizaines de milliers de kilomètres devant Wang Lin, Hunchback Meng se tenait dans une tour noire, l'air sombre. Il regarda dehors et vit que les vents noirs encerclaient la zone. Le hurlement du vent, s'infiltrant dans la tour, ressemblait aux lamentations des fantômes.
+À cet instant précis, à des dizaines de milliers de kilomètres devant Wang Lin, Bossu Meng se tenait dans une tour noire, l'air sombre. Il regarda dehors et vit que les vents noirs encerclaient la zone. Le hurlement du vent, s'infiltrant dans la tour, ressemblait aux lamentations des fantômes.
 
 Il était dans un état lamentable. Même le crapaud sur son épaule semblait affaibli, agitant sa tête en émettant de faibles coassements.
 
@@ -114,13 +114,13 @@ Ils avaient initialement prévu de traverser la première épreuve ensemble pour
 
 Malheureusement, le dragon rouge était d'une puissance telle que sa seule présence les avait contraints à la fuite. Arrivés devant le vortex, ils s'y étaient précipités sans autre pensée que celle de survivre. En conséquence, chacun s'était retrouvé projeté dans un environnement différent.
 
-Hunchback Meng était tombé sur l'épreuve terrestre. En voyant le désert, son cœur sombra. Ils avaient prévu de passer par l'épreuve aquatique, le monde de glace. La dernière fois qu'ils étaient venus ici, ils avaient réussi à franchir l'épreuve de l'eau après de nombreux échecs mortels. Bien que périlleuse, cette étape était connue de ces quatre chanceux qui s'étaient préparés en conséquence.
+Bossu Meng était tombé sur l'épreuve terrestre. En voyant le désert, son cœur sombra. Ils avaient prévu de passer par l'épreuve aquatique, le monde de glace. La dernière fois qu'ils étaient venus ici, ils avaient réussi à franchir l'épreuve de l'eau après de nombreux échecs mortels. Bien que périlleuse, cette étape était connue de ces quatre chanceux qui s'étaient préparés en conséquence.
 
-Cependant, Hunchback Meng n'avait jamais affronté l'épreuve terrestre. Il n'avait eu d'autre choix que de serrer les dents et de tenter le tout pour le tout. Les dix mille premiers kilomètres furent relativement sûrs, mais ensuite, le vent noir obscurcit le ciel et se mit à le frapper violemment. Des créatures mystérieuses nichées dans ces vents utilisaient des attaques sonores, rendant toute défense extrêmement difficile.
+Cependant, Bossu Meng n'avait jamais affronté l'épreuve terrestre. Il n'avait eu d'autre choix que de serrer les dents et de tenter le tout pour le tout. Les dix mille premiers kilomètres furent relativement sûrs, mais ensuite, le vent noir obscurcit le ciel et se mit à le frapper violemment. Des créatures mystérieuses nichées dans ces vents utilisaient des attaques sonores, rendant toute défense extrêmement difficile.
 
 Au début, ces créatures n'étaient pas nombreuses et il les éliminait une à une avec son poison. Mais il réalisa vite que plus il en tuait, plus elles apparaissaient. Lors de la dernière grande bataille, il avait entendu les cris d'au moins dix mille de ces êtres.
 
-Pourtant, Hunchback Meng était un cultivateur de la Formation de l'Âme spécialisé dans le poison. Bien que les attaques sonores l'aient obligé à redoubler de vigilance, il finit par toutes les terrasser. Mais sitôt qu'il reprenait sa marche, dix mille nouvelles créatures surgissaient.
+Pourtant, Bossu Meng était un cultivateur de la Formation de l'Âme spécialisé dans le poison. Bien que les attaques sonores l'aient obligé à redoubler de vigilance, il finit par toutes les terrasser. Mais sitôt qu'il reprenait sa marche, dix mille nouvelles créatures surgissaient.
 
 Après en avoir tué cent mille, il y en avait un million. Après un million, dix millions. Dans chaque tornade noire grouillaient des créatures innombrables. En réalité, ces vents noirs étaient générés par le battement d'ailes de ces êtres.
 
@@ -128,7 +128,7 @@ Il continua son massacre jusqu'à perdre le compte. Son énergie spirituelle s'�
 
 Bien qu'il fût un cultivateur de la Formation de l'Âme doté de poisons, il était ébranlé. L'ennemi était trop nombreux; il craignait que s'il parvenait à éliminer les bêtes à l'extérieur, dix fois plus n'apparaîtraient aussitôt.
 
-Les tornades noires étaient omniprésentes dans ce désert infini. Multiplier leur nombre par dix, cent, mille ou même dix mille semblait inévitable. À cette pensée, le cœur de Hunchback Meng se glaça.
+Les tornades noires étaient omniprésentes dans ce désert infini. Multiplier leur nombre par dix, cent, mille ou même dix mille semblait inévitable. À cette pensée, le cœur de Bossu Meng se glaça.
 
 Bien qu'aucune créature ne fût puissante individuellement, si elles étaient un milliard ou dix milliards, leurs attaques sonores combinées pourraient briser l'âme d'un cultivateur de la Formation de l'Âme comme lui et pulvériser son corps.
 
@@ -152,7 +152,7 @@ Il avait pris l'habitude de grimper au sommet de chaque tour pour scruter l'hori
 
 Les yeux de Wang Lin brillèrent d'intérêt. Il les observa un moment avant de redescendre et de s'enfoncer de nouveau sous terre.
 
-La résistance souterraine était devenue écrasante. Il devait désormais consacrer 80 % de son énergie spirituelle à lutter contre la pression pour maintenir sa technique d'évasion terrestre. Soudain, son Sens Divin détecta une lueur noire dans le sable devant lui. Une odeur nauséabonde s'en dégagea; sans hésiter, Wang Lin sortit la pilule que Hunchback Meng lui avait donnée et l'avala. Puis, il remonta à la surface.
+La résistance souterraine était devenue écrasante. Il devait désormais consacrer 80 % de son énergie spirituelle à lutter contre la pression pour maintenir sa technique d'évasion terrestre. Soudain, son Sens Divin détecta une lueur noire dans le sable devant lui. Une odeur nauséabonde s'en dégagea; sans hésiter, Wang Lin sortit la pilule que Bossu Meng lui avait donnée et l'avala. Puis, il remonta à la surface.
 
 C'était la première fois qu'il émergeait avant d'atteindre une tour.
 
@@ -164,7 +164,7 @@ Ces créatures, de la taille d'un poing, possédaient de fines ailes et des visa
 
 Le Sens Divin de Wang Lin se propagea, mais il fronça les sourcils face au spectacle: pas moins de dix mille cadavres jonchaient le sol, tous noircis par un poison puissant.
 
-Wang Lin comprit instantanément que l'homme qui l'avait précédé était Hunchback Meng.
+Wang Lin comprit instantanément que l'homme qui l'avait précédé était Bossu Meng.
 
 En pensant à lui, Wang Lin eut un rictus méprisant, tout en redoublant de vigilance. Il se replongea sous terre pour poursuivre sa route vers la tour suivante.
 

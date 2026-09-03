@@ -18,7 +18,7 @@ Dans son corps résidait une infime trace de la lignée impériale de l'Ancient 
 
 « Luo Chen... » Wang Lin contempla l'homme costaud tout en se remémorant le passé.
 
-Cet homme n'était autre que Luo Chen, un vieil ami qui s'était fusionné avec le Serpent Moongazer et qui avait offert les étoiles de dieu antique à Wang Lin pour sa cérémonie de passage à l'âge adulte. Les souvenirs du monde des grottes affluèrent dans l'esprit de Wang Lin.
+Cet homme n'était autre que Luo Chen, un vieil ami qui s'était fusionné avec le Serpent aux yeux de lune et qui avait offert les étoiles de dieu antique à Wang Lin pour sa cérémonie de passage à l'âge adulte. Les souvenirs du monde des grottes affluèrent dans l'esprit de Wang Lin.
 
 Wang Lin laissa échapper un soupir, serra Song Zhi contre lui et descendit vers Luo Chen. Instinctivement, les membres de l'Ancient Dao s'écartèrent pour lui laisser le passage.
 
@@ -26,9 +26,9 @@ Wang Lin se tint devant Luo Chen et contempla ce visage familier.
 
 « Luo Chen salue l'Aîné... » soupira l'homme costaud en joignant les mains en signe de respect envers Wang Lin.
 
-« Toi... Quand t'es-tu séparé du Serpent Moongazer? » demanda Wang Lin.
+« Toi... Quand t'es-tu séparé du Serpent aux yeux de lune? » demanda Wang Lin.
 
-« Après avoir suivi Lord Xuan ici, ce dernier m'a aidé à me séparer du Serpent Moongazer », répondit calmement l'homme en fixant Wang Lin. Il se rappelait sa première rencontre avec le jeune homme et la faiblesse dont il faisait alors preuve. Désormais, Wang Lin était devenu un Grand Empereur et avait même tué l'Empereur de l'Ancient Dao. L'Empereur Saint de l'Ancient Dao n'avait pu que regarder Wang Lin partir.
+« Après avoir suivi Lord Xuan ici, ce dernier m'a aidé à me séparer du Serpent aux yeux de lune », répondit calmement l'homme en fixant Wang Lin. Il se rappelait sa première rencontre avec le jeune homme et la faiblesse dont il faisait alors preuve. Désormais, Wang Lin était devenu un Grand Empereur et avait même tué l'Empereur de l'Ancient Dao. L'Empereur Saint de l'Ancient Dao n'avait pu que regarder Wang Lin partir.
 
 La mer bleue se transformant en champs de mûriers — c'était une expression utilisée pour décrire un changement radical de paysage, mais en cet instant, c'était précisément ce que ressentait Luo Chen.
 

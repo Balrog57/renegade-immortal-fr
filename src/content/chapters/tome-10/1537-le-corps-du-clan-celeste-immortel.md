@@ -14,9 +14,9 @@ Le feu doré dans son œil gauche n'était qu'à l'état éthéré et était enc
 
 Un véritable feu céleste!
 
-Le feu et le tonnerre célestes suffisaient à lui seul pour que Wang Lin puisse tuer n'importe quel cultivateur du stade initial du Nirvana Void. Même les cultivateurs du milieu du stade Nirvana Void ne dureraient pas longtemps avant de périr à leur tour!
+Le feu et le tonnerre célestes suffisaient à lui seul pour que Wang Lin puisse tuer n'importe quel cultivateur du stade initial du Vide du Nirvana. Même les cultivateurs du milieu du stade Vide du Nirvana ne dureraient pas longtemps avant de périr à leur tour!
 
-Même les cultivateurs du stade avancé du Nirvana Void seraient ébranlés par ce feu et ce tonnerre célestes et choisiraient la retraite!
+Même les cultivateurs du stade avancé du Vide du Nirvana seraient ébranlés par ce feu et ce tonnerre célestes et choisiraient la retraite!
 
 Tandis que le nouveau sang généré par sa moelle osseuse circulait dans le corps de Wang Lin, les trois essences restantes — vie et mort, karma, et vrai et faux — commencèrent lentement à atteindre la perfection. Elles n'avaient plus besoin que d'une opportunité pour atteindre le Grand Dao!
 

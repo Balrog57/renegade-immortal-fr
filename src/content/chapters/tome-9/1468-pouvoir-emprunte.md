@@ -76,7 +76,7 @@ Cependant, à cet instant, la pression émanant du corps de Wang Lin fit blêmir
 
 Dès son apparition, la pression terrifiante du corps de Wang Lin s'abattit sur lui. Son expression changea une fois de plus et il recula inconsciemment de quelques pas, les yeux écarquillés par une peur monstrueuse.
 
-Cette aura l'effrayait, le faisait trembler et lui donnait l'impression que son adversaire n'aurait besoin que d'une seule pensée pour le désintégrer. Bien qu'il fût un cultivateur du troisième pas du Nirvana Void, il n'était qu'une fourmi face à une telle pression!
+Cette aura l'effrayait, le faisait trembler et lui donnait l'impression que son adversaire n'aurait besoin que d'une seule pensée pour le désintégrer. Bien qu'il fût un cultivateur du troisième pas du Vide du Nirvana, il n'était qu'une fourmi face à une telle pression!
 
 Même les cinq maîtres du Système Stellaire Antique n'avaient jamais fait ressentir cela à Zhou Jin!
 

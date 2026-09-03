@@ -34,7 +34,7 @@ Voyant qu'il n'avait plus aucune chance de s'échapper, une lueur de férocité 
 
 Il ne s'agissait pas de la totalité de son âme originelle. Avec sa ruse, il n'aurait jamais pris un tel risque; autrefois, il avait divisé une petite partie de son âme afin de pouvoir sauver sa vie en cas de crise majeure.
 
-À cet instant, il décida de tout miser. Une aura destructrice émana de son âme originelle. Son expression était féroce alors qu'il était sur le point d'exploser. L'autodestruction d'un cultivateur du stade Nirvana Scryer était bien plus puissante que celle du cadavre de feu. Une fois l'explosion déclenchée, la planète Suzaku s'effondrerait!
+À cet instant, il décida de tout miser. Une aura destructrice émana de son âme originelle. Son expression était féroce alors qu'il était sur le point d'exploser. L'autodestruction d'un cultivateur du stade Scruteur du Nirvana était bien plus puissante que celle du cadavre de feu. Une fois l'explosion déclenchée, la planète Suzaku s'effondrerait!
 
 Toute vie sur la planète, à l'exception de quelques rares élus, s'éteindrait!
 
@@ -50,7 +50,7 @@ Puis, de sa main gauche, il frappa impitoyablement l'âme originelle. L'énergie
 
 Après avoir placé d'innombrables restrictions sur l'âme originelle pour stopper définitivement son autodestruction, Wang Lin la jeta dans son sac de rangement. Il se retourna, des ondulations apparurent sous ses pieds et il disparut dans le ciel.
 
-Les pupilles du garçon à la grosse tête se contractèrent; sa peur de Wang Lin s'intensifia dans son cœur. Il savait que s'il avait été confronté à cette âme originelle de Nirvana Scryer en plein effondrement, il n'aurait pas pu s'en sortir si facilement. Un seul instant d'inattention et il aurait pu être blessé.
+Les pupilles du garçon à la grosse tête se contractèrent; sa peur de Wang Lin s'intensifia dans son cœur. Il savait que s'il avait été confronté à cette âme originelle de Scruteur du Nirvana en plein effondrement, il n'aurait pas pu s'en sortir si facilement. Un seul instant d'inattention et il aurait pu être blessé.
 
 En particulier, lorsque Liu Qingyun avait choisi de s'autodétruire, le garçon en avait eu le vertige. Cependant, ce qui le choqua davantage fut le calme imperturbable de Wang Lin, qui donnait l'impression que tout se déroulait exactement comme prévu. Les mouvements de Wang Lin étaient d'une fluidité extrême alors qu'il emportait l'âme originelle.
 

@@ -32,7 +32,7 @@ Les innombrables tentacules se mirent toutes à osciller, comme pour saluer la n
 
 L'instant d'après, un objet svelte de six mètres de long jaillit de la fissure dans le corps du vieil homme. Il tordait sans cesse son corps jusqu'à ce que l'enveloppe charnelle finisse par exploser. Il n'y eut ni chair ni sang, seulement une déflagration d'énergie glaciale.
 
-Puis, l'objet de six mètres s'élança. Wang Lin fut stupéfait: c'était un petit Serpent Moongazer!
+Puis, l'objet de six mètres s'élança. Wang Lin fut stupéfait: c'était un petit Serpent aux yeux de lune!
 
 Ce serpent était manifestement nouveau-né, et tous les tentacules sur son corps étaient transparents. Dès son apparition, il fit brusquement demi-tour pour engloutir le cadavre effondré du vieil homme.
 
@@ -48,19 +48,19 @@ Tout semblait être revenu à la normale, à une exception près: une personne m
 
 Wang Lin ouvrit les yeux et poussa un soupir de stupéfaction.
 
-« Pas étonnant qu'il y ait tant de serpents Moongazer. D'après les souvenirs de Tu Si, si un serpent Moongazer reste trop longtemps hors du corps d'un Dieu Antique, il mourra sans aucun doute! »
+« Pas étonnant qu'il y ait tant de serpents aux yeux de lune. D'après les souvenirs de Tu Si, si un serpent aux yeux de lune reste trop longtemps hors du corps d'un Dieu Antique, il mourra sans aucun doute! »
 
-« Pourtant, non seulement ce serpent n'est pas mort, mais il utilise les corps de cultivateurs et de mortels pour engendrer une nouvelle vie; il a presque instauré un cycle biologique... Ce serpent Moongazer doit avoir subi une mutation prodigieuse au fil des âges, sans quoi cela serait impossible! » Wang Lin connaissait bien le serpent Moongazer et pouvait désormais deviner avec certitude l'essentiel de ce qui s'était produit.
+« Pourtant, non seulement ce serpent n'est pas mort, mais il utilise les corps de cultivateurs et de mortels pour engendrer une nouvelle vie; il a presque instauré un cycle biologique... Ce serpent aux yeux de lune doit avoir subi une mutation prodigieuse au fil des âges, sans quoi cela serait impossible! » Wang Lin connaissait bien le serpent aux yeux de lune et pouvait désormais deviner avec certitude l'essentiel de ce qui s'était produit.
 
-Il réfléchit silencieusement un instant. Une fois le calme revenu, il projeta à nouveau son sens divin vers la rune gravée sur le fourneau. Dès qu'il enveloppa la rune, le regard de Wang Lin se glaça et son sens divin percuta impitoyablement celui de Greed.
+Il réfléchit silencieusement un instant. Une fois le calme revenu, il projeta à nouveau son sens divin vers la rune gravée sur le fourneau. Dès qu'il enveloppa la rune, le regard de Wang Lin se glaça et son sens divin percuta impitoyablement celui de Cupidité.
 
-Même à son apogée, le niveau de culture de Greed était presque comparable à celui de l'actuel Wang Lin. Étant donné qu'il était gravement blessé, son empreinte était extrêmement faible.
+Même à son apogée, le niveau de culture de Cupidité était presque comparable à celui de l'actuel Wang Lin. Étant donné qu'il était gravement blessé, son empreinte était extrêmement faible.
 
 Après l'assaut du sens divin de Wang Lin, elle s'effondra rapidement.
 
-À l'instant où le sens divin de Greed fut anéanti, Wang Lin n'hésita pas à imprégner la rune de sa propre empreinte.
+À l'instant où le sens divin de Cupidité fut anéanti, Wang Lin n'hésita pas à imprégner la rune de sa propre empreinte.
 
-Greed avait risqué une mort quasi certaine pour obtenir ce grand fourneau. Il savait qu'il s'agissait d'un trésor, mais ne pouvait le contrôler. Il finit par concevoir une méthode élaborée et consacra plus de mille ans à l'obtention de cette rune.
+Cupidité avait risqué une mort quasi certaine pour obtenir ce grand fourneau. Il savait qu'il s'agissait d'un trésor, mais ne pouvait le contrôler. Il finit par concevoir une méthode élaborée et consacra plus de mille ans à l'obtention de cette rune.
 
 Il avait soigneusement gravé la rune sur le fourneau pour en prendre le contrôle, mais désormais, tout cela profitait à Wang Lin.
 
@@ -68,7 +68,7 @@ Alors que son sens divin s'imprégnait de la rune, une sensation étrange envahi
 
 Cependant, cette sensation était comme une fleur dans la brume, extrêmement vague. Une couche semblait le séparer de cet objet, l'empêchant de le saisir pleinement.
 
-Wang Lin comprit que la méthode utilisée pour contrôler le fourneau était erronée; il ne faisait que prendre un raccourci, tout comme Greed. Bien que cela lui octroyât un contrôle de base, cela ne lui permettrait pas d'exploiter toute la puissance de l'artefact.
+Wang Lin comprit que la méthode utilisée pour contrôler le fourneau était erronée; il ne faisait que prendre un raccourci, tout comme Cupidité. Bien que cela lui octroyât un contrôle de base, cela ne lui permettrait pas d'exploiter toute la puissance de l'artefact.
 
 Toutefois, Wang Lin n'était pas pressé. Ses yeux brillèrent et il murmura: « Tant que je retournerai dans le Système Stellaire de l'Alliance, ce fourneau révélera sa véritable puissance entre les mains de mon corps original! »
 
@@ -92,7 +92,7 @@ Maintenant qu'il possédait le fourneau, il avait le temps de l'observer.
 
 Cependant, rien de tout cela n'influa sur Wang Lin, dont le regard resta aussi calme qu'une eau dormante.
 
-« La méthode de culture de cette femme est effectivement étrange. Même lorsque son énergie originelle a été séparée d'elle, elle a pu se protéger. Elle a scellé tout l'intérieur de son corps pour que le serpent Moongazer ne puisse rien absorber. »
+« La méthode de culture de cette femme est effectivement étrange. Même lorsque son énergie originelle a été séparée d'elle, elle a pu se protéger. Elle a scellé tout l'intérieur de son corps pour que le serpent aux yeux de lune ne puisse rien absorber. »
 
 « Pourtant, elle a sous-estimé le serpent! Bien que cette méthode soit efficace, je peux parier que cette glace finira par s'effondrer d'ici peu. » Les yeux de Wang Lin étaient froids tandis qu'il méditait, puis il leva la main droite et pressa la glace.
 

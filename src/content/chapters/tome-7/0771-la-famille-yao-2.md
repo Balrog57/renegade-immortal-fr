@@ -65,9 +65,9 @@ C'est ainsi que l'image sur le drapeau prit forme.
 
 En contemplant le drapeau des un milliard d'âmes, Wang Lin resta silencieux. Il ne ressentit aucune fierté d'avoir vaincu l'Ancêtre Sanguin; son cœur était empreint de mélancolie.
 
-Il avait dû lutter acharnement pour vaincre l'Ancêtre Sanguin et n'était pas aussi calme qu'il en avait l'air. Ce combat avait été jalonné de moments de vie ou de mort, et le moindre instant d'inattention aurait signifié la fin. Cette bataille n'avait rien été de moins que sa fuite face au Serpent Moongazer. En réalité, elle était même un peu plus périlleuse.
+Il avait dû lutter acharnement pour vaincre l'Ancêtre Sanguin et n'était pas aussi calme qu'il en avait l'air. Ce combat avait été jalonné de moments de vie ou de mort, et le moindre instant d'inattention aurait signifié la fin. Cette bataille n'avait rien été de moins que sa fuite face au Serpent aux yeux de lune. En réalité, elle était même un peu plus périlleuse.
 
-Après tout, l'intelligence du Serpent Moongazer était très limitée.
+Après tout, l'intelligence du Serpent aux yeux de lune était très limitée.
 
 « Il n'y a pas de haine profonde entre nous deux. Si seulement tu avais emmené Yao Xixue avec toi, tu n'en serais pas arrivé là... » soupira Wang Lin.
 

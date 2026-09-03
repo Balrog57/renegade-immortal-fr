@@ -18,7 +18,7 @@ Il prit une profonde inspiration, ramassa la lame géante et, après l'avoir ins
 
 Il ralentit sa course à 33 kilomètres du manoir, tout en maintenant sa vigilance par son Sens Divin. Après un moment, constatant que Wang Lin ne l'attaquait toujours pas, il sembla comprendre que ce dernier comptait vraiment le laisser filer.
 
-« Wang Lin, je te rendrai centuple la disgrâce que j'ai subie aujourd'hui. Bien que ton sort soit puissant, la prochaine fois, je reviendrai avec plusieurs de mes frères aînés pour attaquer de front. Je veux voir si tu seras toujours aussi calme! Humph, si Senior Greed n'était pas parti au Pays des Démons de Feu, il n'aurait eu besoin que d'un seul mouvement pour te tuer! » Une lueur d'intention meurtrière traversa les yeux de Mo Yang; il lança un dernier regard glacial vers le Manoir Mo avant de s'enfuir à toute allure.
+« Wang Lin, je te rendrai centuple la disgrâce que j'ai subie aujourd'hui. Bien que ton sort soit puissant, la prochaine fois, je reviendrai avec plusieurs de mes frères aînés pour attaquer de front. Je veux voir si tu seras toujours aussi calme! Humph, si Senior Cupidité n'était pas parti au Pays des Démons de Feu, il n'aurait eu besoin que d'un seul mouvement pour te tuer! » Une lueur d'intention meurtrière traversa les yeux de Mo Yang; il lança un dernier regard glacial vers le Manoir Mo avant de s'enfuir à toute allure.
 
 Il volait avec une rapidité extrême. Plus il s'éloignait du manoir, plus il se sentait détendu. En repensant au combat précédent, il ne put s'empêcher d'être saisi par la peur.
 

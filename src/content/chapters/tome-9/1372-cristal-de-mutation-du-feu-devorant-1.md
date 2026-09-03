@@ -20,7 +20,7 @@ Une fois l'éclair passé, l'homme d'âge moyen sembla s'être évaporé. Toute 
 
 Le silence qui suivit fut mortel. Les cultivateurs qui avaient réussi à fuir la ville étaient pétris de terreur. Ils regardaient Wang Lin avec une peur indicible dans les yeux.
 
-D'un simple geste de la main, Wang Lin avait provoqué l'accumulation des nuages et la descente du tonnerre pour éliminer instantanément un cultivateur Illusory Yin. Ce sort était suffisant pour ébranler l'esprit de tous les présents!
+D'un simple geste de la main, Wang Lin avait provoqué l'accumulation des nuages et la descente du tonnerre pour éliminer instantanément un cultivateur Yin Illusoire. Ce sort était suffisant pour ébranler l'esprit de tous les présents!
 
 Le vieil homme nommé Zhang était livide, en ayant presque cessé de respirer. Il restait hébété, le visage marqué par une horreur inimaginable.
 
@@ -56,7 +56,7 @@ Le jeune maître se retira parmi la poussière, le visage pâle, mais ses yeux �
 
 « Cette perle est assez intéressante », lança la voix indifférente de Wang Lin depuis les décombres. Sa silhouette intacte émergea lentement de la fumée.
 
-À son apparition, le jeune homme afficha un regard d'incrédulité. Son cuir chevelu était engourdi et il en perdit presque la raison. Il connaissait parfaitement la puissance de cette perle du Scorpion Sombre. L'explosion aurait suffi à blesser gravement un cultivateur Nirvana Scryer, mais cet homme venait de l'encaisser d'une simple pression de la main sans subir le moindre dommage. La seule pensée de cet acte fit trembler le jeune homme.
+À son apparition, le jeune homme afficha un regard d'incrédulité. Son cuir chevelu était engourdi et il en perdit presque la raison. Il connaissait parfaitement la puissance de cette perle du Scorpion Sombre. L'explosion aurait suffi à blesser gravement un cultivateur Scruteur du Nirvana, mais cet homme venait de l'encaisser d'une simple pression de la main sans subir le moindre dommage. La seule pensée de cet acte fit trembler le jeune homme.
 
 Terrifié, il s'apprêtait à fuir quand Wang Lin agita la main droite. Un filet électrique apparut et encercla le jeune homme. Le filet se rétracta immédiatement, suivi du cri de celui-ci. Il perdit toute capacité de résistance, comme scellé dans les airs, et se retrouva suspendu.
 

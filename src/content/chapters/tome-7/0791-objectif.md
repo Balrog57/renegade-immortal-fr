@@ -14,11 +14,11 @@ Le corps de Wang Lin affichait une expression grave alors qu'il fixait le jeune 
 
 Ce dernier regarda Wang Lin avec un sourire lugubre. Son corps vacilla, fusionnant avec le monde pour disparaître sans laisser de trace.
 
-L'instant d'après, le jeune homme réapparut aux côtés d'un cultivateur de l'Illusory Yin, loin de là. L'expression du cultivateur changea radicalement et il battit en retraite précipitamment.
+L'instant d'après, le jeune homme réapparut aux côtés d'un cultivateur de l'Yin Illusoire, loin de là. L'expression du cultivateur changea radicalement et il battit en retraite précipitamment.
 
 Non seulement lui, mais tous les cultivateurs environnants s'enfuirent.
 
-Le sourire sur le visage du jeune homme devint plus sinistre encore alors qu'il projetait sa lance. Une ondulation se propagea dans le vide et, non loin de là, le corps du cultivateur de l'Illusory Yin fut expulsé de sa position. Son visage était livide; il s'apprêtait à fuir de nouveau quand son corps se mit soudainement à trembler. Dans un fracas retentissant, son corps explosa, et sa chair, son sang ainsi que son âme originelle furent aspirés dans la bouche du jeune homme.
+Le sourire sur le visage du jeune homme devint plus sinistre encore alors qu'il projetait sa lance. Une ondulation se propagea dans le vide et, non loin de là, le corps du cultivateur de l'Yin Illusoire fut expulsé de sa position. Son visage était livide; il s'apprêtait à fuir de nouveau quand son corps se mit soudainement à trembler. Dans un fracas retentissant, son corps explosa, et sa chair, son sang ainsi que son âme originelle furent aspirés dans la bouche du jeune homme.
 
 Même la peau et les os, le sang et la chair... rien ne resta.
 

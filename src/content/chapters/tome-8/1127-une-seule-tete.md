@@ -20,7 +20,7 @@ Cette fois, c'était de la véritable fureur!
 
 Alors que le rugissement résonnait, même le vortex où se trouvait Wang Lin devint instable. Le Ji Qiong atteignit le vortex en un instant et chargea au moment précis où Wang Lin disparaissait.
 
-La première épreuve de la Terre des Dieux Anciens était divisée en épreuves de métal, de bois, de feu et de terre. Autrefois, il avait pénétré dans l'épreuve de la terre et pris le risque de tuer Hunchback Meng. Cette fois, il entrait dans l'épreuve du métal.
+La première épreuve de la Terre des Dieux Anciens était divisée en épreuves de métal, de bois, de feu et de terre. Autrefois, il avait pénétré dans l'épreuve de la terre et pris le risque de tuer Bossu Meng. Cette fois, il entrait dans l'épreuve du métal.
 
 Lorsqu'il sortit du vortex, ce qui apparut devant lui fut un cimetière d'épées! Des lames brisées étaient plantées partout dans le sol. D'un seul coup d'œil, ce monde sans fin était totalement recouvert d'épées, et il était impossible de les compter.
 

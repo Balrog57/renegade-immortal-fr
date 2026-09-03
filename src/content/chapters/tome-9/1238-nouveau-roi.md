@@ -14,7 +14,7 @@ C'était précisément l'objectif de Wang Lin!
 
 Alors que le roi moustique poussait son cri, la bête moustique de Wang Lin répondit par un rugissement, simulant une reddition. Wang Lin commanda à sa bête de voler lentement vers l'avant, se rapprochant du roi moustique violet.
 
-Dès l'apparition du roi moustique violet, Wang Lin sentit clairement son aura: celle d'un cultivateur au milieu du stade Nirvana Shatterer; ce roi n'était donc pas particulièrement puissant. Cette montagne était le foyer de son troupeau. Il était évident qu'il passait la majeure partie de son temps dans les profondeurs de la montagne, luttant contre sa métamorphose, et ne sortait que rarement. Bien que la bête moustique de Wang Lin fût plus faible, elle s'était transformée en une bête moustique dorée, ce qui rendait difficile pour le roi violet de remarquer qu'elle dissimulait son aura.
+Dès l'apparition du roi moustique violet, Wang Lin sentit clairement son aura: celle d'un cultivateur au milieu du stade Briseur du Nirvana; ce roi n'était donc pas particulièrement puissant. Cette montagne était le foyer de son troupeau. Il était évident qu'il passait la majeure partie de son temps dans les profondeurs de la montagne, luttant contre sa métamorphose, et ne sortait que rarement. Bien que la bête moustique de Wang Lin fût plus faible, elle s'était transformée en une bête moustique dorée, ce qui rendait difficile pour le roi violet de remarquer qu'elle dissimulait son aura.
 
 Les mouvements de la bête de Wang Lin n'attirèrent pas l'attention des autres créatures environnantes. Même les deux moustiques blancs ne remarquèrent rien et se contentèrent de fixer froidement le roi moustique de Wang Lin.
 
@@ -68,9 +68,9 @@ Un grondement assourdissant retentit, suivi de craquements sinistres provenant d
 
 Ce cycle se produisit trois fois en un laps de temps infime. À chaque apparition et rétractation de la brume violette, l'empreinte entre ses sourcils devenait un peu plus diffuse.
 
-C'était comme si le roi moustique tentait de se régénérer par cette méthode. Simultanément, dans sa fuite, les poils de son corps se hérissèrent et une loi sembla l'envelopper — un phénomène qui n'apparaissait que lorsque les cultivateurs Nirvana Shatterer s'apprêtaient à déclencher des sorts puissants.
+C'était comme si le roi moustique tentait de se régénérer par cette méthode. Simultanément, dans sa fuite, les poils de son corps se hérissèrent et une loi sembla l'envelopper — un phénomène qui n'apparaissait que lorsque les cultivateurs Briseur du Nirvana s'apprêtaient à déclencher des sorts puissants.
 
-À ce moment-là, les deux moustiques blancs qui avaient été repoussés chargèrent avec acharnement. Les centaines de bêtes bleues, dégageant l'aura de cultivateurs Nirvana Cleanser, se précipitèrent désespérément, tandis que les milliers de bêtes rouges tournoyaient frénétiquement. Tous leurs poils étaient dressés et leurs sifflements étaient terrassants!
+À ce moment-là, les deux moustiques blancs qui avaient été repoussés chargèrent avec acharnement. Les centaines de bêtes bleues, dégageant l'aura de cultivateurs Purificateur du Nirvana, se précipitèrent désespérément, tandis que les milliers de bêtes rouges tournoyaient frénétiquement. Tous leurs poils étaient dressés et leurs sifflements étaient terrassants!
 
 Plus loin encore, les ondulations à l'horizon se distordirent davantage alors qu'un océan rouge infini convergeait rapidement vers le lieu du combat.
 

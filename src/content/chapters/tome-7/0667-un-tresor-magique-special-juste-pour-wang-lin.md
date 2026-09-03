@@ -21,7 +21,7 @@ Les yeux du vieil homme brillaient alors qu'il regardait la femme. Il était tr�
 
 La femme réfléchit. Son maître lui en avait déjà parlé durant le voyage. Après un moment de réflexion, elle hocha la tête. « Tout se fera selon la volonté du Maître. »
 
-Le vieil homme éclata de rire, transporté par la joie. « Mei Er, ce vieux te mènera certainement au stade de cultivatrice de deuxième étape. Tu dépasseras même mon propre niveau de culture de Nirvana Scryer! »
+Le vieil homme éclata de rire, transporté par la joie. « Mei Er, ce vieux te mènera certainement au stade de cultivatrice de deuxième étape. Tu dépasseras même mon propre niveau de culture de Scruteur du Nirvana! »
 
 Le rayon de lumière rouge s'élança rapidement, ne laissant derrière lui que l'écho de ses rires alors qu'il fonçait droit vers la brillante planète Thousand Illusion.
 

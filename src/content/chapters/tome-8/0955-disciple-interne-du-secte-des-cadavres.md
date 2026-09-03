@@ -21,7 +21,7 @@ Tout en parlant, il se retourna brusquement et fixa Wang Lin avec une intention 
 
 « Junior, accepte la mort! » Alors qu'il projetait sa main droite, l'océan parut bouillir pour se concentrer sur son geste. Il se transforma en un dragon de mer qui chargea Wang Lin dans un rugissement.
 
-Au moment où le dragon de mer s'élança, l'odeur saline de l'océan imprégna l'air. Wang Lin garda sa main droite sur le dos du garçon et ne daigna même pas regarder le dragon ou le colosse qui le suivait. Ce dernier n'était qu'au stade initial du Nirvana Scryer. Si l'on faisait abstraction du corps de Dieu Ancien Royal à 5 étoiles de Wang Lin, il lui serait facile de terrasser ce géant avec sa seule culture d'énergie originelle!
+Au moment où le dragon de mer s'élança, l'odeur saline de l'océan imprégna l'air. Wang Lin garda sa main droite sur le dos du garçon et ne daigna même pas regarder le dragon ou le colosse qui le suivait. Ce dernier n'était qu'au stade initial du Scruteur du Nirvana. Si l'on faisait abstraction du corps de Dieu Ancien Royal à 5 étoiles de Wang Lin, il lui serait facile de terrasser ce géant avec sa seule culture d'énergie originelle!
 
 Bien que les membres du Clan des Démons Géants possèdent des corps robustes, ils demeuraient bien trop faibles comparés aux corps des Dieux Anciens. Wang Lin agita la main gauche et une force colossale jaillit. Cette puissance était invisible, mais dès le mouvement de sa main, des craquements déchirèrent l'espace entre lui et le géant, comme si la réalité elle-même allait se briser.
 
@@ -45,7 +45,7 @@ Une explosion assourdissante retentit et le corps du géant vola en éclats. Pou
 
 Tout cela semblait lent, mais se produisit en un éclair. Du début à la fin, Wang Lin n'avait jamais retiré sa main du dos du garçon. Une épaisse brume noire s'échappa de la tête de l'enfant. L'aura de mort qui le parasitait disparut progressivement, remplacée par une vitalité retrouvée.
 
-« Qui êtes-vous, Seigneur? » Le jeune homme en bleu fut profondément ébranlé par ce spectacle. Il savait qu'aucun cultivateur ordinaire ne pouvait terrasser si facilement un expert au stade initial du Nirvana Scryer, d'autant plus que celui-ci possédait le corps d'un membre du Clan des Démons Géants! Pourtant, aux yeux de tous, l'homme devant lui n'était qu'un simple cultivateur au stade initial du Nirvana Scryer.
+« Qui êtes-vous, Seigneur? » Le jeune homme en bleu fut profondément ébranlé par ce spectacle. Il savait qu'aucun cultivateur ordinaire ne pouvait terrasser si facilement un expert au stade initial du Scruteur du Nirvana, d'autant plus que celui-ci possédait le corps d'un membre du Clan des Démons Géants! Pourtant, aux yeux de tous, l'homme devant lui n'était qu'un simple cultivateur au stade initial du Scruteur du Nirvana.
 
 Wang Lin ne répondit pas. Il leva sa main droite et pressa une nouvelle fois le dos du garçon. Cette fois, des traces de brume distordue apparurent! Une fois sa main posée, l'empreinte noire bougea de manière inattendue. Cinq fragments d'âme noirs formèrent alors une paume et tentèrent de dévorer la main de Wang Lin.
 

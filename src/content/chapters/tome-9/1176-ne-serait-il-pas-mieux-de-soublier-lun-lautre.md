@@ -22,7 +22,7 @@ En chemin, tous les cultivateurs qui l'aperçurent lui adressèrent respectueuse
 
 Peu de temps après, Wang Lin atteignit la ville principale. Les cultivateurs de la Secte du Jade Précieux pouvaient arrêter quiconque ne possédant pas de jade d'invitation. Cependant, en voyant Wang Lin, leurs esprits tremblèrent et ils s'écartèrent aussitôt, n'osant même pas vérifier s'il détenait une invitation ou non.
 
-Une centaine de cultivateurs étaient dispersés sur la place. La plupart étaient au niveau Nirvana Scryer ou Nirvana Cleanser; il y avait peu de vieux monstres de niveau Nirvana Shatterer.
+Une centaine de cultivateurs étaient dispersés sur la place. La plupart étaient au niveau Scruteur du Nirvana ou Purificateur du Nirvana; il y avait peu de vieux monstres de niveau Briseur du Nirvana.
 
 L'arrivée de Wang Lin attira immédiatement l'attention de l'assemblée. Tous lui firent une salutation, et certains s'approchèrent même pour engager la conversation. Wang Lin les recevait avec calme tout en parcourant la foule du regard, jusqu'à ce qu'il aperçoive Li Qianmei au loin.
 
@@ -50,13 +50,13 @@ Wang Lin regarda l'Ancien avec un sourire qui n'en était guère un et lui adres
 
 « Cet Ancien est un homme intéressant », pensa Wang Lin en suivant du regard le départ de l'homme.
 
-Une fois l'Ancien parti, d'autres cultivateurs vinrent parler à Wang Lin, parmi lesquels le lettré en blanc et la belle femme rencontrée lors des enchères du Maître Ashen Pine. Les trois n'étaient pas étrangers les uns aux autres. Après quelques échanges, la place se mit à trembler et un silence s'installa. Le sol secoua plus violemment encore et des fissures apparurent tout autour de la place. Soudain, seize immenses tablettes de pierre jaillirent dans les airs!
+Une fois l'Ancien parti, d'autres cultivateurs vinrent parler à Wang Lin, parmi lesquels le lettré en blanc et la belle femme rencontrée lors des enchères du Maître Pin Cendré. Les trois n'étaient pas étrangers les uns aux autres. Après quelques échanges, la place se mit à trembler et un silence s'installa. Le sol secoua plus violemment encore et des fissures apparurent tout autour de la place. Soudain, seize immenses tablettes de pierre jaillirent dans les airs!
 
 Ces seize tablettes surgirent de la terre et s'immobilisèrent à mille pieds d'altitude, entourées d'une lueur émanant de leur surface. Simultanément, le sol continua de vibrer et plus de quarante tablettes plus petites s'envolèrent à huit cents pieds de hauteur. Le spectacle ne s'arrêta pas là: une centaine d'autres tablettes apparurent pour se stabiliser à cinq cents pieds, formant ainsi une gigantesque formation!
 
 Comme la plupart de ces cultivateurs avaient déjà participé à ces enchères, ils n'en furent pas surpris. Ils se dispersèrent et s'installèrent sur les différentes tablettes selon leur niveau de culture et leur statut.
 
-Wang Lin, d'un air calme, fit un pas en avant et vint s'asseoir au-dessus de l'une des seize tablettes de première ligne. Personne ne fut étonné par sa position; cela semblait évident pour tous. En observant les alentours, il nota que tous les cultivateurs assis sur ces seize grandes tablettes étaient des vieux monstres de niveau Nirvana Shatterer, et il en connaissait la plupart. Une fois l'installation terminée, une silhouette gracieuse rejoignit Wang Lin sur sa tablette. Li Qianmei lui adressa un regard et s'assit tranquillement à ses côtés.
+Wang Lin, d'un air calme, fit un pas en avant et vint s'asseoir au-dessus de l'une des seize tablettes de première ligne. Personne ne fut étonné par sa position; cela semblait évident pour tous. En observant les alentours, il nota que tous les cultivateurs assis sur ces seize grandes tablettes étaient des vieux monstres de niveau Briseur du Nirvana, et il en connaissait la plupart. Une fois l'installation terminée, une silhouette gracieuse rejoignit Wang Lin sur sa tablette. Li Qianmei lui adressa un regard et s'assit tranquillement à ses côtés.
 
 Une fois installée, elle murmura comme pour elle-même: « Je vais bientôt partir. »
 

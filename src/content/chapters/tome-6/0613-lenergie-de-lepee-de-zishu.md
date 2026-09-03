@@ -78,7 +78,7 @@ Si Wang Lin pouvait accomplir cela, c'était parce que sa culture avait atteint 
 
 Par ce simple geste, Ling Tianhou protégeait ses disciples bien mieux que le Tout-Voyant! Il offrait à ses disciples un puissant rayon d'énergie d'épée, là où le Tout-Voyant ne leur donnait que des trésors de sauvetage de piètre qualité.
 
-Ling Tianhou avait prévu que Greed se rende dans le Domaine des Esprits Démoniaques pour protéger ses disciples, mais le Tout-Voyant n'en ferait pas autant.
+Ling Tianhou avait prévu que Cupidité se rende dans le Domaine des Esprits Démoniaques pour protéger ses disciples, mais le Tout-Voyant n'en ferait pas autant.
 
 Cela tenait en grande partie à leurs Daos respectifs. Le Dao de Ling Tianhou était celui de la tyrannie. Cela le rendait extrêmement protecteur envers les siens; nul étranger n'était autorisé à s'en prendre à son peuple!
 

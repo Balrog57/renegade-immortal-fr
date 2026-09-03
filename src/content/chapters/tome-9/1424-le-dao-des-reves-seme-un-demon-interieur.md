@@ -26,7 +26,7 @@ Le Rêve des Temps Anciens était un sort de Dieu Ancien; il ne pouvait donc pas
 
 Pourtant, ce sort était tout simplement trop magnifique. Normalement, Wang Lin n'aurait pas été capable de le comprendre, mais en s'appuyant sur le Domaine du Dao, il avait fait preuve d'une persévérance et d'une ténacité sans faille pour fusionner les deux en un seul: le Dao des Rêves!
 
-De retour dans la Mer de Nuages, à l'extérieur de la Secte Démon, Wang Lin ne l'avait testé que sur l'Ancien Heaven's Blight. Si Wang Lin ne l'avait pas prévenu, le cœur de Dao de cet Ancien se serait effondré, entraînant sa mort!
+De retour dans la Mer de Nuages, à l'extérieur de la Secte Démon, Wang Lin ne l'avait testé que sur l'Ancien Fléau des Cieux. Si Wang Lin ne l'avait pas prévenu, le cœur de Dao de cet Ancien se serait effondré, entraînant sa mort!
 
 Le Dao des Rêves, bien que son nom paraisse complexe, était en réalité une forme de démon intérieur!
 

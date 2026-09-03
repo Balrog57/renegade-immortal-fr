@@ -20,8 +20,8 @@ sections: ["{\"heading\":\"Aperçu\",\"body\":\"Wang Lin est le protagoniste pri
 - **Espèce:** Humain · Dieu Antique · Ordre Antique · Céleste Antique
 - **Cheveux:** Noirs (corps original) → Blancs (après l'héritage de Tu Si) → Blancs définitifs (second Éveil Vermillon)
 - **Yeux:** Bleus (corps original) · Rouges (corps Ma Liang, Dieu Antique 2 étoiles+)
-- **Cultivation:** 4e Marche Heaven Trampling (fin du roman) · Summer Immortal 9e Marche (AWWP)
-- **Corps charnel:** Heaven Trampling (Corps Antique 27 étoiles)
+- **Cultivation:** 4e Marche Piétinement des Cieux (fin du roman) · Summer Immortal 9e Marche (AWWP)
+- **Corps charnel:** Piétinement des Cieux (Corps Antique 27 étoiles)
 
 ## Aperçu
 
@@ -79,7 +79,7 @@ D'innombrables fissures couvraient son corps bronze, rendant sa peau très rugue
 
 - Wang Lin est très impitoyable et décisif dans l'action. Il commença son voyage de cultivation comme un diable massacrant tout ennemi potentiel.
 
-- Ce n'est qu'après avoir atteint l'Âme de Formation (Soul Formation) qu'il calma sa nature meurtrière. Mais sa nature resta extrêmement similaire à celle d'un diable, lui valant le surnom de Maître Démon.
+- Ce n'est qu'après avoir atteint l'Âme de Formation (Formation de l'Âme) qu'il calma sa nature meurtrière. Mais sa nature resta extrêmement similaire à celle d'un diable, lui valant le surnom de Maître Démon.
 
 - Son esprit est souvent envahi par la folie lors des crises de vie ou de mort, ce qui se traduit souvent par de graves dommages à ses ennemis et parfois à lui-même.
 
@@ -113,9 +113,9 @@ Né mortel sans rien de spécial. Avant l'événement de sélection des disciple
 
 ## Cultivation
 
-- **Base de cultivation:** Ascendant (donghua) · Heaven Trampling 4e Marche (fin du roman) · Summer Immortal 9e Marche (AWWP)
-- **Corps charnel:** Heaven Trampling (Corps Antique 27 étoiles)
-- **Prouesse au combat:** Heaven Trampling (fin du roman)
+- **Base de cultivation:** Ascendant (donghua) · Piétinement des Cieux 4e Marche (fin du roman) · Summer Immortal 9e Marche (AWWP)
+- **Corps charnel:** Piétinement des Cieux (Corps Antique 27 étoiles)
+- **Prouesse au combat:** Piétinement des Cieux (fin du roman)
 
 ## Anecdotes
 

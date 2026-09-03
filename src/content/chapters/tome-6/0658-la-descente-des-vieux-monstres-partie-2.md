@@ -12,13 +12,13 @@ L'aspiration provenant du gouffre était imprévisible; tantôt puissante, tant�
 
 Après avoir jailli de là, debout sur le moustique, il vit immédiatement des milliers d'insectes le fixer de leurs yeux rouges, dégageant des auras épaisses et hostiles.
 
-Wang Lin fronça légèrement les sourcils. Il y avait moins de moustiques qu'auparavant. Un changement inattendu devait s'être produit durant la bataille entre Greed et Zhou Yi pour que leur nombre diminue si drastiquement.
+Wang Lin fronça légèrement les sourcils. Il y avait moins de moustiques qu'auparavant. Un changement inattendu devait s'être produit durant la bataille entre Cupidité et Zhou Yi pour que leur nombre diminue si drastiquement.
 
 « Je ne sais pas exactement ce qui s'est passé... » Songea Wang Lin un instant avant de poser sa main sur la tête du moustique pour activer son sens divin.
 
-Diverses scènes traversèrent immédiatement l'esprit de Wang Lin. À la moitié de la bataille entre Zhou Yi et Greed, deux cultivateurs, un homme et une femme, étaient descendus de la sortie du Pays des Démons de Feu.
+Diverses scènes traversèrent immédiatement l'esprit de Wang Lin. À la moitié de la bataille entre Zhou Yi et Cupidité, deux cultivateurs, un homme et une femme, étaient descendus de la sortie du Pays des Démons de Feu.
 
-Ces deux êtres étaient d'une puissance absolue. D'un simple geste, ils avaient capturé Greed. Zhou Yi avait également été saisi avec facilité, mais il semblait que le couple n'avait aucune intention malveillante. En fait, au moment où ils aperçurent Zhou Yi, les yeux de l'homme révélèrent une profonde mélancolie et de la nostalgie.
+Ces deux êtres étaient d'une puissance absolue. D'un simple geste, ils avaient capturé Cupidité. Zhou Yi avait également été saisi avec facilité, mais il semblait que le couple n'avait aucune intention malveillante. En fait, au moment où ils aperçurent Zhou Yi, les yeux de l'homme révélèrent une profonde mélancolie et de la nostalgie.
 
 L'essaim de moustiques n'était pas mort, mais la majorité d'entre eux avait été capturée par ce couple. Si le moustique de Wang Lin n'avait pas pressenti que quelque chose ne tournait pas rond en utilisant un sort pour se fondre parmi les autres, il aurait lui aussi pu être capturé.
 
@@ -148,7 +148,7 @@ L'Omniscient n'était pas le seul à être troublé. L'inquiétude de sa fille, 
 
 C'est pourquoi, lorsque l'Omniscient suggéra d'entrer plus tôt, il fut le premier à accepter. Yao Xixue était sa seule fille, sa seule famille. Pour elle, il serait prêt à tout sacrifier!
 
-De même, le cœur de Ling Tianhou était sombre. Neuf des lampes vitales des Douze Épées s'étaient éteintes... Ling Tianhou réprima sa colère et se prépara à entrer dans le Pays des Esprits Démoniaques. Il comptait interroger rigoureusement Greed sur ce qui s'était passé.
+De même, le cœur de Ling Tianhou était sombre. Neuf des lampes vitales des Douze Épées s'étaient éteintes... Ling Tianhou réprima sa colère et se prépara à entrer dans le Pays des Esprits Démoniaques. Il comptait interroger rigoureusement Cupidité sur ce qui s'était passé.
 
 Les trois ignoraient que la source de l'angoisse de ces trois puissants cultivateurs ne provenait que d'une seule et même personne!
 

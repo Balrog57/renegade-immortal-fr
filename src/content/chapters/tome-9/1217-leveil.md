@@ -84,7 +84,7 @@ Quelque part dans la Mer Nuageuse se trouvait un continent sauvage. Mu Bingmei a
 
 « Wang Lin, je me demande si tu vas bien... » Dans la grotte d'un continent sauvage de la Mer Nuageuse, Mu Bingmei ouvrit lentement ses beaux yeux et regarda devant elle. Un sentiment de solitude qu'elle n'avait jamais éprouvé jusqu'alors envahit son cœur. Elle ressentait un froid intense dans ce lieu étranger où elle cultivait en solitaire. Le froid semblait envelopper son corps et la grotte; en écoutant le vent glacial souffler à l'extérieur, elle se sentait encore plus glacée.
 
-Le Royaume aux Sept Couleurs était plongé dans les ténèbres depuis plus de cent ans, depuis que toutes les lumières colorées avaient disparu. Une force mystérieuse enveloppait la montagne où l'âme originelle et l'âme de Wang Lin s'étaient volatilisées, rendant toute intrusion impossible. Maître Cloud Soul avait tenté de forcer le passage, mais en vain. Il n'avait pu que trouver une grotte à proximité et contempler silencieusement ce monde obscur pendant cent ans.
+Le Royaume aux Sept Couleurs était plongé dans les ténèbres depuis plus de cent ans, depuis que toutes les lumières colorées avaient disparu. Une force mystérieuse enveloppait la montagne où l'âme originelle et l'âme de Wang Lin s'étaient volatilisées, rendant toute intrusion impossible. Maître Nuage-Âme avait tenté de forcer le passage, mais en vain. Il n'avait pu que trouver une grotte à proximité et contempler silencieusement ce monde obscur pendant cent ans.
 
 Chen Tianjun et la vieille femme en vert ressentaient également le passage du temps dans cette obscurité.
 

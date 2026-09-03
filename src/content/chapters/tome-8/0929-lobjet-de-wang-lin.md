@@ -6,11 +6,11 @@ bookTitle: "Alliance's Secret"
 en: Chapter 929 - Wang Lins Thing
 slug: lobjet-de-wang-lin
 ---
-Le Serpent Moongazer utilisa pour la première fois son sort incomparable dans la région nord. Ce sort, déclenché par sa fureur, permit aux cultivateurs présents de ressentir sa puissance inimaginable!
+Le Serpent aux yeux de lune utilisa pour la première fois son sort incomparable dans la région nord. Ce sort, déclenché par sa fureur, permit aux cultivateurs présents de ressentir sa puissance inimaginable!
 
-Si certains sous-estimaient le Serpent Moongazer ou ne le considéraient pas comme une menace suffisante, ils balayèrent toutes ces pensées dès que le sceau se rompit. Il ne leur resta qu'un choc profond au plus profond de leurs âmes!
+Si certains sous-estimaient le Serpent aux yeux de lune ou ne le considéraient pas comme une menace suffisante, ils balayèrent toutes ces pensées dès que le sceau se rompit. Il ne leur resta qu'un choc profond au plus profond de leurs âmes!
 
-À cet instant, de nombreuses fissures apparurent sur la carapace noire entourant le Serpent Moongazer. D'innombrables fragments furent projetés dans toutes les directions avec un sifflement strident.
+À cet instant, de nombreuses fissures apparurent sur la carapace noire entourant le Serpent aux yeux de lune. D'innombrables fragments furent projetés dans toutes les directions avec un sifflement strident.
 
 Ces fragments de carapace se dispersèrent avec une force d'impact colossale. Certains cultivateurs ne purent esquiver assez vite et furent frappés par les éclats. Ils crachèrent du sang avant que leurs corps ne s'effondrent; même leurs âmes originelles ne purent s'échapper.
 
@@ -38,13 +38,13 @@ Bien que cette séquence d'événements puisse sembler lente, elle ne prit que q
 
 Le doigt du dieu ancien ne s'arrêta pas et pressa sa course avec acharnement. Wang Lin s'était déjà retiré un instant auparavant. Ses yeux s'illuminèrent; en observant l'attaque, il eut la sensation qu'un imperturbable dieu ancien adulte se tenait derrière ce doigt. Le bras massif du dieu ancien poussait le doigt vers l'avant dans une vague de destruction incessante.
 
-Le corps gigantesque du Serpent Moongazer suivit le doigt du dieu ancien et s'élança, ses innombrables tentacules déployés. Une vaste brume se dégagea de son corps ovale, et ses yeux féroces rencontrèrent le regard de Wang Lin. Dès que leurs regards se croisèrent, Wang Lin sentit que quelque chose n'allait pas.
+Le corps gigantesque du Serpent aux yeux de lune suivit le doigt du dieu ancien et s'élança, ses innombrables tentacules déployés. Une vaste brume se dégagea de son corps ovale, et ses yeux féroces rencontrèrent le regard de Wang Lin. Dès que leurs regards se croisèrent, Wang Lin sentit que quelque chose n'allait pas.
 
-Les yeux du Serpent Moongazer étaient extrêmement clairs, sans aucune trace de confusion. Wang Lin eut la sensation que, lorsqu'il regardait le serpent, celui-ci le scrutait en retour.
+Les yeux du Serpent aux yeux de lune étaient extrêmement clairs, sans aucune trace de confusion. Wang Lin eut la sensation que, lorsqu'il regardait le serpent, celui-ci le scrutait en retour.
 
-La libération du Serpent Moongazer avait redonné un immense moral aux cultivateurs d'Allheaven. Cette bataille était pleine de rebondissements: tantôt l'Alliance tenait l'avantage, tantôt Allheaven reprenait le dessus.
+La libération du Serpent aux yeux de lune avait redonné un immense moral aux cultivateurs d'Allheaven. Cette bataille était pleine de rebondissements: tantôt l'Alliance tenait l'avantage, tantôt Allheaven reprenait le dessus.
 
-À cet instant, le Serpent Moongazer réapparut, et la pression qu'il dégageait fit trembler les étoiles. Le doigt du dieu ancien ne se dissipa pas et continua de balayer l'espace à une vitesse fulgurante.
+À cet instant, le Serpent aux yeux de lune réapparut, et la pression qu'il dégageait fit trembler les étoiles. Le doigt du dieu ancien ne se dissipa pas et continua de balayer l'espace à une vitesse fulgurante.
 
 Tous les cultivateurs sur son passage explosèrent et périrent avant même qu'il ne les atteigne.
 
@@ -76,7 +76,7 @@ Les quatre autres fleurs ouvrirent leurs ouvertures et projetèrent de grandes q
 
 Simultanément, les yeux de la sculpture brillèrent d'un rouge éclatant, lui donnant un aspect véritablement vivant. Elle ouvrit ses bras comme pour embrasser quelque chose, puis se précipita dans le gaz noir pour s'agripper directement au doigt du dieu ancien. Des lignes noires jaillirent de son corps et se propagèrent instantanément sur l'attaque divine.
 
-Wang Lin observa la scène de loin et esquissa un sourire narquois. Si le doigt du dieu ancien pouvait être brisé si facilement, les cultivateurs d'Allheaven n'auraient pas déployé tant d'efforts pour acheminer le Serpent Moongazer ici.
+Wang Lin observa la scène de loin et esquissa un sourire narquois. Si le doigt du dieu ancien pouvait être brisé si facilement, les cultivateurs d'Allheaven n'auraient pas déployé tant d'efforts pour acheminer le Serpent aux yeux de lune ici.
 
 Ce serpent pouvait être considéré comme l'arme la plus puissante qu'Allheaven ait préparée pour cette guerre! Le regard de Wang Lin glissa vers le bois géant au loin.
 
@@ -84,7 +84,7 @@ Ce serpent pouvait être considéré comme l'arme la plus puissante qu'Allheaven
 
 Tout cela était crucial pour lui. Après tout, sa durée de culture était bien trop courte comparée à celle de ces vieux maîtres; il était donc moins instruit qu'eux.
 
-Cette grande bataille était une véritable démonstration de sorts et de trésors magiques. Wang Lin absorbait toutes ces informations et découvrait ainsi la puissance des cultivateurs du Nettoyage du Nirvana et du Brise-Nirvana.
+Cette grande bataille était une véritable démonstration de sorts et de trésors magiques. Wang Lin absorbait toutes ces informations et découvrait ainsi la puissance des cultivateurs du Purificateur du Nirvana et du Brise-Nirvana.
 
 Sans cette guerre, il lui aurait été très difficile d'acquérir un tel savoir.
 
@@ -92,11 +92,11 @@ Sans cette guerre, il lui aurait été très difficile d'acquérir un tel savoir
 
 Cependant, même réunis, ils ne suffisaient pas à rivaliser avec le doigt du dieu ancien!
 
-Alors que le Serpent Moongazer chargeait, il poussa un nouveau rugissement si puissant qu'il secoua l'espace tout entier. Ceux dont la culture était insuffisante durent s'esquiver sous peine de subir de graves blessures.
+Alors que le Serpent aux yeux de lune chargeait, il poussa un nouveau rugissement si puissant qu'il secoua l'espace tout entier. Ceux dont la culture était insuffisante durent s'esquiver sous peine de subir de graves blessures.
 
 Le rugissement du serpent n'était qu'un cri pour les autres, mais lorsqu'il parvint aux oreilles de Wang Lin, il prit une signification totalement différente. L'expression de Wang Lin changea et ses mains s'activèrent sans attendre pour poser d'innombrables restrictions devant lui. Le fourneau divin apparut autour de lui alors qu'il se retirait rapidement.
 
-À l'instant même de son retrait, le rugissement du Serpent Moongazer provoqua l'explosion du doigt du dieu ancien que le Saint Démon au Visage Noir et les corps raffinés tentaient de contenir!
+À l'instant même de son retrait, le rugissement du Serpent aux yeux de lune provoqua l'explosion du doigt du dieu ancien que le Saint Démon au Visage Noir et les corps raffinés tentaient de contenir!
 
 Boum!
 
@@ -104,7 +104,7 @@ Il était impossible d'expliquer l'ampleur de l'explosion. Tout dans un rayon de
 
 D'innombrables cultivateurs paniquèrent et s'enfuirent dans la terreur, maudissant leur propre lenteur.
 
-Le Serpent Moongazer fut le seul à ne subir aucun dommage. Il chargea, ses tentacules balayant la zone pour commencer un massacre. Quant au Saint Démon au Visage Noir, qui se trouvait au centre de l'explosion, il cracha des quantités massives de sang et fut projeté en arrière. Il n'avait jamais été dans un état aussi pitoyable en ses dizaines de milliers d'années de culture.
+Le Serpent aux yeux de lune fut le seul à ne subir aucun dommage. Il chargea, ses tentacules balayant la zone pour commencer un massacre. Quant au Saint Démon au Visage Noir, qui se trouvait au centre de l'explosion, il cracha des quantités massives de sang et fut projeté en arrière. Il n'avait jamais été dans un état aussi pitoyable en ses dizaines de milliers d'années de culture.
 
 Son corps était gravement endommagé et il était sur le point de s'effondrer.
 

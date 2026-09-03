@@ -62,7 +62,7 @@ Des rayons d'énergie originelle pénétraient le singe noir par l'intermédiair
 
 Wang Lin retira sa main et demanda froidement: « Es-tu prêt à devenir ma bête spirituelle? » Cela faisait sept jours qu'il parcourait ce continent sauvage. Il avait tué de nombreuses bêtes féroces et récolté une grande quantité d'herbes médicinales.
 
-Certaines de ces bêtes pouvaient utiliser des sorts pour combattre les cultivateurs. Il y avait même plusieurs bêtes de rang 5 capables de rivaliser avec des cultivateurs du Nirvana Scryer, mais Wang Lin les avait toutes éliminées en s'emparant de leurs âmes.
+Certaines de ces bêtes pouvaient utiliser des sorts pour combattre les cultivateurs. Il y avait même plusieurs bêtes de rang 5 capables de rivaliser avec des cultivateurs du Scruteur du Nirvana, mais Wang Lin les avait toutes éliminées en s'emparant de leurs âmes.
 
 Ce singe noir était également une bête de rang 5, mais dotée d'un corps extrêmement robuste. Même après l'attaque de Wang Lin, il n'était que gravement blessé et non mort. Parmi les bêtes de rang 5, il se trouvait au sommet et pouvait atteindre le rang 6 à tout moment. C'est précisément pour cette raison que Wang Lin avait décidé de l'apprivoiser.
 

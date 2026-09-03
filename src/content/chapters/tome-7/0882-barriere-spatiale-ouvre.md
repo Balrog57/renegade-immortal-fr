@@ -22,7 +22,7 @@ Alors que ces fragments tournaient autour d'un point central, un vortex apparut 
 
 Les nuages disparurent comme par enchantement. Le ciel étoilé apparut, comme si une paire de mains géantes était en train de le déchirer. Le vortex formé par ces mains immenses brillait d'un éclat extrême dans l'obscurité spatiale. Il s'étendit jusqu'à couvrir la totalité du ciel au-dessus du Temple Céleste du Tonnerre.
 
-Ce vortex contenait une puissance inimaginable, capable de tuer instantanément un cultivateur de niveau Nirvana Scryer. Même des cultivateurs de niveau Nirvana Cleanser ne pourraient y survivre longtemps!
+Ce vortex contenait une puissance inimaginable, capable de tuer instantanément un cultivateur de niveau Scruteur du Nirvana. Même des cultivateurs de niveau Purificateur du Nirvana ne pourraient y survivre longtemps!
 
 Au fil du temps, cette puissance s'intensifia et continua de s'accumuler dans les profondeurs du vortex. Des bruits d'éclatement terrifiants résonnaient sans cesse depuis son centre.
 

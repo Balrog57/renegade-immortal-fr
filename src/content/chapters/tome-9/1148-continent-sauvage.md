@@ -50,7 +50,7 @@ Sur le continent sauvage proche de Mo Luo, les bêtes s'étaient peu à peu rar�
 
 Ce n'était pas le choix de Wang Lin. Il comptait viser un continent sauvage plus lointain, là où les bêtes féroces régnaient et où peu de cultivateurs s'étaient aventurés, garantissant ainsi une abondance d'herbes.
 
-Wang Lin accéléra. Des éclats de lumière fendaient régulièrement le brouillard tandis qu'il s'enfonçait dans l'immensité. Bien que son sens divin ne puisse sonder qu'à 10 000 pieds, un cultivateur du Nirvana Scryer n'atteignait que 1 000 pieds, tandis que seuls les cultivateurs du Nirvana Cleanser pouvaient atteindre les 10 000 pieds.
+Wang Lin accéléra. Des éclats de lumière fendaient régulièrement le brouillard tandis qu'il s'enfonçait dans l'immensité. Bien que son sens divin ne puisse sonder qu'à 10 000 pieds, un cultivateur du Scruteur du Nirvana n'atteignait que 1 000 pieds, tandis que seuls les cultivateurs du Purificateur du Nirvana pouvaient atteindre les 10 000 pieds.
 
 En chemin, diverses créatures étranges apparurent dans son champ de perception. Ces bêtes étaient toutes lugubres; l'une d'elles était un long poisson écailleux qui, lorsqu'il ouvrait la gueule, révélait d'innombrables dents acérées et dégageait une odeur fétide.
 

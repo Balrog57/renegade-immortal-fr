@@ -26,7 +26,7 @@ Il y avait aussi la vieille femme en vert. Elle s'était également élevée dan
 
 « Quel est donc son niveau de culture?! Comparé à lui, je ne fais pas le poids! » haleta la vieille femme, tandis que le respect dans ses yeux s'intensifiait.
 
-Par ailleurs, en raison du feu et du tonnerre, le brouillard qui entourait Maître Cloud Soul dans la vallée s'était contracté. Les bêtes féroces à l'intérieur tremblaient et se terrèrent, lui permettant enfin de s'échapper. Dès qu'il fut hors de danger, il ressentit immédiatement les puissantes vibrations du Royaume aux Sept Couleurs. Il percevait clairement l'énergie originelle et le tonnerre, mais ce qui fit chuter son cœur fut de déceler distinctement l'aura de Wang Lin...
+Par ailleurs, en raison du feu et du tonnerre, le brouillard qui entourait Maître Nuage-Âme dans la vallée s'était contracté. Les bêtes féroces à l'intérieur tremblaient et se terrèrent, lui permettant enfin de s'échapper. Dès qu'il fut hors de danger, il ressentit immédiatement les puissantes vibrations du Royaume aux Sept Couleurs. Il percevait clairement l'énergie originelle et le tonnerre, mais ce qui fit chuter son cœur fut de déceler distinctement l'aura de Wang Lin...
 
 La collision des deux Empreintes de l'Esprit Guerrier provoqua l'effondrement et la scission du Royaume aux Sept Couleurs. À cet instant, Wang Lin ressentit l'impact et fut repoussé. Il cracha un sang noir et son visage pâlit instantanément. Le tatouage de foudre entre ses sourcils s'affaiblit.
 

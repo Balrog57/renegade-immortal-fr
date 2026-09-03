@@ -84,9 +84,9 @@ Elle était extrêmement rapide et se rapprocha en un instant. Telle un vent vio
 
 La Feuille Ancienne!
 
-L'un des trésors que Greed avait obtenus dans ce lieu mystérieux. Même avec le niveau de culture de Greed, lorsqu'il l'utilisait, il pouvait sceller le chemin de Wang Lin. Wang Lin ne pouvait ni la briser, ni l'éviter!
+L'un des trésors que Cupidité avait obtenus dans ce lieu mystérieux. Même avec le niveau de culture de Cupidité, lorsqu'il l'utilisait, il pouvait sceller le chemin de Wang Lin. Wang Lin ne pouvait ni la briser, ni l'éviter!
 
-Mais en ce moment, Wang Lin l'utilisait en tant qu'Ancien Dieu après l'avoir nourrie de son propre sang divin. Il utilisait également la méthode appropriée pour la contrôler; sa puissance était donc bien plus redoutable que lorsqu'elle était entre les mains de Greed!
+Mais en ce moment, Wang Lin l'utilisait en tant qu'Ancien Dieu après l'avoir nourrie de son propre sang divin. Il utilisait également la méthode appropriée pour la contrôler; sa puissance était donc bien plus redoutable que lorsqu'elle était entre les mains de Cupidité!
 
 Une seule feuille pour couvrir le ciel!
 

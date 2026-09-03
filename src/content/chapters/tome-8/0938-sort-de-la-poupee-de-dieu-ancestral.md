@@ -14,7 +14,7 @@ Boum!
 
 Un bruit assourdissant retentit lorsque Qing Shui atteignit le bras et l'attaqua avec acharnement. Des grondements incessants résonnèrent, et chaque fois que la ligne rouge frappait, le bras tremblait.
 
-En voyant cela, Wang Lin eut un haut-le-cœur. Son corps, qui était assis près de l'os du Serpent Moongazer, se redressa soudainement pour charger en avant.
+En voyant cela, Wang Lin eut un haut-le-cœur. Son corps, qui était assis près de l'os du Serpent aux yeux de lune, se redressa soudainement pour charger en avant.
 
 « Bien que moi, Wang Lin, je n'aie pas été un gentleman lors de mes voyages à travers le monde, je dois une dette à Qing Shui. Maintenant qu'il est dans un état de folie et d'anxiété, je ne peux rester les bras croisés! »
 
@@ -28,7 +28,7 @@ Le bras trembla et, à cet instant précis, il relâcha sa prise sur l'âme orig
 
 Le dragon doré qui observait la bataille chargea, les yeux brillants d'excitation. Son corps massif fonça vers l'Illustre Xuan Bao tandis que sa queue de dragon fouettait Qing Shui.
 
-Il y avait aussi le bras imprégné de l'aura du Serpent Moongazer. Il ouvrit la main et, cette fois, tendit ses doigts vers Qing Shui.
+Il y avait aussi le bras imprégné de l'aura du Serpent aux yeux de lune. Il ouvrit la main et, cette fois, tendit ses doigts vers Qing Shui.
 
 L'œil droit de Qing Shui n'était plus qu'un carnage sanglant et son œil gauche était devenu totalement rouge, empreint d'une pointe de démence. Sa main droite forma un sceau et il pointa du doigt. Instantanément, un vent noir déferla et huit dragons noirs rugissants apparurent autour de lui!
 
@@ -66,25 +66,25 @@ Ce rugissement transportait une énergie originelle d'une célérité fulgurante
 
 « Explosez! » hurla Wang Lin. Tandis qu'il avançait, son âme originelle fut ébranlée. Sans son corps de Dieu Ancestral, il aurait explosé et serait mort sur le coup. Même à cet instant, la douleur était atroce.
 
-Pourtant, il n'avait aucune crainte. Alors qu'il criait, les épées volantes qu'il avait dissimulées dans les points sensibles du Serpent Moongazer explosèrent soudainement!
+Pourtant, il n'avait aucune crainte. Alors qu'il criait, les épées volantes qu'il avait dissimulées dans les points sensibles du Serpent aux yeux de lune explosèrent soudainement!
 
-Le Serpent Moongazer possédait plusieurs points extrêmement sensibles. Bien que ces explosions ne puissent pas le blesser gravement, l'endommagement de ces zones infligeait une douleur inimaginable au serpent.
+Le Serpent aux yeux de lune possédait plusieurs points extrêmement sensibles. Bien que ces explosions ne puissent pas le blesser gravement, l'endommagement de ces zones infligeait une douleur inimaginable au serpent.
 
-Cette douleur intense allait porter la rage du Serpent Moongazer à son paroxysme.
+Cette douleur intense allait porter la rage du Serpent aux yeux de lune à son paroxysme.
 
 Toutefois, il était presque impossible pour des mortels de localiser ces points dans la masse du géant. Même s'ils les frappaient accidentellement, cela n'aurait que peu d'effet sur lui.
 
 Mais pour Wang Lin, c'était différent!
 
-À cet instant précis, tous les points sensibles du Serpent Moongazer furent simultanément frappés par l'explosion des épées volantes. Cette douleur n'était pas moins intense que celle qu'il avait subie lorsqu'il fut blessé auparavant!
+À cet instant précis, tous les points sensibles du Serpent aux yeux de lune furent simultanément frappés par l'explosion des épées volantes. Cette douleur n'était pas moins intense que celle qu'il avait subie lorsqu'il fut blessé auparavant!
 
-Le corps massif du Serpent Moongazer errait sans but dans le vide, mais à ce moment-là, il trembla violemment. Puis un rugissement de rage s'échappa de ses entrailles.
+Le corps massif du Serpent aux yeux de lune errait sans but dans le vide, mais à ce moment-là, il trembla violemment. Puis un rugissement de rage s'échappa de ses entrailles.
 
 Un changement radical se produisait au cœur du serpent. Ses mouvements provoquèrent une pression colossale qui se propagea; il tremblait si violemment que le monde sembla basculer.
 
-ROAR! Le Serpent Moongazer poussa un autre rugissement furieux. Cette fois, il étira son corps et ouvrit la gueule. Il bougea encore plus vite, comme s'il voulait expulser tout ce qui l'habitait. Une force puissante jaillissait de sa bouche!
+ROAR! Le Serpent aux yeux de lune poussa un autre rugissement furieux. Cette fois, il étira son corps et ouvrit la gueule. Il bougea encore plus vite, comme s'il voulait expulser tout ce qui l'habitait. Une force puissante jaillissait de sa bouche!
 
-À cet instant, Wang Lin, qui tentait de s'échapper, était sur le point d'être capturé par le dragon doré quand une force enveloppa son corps. Il ne ralentit pas et fut propulsé vers le haut à une vitesse fulgurante. La paroi de chair au-dessus de lui s'ouvrit, créant un passage direct vers la gueule du Serpent Moongazer.
+À cet instant, Wang Lin, qui tentait de s'échapper, était sur le point d'être capturé par le dragon doré quand une force enveloppa son corps. Il ne ralentit pas et fut propulsé vers le haut à une vitesse fulgurante. La paroi de chair au-dessus de lui s'ouvrit, créant un passage direct vers la gueule du Serpent aux yeux de lune.
 
 Wang Lin n'était pas le seul; le dragon doré subit le même sort. Il perdit le contrôle de son corps et fut directement projeté par cette force.
 
@@ -92,7 +92,7 @@ De même, dans le vortex, Qing Shui se battait avec le bras quand son corps fut 
 
 Yi Muzi et Wudo Chan ne purent pas non plus s'échapper. Ils furent affectés par l'impact et projetés à travers la fissure.
 
-Le Serpent Moongazer continua de rugir dans l'obscurité. Une force immense jaillissait de ses entrailles. Un éclair d'or apparut, et le corps du dragon doré fut le premier expulsé.
+Le Serpent aux yeux de lune continua de rugir dans l'obscurité. Une force immense jaillissait de ses entrailles. Un éclair d'or apparut, et le corps du dragon doré fut le premier expulsé.
 
 Peu après, ce fut au tour de Wang Lin!
 
@@ -120,11 +120,11 @@ En revanche, le plus imperturbable était Wang Lin. Il ignora totalement l'éner
 
 Pourtant, il ne bougea pas; il continua de reculer en pensant: « Ce n'est pas encore le moment idéal, attendons un peu! »
 
-Alors que tout le monde était projeté à l'extérieur, le rugissement du Serpent Moongazer résonna une fois de plus. Puis un vortex apparut entre ses yeux et une silhouette en émergea.
+Alors que tout le monde était projeté à l'extérieur, le rugissement du Serpent aux yeux de lune résonna une fois de plus. Puis un vortex apparut entre ses yeux et une silhouette en émergea.
 
 Cette personne n'était autre que Ji Xiantian!
 
-Toutefois, les yeux de Ji Xiantian étaient ternes et laissaient parfois entrevoir des lueurs de lutte intérieure. Un instant plus tard, il poussa un cri et s'élança hors du vortex situé entre les yeux du Serpent Moongazer.
+Toutefois, les yeux de Ji Xiantian étaient ternes et laissaient parfois entrevoir des lueurs de lutte intérieure. Un instant plus tard, il poussa un cri et s'élança hors du vortex situé entre les yeux du Serpent aux yeux de lune.
 
 Les pupilles de Wang Lin se rétractèrent avant de briller intensément. Son cœur se mit à battre de plus en plus vite. Grâce à son corps de Dieu Ancestral, il détecta immédiatement l'aura d'un Dieu Ancestral émanant du corps de Ji Xiantian!
 

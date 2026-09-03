@@ -28,7 +28,7 @@ La suggestion de Sun Youcai ne posait donc aucun problème. Après avoir vu Wang
 
 Wang Lin suivit Sun Youcai. En volant, il remarqua que plus ils progressaient, plus les lieux devenaient désolés. De plus en plus de volcans, petits et grands, jonchaient le paysage. Certains crachaient une fumée noire.
 
-Craignant que Wang Lin ne devienne suspicieux, Sun Youcai s'empressa d'expliquer: « Ne t'inquiète pas, frère Ma. La formation n'est plus très loin. J'ignore ce qui se passe ces derniers temps, mais tous les volcans dégagent de la fumée noire. Je me souviens que les quatre grands ancêtres Nascent Soul des grandes sectes ont fini de les sceller l'année dernière. »
+Craignant que Wang Lin ne devienne suspicieux, Sun Youcai s'empressa d'expliquer: « Ne t'inquiète pas, frère Ma. La formation n'est plus très loin. J'ignore ce qui se passe ces derniers temps, mais tous les volcans dégagent de la fumée noire. Je me souviens que les quatre grands ancêtres de l'Âme Naissante des grandes sectes ont fini de les sceller l'année dernière. »
 
 L'expression de Wang Lin se glaça alors qu'il laissait échapper un rire: « Oui, cet endroit est effectivement désert. Un lieu parfait. Surtout ces volcans. Après avoir tué quelqu'un, il suffit d'en jeter le corps à l'intérieur. Cela évite d'avoir à utiliser une technique de boule de feu. »
 
@@ -86,11 +86,11 @@ Quelle... quelle sorte de technique est-ce là? En y pensant, Sun Youcai sentit 
 
 Non! Sun Youcai rejeta aussitôt cette idée car il avait déjà rencontré des cultivateurs de ce stade. Même si des Anciens de la Formation du Noyau affrontaient un pseudo Formation du Noyau, cela ne serait pas aussi simple. Bien qu'ils gagneraient sans nul doute, ils ne pourraient pas les achever d'un mot comme s'il s'agissait d'une sentence céleste.
 
-Le cœur de Sun Youcai trembla. S'agirait-il d'un cultivateur Nascent Soul?
+Le cœur de Sun Youcai trembla. S'agirait-il d'un cultivateur de l'Âme Naissante?
 
-Il rejeta aussi cette hypothèse. Il avait déjà vu un cultivateur Nascent Soul agir, lorsque l'ancêtre de la Secte Démoniaque avait exécuté un traître au stade avancé de l'Établissement des Fondations. Sous les yeux de tous, il n'avait lancé qu'une épée et le traître était mort en fuyant, sans même avoir eu la chance d'esquiver ou de résister.
+Il rejeta aussi cette hypothèse. Il avait déjà vu un cultivateur de l'Âme Naissante agir, lorsque l'ancêtre de la Secte Démoniaque avait exécuté un traître au stade avancé de l'Établissement des Fondations. Sous les yeux de tous, il n'avait lancé qu'une épée et le traître était mort en fuyant, sans même avoir eu la chance d'esquiver ou de résister.
 
-Pourtant, à ses yeux, si l'on comparait Wang Lin tuant un pseudo Formation du Noyau par un simple mot au Grand Ancien Nascent Soul utilisant une épée volante, la supériorité était évidente. Soudain, son esprit se vida.
+Pourtant, à ses yeux, si l'on comparait Wang Lin tuant un pseudo Formation du Noyau par un simple mot au Grand Ancien de l'Âme Naissante utilisant une épée volante, la supériorité était évidente. Soudain, son esprit se vida.
 
 « Pourrait-il... pourrait-il être... qu'il soit... à la Formation de l'Âme? » En prononçant ces mots, toute la force quitta le corps de Sun Youcai.
 

@@ -14,7 +14,7 @@ Wang Lin se déplaçait à une vitesse fulgurante, sans se soucier de savoir s'i
 
 Il ne fallut pas longtemps pour qu'il atteigne les profondeurs et aperçoive la moitié de l'os qui avait été ramenée ici. Wang Lin avait initialement voulu s'emparer de l'intégralité, mais il avait été contraint d'en abandonner la moitié.
 
-Ses yeux s'illuminèrent et il murmura: « À l'époque, le grand fourneau précieux de Greed avait été dévoré par ce Serpent Clair de Lune... »
+Ses yeux s'illuminèrent et il murmura: « À l'époque, le grand fourneau précieux de Cupidité avait été dévoré par ce Serpent Clair de Lune... »
 
 À la pensée de ce grand fourneau, le cœur de Wang Lin s'emballa. Après réflexion, il était convaincu à 80 % qu'il s'agissait du trésor raffiné par l'Ancien Dieu Tu Si, qu'il avait jeté négligemment faute d'en être satisfait.
 

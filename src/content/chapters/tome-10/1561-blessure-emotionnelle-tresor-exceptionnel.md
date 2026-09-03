@@ -18,7 +18,7 @@ Chapitre 1561 - Blessure émotionnelle, trésor exceptionnel!
 
 « Il y avait aussi cette remarque où il affirmait être certain que je n'avais aucun lien avec lui. Cela signifie-t-il qu'il existe un lien entre lui et le frère aîné Qing Shui...? Si c'est le cas, quelle est cette connexion... » Plus Wang Lin réfléchissait, plus il avait l'impression de toucher au but, tout en restant dans le flou.
 
-Depuis sa rencontre avec Greed dans les Terres Déchues et l'obtention de la statue aux sept couleurs, Wang Lin percevait vaguement un voile de mystère. Derrière ce voile se cachait un grand secret concernant les Royaumes Intérieur et Extérieur!
+Depuis sa rencontre avec Cupidité dans les Terres Déchues et l'obtention de la statue aux sept couleurs, Wang Lin percevait vaguement un voile de mystère. Derrière ce voile se cachait un grand secret concernant les Royaumes Intérieur et Extérieur!
 
 Wang Lin ne pouvait toujours pas percer ce secret à cause de ce brouillard. Ce n'est que lors de la bataille contre le Royaume Extérieur dans la Mer des Nuages, lors de l'échange entre le Souverain et le Vieux Fantôme Zhan, que Wang Lin commença à spéculer de nouveau.
 
@@ -46,7 +46,7 @@ Wang Lin prit une profonde inspiration en observant Qing Shui. L'essence de mass
 
 Une partie de la Porte du Vide fut brisée par Qing Shui et repoussée vers l'intérieur. Une lumière douce émana de l'ouverture et l'enveloppa.
 
-Cette lumière n'avait aucune couleur et emplissait le ciel. Elle convergea sur Qing Shui, et son aura commença à croître rapidement. Bientôt, l'aura d'un cultivateur du stade initial du Nirvana Void se manifesta.
+Cette lumière n'avait aucune couleur et emplissait le ciel. Elle convergea sur Qing Shui, et son aura commença à croître rapidement. Bientôt, l'aura d'un cultivateur du stade initial du Vide du Nirvana se manifesta.
 
 Cette présence exhalait la mort, et d'innombrables fantômes apparurent autour de lui. Ces silhouettes étaient toutes les personnes que Qing Shui avait tuées! Ces spectres sans fin tremblaient en regardant Qing Shui. Ils semblaient hurler, mais aucun son ne sortait de leurs bouches.
 

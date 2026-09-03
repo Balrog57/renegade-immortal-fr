@@ -88,7 +88,7 @@ Il fallut un long moment à Wang Lin pour sortir de sa stupéfaction. Il fixa le
 
 Depuis son entrée dans le Système Stellaire Antique, Wang Lin avait ressenti sa puissance, et le Maître du Dao Blue Dream l'avait même souligné. Mais ce n'est qu'à cet instant qu'il réalisait enfin la véritable force de ce système!
 
-« Je me souviens encore de la bataille contre le Serpent Moongazer dans le vide et de ma première rencontre avec un être du Système Stellaire Antique. Il se faisait appeler... Dao Céleste... Qui aurait cru que le Clan du Tonnerre Éparpillé, si insignifiant dans le Système Stellaire Antique, recelait un secret aussi immense. Incroyable! »
+« Je me souviens encore de la bataille contre le Serpent aux yeux de lune dans le vide et de ma première rencontre avec un être du Système Stellaire Antique. Il se faisait appeler... Dao Céleste... Qui aurait cru que le Clan du Tonnerre Éparpillé, si insignifiant dans le Système Stellaire Antique, recelait un secret aussi immense. Incroyable! »
 
 L'expression de Wang Lin était complexe. Il devait admettre qu'il avait sous-estimé la puissance du Clan du Tonnerre Éparpillé...
 
@@ -102,7 +102,7 @@ Maître Zhou Tian était plus proche du jade et fut plus rapide que Wang Lin. Ce
 
 Ce dernier saisit l'objet et lança un regard glacial à Wang Lin avant de ne prononcer qu'un seul mot:
 
-« Dégage! » Son expression était indifférente, mais une pression écrasante se propagea, sans même afficher de dédain explicite. C'était là sa fierté en tant que cultivateur au stade Nirvana Scryer, un niveau qui le plaçait au-dessus de millions d'individus. Pour lui, Wang Lin n'était qu'une fourmi qu'il pourrait écraser des centaines de fois d'un simple geste du doigt.
+« Dégage! » Son expression était indifférente, mais une pression écrasante se propagea, sans même afficher de dédain explicite. C'était là sa fierté en tant que cultivateur au stade Scruteur du Nirvana, un niveau qui le plaçait au-dessus de millions d'individus. Pour lui, Wang Lin n'était qu'une fourmi qu'il pourrait écraser des centaines de fois d'un simple geste du doigt.
 
 Un junior osant rivaliser avec lui pour une mission revenait à chercher la mort!
 

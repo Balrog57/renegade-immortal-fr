@@ -60,7 +60,7 @@ Une aura terrifiante émanait du tonnerre. Cette présence était si puissante q
 
 Quiconque pouvait contrôler ce tonnerre était considéré comme un Céleste du Tonnerre!
 
-La pression d'un cultivateur de la troisième étape émana de l'empreinte et enveloppa les environs. La seule puissance de ce tonnerre suffisait à ébranler des cultivateurs au stade précoce du Nirvana Void!
+La pression d'un cultivateur de la troisième étape émana de l'empreinte et enveloppa les environs. La seule puissance de ce tonnerre suffisait à ébranler des cultivateurs au stade précoce du Vide du Nirvana!
 
 Après avoir fusionné avec les éclairs compagnons, le tonnerre prit une forme chaotique. Il ne ressemblait plus à un simple éclair, mais à une masse primordiale.
 
@@ -76,11 +76,11 @@ Ce feu avait surpassé le Feu Éthéré pour devenir un Feu du Dao. Tandis que l
 
 Tout le feu du vide se rassembla frénétiquement pour former un tatouage de feu composé d'innombrables graines de feu, apparaissant devant Wang Lin.
 
-Ce tatouage semblait réel, mais ce n'était en fait qu'une illusion, un flou total. Comme si d'innombrables auras l'entouraient, il paraissait déformé, mais la chaleur qui s'en dégageait était assez intense pour brûler des cultivateurs au stade précoce du Nirvana Void!
+Ce tatouage semblait réel, mais ce n'était en fait qu'une illusion, un flou total. Comme si d'innombrables auras l'entouraient, il paraissait déformé, mais la chaleur qui s'en dégageait était assez intense pour brûler des cultivateurs au stade précoce du Vide du Nirvana!
 
 Le tonnerre et le feu avaient atteint la perfection!
 
-Ces deux seules essences suffiraient à Wang Lin pour fracasser la Porte du Vide et instantanément tuer tout cultivateur n'ayant pas atteint le sommet du Nirvana Void!
+Ces deux seules essences suffiraient à Wang Lin pour fracasser la Porte du Vide et instantanément tuer tout cultivateur n'ayant pas atteint le sommet du Vide du Nirvana!
 
 « Karma, apparais! » La froideur dans les yeux de Wang Lin s'estompa, remplacée par la nostalgie. L'aura d'un grand érudit, qu'il n'avait jamais libérée hors de son rêve, se propagea.
 

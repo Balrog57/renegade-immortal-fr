@@ -108,7 +108,7 @@ En entendant ces mots, l'homme laissa couler ses larmes, les yeux emplis de pani
 
 « Wa Wa, il n'a pas fini son histoire, ne prends pas pitié de lui. Tu te souviens comment il nous a menacées en arrivant ici? » La petite fille nommée Han Han attrapa la jambe de l'homme et le tira en arrière alors qu'il poussait un cri de détresse.
 
-« Cupidité, dépêche-toi, finis cette histoire. Tu parlais justement du Serpent Moongazer, dis vite la suite! »
+« Cupidité, dépêche-toi, finis cette histoire. Tu parlais justement du Serpent aux yeux de lune, dis vite la suite! »
 
 La petite fille appelée Wa Wa sourit en regardant Cupidité. Après une courte réflexion, elle reprit:
 

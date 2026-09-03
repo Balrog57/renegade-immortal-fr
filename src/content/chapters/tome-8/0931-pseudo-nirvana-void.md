@@ -6,7 +6,7 @@ bookTitle: Alliance's Secret
 en: Chapter 931 - Pseudo Nirvana Void
 slug: pseudo-nirvana-void
 ---
-« Je ne pensais pas que les archives de l'ancien Royaume Céleste de la Pluie étaient réellement vraies! » L'Estimé Xuan Bao sourit en observant le Serpent Moongazer avancer, encerclé par les cultivateurs d'Allheaven.
+« Je ne pensais pas que les archives de l'ancien Royaume Céleste de la Pluie étaient réellement vraies! » L'Estimé Xuan Bao sourit en observant le Serpent aux yeux de lune avancer, encerclé par les cultivateurs d'Allheaven.
 
 Ses yeux s'illuminèrent et sa main droite fendit l'air tandis qu'il murmurait: « Gardes Célestes de la Pluie! »
 
@@ -26,11 +26,11 @@ Wang Lin sentit clairement que ces quatre hommes dégageaient la même aura que 
 
 « Les gardes célestes se divisent en rangs d'or, d'argent, de cuivre et de fer. Ces quatre colosses sont tous de rang or! » Wang Lin jeta un regard à l'Estimé Xuan Bao et se retira rapidement vers la lisière du vortex.
 
-Après l'apparition des quatre gardes célestes en armure dorée, l'expression de l'Estimé Xuan Bao resta impassible tandis qu'il levait sa main droite. En un éclair, les quatre gardes chargèrent le Serpent Moongazer.
+Après l'apparition des quatre gardes célestes en armure dorée, l'expression de l'Estimé Xuan Bao resta impassible tandis qu'il levait sa main droite. En un éclair, les quatre gardes chargèrent le Serpent aux yeux de lune.
 
-Alors que le Serpent Moongazer rugissait, ses tentacules balayaient tout sur leur passage. Simultanément, le Dieu de Sang et les autres qui l'entouraient s'élancèrent immédiatement contre les quatre gardes célestes. Le Dieu de Sang forma un sceau en avançant; une lumière sanglante se propagea alors qu'il agit de la main.
+Alors que le Serpent aux yeux de lune rugissait, ses tentacules balayaient tout sur leur passage. Simultanément, le Dieu de Sang et les autres qui l'entouraient s'élancèrent immédiatement contre les quatre gardes célestes. Le Dieu de Sang forma un sceau en avançant; une lumière sanglante se propagea alors qu'il agit de la main.
 
-Une mer de sang surgit de nulle part et chargea en avant. Cependant, lorsque cette mer de sang percuta les gardes célestes, elle ne fit que les faire hésiter un instant. Les gardes se scindèrent en quatre directions pour encercler le Serpent Moongazer aux côtés des cultivateurs d'Allheaven.
+Une mer de sang surgit de nulle part et chargea en avant. Cependant, lorsque cette mer de sang percuta les gardes célestes, elle ne fit que les faire hésiter un instant. Les gardes se scindèrent en quatre directions pour encercler le Serpent aux yeux de lune aux côtés des cultivateurs d'Allheaven.
 
 La main droite de l'Estimé Xuan Bao s'enfonça à nouveau dans le vide et une autre fissure apparut. Soudain, neuf papillons noirs en sortirent.
 
@@ -90,19 +90,19 @@ Cependant, en jetant un regard sur lui, le visage de Wang Lin lui sembla familie
 
 Wang Lin ne prêta aucune attention à Chen Long et disparut. Il erra sur le champ de bataille, continuant à collecter les trésors magiques des défunts.
 
-Toutefois, son Sens Divin restait verrouillé sur le Serpent Moongazer; il attendait l'opportunité, l'instant où l'Alliance déclencherait sa bataille contre la créature afin de s'emparer de l'héritage contenu en son sein!
+Toutefois, son Sens Divin restait verrouillé sur le Serpent aux yeux de lune; il attendait l'opportunité, l'instant où l'Alliance déclencherait sa bataille contre la créature afin de s'emparer de l'héritage contenu en son sein!
 
 Le regard de Wang Lin se tournait occasionnellement vers la femme en robe bleue. Son comportement envers lui était singulier. Tout en errant avec prudence, il se demandait qui était cette femme!
 
-Les quatre gardes célestes dorés encerclaient le Serpent Moongazer, créant un cercle d'or qui l'emprisonnait.
+Les quatre gardes célestes dorés encerclaient le Serpent aux yeux de lune, créant un cercle d'or qui l'emprisonnait.
 
-Alors que le Dieu de Sang et ses compagnons ripostaient, les neuf papillons battirent des ailes pour former une tempête prenant le Serpent Moongazer pour centre. Un vortex semblant relier le ciel et la terre se forma.
+Alors que le Dieu de Sang et ses compagnons ripostaient, les neuf papillons battirent des ailes pour former une tempête prenant le Serpent aux yeux de lune pour centre. Un vortex semblant relier le ciel et la terre se forma.
 
-Le Dieu de Sang et son groupe affichaient des visages sombres au sein du vortex. Ils utilisèrent leurs trésors magiques respectifs, provoquant des grondements incessants. Le Serpent Moongazer était plus furieux que jamais; être piégé deux fois l'avait rendu presque fou. Il ouvrit sa gueule béante et laissa échapper un rugissement de rage.
+Le Dieu de Sang et son groupe affichaient des visages sombres au sein du vortex. Ils utilisèrent leurs trésors magiques respectifs, provoquant des grondements incessants. Le Serpent aux yeux de lune était plus furieux que jamais; être piégé deux fois l'avait rendu presque fou. Il ouvrit sa gueule béante et laissa échapper un rugissement de rage.
 
-Dans son rugissement, les paroles des anciens dieux résonnèrent. Le Serpent Moongazer utilisait un sort de l'Ancien Dieu!
+Dans son rugissement, les paroles des anciens dieux résonnèrent. Le Serpent aux yeux de lune utilisait un sort de l'Ancien Dieu!
 
-Les yeux de l'Estimé Xuan Bao s'illuminèrent et il pointa l'avant en riant. La vitesse d'oscillation des ailes des neuf papillons augmenta instantanément, laissant apparaître des lignes noires. D'innombrables traînées noires s'entrecroisèrent autour du Serpent Moongazer, formant rapidement un siège impénétrable.
+Les yeux de l'Estimé Xuan Bao s'illuminèrent et il pointa l'avant en riant. La vitesse d'oscillation des ailes des neuf papillons augmenta instantanément, laissant apparaître des lignes noires. D'innombrables traînées noires s'entrecroisèrent autour du Serpent aux yeux de lune, formant rapidement un siège impénétrable.
 
 Les quatre gardes célestes poussèrent des rugissements; leurs corps vibrèrent et grandirent soudainement pour devenir des géants de mille pieds. Ils lancèrent alors leurs attaques de concert.
 
@@ -116,4 +116,4 @@ Ce qui fit vaciller tous les cultivateurs environnants, c'étaient ces taches de
 
 Dès l'apparition de la flèche, même l'expression du Dieu de Sang et de ses compagnons changea. Même Maître Étincelle, qui combattait Wudo Chan, trembla en voyant cette flèche de 300 pieds.
 
-« Flèche du Pseudo Nirvana Void! »
+« Flèche du Pseudo Vide du Nirvana! »

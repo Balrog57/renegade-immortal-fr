@@ -24,7 +24,7 @@ On pouvait affirmer avec justesse que cet homme était un cultivateur antique qu
 
 Le Magicien Démon Céleste força un sourire. Il n'osa pas bouger sa main droite. Même s'il commençait à absorber le cristal de glace, le processus prendrait du temps, et si l'homme devant lui décidait de le tuer, cela ne prendrait qu'une seconde.
 
-Quelques instants plus tard, un homme aux cheveux violets et vêtu de rouge apparut en flottant lentement, venant de la même direction que le premier venu. Sa taille était celle d'un homme ordinaire. Contrairement à Hunchback Meng ou au Magicien Démon Céleste, il ne s'était pas transformé en démon et conservait une apparence humaine.
+Quelques instants plus tard, un homme aux cheveux violets et vêtu de rouge apparut en flottant lentement, venant de la même direction que le premier venu. Sa taille était celle d'un homme ordinaire. Contrairement à Bossu Meng ou au Magicien Démon Céleste, il ne s'était pas transformé en démon et conservait une apparence humaine.
 
 Il semblait tout à fait banal, mais il était enveloppé d'une aura singulière. Quiconque posait les yeux sur lui en ressentait une nervosité immédiate.
 

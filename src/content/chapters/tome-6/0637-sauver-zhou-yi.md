@@ -110,12 +110,12 @@ Les couloirs au fond de l'Abîme des Marées formaient un carré avec un trou no
 
 Une épée massive était plantée à mi-chemin dans le mur d'un couloir. Au moment où l'onde sonore atteignit l'épée, celle-ci se desserra légèrement.
 
-L'onde se propagea loin en résonnant dans le corridor. À cet instant, à la sortie du Pays des Démons de Feu, là où Greed et les disciples de la Secte de l'Épée Da Lou étaient piégés, Greed ouvrit soudainement les yeux, le regard brillant.
+L'onde se propagea loin en résonnant dans le corridor. À cet instant, à la sortie du Pays des Démons de Feu, là où Cupidité et les disciples de la Secte de l'Épée Da Lou étaient piégés, Cupidité ouvrit soudainement les yeux, le regard brillant.
 
 « L'aura de Ling Tianhou! Serait-il arrivé plus tôt... Non, bien que cette aura appartienne à Ling Tianhou, ce n'en est qu'une partie... En plus de la sienne, il y a une autre aura... Cette seconde aura m'est inconnue, mais pour apparaître à un moment pareil, serait-ce à cause du jeton... »
 
-Greed sembla nonchalant alors qu'il balaya les disciples de la Secte de l'Épée Da Lou du regard avant de refermer les yeux.
+Cupidité sembla nonchalant alors qu'il balaya les disciples de la Secte de l'Épée Da Lou du regard avant de refermer les yeux.
 
-Lorsque les ondulations arrivèrent ici, elles étaient déjà très faibles. Hormis Greed, personne d'autre ne s'en aperçut.
+Lorsque les ondulations arrivèrent ici, elles étaient déjà très faibles. Hormis Cupidité, personne d'autre ne s'en aperçut.
 
 Dans la Secte de l'Épée Da Lou, Ling Tianhou, vêtu d'une robe de taoïste et en pleine méditation, ouvrit soudainement les yeux...

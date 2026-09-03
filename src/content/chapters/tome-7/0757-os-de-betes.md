@@ -14,7 +14,7 @@ Ils n'auraient même pas osé envisager de résister, car le fossé entre eux é
 
 Aux yeux de Li Yuan, la vision de Wang Lin frisait la folie, tout en étant d'une ingéniosité remarquable. Si elle était exécutée avec précision, elle pourrait réellement porter ses fruits.
 
-En y songeant, le cœur de Li Yuan s'emballa. L'excitation provoquée par la tentation de tuer un cultivateur ayant au moins atteint le stade du Nettoyage du Nirvana fit bondir son pouls et accélérer son flux sanguin.
+En y songeant, le cœur de Li Yuan s'emballa. L'excitation provoquée par la tentation de tuer un cultivateur ayant au moins atteint le stade du Purificateur du Nirvana fit bondir son pouls et accélérer son flux sanguin.
 
 « Frère Xu, nous... nous essayons en fait de tuer un dieu! »
 

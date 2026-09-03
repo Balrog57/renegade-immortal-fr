@@ -52,7 +52,7 @@ Aucun chiffre n'étant apparu entre ses sourcils, il ne fut pas entraîné par l
 
 Son regard devint de plus en plus intense. En se remémorant les marques numériques et sa position actuelle, ses pupilles se contractèrent.
 
-« Cette marque numérique, les étrangers ne peuvent la comprendre, mais c'est clairement le langage des Dieux Antiques! Se pourrait-il que cet endroit soit celui d'où est sorti Greed du Tombeau de l'Ordre Antique? » Le cœur de Wang Lin battait la chamade et ses yeux pétillèrent. Il regarda soudainement vers la direction où la jeune fille et le colosse avaient été aspirés.
+« Cette marque numérique, les étrangers ne peuvent la comprendre, mais c'est clairement le langage des Dieux Antiques! Se pourrait-il que cet endroit soit celui d'où est sorti Cupidité du Tombeau de l'Ordre Antique? » Le cœur de Wang Lin battait la chamade et ses yeux pétillèrent. Il regarda soudainement vers la direction où la jeune fille et le colosse avaient été aspirés.
 
 « Pas étonnant qu'aucun langage de Dieu Antique ne soit apparu entre mes sourcils... Pas étonnant que la brume ait pénétré mon corps pour se transformer en puissance de Dieu Antique... Le chiffre sur le colosse était 14... Celui de la jeune fille était 29... » Wang Lin se lécha les lèvres, pensif.
 

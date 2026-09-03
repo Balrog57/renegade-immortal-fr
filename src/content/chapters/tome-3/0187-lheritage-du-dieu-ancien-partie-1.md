@@ -14,7 +14,7 @@ Il n'y avait aucune restriction dans l'espace de la perle défiant le ciel; on p
 
 Wang Lin poussa un soupir de soulagement. D'un geste de la main droite, il sortit le sac de rangement de l'Empereur Antique. En y projetant son Sens Divin, il ressentit une force de résistance émaner du sac.
 
-Le Sens Divin du sac de rangement bloquait celui de Wang Lin. Cela signifiait que l'Empereur Antique était toujours en vie, bien que Wang Lin ne fût pas certain de la situation exacte. À l'époque, le sac de rangement de Hunchback Meng avait perdu son Sens Divin, et pourtant, ce dernier semblait toujours vivant.
+Le Sens Divin du sac de rangement bloquait celui de Wang Lin. Cela signifiait que l'Empereur Antique était toujours en vie, bien que Wang Lin ne fût pas certain de la situation exacte. À l'époque, le sac de rangement de Bossu Meng avait perdu son Sens Divin, et pourtant, ce dernier semblait toujours vivant.
 
 Désormais, Wang Lin possédait deux sacs de rangement qu'il ne pouvait ouvrir. L'un appartenait à l'Empereur Antique, l'autre provenait d'un squelette mystérieux trouvé dans une grotte du Sanctuaire de la Guerre Shinto.
 
@@ -72,7 +72,7 @@ La gigantesque faille près de la sortie s'était déjà refermée. Libéré de 
 
 Il ressentit un immense soulagement à cet instant. Le troisième royaume était trop terrifiant. S'il parvenait à s'en échapper, il jurait de ne jamais y revenir.
 
-Lorsqu'il était venu ici pour la première fois il y a mille ans, bien qu'il ait également atteint le troisième royaume, l'endroit n'avait pas été aussi étrange. La résurrection de son maître, la transformation de Hunchback Meng en démon et la série d'événements qui suivirent avaient créé un brouillard de confusion dans son esprit. Ce brouillard ne faisait que s'étendre, le plongeant dans une nervosité constante.
+Lorsqu'il était venu ici pour la première fois il y a mille ans, bien qu'il ait également atteint le troisième royaume, l'endroit n'avait pas été aussi étrange. La résurrection de son maître, la transformation de Bossu Meng en démon et la série d'événements qui suivirent avaient créé un brouillard de confusion dans son esprit. Ce brouillard ne faisait que s'étendre, le plongeant dans une nervosité constante.
 
 Il se trouvait désormais à l'intérieur du tourbillon. Au moment où les éclairs violets tombèrent, il agita les mains et exécuta une série de techniques manuelles. Une fois terminé, son Âme Naissante avait considérablement diminué de taille.
 

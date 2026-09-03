@@ -30,7 +30,7 @@ La masse de fragments d'âmes se rassembla pour former trois âmes primordiales 
 
 Une fois la protection établie, Wang Lin déploya son sens divin et inspecta soigneusement les environs. Après s'être assuré que la zone était sûre, il prit une profonde inspiration et pressa sa main droite entre ses sourcils. Une ondulation apparut sur son front et une perle cristalline se forma lentement.
 
-Les yeux de Wang Lin brillaient comme le feu alors qu'il exécutait un sceau manuel et pointait du doigt. La Perle Défiant le Ciel s'envola immédiatement pour atterrir sur l'os de Moongazer, lequel avait la forme d'une montagne.
+Les yeux de Wang Lin brillaient comme le feu alors qu'il exécutait un sceau manuel et pointait du doigt. La Perle Défiant le Ciel s'envola immédiatement pour atterrir sur l'os de serpent aux yeux de lune, lequel avait la forme d'une montagne.
 
 Comparée à l'immense montagne, la Perle Défiant le Ciel paraissait insignifiante.
 
@@ -38,7 +38,7 @@ L'expression de Wang Lin était extrêmement prudente. Cette perle était son tr
 
 C'est pour cette raison qu'il avait dû attendre que son corps soit totalement formé avant de sortir la Perle Défiant le Ciel. Sans son corps, il ne pouvait user de toute sa puissance. Sortir la perle prématurément aurait été trop dangereux et imprudent.
 
-La Perle Défiant le Ciel émit une lueur dorée. Sous cette lumière, l'os de Moongazer trembla légèrement. Le métal en son sein se transforma en fils d'or qui furent lentement absorbés par la perle.
+La Perle Défiant le Ciel émit une lueur dorée. Sous cette lumière, l'os de serpent aux yeux de lune trembla légèrement. Le métal en son sein se transforma en fils d'or qui furent lentement absorbés par la perle.
 
 Ce processus était extrêmement lent, et Wang Lin n'en comprenait pas la raison. Contrairement à l'absorption de l'élément eau, plus la perle approchait de sa complétion, plus l'absorption devenait lente.
 
@@ -46,7 +46,7 @@ Le sens divin de Wang Lin continuait de balayer les environs, toujours en état 
 
 Wang Lin utilisa cette quatrième âme comme tremplin pour étendre son sens divin encore plus loin.
 
-L'absorption par la Perle Défiant le Ciel était très lente; après tout, l'os de Moongazer était tout simplement trop vaste. Après quelques jours, Wang Lin scinda une partie de son sens divin et sortit quelques trésors magiques.
+L'absorption par la Perle Défiant le Ciel était très lente; après tout, l'os de serpent aux yeux de lune était tout simplement trop vaste. Après quelques jours, Wang Lin scinda une partie de son sens divin et sortit quelques trésors magiques.
 
 Ces trésors appartenaient tous à l'Avarice. C'étaient les récoltes que Wang Lin avait faites il y a soixante ans.
 
@@ -54,7 +54,7 @@ Le premier trésor était cette montagne gigantesque. Bien qu'endommagée, l'én
 
 C'était l'une des raisons pour lesquelles Wang Lin était si tenté.
 
-La dissipation du sens divin de l'Avarice ne signifiait pas qu'il était mort; elle avait été effacée après cent ans d'assimilation avec l'os de Moongazer.
+La dissipation du sens divin de l'Avarice ne signifiait pas qu'il était mort; elle avait été effacée après cent ans d'assimilation avec l'os de serpent aux yeux de lune.
 
 Wang Lin posa sa main droite sur la montagne et se remémora le moment où l'Avarice avait extrait l'âme de la montagne. Les yeux calmes, il frotta légèrement la roche.
 

@@ -14,7 +14,7 @@ Lorsqu'il se réveilla, il était assis sur cette pierre blanche. Le vieil homme
 
 Au cours de ces deux années, l'avatar de Wang Lin et son corps originel s'étaient séparés. Son corps originel s'était enfoncé profondément dans la Planète Divine du Vermillion Bird, tandis que son avatar était ici pour guérir.
 
-Durant ces deux années, l'énergie d'origine du feu de Wang Lin avait progressé par bonds prodigieux. Lorsqu'il était à la Terre des Esprits Démoniaques, il avait déjà senti qu'il était proche du stade de Nirvana Cleanser, mais il lui fallait encore une percée dans son domaine pour franchir le pas.
+Durant ces deux années, l'énergie d'origine du feu de Wang Lin avait progressé par bonds prodigieux. Lorsqu'il était à la Terre des Esprits Démoniaques, il avait déjà senti qu'il était proche du stade de Purificateur du Nirvana, mais il lui fallait encore une percée dans son domaine pour franchir le pas.
 
 Cette percée ne pouvait être forcée; plus on se montrait impatient, plus elle devenait difficile. Au cours des deux dernières années, Wang Lin avait continué à chercher la compréhension tout en absorbant l'énergie d'origine du feu. Son énergie d'origine était désormais presque à son apogée.
 
@@ -36,7 +36,7 @@ Une personne était assise au sommet de la montagne. Cette personne avait une t�
 
 C'était Big Head!
 
-Le corps de Big Head s'était effondré sur la Terre des Esprits Démoniaques. Après être arrivé à la Secte Divin du Vermillion Bird, il avait reçu l'aide des anciens du Nirvana Shatterer. En utilisant le feu comme chair, le bois comme os et l'énergie d'origine comme sang, ils l'avaient aidé à reformer un corps identique au précédent.
+Le corps de Big Head s'était effondré sur la Terre des Esprits Démoniaques. Après être arrivé à la Secte Divin du Vermillion Bird, il avait reçu l'aide des anciens du Briseur du Nirvana. En utilisant le feu comme chair, le bois comme os et l'énergie d'origine comme sang, ils l'avaient aidé à reformer un corps identique au précédent.
 
 Big Head devait continuer à raffiner ce corps et à s'en familiariser pour pouvoir utiliser des sorts encore plus puissants qu'auparavant.
 
@@ -72,7 +72,7 @@ Lorsque le tonnerre grondant traversa le ciel, l'homme ouvrit les yeux et une qu
 
 « Cet endroit maudit est trop chaud! Si ce n'était pas pour mon frère, je serais déjà parti depuis longtemps! » L'homme serra la glace encore plus fort, absorbant d'immenses quantités d'énergie froide.
 
-À cet instant précis, un rayon de lumière rouge surgit du lointain. À mesure qu'il approchait, il se mua en l'un des anciens du Nirvana Shatterer de la Secte Divin du Vermillion Bird. Arrivé sur place, il fronça les sourcils et frappa le vide de sa main droite.
+À cet instant précis, un rayon de lumière rouge surgit du lointain. À mesure qu'il approchait, il se mua en l'un des anciens du Briseur du Nirvana de la Secte Divin du Vermillion Bird. Arrivé sur place, il fronça les sourcils et frappa le vide de sa main droite.
 
 Dans un bruit sourd, l'homme fut arraché à la glace et s'écrasa au sol.
 
@@ -82,7 +82,7 @@ Cet homme était Situ Nan. Il avait été gravement blessé sur la Terre des Esp
 
 Cependant, ces deux années furent extrêmement douloureuses pour lui. L'une des causes de sa souffrance était ce vieil homme exaspérant. Peu importait les tentatives de Situ Nan pour discuter avec lui, cela ne servait à rien. Le vieil homme semblait avoir le cœur de pierre et restait toujours à moins de mille pieds de Situ Nan. Chaque fois que Situ Nan perdait sa concentration, un sort lui était décoché.
 
-« Qu'est-ce qu'il y a de si spécial chez les cultivateurs du Nirvana Shatterer? Malédiction, attends un peu. Tôt ou tard, je te ferai goûter à ce que cela fait d'être cuit à la vapeur! » Situ Nan se redressa et reprit sa culture à contrecœur.
+« Qu'est-ce qu'il y a de si spécial chez les cultivateurs du Briseur du Nirvana? Malédiction, attends un peu. Tôt ou tard, je te ferai goûter à ce que cela fait d'être cuit à la vapeur! » Situ Nan se redressa et reprit sa culture à contrecœur.
 
 Le vieil homme sourit. Durant ces deux années, il avait développé une très bonne opinion de ce « Petit Situ ». Empêcher Situ d'absorber la glace était pour son propre bien. Il avait toujours utilisé la force juste pour ne jamais le blesser réellement. Il sourit et dit: « Très bien, ce vieil homme attendra que ce jour arrive. »
 

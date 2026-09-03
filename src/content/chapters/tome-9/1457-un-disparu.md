@@ -82,7 +82,7 @@ Après réflexion, les yeux de Wang Lin s'illuminèrent et il réprima les fluct
 
 « Selon cette voix, je dois faire atteindre à ma plateforme le rang 9 avant tous les autres... » Wang Lin regarda vers les profondeurs du brouillard. Selon la carte, c'était là que se trouvait la forêt mystérieuse.
 
-« Greed a trouvé l'Ancienne Feuille et une statue là-bas. Il a aussi dit qu'après avoir touché la statue, un vortex était apparu. Après être entré dans le vortex, il avait quitté le tombeau pour réapparaître dans le Royaume Extérieur! Je me demande si ce vortex est toujours là... Quoi qu'il arrive, je dois visiter cette forêt! »
+« Cupidité a trouvé l'Ancienne Feuille et une statue là-bas. Il a aussi dit qu'après avoir touché la statue, un vortex était apparu. Après être entré dans le vortex, il avait quitté le tombeau pour réapparaître dans le Royaume Extérieur! Je me demande si ce vortex est toujours là... Quoi qu'il arrive, je dois visiter cette forêt! »
 
 Une fois sa décision prise, Wang Lin fit avancer la plateforme rapidement. Il se mit à cultiver pour s'assurer de récupérer ses forces au plus vite.
 
@@ -106,7 +106,7 @@ Sans hésiter, Wang Lin rangea la plateforme et franchit l'ouverture. Une fois q
 
 Une aura de flétrissure frappa Wang Lin, chargée d'un goût de mort. Il apparut au cœur d'une forêt infinie, peuplée d'arbres desséchés. Le spectacle était saisissant.
 
-« C'est ici... » Le regard de Wang Lin balaya les environs. L'endroit correspondait exactement à la description de Greed. Wang Lin se précipita vers le centre de la forêt.
+« C'est ici... » Le regard de Wang Lin balaya les environs. L'endroit correspondait exactement à la description de Cupidité. Wang Lin se précipita vers le centre de la forêt.
 
 Cette forêt était immense. Même avec sa vitesse, il lui fallut un certain temps pour atteindre le centre, là où les arbres n'étaient plus desséchés!
 

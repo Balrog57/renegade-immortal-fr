@@ -94,7 +94,7 @@ L'intention meurtrière dans les yeux de Wang Lin redoubla d'intensité alors qu
 
 « La seule façon de gérer cette affaire est de les terrasser par l'effroi! Et le meilleur moyen de les effrayer est de massacrer leurs planètes! » Les yeux de Wang Lin étaient injectés de rage meurtrière. Il n'était pas un homme de bien, et à cet instant, il se trouvait piégé dans le Domaine Occidental par la famille Yao et ces clans. S'il ne faisait pas preuve d'une impitoyabilité absolue, une fois encerclé, il n'aurait d'autre choix que d'attendre la mort!
 
-De plus, ce qui inquiétait Wang Lin, c'était la présence des véritables experts de la famille Yao et des autres clans. Même un seul cultivateur ayant atteint le stade du Nirvana Scryer serait difficile à repousser pour lui!
+De plus, ce qui inquiétait Wang Lin, c'était la présence des véritables experts de la famille Yao et des autres clans. Même un seul cultivateur ayant atteint le stade du Scruteur du Nirvana serait difficile à repousser pour lui!
 
 Si la planète Dong Lin était si célèbre et si son nom faisait trembler les âmes, c'était parce que chaque fois qu'un descendant de cette lignée apparaissait, quiconque le provoquait voyait sa planète entière massacrée!
 

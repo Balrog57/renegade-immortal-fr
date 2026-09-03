@@ -46,7 +46,7 @@ C'est à ce moment précis qu'un rugissement de tigre retentit au loin et qu'un 
 
 Les cultivateurs de l'Alliance avaient reçu des informations de la part de leurs Anciens. L'un d'eux avait apparemment eu vent de l'existence de Xu Mu.
 
-L'expression de l'homme changea et une lueur de froideur apparut dans ses yeux. Il recula sans hésiter et cria: « Ce Xu Mu est un cultivateur du Nirvana Scryer. Nous ne sommes pas de taille. Retraite rapide! »
+L'expression de l'homme changea et une lueur de froideur apparut dans ses yeux. Il recula sans hésiter et cria: « Ce Xu Mu est un cultivateur du Scruteur du Nirvana. Nous ne sommes pas de taille. Retraite rapide! »
 
 Dans une autre direction, trois cultivateurs se livraient un combat qui semblait être une impasse. Tous trois étaient des cultivateurs de l'Illusion Yin, mais à y regarder de plus près, on voyait deux membres d'Allheaven lutter contre un seul combattant de l'Alliance. Ce dernier se montrait extrêmement impitoyable et parvenait à garder son calme malgré ce combat inégal.
 
@@ -102,8 +102,8 @@ Wang Lin n'avait jamais vu un tel objet auparavant. Il lui suffit d'un regard po
 
 Bien que ce bois colossal puisse faire trembler son esprit, cela ne l'aurait pas laissé aussi ébranlé. Ce qui terrifia véritablement Wang Lin, c'était la chose qui suivait ce morceau de bois!
 
-Le Serpent Moongazer!!
+Le Serpent aux yeux de lune!!
 
-Le corps titanesque du Serpent Moongazer ressemblait à une planète de culture, et ses innombrables tentacules ondulaient autour de lui. Ses rugissements colériques résonnaient sans cesse parmi les étoiles.
+Le corps titanesque du Serpent aux yeux de lune ressemblait à une planète de culture, et ses innombrables tentacules ondulaient autour de lui. Ses rugissements colériques résonnaient sans cesse parmi les étoiles.
 
-Au moment où Wang Lin vit le Serpent Moongazer, son corps entier trembla. Et ce tremblement émanait de son corps d'Ancien Dieu!
+Au moment où Wang Lin vit le Serpent aux yeux de lune, son corps entier trembla. Et ce tremblement émanait de son corps d'Ancien Dieu!

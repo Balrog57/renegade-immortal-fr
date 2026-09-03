@@ -64,7 +64,7 @@ Cette aura se propagea, plongeant toute la planète abandonnée dans le froid.
 
 L'essence de massacre était une essence extrêmement spéciale. Très peu de personnes la possédaient, mais ceux qui en étaient dotés pouvaient aisément briser la Porte du Vide. Cette essence représentait l'apogée même du massacre.
 
-Bien que Qing Shui fût au début du stade Nirvana Void, grâce à son essence de massacre et aux dizaines de milliers d'années passées au combat, même un cultivateur du Nirvana Void au stade avancé craindrait de croiser son chemin!
+Bien que Qing Shui fût au début du stade Vide du Nirvana, grâce à son essence de massacre et aux dizaines de milliers d'années passées au combat, même un cultivateur du Vide du Nirvana au stade avancé craindrait de croiser son chemin!
 
 « Tuer... Très bien! » Wang Lin se leva et s'avança vers le ciel. Des ondulations résonnèrent et il disparut du monde. Qing Shui pénétra également dans les ondulations créées par Wang Lin et disparut à son tour.
 

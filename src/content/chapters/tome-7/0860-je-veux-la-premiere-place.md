@@ -90,9 +90,9 @@ Un rugissement retentit alors que Tang Yanfeng chargeait. Une épée rouge émet
 
 Derrière lui, certains cultivateurs qui ne furent pas opprimés par l'intention de combat chargeaient également vers Wang Lin!
 
-Une lueur froide passa dans les yeux de Wang Lin et il fit un pas. Il leva sa main droite et son énergie originelle jaillit comme une tempête. Sa culture de stade initial de Nirvana Scryer s'échappa de son corps et balaya la zone!
+Une lueur froide passa dans les yeux de Wang Lin et il fit un pas. Il leva sa main droite et son énergie originelle jaillit comme une tempête. Sa culture de stade initial de Scruteur du Nirvana s'échappa de son corps et balaya la zone!
 
-Alors que son énergie se répandait avec fureur, les yeux de Tang Yanfeng révélèrent une trace de terreur. Il n'aurait jamais imaginé que l'homme devant lui ait déjà franchi le stade Corporeal Yang pour atteindre celui de Nirvana Scryer!
+Alors que son énergie se répandait avec fureur, les yeux de Tang Yanfeng révélèrent une trace de terreur. Il n'aurait jamais imaginé que l'homme devant lui ait déjà franchi le stade Yang Corporel pour atteindre celui de Scruteur du Nirvana!
 
 Au moment même où la terreur l'envahissait, Wang Lin arriva et lança un « Heavenly Chop ». L'attaque entra en collision avec l'épée rouge de Tang Yanfeng, la brisant net et projetant les fragments en arrière.
 
@@ -100,7 +100,7 @@ Tang Yanfeng poussa un cri d'incrédulité lorsque les deux doigts de Wang Lin f
 
 Alors que les explosions retentissaient, les deux doigts de Wang Lin ne s'arrêtèrent pas et frappèrent directement la poitrine de Tang Yanfeng. Un choc brutal retentit, puis Tang Yanfeng cracha du sang et fut projeté en arrière. Des craquements sinistres résonnèrent dans son corps alors que le tonnerre explosait en lui. Son âme originelle fut blessée et il fut expulsé au loin.
 
-Tout cela se produisit en un instant, avec une rapidité inimaginable. Avec sa culture de stade initial de Nirvana Scryer, repousser un cultivateur au sommet du stade Corporeal Yang ne lui demanda aucun effort. S'il avait eu l'intention de le tuer, Tang Yanfeng serait mort!
+Tout cela se produisit en un instant, avec une rapidité inimaginable. Avec sa culture de stade initial de Scruteur du Nirvana, repousser un cultivateur au sommet du stade Yang Corporel ne lui demanda aucun effort. S'il avait eu l'intention de le tuer, Tang Yanfeng serait mort!
 
 Il retira ses doigts, puis son troisième œil s'ouvrit et un rayon de lumière jaillit. Wang Lin se tourna vers tous les cultivateurs qui avaient suivi Tang Yanfeng. Leurs expressions changèrent tandis que leurs sorts se transformaient brusquement en énergie originelle brute. Tous crachèrent du sang et furent repoussés!
 

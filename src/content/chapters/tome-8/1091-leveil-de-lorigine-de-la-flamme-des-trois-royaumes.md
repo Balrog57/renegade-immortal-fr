@@ -57,7 +57,7 @@ Le front de Ren Tao était couvert de sueur et les yeux de tous étaient rivés 
 
 Les trois vieillards derrière Ren Tao firent un pas en avant pour l'entourer, puis ils fixèrent les divers anciens parmi la foule.
 
-« Ren Tao, oses-tu?! Allez-vous tous les trois vous opposer ouvertement au commandement du vieil empereur? » Un grand homme s'avança de la foule. C'était l'un des anciens du stade Nirvana Shatterer qui s'était trouvé sur la Terre des Esprits Démoniaques.
+« Ren Tao, oses-tu?! Allez-vous tous les trois vous opposer ouvertement au commandement du vieil empereur? » Un grand homme s'avança de la foule. C'était l'un des anciens du stade Briseur du Nirvana qui s'était trouvé sur la Terre des Esprits Démoniaques.
 
 « Ancien Zhou, les lois de mon Secte Divin de l'Oiseau Vermillon stipulent que lorsqu'un Divin Empereur transmet son titre au suivant, tous les membres ont le droit de contester sa position. N'est-ce pas vrai? »
 
@@ -67,7 +67,7 @@ Non seulement ce vieil homme, mais à cet instant, parmi la multitude, ceux qui 
 
 Sous ces regards, l'esprit de Ren Tao ne put s'empêcher de vaciller. Il avait beaucoup entendu parler des prouesses de Wang Lin sur la Terre des Esprits Démoniaques trois ans auparavant, mais il n'y avait pas cru.
 
-En cet instant, il voyait clairement que Wang Lin n'était qu'au sommet du stade Nirvana Scryer, ce qui le confortait dans son scepticisme. Il s'apprêtait à parler quand, soudain, le regard glacial de Wang Lin se verrouilla sur lui.
+En cet instant, il voyait clairement que Wang Lin n'était qu'au sommet du stade Scruteur du Nirvana, ce qui le confortait dans son scepticisme. Il s'apprêtait à parler quand, soudain, le regard glacial de Wang Lin se verrouilla sur lui.
 
 Dès que ce regard tomba sur lui, le corps de Ren Tao trembla et un frisson l'envahit le cœur. Même les yeux des trois anciens derrière lui se plissèrent.
 
@@ -75,9 +75,9 @@ Dès que ce regard tomba sur lui, le corps de Ren Tao trembla et un frisson l'en
 
 Ils n'avaient jamais oublié ce pouvoir qui déchirait les ténèbres de la nuit et ce poing capable de briser le firmament lors du Rêve des Temps Anciens.
 
-L'esprit de Ren Tao trembla plus intensément encore, envahi par un pressentiment funeste. Pourtant, il ne pouvait reculer maintenant. Après une dernière vérification minutieuse, il confirma que Wang Lin n'était effectivement qu'au sommet du stade Nirvana Scryer. Le visage sombre, il serra les dents et déclara: « Je relève le défi! »
+L'esprit de Ren Tao trembla plus intensément encore, envahi par un pressentiment funeste. Pourtant, il ne pouvait reculer maintenant. Après une dernière vérification minutieuse, il confirma que Wang Lin n'était effectivement qu'au sommet du stade Scruteur du Nirvana. Le visage sombre, il serra les dents et déclara: « Je relève le défi! »
 
-Wang Lin acquiesça. Son corps original était actuellement séparé de lui, mais même sans son puissant corps de Dieu Ancien, Wang Lin possédait toujours ses sorts. Il pouvait massacrer tous les cultivateurs du stade Nirvana Cleanser avec son Arsenal Magique, et il osait même affronter des cultivateurs au stade Nirvana Shatterer! En vérité, que son corps original soit présent ou non ne changeait rien pour l'instant.
+Wang Lin acquiesça. Son corps original était actuellement séparé de lui, mais même sans son puissant corps de Dieu Ancien, Wang Lin possédait toujours ses sorts. Il pouvait massacrer tous les cultivateurs du stade Purificateur du Nirvana avec son Arsenal Magique, et il osait même affronter des cultivateurs au stade Briseur du Nirvana! En vérité, que son corps original soit présent ou non ne changeait rien pour l'instant.
 
 S'il y avait une différence, c'était que ce corps puissant permettrait à l'endurance de Wang Lin de dépasser toutes les espérances!
 
@@ -125,6 +125,6 @@ Du début à la fin, Wang Lin était resté calme. Il n'était pas déçu par le
 
 « C'était peut-être plus efficace que prévu, car cela a fusionné avec le tonnerre... »
 
-Le regard de Wang Lin balaya la foule et se posa sur les trois vieillards derrière Ren Tao. L'un d'eux était au début du stade Nirvana Shatterer et les deux autres étaient à la fin du stade Nirvana Cleanser.
+Le regard de Wang Lin balaya la foule et se posa sur les trois vieillards derrière Ren Tao. L'un d'eux était au début du stade Briseur du Nirvana et les deux autres étaient à la fin du stade Purificateur du Nirvana.
 
 « Voulez-vous, vous aussi, me défier? » Une flamme blanche apparut dans l'œil droit de Wang Lin alors qu'il fixait les trois vieillards.

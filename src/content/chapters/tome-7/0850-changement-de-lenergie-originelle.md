@@ -18,11 +18,11 @@ Chaque rotation créait une force d'aspiration qui engloutissait sans cesse tout
 
 Simultanément, la surface de la Perle Défiant le Ciel se modifia. Une image yin et yang se forma et tourna lentement au sein de l'âme originelle de Wang Lin.
 
-Wang Lin savait que son domaine de karma avait atteint le stade de la petite perfection, lui permettant de devenir corporel. Cela signifiait qu'il avait véritablement franchi la seconde étape avec son domaine et était devenu un cultivateur Nirvana Scryer.
+Wang Lin savait que son domaine de karma avait atteint le stade de la petite perfection, lui permettant de devenir corporel. Cela signifiait qu'il avait véritablement franchi la seconde étape avec son domaine et était devenu un cultivateur Scruteur du Nirvana.
 
-S'il le souhaitait, il pouvait provoquer la descente d'une rétribution divine et, une fois celle-ci passée, atteindre le stade initial de Nirvana Scryer!
+S'il le souhaitait, il pouvait provoquer la descente d'une rétribution divine et, une fois celle-ci passée, atteindre le stade initial de Scruteur du Nirvana!
 
-« La seconde étape de la culture comprend les stades Nirvana Scryer, Nirvana Cleanser et Nirvana Shatterer... Ils portent tous le mot Nirvana... D'après ce que j'ai pu observer de la troisième étape, ce n'est qu'en acquérant une compréhension totale du Nirvana et en maîtrisant ses lois que je pourrai enfin atteindre la troisième étape... »
+« La seconde étape de la culture comprend les stades Scruteur du Nirvana, Purificateur du Nirvana et Briseur du Nirvana... Ils portent tous le mot Nirvana... D'après ce que j'ai pu observer de la troisième étape, ce n'est qu'en acquérant une compréhension totale du Nirvana et en maîtrisant ses lois que je pourrai enfin atteindre la troisième étape... »
 
 « Les cieux sont infinis et le dao est sans limites. Le chemin du dao ne comporte-t-il que trois étapes...? » Wang Lin resta silencieux lorsqu'il ouvrit les yeux. Son œil gauche contenait le yang et sa main droite contenait le yin. Ils étaient comme le soleil et la lune, et leur aspect était d'une étrange beauté!
 

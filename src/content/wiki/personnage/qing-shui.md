@@ -21,8 +21,8 @@ sections: ["{\"heading\":\"Apparence\",\"body\":\"L'apparence de Qing Shui chang
 - **Genre:** Homme
 - **Espèce:** Céleste
 - **Cheveux:** Noirs
-- **Niveau de cultivation:** Empereur Céleste (Celestial Emperor) — Nirvana Void (début)
-- **Pouvoir de combat:** Nirvana Void (étape tardive)
+- **Niveau de cultivation:** Empereur Céleste (Celestial Emperor) — Vide du Nirvana (début)
+- **Pouvoir de combat:** Vide du Nirvana (étape tardive)
 - **Épouse:** Han Yan 
 - **Descendants:** Papillon Rouge (Papillon Rouge, fille)
 - **Ennemi:** Xuan Bao

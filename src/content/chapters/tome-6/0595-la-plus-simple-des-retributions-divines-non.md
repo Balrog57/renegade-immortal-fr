@@ -26,7 +26,7 @@ Sur la planète Da Lou, au sein de la Secte de l'Épée Da Lou, le Saint de l'É
 
 « Cette Pilule de Bonne Fortune Fondamentale nécessite encore quelques pilules auxiliaires... » À cet instant précis, son expression changea brusquement. Il fit un pas et disparut complètement pour réapparaître dans l'espace, au-dessus de la planète. Il observa la lumière rouge avec surprise.
 
-« Une rétribution divine! » Il fronça les sourcils, le visage empreint d'incertitude. Après avoir observé attentivement la disparition de la lumière, il murmura pour lui-même: « La rétribution divine descend sur la Terre des Esprits Démoniaques... Ce n'est pas bon! Se pourrait-il que quelque chose soit arrivé à Greed?! » Les sourcils de Lin Tianhou se contractèrent.
+« Une rétribution divine! » Il fronça les sourcils, le visage empreint d'incertitude. Après avoir observé attentivement la disparition de la lumière, il murmura pour lui-même: « La rétribution divine descend sur la Terre des Esprits Démoniaques... Ce n'est pas bon! Se pourrait-il que quelque chose soit arrivé à Cupidité?! » Les sourcils de Lin Tianhou se contractèrent.
 
 Au même moment, sur une planète très éloignée de Tian Yun, l'astre semblait recouvert de sang. C'était une planète de sang!
 

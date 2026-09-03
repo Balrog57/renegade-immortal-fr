@@ -22,7 +22,7 @@ Au moment même où la momie se retournait, l'attaque de Wang Lin l'atteignit. L
 
 Après avoir tué l'une d'elles, une multitude de momies se précipita vers lui.
 
-Un éclat étrange passa dans les yeux de Wang Lin alors qu'il fixait ces créatures. Il pouvait ressentir une puissante énergie d'origine céleste émanant d'elles. Bien que ces êtres aient été puissants de leur vivant, leurs mouvements étaient devenus léthargiques après la mort. Par conséquent, il n'était pas difficile pour Wang Lin de les massacrer avec sa culture au stade initial du Nirvana Scryer!
+Un éclat étrange passa dans les yeux de Wang Lin alors qu'il fixait ces créatures. Il pouvait ressentir une puissante énergie d'origine céleste émanant d'elles. Bien que ces êtres aient été puissants de leur vivant, leurs mouvements étaient devenus léthargiques après la mort. Par conséquent, il n'était pas difficile pour Wang Lin de les massacrer avec sa culture au stade initial du Scruteur du Nirvana!
 
 Cependant, à cet instant, Wang Lin réfléchissait à la manière d'en tirer le profit maximal! Les tuer pour leur énergie d'origine céleste n'était qu'un de ses objectifs; il avait une idée encore plus audacieuse en tête.
 

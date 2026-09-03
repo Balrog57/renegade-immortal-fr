@@ -12,17 +12,17 @@ Après plus de 2 000 ans de culture, Wang Lin avait enfin permis à son corps de
 
 Un corps de dieu ancestral à 7 étoiles n'était pas une chose qu'un cultivateur du second pas pouvait facilement endommager, à moins que le dieu ancestral ne soit en train de subir une épreuve. Autrement, il faudrait une armée de puissances célestes pour assiéger un dieu ancestral durant plusieurs jours avant de pouvoir l'abattre.
 
-On pourrait même dire qu'un corps de dieu ancestral à 7 étoiles complet possédait la force nécessaire pour combattre des cultivateurs du Nirvana Void au premier stade!
+On pourrait même dire qu'un corps de dieu ancestral à 7 étoiles complet possédait la force nécessaire pour combattre des cultivateurs du Vide du Nirvana au premier stade!
 
 Plus important encore, sept étoiles signifiaient que le dieu ancestral était entré dans la phase de maturation rapide vers l'âge adulte. Au fil du temps, le corps d'un dieu ancestral à 7 étoiles continuerait de gagner en puissance!
 
-Parmi les neuf étoiles des dieux ancestraux, chaque étoile au-delà de la cinquième était extrêmement difficile à obtenir. Cependant, une fois chaque étoile formée, la puissance du dieu ancestral augmentait de plusieurs ordres de grandeur. À cet instant, avec ses sorts, ses essences de feu et de tonnerre, ses techniques du Dao et bien d'autres encore, il pouvait affronter un cultivateur du Nirvana Void au premier stade du troisième pas sans être désavantagé. Et si aucun accident ne survenait, il était assez puissant pour l'emporter!
+Parmi les neuf étoiles des dieux ancestraux, chaque étoile au-delà de la cinquième était extrêmement difficile à obtenir. Cependant, une fois chaque étoile formée, la puissance du dieu ancestral augmentait de plusieurs ordres de grandeur. À cet instant, avec ses sorts, ses essences de feu et de tonnerre, ses techniques du Dao et bien d'autres encore, il pouvait affronter un cultivateur du Vide du Nirvana au premier stade du troisième pas sans être désavantagé. Et si aucun accident ne survenait, il était assez puissant pour l'emporter!
 
 Le dieu ancestral à 7 étoiles Wang Lin n'était pas plus faible que Tu Si lorsqu'il était à sept étoiles. Bien que Tu Si possédât l'héritage complet, Wang Lin était la première existence à être la fusion d'un cultivateur et d'un dieu ancestral!
 
-Wang Lin oserait même affronter des cultivateurs du Nirvana Void au stade intermédiaire. Bien qu'il risquât probablement de perdre, ils auraient extrêmement de mal à le tuer!
+Wang Lin oserait même affronter des cultivateurs du Vide du Nirvana au stade intermédiaire. Bien qu'il risquât probablement de perdre, ils auraient extrêmement de mal à le tuer!
 
-Au troisième pas, les stades Nirvana Void, Spirit Void, Arcane Void et Void Tribulant comprenaient tous les phases initiale, intermédiaire et tardive, tout comme au second pas. La différence entre chaque niveau était immense, comparable à celle entre un cultivateur du Nettoyage du Nirvana et un Briseur de Nirvana!
+Au troisième pas, les stades Vide du Nirvana, Vide Spirituel, Vide Arcanique et Tribulant du Vide comprenaient tous les phases initiale, intermédiaire et tardive, tout comme au second pas. La différence entre chaque niveau était immense, comparable à celle entre un cultivateur du Purificateur du Nirvana et un Briseur de Nirvana!
 
 Les yeux de Wang Lin brillaient comme le feu alors qu'il siégeait sur le trône, laissant la force de rejet secouer son corps. Cependant, la puissance qui autrefois suffisait à briser son corps ne pouvait plus l'affecter outre mesure.
 

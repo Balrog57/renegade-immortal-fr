@@ -40,7 +40,7 @@ Au loin, la montagne d'où était issue la Poupée Yi Si s'effondra, révélant 
 
 Une fois Wang Lin entré, il pourrait atteindre le lieu où se trouvait le cœur de Ye Mo.
 
-Cependant, à cet instant précis, des ondulations résonnèrent dans le ciel. Au loin, plusieurs rayons de lumière convergèrent et une puissante Sens Divin se propagea.
+Cependant, à cet instant précis, des ondulations résonnèrent dans le ciel. Au loin, plusieurs rayons de lumière convergèrent et un puissant Sens Divin se propagea.
 
 Ce changement attira l'attention de Wang Lin. Il leva les yeux vers le ciel et son expression devint progressivement sombre.
 

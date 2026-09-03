@@ -46,7 +46,7 @@ Le visage de Wang Lin restait sombre alors qu'il contemplait les trois gouttes d
 
 Ce membre était tout simplement trop singulier. Dès qu'il l'avait vu, il n'avait pu s'empêcher de penser à l'œil qu'il avait aperçu dans le vortex aux cinq couleurs. Pour Wang Lin, ils semblaient provenir de la même source!
 
-« Ce bras est extrêmement puissant; il équivaut à la force d'un cultivateur du sommet du stade Corporel Yang et frôle infiniment la puissance d'un cultivateur Nirvana Scryer! » Les yeux de Wang Lin étaient froids alors qu'il traquait le membre et frappait impitoyablement avec l'épée céleste!
+« Ce bras est extrêmement puissant; il équivaut à la force d'un cultivateur du sommet du stade Corporel Yang et frôle infiniment la puissance d'un cultivateur Scruteur du Nirvana! » Les yeux de Wang Lin étaient froids alors qu'il traquait le membre et frappait impitoyablement avec l'épée céleste!
 
 La Coupe Céleste projeta un rayon d'énergie de l'épée. En tombant, elle sembla trancher les lois mêmes du monde, faisant trembler violemment le vide. Une longue fissure spatiale apparut soudainement et fonça droit sur le bras sectionné.
 

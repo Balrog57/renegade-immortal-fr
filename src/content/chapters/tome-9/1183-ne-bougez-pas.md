@@ -10,7 +10,7 @@ slug: ne-bougez-pas
 
 Le garçon cria: « Encore cinq respirations! »
 
-La main du Maître Ashen Pine forma rapidement divers sceaux alors que des dizaines de milliers d'épées convergeaient pour s'abattre sur le dragon. La créature poussa un rugissement et lutta avec force, faisant cracher du sang au garçon. Les veines de son corps étaient toutes saillantes et ses yeux injectés de sang.
+La main du Maître Pin Cendré forma rapidement divers sceaux alors que des dizaines de milliers d'épées convergeaient pour s'abattre sur le dragon. La créature poussa un rugissement et lutta avec force, faisant cracher du sang au garçon. Les veines de son corps étaient toutes saillantes et ses yeux injectés de sang.
 
 La glace de la vieille femme en vert se rapprocha et toucha le dragon. Ce dernier trembla et du givre apparut instantanément. Bientôt, la glace recouvrit l'intégralité du dragon.
 
@@ -40,9 +40,9 @@ Après avoir estimé la quantité de cristaux d'origine récoltée, Wang Lin dé
 
 En un instant, toute la brume disparut, laissant place à la queue du dragon. La créature mesurait environ 10 000 pieds de haut et la moitié de son corps était déjà suspendue dans les airs. Cette section caudale s'éleva avec le reste du corps.
 
-L'homme nommé Pang avait le visage livide, affalé contre le flanc de la montagne, sa poitrine n'étant plus qu'un désastre sanglant. Le Maître Ashen Pine, la vieille femme en vert et le garçon combattaient au-dessus de la tête du dragon, utilisant tous leurs sorts pour empêcher l'ascension de la créature.
+L'homme nommé Pang avait le visage livide, affalé contre le flanc de la montagne, sa poitrine n'étant plus qu'un désastre sanglant. Le Maître Pin Cendré, la vieille femme en vert et le garçon combattaient au-dessus de la tête du dragon, utilisant tous leurs sorts pour empêcher l'ascension de la créature.
 
-La corne noire sur le front du dragon dégageait une lueur sombre; à chaque éclat, le Maître Ashen Pine et ses compagnons étaient contraints d'esquiver. Le dragon crachait un brouillard empoisonné à l'odeur fétide, extrêmement difficile à contrer. Pourtant, il était lui aussi gravement blessé, le sang coulant de ses plaies pour imbiber ses écailles.
+La corne noire sur le front du dragon dégageait une lueur sombre; à chaque éclat, le Maître Pin Cendré et ses compagnons étaient contraints d'esquiver. Le dragon crachait un brouillard empoisonné à l'odeur fétide, extrêmement difficile à contrer. Pourtant, il était lui aussi gravement blessé, le sang coulant de ses plaies pour imbiber ses écailles.
 
 À cet instant, le dragon poussa un rugissement capable de secouer les cieux, faisant trembler les montagnes environnantes et s'effondrer les rochers. Peu après, la corne noire émit une lumière aveuglante et un filet de foudre noire se propagea. Simultanément, une énergie originelle infinie convergea, absorbant même une partie de la lumière aux sept couleurs.
 
@@ -50,7 +50,7 @@ La corne noire sur le front du dragon dégageait une lueur sombre; à chaque éc
 
 Le rugissement du dragon fit vaciller l'esprit de chacun. Tandis que la bête hurlait, le filet de foudre noire s'étendit sur 1 000 pieds supplémentaires. À mesure que l'énergie originelle et la lumière aux sept couleurs étaient absorbées, des illusions commencèrent à surgir autour du dragon.
 
-Ces ombres illusoires n'étaient autres que des dragons. Alors qu'ils encerclaient la zone, le Maître Ashen Pine et son groupe furent forcés de battre en retraite.
+Ces ombres illusoires n'étaient autres que des dragons. Alors qu'ils encerclaient la zone, le Maître Pin Cendré et son groupe furent forcés de battre en retraite.
 
 Le dragon était sur le point de s'envoler. Une fois dans les airs, ce serait un désastre pour les cultivateurs incapables de voler à haute altitude.
 
@@ -68,7 +68,7 @@ Cependant, ses efforts ne firent qu'accélérer l'afflux de puissance divine dan
 
 « Descends! » Il lâcha un rugissement tonitruant qui semblait être la voix d'un dieu. Maintenant la queue, Wang Lin fracassa sans pitié le corps du dragon contre le sentier étroit, sous les yeux médusés des autres cultivateurs.
 
-Bien que ce dragon possédât un corps de 10 000 pieds de long, qu'il fût un cultivateur au sommet du stade Nirvana Shatterer, doté d'un corps assez robuste pour résister à la plupart des sorts et bien plus puissant que celui de n'importe quel raffineur corporel, il ne représentait rien face à Wang Lin!
+Bien que ce dragon possédât un corps de 10 000 pieds de long, qu'il fût un cultivateur au sommet du stade Briseur du Nirvana, doté d'un corps assez robuste pour résister à la plupart des sorts et bien plus puissant que celui de n'importe quel raffineur corporel, il ne représentait rien face à Wang Lin!
 
 Même s'il muait pour devenir un véritable dragon, il ne pourrait jamais s'élever vers le ciel devant un Dieu Ancien!
 
@@ -78,7 +78,7 @@ Un fracas de tonnerre résonna dans le ciel lorsque le gigantesque dragon s'écr
 
 Une fois au sol, le corps du dragon eut des spasmes, sa tête commença à fondre et un gaz noir s'en échappa. Chen Tianjun s'extirpa de la gueule de la bête et recula de quelques pas.
 
-Le Maître Ashen Pine prit une profonde inspiration. Il fixa le dragon, puis Wang Lin, un frisson glacial lui glaçant le cœur.
+Le Maître Pin Cendré prit une profonde inspiration. Il fixa le dragon, puis Wang Lin, un frisson glacial lui glaçant le cœur.
 
 Même le garçon se lécha les lèvres, un soupçon d'effroi dans le regard en observant Wang Lin.
 
@@ -94,7 +94,7 @@ Sa main droite plongea dans le vide, et la pierre de jade ainsi qu'une pilule ap
 
 Tenant la pierre de jade, Wang Lin s'assit contre la montagne. Son Sens Divin parcourut le contenu du jade et il commença à en lire attentivement les inscriptions.
 
-Le Maître Ashen Pine rejoignit l'homme nommé Pang. Sa main droite tapota le dos du vieil homme pour lui tendre quelques pilules avant de s'asseoir. Il jetait parfois des regards mystérieux vers Wang Lin.
+Le Maître Pin Cendré rejoignit l'homme nommé Pang. Sa main droite tapota le dos du vieil homme pour lui tendre quelques pilules avant de s'asseoir. Il jetait parfois des regards mystérieux vers Wang Lin.
 
 Le garçon, tenant la pilule de réincarnation, afficha un air d'excitation avant de la ranger. Ce n'était pas le moment de la consommer. Il prit une grande inspiration et s'assit pour se soigner.
 
@@ -102,13 +102,13 @@ Chen Tianjun s'assit également. Durant cette bataille, alors que tous étaient 
 
 Quant à la vieille femme en vert, elle s'approcha du cadavre du dragon. Elle posa sa main sur la bête et le gaz noir s'échappa du corps pour pénétrer le sien.
 
-Après quelques heures de repos, le Maître Ashen Pine observa tout le monde et déclara d'une voix lente: « Il y a beaucoup de bêtes de brume de rang 12 ici; cependant, plus le danger est grand, plus notre récolte sera abondante. »
+Après quelques heures de repos, le Maître Pin Cendré observa tout le monde et déclara d'une voix lente: « Il y a beaucoup de bêtes de brume de rang 12 ici; cependant, plus le danger est grand, plus notre récolte sera abondante. »
 
 À cet instant, il ne restait plus que des os du cadavre du dragon près de la vieille femme. Le visage de cette dernière devint rouge et elle parut, de manière inattendue, rajeunir légèrement.
 
 L'homme nommé Pang s'était beaucoup rétabli. Il se leva et contempla le sentier étroit désormais libéré de toute brume. Ses yeux brillèrent d'espoir.
 
-Le Maître Ashen Pine se leva et avança: « Tout le monde, en route. »
+Le Maître Pin Cendré se leva et avança: « Tout le monde, en route. »
 
 La vieille femme en vert et Chen Tianjun se levèrent simultanément. Seul le garçon hésita un instant avant de suivre le mouvement.
 
@@ -116,6 +116,6 @@ Wang Lin, assis à l'écart, les regardait s'éloigner tout en tenant la pierre 
 
 « Cet endroit est... » La pensée de Wang Lin fut interrompue lorsqu'il tourna soudainement la tête pour regarder derrière le groupe. Ses pupilles se rétractèrent et chaque pore de sa peau se hérissa!
 
-Au même instant, le Maître Ashen Pine et le garçon s'arrêtèrent brusquement. Immédiatement après, la vieille femme et Chen Tianjun remarquèrent également l'anomalie. L'homme nommé Pang fut le dernier à s'en rendre compte.
+Au même instant, le Maître Pin Cendré et le garçon s'arrêtèrent brusquement. Immédiatement après, la vieille femme et Chen Tianjun remarquèrent également l'anomalie. L'homme nommé Pang fut le dernier à s'en rendre compte.
 
-Les yeux du Maître Ashen Pine se remplirent de terreur alors qu'il transmettait précipitamment un message par Sens Divin: « Quoi qu'il arrive, ne bougez pas! »
+Les yeux du Maître Pin Cendré se remplirent de terreur alors qu'il transmettait précipitamment un message par Sens Divin: « Quoi qu'il arrive, ne bougez pas! »

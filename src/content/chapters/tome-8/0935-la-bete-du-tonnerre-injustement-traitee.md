@@ -56,11 +56,11 @@ Toutefois, s'agissait-il vraiment d'une formation naturelle... personne n'en ava
 
 Pourtant, une spéculation subsistait dans le cœur de quelques rares individus. Ils n'osaient l'évoquer par crainte du désastre inimaginable que cela provoquerait: et si cette terre de vide n'était pas naturelle, mais... artificielle?
 
-À cet instant, même la masse colossale du Serpent Moongazer semblait insignifiante. Une fois entré, il se recroquevilla, concentrant toute sa puissance pour tenter d'absorber tous les objets étrangers présents dans son corps.
+À cet instant, même la masse colossale du Serpent aux yeux de lune semblait insignifiante. Une fois entré, il se recroquevilla, concentrant toute sa puissance pour tenter d'absorber tous les objets étrangers présents dans son corps.
 
-Le Serpent Moongazer dérivait dans cette obscurité sans fin, sans direction précise. C'était comme si la force mystérieuse des lieux n'avait aucune prise sur lui.
+Le Serpent aux yeux de lune dérivait dans cette obscurité sans fin, sans direction précise. C'était comme si la force mystérieuse des lieux n'avait aucune prise sur lui.
 
-Wang Lin se trouvait à l'intérieur du corps du Serpent Moongazer. Il tenait toujours le fragment céleste que Maître Flamespark lui avait confié. Son Sens Divin balaya l'objet et y déposa sa propre empreinte. Au même instant, un rugissement émana du fragment et un éclair de tonnerre jaillit.
+Wang Lin se trouvait à l'intérieur du corps du Serpent aux yeux de lune. Il tenait toujours le fragment céleste que Maître Flamespark lui avait confié. Son Sens Divin balaya l'objet et y déposa sa propre empreinte. Au même instant, un rugissement émana du fragment et un éclair de tonnerre jaillit.
 
 Le tonnerre se dispersa devant Wang Lin. Alors que les éclairs ricochaient dans toutes les directions, la Bête du Tonnerre aux cornes argentées apparut. Une chaîne entourait son cou et de nombreux talismans pendaient de son corps, lui donnant un aspect quelque peu désordonné.
 

@@ -36,11 +36,11 @@ Lorsqu'il avait vu la restriction de la vieille femme, il l'avait trouvée étra
 
 Les racines de l'herbe étaient déjà en décomposition; il n'en restait que peu de vitalité. Dans quelques heures seulement, elle serait totalement épuisée et la restriction s'activerait pleinement.
 
-« La vieille femme en vert n'a pas eu le temps d'agir avec précision en présence de Maître Ashen Pine. Elle a simplement laissé une restriction capable d'absorber la vitalité de la végétation. Une fois toute la vitalité consommée, la restriction se déclenchera », murmura Wang Lin pour lui-même. Il devint alors extrêmement vigilant envers la vieille femme en vert.
+« La vieille femme en vert n'a pas eu le temps d'agir avec précision en présence de Maître Pin Cendré. Elle a simplement laissé une restriction capable d'absorber la vitalité de la végétation. Une fois toute la vitalité consommée, la restriction se déclenchera », murmura Wang Lin pour lui-même. Il devint alors extrêmement vigilant envers la vieille femme en vert.
 
 « Pour l'instant, cette restriction est à moitié achevée. Ce n'est pas que je ne puisse pas la briser, à moins que... » Wang Lin esquissa un sourire et recula de quelques pas. Ses mains formèrent un sceau qu'il pointa vers l'avant. La lumière noire issue du Cœur de la Restriction de l'Annihilation s'effondra soudainement en une multitude d'éclats sombres qui se déposèrent sur cette parcelle d'herbe.
 
-« Je ne vais pas briser cette restriction. Au lieu de cela, je vais y imprimer ma propre marque et ma propre restriction avant qu'elle ne s'active totalement. De la sorte, je prendrai le contrôle de cette restriction à l'insu de la vieille femme... Avec ma Restriction de l'Annihilation et la Restriction de la Vie et de la Mort, j'aurai deux des quatre grandes restrictions anciennes. Même si Maître Ashen Pine y pénétrait par inadvertance, il serait gravement blessé! » Wang Lin progressa prudemment à travers le champ, ne se détendant qu'une fois entré dans la vallée.
+« Je ne vais pas briser cette restriction. Au lieu de cela, je vais y imprimer ma propre marque et ma propre restriction avant qu'elle ne s'active totalement. De la sorte, je prendrai le contrôle de cette restriction à l'insu de la vieille femme... Avec ma Restriction de l'Annihilation et la Restriction de la Vie et de la Mort, j'aurai deux des quatre grandes restrictions anciennes. Même si Maître Pin Cendré y pénétrait par inadvertance, il serait gravement blessé! » Wang Lin progressa prudemment à travers le champ, ne se détendant qu'une fois entré dans la vallée.
 
 Après avoir inspecté les lieux, Wang Lin tourna son regard vers l'extrémité de la vallée, qui rejoignait la chaîne de montagnes semblable à un mur. La paroi était extrêmement escarpée, telle une tour.
 
@@ -52,21 +52,21 @@ Sans perdre un instant, Wang Lin grimpa la montagne avec la rapidité de l'écla
 
 Wang Lin commença à méditer tout en gravissant la montagne.
 
-« Lorsque j'ai quitté le système stellaire d'Allheaven, Li Yuan a dit que si l'on parvenait à maîtriser les quatre grandes restrictions anciennes et à les fusionner, on pourrait comprendre le royaume Abstrait... L'Abstrait est le sommet des restrictions! Pourtant, depuis les innombrables années où la loi des restrictions s'est détachée de la naissance du monde, personne n'a pu atteindre ce royaume. » Wang Lin poussa un soupir et cessa d'y songer. Il se concentra plutôt sur la traque de la piste laissée par Maître Ashen Pine.
+« Lorsque j'ai quitté le système stellaire d'Allheaven, Li Yuan a dit que si l'on parvenait à maîtriser les quatre grandes restrictions anciennes et à les fusionner, on pourrait comprendre le royaume Abstrait... L'Abstrait est le sommet des restrictions! Pourtant, depuis les innombrables années où la loi des restrictions s'est détachée de la naissance du monde, personne n'a pu atteindre ce royaume. » Wang Lin poussa un soupir et cessa d'y songer. Il se concentra plutôt sur la traque de la piste laissée par Maître Pin Cendré.
 
 Une demi-journée s'écoula. Wang Lin se tenait au sommet de la montagne, baigné par une lumière aux sept couleurs. Cette aura l'enveloppait, le faisant ressembler, vu de loin, à un dieu céleste.
 
 Cette chaîne de montagnes en forme de mur agissait comme un anneau séparant l'intérieur de l'extérieur. Le lieu était noyé dans une brume dense qui rendait toute visibilité impossible. C'était comme une mer noire dont les dangers commençaient à poindre.
 
-En regardant devant lui, Wang Lin sentait distinctement que Maître Ashen Pine se trouvait dans la brume. Le regard de Wang Lin devint glacial alors qu'il dévalait la montagne pour disparaître au loin.
+En regardant devant lui, Wang Lin sentait distinctement que Maître Pin Cendré se trouvait dans la brume. Le regard de Wang Lin devint glacial alors qu'il dévalait la montagne pour disparaître au loin.
 
-Maître Ashen Pine portait l'Armure Divine Démoniaque et faisait preuve d'une prudence extrême. Il devait surveiller chacun de ses pas au sein du brouillard. La vieille femme en vert l'accompagnait, entourée d'un gaz noir. Le silence régnait, seul le bruit de leurs pas venait troubler le calme.
+Maître Pin Cendré portait l'Armure Divine Démoniaque et faisait preuve d'une prudence extrême. Il devait surveiller chacun de ses pas au sein du brouillard. La vieille femme en vert l'accompagnait, entourée d'un gaz noir. Le silence régnait, seul le bruit de leurs pas venait troubler le calme.
 
-« Cet individu nommé Lu devrait être mort à présent. Pang Decai est un expert en recherche d'âmes; il doit avoir fait une belle récolte, surtout avec cette Marque d'Esprit de Guerre. C'est l'un des grands sorts de la Secte Divin. » Maître Ashen Pine avait calculé le temps. Ils avaient souvent collaboré, ce qui leur permettait de deviner les pensées de l'autre d'un simple regard.
+« Cet individu nommé Lu devrait être mort à présent. Pang Decai est un expert en recherche d'âmes; il doit avoir fait une belle récolte, surtout avec cette Marque d'Esprit de Guerre. C'est l'un des grands sorts de la Secte Divin. » Maître Pin Cendré avait calculé le temps. Ils avaient souvent collaboré, ce qui leur permettait de deviner les pensées de l'autre d'un simple regard.
 
-« Pang Decai doit être en route... » Les yeux de Maître Ashen Pine brillèrent d'une lueur indéchiffrable.
+« Pang Decai doit être en route... » Les yeux de Maître Pin Cendré brillèrent d'une lueur indéchiffrable.
 
-La vieille femme en vert, restée silencieuse jusqu'ici, demanda soudain: « Maître Ashen Pine, à quelle distance se trouve l'endroit que vous avez mentionné? »
+La vieille femme en vert, restée silencieuse jusqu'ici, demanda soudain: « Maître Pin Cendré, à quelle distance se trouve l'endroit que vous avez mentionné? »
 
 « Pas loin, cela doit être juste devant. » Alors qu'il parlait, il s'arrêta brusquement. Simultanément, la vieille femme en vert s'immobilisa et scruta prudemment l'avant.
 
@@ -88,18 +88,18 @@ Il s'agissait d'un rocher colossal de plus de mille pieds de haut, dans lequel �
 
 Ce passage sinistre résonnait à travers la brume, emplissant l'espace.
 
-Le visage de Maître Ashen Pine pâlit instantanément et il regarda autour de lui avec effroi. La vieille femme en vert prit une inspiration saccadée. Ces paroles étranges restaient ancrées dans son esprit et continuaient de résonner. Inopinément, son âme originelle se mit à trembler et son cœur Dao devint instable.
+Le visage de Maître Pin Cendré pâlit instantanément et il regarda autour de lui avec effroi. La vieille femme en vert prit une inspiration saccadée. Ces paroles étranges restaient ancrées dans son esprit et continuaient de résonner. Inopinément, son âme originelle se mit à trembler et son cœur Dao devint instable.
 
-« Qui sont-ils... Que signifient ces mots... » La vieille femme en vert tourna un regard vers Maître Ashen Pine.
+« Qui sont-ils... Que signifient ces mots... » La vieille femme en vert tourna un regard vers Maître Pin Cendré.
 
 « Ce sont les Éveillés... » À peine eut-il fini de parler que le brouillard devant eux s'agita et qu'une ombre s'en échappa. Elle fut si rapide qu'elle passa directement entre les deux individus. La voix étrange pénétra alors distinctement dans leur esprit.
 
-« Maître Ashen Pine, qui sont exactement les Éveillés? » Le visage de la vieille femme était livide tandis que les passages résonnaient en elle. Elle sentait qu'elle touchait à ses limites.
+« Maître Pin Cendré, qui sont exactement les Éveillés? » Le visage de la vieille femme était livide tandis que les passages résonnaient en elle. Elle sentait qu'elle touchait à ses limites.
 
-« Les Perdus ont égaré leur Dao et errent dans la confusion au sein du Royaume aux Sept Couleurs. Ils cherchent aveuglément... Les Éveillés possèdent un Dao, mais après avoir contemplé les Écrits du Dao, leurs cœurs Dao se sont effondrés sans pouvoir se reformer. Ils ne peuvent que flotter dans cette brume et chercher éternellement. Il se peut qu'ils soient déjà morts; ce n'est alors qu'une âme Dao formée de leur volonté! » murmura Maître Ashen Pine en écoutant ces paroles résonner en lui.
+« Les Perdus ont égaré leur Dao et errent dans la confusion au sein du Royaume aux Sept Couleurs. Ils cherchent aveuglément... Les Éveillés possèdent un Dao, mais après avoir contemplé les Écrits du Dao, leurs cœurs Dao se sont effondrés sans pouvoir se reformer. Ils ne peuvent que flotter dans cette brume et chercher éternellement. Il se peut qu'ils soient déjà morts; ce n'est alors qu'une âme Dao formée de leur volonté! » murmura Maître Pin Cendré en écoutant ces paroles résonner en lui.
 
 « Les Écrits du Dao? » Les yeux de la vieille femme en vert se plissèrent.
 
-Maître Ashen Pine leva la tête, le regard empreint de ferveur, et déclara lentement: « Oui, ce sont les Écrits du Dao! Je n'en avais jamais entendu parler avant de venir dans le Royaume aux Sept Couleurs, mais depuis mon arrivée, j'ai trouvé d'innombrables indices. Dans ce monde, il existe ces Écrits dont la rumeur dit qu'ils sont formés par le sang du ciel... »
+Maître Pin Cendré leva la tête, le regard empreint de ferveur, et déclara lentement: « Oui, ce sont les Écrits du Dao! Je n'en avais jamais entendu parler avant de venir dans le Royaume aux Sept Couleurs, mais depuis mon arrivée, j'ai trouvé d'innombrables indices. Dans ce monde, il existe ces Écrits dont la rumeur dit qu'ils sont formés par le sang du ciel... »
 
 « De quoi parlent-ils... S'agit-il des Écrits du Dao? » La vieille femme en vert retint son souffle. Ce qu'elle percevait à cet instant était tout simplement terrifiant.

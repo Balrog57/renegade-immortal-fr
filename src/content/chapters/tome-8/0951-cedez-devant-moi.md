@@ -18,9 +18,9 @@ Une explosion assourdissante fit trembler le monde et la lumière violette fut c
 
 « Le Royaume Ji! Ainsi, les biens de mon épouse sont entre tes mains! » Qing Shui fut repoussé de plusieurs pas en fixant l'homme aux cheveux violets, ses yeux brûlant d'une intention meurtrière terrifiante.
 
-« Qing Shui est un ancien Seigneur Céleste du Royaume Céleste du Tonnerre. La rumeur prétend qu'après sa résurrection, sa culture ne s'est pas rétablie. Bien qu'il soit encore très puissant, je possède un trésor de niveau Pseudo-Nirvana Void. Même s'il est endommagé, il me suffit pour l'affronter. Tuer Qing Shui serait un exploit mémorable! » L'homme aux cheveux violets laissa échapper un renâclement glacial et créa une immense brume violette. Alors qu'il chargeait, six clones apparurent et s'élancèrent également vers Qing Shui.
+« Qing Shui est un ancien Seigneur Céleste du Royaume Céleste du Tonnerre. La rumeur prétend qu'après sa résurrection, sa culture ne s'est pas rétablie. Bien qu'il soit encore très puissant, je possède un trésor de niveau Pseudo-Vide du Nirvana. Même s'il est endommagé, il me suffit pour l'affronter. Tuer Qing Shui serait un exploit mémorable! » L'homme aux cheveux violets laissa échapper un renâclement glacial et créa une immense brume violette. Alors qu'il chargeait, six clones apparurent et s'élancèrent également vers Qing Shui.
 
-Le Royaume de la Boucherie possédait un trésor Pseudo-Nirvana Void. Bien que gravement endommagé, il demeurait extrêmement puissant. Il avait été offert par le Grand Ancien de l'Alliance au premier Maître du Royaume de la Boucherie pour servir de trésor de protection du royaume!
+Le Royaume de la Boucherie possédait un trésor Pseudo-Vide du Nirvana. Bien que gravement endommagé, il demeurait extrêmement puissant. Il avait été offert par le Grand Ancien de l'Alliance au premier Maître du Royaume de la Boucherie pour servir de trésor de protection du royaume!
 
 À mesure que la brume violette se répandait, Qing Shui s'y engouffra, porté par une intention meurtrière dévorante. Des grondements tonitruants jaillirent de l'intérieur de la brume alors que Qing Shui entamait son combat contre l'homme aux cheveux violets!
 
@@ -62,7 +62,7 @@ Les onze épées volantes qui traquaient Wang Lin émettaient les cris lugubres 
 
 À cet instant précis, trois individus s'élancèrent parmi les cent cultivateurs environnants!
 
-Parmi eux, deux étaient au stade intermédiaire du Nirvana Scryer. Le troisième était un vieil homme doté d'un niveau de culture très élevé, au stade avancé du Nirvana Scryer!
+Parmi eux, deux étaient au stade intermédiaire du Scruteur du Nirvana. Le troisième était un vieil homme doté d'un niveau de culture très élevé, au stade avancé du Scruteur du Nirvana!
 
 Ce vieil homme ne s'était pas manifesté lorsque Wang Lin et Qing Shui étaient apparus; il s'était caché avec prudence pour ne se révéler qu'à présent.
 

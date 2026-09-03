@@ -120,7 +120,7 @@ Wang Lin leva la tête et scruta l'homme âgé avec désinvolture. Cette fois, s
 
 Grâce à cette intuition, Wang Lin put immédiatement voir clair en eux. La lumière rouge qui brillait dans les yeux du petit singe était l'aura unique des êtres résidant dans la mer de sang.
 
-Wang Lin ressentit une amertume profonde. Il pensa au Seigneur Démoniaque des Six Désirs, à Hunchback Meng, à l'Ancien Empereur et aux autres. Tous étaient soit morts, soit devenus des cultivateurs dans la mer de sang.
+Wang Lin ressentit une amertume profonde. Il pensa au Seigneur Démoniaque des Six Désirs, à Bossu Meng, à l'Ancien Empereur et aux autres. Tous étaient soit morts, soit devenus des cultivateurs dans la mer de sang.
 
 Il y avait aussi ces anciens cultivateurs, nés avant l'arrivée de quiconque sur la planète Suzaku. Leurs niveaux de culture étaient également très élevés.
 

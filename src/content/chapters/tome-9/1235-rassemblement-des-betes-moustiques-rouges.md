@@ -36,9 +36,9 @@ Les regards de ces créatures se fixèrent tous sur le roi moustique de Wang Lin
 
 Les yeux de Wang Lin s'illuminèrent. Il avait déjà remarqué une particularité chez les bêtes moustiques du Royaume Céleste du Vent. Bien que féroces, elles contenaient une part d'énergie spirituelle céleste en leur sein. Cela s'expliquait aisément par leur longue présence dans ce royaume, l'énergie céleste s'étant naturellement accumulée en elles.
 
-Mais ce qui attira véritablement l'attention de Wang Lin fut la puissance de ces moustiques rouges. Il en avait déjà vu dans la Terre des Esprits Démoniaques, mais, en raison de leur environnement, ils n'étaient pas très vigoureux. Ici, pourtant, chaque bête moustique était l'égale d'un cultivateur du stade Nirvana Scryer.
+Mais ce qui attira véritablement l'attention de Wang Lin fut la puissance de ces moustiques rouges. Il en avait déjà vu dans la Terre des Esprits Démoniaques, mais, en raison de leur environnement, ils n'étaient pas très vigoureux. Ici, pourtant, chaque bête moustique était l'égale d'un cultivateur du stade Scruteur du Nirvana.
 
-Certaines des rares bêtes moustiques rouge foncé étaient même l'équivalent de cultivateurs au stade avancé du Nirvana Scryer!
+Certaines des rares bêtes moustiques rouge foncé étaient même l'équivalent de cultivateurs au stade avancé du Scruteur du Nirvana!
 
 Cette découverte excita Wang Lin! Bien que seule une minorité atteignît ce niveau, il savait que ce n'était là que la région extérieure du Royaume Céleste du Vent!
 
@@ -74,11 +74,11 @@ Sous ce cri, le grand nuage rouge s'immobilisa brusquement avant de se dissiper 
 
 Le regard de Wang Lin balaya l'assemblée. Il y trouva six bêtes rouge foncé parmi elles, ce qui le réjouit. Il sentait que plus le roi rassemblait de sujets, plus sa puissance globale augmentait rapidement.
 
-Il disposait désormais de près de 300 moustiques de niveau Nirvana Scryer et de 16 moustiques au stade avancé du Nirvana Scryer. Avec une telle force, Wang Lin pourrait anéantir instantanément un cultivateur du stade Nirvana Cleanser sans même avoir à bouger.
+Il disposait désormais de près de 300 moustiques de niveau Scruteur du Nirvana et de 16 moustiques au stade avancé du Scruteur du Nirvana. Avec une telle force, Wang Lin pourrait anéantir instantanément un cultivateur du stade Purificateur du Nirvana sans même avoir à bouger.
 
-« 300, c'est encore bien trop peu. Il m'en faut davantage! Si j'avais 1 000 de ces bêtes rouges de niveau Nirvana Scryer, même les cultivateurs du stade Nirvana Shatterer fuiraient devant moi! Et si je pouvais en obtenir 10 000... même les puissants du stade avancé du Nirvana Shatterer resteraient à distance! »
+« 300, c'est encore bien trop peu. Il m'en faut davantage! Si j'avais 1 000 de ces bêtes rouges de niveau Scruteur du Nirvana, même les cultivateurs du stade Briseur du Nirvana fuiraient devant moi! Et si je pouvais en obtenir 10 000... même les puissants du stade avancé du Briseur du Nirvana resteraient à distance! »
 
-« Si j'en avais 100 000, peu importe qu'ils soient au stade Heaven's Blights! Si j'en avais un million, dix millions... » Wang Lin attendait ce moment depuis très longtemps.
+« Si j'en avais 100 000, peu importe qu'ils soient au stade Fléau des Cieuxs! Si j'en avais un million, dix millions... » Wang Lin attendait ce moment depuis très longtemps.
 
 Il prit une profonde inspiration et s'élança dans les lointains avec ses 300 moustiques. Le battement de leurs ailes provoquait un grondement tonitruant qui résonnait à travers le monde, dégageant une pression colossale.
 
@@ -88,7 +88,7 @@ Les yeux de Wang Lin brillèrent et son roi moustique s'élança vers ces deux b
 
 Sous cette pression écrasante, les deux moustiques brun rougeâtre tremblèrent et commencèrent à siffler. Un instant plus tard, leur résistance s'évanouit; elles se soumirent et rejoignirent le roi moustique.
 
-Le sens divin de Wang Lin scruta ces deux bêtes, et son visage s'illumina. Ces deux spécimens rouge foncé étaient presque l'équivalent de cultivateurs au sommet du stade Nirvana Scryer, et leur aura féroce les rendait encore plus terrifiants.
+Le sens divin de Wang Lin scruta ces deux bêtes, et son visage s'illumina. Ces deux spécimens rouge foncé étaient presque l'équivalent de cultivateurs au sommet du stade Scruteur du Nirvana, et leur aura féroce les rendait encore plus terrifiants.
 
 « 400 maintenant! » Wang Lin contempla la dense horde qui l'entourait. Son humeur s'améliorait à mesure qu'il ajoutait ces deux bêtes brun rougeâtre et les vingt autres de couleur rouge foncé.
 

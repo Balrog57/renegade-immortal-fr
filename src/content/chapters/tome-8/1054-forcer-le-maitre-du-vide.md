@@ -98,4 +98,4 @@ En découvrant la scène dans le hall, Ling Tianhou fut stupéfait. Le Tout-Voya
 
 « Tout-Voyant, aidez-moi! » cria le Maître du Vide en tentant de reculer précipitamment. Mais à cet instant précis, la main droite de Wang Lin traça un sceau et l'Oiseau Vermillon se condensa une fois de plus. Il ne cibla pas directement le Maître du Vide, mais s'effondra soudainement en une mer de flammes juste à ses côtés.
 
-Au même moment, le rayon de lumière d'épée formé par Zhou Yi libéra une énergie féroce, inédite, imprégnée de l'aura d'un trésor de grade Pseudo-Nirvana Void. Il chargea de plein fouet le Maître du Vide, alors prisonnier de la mer de flammes!
+Au même moment, le rayon de lumière d'épée formé par Zhou Yi libéra une énergie féroce, inédite, imprégnée de l'aura d'un trésor de grade Pseudo-Vide du Nirvana. Il chargea de plein fouet le Maître du Vide, alors prisonnier de la mer de flammes!

@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 930 - Alliance Elder Group
 slug: le-groupe-des-anciens-de-lalliance
 ---
-Wang Lin fut le premier à prendre conscience de la situation, il était donc parfaitement préparé. Un instant avant que le doigt du Dieu Antique n'explose, il s'était déjà retiré et avait activé le fourneau du Dieu Antique. En conséquence, il ne fut que très peu affecté. Il regarda le Serpent Moongazer, puis le cadavre féminin qui lui avait été projeté.
+Wang Lin fut le premier à prendre conscience de la situation, il était donc parfaitement préparé. Un instant avant que le doigt du Dieu Antique n'explose, il s'était déjà retiré et avait activé le fourneau du Dieu Antique. En conséquence, il ne fut que très peu affecté. Il regarda le Serpent aux yeux de lune, puis le cadavre féminin qui lui avait été projeté.
 
 Dès qu'il eut aperçu ce cadavre raffiné, l'idée de le dérober germa en lui. Lorsque le doigt du Dieu Antique explosa, il ajusta délibérément sa trajectoire dans l'unique but de s'emparer de ce corps d'argent.
 
@@ -58,13 +58,13 @@ Si ce cadavre n'avait présenté que cette étrange particularité, Wang Lin l'a
 
 Tout en reculant, sa main gauche traça un sceau et il appliqua d'innombrables restrictions sur le cadavre, y injectant également une bouchée d'énergie d'origine. Après l'avoir rangé dans son sac, il s'élança à travers l'espace en pleine désintégration.
 
-L'effondrement avait engendré un vortex gigantesque, créant une aspiration puissante capable de tout dévorer. Seul le Serpent Moongazer pouvait ignorer cette force, massacrant ses ennemis avec frénésie.
+L'effondrement avait engendré un vortex gigantesque, créant une aspiration puissante capable de tout dévorer. Seul le Serpent aux yeux de lune pouvait ignorer cette force, massacrant ses ennemis avec frénésie.
 
-À cet instant, plusieurs vieux monstres de l'Alliance encerclèrent le Serpent Moongazer pour l'empêcher d'avancer. Même le Saint Démon du Dragon Nuage s'approcha de la bête.
+À cet instant, plusieurs vieux monstres de l'Alliance encerclèrent le Serpent aux yeux de lune pour l'empêcher d'avancer. Même le Saint Démon du Dragon Nuage s'approcha de la bête.
 
-Cependant, le Dieu du Sang et sa suite encerclèrent également le Moongazer pour combattre les cultivateurs de l'Alliance. Les êtres de sang, apparaissant les uns après les autres, lançaient une offensive écrasante contre l'Alliance.
+Cependant, le Dieu du Sang et sa suite encerclèrent également le serpent aux yeux de lune pour combattre les cultivateurs de l'Alliance. Les êtres de sang, apparaissant les uns après les autres, lançaient une offensive écrasante contre l'Alliance.
 
-Des grondements successifs résonnaient avec les rugissements du Serpent Moongazer. Le combat entre Maître Étincelle et Wudo Chan faisait trembler le monde. Les fracas à l'intérieur du brouillard noir provoqué par leur affrontement étaient d'une intensité extrême.
+Des grondements successifs résonnaient avec les rugissements du Serpent aux yeux de lune. Le combat entre Maître Étincelle et Wudo Chan faisait trembler le monde. Les fracas à l'intérieur du brouillard noir provoqué par leur affrontement étaient d'une intensité extrême.
 
 Les fluctuations qui émanaient de leurs chocs étaient telles que même le Dieu du Sang et ses compagnons devaient s'en écarter.
 
@@ -102,4 +102,4 @@ La femme en robe bleue dit doucement: « Junior salue son Oncle-Maître. »
 
 L'estimé Xuan Bao observa le champ de bataille au loin et rit: « Petite fille, ton maître t'a laissé présider cette bataille et a ordonné que tous t'obéissent. Il a même délibérément choisi ce lieu pour l'affrontement. Une telle fortune ne se présente pas souvent. »
 
-En souriant, l'estimé Xuan Bao semblait totalement indifférent au combat. Ce n'est que lorsqu'il aperçut le Serpent Moongazer que ses pupilles se contractèrent. Il afficha alors un sourire empreint de mystère.
+En souriant, l'estimé Xuan Bao semblait totalement indifférent au combat. Ce n'est que lorsqu'il aperçut le Serpent aux yeux de lune que ses pupilles se contractèrent. Il afficha alors un sourire empreint de mystère.

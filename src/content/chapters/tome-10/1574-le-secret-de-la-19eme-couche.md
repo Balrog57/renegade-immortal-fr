@@ -25,7 +25,7 @@ Wang Lin s'était rendu de nombreuses fois sur les terres du Clan du Tatouage pa
 
 La 16ème couche abritait treize cercueils ornés de tatouages scintillants. Ces treize cercueils étaient disposés en cercle autour d'un bassin noir, dégageant une aura glaciale qui se répandait dans toute la zone. Les cercueils étaient tels que Wang Lin les avait déjà vus: ils exhalaient un froid mortel. Les cadavres qui reposaient à l'intérieur étaient les ancêtres du Clan du Tatouage.
 
-L'entrée de la 17ème couche se trouvait dans le bassin noir. Wang Lin scruta le bassin et repéra un sceau. Ce sceau ne pouvait être brisé que par des cultivateurs de niveau Corporeal Yang ou supérieur. À l'époque, Wang Lin n'avait pu entrer lui-même et avait dû compter sur la force de Big Head.
+L'entrée de la 17ème couche se trouvait dans le bassin noir. Wang Lin scruta le bassin et repéra un sceau. Ce sceau ne pouvait être brisé que par des cultivateurs de niveau Yang Corporel ou supérieur. À l'époque, Wang Lin n'avait pu entrer lui-même et avait dû compter sur la force de Big Head.
 
 Désormais, Wang Lin s'avança calmement. Lorsqu'il approcha du bassin, celui-ci ne put résister à la pression exercée par son corps. Le bassin s'effondra, révélant un vortex géant. Le vortex aspira l'eau noire et dévoila l'entrée de la couche suivante. Wang Lin y plongea et disparut.
 

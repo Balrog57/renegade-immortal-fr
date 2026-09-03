@@ -62,7 +62,7 @@ Tout cela était dû au manque de Flammes Joss, l'élément le plus crucial pour
 
 La seule façon d'obtenir des Flammes Joss pour permettre à son essence de croître était de se rendre dans le Monde Extérieur ou de devenir un espion du Monde Extérieur, tel que... le Daoïste Water!
 
-Nirvana Void, Spirit Void, Arcane Void et Void Tribulant constituaient les quatre grandes étapes du troisième pas. Le Nirvana Void n'était pas si terrible, mais atteindre le Spirit Void était pratiquement impossible.
+Vide du Nirvana, Vide Spirituel, Vide Arcanique et Tribulant du Vide constituaient les quatre grandes étapes du troisième pas. Le Vide du Nirvana n'était pas si terrible, mais atteindre le Vide Spirituel était pratiquement impossible.
 
 Lorsque le Seigneur du Royaume Scellé descendit, le premier problème qu'il dut résoudre fut celui des Flammes Joss. Il unifia les quatre Royaumes Célestes pour en faire un trésor puissant afin de contrer l'absorption de la Formation du Royaume Scellé.
 
@@ -100,7 +100,7 @@ Il fit un pas en avant, sur le point de fusionner avec le monde, quand soudain i
 
 Trois éclairs de foudre le poursuivaient. C'étaient les trois cultivateurs du troisième pas du Système Stellaire Antique qui le traquaient de près!
 
-Le rugissement de Tuo Sen résonna parmi les étoiles. Être pourchassé par ces trois cultivateurs du troisième pas l'avait rendu féroce. Sans le cultivateur du Spirit Void, il ne se serait pas enfui. Chaque fois qu'il pensait à ce dernier, la rage de Tuo Sen montait.
+Le rugissement de Tuo Sen résonna parmi les étoiles. Être pourchassé par ces trois cultivateurs du troisième pas l'avait rendu féroce. Sans le cultivateur du Vide Spirituel, il ne se serait pas enfui. Chaque fois qu'il pensait à ce dernier, la rage de Tuo Sen montait.
 
 Bien qu'impulsif, il n'en demeurait pas moins rusé. Ces trois individus devaient avoir un dessein bien précis en le traquant ainsi! Cependant, alors qu'il était sur le point de rattraper et de dévorer Wang Lin, les trois l'entraillèrent davantage. Cela fit atteindre à la colère de Tuo Sen son paroxysme.
 

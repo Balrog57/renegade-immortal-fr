@@ -124,18 +124,18 @@ C'est à cet instant qu'une voix faible, empreinte d'incertitude, retentit:
 
 Wang Ping s'arrêta, se retourna et son regard croisa celui d'une villageoise. C'était une femme d'environ quarante ans. Elle semblait un peu vieillie, mais aux yeux de Wang Ping, il crut voir la jeune fille qui lui avait dit: « Je te déteste ».
 
-À ce même instant, non loin de la lointaine planète Yun Xia, Greed fonçait comme une météorite. Il observa la planète Yun Xia en reniflant, ses yeux brillant d'une lueur étrange.
+À ce même instant, non loin de la lointaine planète Yun Xia, Cupidité fonçait comme une météorite. Il observa la planète Yun Xia en reniflant, ses yeux brillant d'une lueur étrange.
 
 « Dès mon entrée dans le domaine nord, j'ai eu l'intuition qu'un trésor se cachait ici et j'ai suivi son aura. Cette odeur m'a conduit jusqu'ici. Il n'y a aucun doute, la brume dense dissimule manifestement la lumière du trésor. »
 
 « Cependant, cette planète semble un peu étrange! »
 
-Greed fixa la planète Yun Xia un instant. Après une courte hésitation, il s'élança vers elle. Dans toute sa vie, il n'était jamais allé dans un endroit dépourvu de trésor; il possédait une intuition terrifiante pour débusquer les richesses cachées.
+Cupidité fixa la planète Yun Xia un instant. Après une courte hésitation, il s'élança vers elle. Dans toute sa vie, il n'était jamais allé dans un endroit dépourvu de trésor; il possédait une intuition terrifiante pour débusquer les richesses cachées.
 
 À mesure qu'il se rapprochait, son cœur battait la chamade et ses yeux brillaient de plus belle.
 
-« Je n'ai ressenti cela que lorsque j'ai obtenu ce fourneau géant. Se pourrait-il qu'un trésor comparable à ce fourneau se trouve ici? » Les yeux de Greed étaient empreints d'excitation. À cet instant, il oubliait totalement Wang Lin et les restrictions qui pesaient sur lui.
+« Je n'ai ressenti cela que lorsque j'ai obtenu ce fourneau géant. Se pourrait-il qu'un trésor comparable à ce fourneau se trouve ici? » Les yeux de Cupidité étaient empreints d'excitation. À cet instant, il oubliait totalement Wang Lin et les restrictions qui pesaient sur lui.
 
-Il serra les dents, frappa son sac de stockage, et le fourneau géant apparut devant lui. S'en servant pour frayer un chemin, Greed s'avança et disparut lentement dans la brume.
+Il serra les dents, frappa son sac de stockage, et le fourneau géant apparut devant lui. S'en servant pour frayer un chemin, Cupidité s'avança et disparut lentement dans la brume.
 
-« Ce vieux doit voir de quel genre de trésor il s'agit! » Greed se lécha les lèvres.
+« Ce vieux doit voir de quel genre de trésor il s'agit! » Cupidité se lécha les lèvres.

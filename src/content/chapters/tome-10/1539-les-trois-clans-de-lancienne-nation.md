@@ -34,7 +34,7 @@ Pourtant, malgré sa faible quantité, cette énergie spirituelle céleste faisa
 
 En raison de l'effondrement des sept étoiles, la seconde épreuve avait débuté prématurément. Cependant, avant que la puissance de cette épreuve ne puisse éclater, elle fut absorbée par la Perle Défiant le Ciel. Désormais, sa force physique était plusieurs fois supérieure à celle qu'il possédait auparavant. Chaque battement de son cœur semblait générer une onde invisible capable de secouer les environs!
 
-Un sentiment de puissance déferla dans le corps de Wang Lin. Il était confiant: même des cultivateurs du stade avancé du Nirvana Void ne pourraient s'échapper de son emprise! Peut-être qu'un cultivateur au sommet du Nirvana Void aurait la force de l'affronter!
+Un sentiment de puissance déferla dans le corps de Wang Lin. Il était confiant: même des cultivateurs du stade avancé du Vide du Nirvana ne pourraient s'échapper de son emprise! Peut-être qu'un cultivateur au sommet du Vide du Nirvana aurait la force de l'affronter!
 
 À présent, il était une fusion entre le Céleste et l'Ordre Antique; une mutation extrêmement rare parmi les vastes étoiles!
 
@@ -44,7 +44,7 @@ Même la Perle Défiant le Ciel semblait incapable d'interrompre ou de modifier 
 
 Si cette force de rejet n'était pas résolue, Wang Lin serait incapable de déployer sa pleine puissance. Chaque fois qu'il tenterait d'utiliser son énergie spirituelle céleste, une douleur intense le stopperait, entravé par son propre corps d'Ancien Dieu. Il ne pourrait alors manifester que vingt pour cent de sa force.
 
-Cependant, ces vingt pour cent suffisaient déjà à tuer instantanément un cultivateur du stade avancé du Nirvana Void! Wang Lin ignorait quelle serait l'ampleur de sa puissance totale, mais il était certain que des êtres tels que l'Estimé Nan Zhao ne feraient pas le poids!
+Cependant, ces vingt pour cent suffisaient déjà à tuer instantanément un cultivateur du stade avancé du Vide du Nirvana! Wang Lin ignorait quelle serait l'ampleur de sa puissance totale, mais il était certain que des êtres tels que l'Estimé Nan Zhao ne feraient pas le poids!
 
 De la même manière, sa force physique serait bridée par son origine céleste interne!
 

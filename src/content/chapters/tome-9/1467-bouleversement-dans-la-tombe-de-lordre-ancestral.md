@@ -14,17 +14,17 @@ Le changement intérieur provoqua également un bouleversement à l'extérieur.
 
 Dès l'apparition de la faille, la brume fut aspirée vers elle. Celle-ci semblait exercer une force d'aspiration colossale, engloutissant tout sur son passage. En un éclair, plus de la moitié fut absorbée, et le reste continuait d'être rapidement happé par la faille.
 
-Non loin de la Tombe de l'Ordre Ancestral, sur une plante morte, le corps principal de Great Desolation ouvrit les yeux. Son visage était pâle et son regard empreint d'une cruauté sans nom. Durant sa vie, il avait toujours aimé rompre ses promesses, mais tous ceux qui connaissaient cette habitude étaient morts, ce qui évitait que sa réputation ne se propage.
+Non loin de la Tombe de l'Ordre Ancestral, sur une plante morte, le corps principal de Grande Désolation ouvrit les yeux. Son visage était pâle et son regard empreint d'une cruauté sans nom. Durant sa vie, il avait toujours aimé rompre ses promesses, mais tous ceux qui connaissaient cette habitude étaient morts, ce qui évitait que sa réputation ne se propage.
 
 Bien qu'il eût entretenu une certaine amitié avec la deuxième génération de l'Oiseau Vermillon, comment cela pouvait-il rivaliser avec les bénéfices? C'était en raison de son tempérament qu'il n'avait presque aucun ami après des dizaines de milliers d'années de culture. Il laissa échapper un reniflement froid et son corps disparut. Il réapparut aussitôt devant la brume qui était aspirée avec rapidité.
 
 Son corps flottait dans la brume comme une montagne immobile tandis qu'il fixait le tumulte d'un regard glacial. Après avoir réfléchi un instant, une lueur de détermination brilla dans ses yeux.
 
-« Il n'y a aucune limite au niveau de culture de ceux qui peuvent entrer... » Great Desolation songea un moment, puis chargea sans hésitation dans la faille.
+« Il n'y a aucune limite au niveau de culture de ceux qui peuvent entrer... » Grande Désolation songea un moment, puis chargea sans hésitation dans la faille.
 
 Au moment où la faille commença à absorber la brume, une planète illusoire apparut au loin. La planète était recouverte d'un océan violet dont les vagues rugissaient. Dans les profondeurs de l'océan siégeait un vieil homme. À cet instant, il ouvrit les yeux et une lueur froide y jaillit.
 
-« Great Desolation a osé voler mon avatar, et cet individu a osé ruiner... mon plan! En ce moment même, un bouleversement se produit dans la tombe et la restriction d'entrée a disparu... » Le vieil homme réfléchit un instant puis agita la main. Les vagues déferlèrent devant lui et une porte gigantesque, façonnée par l'océan lui-même, apparut!
+« Grande Désolation a osé voler mon avatar, et cet individu a osé ruiner... mon plan! En ce moment même, un bouleversement se produit dans la tombe et la restriction d'entrée a disparu... » Le vieil homme réfléchit un instant puis agita la main. Les vagues déferlèrent devant lui et une porte gigantesque, façonnée par l'océan lui-même, apparut!
 
 Le vieil homme se leva et franchit le seuil de la porte. Sa silhouette surgit à l'extérieur de la Tombe de l'Ordre Ancestral. À cet instant, l'espace devant lui se distordit, semblant se diviser en neuf mondes. Une personne sortit de cette distorsion!
 
@@ -32,15 +32,15 @@ Il s'agissait d'un homme d'âge mûr au visage sombre. Dès son apparition, ses 
 
 « Puisque vous, Vieux Monstre aux Neuf Cieux, pouvez venir, alors ce vieil homme le peut aussi », répondit Dao Master Miao Yin d'une voix rauque. Les deux se dévisagèrent puis cessèrent de parler pour fixer la faille qui dévorait la brume.
 
-Après un moment, Dao Master Miao Yin dit soudainement: « Le Vieux Poison Great Desolation est déjà entré... »
+Après un moment, Dao Master Miao Yin dit soudainement: « Le Vieux Poison Grande Désolation est déjà entré... »
 
 Le Maître Démon Nine Heavens fronça les sourcils et demanda: « Pourrait-il s'agir d'un piège? »
 
 « Ce ne devrait pas être le cas... Quelqu'un capable de tendre un piège dans la Tombe de l'Ordre Ancestral ferait-il une chose pareille? » Les deux se regardèrent, le regard empreint de détermination.
 
-« Great Desolation doit être scellé! »
+« Grande Désolation doit être scellé! »
 
-« Je peux vous aider à sceller Great Desolation, mais je prendrai 60 % de ses trésors! »
+« Je peux vous aider à sceller Grande Désolation, mais je prendrai 60 % de ses trésors! »
 
 « C'est entendu, mais ce petit gars est à moi! »
 
@@ -62,7 +62,7 @@ Dao Master Miao Yin regarda l'homme en robe noire et demanda: « Divinez-vous qu
 
 Le Maître Démon Nine Heavens sourit et joignit les mains en signe de respect: « Il semble que vos blessures soient presque guéries. Si un accident survient, nous ne manquerons pas de vous solliciter. » Sans aucune hésitation, le Maître Démon Nine Heavens s'élança dans la faille. Celle-ci resta là, flottante. La silhouette floue en noir resta immobile et poussa un long soupir après un long moment.
 
-« J'espère que rien ne se passera... Deux des cinq maîtres: Arcane Void Great Desolation, Zhou Jin, ainsi que deux des Anciennes Concubines Célestes. Ils représentent 30 % de la puissance de mon Système des Anciennes Étoiles... Tous sont entrés dans la Tombe de l'Ordre Ancestral... Je suis inquiet... »
+« J'espère que rien ne se passera... Deux des cinq maîtres: Vide Arcanique Grande Désolation, Zhou Jin, ainsi que deux des Anciennes Concubines Célestes. Ils représentent 30 % de la puissance de mon Système des Anciennes Étoiles... Tous sont entrés dans la Tombe de l'Ordre Ancestral... Je suis inquiet... »
 
 À l'intérieur de la Tombe de l'Ordre Ancestral, les deux bras gigantesques avaient balayé l'espace comme pour détruire la première plateforme de rang 9, mais ils avaient en réalité ouvert une faille vers un autre monde.
 

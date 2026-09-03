@@ -26,19 +26,19 @@ Des scènes similaires se produisirent partout dans la Tombe de l'Ordre Antique,
 
 Parce que trop de cultivateurs étaient morts dans la mer de brouillard, les runes clignotaient frénétiquement à l'intérieur de la brume. Les survivants commencèrent à s'en emparer comme des fous.
 
-Personne ne pouvait rivaliser avec Great Desolation. Ses runes avaient déjà atteint un nombre considérable et, après en avoir dérobé quelques-unes de plus, une nouvelle plateforme de rang 5 vint de naître!
+Personne ne pouvait rivaliser avec Grande Désolation. Ses runes avaient déjà atteint un nombre considérable et, après en avoir dérobé quelques-unes de plus, une nouvelle plateforme de rang 5 vint de naître!
 
 Une fois devenue une plateforme de rang 5, il perçut les autres plateformes, et son expression changea.
 
-À la lisière de la huitième carte, Devil Master Nine Heavens venait tout juste de réprimer le sentiment troublant qui lui serrait le cœur. Son visage se décomposa soudainement, empreint d'une incrédulité totale. Pour la première fois, sa plateforme s'arrêta net.
+À la lisière de la huitième carte, Maître Démon des Neuf Cieux venait tout juste de réprimer le sentiment troublant qui lui serrait le cœur. Son visage se décomposa soudainement, empreint d'une incrédulité totale. Pour la première fois, sa plateforme s'arrêta net.
 
-« Impossible!! » Les yeux de Devil Master Nine Heavens étaient remplis d'horreur. Il sentait clairement que la plateforme qui avait atteint le rang 7 il y a seulement quelques heures venait de passer au rang 8!
+« Impossible!! » Les yeux de Maître Démon des Neuf Cieux étaient remplis d'horreur. Il sentait clairement que la plateforme qui avait atteint le rang 7 il y a seulement quelques heures venait de passer au rang 8!
 
 La toute première plateforme de rang 8!
 
-Ce changement dépassait toutes les attentes de Devil Master Nine Heavens. S'il n'avait pas pu le ressentir si nettement à travers la plateforme, il ne l'aurait jamais cru!
+Ce changement dépassait toutes les attentes de Maître Démon des Neuf Cieux. S'il n'avait pas pu le ressentir si nettement à travers la plateforme, il ne l'aurait jamais cru!
 
-« En moins d'une journée, cette personne est passée du rang 5 au rang 8... C'est... C'est... » Devil Master Nine Heavens haleta, stupéfait.
+« En moins d'une journée, cette personne est passée du rang 5 au rang 8... C'est... C'est... » Maître Démon des Neuf Cieux haleta, stupéfait.
 
 Il était initialement très confiant quant au fait qu'il serait le premier à atteindre le rang 8. Cependant, ce bouleversement soudain fit trembler son esprit.
 
@@ -52,7 +52,7 @@ Au-dessus de la mer de brouillard dans la huitième carte, la femme en blanc aff
 
 Elle savait pertinemment que si elle ne comprenait pas comment ce mystérieux individu avait pu augmenter le rang de sa plateforme aussi vite, il est fort probable que celui-ci atteigne le rang 9 dans quelques heures!
 
-Tout comme Devil Master Nine Heavens, elle n'autoriserait jamais une telle chose!
+Tout comme Maître Démon des Neuf Cieux, elle n'autoriserait jamais une telle chose!
 
 Dans la neuvième carte, la femme sur la plateforme située derrière Tuo Sen se leva. Son visage n'avait plus rien de charmant; il était désormais empreint d'une intention meurtrière pure.
 
@@ -66,9 +66,9 @@ La huitième carte apparut dans l'esprit de Wang Lin. La majeure partie de la To
 
 À cet instant, la voix antique résonna pour la quatrième fois!
 
-« Le palais céleste contient mon héritage. Une fois que la culture des membres de mon clan aura atteint ses limites, ils pourront emprunter la voie de l'Ordre Antique... Ensuite, quittez ce monde et retournez vers le monde natal de ce seigneur, retrouvez son clan... » Lorsque la voix se dissipa, Wang Lin sentit avec une clarté accrue que trois plateformes de rang 7 convergeaient rapidement vers lui. Il sentit également qu'au niveau de la cinquième carte, une nouvelle plateforme de rang 5 venait de naître. Wang Lin devina immédiatement que l'occupant de cette plateforme était Great Desolation!
+« Le palais céleste contient mon héritage. Une fois que la culture des membres de mon clan aura atteint ses limites, ils pourront emprunter la voie de l'Ordre Antique... Ensuite, quittez ce monde et retournez vers le monde natal de ce seigneur, retrouvez son clan... » Lorsque la voix se dissipa, Wang Lin sentit avec une clarté accrue que trois plateformes de rang 7 convergeaient rapidement vers lui. Il sentit également qu'au niveau de la cinquième carte, une nouvelle plateforme de rang 5 venait de naître. Wang Lin devina immédiatement que l'occupant de cette plateforme était Grande Désolation!
 
-Au même moment, Great Desolation se précipitait également vers lui.
+Au même moment, Grande Désolation se précipitait également vers lui.
 
 « Ma plateforme a progressé de trois rangs en moins d'une journée, je dois donc les avoir effrayés... Maintenant, ils viennent pour obtenir des réponses et me tuer. » L'expression de Wang Lin resta imperturbable et il laissa échapper un ricanement.
 
@@ -94,13 +94,13 @@ Les autres perdaient un temps précieux à chercher leur chemin dans la huitièm
 
 Alors qu'il progressait, un grondement de tonnerre retentit. Il dépassa prestement les quatre poursuivants pour pénétrer dans la septième carte.
 
-Devil Master Nine Heavens se trouvait également dans la septième carte, le visage extrêmement sombre. L'autre partie était comme un ver glissant qui esquivait habilement sa poursuite, comme s'il connaissait ses moindres mouvements.
+Maître Démon des Neuf Cieux se trouvait également dans la septième carte, le visage extrêmement sombre. L'autre partie était comme un ver glissant qui esquivait habilement sa poursuite, comme s'il connaissait ses moindres mouvements.
 
 « C'est sûrement parce que la plateforme de rang 8 peut ressentir les autres plateformes avec encore plus de clarté... » Les yeux du Maître Démon des Neuf Cieux s'illuminèrent et il confectionna un sceau manuel. Puis, il frappa violemment sa plateforme, la faisant bondir vers l'avant.
 
 La femme en blanc et la belle femme traversaient rapidement la Tombe de l'Ordre Antique, continuant de se rapprocher de Wang Lin.
 
-Il y avait aussi Great Desolation. Bien qu'il ne fût que de rang 5, en tant que cultivateur du troisième stade, il possédait des moyens pour accélérer le mouvement de sa plateforme. Il poursuivait lui aussi Wang Lin.
+Il y avait aussi Grande Désolation. Bien qu'il ne fût que de rang 5, en tant que cultivateur du troisième stade, il possédait des moyens pour accélérer le mouvement de sa plateforme. Il poursuivait lui aussi Wang Lin.
 
 Dans la septième carte, Wang Lin ouvrit soudainement les yeux. Il sentit clairement deux auras converger vers lui: l'une venant de la droite et l'autre de la gauche, toutes deux chargeant droit sur lui.
 

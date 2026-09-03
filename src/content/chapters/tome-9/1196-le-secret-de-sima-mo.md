@@ -22,7 +22,7 @@ Privé du clou aux sept couleurs, rien n'empêchait Wang Lin de recouvrer ses fo
 
 Le temps s'écoula et, en un clin d'œil, deux jours passèrent. Wang Lin ouvrit les yeux, qui brillèrent comme des éclairs dans l'obscurité du tunnel. Il se leva et étira ses membres; ses blessures étaient presque totalement guéries. Son âme originelle n'était plus affaiblie et son énergie originelle avait pleinement été restaurée au cours de ces deux jours de culture.
 
-Il était de nouveau à son apogée. Même si le Maître Ashen Pine n'avait pas été blessé, Wang Lin pourrait à nouveau l'affronter!
+Il était de nouveau à son apogée. Même si le Maître Pin Cendré n'avait pas été blessé, Wang Lin pourrait à nouveau l'affronter!
 
 En un éclair, il jaillit du passage et apparut dans la vallée. Il prit une profonde inspiration, songeant aux périls qu'il venait de traverser. D'un revers de main, le clou aux sept couleurs apparut dans sa paume.
 
@@ -38,19 +38,19 @@ Tout en réfléchissant, la main droite de Wang Lin plongea dans le vide pour ex
 
 Puis il sortit un autre objet: la courte épée qui avait été plantée dans l'os de la bête dans la caverne. Malheureusement, il ne pouvait pas encore briser son sceau; il la rangea donc après l'avoir observée.
 
-La dernière chose qu'il retira fut la petite âme naissante appartenant au Maître Ashen Pine. Bien qu'affaiblie, elle arborait toujours une expression féroce et rugissait contre Wang Lin.
+La dernière chose qu'il retira fut la petite âme naissante appartenant au Maître Pin Cendré. Bien qu'affaiblie, elle arborait toujours une expression féroce et rugissait contre Wang Lin.
 
 « Cette chose est intéressante. » Wang Lin cracha un filet d'énergie originelle pour l'envelopper. Il l'avala ensuite, la laissant se raffiner au sein de son âme originelle. Cet être ressemblait à une âme naissante mais possédait aussi les propriétés d'un trésor; c'était une véritable énigme. Bien que Wang Lin ignorât son origine, cela ne l'empêchait pas de procéder à sa purification.
 
-Il allait la raffiner avec son âme originelle afin d'effacer la marque du Maître Ashen Pine. Elle lui appartiendrait alors tout entière, et il pourrait l'étudier en temps voulu.
+Il allait la raffiner avec son âme originelle afin d'effacer la marque du Maître Pin Cendré. Elle lui appartiendrait alors tout entière, et il pourrait l'étudier en temps voulu.
 
-« Bien que le Maître Ashen Pine et moi ayons tous deux été gravement blessés et que j'aie subi de lourdes pertes, j'ai aussi beaucoup gagné. La fiole de jade contenant le liquide noir, le clou aux sept couleurs, l'âme naissante ensanglantée et l'épée cristalline! » Wang Lin agita la main et le trident apparut dans sa paume. En le secouant, une petite épée cristalline s'en échappa.
+« Bien que le Maître Pin Cendré et moi ayons tous deux été gravement blessés et que j'aie subi de lourdes pertes, j'ai aussi beaucoup gagné. La fiole de jade contenant le liquide noir, le clou aux sept couleurs, l'âme naissante ensanglantée et l'épée cristalline! » Wang Lin agita la main et le trident apparut dans sa paume. En le secouant, une petite épée cristalline s'en échappa.
 
-Lorsqu'il saisit l'épée, il ressentit l'aura d'un trésor de niveau Pseudo-Nirvana Void. Bien qu'elle ne fût pas à la hauteur de l'épée de fer, sa puissance n'était pas ordinaire.
+Lorsqu'il saisit l'épée, il ressentit l'aura d'un trésor de niveau Pseudo-Vide du Nirvana. Bien qu'elle ne fût pas à la hauteur de l'épée de fer, sa puissance n'était pas ordinaire.
 
-Après avoir répertorié ses nouveaux biens, les yeux de Wang Lin s'illuminèrent. Au vu des richesses du Maître Ashen Pine, il n'était pas difficile de deviner que ce Royaume aux Sept Couleurs regorgeait de trésors. La plupart des possessions du Maître Ashen Pine devaient provenir d'ici, notamment ces perles capables d'invoquer des sorts.
+Après avoir répertorié ses nouveaux biens, les yeux de Wang Lin s'illuminèrent. Au vu des richesses du Maître Pin Cendré, il n'était pas difficile de deviner que ce Royaume aux Sept Couleurs regorgeait de trésors. La plupart des possessions du Maître Pin Cendré devaient provenir d'ici, notamment ces perles capables d'invoquer des sorts.
 
-« C'est une véritable mine d'or. Si le Maître Ashen Pine a pu obtenir de tels trésors, je le pourrai aussi... Les combats futurs dépendront de notre capacité à obtenir les trésors et les pilules les plus puissants pour élever notre niveau de culture! » Wang Lin se lécha les lèvres et s'élança dans la vallée.
+« C'est une véritable mine d'or. Si le Maître Pin Cendré a pu obtenir de tels trésors, je le pourrai aussi... Les combats futurs dépendront de notre capacité à obtenir les trésors et les pilules les plus puissants pour élever notre niveau de culture! » Wang Lin se lécha les lèvres et s'élança dans la vallée.
 
 Son premier objectif: la grotte de Sima Mo, telle que révélée par les souvenirs de Pang Decai!
 
@@ -74,7 +74,7 @@ La vallée était protégée par deux couches de restrictions. La première éta
 
 Cependant, grâce à sa compréhension profonde des restrictions, Wang Lin en perçut immédiatement le mécanisme. Il leva la main pour faire apparaître la seconde couche, révélant ainsi la véritable apparence de la grotte.
 
-Contemplant la lumière noire, Wang Lin esquissa un sourire amer. Cette lueur était identique à celle qui protégeait l'endroit où le Maître Ashen Pine avait récupéré la fiole; les deux étaient des Restrictions Temporelles!
+Contemplant la lumière noire, Wang Lin esquissa un sourire amer. Cette lueur était identique à celle qui protégeait l'endroit où le Maître Pin Cendré avait récupéré la fiole; les deux étaient des Restrictions Temporelles!
 
 Il posa sa main droite sur la lumière et réfléchit. Sa maîtrise des restrictions lui permettait de calculer que ce verrou datait de près de 20 000 ans. Bien qu'elle ne fût pas comparable à celle entourant la fiole de jade, elle resterait difficile à briser, à moins de sacrifier de précieux trésors pour l'ouvrir par la force.
 

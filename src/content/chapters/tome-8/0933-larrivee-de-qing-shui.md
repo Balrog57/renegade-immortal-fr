@@ -12,7 +12,7 @@ Ce bras mesurait cent mille pieds de long et se terminait par un poing massif. D
 
 La colère du Serpent Clair de Lune était semblable au doigt d'un dieu ancien! Cependant, lorsque sa fureur atteindrait son paroxysme, elle serait comparable au bras d'un dieu ancien!
 
-Dès l'apparition de ce bras divin, il chargea impitoyablement. Sa cible était la Flèche du Pseudo-Nirvana Void!
+Dès l'apparition de ce bras divin, il chargea impitoyablement. Sa cible était la Flèche du Pseudo-Vide du Nirvana!
 
 Ce coup provoqua chez Wang Lin une véritable illusion. Il eut l'impression de remonter les âges, jusqu'à cette époque antique où les dieux anciens renversaient les cieux!
 
@@ -20,7 +20,7 @@ Il vit un dieu ancien agiter son bras en rugissant. Les planètes s'effondraient
 
 À cet instant précis, le bras formé par le Serpent Clair de Lune était semblable à cela. Le coup partit et percuta la flèche. Celle-ci trembla, puis s'effondra instantanément!
 
-Même un trésor de niveau Pseudo-Nirvana Void devait se briser sous le poing d'un dieu ancien!
+Même un trésor de niveau Pseudo-Vide du Nirvana devait se briser sous le poing d'un dieu ancien!
 
 L'Estimé Xuan Bao cracha un sang noir et recula sans hésiter. Cependant, à cet instant même, une énergie d'un froid glacial envahit les étoiles. Simultanément, un éclair rouge jaillit soudainement.
 
@@ -80,11 +80,11 @@ Tous les sorts disparus, y compris l'« Appel du Vent et Convocation de la Pluie
 
 Dans un rugissement, il tendit le bras et repoussa immédiatement l'attaque. Une partie servit à stopper le Serpent Clair de Lune, tandis que l'autre fut dirigée contre Qing Shui.
 
-Profitant de cette ouverture, l'Estimé Xuan Bao battit en retraite rapidement. Mais la foudre rouge le poursuivait sans relâche, lui causant un véritable tourment. Si la Flèche du Pseudo-Nirvana Void était encore là, il aurait pu affronter Qing Shui sans crainte!
+Profitant de cette ouverture, l'Estimé Xuan Bao battit en retraite rapidement. Mais la foudre rouge le poursuivait sans relâche, lui causant un véritable tourment. Si la Flèche du Pseudo-Vide du Nirvana était encore là, il aurait pu affronter Qing Shui sans crainte!
 
 En songeant à sa flèche, il ressentit une douleur au cœur. Il ne s'attendait pas à ce que ce Serpent Clair de Lune soit aussi puissant; il différait trop des spécimens décrits dans les textes anciens.
 
-Autrement, il ne serait pas venu ici. Non seulement il avait échoué, mais il avait également perdu son unique trésor de niveau Pseudo-Nirvana Void. Il pouvait imaginer à quel point son statut au sein du groupe des Anciens allait s'effondrer.
+Autrement, il ne serait pas venu ici. Non seulement il avait échoué, mais il avait également perdu son unique trésor de niveau Pseudo-Vide du Nirvana. Il pouvait imaginer à quel point son statut au sein du groupe des Anciens allait s'effondrer.
 
 Et maintenant, il tombait nez à nez avec le démon de Qing Shui. Bien qu'il ignorât comment ce dernier avait survécu, lui-même étant parvenu jusqu'ici, ce Qing Shui devait sûrement posséder ses propres méthodes.
 

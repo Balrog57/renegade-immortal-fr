@@ -18,11 +18,11 @@ L'expression de Wang Lin était extrêmement grave alors qu'il observait les pet
 
 Cela signifiait qu'il y avait virtuellement un nombre illimité de ces petites créatures. Leur principal mode d'attaque reposait sur le sens divin et les ondes sonores. Bien que leurs assauts fussent assez puissants, leurs corps étaient d'une fragilité extrême.
 
-Par conséquent, détruire ces petites créatures était une tâche aisée, surtout pour quelqu'un comme Hunchback Meng qui n'avait qu'à libérer un peu de poison. Cependant, Wang Lin ne pouvait oublier ce qu'il avait vu du sommet de la dernière tour noire: d'innombrables tornades noires se rassemblant en un seul point.
+Par conséquent, détruire ces petites créatures était une tâche aisée, surtout pour quelqu'un comme Bossu Meng qui n'avait qu'à libérer un peu de poison. Cependant, Wang Lin ne pouvait oublier ce qu'il avait vu du sommet de la dernière tour noire: d'innombrables tornades noires se rassemblant en un seul point.
 
 Un tel mouvement était intentionnel, ce qui signifiait que ces créatures possédaient un moyen de s'appeler les unes les autres. Lorsqu'un nombre trop important d'entre elles mourait, elles appelaient leurs semblables. S'il se retrouvait pris dans ce cycle vicieux, il finirait inévitablement par mourir. Il y avait tout simplement trop de tornades.
 
-De plus, s'il en tuait trop, elles pourraient attirer les tornades noires qui se dirigeaient vers Hunchback Meng. Si cela arrivait, ce ne serait pas Meng qui lui ouvrirait la voie, mais Wang Lin qui devrait aider Meng en détournant l'attention des tourbillons.
+De plus, s'il en tuait trop, elles pourraient attirer les tornades noires qui se dirigeaient vers Bossu Meng. Si cela arrivait, ce ne serait pas Meng qui lui ouvrirait la voie, mais Wang Lin qui devrait aider Meng en détournant l'attention des tourbillons.
 
 Lors de la bataille précédente, environ deux cents de ces créatures avaient été annihilées par Wang Lin et le démon. Ses yeux étincelèrent tandis qu'il fixait les petites bêtes à l'extérieur. Les créatures se regroupaient à nouveau pour former une tornade noire. Après avoir tournoyé plusieurs fois autour de la tour, elles cessèrent de s'intéresser à Wang Lin et poursuivirent leur progression.
 
@@ -110,45 +110,45 @@ Cependant, dès que ces sens divins touchèrent la tour noire, ils furent repous
 
 Wang Lin sentit clairement qu'une fluctuation anormale s'était produite au sein du brouillard rouge lors de l'arrivée des sens divins de la tornade. Cela l'incita à observer le brouillard avec une vigilance accrue.
 
-Peu à peu, de plus en plus de tornades noires apparurent, convergeant toutes vers une même direction. Wang Lin ricana; il n'avait pas besoin de deviner que cette direction était celle de Hunchback Meng.
+Peu à peu, de plus en plus de tornades noires apparurent, convergeant toutes vers une même direction. Wang Lin ricana; il n'avait pas besoin de deviner que cette direction était celle de Bossu Meng.
 
-Le visage de Hunchback Meng était extrêmement sombre. En vérité, lorsqu'il avait anéanti la première vague et s'était retrouvé instantanément encerclé par une seconde vague dix fois plus nombreuse, il avait compris son erreur.
+Le visage de Bossu Meng était extrêmement sombre. En vérité, lorsqu'il avait anéanti la première vague et s'était retrouvé instantanément encerclé par une seconde vague dix fois plus nombreuse, il avait compris son erreur.
 
 Ses actions étaient dictées par son expérience dans le monde de la glace, où des créatures apparaissaient également en groupes massifs et qu'il fallait éliminer promptement pour ne pas en attirer davantage.
 
-Mais cette maudite épreuve terrestre fonctionnait à l'inverse. Cette pensée fit esquisser un sourire amer à Hunchback Meng. Cependant, puisqu'il en était arrivé là, même s'il cessait de les attaquer, ces petites bêtes continueraient de le harceler par leurs ondes sonores et leurs attaques de sens divin.
+Mais cette maudite épreuve terrestre fonctionnait à l'inverse. Cette pensée fit esquisser un sourire amer à Bossu Meng. Cependant, puisqu'il en était arrivé là, même s'il cessait de les attaquer, ces petites bêtes continueraient de le harceler par leurs ondes sonores et leurs attaques de sens divin.
 
-Finalement, la face démoniaque de Hunchback Meng commença à poindre. Il renonça à se contenir et libéra d'immenses quantités de poison. En conséquence, les petites créatures appelèrent de l'aide sans relâche, au point que, bien qu'il fût protégé par une tour noire, la masse de créatures rassemblées finit par lui faire perdre la raison.
+Finalement, la face démoniaque de Bossu Meng commença à poindre. Il renonça à se contenir et libéra d'immenses quantités de poison. En conséquence, les petites créatures appelèrent de l'aide sans relâche, au point que, bien qu'il fût protégé par une tour noire, la masse de créatures rassemblées finit par lui faire perdre la raison.
 
 Il se tenait là, observant les innombrables tornades noires. Le nombre de créatures ne cessait de croître à mesure qu'elles appelaient des renforts. Il avait tenté d'utiliser la tour comme bastion pour projeter son poison, mais la tour possédait une restriction puissante: si elle empêchait les créatures d'attaquer l'intérieur, elle interdisait aussi aux occupants de frapper l'extérieur.
 
-Hunchback Meng ignorait ce qui l'attendrait s'il quittait la tour. Il était certain qu'au moment de franchir le seuil, il recevrait la puissance combinée des sens divins et des ondes sonores de cent millions, voire un milliard de créatures.
+Bossu Meng ignorait ce qui l'attendrait s'il quittait la tour. Il était certain qu'au moment de franchir le seuil, il recevrait la puissance combinée des sens divins et des ondes sonores de cent millions, voire un milliard de créatures.
 
 Même en tant que cultivateur de la Formation de l'Âme, capable de faire trembler dix millions de cultivateurs d'un seul pas, il était incapable de supporter une telle déferlante.
 
 Après réflexion, il toucha le crapaud sur son épaule avec une expression féroce. Sans un mot, il lui fit signe. Le crapaud sauta de son épaule et se mit à croasser.
 
-Le cœur de Hunchback Meng se serra en regardant l'animal. Il soupira puis le rangea. Après un instant de réflexion, il sortit un python d'une trentaine de mètres de long. Sur la tête du serpent trônait une unique corne. Dès son apparition, l'air ambiant devint brûlant.
+Le cœur de Bossu Meng se serra en regardant l'animal. Il soupira puis le rangea. Après un instant de réflexion, il sortit un python d'une trentaine de mètres de long. Sur la tête du serpent trônait une unique corne. Dès son apparition, l'air ambiant devint brûlant.
 
-« Si j'utilise le crapaud, je ne serai pas blessé, mais il mourra à coup sûr. Ce python à une corne est une bête spirituelle de qualité moyenne... Je pourrai encore l'utiliser, mais je subirai des dommages », marmonna Hunchback Meng en se tranchant l'index avec le majeur pour en extraire une goutte de sang. Il entonna des incantations étranges et la goutte devint rapidement d'un blanc laiteux avant de se poser sur le front du python.
+« Si j'utilise le crapaud, je ne serai pas blessé, mais il mourra à coup sûr. Ce python à une corne est une bête spirituelle de qualité moyenne... Je pourrai encore l'utiliser, mais je subirai des dommages », marmonna Bossu Meng en se tranchant l'index avec le majeur pour en extraire une goutte de sang. Il entonna des incantations étranges et la goutte devint rapidement d'un blanc laiteux avant de se poser sur le front du python.
 
-Hunchback Meng exécuta rapidement des sceaux, le visage empreint de gravité. Il pointa lentement son propre front et en retira un fil cristallin semblable à de la soie. Il pressa ensuite ce fil contre la tache blanche sur le front du serpent.
+Bossu Meng exécuta rapidement des sceaux, le visage empreint de gravité. Il pointa lentement son propre front et en retira un fil cristallin semblable à de la soie. Il pressa ensuite ce fil contre la tache blanche sur le front du serpent.
 
-Après un long moment, Hunchback Meng prit une profonde inspiration, se leva et jeta négligemment le python au sol. Dès qu'il toucha terre, l'animal s'enroula sur lui-même et resta immobile.
+Après un long moment, Bossu Meng prit une profonde inspiration, se leva et jeta négligemment le python au sol. Dès qu'il toucha terre, l'animal s'enroula sur lui-même et resta immobile.
 
-Le regard de Hunchback Meng devint féroce alors qu'il sortait de la tour sans hésiter. À son contact avec l'extérieur, les hurlements des tornades noires décuplèrent. Toutes les petites créatures fusionnèrent leurs sens divins pour déchaîner un torrent d'attaques sur lui.
+Le regard de Bossu Meng devint féroce alors qu'il sortait de la tour sans hésiter. À son contact avec l'extérieur, les hurlements des tornades noires décuplèrent. Toutes les petites créatures fusionnèrent leurs sens divins pour déchaîner un torrent d'attaques sur lui.
 
 À cet instant, le ciel changea de couleur et les restrictions imposées au sommet de l'épreuve terrestre se mirent à trembler.
 
-Bien que Wang Lin ne fût pas proche de ce lieu, il en ressentit la pression. Il ouvrit les yeux et regarda vers Hunchback Meng.
+Bien que Wang Lin ne fût pas proche de ce lieu, il en ressentit la pression. Il ouvrit les yeux et regarda vers Bossu Meng.
 
 Simultanément, une fluctuation anormale survint dans le brouillard rouge, détournant son attention du combat de Meng. Il tendit la main et une flamme bleue apparut. Si le démon émergeant du brouillard n'était pas sous son contrôle, il utiliserait son Royaume Ji et la flamme bleue pour l'anéantir. S'il pouvait être maîtrisé, ce serait un atout.
 
-Lorsque l'attaque massive de sens divin frappa, Hunchback Meng ne chercha pas à l'esquiver mais agita ses manches. Une immense quantité de fumée noire s'en échappa. Cette fumée se rassembla pour former un nuage qui commença à se propager. Toute petite créature touchant ce nuage noir tombait du ciel en convulsant, son corps se transformant en fumée noire qui rejoignait le nuage.
+Lorsque l'attaque massive de sens divin frappa, Bossu Meng ne chercha pas à l'esquiver mais agita ses manches. Une immense quantité de fumée noire s'en échappa. Cette fumée se rassembla pour former un nuage qui commença à se propager. Toute petite créature touchant ce nuage noir tombait du ciel en convulsant, son corps se transformant en fumée noire qui rejoignait le nuage.
 
-Dès qu'il eut fini de libérer la fumée, la série d'attaques puissantes de sens divin atteignit sa cible. Hunchback Meng poussa un gémissement de douleur. Son corps devint de plus en plus illusoire jusqu'à être remplacé par le python à corne d'une trentaine de mètres de long. Le serpent se tortilla un instant avant d'être totalement désintégré par les attaques; même son noyau fut réduit en poussière.
+Dès qu'il eut fini de libérer la fumée, la série d'attaques puissantes de sens divin atteignit sa cible. Bossu Meng poussa un gémissement de douleur. Son corps devint de plus en plus illusoire jusqu'à être remplacé par le python à corne d'une trentaine de mètres de long. Le serpent se tortilla un instant avant d'être totalement désintégré par les attaques; même son noyau fut réduit en poussière.
 
-Au même moment, l'image du python à l'intérieur de la tour devint floue et se transmuta en Hunchback Meng. Son visage était livide et il cracha une bouchée de sang. Il afficha un sourire sanguinaire: « Mon poison destructeur du ciel est le plus redoutable de la Mer des Démons, et je l'ai utilisé en totalité. Je ne crois pas que je sois incapable de vous tuer tous! »
+Au même moment, l'image du python à l'intérieur de la tour devint floue et se transmuta en Bossu Meng. Son visage était livide et il cracha une bouchée de sang. Il afficha un sourire sanguinaire: « Mon poison destructeur du ciel est le plus redoutable de la Mer des Démons, et je l'ai utilisé en totalité. Je ne crois pas que je sois incapable de vous tuer tous! »
 
 Le nuage noir recouvrait désormais toute la zone autour de la tour. Dès qu'il entrait en contact avec une tornade, celle-ci s'effondrait en une multitude de petites créatures qui, aussitôt, se transformaient en fumée noire pour nourrir le nuage. Par conséquent, ce dernier grandissait et s'étendait à une vitesse fulgurante.
 

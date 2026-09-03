@@ -96,7 +96,7 @@ Wang Lin observa attentivement "Richesse" avant de la ranger dans son sac de ran
 
 Dans son sac de rangement, la bête moustique ouvrit les yeux avec un air dubitatif. Normalement, à l'intérieur d'un sac, à moins d'utiliser un sort prodigieux, elle ne devrait rien ressentir de l'extérieur. Pourtant, à cet instant, elle percevait de nombreuses auras lui procurant une sensation très familière. Après avoir hésité, la moustique ne parvint pas à identifier la source. Elle regarda le crapaud tonnerre qui dormait toujours, se coucha sur son dos et ferma les yeux.
 
-Grâce à la vitesse de Zhou Yi, ils se rapprochèrent de l'entrée du Pays des Démons de Feu... Tout en approchant de la brume et de l'immense nuée de moustiques entourant Greed et son groupe...
+Grâce à la vitesse de Zhou Yi, ils se rapprochèrent de l'entrée du Pays des Démons de Feu... Tout en approchant de la brume et de l'immense nuée de moustiques entourant Cupidité et son groupe...
 
 Dans les Terres des Esprits Démoniaques, un nuage fonçait depuis le sud. Ce nuage était imprégné d'énergie spirituelle céleste, comme s'il provenait du Royaume Céleste. Il émettait des éclats de lumière qui coloraient le ciel lors de son passage.
 

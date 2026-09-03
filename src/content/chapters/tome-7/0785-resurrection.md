@@ -114,7 +114,7 @@ Simultanément, neuf fragments du Royaume Céleste du Tonnerre tremblèrent viol
 
 Ces formations, profondément gravées dans la terre, émettaient une puissante lumière rouge. Ce changement soudain et radical plongea les cultivateurs du Royaume Céleste du Tonnerre dans la confusion et l'effroi.
 
-L'un des neuf fragments s'effondra. Ce n'était pas l'usage d'une puissance dépassant le Nirvana Scryer, mais une puissance dépassant le Nirvana Scryer qui avait jailli de l'intérieur.
+L'un des neuf fragments s'effondra. Ce n'était pas l'usage d'une puissance dépassant le Scruteur du Nirvana, mais une puissance dépassant le Scruteur du Nirvana qui avait jailli de l'intérieur.
 
 Le fragment se désintégra strate après strate tandis qu'une aura terrifiante jaillissait de son centre. Parmi les cultivateurs en fuite, certains découvrirent immédiatement que cette aura provenait d'un bras sectionné!
 

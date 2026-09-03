@@ -8,7 +8,7 @@ slug: trois-sceaux
 ---
 Chapitre 1522 - Trois Sceaux!
 
-Des années plus tard, un cultivateur ayant participé à la première bataille du Sceau Nuageux passa d'un faible niveau de Scryer du Nirvana à celui de cultivateur du Premier Ciel de la Fléau Divin. Il était désormais l'Ancien principal d'une petite secte dans la Mer des Nuages.
+Des années plus tard, un cultivateur ayant participé à la première bataille du Sceau Nuageux passa d'un faible niveau de Scruteur du Nirvana à celui de cultivateur du Premier Ciel de la Fléau Divin. Il était désormais l'Ancien principal d'une petite secte dans la Mer des Nuages.
 
 Il était qualifié pour enseigner le Dao et, lors de l'une de ses conférences, un disciple lui demanda ce qu'était la gloire!
 

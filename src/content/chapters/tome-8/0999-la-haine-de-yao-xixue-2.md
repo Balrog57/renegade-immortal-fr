@@ -48,7 +48,7 @@ D'innombrables entraves protégeaient l'intérieur de la grotte céleste. Il fal
 
 De plus, Wang Lin possédait toujours le jeton de la grotte. Tant qu'il se trouvait sur la Terre des Esprits Démoniaques, il pouvait y pénétrer à tout moment. Avec son niveau actuel de culture, il lui suffisait d'apporter quelques modifications mineures au jeton pour que Situ Nan et les autres ne soient pas attaqués par l'esprit de la grotte.
 
-Une fois ce problème résolu, Wang Lin réfléchit un instant, puis son sens divin se déploya lentement. Avec sa culture actuelle de Nirvana Scryer, il couvrit aisément l'intégralité de la Terre des Esprits Démoniaques!
+Une fois ce problème résolu, Wang Lin réfléchit un instant, puis son sens divin se déploya lentement. Avec sa culture actuelle de Scruteur du Nirvana, il couvrit aisément l'intégralité de la Terre des Esprits Démoniaques!
 
 Alors que le sens divin de Wang Lin s'étendait, celui contenu dans la statue de pierre noire vénérée par le Clan des Âmes Raffinées libéra soudainement une lueur noire. Cette lumière était imprégnée d'une froideur infinie, et une force mystérieuse jaillit vers les cieux. Dès qu'elle entra en contact avec le sens divin de Wang Lin, elles fusionnèrent.
 

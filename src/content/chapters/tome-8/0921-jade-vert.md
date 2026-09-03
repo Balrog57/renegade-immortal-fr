@@ -8,13 +8,13 @@ slug: jade-vert
 ---
 Le tremblement provenant de son corps originel fit briller les yeux de Wang Lin. Les étoiles de l'Ancien Dieu entre ses sourcils vacillèrent. Il prit une profonde inspiration pour réprimer ce tressaillement, et les étoiles cessèrent de scintiller.
 
-Fixant au loin le Serpent Moongazer et ses innombrables tentacules oscillantes, Wang Lin était profondément choqué.
+Fixant au loin le Serpent aux yeux de lune et ses innombrables tentacules oscillantes, Wang Lin était profondément choqué.
 
-« À l'époque, j'ai emprunté le Serpent Moongazer pour exterminer la famille Yao et je me suis caché à l'intérieur de son corps. Je pensais que quelqu'un dans Allheaven savait quelque chose sur cette créature. Quel genre d'individu pourrait capturer le Serpent Moongazer pour l'envoyer dans l'Alliance comme une arme?! Serait-ce... lui?! » Wang Lin haleta, son esprit dérivant vers la silhouette qu'il avait croisée à deux reprises.
+« À l'époque, j'ai emprunté le Serpent aux yeux de lune pour exterminer la famille Yao et je me suis caché à l'intérieur de son corps. Je pensais que quelqu'un dans Allheaven savait quelque chose sur cette créature. Quel genre d'individu pourrait capturer le Serpent aux yeux de lune pour l'envoyer dans l'Alliance comme une arme?! Serait-ce... lui?! » Wang Lin haleta, son esprit dérivant vers la silhouette qu'il avait croisée à deux reprises.
 
 La première fois, c'était lors de la bataille entre Qing Shui et le Dieu de Sang. La seconde, lors des 108 bénédictions célestes, lorsqu'il avait déchiré le passage entre les deux systèmes stellaires!
 
-À cet instant, le sifflement produit par l'immense morceau de bois s'approchant du Serpent Moongazer devint de plus en plus assourdissant. Alors que les ondulations se rapprochaient, les cultivateurs derrière Wang Lin commencèrent à acclamer.
+À cet instant, le sifflement produit par l'immense morceau de bois s'approchant du Serpent aux yeux de lune devint de plus en plus assourdissant. Alors que les ondulations se rapprochaient, les cultivateurs derrière Wang Lin commencèrent à acclamer.
 
 Simultanément, ces derniers s'élancèrent avec détermination vers l'avant.
 
@@ -28,7 +28,7 @@ Ils se tenaient à la proue du bois colossal. Leurs vêtements ondulaient sans q
 
 Derrière eux se pressait le reste des cultivateurs. La plupart étaient les 108 célestes, mais Wang Lin remarqua aussi quelques visages inconnus. Toutefois, à l'examen des fluctuations de leurs âmes originelles, il comprit que ces individus n'étaient pas faibles: ils se situaient au sommet du stade Corporel Yang.
 
-On dénombrait dix personnes au stade Nirvana Scryer. Outre ces dix-là, trois autres attirèrent l'attention de Wang Lin. L'un d'eux était assis sur le côté droit du bois géant; vêtu d'une robe noire, il avait les cheveux blancs et un visage marqué par des cicatrices extrêmement étranges. Celles-ci n'étaient pas statiques, elles semblaient s'animer subtilement. Un seul regard sur elles suffisait à provoquer un frisson de terreur.
+On dénombrait dix personnes au stade Scruteur du Nirvana. Outre ces dix-là, trois autres attirèrent l'attention de Wang Lin. L'un d'eux était assis sur le côté droit du bois géant; vêtu d'une robe noire, il avait les cheveux blancs et un visage marqué par des cicatrices extrêmement étranges. Celles-ci n'étaient pas statiques, elles semblaient s'animer subtilement. Un seul regard sur elles suffisait à provoquer un frisson de terreur.
 
 Dès que le regard de Wang Lin se posa sur le vieil homme, celui-ci ouvrit les yeux et le fixa, affichant un sourire empreint d'une froide intention.
 
@@ -92,11 +92,11 @@ Tous les occupants du bois regardèrent Wang Lin, chacun avec une émotion diff�
 
 Le jeune homme aux trois flûtes de bambou ouvrit soudainement les yeux pour observer attentivement Wang Lin. Il hocha la tête sans dire un mot. La femme en robe de palais sourit davantage, tandis que le vieil homme en noir changea subtilement son regard.
 
-Ces trois-là possédaient des niveaux de culture élevés; étant au stade avancé du Nirvana Scryer, leur vision surpassait celle de tous. Ils comprirent d'un seul coup que l'acte de Wang Lin était extraordinaire.
+Ces trois-là possédaient des niveaux de culture élevés; étant au stade avancé du Scruteur du Nirvana, leur vision surpassait celle de tous. Ils comprirent d'un seul coup que l'acte de Wang Lin était extraordinaire.
 
 Cette explosion de puissance n'était pas uniquement composée d'énergie originelle; elle contenait aussi une trace de Loi. Les trois comprirent immédiatement ce point et accordèrent plus d'importance à Wang Lin. Bien que sa culture fût inférieure à la leur, ils le considéraient désormais comme un égal.
 
-Après tout, peu de cultivateurs au stade Nirvana Scryer parvenaient à comprendre les Lois.
+Après tout, peu de cultivateurs au stade Scruteur du Nirvana parvenaient à comprendre les Lois.
 
 Dans le monde de la culture, la force est souveraine. Pour obtenir la reconnaissance d'autrui, il faut atteindre leur niveau!
 
@@ -104,16 +104,16 @@ Debout aux côtés de Lie Yunzi, Wang Lin dit respectueusement: « Xu Mu salue l
 
 Après avoir parlé, il se tourna et joignit les mains en direction de l'ancêtre de la famille Shengong.
 
-Lie Yunzi esquissa un léger sourire. Mais au moment où il allait répondre, son expression changea. Derrière le bois géant, le Serpent Moongazer, avec ses innombrables tentacules oscillantes, se mit soudain à rugir comme s'il était devenu fou.
+Lie Yunzi esquissa un léger sourire. Mais au moment où il allait répondre, son expression changea. Derrière le bois géant, le Serpent aux yeux de lune, avec ses innombrables tentacules oscillantes, se mit soudain à rugir comme s'il était devenu fou.
 
 Ses yeux oscillaient entre la confusion et la lucidité alors qu'il fixait Wang Lin sur le bois. Ses rugissements redoublèrent de puissance. Les ondes sonores dévastatrices firent chanceler les esprits des cultivateurs alentour.
 
-Wang Lin se retourna et lança un regard froid au Serpent Moongazer. Il n'était pas surpris que la créature l'ait reconnu. Il connaissait bien ce serpent: il avait une mémoire infaillible pour ceux qui l'avaient poussé à bout. Il se souvenait évidemment de Wang Lin, qui l'avait provoqué à deux reprises!
+Wang Lin se retourna et lança un regard froid au Serpent aux yeux de lune. Il n'était pas surpris que la créature l'ait reconnu. Il connaissait bien ce serpent: il avait une mémoire infaillible pour ceux qui l'avaient poussé à bout. Il se souvenait évidemment de Wang Lin, qui l'avait provoqué à deux reprises!
 
 Prêt à charger dans sa rage, le monstre tendit ses tentacules vers le bois géant avec frénésie.
 
 Lie Yunzi fronça les sourcils et plongea la main droite dans le vide. Une faille s'ouvrit et un jade vert en sortit.
 
-Ce jade semblait tout à fait ordinaire, dépourvu de toute particularité. Lie Yunzi le saisit et le projeta vers le Serpent Moongazer. Sa vitesse était telle qu'il atteignit la créature en un instant. Le jade se brisa et une voix tonnante résonna:
+Ce jade semblait tout à fait ordinaire, dépourvu de toute particularité. Lie Yunzi le saisit et le projeta vers le Serpent aux yeux de lune. Sa vitesse était telle qu'il atteignit la créature en un instant. Le jade se brisa et une voix tonnante résonna:
 
 « Xun Yun Gou! » Ce son était d'une étrangeté et d'une complexité extrêmes. Aucun cultivateur environnant ne put le comprendre. Mais le cœur de Wang Lin fut saisi, car c'était la langue des Dieux Anciens! Après en avoir saisi le sens, même avec sa force mentale, l'expression de Wang Lin ne put s'empêcher de changer radicalement.

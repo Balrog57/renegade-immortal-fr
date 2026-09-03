@@ -58,7 +58,7 @@ La quantité d'esprit céleste nécessaire pour atteindre le sommet du stade Asc
 
 Seuls ceux qui avaient véritablement atteint la deuxième étape possédaient ce genre de pouvoir défiant les cieux.
 
-L'ancêtre de la famille Huan était un puissant cultivateur de la deuxième étape; son niveau de culture était celui du début du stade Nirvana Scryer!
+L'ancêtre de la famille Huan était un puissant cultivateur de la deuxième étape; son niveau de culture était celui du début du stade Scruteur du Nirvana!
 
 D'immenses quantités d'esprit céleste et d'innombrables fragments de Dao fusionnèrent pour être transférés dans le corps de Liu Mei par l'ancêtre. Ce dernier se souciait manifestement énormément de cette disciple et souhaitait qu'elle reprenne les rênes de la famille Huan; autrement, il n'aurait pas été prêt à entamer sa propre culture pour l'aider ainsi.
 
@@ -84,19 +84,19 @@ Liu Mei leva la tête. Elle ne daigna même pas regarder les dizaines de millier
 
 Elle n'emmena aucun serviteur et partit seule.
 
-À l'intérieur de la fissure terrestre, Wang Lin détourna son regard du Serpent Moongazer. La stupeur ne quittait pas ses yeux.
+À l'intérieur de la fissure terrestre, Wang Lin détourna son regard du Serpent aux yeux de lune. La stupeur ne quittait pas ses yeux.
 
-« Ce serpent mesure des dizaines de milliers de pieds de long, et sa puissance n'est pas inférieure à celle d'un cultivateur Nirvana Scryer. En l'absence de Dieux Anciens, ses capacités offensives ne sont pas exceptionnelles. Tant que je ne prends pas l'initiative de le provoquer, il devrait conserver sa première forme. »
+« Ce serpent mesure des dizaines de milliers de pieds de long, et sa puissance n'est pas inférieure à celle d'un cultivateur Scruteur du Nirvana. En l'absence de Dieux Anciens, ses capacités offensives ne sont pas exceptionnelles. Tant que je ne prends pas l'initiative de le provoquer, il devrait conserver sa première forme. »
 
 Wang Lin réfléchit un instant. Selon la mémoire du Dieu Ancien, ces parasites qui vivaient en lui possédaient trois formes. La première était celle qu'il venait de voir; elle n'avait aucune capacité offensive.
 
 Quant à la deuxième forme, tous les poils de son corps se rétracteraient et il prendrait diverses formes à l'intérieur du corps du Dieu Ancien. Cette seconde forme signifiait généralement qu'il dormait.
 
-La troisième et dernière forme apparaissait lors de l'attaque. Leurs poils s'étiraient pour atteindre une longueur équivalente à celle de leur corps. Si l'on croisait un serpent Moongazer dans cet état, il fallait fuir immédiatement sous peine d'être attaqué.
+La troisième et dernière forme apparaissait lors de l'attaque. Leurs poils s'étiraient pour atteindre une longueur équivalente à celle de leur corps. Si l'on croisait un serpent aux yeux de lune dans cet état, il fallait fuir immédiatement sous peine d'être attaqué.
 
 Tout en méditant, Wang Lin s'enfonça plus profondément dans la fissure. Il déploya son Sens Divin pour traquer le filon métallique.
 
-« Il est étrange qu'un serpent Moongazer apparaisse ici. Ce n'est pas une bête que je peux provoquer; mieux vaut l'ignorer et se concentrer sur la recherche du filon de métal. »
+« Il est étrange qu'un serpent aux yeux de lune apparaisse ici. Ce n'est pas une bête que je peux provoquer; mieux vaut l'ignorer et se concentrer sur la recherche du filon de métal. »
 
 La vitesse de Wang Lin était fulgurante alors qu'il continuait sa descente souterraine. Bientôt, il atteignit une impasse, mais sans s'arrêter, il chargea le mur. Son corps perça la paroi et il poursuivit sa descente en utilisant la technique d'évasion terrestre.
 
@@ -116,4 +116,4 @@ Après avoir pesé la situation, son regard devint résolu. D'un revers de la ma
 
 Il ne tarda pas à atteindre le cœur du gisement. Ce qui apparut devant lui était une veine gigantesque parsemée d'éclats de lumière dorée. Cette immense structure serpentait autour de la planète Yun Xia tel un dragon.
 
-Après une courte réflexion, Wang Lin avança lentement. Il sentait que quelque chose clochait. Depuis sa rencontre avec le serpent Moongazer, un pressentiment pesait sur son cœur.
+Après une courte réflexion, Wang Lin avança lentement. Il sentait que quelque chose clochait. Depuis sa rencontre avec le serpent aux yeux de lune, un pressentiment pesait sur son cœur.

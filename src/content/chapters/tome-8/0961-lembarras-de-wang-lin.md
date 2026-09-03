@@ -55,7 +55,7 @@ Wang Lin réfléchit un instant, puis regarda Zhao Xinmeng: « Est-ce pour cela 
 
 Zhao Xinmeng ne fut pas choquée par la clairvoyance de Wang Lin. Elle laissa poindre une trace d'amertume: « Que puis-je faire d'autre? Une partie de mon âme est entre les mains de Maître, je ne peux tout simplement pas partir. Même si je tentais de m'enfuir, il lui suffirait d'une pensée pour me détruire totalement. »
 
-« Beaucoup de gens scellent leur culture comme moi. Parmi eux, Sun Hong, de la Division Rouge, possède le niveau le plus élevé. Elle porte onze sceaux sur son corps, ce qui la force à rester au stade avancé de l'Ascendant. Elle a même altéré sa propre compréhension pour qu'elle ne corresponde pas à son véritable niveau de culture. Si elle levait les sceaux, elle pourrait rapidement atteindre le début du stade Nirvana Scryer. »
+« Beaucoup de gens scellent leur culture comme moi. Parmi eux, Sun Hong, de la Division Rouge, possède le niveau le plus élevé. Elle porte onze sceaux sur son corps, ce qui la force à rester au stade avancé de l'Ascendant. Elle a même altéré sa propre compréhension pour qu'elle ne corresponde pas à son véritable niveau de culture. Si elle levait les sceaux, elle pourrait rapidement atteindre le début du stade Scruteur du Nirvana. »
 
 « Il y a aussi Lu Hai, de la Division Rouge. S'il levait son sceau, son niveau de culture deviendrait immédiatement celui du sommet du Corporel Yang. »
 
@@ -107,7 +107,7 @@ Wang Lin se sentit très embarrassé. Malgré mille ans de culture et d'expérie
 
 Bai Wei haussa les sourcils et le fixa de son regard aquatique.
 
-Malgré sa culture au stade initial du Nirvana Scryer et son corps de Dieu Antique, Wang Lin fut presque incapable de soutenir ce regard. Il sourit amèrement: « Bai... Junior Sœur Bai, que me voulez-vous? »
+Malgré sa culture au stade initial du Scruteur du Nirvana et son corps de Dieu Antique, Wang Lin fut presque incapable de soutenir ce regard. Il sourit amèrement: « Bai... Junior Sœur Bai, que me voulez-vous? »
 
 L'expression de Bai Wei se détendit et elle murmura: « Wang Lin, tu n'aurais pas dû revenir! C'est difficile à dire ici, mais es-tu libre? Sur la planète Tian Yun, il existe un marché appelé l'Œil Fantôme. Si tu es disponible, j'ai quelque chose à t'informer en chemin. »
 

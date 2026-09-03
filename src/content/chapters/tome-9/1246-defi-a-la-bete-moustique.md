@@ -54,7 +54,7 @@ Ce n'était pas encore la partie la plus profonde du Royaume Céleste du Vent, m
 
 À cet instant précis, le corps du roi des moustiques trembla et sa vitesse diminua. Il afficha un regard féroce, fixé droit devant lui. À l'horizon, deux bêtes moustiques violettes approchaient. Elles étaient singulières, car elles semblaient si proches l'une de l'autre que, sans un examen attentif, on ne pourrait distinguer qu'un seul être.
 
-Une aura de cultivateurs au sommet du stade Nirvana Shatterer, infiniment proche de la première Affliction Céleste, émanait de ces deux bêtes violettes. Tous les insectes sur leur passage reculèrent.
+Une aura de cultivateurs au sommet du stade Briseur du Nirvana, infiniment proche de la première Affliction Céleste, émanait de ces deux bêtes violettes. Tous les insectes sur leur passage reculèrent.
 
 Dix mille bêtes moustiques défilaient avec le vent, mais lors du passage des deux géants violets, un sifflement retentit et l'essaim se dispersa immédiatement pour leur frayer un chemin.
 

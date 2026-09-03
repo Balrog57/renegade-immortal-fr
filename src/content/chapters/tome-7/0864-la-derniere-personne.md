@@ -6,13 +6,13 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 864- The Last Person
 slug: la-dernière-personne
 ---
-Certains cultivateurs de l'étape Nirvana Scryer avaient participé à la compétition pour les titres célestes, mais ils n'étaient pas nombreux. La plupart d'entre eux étaient considérés comme les ancêtres de leurs clans; ils étaient donc liés par leurs responsabilités familiales et devaient faire preuve d'une prudence extrême dans chacune de leurs actions et décisions.
+Certains cultivateurs de l'étape Scruteur du Nirvana avaient participé à la compétition pour les titres célestes, mais ils n'étaient pas nombreux. La plupart d'entre eux étaient considérés comme les ancêtres de leurs clans; ils étaient donc liés par leurs responsabilités familiales et devaient faire preuve d'une prudence extrême dans chacune de leurs actions et décisions.
 
 Si ces personnes s'engageaient dans une compétition peuplée de juniors, elles laisseraient derrière elles une réputation de prédateurs s'appropriant la gloire des plus jeunes. En fin de compte, cela nuirait gravement à leur prestige.
 
 Après tout, beaucoup avaient remarqué que les cent huit compétitions pour les titres célestes organisées par le Temple Céleste du Tonnerre étaient destinées à des juniors animés par une féroce intention de combat! Bien que cela ne fût pas explicitement déclaré, d'autres pouvaient le déduire grâce à divers indices.
 
-Par conséquent, il était rare que des cultivateurs au stade Nirvana Scryer y participent. Il en existait quelques-uns dans le Domaine Sud, mais comme ils étaient tous les ancêtres de différents clans, ils n'avaient aucun intérêt à se faire un ennemi de Wang Lin.
+Par conséquent, il était rare que des cultivateurs au stade Scruteur du Nirvana y participent. Il en existait quelques-uns dans le Domaine Sud, mais comme ils étaient tous les ancêtres de différents clans, ils n'avaient aucun intérêt à se faire un ennemi de Wang Lin.
 
 Après tout, le nom « Xu Mu » était devenu trop célèbre et celui de « Maître Démon » exhalait encore une odeur de sang. Ce Xu Mu avait toujours été discret, mais il agissait désormais avec une ostentation frappante. Il était clair qu'il visait la première place; autant la lui offrir. Il n'y avait aucun intérêt à rivaliser avec lui et à déclencher une querelle inutile.
 

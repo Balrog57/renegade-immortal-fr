@@ -44,7 +44,7 @@ Les Perdus, à l'extérieur de la vallée, retrouvèrent progressivement une lue
 
 Ces bêtes féroces de rang 12 ne dégageaient plus d'auras sauvages en leur quête du Dao.
 
-Maître Ashen Pine luttait pour protéger son esprit. C’était comme s'il pouvait être submergé par cette intention Dao chaotique à tout instant. Encore plus d'intentions Dao apparurent hors de la vallée.
+Maître Pin Cendré luttait pour protéger son esprit. C’était comme s'il pouvait être submergé par cette intention Dao chaotique à tout instant. Encore plus d'intentions Dao apparurent hors de la vallée.
 
 Le Royaume aux Sept Couleurs semblait tout entier saturé par les intentions Dao que Wang Lin avait abandonnées et qui étaient devenues tourmentées. C'était comme si d'innombrables intentions Dao entraient en collision.
 
@@ -54,7 +54,7 @@ Alors que Wang Lin continuait de s'éveiller, son esprit quitta progressivement 
 
 Son esprit s'étendit lentement, prenant la vallée pour centre. Lorsque sa conscience balaya les Éclairés, leurs corps tremblèrent tous.
 
-Les Perdus et les bêtes féroces subirent le même sort. Quant au Maître Ashen Pine, son cœur Dao s'effondra soudainement et ses yeux se remplirent de confusion.
+Les Perdus et les bêtes féroces subirent le même sort. Quant au Maître Pin Cendré, son cœur Dao s'effondra soudainement et ses yeux se remplirent de confusion.
 
 Rien de tout cela n'intéressait Wang Lin. Son esprit continua de s'étendre et il vit un homme robuste assis dans une grotte, au sein d'une montagne de la région extérieure. Les yeux de l'homme étaient empreints de panique alors qu'il fixait le vide. Il ouvrit la bouche, mais fut incapable de prononcer le moindre mot.
 

@@ -116,7 +116,7 @@ Chapitre 1455 - L'Apparition de la Main Géante
 
 L’estimé Ling Dong, qui venait tout juste de devenir un esclave ancien [1], n'avait pas encore été suffisamment affiné et ne pouvait donc être invoqué que peu de temps. Il n'y avait de la place que pour un seul coup. Wang Lin saisit cette opportunité cruciale et ordonna à l’esclave ancien d'attaquer.
 
-Le Maître Dao Miao Yin était l'un des cinq grands maîtres; ainsi, bien que sa culture fût supprimée, sa puissance demeurait inimaginable. S'il n'avait pas été pris par surprise par l'épée de sang de Wang Lin alors qu'il affrontait Great Desolation, puis frappé par le sort le plus puissant de ce dernier, il aurait été impossible pour Wang Lin de le blesser.
+Le Maître Dao Miao Yin était l'un des cinq grands maîtres; ainsi, bien que sa culture fût supprimée, sa puissance demeurait inimaginable. S'il n'avait pas été pris par surprise par l'épée de sang de Wang Lin alors qu'il affrontait Grande Désolation, puis frappé par le sort le plus puissant de ce dernier, il aurait été impossible pour Wang Lin de le blesser.
 
 Le plus important était que la compréhension que Miao Yin avait de Wang Lin s'était arrêtée à la Planète du Grand Empereur. Il n'aurait jamais pu imaginer que Wang Lin serait capable de prendre le contrôle de Ling Dong, qui se trouvait déjà à demi-pas du troisième niveau.
 
@@ -130,15 +130,15 @@ Cependant, juste après avoir reculé de quelques pas, Wang Lin se força à s'a
 
 Cet océan avait été empoisonné, dégageant une odeur nauséabonde. Les innombrables âmes des Flammes de Joss avaient déjà été imprégnées de poison, devenant des âmes empoisonnées incapables d'offrir leurs flammes.
 
-Toutefois, cet océan de poison était un trésor extrêmement rare pour Wang Lin. Il devait le dérober avant que Great Desolation ne s'en empare. Après l'avoir raffiné en une seule goutte grâce au Fourneau de l'Empereur, il contiendrait un poison capable de menacer les cultivateurs du troisième niveau.
+Toutefois, cet océan de poison était un trésor extrêmement rare pour Wang Lin. Il devait le dérober avant que Grande Désolation ne s'en empare. Après l'avoir raffiné en une seule goutte grâce au Fourneau de l'Empereur, il contiendrait un poison capable de menacer les cultivateurs du troisième niveau.
 
-Quant à Great Desolation, malgré ses paroles mielleuses, comment Wang Lin pouvait-il lui faire confiance? Ils ne collaboraient que par intérêt mutuel.
+Quant à Grande Désolation, malgré ses paroles mielleuses, comment Wang Lin pouvait-il lui faire confiance? Ils ne collaboraient que par intérêt mutuel.
 
 Les vieux monstres ayant cultivé pendant des dizaines de milliers d'années étaient tous rusés et ne devaient pas être sous-estimés. S'il avait pu rompre son vœu envers Miao Yin, il pourrait tout aussi bien trahir sa promesse envers Wang Lin. Wang Lin le savait parfaitement.
 
-C'est pourquoi il avait délibérément repoussé le Maître Dao Miao Yin lors de l'attaque de l'esclave ancien. Il n'avait pas non plus enfoncé complètement les trois aiguilles, laissant ainsi à Miao Yin une chance de retarder Great Desolation.
+C'est pourquoi il avait délibérément repoussé le Maître Dao Miao Yin lors de l'attaque de l'esclave ancien. Il n'avait pas non plus enfoncé complètement les trois aiguilles, laissant ainsi à Miao Yin une chance de retarder Grande Désolation.
 
-L’âme de Great Desolation poursuivit rapidement le Maître Dao Miao Yin. Son âme se mua en un gaz noir, devenant une possession cruelle.
+L’âme de Grande Désolation poursuivit rapidement le Maître Dao Miao Yin. Son âme se mua en un gaz noir, devenant une possession cruelle.
 
 Si Wang Lin avait enfoncé totalement les aiguilles, Miao Yin n'aurait eu que peu de moyens de résister; mais la situation était désormais différente. Les deux entités se livraient un combat acharné avec leurs sens divins à l'intérieur du corps de Miao Yin.
 
@@ -146,9 +146,9 @@ Grâce à ce délai, Wang Lin put s'emparer de l'océan empoisonné. Sans hésit
 
 Le Fourneau de l'Empereur abritait d'innombrables royaumes, mais avec le niveau de culture de Wang Lin, il ne pouvait en ouvrir que deux. D'un geste, il assigna un royaume à l'océan empoisonné et l'autre à l'esclave ancien.
 
-À cet instant, alors que le Maître Dao Miao Yin et Great Desolation se disputaient le contrôle du corps, la faille menant au Royaume des Flammes de Joss commença à se refermer rapidement. Elle était sur le point de disparaître totalement.
+À cet instant, alors que le Maître Dao Miao Yin et Grande Désolation se disputaient le contrôle du corps, la faille menant au Royaume des Flammes de Joss commença à se refermer rapidement. Elle était sur le point de disparaître totalement.
 
-Comment Wang Lin pouvait-il laisser ce royaume s'évanouir? Il s'était allié à Great Desolation précisément pour obtenir les Flammes de Joss de Miao Yin.
+Comment Wang Lin pouvait-il laisser ce royaume s'évanouir? Il s'était allié à Grande Désolation précisément pour obtenir les Flammes de Joss de Miao Yin.
 
 Il ne pourrait pas utiliser ces flammes lui-même, mais l’esclave ancien Ling Dong était à un demi-pas du troisième niveau. Tant qu'il obtiendrait assez de Flammes de Joss, il pourrait devenir un véritable cultivateur du troisième niveau.
 
@@ -168,13 +168,13 @@ Dès l'apparition du bras, une aura surpuissante envahit toute la mer de brouill
 
 C'était la deuxième fois que Wang Lin voyait ce bras, et son expression changea radicalement. Une force inimaginable fonçait sur lui, prête à pulvériser son corps.
 
-Le bras fut si rapide qu'il percuta instantanément le Maître Dao Miao Yin, le faisant cracher du sang. Great Desolation en profita pour écraser l'âme de Miao Yin, mais cela eut pour effet de clouer le corps de ce dernier dans la paume par une force de succion, l'empêchant de s'échapper.
+Le bras fut si rapide qu'il percuta instantanément le Maître Dao Miao Yin, le faisant cracher du sang. Grande Désolation en profita pour écraser l'âme de Miao Yin, mais cela eut pour effet de clouer le corps de ce dernier dans la paume par une force de succion, l'empêchant de s'échapper.
 
 En un éclair, la paume géante fondit sur Wang Lin. Ses cinq doigts ressemblaient à cinq piliers soutenant le monde, retombant brutalement vers lui.
 
 L'impact fut si violent qu'il fit cracher du sang à Wang Lin, mais il refusait de céder. Ce qui le tourmentait n'était pas seulement la paume qui l'écrasait, mais le fait que la faille vers le Royaume des Flammes de Joss se trouvait à moins de 1 000 pieds.
 
-La faille ne mesurait plus que 10 000 pieds de long et allait bientôt disparaître. Si elle venait à s'évanouir, sa récompense pour avoir blessé Miao Yin avec Great Desolation lui serait volée.
+La faille ne mesurait plus que 10 000 pieds de long et allait bientôt disparaître. Si elle venait à s'évanouir, sa récompense pour avoir blessé Miao Yin avec Grande Désolation lui serait volée.
 
 Wang Lin venait d'utiliser le sort salvateur contenu dans son gantelet de Dieu Ancien; il ne pouvait pas s'en servir immédiatement. De plus, chaque usage endommageait l'artefact jusqu'à sa destruction.
 
@@ -190,7 +190,7 @@ Profitant de cette pause, la main droite de Wang Lin jaillit comme une météori
 
 Simultanément, la main surgie du brouillard agrippa la poitrine de Wang Lin. La douleur envahit son corps; la puissance de cette main semblait vouloir l'écraser totalement.
 
-Au moment où le bras saisit Wang Lin, il s'enfonça brusquement, tentant d'entraîner Wang Lin et Great Desolation — qui venait de réussir sa possession — vers les profondeurs de la mer de brouillard.
+Au moment où le bras saisit Wang Lin, il s'enfonça brusquement, tentant d'entraîner Wang Lin et Grande Désolation — qui venait de réussir sa possession — vers les profondeurs de la mer de brouillard.
 
 Le bras était trop puissant. Wang Lin n'avait aucune prise et son bras allait être arraché du Royaume des Flammes de Joss. Alors qu'il allait être englouti, sa main droite s'agrippa soudainement au bord droit de la faille scellée par les Feuilles Anciennes. Sa main gauche s'étendit pour saisir le bord gauche. Sa puissance de Dieu Ancien jaillit avec une intensité folle alors qu'il se cramponnait aux parois de la faille.
 

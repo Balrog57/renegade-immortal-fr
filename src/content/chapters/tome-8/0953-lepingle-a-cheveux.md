@@ -56,7 +56,7 @@ Les cultivateurs du Royaume de la Boucherie dont la culture était insuffisante 
 
 Certains luttèrent au sein du magma, mais la température était trop élevée. Même en utilisant des sorts ou des trésors, il leur était presque impossible de s'échapper!
 
-La fissure que l'homme aux cheveux violets avait ouverte s'effondra immédiatement sous l'effet du sortilège. Il recula, le visage livide. Bien qu'il fût au stade initial du Briseur de Nirvana et qu'il eût utilisé un trésor brisé du Pseudo-Nirvana Void, il ne faisait pas le poids face à Qing Shui. À cet instant, une seule pensée l'habitait: s'enfuir le plus vite possible!
+La fissure que l'homme aux cheveux violets avait ouverte s'effondra immédiatement sous l'effet du sortilège. Il recula, le visage livide. Bien qu'il fût au stade initial du Briseur de Nirvana et qu'il eût utilisé un trésor brisé du Pseudo-Vide du Nirvana, il ne faisait pas le poids face à Qing Shui. À cet instant, une seule pensée l'habitait: s'enfuir le plus vite possible!
 
 « Malheureusement, je suis le seul cultivateur Briseur de Nirvana dans le Royaume de la Boucherie et la plupart des cultivateurs du Nettoyage Nirvana se trouvent au quartier général de l'Alliance. Sinon, avec suffisamment d'aide, j'aurais pu utiliser la formation des 99 épées. Pourtant, je crains que même cette formation ne puisse résister à ce sortilège! »
 

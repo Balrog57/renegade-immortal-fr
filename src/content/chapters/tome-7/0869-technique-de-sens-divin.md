@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 869 - Divine Sense Technique
 slug: technique-de-sens-divin
 ---
-Les pupilles de Luo Su se rétractèrent et son sens divin s'étendit. Le sens divin d'un cultivateur du milieu du stade Nirvana Scryer était bien plus puissant que celui d'un cultivateur du début de ce même stade. À mesure que son sens divin se déployait, les sept géants dorés restants se mirent à briller intensément. Cela créa également une pression écrasante dans la zone!
+Les pupilles de Luo Su se rétractèrent et son sens divin s'étendit. Le sens divin d'un cultivateur du milieu du stade Scruteur du Nirvana était bien plus puissant que celui d'un cultivateur du début de ce même stade. À mesure que son sens divin se déployait, les sept géants dorés restants se mirent à briller intensément. Cela créa également une pression écrasante dans la zone!
 
 Les sept géants dorés se précipitèrent vers Wang Lin. Les yeux de Wang Lin s'illuminèrent et il ne ralentit pas; il chargea, le Fouet du Karma devant lui. Le fouet enveloppa Wang Lin et s'étira sur une longueur de 3,3 kilomètres. Puis, Wang Lin saisit immédiatement l'arme.
 
@@ -18,7 +18,7 @@ Des éclats de lumière dorée s'échappèrent du fouet. C'était comme si l'arm
 
 Cette scène fit écarquiller les yeux de tous les spectateurs. Même les vieux monstres sur les tapis de prière devinrent intéressés.
 
-« Un cultivateur du début du stade Nirvana Scryer affrontant un milieu de stade, c'est exceptionnel! »
+« Un cultivateur du début du stade Scruteur du Nirvana affrontant un milieu de stade, c'est exceptionnel! »
 
 « Je connais cet homme, c'est Xu Mu! »
 
@@ -46,7 +46,7 @@ Ce vent froid envahit la zone, faisant frissonner les cultivateurs environnants.
 
 Le visage de Luo Su était sombre. Une intention meurtrière traversa ses yeux, puis il se contenta de s'asseoir et forma un sceau de ses mains. Il ignora totalement l'assaut des dragons noirs et ferma les yeux.
 
-« Moi, Luo Su, suis au milieu du stade Nirvana Scryer. Si je ne peux pas te tuer, alors mes milliers d'années de culture auront été vaines! » Au moment où Luo Su ferma les yeux, une puissante vague de sens divin jaillit de son corps et se transforma en d'innombrables aiguilles!
+« Moi, Luo Su, suis au milieu du stade Scruteur du Nirvana. Si je ne peux pas te tuer, alors mes milliers d'années de culture auront été vaines! » Au moment où Luo Su ferma les yeux, une puissante vague de sens divin jaillit de son corps et se transforma en d'innombrables aiguilles!
 
 Une multitude d'aiguilles formées par son sens divin l'entouraient. Des milliers d'entre elles se rassemblèrent en un groupe dense avant de toutes foncer vers Wang Lin.
 
@@ -58,7 +58,7 @@ Les sorts physiques peuvent être résistés, mais les sorts de sens divin sont 
 
 Le sort utilisé par Yao Bingyun autrefois pouvait être considéré comme tel. Cependant, c'était une fusion entre le sens divin et l'énergie originelle. Bien qu'efficace, cette méthode présentait des failles.
 
-En revanche, le sort déployé par Luo Su était composé de pur sens divin, sans aucune énergie originelle, ce qui le rendait encore plus puissant. C'est précisément parce qu'il avait concentré tous ses efforts sur son sens divin qu'il pouvait jouir d'un statut aussi élevé au Temple Céleste du Tonnerre avec sa simple culture de milieu de stade Nirvana Scryer!
+En revanche, le sort déployé par Luo Su était composé de pur sens divin, sans aucune énergie originelle, ce qui le rendait encore plus puissant. C'est précisément parce qu'il avait concentré tous ses efforts sur son sens divin qu'il pouvait jouir d'un statut aussi élevé au Temple Céleste du Tonnerre avec sa simple culture de milieu de stade Scruteur du Nirvana!
 
 « Tu as frappé le premier, je ne fais que me défendre, alors accepte ta mort! » Alors que Luo Su hurlait, ses yeux s'ouvrirent brusquement et d'innombrables aiguilles de sens divin furent projetées vers Wang Lin.
 
@@ -66,7 +66,7 @@ Une lueur froide passa dans les yeux de Wang Lin; il forma un sceau de ses deux 
 
 Les aiguilles de sens divin se rapprochèrent rapidement de Wang Lin.
 
-L'expression de Wang Lin demeura calme. S'il avait affronté un véritable cultivateur du milieu du stade Nirvana Scryer, la bataille aurait été ardue. Après tout, chaque écart de culture au second niveau est immense. Mais ici, Luo Su utilisait son sens divin!
+L'expression de Wang Lin demeura calme. S'il avait affronté un véritable cultivateur du milieu du stade Scruteur du Nirvana, la bataille aurait été ardue. Après tout, chaque écart de culture au second niveau est immense. Mais ici, Luo Su utilisait son sens divin!
 
 Si c'un autre avait été en face, le sens divin de Luo Su aurait été difficile à contrer. Car la différence de niveau de culture se traduit également par une différence de puissance du sens divin. Le cultivateur le plus fort écrase le plus faible!
 
@@ -88,11 +88,11 @@ L'Armure de Cuir de l'Ancien Dieu trembla, provoquant l'effondrement du serpent 
 
 Nul ne pouvait voir la scène périlleuse qui se jouait à l'intérieur de son âme originelle. Un seul instant d'inattention aurait signifié la mort. Le visage de Wang Lin devint pâle et ses yeux furent inondés d'intention meurtrière. Ses doigts formèrent une épée et il chargea Luo Su!
 
-Les pupilles de Luo Su se rétractèrent. Ses yeux se remplirent de terreur et il s'exclama: « Impossible! » Il ne pouvait croire que son attaque de sens divin, digne d'un milieu de stade Nirvana Scryer, n'ait infligé aucun dommage à son adversaire. Cela contredisait ses milliers d'années de culture!
+Les pupilles de Luo Su se rétractèrent. Ses yeux se remplirent de terreur et il s'exclama: « Impossible! » Il ne pouvait croire que son attaque de sens divin, digne d'un milieu de stade Scruteur du Nirvana, n'ait infligé aucun dommage à son adversaire. Cela contredisait ses milliers d'années de culture!
 
 « Même s'il possède un trésor spécialisé pour protéger son âme originelle, mon niveau est un petit royaume au-dessus du sien et j'ai perfectionné mes attaques de sens divin pendant des millénaires. Même avec un trésor céleste, il est impossible qu'il ne subisse aucun dommage! » Tandis que Luo Su était sous le choc, les deux dragons noirs tentaient sans relâche de le dévorer.
 
-Le visage de Luo Su devint livide. Sa maîtrise de l'énergie originelle était bien inférieure à sa compréhension du sens divin. Cependant, il restait un cultivateur du milieu du stade Nirvana Scryer et possédait naturellement de nombreux trésors. À cet instant, il frappa son sac et un petit tambour apparut. Il le lança en l'air, et l'instrument grandit instantanément. Alors que les deux dragons noirs se rapprochaient, le tambour se mit à battre, créant une puissante bourrasque de vent.
+Le visage de Luo Su devint livide. Sa maîtrise de l'énergie originelle était bien inférieure à sa compréhension du sens divin. Cependant, il restait un cultivateur du milieu du stade Scruteur du Nirvana et possédait naturellement de nombreux trésors. À cet instant, il frappa son sac et un petit tambour apparut. Il le lança en l'air, et l'instrument grandit instantanément. Alors que les deux dragons noirs se rapprochaient, le tambour se mit à battre, créant une puissante bourrasque de vent.
 
 Pourtant, sous la pression des deux dragons noirs, le tambour trembla immédiatement et le son s'interrompit.
 

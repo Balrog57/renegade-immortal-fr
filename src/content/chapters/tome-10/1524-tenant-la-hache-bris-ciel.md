@@ -72,7 +72,7 @@ Les plaies couvraient tout son être!
 
 Pourtant, il était impossible de compter le nombre de cultivateurs du Royaume Extérieur qu'il avait terrassés, et Wang Lin ne cherchait pas à le faire. À cet instant, il ne trouvait aucune raison de partir… La requête du Seigneur du Domaine Scellé, tous ceux qu'il connaissait dans le Royaume Intérieur, son foyer natal, tout cela l'empêchait de battre en retraite… Les yeux de Wang Lin étaient rouges et le monde prit la couleur du sang. Au milieu de ce massacre incessant, un des cultivateurs de la Mer des Nuages qui fuyait s'arrêta.
 
-C'était un jeune homme, seulement au stade de Scryer du Nirvana. Il avait eu la chance de survivre à cette bataille tragique. Il se retourna et fixa le dos de Wang Lin au loin. Il regarda Wang Lin charger contre les vagues infinies de cultivateurs, tel deux bras gigantesques bloquant une armée.
+C'était un jeune homme, seulement au stade du Scruteur du Nirvana. Il avait eu la chance de survivre à cette bataille tragique. Il se retourna et fixa le dos de Wang Lin au loin. Il regarda Wang Lin charger contre les vagues infinies de cultivateurs, tel deux bras gigantesques bloquant une armée.
 
 « Les cultivateurs comme nous ne reculent jamais devant un combat… » murmura le jeune homme. L'éclat effondré montrait des signes de réveil.
 

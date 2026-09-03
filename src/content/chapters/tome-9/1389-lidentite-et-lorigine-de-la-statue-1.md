@@ -6,17 +6,17 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1389 - The Identity and Origin of the Statue (1)
 slug: lidentite-et-lorigine-de-la-statue-1
 ---
-« J'ai en fait oublié qu'il pouvait utiliser ce sort d'arrêt aussi impitoyable! » Une vague immense secoua le cœur de Greed, et la peur envahit ses yeux.
+« J'ai en fait oublié qu'il pouvait utiliser ce sort d'arrêt aussi impitoyable! » Une vague immense secoua le cœur de Cupidité, et la peur envahit ses yeux.
 
-« Ce nemesis est trop méprisable. Il possédait ce sort, mais ne l'a pas utilisé plus tôt; il a attendu que je déploie mon trésor le plus puissant pour éteindre mon dernier espoir! » Le corps et l'âme originelle de Greed étaient complètement figés. Il était incapable de bouger d'un iota et ne pouvait qu'observer Wang Lin se rapprocher.
+« Ce nemesis est trop méprisable. Il possédait ce sort, mais ne l'a pas utilisé plus tôt; il a attendu que je déploie mon trésor le plus puissant pour éteindre mon dernier espoir! » Le corps et l'âme originelle de Cupidité étaient complètement figés. Il était incapable de bouger d'un iota et ne pouvait qu'observer Wang Lin se rapprocher.
 
-La statue brisée n'émettait aucune aura et flottait silencieusement du côté droit de Greed.
+La statue brisée n'émettait aucune aura et flottait silencieusement du côté droit de Cupidité.
 
-Le corps de Wang Lin rétrécissait progressivement à mesure qu'il avançait. Lorsqu'il arriva devant Greed, il avait déjà retrouvé la taille d'un homme normal. Il ne prêta aucune attention à Greed, mais saisit la statue brisée.
+Le corps de Wang Lin rétrécissait progressivement à mesure qu'il avançait. Lorsqu'il arriva devant Cupidité, il avait déjà retrouvé la taille d'un homme normal. Il ne prêta aucune attention à Cupidité, mais saisit la statue brisée.
 
-Après avoir vu Wang Lin s'emparer de son trésor le plus puissant, Greed eut l'impression qu'une épée lui transperçait le cœur. Une fois, deux fois, des centaines, des milliers, des dizaines de milliers de fois, l'épée martelait son cœur, infligeant à Greed une douleur si intense que du sang jaillissait du coin de sa bouche.
+Après avoir vu Wang Lin s'emparer de son trésor le plus puissant, Cupidité eut l'impression qu'une épée lui transperçait le cœur. Une fois, deux fois, des centaines, des milliers, des dizaines de milliers de fois, l'épée martelait son cœur, infligeant à Cupidité une douleur si intense que du sang jaillissait du coin de sa bouche.
 
-« Ce n'est qu'un trésor, je pense que le Senior Greed ne sera pas mesquin. Autrefois, le Senior m'a donné beaucoup de trésors, et maintenant que nous nous retrouvons, j'accepterai volontiers ceux-ci. » Wang Lin sourit tout en examinant attentivement la statue brisée.
+« Ce n'est qu'un trésor, je pense que le Senior Cupidité ne sera pas mesquin. Autrefois, le Senior m'a donné beaucoup de trésors, et maintenant que nous nous retrouvons, j'accepterai volontiers ceux-ci. » Wang Lin sourit tout en examinant attentivement la statue brisée.
 
 L'expression de Wang Lin changea alors qu'il contemplait l'objet.
 
@@ -34,7 +34,7 @@ Après un laps de temps inconnu — 10 ans, 100 ans, 1 000 ans, 10 000 ans... �
 
 Tout ce qu'il avait perçu dans son esprit se dissipa pour redevenir néant. Le corps de Wang Lin trembla et il reprit conscience.
 
-L'espace était resté le même, le monde était toujours le même. Les yeux de Greed étaient emplis de terreur et il demeurait incapable de bouger à cause du sort d'arrêt.
+L'espace était resté le même, le monde était toujours le même. Les yeux de Cupidité étaient emplis de terreur et il demeurait incapable de bouger à cause du sort d'arrêt.
 
 Wang Lin réfléchissait silencieusement.
 
@@ -54,29 +54,29 @@ De toutes les statues qu'il avait vues de sa vie, seule celle de Qing Lin dans l
 
 La statue ne représentait qu'un homme d'âge moyen ordinaire. L'homme regardait vers le haut avec une expression sereine; aucune émotion ne transparaissait.
 
-« Où avez-vous obtenu cette statue? » Wang Lin continuait de fixer la statue et non Greed lorsqu'il prit la parole.
+« Où avez-vous obtenu cette statue? » Wang Lin continuait de fixer la statue et non Cupidité lorsqu'il prit la parole.
 
-Tout en parlant, il agita la main, relâchant le sort d'arrêt sur Greed pour lui permettre de s'exprimer.
+Tout en parlant, il agita la main, relâchant le sort d'arrêt sur Cupidité pour lui permettre de s'exprimer.
 
-Greed réfléchit un instant en silence avant de laisser échapper un soupir: « Dans une tombe antique. »
+Cupidité réfléchit un instant en silence avant de laisser échapper un soupir: « Dans une tombe antique. »
 
-« Pour entrer dans le Système Stellaire Antique, il faut briser la Formation de Scellement du Royaume, ce qui est impossible avec votre niveau de culture. Comment êtes-vous arrivé ici? » La voix de Wang Lin était glaciale et elle envahit l'esprit de Greed, faisant frissonner son corps.
+« Pour entrer dans le Système Stellaire Antique, il faut briser la Formation de Scellement du Royaume, ce qui est impossible avec votre niveau de culture. Comment êtes-vous arrivé ici? » La voix de Wang Lin était glaciale et elle envahit l'esprit de Cupidité, faisant frissonner son corps.
 
-« C'était aussi dans cette tombe antique... Tous mes trésors ont été obtenus là-bas. » Greed renonça à résister. Il comprit que s'il disait la vérité, il aurait peut-être une chance de survie. Il savait que l'homme devant lui était un monstre qui ne ferait preuve d'aucune pitié.
+« C'était aussi dans cette tombe antique... Tous mes trésors ont été obtenus là-bas. » Cupidité renonça à résister. Il comprit que s'il disait la vérité, il aurait peut-être une chance de survie. Il savait que l'homme devant lui était un monstre qui ne ferait preuve d'aucune pitié.
 
 S'il évevait les soupçons de Wang Lin et que celui-ci utilisait la recherche d'âme, même s'il ne mourait pas, il perdrait toute raison.
 
-Les yeux de Wang Lin s'illuminèrent tandis qu'il fixait Greed et dit lentement: « Quelle tombe? Expliquez en détail, et ne me forcez pas à fouiller votre âme! »
+Les yeux de Wang Lin s'illuminèrent tandis qu'il fixait Cupidité et dit lentement: « Quelle tombe? Expliquez en détail, et ne me forcez pas à fouiller votre âme! »
 
-Greed n'osa rien cacher et parla précipitamment.
+Cupidité n'osa rien cacher et parla précipitamment.
 
-« Après avoir échappé au Serpent Moongazer, je ne suis pas mort, mais je me suis caché sur une planète à moitié abandonnée dans Allheaven. Je m'y cachais pour vous échapper et j'ai passé du temps à récupérer mes forces.
+« Après avoir échappé au Serpent aux yeux de lune, je ne suis pas mort, mais je me suis caché sur une planète à moitié abandonnée dans Allheaven. Je m'y cachais pour vous échapper et j'ai passé du temps à récupérer mes forces.
 
 « Après un long moment, ne voyant aucune trace de votre poursuite, j'ai réalisé que vous pensiez probablement que j'étais mort. J'ai alors retrouvé une certaine paix d'esprit et je me suis concentré sur ma guérison sur cette planète jusqu'à ce que je sois totalement rétabli. C'est alors que j'ai décidé de partir.
 
 « À ce moment-là, vous n'étiez plus dans Allheaven. L'ensemble du Système Stellaire Allheaven était extrêmement désert, car la majorité des cultivateurs étaient partis vers le Système Stellaire de l'Alliance pour la guerre. Cela m'a donné une opportunité.
 
-« Je voyageai en toute sécurité, ne voulant pas retourner dans le système stellaire de l'Alliance. De plus, comme j'avais été dévoré par le Moongazer, une odeur fétide s'était imprégnée de mon corps et de mon âme originelle. Cette puanteur persistait et était devenue insupportable.
+« Je voyageai en toute sécurité, ne voulant pas retourner dans le système stellaire de l'Alliance. De plus, comme j'avais été dévoré par le serpent aux yeux de lune, une odeur fétide s'était imprégnée de mon corps et de mon âme originelle. Cette puanteur persistait et était devenue insupportable.
 
 « Ainsi, j'ai voyagé à travers les étoiles, cherchant un moyen de me débarrasser de cette infection. Les jours et les nuits passèrent jusqu'au jour où je m'approchai de la barrière du Royaume Céleste de la Foudre. Là, je trouvai un étrange vortex.
 
@@ -84,21 +84,21 @@ Greed n'osa rien cacher et parla précipitamment.
 
 Wang Lin fronça les sourcils et coupa: « Soyez précis! »
 
-Le corps de Greed trembla et il reprit rapidement: « Après l'apparition du vortex, j'ai ressenti une sensation puissante dans mon esprit. Je n'avais jamais rien ressenti d'aussi fort auparavant. Ni lorsque le fourneau est tombé du ciel pour tuer mon ennemi, ni lorsque j'ai vu le Serpent Moongazer... »
+Le corps de Cupidité trembla et il reprit rapidement: « Après l'apparition du vortex, j'ai ressenti une sensation puissante dans mon esprit. Je n'avais jamais rien ressenti d'aussi fort auparavant. Ni lorsque le fourneau est tombé du ciel pour tuer mon ennemi, ni lorsque j'ai vu le Serpent aux yeux de lune... »
 
 En disant cela, il vit Wang Lin froncer les sourcils. Un froid glacial envahit son esprit et il cessa de perdre du temps: « Je n'ai pas hésité à me précipiter dans le vortex. Dès que j'y fus entré, celui-ci disparut. Il n'était apparu que pendant à peine trois respirations. »
 
-Les yeux de Wang Lin s'illuminèrent avant de redevenir progressivement froids. Il fixa Greed et dit lentement: « On dirait que ce vortex a été ouvert spécifiquement pour vous... »
+Les yeux de Wang Lin s'illuminèrent avant de redevenir progressivement froids. Il fixa Cupidité et dit lentement: « On dirait que ce vortex a été ouvert spécifiquement pour vous... »
 
-L'expression de Greed changea et il s'empressa de répondre: « Je ne mens pas, tout ce que je dis est vrai. Je sais que vous ne me croyez pas, mais c'est la vérité, et ce n'est pas la seule fois où cela m'est arrivé.
+L'expression de Cupidité changea et il s'empressa de répondre: « Je ne mens pas, tout ce que je dis est vrai. Je sais que vous ne me croyez pas, mais c'est la vérité, et ce n'est pas la seule fois où cela m'est arrivé.
 
 « Quand j'avais huit ans, alors que je jouais simplement dans le village, j'ai pu trouver de l'essence jaune. Je suis tombé d'une falaise, j'ai trouvé un Fruit Vermillon et j'ai obtenu le dragon de tonnerre ancien. Le fourneau est tombé du ciel pour tuer mon ennemi. Les autres doivent se battre pour obtenir le fourneau de la pluie, mais moi, je volais simplement à l'extérieur et le fourneau a volé vers moi.
 
-« En entrant dans le Royaume Céleste, les autres passent un temps infini à chercher minutieusement des jades célestes pour n'en trouver que peu. Lors de ma première visite, j'ai été téléporté directement dans la grotte d'un roi céleste... Il y avait aussi une ancienne héritage de l'Alliance dont l'entrée était difficile à trouver pour les autres. J'ai fait trois pas et j'ai été téléporté à l'intérieur... » Greed craignait que Wang Lin ne le croie. Si tout cela n'était qu'un mensonge, peu importait, mais Greed savait que chacun de ses mots était vrai.
+« En entrant dans le Royaume Céleste, les autres passent un temps infini à chercher minutieusement des jades célestes pour n'en trouver que peu. Lors de ma première visite, j'ai été téléporté directement dans la grotte d'un roi céleste... Il y avait aussi une ancienne héritage de l'Alliance dont l'entrée était difficile à trouver pour les autres. J'ai fait trois pas et j'ai été téléporté à l'intérieur... » Cupidité craignait que Wang Lin ne le croie. Si tout cela n'était qu'un mensonge, peu importait, mais Cupidité savait que chacun de ses mots était vrai.
 
 Parfois, lui-même trouvait cela incroyable.
 
-Wang Lin interrompit l'explication de Greed et dit lentement: « Continuez. Qu'avez-vous vu après être entré dans le vortex? »
+Wang Lin interrompit l'explication de Cupidité et dit lentement: « Continuez. Qu'avez-vous vu après être entré dans le vortex? »
 
 « Le vortex semblait être un autre monde; il était extrêmement chaotique et criblé de fissures spatiales. Un seul faux pas signifiait une mort certaine. Il y avait d'innombrables fragments de rochers flottants, et les profondeurs étaient enveloppées d'un brouillard si dense que je ne pouvais rien voir clairement.
 

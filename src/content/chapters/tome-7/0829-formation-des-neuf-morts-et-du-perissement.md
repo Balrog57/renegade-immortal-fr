@@ -30,7 +30,7 @@ Wang Lin fronça les sourcils. La poursuite de l'adversaire était bien trop pro
 
 La silhouette de Wang Lin apparut parmi les étoiles et il fronça les sourcils. L'intention meurtrière qui s'était condensée ces derniers jours était si puissante qu'elle semblait presque prendre corps.
 
-« Cette femme qui me poursuit est au moins au stade intermédiaire du Nirvana Scryer. Je ne peux pas la tuer de ma propre puissance, c'est donc assez problématique! » Les yeux de Wang Lin s'illuminèrent et il disparut.
+« Cette femme qui me poursuit est au moins au stade intermédiaire du Scruteur du Nirvana. Je ne peux pas la tuer de ma propre puissance, c'est donc assez problématique! » Les yeux de Wang Lin s'illuminèrent et il disparut.
 
 À l'instant même de sa disparition, Yao Bingyun émergea du vide. Son visage était empreint d'une intention meurtrière et, après avoir scruté l'horizon, elle déclara froidement: « Tu ne peux pas t'échapper! »
 

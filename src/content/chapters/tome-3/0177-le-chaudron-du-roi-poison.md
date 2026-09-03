@@ -62,19 +62,19 @@ Toutefois, ce Sens Divin était trop puissant; après plusieurs tentatives, Wang
 
 Bien qu'il ne fût pas assez puissant pour effacer ce Sens Divin, il réussit tout de même à le dissimuler grâce à son Sens Divin du Royaume Ji.
 
-L'autre sac de rangement était celui qu'il avait volé à Hunchback Meng. Le Sens Divin qui l'habitait avait déjà disparu, signifiant que Hunchback Meng était mort.
+L'autre sac de rangement était celui qu'il avait volé à Bossu Meng. Le Sens Divin qui l'habitait avait déjà disparu, signifiant que Bossu Meng était mort.
 
 Wang Lin ricana intérieurement. Ses yeux s'illuminèrent en l'ouvrant. Il contenait effectivement les économies de plusieurs milliers d'années d'un cultivateur au stade de la Formation de l'Âme. Rien qu'en pierres spirituelles, plus de 300 000 étaient entassées comme une petite montagne, toutes de haute qualité.
 
 Ce qui fit briller davantage le regard de Wang Lin fut la présence de deux pierres entourées d'une aura: des pierres spirituelles extrêmement rares et de qualité suprême.
 
-Le cœur de Wang Lin rata un battement. Ces deux seules pierres valaient à elles seules le risque de voler Hunchback Meng.
+Le cœur de Wang Lin rata un battement. Ces deux seules pierres valaient à elles seules le risque de voler Bossu Meng.
 
 En plus des pierres spirituelles, il y avait plusieurs flacons. Enfin, concernant les trésors magiques, il n'y avait que le chaudron vert, fendu en deux, et rien d'autre.
 
-Wang Lin comprit rapidement après réflexion. Hunchback Meng étant resté piégé durant une longue période, il avait dû épuiser tous ses trésors.
+Wang Lin comprit rapidement après réflexion. Bossu Meng étant resté piégé durant une longue période, il avait dû épuiser tous ses trésors.
 
-Sa supposition était très juste. Hunchback Meng possédait de nombreux trésors, tous de niveau Âme Naissante ou supérieur. Cependant, après avoir tenté à plusieurs reprises de franchir les tornades, il avait tout consommé, particulièrement lors de l'épreuve où il utilisa dix bêtes spirituelles comme substituts. Il avait jeté d'innombrables richesses dans cette tentative, allant même jusqu'à faire exploser ses trésors pour tenter de frayer un passage, sans succès.
+Sa supposition était très juste. Bossu Meng possédait de nombreux trésors, tous de niveau Âme Naissante ou supérieur. Cependant, après avoir tenté à plusieurs reprises de franchir les tornades, il avait tout consommé, particulièrement lors de l'épreuve où il utilisa dix bêtes spirituelles comme substituts. Il avait jeté d'innombrables richesses dans cette tentative, allant même jusqu'à faire exploser ses trésors pour tenter de frayer un passage, sans succès.
 
 C'est pour cette raison que le seul trésor magique qu'il lui restait était ce chaudron vert.
 
@@ -82,7 +82,7 @@ Outre cela, le sac contenait de nombreux jades. Wang Lin les examina un à un, e
 
 Ces connaissances étaient précieuses pour le Wang Lin actuel; il n'aurait plus jamais de mal à identifier un matériau de valeur.
 
-De plus, Hunchback Meng était spécialisé dans l'alchimie et le poison, et le sac contenait de nombreux jades dédiés à ces disciplines. Wang Lin passa un long moment à les étudier, ce qui augmenta ses connaissances d'un facteur cent.
+De plus, Bossu Meng était spécialisé dans l'alchimie et le poison, et le sac contenait de nombreux jades dédiés à ces disciplines. Wang Lin passa un long moment à les étudier, ce qui augmenta ses connaissances d'un facteur cent.
 
 Un jade vert foncé attira particulièrement son attention. C'était une méthode de culture dont le nom ne tenait qu'en un mot: *Underworld* (Sous-monde).
 
@@ -92,19 +92,19 @@ Cependant, cette voie était extrêmement cruelle. Le pratiquant devait endurer 
 
 Cet effet secondaire persistait jusqu'à l'atteinte du neuvième niveau. C'est alors que tout le poison serait expulsé du corps pour former le véritable Poison du Sous-monde, permettant au pratiquant de retrouver une apparence normale. Avant cela, le corps subirait des déformations; la première manifestation étant l'apparition de pustules sur la peau.
 
-Après avoir fini sa lecture, Wang Lin réfléchit et renonça à cette voie. Hunchback Meng devait avoir cette odeur fétide précisément parce qu'il pratiquait cette méthode. Bien que Wang Lin ne se soucie guère de son apparence, le jade précisait que la culture de cette technique remplissait le corps de poison. Il existait un risque que le venin envahisse la conscience, transformant l'individu en une coquille vide dont l'unique savoir est de tuer.
+Après avoir fini sa lecture, Wang Lin réfléchit et renonça à cette voie. Bossu Meng devait avoir cette odeur fétide précisément parce qu'il pratiquait cette méthode. Bien que Wang Lin ne se soucie guère de son apparence, le jade précisait que la culture de cette technique remplissait le corps de poison. Il existait un risque que le venin envahisse la conscience, transformant l'individu en une coquille vide dont l'unique savoir est de tuer.
 
 C'était la raison principale de son renoncement. Bien qu'il ne puisse pas pratiquer cette méthode, les jades contenaient de nombreuses techniques qu'il pourrait utiliser s'il disposait du poison nécessaire.
 
-Quant au raffinage des poisons, Wang Lin avait déjà parcouru les jades contenant l'expérience de Hunchback Meng, ce qui faisait trembler son cœur d'excitation.
+Quant au raffinage des poisons, Wang Lin avait déjà parcouru les jades contenant l'expérience de Bossu Meng, ce qui faisait trembler son cœur d'excitation.
 
 Il sortit tous les flacons du sac et utilisa les jades pour les identifier. Presque tous étaient des poisons, à l'exception d'un seul flacon contenant des pilules familières: celles qu'il avait prises pour se protéger de l'empoisonnement.
 
 Cette pilule anti-poison n'était que de qualité moyenne. Pour accroître son efficacité, il fallait la consommer avec un poison léger.
 
-Wang Lin rangea tout dans son sac et jeta les restes de Hunchback Meng au sol. Puis, il saisit un objet et son expression se fit grave.
+Wang Lin rangea tout dans son sac et jeta les restes de Bossu Meng au sol. Puis, il saisit un objet et son expression se fit grave.
 
-Il s'agissait du trésor vital de Hunchback Meng: le chaudron vert.
+Il s'agissait du trésor vital de Bossu Meng: le chaudron vert.
 
 Bien que fendu en deux, l'objet dégageait encore une puissante énergie spirituelle. Cependant, cette énergie était saturée de poison. La substance verte capable de détruire le Sens Divin incitait Wang Lin à la plus grande prudence lors de son examen.
 
@@ -114,7 +114,7 @@ En consultant les jades, il trouva une explication: lorsqu'on atteint le deuxiè
 
 Ce chaudron était une imitation du légendaire Chaudron Médicinal Royal. Bien qu'il s'agînt d'une copie, les matériaux dont il était constitué n'étaient pas inférieurs à ceux de l'original. Sa seule faiblesse résidait dans son incapacité à absorber l'énergie spirituelle de dizaines de milliers de plantes comme le faisait le véritable Chaudron Médicinal Royal.
 
-Ce chaudron représentait le trésor le plus important d'une secte dans un pays de culture de rang 3. Hunchback Meng avait mis des centaines d'années à l'obtenir. Il avait d'abord rejoint la secte et était devenu le disciple personnel du chef grâce à son talent. Puis, dès qu'il en eut l'occasion, il vola l'objet, tua son maître et s'enfuit vers la Mer des Démons, utilisant le chaudron comme trésor vital.
+Ce chaudron représentait le trésor le plus important d'une secte dans un pays de culture de rang 3. Bossu Meng avait mis des centaines d'années à l'obtenir. Il avait d'abord rejoint la secte et était devenu le disciple personnel du chef grâce à son talent. Puis, dès qu'il en eut l'occasion, il vola l'objet, tua son maître et s'enfuit vers la Mer des Démons, utilisant le chaudron comme trésor vital.
 
 Il avait pris un Chaudron Médicinal Royal pour le transformer en Chaudron du Roi Poison. S'il avait atteint le neuvième niveau, bien qu'il n'aurait pas égalé l'original, il s'en serait approché. Mais au lieu d'un chaudron de médecine, ce serait devenu un chaudron de poison.
 
@@ -202,10 +202,10 @@ Deux rangées d'innombrables petites épines poussèrent sur les flancs de l'arm
 
 L'épée volante était désormais d'un vert sombre et parfaitement solidifiée. Elle contenait le venin du Chaudron du Roi Poison: si quelqu'un était touché, même si la lame ne tuait pas instantanément, le poison finirait par achever sa victime.
 
-Même un cultivateur au stade de l'Âme Naissante aurait de grandes difficultés à échapper à la mort après avoir été frappé par cette arme. Après tout, ce venin provenait du trésor de Hunchback Meng.
+Même un cultivateur au stade de l'Âme Naissante aurait de grandes difficultés à échapper à la mort après avoir été frappé par cette arme. Après tout, ce venin provenait du trésor de Bossu Meng.
 
 Cependant, après avoir reformé cette épée, il n'osait plus chercher à l'absorber; il choisit de la nourrir au sein de son Noyau d'Or. Même lors de son utilisation, il devrait rester vigilant, car s'il était touché par sa propre arme, sa survie serait compromise.
 
-Il n'existait aucun antidote pour le poison du Chaudron du Roi Poison. Hormis Hunchback Meng, personne ne pouvait en guérir les victimes.
+Il n'existait aucun antidote pour le poison du Chaudron du Roi Poison. Hormis Bossu Meng, personne ne pouvait en guérir les victimes.
 
 Wang Lin était confiant quant à sa puissance, particulièrement grâce aux épines latérales. D'une simple pensée, celles-ci pouvaient se détacher pour attaquer l'ennemi, rendant toute défense extrêmement périlleuse.

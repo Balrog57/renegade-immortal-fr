@@ -92,7 +92,7 @@ Au sein de la secte, le nombre de membres de rang 1 était très faible, moins d
 
 À cet instant, dans un magnifique pavillon situé dans la zone des membres de rang 5, deux cultivateurs étaient assis.
 
-L'un était un homme et l'autre une femme. L'homme semblait n'avoir qu'une trentaine d'années. Il était très beau mais dégageait une aura glaciale. Son niveau de culture n'était pas élevé, se situant au deuxième stade du Nirvana Scryer.
+L'un était un homme et l'autre une femme. L'homme semblait n'avoir qu'une trentaine d'années. Il était très beau mais dégageait une aura glaciale. Son niveau de culture n'était pas élevé, se situant au deuxième stade du Scruteur du Nirvana.
 
 La femme à ses côtés ne cultivait pas; elle le regardait avec un regard doux, empreint d'une profonde affection.
 

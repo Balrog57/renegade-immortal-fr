@@ -62,7 +62,7 @@ Le regard de Wang Lin balaya la planète. Il n'attira l'attention d'aucun cultiv
 
 Il s'agissait d'une planète de culture de rang 7, divisée en des centaines de pays. On y trouvait de nombreux cultivateurs, mais la plupart n'étaient qu'au premier stade. Il n'y avait guère de cultivateurs du second stade.
 
-En apparence, l'individu au niveau le plus élevé était un homme d'âge moyen au stade du Nettoyage du Nirvana. Cependant, au centre de la planète se trouvait une caverne où résidaient manifestement quatre vieux monstres en culture fermée.
+En apparence, l'individu au niveau le plus élevé était un homme d'âge moyen au stade du Purificateur du Nirvana. Cependant, au centre de la planète se trouvait une caverne où résidaient manifestement quatre vieux monstres en culture fermée.
 
 Le plus puissant parmi eux se trouvait au troisième stade du Fléau Céleste. Deux autres étaient au premier stade du Fléau Céleste, et le dernier se trouvait au stade du Briseur de Nirvana.
 

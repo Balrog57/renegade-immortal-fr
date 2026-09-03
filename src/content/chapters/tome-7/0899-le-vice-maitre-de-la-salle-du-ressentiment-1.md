@@ -6,11 +6,11 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 899 - Resentment Hall Vice Hall Master (1)
 slug: le-vice-maitre-de-la-salle-du-ressentiment-1
 ---
-À l'instant même où la voix résonna, l'aura d'un cultivateur au stade Nirvana Scryer se propagea instantanément, formant une tempête. Ce vent déferla sur la plante et força violemment les runes dorées à s'en détacher.
+À l'instant même où la voix résonna, l'aura d'un cultivateur au stade Scruteur du Nirvana se propagea instantanément, formant une tempête. Ce vent déferla sur la plante et força violemment les runes dorées à s'en détacher.
 
 Une ombre illusoire apparut au-dessus de la plante brisée. C'était une silhouette vêtue d'une robe noire, totalement enveloppée dans un brouillard ténébreux.
 
-L'expression de Wang Lin resta sereine tandis qu'il fixait la figure encapuchonnée et déclarait froidement: « Un simple esprit originel du stade Nirvana Scryer. Je veux voir comment tu comptes me faire payer de ma vie! »
+L'expression de Wang Lin resta sereine tandis qu'il fixait la figure encapuchonnée et déclarait froidement: « Un simple esprit originel du stade Scruteur du Nirvana. Je veux voir comment tu comptes me faire payer de ma vie! »
 
 La main droite de Wang Lin forma un sceau et, d'un geste sec du doigt, le Dao de la Déchéance qu'elle portait s'élança. Lorsque l'os de bête apparut, une lueur fantomatique brilla dans ses yeux. Une puissante aura maléfique se propagea, teintant la plante d'une lumière grise.
 
@@ -24,9 +24,9 @@ Le visage de ce dernier se voila d'ombre; il recula aussitôt tout en formant un
 
 L'ensemble de la caverne commença à s'effondrer massivement. L'homme en robe noire laissa échapper un gémissement étouffé et se retira précipitamment.
 
-« Cher cultivateur, si un malentendu nous oppose, nous pouvons en discuter! Ce vieil homme est Liu Qingyun, le Vice-Maître de la Salle du Ressentiment de la Secte des Cadavres! » L'homme en robe noire était sous le choc. Il venait de s'éveiller et son esprit était encore embrumé. Cependant, une fois lucide, il réalisa que celui qui l'avait réveillé était un cultivateur au stade Nirvana Scryer!
+« Cher cultivateur, si un malentendu nous oppose, nous pouvons en discuter! Ce vieil homme est Liu Qingyun, le Vice-Maître de la Salle du Ressentiment de la Secte des Cadavres! » L'homme en robe noire était sous le choc. Il venait de s'éveiller et son esprit était encore embrumé. Cependant, une fois lucide, il réalisa que celui qui l'avait réveillé était un cultivateur au stade Scruteur du Nirvana!
 
-S'il avait encore possédé un corps, il n'aurait pas eu peur, mais il n'était plus qu'une âme. De plus, il n'était pas le seul de ce niveau: le garçon à la grosse tête était également un expert du Nirvana Scryer et, bien que la marionnette ne le fût pas, elle se situait au sommet du stade Corporel Yang.
+S'il avait encore possédé un corps, il n'aurait pas eu peur, mais il n'était plus qu'une âme. De plus, il n'était pas le seul de ce niveau: le garçon à la grosse tête était également un expert du Scruteur du Nirvana et, bien que la marionnette ne le fût pas, elle se situait au sommet du stade Corporel Yang.
 
 Plus il observait les trois adversaires, plus son effroi grandissait. Sans même parler de son absence de corps physique, même s'il en avait eu un, il aurait dû fuir sans délai face à une telle puissance.
 
@@ -36,7 +36,7 @@ Tout en parlant, il continuait de reculer.
 
 Wang Lin ne répondit pas. Il se déplaça avec la rapidité de l'éclair pour poursuivre l'homme. De légères ondulations apparaissaient sous ses pas tandis que son regard perçant traquait sa proie.
 
-« Un esprit originel du stade Nirvana Scryer en début de cycle... un esprit affaibli. Avec cela, je suis certain de pouvoir permettre au corps de Ta Shan d'atteindre le stade Nirvana Scryer! »
+« Un esprit originel du stade Scruteur du Nirvana en début de cycle... un esprit affaibli. Avec cela, je suis certain de pouvoir permettre au corps de Ta Shan d'atteindre le stade Scruteur du Nirvana! »
 
 Les yeux de Liu Qingyun étaient empreints de méfiance et il fulmina intérieurement. S'il avait choisi cette planète à moitié abandonnée, c'était parce qu'elle ne possédait rien de valeur capable d'attirer des cultivateurs de ce rang. Son plan était de passer tranquillement des milliers d'années ici pour posséder ce corps, puis de retourner à la Salle pour briguer le poste de Maître de Salle.
 
@@ -44,9 +44,9 @@ Cependant, il n'aurait jamais imaginé attirer un tel expert au moment crucial. 
 
 « Maudit soit! Pour ne pas attirer l'attention des autres Vice-Maîtres, j'avais été d'une prudence extrême. Je n'avais même pas envoyé de subordonnés pour me protéger, me contentant de manipuler les choses dans l'ombre. Je ne m'attendais pas à ce que ma position soit découverte! » Liu Qingyun était sombre; tout en reculant, il scrutait attentivement le groupe de Wang Lin.
 
-Plus il les observait, plus ils lui semblaient étrangers. En tant que Vice-Maître de la Secte des Cadavres, il n'avait peut-être pas croisé tous les cultivateurs Yin et Yang du Système Stellaire de l'Alliance, mais il connaissait presque tous ceux ayant atteint le stade Nirvana Scryer. Après tout, peu d'individus atteignaient ce niveau dans cette région.
+Plus il les observait, plus ils lui semblaient étrangers. En tant que Vice-Maître de la Secte des Cadavres, il n'avait peut-être pas croisé tous les cultivateurs Yin et Yang du Système Stellaire de l'Alliance, mais il connaissait presque tous ceux ayant atteint le stade Scruteur du Nirvana. Après tout, peu d'individus atteignaient ce niveau dans cette région.
 
-En particulier, ce garçon à la grosse tête le plongeait dans la confusion. Sa culture était bien au stade Nirvana Scryer, pourtant aucun domaine n'émanait de lui. À la place, il ressentait une source puissante d'énergie spirituelle céleste.
+En particulier, ce garçon à la grosse tête le plongeait dans la confusion. Sa culture était bien au stade Scruteur du Nirvana, pourtant aucun domaine n'émanait de lui. À la place, il ressentait une source puissante d'énergie spirituelle céleste.
 
 « Ceci est... un Céleste! » Les yeux de Liu Qingyun s'écarquillèrent et il recula avec une célérité accrue.
 
@@ -56,7 +56,7 @@ Cela manqua de faire perdre la raison à Liu Qingyun.
 
 Il hurla: « Repli Spatial!!! » Son esprit originel se désintégra instantanément en d'innombrables éclats de lumière qui s'échappèrent frénétiquement vers le haut.
 
-« Ces autres Vice-Maîtres ont vraiment payé le prix fort cette fois! Pour pouvoir engager un cultivateur du Nirvana Scryer capable de manipuler l'espace, la somme déboursée doit être inimaginable! » Liu Qingyun était ébranlé, mais il n'avait pas le temps de méditer sur ces faits. Le désespoir commençait à envahir son cœur.
+« Ces autres Vice-Maîtres ont vraiment payé le prix fort cette fois! Pour pouvoir engager un cultivateur du Scruteur du Nirvana capable de manipuler l'espace, la somme déboursée doit être inimaginable! » Liu Qingyun était ébranlé, mais il n'avait pas le temps de méditer sur ces faits. Le désespoir commençait à envahir son cœur.
 
 Un cultivateur maîtrisant le Repli Spatial était invincible face à ses pairs; il pouvait avancer ou reculer à sa guise. Combattre un tel être relevait du cauchemar.
 
@@ -70,7 +70,7 @@ Liu Qingyun eut un sourire amer. Il savait qu'il ne pourrait échapper à un ma�
 
 Wang Lin le fixa et demanda lentement: « Comment comptez-vous me rembourser? »
 
-Liu Qingyun serra les dents: « J'ai l'esprit originel d'un cultivateur du Nirvana Scryer, qu'en dites-vous? » Il s'agissait de l'âme de son ennemi mortel. Des années auparavant, il avait utilisé le pouvoir de la Secte des Cadavres pour détruire le corps de son adversaire et capturer son âme. Il avait initialement prévu de l'utiliser pour raffiner une marionnette, mais en cet instant critique, il était prêt à s'en défaire.
+Liu Qingyun serra les dents: « J'ai l'esprit originel d'un cultivateur du Scruteur du Nirvana, qu'en dites-vous? » Il s'agissait de l'âme de son ennemi mortel. Des années auparavant, il avait utilisé le pouvoir de la Secte des Cadavres pour détruire le corps de son adversaire et capturer son âme. Il avait initialement prévu de l'utiliser pour raffiner une marionnette, mais en cet instant critique, il était prêt à s'en défaire.
 
 L'expression de Wang Lin resta impassible: « Oh? Apportez-le. »
 
@@ -82,7 +82,7 @@ Liu Qingyun médita un instant avant de lâcher un soupir. Il toucha l'espace en
 
 Liu Qingyun n'hésita plus. Il projeta l'esprit vers l'avant, qui atterrit dans la main de Wang Lin.
 
-Après avoir examiné l'âme avec attention, Wang Lin hocha la tête. C'était bien celle d'un cultivateur du Nirvana Scryer, mais l'esprit s'était déjà évanoui; ce n'était plus qu'une coquille vide.
+Après avoir examiné l'âme avec attention, Wang Lin hocha la tête. C'était bien celle d'un cultivateur du Scruteur du Nirvana, mais l'esprit s'était déjà évanoui; ce n'était plus qu'une coquille vide.
 
 Wang Lin secoua la tête: « Ceci ne suffit pas pour acheter votre vie. »
 

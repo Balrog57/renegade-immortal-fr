@@ -20,7 +20,7 @@ L'expression de Wang Lin resta glaciale alors qu'il se détournait pour partir. 
 
 Une fois cela accompli, Wang Lin poursuivit sa progression, étendant son sens divin sur toutes les villes de la Grande Dynastie Wang. Les disciples de la Secte des Cadavres, pris de panique, s'envolèrent hors des cités en tentant de s'échapper.
 
-Cependant, dès qu'ils atteignirent les airs, un froid renâclement retentit. Leurs corps furent saisis de tremblements et directement broyés par le sens divin projeté par un cultivateur au stade Nirvana Scryer!
+Cependant, dès qu'ils atteignirent les airs, un froid renâclement retentit. Leurs corps furent saisis de tremblements et directement broyés par le sens divin projeté par un cultivateur au stade Scruteur du Nirvana!
 
 Des bruits d'éclatement résonnèrent à travers la Grande Dynastie Wang; les disciples de la Secte des Cadavres crachèrent leur sang avant que leurs corps ne se désintègrent. Même leurs âmes s'effondrèrent, et de vastes quantités d'énergie spirituelle furent libérées pour nourrir la terre de la planète Suzaku.
 
@@ -108,4 +108,4 @@ Simultanément, les cinq autres formations s'effondrèrent également. Pas un se
 
 Si un cultivateur du second niveau souhaitait anéantir une secte de ce genre, cela ne nécessiterait aucune effusion de sang. Il lui suffirait d'utiliser son sens divin pour pulvériser l'organisation.
 
-Même les cultivateurs Yin et Yang n'en étaient pas capables. Après tout, les stades Yin et Yang n'étaient que des étapes de transition; seuls les cultivateurs au stade Nirvana Scryer atteignaient véritablement le second niveau.
+Même les cultivateurs Yin et Yang n'en étaient pas capables. Après tout, les stades Yin et Yang n'étaient que des étapes de transition; seuls les cultivateurs au stade Scruteur du Nirvana atteignaient véritablement le second niveau.

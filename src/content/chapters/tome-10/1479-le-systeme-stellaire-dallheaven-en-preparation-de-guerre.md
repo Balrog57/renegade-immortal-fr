@@ -14,7 +14,7 @@ Au cœur de cette formation planétaire flottait un nuage de brume. Cette brume 
 
 Ce vieil homme portait une robe taoïste et dégageait une aura de majesté sans pour autant paraître colérique. Son visage était légèrement pâle, mais des grondements de tonnerre résonnaient en lui, comme si son corps abritait d'innombrables éclairs.
 
-Ce vieil homme était un cultivateur du troisième niveau d'Allheaven. Un cultivateur du stade initial du Nirvana Void: Maître Lu Fu!
+Ce vieil homme était un cultivateur du troisième niveau d'Allheaven. Un cultivateur du stade initial du Vide du Nirvana: Maître Lu Fu!
 
 En tant que rare expert du troisième niveau au sein du Royaume Intérieur, le statut de Maître Lu Fu était extrêmement élevé. Tous les autres cultivateurs n'étaient que des fourmis à ses yeux!
 

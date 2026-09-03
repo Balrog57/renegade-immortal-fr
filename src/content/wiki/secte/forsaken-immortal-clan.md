@@ -5,7 +5,7 @@ type: secte
 image: /renegade-immortal-fr/wiki/images/Forsaken_Immortal_Clan.png
 categories: ["Clans", "Organisations", "Système Stellaire Alliance", "Planète Suzaku", "Monde de la Grotte de Wang Lin", "Royaume Scellé"]
 url: "https://xian-ni.fandom.com/wiki/Forsaken_Immortal_Clan"
-sections: ["{\"heading\":\"Rang de Cultivation\",\"body\":\"Les chamans à sept et huit feuilles étaient semblables aux cultivateurs de la **Transformation de l'Âme** (Soul Transformation), tandis que les chamans à neuf feuilles étaient semblables aux cultivateurs de l'étape initiale Ascendant.\\n\\nLe pouvoir des membres du clan provient des tatouages noirs sur leurs corps. Plus ils ont de tatouages, plus ils sont forts. Les membres se divisent en deux types: les chamans et les guerriers.\"}", "{\"heading\":\"Feuille (comparable au Yang Corporel)\",\"body\":\"À un certain stade, la marque de feuille sur leur front leur permet d'atteindre la **Deuxième Étape** (2nd Step) et au-delà sans posséder de Domaine de Cultivateur. Cette caractéristique est commune à la plupart des autres cultivateurs du Royaume Extérieur (Outer Realm Cultivators).\"}"]
+sections: ["{\"heading\":\"Rang de Cultivation\",\"body\":\"Les chamans à sept et huit feuilles étaient semblables aux cultivateurs de la **Transformation de l'Âme** (Transformation de l'Âme), tandis que les chamans à neuf feuilles étaient semblables aux cultivateurs de l'étape initiale Ascendant.\\n\\nLe pouvoir des membres du clan provient des tatouages noirs sur leurs corps. Plus ils ont de tatouages, plus ils sont forts. Les membres se divisent en deux types: les chamans et les guerriers.\"}", "{\"heading\":\"Feuille (comparable au Yang Corporel)\",\"body\":\"À un certain stade, la marque de feuille sur leur front leur permet d'atteindre la **Deuxième Étape** (2nd Step) et au-delà sans posséder de Domaine de Cultivateur. Cette caractéristique est commune à la plupart des autres cultivateurs du Royaume Extérieur (Outer Realm Cultivators).\"}"]
 ---
 
 ## Description
@@ -29,7 +29,7 @@ Les membres du clan se divisent en deux catégories: les **chamans** et les **gu
 
 ## Rang de Cultivation
 
-Les chamans à sept et huit feuilles étaient semblables aux cultivateurs de la **Transformation de l'Âme** (Soul Transformation), tandis que les chamans à neuf feuilles étaient semblables aux cultivateurs de l'étape initiale Ascendant.
+Les chamans à sept et huit feuilles étaient semblables aux cultivateurs de la **Transformation de l'Âme** (Transformation de l'Âme), tandis que les chamans à neuf feuilles étaient semblables aux cultivateurs de l'étape initiale Ascendant.
 
 Le pouvoir des membres du clan provient des tatouages noirs sur leurs corps. Plus ils ont de tatouages, plus ils sont forts. Les membres se divisent en deux types: les chamans et les guerriers.
 

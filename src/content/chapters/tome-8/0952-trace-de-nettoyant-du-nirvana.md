@@ -1,6 +1,6 @@
 ---
 n: 952
-title: Trace de Nettoyant du Nirvana
+title: Trace de Purificateur du Nirvana
 book: 8
 bookTitle: "Alliance's Secret"
 en: Chapter 952 - Trace of Nirvana Cleanser
@@ -30,7 +30,7 @@ Dès l'apparition de l'homme, son corps vacilla et se déplaça comme un éclair
 
 L'homme d'âge moyen le suivit de près. Il semblait se transformer en une nuée de fumée rouge tout en avançant vers Wang Lin.
 
-Il était resté caché pendant très longtemps, attendant l'occasion de frapper. Il n'osait pas provoquer Qing Shui et craignait même un peu Xu Mu. En observant le cercle de cultivateurs, il ricana et pensa: « Il semble que le Maître Dieu Démon ait eu la même idée que moi. Cependant, si j'avais accepté l'appel de l'Alliance pour tous les cultivateurs du Nettoyant du Nirvana, je ne serais pas dans une situation aussi périlleuse. »
+Il était resté caché pendant très longtemps, attendant l'occasion de frapper. Il n'osait pas provoquer Qing Shui et craignait même un peu Xu Mu. En observant le cercle de cultivateurs, il ricana et pensa: « Il semble que le Maître Dieu Démon ait eu la même idée que moi. Cependant, si j'avais accepté l'appel de l'Alliance pour tous les cultivateurs du Purificateur du Nirvana, je ne serais pas dans une situation aussi périlleuse. »
 
 L'esprit de Wang Lin tressaillit et il fit un pas en avant sans hésiter, passant outre les neuf épées fusionnées. Sa main droite forma un sceau et il pointa derrière lui en criant: « Invoque le Vent! »
 
@@ -40,15 +40,15 @@ Cependant, les deux autres dragons noirs ne s'arrêtèrent pas et chargèrent di
 
 Un rire s'éleva de la brume rouge, qui se dissipa pour révéler l'homme d'âge moyen. Ses yeux étaient brillants et il se déplaçait comme une illusion. Il passa inopinément entre les deux dragons et chargea Wang Lin.
 
-« Xu Mu, ne cherche plus à cacher ton niveau de culture! Pour traverser sans dommage un tel nombre de cultivateurs Illusoire Ying, Corporel Yang et Scrutateur du Nirvana, tu dois être un cultivateur du Nettoyant du Nirvana! »
+« Xu Mu, ne cherche plus à cacher ton niveau de culture! Pour traverser sans dommage un tel nombre de cultivateurs Illusoire Ying, Corporel Yang et Scrutateur du Nirvana, tu dois être un cultivateur du Purificateur du Nirvana! »
 
-Les yeux de Wang Lin s'illuminèrent. Il se demandait pourquoi aucun cultivateur du Nettoyant du Nirvana ne se trouvait dans le Royaume de la Massacre. Cependant, son Sens Divin n'étant qu'au stade de Scrutateur du Nirvana, il ne pouvait les détecter.
+Les yeux de Wang Lin s'illuminèrent. Il se demandait pourquoi aucun cultivateur du Purificateur du Nirvana ne se trouvait dans le Royaume de la Massacre. Cependant, son Sens Divin n'étant qu'au stade de Scrutateur du Nirvana, il ne pouvait les détecter.
 
 Pourtant, après avoir vu cet homme, Wang Lin sentit une aura plus faible que celle des vieux monstres du Briseur du Nirvana, mais bien plus puissante que celle des cultivateurs Scrutateurs du Nirvana!
 
-« Nettoyant du Nirvana! » Wang Lin prit une profonde inspiration et l'intention de combat remplit son regard. Plus précisément, c'était la deuxième fois qu'il affrontait un cultivateur du Nettoyant du Nirvana. La première fois fut l'Ancêtre de Sang, et cet homme était le second!
+« Purificateur du Nirvana! » Wang Lin prit une profonde inspiration et l'intention de combat remplit son regard. Plus précisément, c'était la deuxième fois qu'il affrontait un cultivateur du Purificateur du Nirvana. La première fois fut l'Ancêtre de Sang, et cet homme était le second!
 
-« L'aura de cette personne n'est pas aussi forte que celle de l'Ancêtre de Sang, il doit donc être au début du stade du Nettoyant du Nirvana! »
+« L'aura de cette personne n'est pas aussi forte que celle de l'Ancêtre de Sang, il doit donc être au début du stade du Purificateur du Nirvana! »
 
 Alors que l'homme d'âge moyen se rapprochait, il agita la main et les neuf épées fusionnées tremblèrent. Elles circulèrent autour de lui en émettant un hymne soumis.
 
@@ -60,7 +60,7 @@ Pourtant, il ignorait pourquoi il ressentait une telle peur dès qu'il apercevai
 
 « Cet homme cache impérativement sa culture! » L'homme d'âge moyen ne sous-estima pas Wang Lin, mais le traitait comme un égal en termes de niveau. Sa main droite forma un sceau et il pointa l'adversaire. D'innombrables éclats de lumière se rassemblèrent dans sa paume.
 
-« Extraction de l'énergie originelle du monde! » Les pupilles de Wang Lin se rétractèrent. Outre le contrôle des lois, l'autre capacité des cultivateurs du Nettoyant du Nirvana était d'extraire l'énergie originelle du monde.
+« Extraction de l'énergie originelle du monde! » Les pupilles de Wang Lin se rétractèrent. Outre le contrôle des lois, l'autre capacité des cultivateurs du Purificateur du Nirvana était d'extraire l'énergie originelle du monde.
 
 C'était là la puissance des Nettoyants du Nirvana. Grâce à cette faculté, ils n'avaient pas à craindre de gaspiller leur énergie originelle et pouvaient lancer des sorts à tout instant.
 
@@ -72,7 +72,7 @@ Wang Lin avança, le poing droit tendu. Les étoiles du Dieu Ancien sous son tro
 
 Une explosion fracassante retentit. Un bras gigantesque du Dieu Ancien se matérialisa lors de l'impact, comme si la main d'un géant s'était abattue sur le monde.
 
-La puissance d'un Dieu Ancien contre l'énergie originelle rassemblée par un Nettoyant du Nirvana!
+La puissance d'un Dieu Ancien contre l'énergie originelle rassemblée par un Purificateur du Nirvana!
 
 Le Sable Désolé recouvrait le monde. Alors que le poing de Wang Lin approchait, l'homme d'âge moyen rit et hurla: « Illusion de Hongze, deviens réelle! »
 
@@ -88,7 +88,7 @@ Au centre du chaos, le poing de sable issu du sort de l'homme d'âge moyen s'eff
 
 Le corps de Wang Lin trembla également; un engourdissement se propagea dans son bras droit, suivi de vagues de douleur. Sous la force de l'impact, il fut lui aussi projeté en arrière.
 
-« C'est donc cela, un cultivateur du Nettoyant du Nirvana! » Les yeux de Wang Lin devinrent glacials.
+« C'est donc cela, un cultivateur du Purificateur du Nirvana! » Les yeux de Wang Lin devinrent glacials.
 
 L'homme d'âge moyen était désormais certain que ce Xu Mu cachait sa culture. Si ce dernier n'était réellement qu'un Scrutateur du Nirvana, il n'aurait jamais pu résister à cette illusion de vérité.
 

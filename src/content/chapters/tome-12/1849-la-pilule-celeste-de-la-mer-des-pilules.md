@@ -12,7 +12,7 @@ La boussole entre les mains de la femme commença à se brouiller alors qu'elle 
 
 À cet instant, le groupe de cultivateurs dans lequel se trouvait Wang Lin se situait encore à 10 000 pieds de la femme. Le cultivateur contrôlé par Wang Lin fit un pas en avant et dépassa plusieurs autres membres du groupe. Tandis qu'ils le regardaient avec stupeur, il arriva derrière le cultivateur qui menait la marche.
 
-Ce dernier était un homme d'âge moyen au troisième niveau, proche du Nirvana Void. Il sembla percevoir quelque chose et se retourna. Les yeux du cultivateur que Wang Lin contrôlait s'illuminèrent d'une lueur étrange, et une volute de fumée s'échappa de son front pour pénétrer dans les yeux de l'homme d'âge moyen.
+Ce dernier était un homme d'âge moyen au troisième niveau, proche du Vide du Nirvana. Il sembla percevoir quelque chose et se retourna. Les yeux du cultivateur que Wang Lin contrôlait s'illuminèrent d'une lueur étrange, et une volute de fumée s'échappa de son front pour pénétrer dans les yeux de l'homme d'âge moyen.
 
 Tout cela se produisit avec une rapidité fulgurante. Au moment où cela arriva, le corps de l'homme d'âge moyen trembla, manifestant un bref signe de lutte. Cependant, cette résistance s'estompa rapidement pour laisser place à un calme plat.
 

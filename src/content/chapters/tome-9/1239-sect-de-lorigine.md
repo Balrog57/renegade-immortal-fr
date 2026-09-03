@@ -20,7 +20,7 @@ Un brouillard de sang se répandit dans le ciel; en s'effondrant, l'autre bête 
 
 Elles préféraient la mort à l'obéissance!
 
-Ces deux bêtes blanches équivalaient à des cultivateurs du stade Nirvana Shatterer; leurs explosions provoquèrent donc immédiatement une puissante onde de choc. Les pupilles de Song Luohai, tapi dans les rochers, se rétractèrent soudainement.
+Ces deux bêtes blanches équivalaient à des cultivateurs du stade Briseur du Nirvana; leurs explosions provoquèrent donc immédiatement une puissante onde de choc. Les pupilles de Song Luohai, tapi dans les rochers, se rétractèrent soudainement.
 
 « C'est le moment! » Sa cupidité avait déjà éclipsé sa raison, surtout après avoir constaté que le nouveau roi moustique possédait l'âme d'origine d'un cultivateur.
 
@@ -32,9 +32,9 @@ Fort de cette pensée, il ne pouvait renoncer à cette opportunité, bien que le
 
 Cependant, en voyant l'opportunité parfaite offerte par l'effondrement des deux bêtes blanches — lequel avait balayé la majorité des moustiques bleus et rouges — son cœur s'emballa!
 
-« Cette âme d'origine n'est pas puissante, elle se situe seulement au début du stade Nirvana Shatterer. Tant que je peux asservir cette âme au sein du roi moustique, je pourrai contrôler le roi lui-même! » Song Luohai serra les dents, produisant des craquements sinistres dans son corps. Il jaillit soudainement de sa cachette comme un éclair, traversant l'onde de choc des deux bêtes blanches pour charger la créature de Wang Lin.
+« Cette âme d'origine n'est pas puissante, elle se situe seulement au début du stade Briseur du Nirvana. Tant que je peux asservir cette âme au sein du roi moustique, je pourrai contrôler le roi lui-même! » Song Luohai serra les dents, produisant des craquements sinistres dans son corps. Il jaillit soudainement de sa cachette comme un éclair, traversant l'onde de choc des deux bêtes blanches pour charger la créature de Wang Lin.
 
-Son timing était impeccable. Bien que sa cupidité ait supplanté son bon sens, il n'en demeurait pas moins réfléchi. Dès qu'il s'élança, ses mains formèrent un sceau et sa puissance de Nirvana Shatterer de stade intermédiaire se propagea avec fureur. L'illusion d'un soleil et d'une lune apparut derrière lui; il engagea son attaque la plus dévastatrice! Membre de la Secte de l'Âme Silencieuse, il appartenait à une faction spécialisée dans les sorts de l'esprit. Ils ne cherchaient pas à endommager le corps, mais visaient directement l'âme!
+Son timing était impeccable. Bien que sa cupidité ait supplanté son bon sens, il n'en demeurait pas moins réfléchi. Dès qu'il s'élança, ses mains formèrent un sceau et sa puissance de Briseur du Nirvana de stade intermédiaire se propagea avec fureur. L'illusion d'un soleil et d'une lune apparut derrière lui; il engagea son attaque la plus dévastatrice! Membre de la Secte de l'Âme Silencieuse, il appartenait à une faction spécialisée dans les sorts de l'esprit. Ils ne cherchaient pas à endommager le corps, mais visaient directement l'âme!
 
 Alors que son sort se déployait, Song Luohai poussa un rugissement. Ce cri portait en lui un sortilège ciblant les âmes d'origine. Sous cette onde sonore, une âme d'origine vacillait et pouvait être frappée de vertiges instantanés.
 
@@ -92,7 +92,7 @@ Cet homme d'âge moyen n'était pas seul; deux Anciens aux cheveux blancs le sui
 
 « En particulier, ce Lu Yingjie pratique une méthode de culture extrêmement cruelle et nécessite souvent un grand nombre de fours de culture. Même les plus puissants ne semblent pouvoir échapper à son emprise. »
 
-« Les rumeurs sur ce Lu Yingjie sont légion. On raconte qu'il aurait un lien de parenté avec l'Ancien Lu de la Secte Everlasting... L'Ancien Lu est au sommet du stade Nirvana Shatterer; avec un tel soutien, il n'est pas étonnant que Lu Yingjie se montre si arrogant. »
+« Les rumeurs sur ce Lu Yingjie sont légion. On raconte qu'il aurait un lien de parenté avec l'Ancien Lu de la Secte Everlasting... L'Ancien Lu est au sommet du stade Briseur du Nirvana; avec un tel soutien, il n'est pas étonnant que Lu Yingjie se montre si arrogant. »
 
 Le corps de Lu Yanfei trembla et son regard devint glacial lorsqu'elle se tourna vers l'homme en bleu. Ce dernier était plutôt beau et dégageait une aura virile.
 

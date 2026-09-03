@@ -18,7 +18,7 @@ Alors qu'il rugissait, toutes les bêtes-moustiques se dispersèrent, provoquant
 
 Bien qu'ils fussent plus rapides que les moustiques rouges, ils étaient inférieurs aux moustiques bleus! Alors que des milliers de bêtes-moustiques chargeaient, des centaines de moustiques bleus jaillirent du groupe rouge comme des météores lancés vers eux.
 
-« Des moustiques bleus! » Leurs scalpions se hérissèrent et ils coururent de plus belle. Ils n'avaient remarqué que le nuage rouge, ignorant les bêtes-moustiques bleues qui s'y cachaient. Dès qu'ils les aperçurent, ils perdirent presque la raison. La rumeur disait que ces moustiques bleus étaient extrêmement terrifiants et possédaient des capacités comparables à celles de cultivateurs du Nirvana Cleanser!
+« Des moustiques bleus! » Leurs scalpions se hérissèrent et ils coururent de plus belle. Ils n'avaient remarqué que le nuage rouge, ignorant les bêtes-moustiques bleues qui s'y cachaient. Dès qu'ils les aperçurent, ils perdirent presque la raison. La rumeur disait que ces moustiques bleus étaient extrêmement terrifiants et possédaient des capacités comparables à celles de cultivateurs du Purificateur du Nirvana!
 
 Pourtant, les moustiques bleus étaient trop rapides, et leur nombre produisait un impact visuel foudroyant. Au moment même où l'effroi les saisit, un grondement tonitruant retentit et les moustiques bleus les rattrapèrent instantanément. Ils les encerclèrent en dégageant une puissante soif de sang. Leur apparence hideuse, leurs gueules béantes et leur lumière bleue intense étaient le véritable cauchemar de ces cultivateurs!
 
@@ -72,7 +72,7 @@ Leurs souvenirs défilèrent avec rapidité. Cent ans passèrent en un seul souf
 
 Mille ans s'écoulèrent en dix souffles. Leurs souvenirs traversèrent leur esprit avant de s'arrêter sur ce qui s'était passé mille ans auparavant. Ils semblaient également être retournés mille ans dans le passé, à l'image de leurs souvenirs.
 
-Il y a mille ans, leur niveau de culture n'était pas aussi élevé qu'aujourd'hui. À mesure que leurs souvenirs défilaient, le niveau de Nirvana Cleanser au sommet du corps de Li Yuanlei sembla régresser, le ramenant au stade intermédiaire du Nirvana Cleanser!
+Il y a mille ans, leur niveau de culture n'était pas aussi élevé qu'aujourd'hui. À mesure que leurs souvenirs défilaient, le niveau de Purificateur du Nirvana au sommet du corps de Li Yuanlei sembla régresser, le ramenant au stade intermédiaire du Purificateur du Nirvana!
 
 Non seulement lui, mais tous ceux qui l'entouraient virent leur niveau de culture changer au bout des dix souffles, revenant à ce qu'il était mille ans plus tôt.
 
@@ -86,7 +86,7 @@ Les souvenirs de Li Yuanlei et de ses compagnons commencèrent progressivement �
 
 Deux mille ans de souvenirs furent impitoyablement renvoyés vers le passé. Tel un lecteur ayant atteint la sixième page d'un livre, qu'une bourrasque de vent ramènerait doucement à la troisième page.
 
-Le corps de Li Yuanlei trembla tandis que la confusion envahissait son regard. Il ne pouvait s'en défaire, car son niveau de culture avait régressé au sommet du stade Nirvana Scryer. L'une des cultivatrices à ses côtés était une jeune femme dont la durée de culture était la plus courte du groupe, moins de trois mille ans. Sa transformation fut la plus radicale, puisqu'elle fut ramenée d'un second stade à celui de cultivatrice Ascendante.
+Le corps de Li Yuanlei trembla tandis que la confusion envahissait son regard. Il ne pouvait s'en défaire, car son niveau de culture avait régressé au sommet du stade Scruteur du Nirvana. L'une des cultivatrices à ses côtés était une jeune femme dont la durée de culture était la plus courte du groupe, moins de trois mille ans. Sa transformation fut la plus radicale, puisqu'elle fut ramenée d'un second stade à celui de cultivatrice Ascendante.
 
 Si le temps s'inversait encore et qu'un autre millénaire passait, cette jeune femme disparaîtrait du monde, comme si elle n'avait jamais existé.
 

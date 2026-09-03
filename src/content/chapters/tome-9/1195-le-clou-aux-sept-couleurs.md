@@ -24,9 +24,9 @@ Plus grave encore, non seulement le clou aux sept couleurs était enfoncé dans 
 
 Si cela s'était arrêté là, cela n'aurait pas été un problème, mais Wang Lin fut choqué de constater que le clou aux sept couleurs drainait constamment sa vitalité. C'était comme s'il ne s'arrêterait que lorsqu'il aurait épuisé jusqu'à la dernière goutte de sa force vitale.
 
-« Quel genre de trésor est-ce pour avoir le pouvoir de briser l'épée du Pseudo Nirvana Void en deux? » Le cœur de Wang Lin se serra. L'épée d'acier l'avait accompagné pendant de nombreuses années et s'était révélée extrêmement utile, mais elle était désormais brisée.
+« Quel genre de trésor est-ce pour avoir le pouvoir de briser l'épée du Pseudo Vide du Nirvana en deux? » Le cœur de Wang Lin se serra. L'épée d'acier l'avait accompagné pendant de nombreuses années et s'était révélée extrêmement utile, mais elle était désormais brisée.
 
-« Il y avait aussi les perles que Maître Ashen Pine avait lancées. Chacune d'entre elles pouvait invoquer un sort dans ce Royaume aux Sept Couleurs. Elles sont très étranges. Même le Doigt du Destin Céleste est apparu à partir de l'une d'elles... » Tout en endurant la douleur, Wang Lin commença à réfléchir.
+« Il y avait aussi les perles que Maître Pin Cendré avait lancées. Chacune d'entre elles pouvait invoquer un sort dans ce Royaume aux Sept Couleurs. Elles sont très étranges. Même le Doigt du Destin Céleste est apparu à partir de l'une d'elles... » Tout en endurant la douleur, Wang Lin commença à réfléchir.
 
 Il repensa au moment où l'âme de bataille de l'Omniscient était apparue et regarda le ciel avec confusion.
 
@@ -34,15 +34,15 @@ Il repensa au moment où l'âme de bataille de l'Omniscient était apparue et re
 
 Après avoir réfléchi un instant, une lueur de froideur passa dans les yeux de Wang Lin.
 
-« Cependant, Maître Ashen Pine est également gravement blessé. Son corps s'est effondré sous le Cachet de l'Esprit de la Guerre et seule son âme originelle a survécu. Il a aussi été gravement blessé par l'épée d'acier et a consommé une grande partie de ses trésors. Je dois me rétablir le plus vite possible; la prochaine fois que nous nous croiserons, il mourra sans aucun doute! »
+« Cependant, Maître Pin Cendré est également gravement blessé. Son corps s'est effondré sous le Cachet de l'Esprit de la Guerre et seule son âme originelle a survécu. Il a aussi été gravement blessé par l'épée d'acier et a consommé une grande partie de ses trésors. Je dois me rétablir le plus vite possible; la prochaine fois que nous nous croiserons, il mourra sans aucun doute! »
 
 « Il y a aussi cette vieille femme en vert qui était piégée par la restriction. Même si elle maîtrise la Restriction de la Vie et de la Mort, avec ma Restriction de l'Annihilation mêlée à la sienne, il ne lui sera pas facile de s'en sortir. Même si elle parvient à briser la barrière par la force, elle en sortira gravement blessée! »
 
-« Il y a aussi Maître Cloud Soul. Lorsqu'il a été téléporté ici, il l'a été vers un lieu aléatoire, mais j'ignore où. Cependant, cet endroit est rempli de dangers, et être transporté ici au hasard est périlleux. Il est probable qu'il ne puisse même pas se défendre pour le moment. »
+« Il y a aussi Maître Nuage-Âme. Lorsqu'il a été téléporté ici, il l'a été vers un lieu aléatoire, mais j'ignore où. Cependant, cet endroit est rempli de dangers, et être transporté ici au hasard est périlleux. Il est probable qu'il ne puisse même pas se défendre pour le moment. »
 
 « Ces trois-là ont tous été mis en difficulté par moi, mais ce Chen Tianjun est parti tôt. Bien que nous ayons senti ses sorts se dissiper auparavant, il est difficile de prouver qu'il est mort... »
 
-Chacun ici complotait contre les autres, et personne ne voulait laisser autrui quitter cet endroit avec le trésor. C'était ce qu'on appelle: « même si un homme ne veut pas nuire au tigre, le tigre, lui, voudra toujours nuire à l'homme ». Si l'on reste passif, on finit inévitablement par être victime de complots. Les yeux de Wang Lin s'illuminèrent; il avait depuis longtemps percé à jour leurs intentions. C'est pourquoi il avait agi le premier en forçant Maître Cloud Soul à se téléporter ailleurs, puis il avait piégé la vieille femme dans la restriction afin de pouvoir affronter Maître Ashen Pine.
+Chacun ici complotait contre les autres, et personne ne voulait laisser autrui quitter cet endroit avec le trésor. C'était ce qu'on appelle: « même si un homme ne veut pas nuire au tigre, le tigre, lui, voudra toujours nuire à l'homme ». Si l'on reste passif, on finit inévitablement par être victime de complots. Les yeux de Wang Lin s'illuminèrent; il avait depuis longtemps percé à jour leurs intentions. C'est pourquoi il avait agi le premier en forçant Maître Nuage-Âme à se téléporter ailleurs, puis il avait piégé la vieille femme dans la restriction afin de pouvoir affronter Maître Pin Cendré.
 
 Alors qu'il réfléchissait, une douleur fulgurante lui traversa l'épaule droite et la sueur perla sur son front. Affichant un regard déterminé, il passa sa main gauche sur son épaule droite. Une blessure apparut immédiatement et s'élargit jusqu'à révéler le clou aux sept couleurs incrusté dans son os.
 
@@ -68,11 +68,11 @@ Après avoir observé silencieusement la cicatrisation, Wang Lin ferma les yeux 
 
 Le temps passa et trois jours supplémentaires s'écoulèrent. Wang Lin ouvrit les yeux. Avec son niveau de culture, il ne pouvait que le supprimer. Il ne parvenait pas à expulser la lumière aux sept couleurs, et encore moins le clou.
 
-« Si je ne peux que le supprimer, alors ce n'est pas encore fini. Maintenant, j'ai juste besoin d'aide... S'il y a suffisamment d'aides, je devrais être capable de forcer la sortie des sept couleurs et du clou! » Wang Lin regarda silencieusement la fiole de jade. C'était l'objectif ultime de Maître Ashen Pine en venant dans le Royaume aux Sept Couleurs.
+« Si je ne peux que le supprimer, alors ce n'est pas encore fini. Maintenant, j'ai juste besoin d'aide... S'il y a suffisamment d'aides, je devrais être capable de forcer la sortie des sept couleurs et du clou! » Wang Lin regarda silencieusement la fiole de jade. C'était l'objectif ultime de Maître Pin Cendré en venant dans le Royaume aux Sept Couleurs.
 
 Tenant la fiole, le sens divin de Wang Lin se déploya. Elle était à moitié remplie d'un liquide noir. Cela ressemblait à du sang, mais n'en dégageait pas l'odeur.
 
-« Une fois que j'aurai obtenu l'âme originelle de Maître Ashen Pine, je saurai exactement ce que c'est. Si je ne me trompe pas, cela doit être lié à l'augmentation de son niveau de culture. » Il rangea la fiole dans ses vêtements, se leva et observa la Restriction de la Vie et de la Mort à l'entrée de la grotte. Puis, il tourna son regard vers la femme en argent.
+« Une fois que j'aurai obtenu l'âme originelle de Maître Pin Cendré, je saurai exactement ce que c'est. Si je ne me trompe pas, cela doit être lié à l'augmentation de son niveau de culture. » Il rangea la fiole dans ses vêtements, se leva et observa la Restriction de la Vie et de la Mort à l'entrée de la grotte. Puis, il tourna son regard vers la femme en argent.
 
 « Vous connaissez la Restriction de la Vie et de la Mort? »
 

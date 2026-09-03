@@ -76,7 +76,7 @@ La région de rang 2 défila en un éclair sous l'impulsion de Wang Lin. Un frac
 
 Le Secte de l'Âme Marine était une branche de la Secte de l'Âme Silencieuse. Puisque la Secte de l'Âme Silencieuse était la plus puissante secte de rang 8, la Secte de l'Âme Marine avait toujours été dominant dans la région de rang 4; rarement osait-on les provoquer.
 
-Le maître de la secte était un cultivateur au sommet du stade Nirvana Scryer. Il était assez puissant pour dominer toute la région de rang 4!
+Le maître de la secte était un cultivateur au sommet du stade Scruteur du Nirvana. Il était assez puissant pour dominer toute la région de rang 4!
 
 À cet instant, il faisait nuit sur le continent de la Secte de l'Âme Marine. Tous les cultivateurs étaient en pleine culture, et même le maître de la secte était assis dans sa chambre secrète. Soudain, un grondement tonitruant retentit et le continent entier trembla.
 

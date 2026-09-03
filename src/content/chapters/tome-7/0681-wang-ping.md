@@ -36,7 +36,7 @@ Cependant, l'ancêtre de la famille Huan n'aurait jamais pu imaginer que Wang Li
 
 Si le vortex n'avait fait que se briser, cela aurait été gérable, mais l'énergie de l'épée ne fut nullement entamée et fonça droit sur son âme originelle. La puissance de cette attaque fit frissonner le cuir chevelu de l'ancêtre de la famille Huan.
 
-En percevant sa force, il crut déceler vaguement la puissance d'un cultivateur du Nirvana Cleanser. Cette aura terrifiante lui glaça le sang. N'osant l'affronter, il s'enfuit en panique.
+En percevant sa force, il crut déceler vaguement la puissance d'un cultivateur du Purificateur du Nirvana. Cette aura terrifiante lui glaça le sang. N'osant l'affronter, il s'enfuit en panique.
 
 Il utilisa la vitesse maximale qu'une âme originelle pouvait atteindre pour ramener Liu Mei à travers le vortex, puis retourna immédiatement dans son corps afin de tenter de briser définitivement le vortex et de piéger l'énergie de l'épée dans le vide.
 
@@ -48,7 +48,7 @@ Un rayon de lumière dorée jaillit soudainement du vortex au moment même de so
 
 La chambre secrète de la famille Huan explosa sous la pression de l'énergie de l'épée, créant une onde de choc massive. Cette onde dévasta les bâtiments sur son passage et souleva un immense nuage de poussière. L'ancêtre de la famille Huan émergea des décombres, stupéfait et dans un état pitoyable, tandis qu'il s'enfuyait en emportant Liu Mei.
 
-« Maudit soit-il! Comment ce junior qui connaît Liu Mei peut-il posséder une telle énergie d'épée!?! Quel genre de senior du Nirvana Cleanser fou donnerait une telle puissance à un junior au premier stade? C'est une véritable oppression! » jura l'ancêtre de la famille Huan en pensée. Ce n'était pas qu'il ne pouvait y résister, mais son état affaibli et sa chute de culture le faisaient craindre que ses fondations ne deviennent encore plus instables s'il tentait de contrer cette attaque.
+« Maudit soit-il! Comment ce junior qui connaît Liu Mei peut-il posséder une telle énergie d'épée!?! Quel genre de senior du Purificateur du Nirvana fou donnerait une telle puissance à un junior au premier stade? C'est une véritable oppression! » jura l'ancêtre de la famille Huan en pensée. Ce n'était pas qu'il ne pouvait y résister, mais son état affaibli et sa chute de culture le faisaient craindre que ses fondations ne deviennent encore plus instables s'il tentait de contrer cette attaque.
 
 Après l'effondrement de la chambre secrète, l'énergie de l'épée se précipita droit sur l'ancêtre de la famille Huan. Elle charriait le domaine tyrannique de Ling Tianhou. À cet instant, c'était comme si les cieux et la terre tout entiers étaient saturés de cette aura impérieuse.
 
@@ -78,21 +78,21 @@ Auparavant, il avait totalement ignoré ces menaces, mais elles retentissaient d
 
 Ce qui l'effrayait davantage encore était de songer au nombre de tels éclairs que ce personnage pouvait encore déchaîner.
 
-« Si cet homme possède plus de six rayons de cette énergie, alors à moins de recouvrer ma culture de Nirvana Scryer, je mourrai sans aucun doute! Mais le plus terrifiant n'est pas là; ce qui est véritablement effrayant, c'est le maître de cette épée... Être capable d'offrir une telle puissance à un junior signifie qu'ils sont très proches. Peut-être même un descendant direct... » Le cuir chevelu de l'ancêtre de la famille Huan s'engourdit. Malgré sa force mentale, il ne pouvait s'empêcher de succomber à la peur.
+« Si cet homme possède plus de six rayons de cette énergie, alors à moins de recouvrer ma culture de Scruteur du Nirvana, je mourrai sans aucun doute! Mais le plus terrifiant n'est pas là; ce qui est véritablement effrayant, c'est le maître de cette épée... Être capable d'offrir une telle puissance à un junior signifie qu'ils sont très proches. Peut-être même un descendant direct... » Le cuir chevelu de l'ancêtre de la famille Huan s'engourdit. Malgré sa force mentale, il ne pouvait s'empêcher de succomber à la peur.
 
-Bien qu'il fût l'ancêtre de la famille Huan et que sa culture ait atteint le stade Nirvana Scryer, cela signifiait simplement qu'il était d'autant plus conscient de la terreur qu'inspirait un Nirvana Cleanser. La deuxième étape de la culture différait radicalement de la première.
+Bien qu'il fût l'ancêtre de la famille Huan et que sa culture ait atteint le stade Scruteur du Nirvana, cela signifiait simplement qu'il était d'autant plus conscient de la terreur qu'inspirait un Purificateur du Nirvana. La deuxième étape de la culture différait radicalement de la première.
 
 Au premier stade, posséder des trésors célestes ou des sorts puissants permettait de défier quelqu'un ayant un niveau de culture supérieur. Bien que rare, ce n'était pas impossible; un trésor ou un sort utilisé avec maestria pouvait même tuer un adversaire plus élevé en rang.
 
 Cependant, au second stade, il était impossible de vaincre un être de culture supérieure. Chaque palier représentait une différence entre le ciel et la terre.
 
-Inutile de mentionner l'écart entre Nirvana Scryer et Nirvana Cleanser. La simple distinction entre le début et le milieu du stade Nirvana Scryer constituait déjà un gouffre infranchissable. Si l'énergie d'épée d'un simple Nirvana Cleanser pouvait lui inspirer une telle crainte, on mesurait toute l'ampleur de la puissance en jeu.
+Inutile de mentionner l'écart entre Scruteur du Nirvana et Purificateur du Nirvana. La simple distinction entre le début et le milieu du stade Scruteur du Nirvana constituait déjà un gouffre infranchissable. Si l'énergie d'épée d'un simple Purificateur du Nirvana pouvait lui inspirer une telle crainte, on mesurait toute l'ampleur de la puissance en jeu.
 
 À cet instant, le meilleur choix était de livrer Liu Mei. L'ancêtre regarda Liu Mei, empreinte de désespoir, et renonça immédiatement à cette idée.
 
 « Cet individu connaît Liu Mei, il doit donc être issu du Système Stellaire Alliance. Peu importe la puissance de son maître, sans une Pierre Allheaven, il ne peut pénétrer ce système stellaire, à moins de posséder son propre réseau de transfert. Pourtant, même ainsi, le temps que son maître arrive, cette affaire ne sera plus un duel entre lui et moi, mais une guerre entre deux systèmes stellaires. À ce moment-là, les puissants experts du Palais Céleste du Tonnerre s'en mêleront. »
 
-« Après tout, une fois que le plan de ce vieil homme concernant Liu Mei aura réussi, peut-être ma culture aura-t-elle également atteint le stade Nirvana Cleanser. Sinon, je devrais tout de même pouvoir atteindre le sommet du stade tardif de Nirvana Scryer. »
+« Après tout, une fois que le plan de ce vieil homme concernant Liu Mei aura réussi, peut-être ma culture aura-t-elle également atteint le stade Purificateur du Nirvana. Sinon, je devrais tout de même pouvoir atteindre le sommet du stade tardif de Scruteur du Nirvana. »
 
 Après avoir pris sa décision, l'ancêtre de la famille Huan déploya immédiatement son sens divin sur toute la planète.
 

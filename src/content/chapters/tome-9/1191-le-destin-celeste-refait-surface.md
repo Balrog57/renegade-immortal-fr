@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1191 - Heavenly Fate Appears Once More
 slug: le-destin-celeste-refait-surface
 ---
-La vieille femme en vert n'offrit aucune explication; elle fit simplement un pas en avant et laissa échapper un renâclement glacial. Ses mains formèrent un sceau et, dans une profonde inspiration, elle créa une puissante force d'aspiration. Maître Ashen Pine fut pris dans ce tourbillon, avec l'impression que toute sa force vitale allait lui être arrachée.
+La vieille femme en vert n'offrit aucune explication; elle fit simplement un pas en avant et laissa échapper un renâclement glacial. Ses mains formèrent un sceau et, dans une profonde inspiration, elle créa une puissante force d'aspiration. Maître Pin Cendré fut pris dans ce tourbillon, avec l'impression que toute sa force vitale allait lui être arrachée.
 
 Cependant, son expression retrouva aussitôt son calme. Il eut un ricanement méprisant et serra plus fermement le flacon de jade. S'il avait pu le placer dans son espace de stockage, il l'aurait déjà mis en sécurité.
 
@@ -14,7 +14,7 @@ Ne perdant pas de temps avec la vieille femme, il utilisa sa puissante culture p
 
 À cet instant, sa main gauche s'élança vers le vide et une lumière dorée apparut. Cette clarté se mua en des dizaines de milliers d'épées volantes qui, d'un geste de son doigt, foncèrent sur la vieille femme en vert.
 
-Simultanément, Maître Ashen Pine frappa son front de sa main gauche, projetant un rayon de lumière rouge. Ce dernier ressemblait à une Âme Naissante, mais pour quiconque l'observait attentivement, il était clair qu'il n'en était rien!
+Simultanément, Maître Pin Cendré frappa son front de sa main gauche, projetant un rayon de lumière rouge. Ce dernier ressemblait à une Âme Naissante, mais pour quiconque l'observait attentivement, il était clair qu'il n'en était rien!
 
 La petite silhouette laissa échapper un cri strident tandis que la lumière sanglante l'enveloppait, chargeant droit sur la vieille femme!
 
@@ -24,27 +24,27 @@ Dès son apparition, le bol se mit à tournoyer et fonça sur la petite silhouet
 
 Un grondement sourd résonna et le bol de cuivre vola en éclats. Au même moment, d'innombrables mots dorés s'élancèrent vers la vieille femme en vert, portés par la petite silhouette.
 
-Le temps pressait, et Maître Ashen Pine n'avait pas le loisir de s'occuper de la vieille femme. Des ondulations apparurent autour de lui alors qu'il s'apprêtait à s'échapper.
+Le temps pressait, et Maître Pin Cendré n'avait pas le loisir de s'occuper de la vieille femme. Des ondulations apparurent autour de lui alors qu'il s'apprêtait à s'échapper.
 
 Pourtant, alors qu'il franchissait à peine le premier pas dans les ondulations, un bras desséché surgit du vide et s'agrippa à sa main droite!
 
-« C'est donc le quatrième royaume ancestral! » Les pupilles de Maître Ashen Pine se contractèrent, mais il était déjà trop tard pour réfléchir. Sa main gauche s'abattit sur le bras flétri dans un fracas tonnerreux. Maître Ashen Pine poussa un gémissement et son visage devint instantanément livide.
+« C'est donc le quatrième royaume ancestral! » Les pupilles de Maître Pin Cendré se contractèrent, mais il était déjà trop tard pour réfléchir. Sa main gauche s'abattit sur le bras flétri dans un fracas tonnerreux. Maître Pin Cendré poussa un gémissement et son visage devint instantanément livide.
 
-« Le stade de pointe du milieu du Nirvana Shatterer! »
+« Le stade de pointe du milieu du Briseur du Nirvana! »
 
-Le bras gauche de Maître Ashen Pine était engourdi et devenu totalement noir. Un liquide jaunâtre suintait immédiatement de sa chair. Il était empoisonné! S'appuyant sur la force de cet impact, il s'engouffra dans les ondulations.
+Le bras gauche de Maître Pin Cendré était engourdi et devenu totalement noir. Un liquide jaunâtre suintait immédiatement de sa chair. Il était empoisonné! S'appuyant sur la force de cet impact, il s'engouffra dans les ondulations.
 
 Une femme encore plus âgée émergea des ondulations. Elle semblait sortir tout droit d'un cercueil; vêtue de vert elle aussi, elle était totalement chauve, ce qui lui donnait une apparence terrifiante!
 
-Ses yeux brillaient d'une lueur spectrale tandis que du sang s'écoulait du coin de sa bouche. D'un revers de main, elle brisa la pluie d'épées dorées et saisit la petite silhouette. Après l'avoir scellée, elle poursuivit Maître Ashen Pine à travers les ondulations.
+Ses yeux brillaient d'une lueur spectrale tandis que du sang s'écoulait du coin de sa bouche. D'un revers de main, elle brisa la pluie d'épées dorées et saisit la petite silhouette. Après l'avoir scellée, elle poursuivit Maître Pin Cendré à travers les ondulations.
 
-Le visage de Maître Ashen Pine était blême. Il n'avait pas imaginé que la vieille femme en vert aurait si parfaitement dissimulé son niveau de culture pour lui lancer une attaque surprise. Le sort de cette dernière contenait également un poison étrange qui tentait de se propager dans tout son corps, mais il parvint à le supprimer par la force.
+Le visage de Maître Pin Cendré était blême. Il n'avait pas imaginé que la vieille femme en vert aurait si parfaitement dissimulé son niveau de culture pour lui lancer une attaque surprise. Le sort de cette dernière contenait également un poison étrange qui tentait de se propager dans tout son corps, mais il parvint à le supprimer par la force.
 
 « Tant que je parviens à sortir de cette fissure, le temps ne sera plus un obstacle. Avec mes nombreux trésors magiques, cette vieille femme ne fera pas le poids! »
 
-À l'instant où Maître Ashen Pine franchit les ondulations, il voulut s'enfuir, mais la vieille femme le rattrapa aussitôt. Les deux combattants se lancèrent dans un échange incessant de sorts, et un grondement capable de faire trembler les cieux résonna à travers la montagne.
+À l'instant où Maître Pin Cendré franchit les ondulations, il voulut s'enfuir, mais la vieille femme le rattrapa aussitôt. Les deux combattants se lancèrent dans un échange incessant de sorts, et un grondement capable de faire trembler les cieux résonna à travers la montagne.
 
-Ils convergeaient vers la fissure de la restriction de lumière noire. À cet instant, l'ouverture ne mesurait plus que vingt pieds de large et se refermait de plus en plus vite. Les yeux de Maître Ashen Pine s'illuminèrent et il entama un étrange chant.
+Ils convergeaient vers la fissure de la restriction de lumière noire. À cet instant, l'ouverture ne mesurait plus que vingt pieds de large et se refermait de plus en plus vite. Les yeux de Maître Pin Cendré s'illuminèrent et il entama un étrange chant.
 
 Dès qu'il eut commencé, la lumière aux sept couleurs dans le ciel fulgura violemment avant de descendre vers eux. Ces sept rayons se muèrent en sept épées qui chargèrent la vieille femme en vert.
 
@@ -54,13 +54,13 @@ La lumière aux sept couleurs percuta le bouclier dans un fracas encore plus vio
 
 Au moment où son âme originelle fut projetée, la vieille femme en vert et la belle femme d'âge moyen qui venait de sortir des ondulations frappèrent également leur front. Leurs âmes originelles s'élancèrent et fusionnèrent rapidement.
 
-Les trois âmes originelles ne firent qu'un en un instant, se transformant en un rayon de lumière qui fonça sur Maître Ashen Pine!
+Les trois âmes originelles ne firent qu'un en un instant, se transformant en un rayon de lumière qui fonça sur Maître Pin Cendré!
 
-L'expression de Maître Ashen Pine devint féroce. Serrant les dents, il déplaça le flacon dans sa main gauche et agita la droite. Une perle apparut immédiatement dans sa paume!
+L'expression de Maître Pin Cendré devint féroce. Serrant les dents, il déplaça le flacon dans sa main gauche et agita la droite. Une perle apparut immédiatement dans sa paume!
 
-Sans hésiter, Maître Ashen Pine lança la perle sur l'âme originelle de la vieille femme.
+Sans hésiter, Maître Pin Cendré lança la perle sur l'âme originelle de la vieille femme.
 
-« Invoque, Défiant! » rugit Maître Ashen Pine, tandis que la perle émettait une lueur spectrale. Elle attira la lumière aux sept couleurs et l'absorba totalement.
+« Invoque, Défiant! » rugit Maître Pin Cendré, tandis que la perle émettait une lueur spectrale. Elle attira la lumière aux sept couleurs et l'absorba totalement.
 
 Peu après, la perle s'effondra et un éclair aux sept couleurs jaillit vers l'âme originelle de la vieille femme.
 
@@ -74,21 +74,21 @@ Ces trois restrictions étaient des entités d'une puissance extrême parmi les 
 
 La montagne trembla et une grande partie d'elle commença à s'effondrer. La brume fut repoussée et toutes les silhouettes qui y flottaient s'immobilisèrent. Tous les Éveillés dérivèrent vers la source du fracas.
 
-Sous l'impact de cette puissance colossale, l'âme originelle se scinda en trois. Très transparentes, elles retournèrent rapidement dans leurs corps respectifs. Maître Ashen Pine n'avait pas anticipé une telle puissance de restriction. Son corps fut projeté en arrière par la force de l'impact et il cracha du sang.
+Sous l'impact de cette puissance colossale, l'âme originelle se scinda en trois. Très transparentes, elles retournèrent rapidement dans leurs corps respectifs. Maître Pin Cendré n'avait pas anticipé une telle puissance de restriction. Son corps fut projeté en arrière par la force de l'impact et il cracha du sang.
 
 Sa main gauche était déjà rongée par un poison puissant. Sa chair et son sang s'étaient transformés en un liquide jaunâtre et même ses os commençaient à fondre. Sous la violence du choc, son bras gauche fut arraché et se dissipa.
 
 Le flacon de jade fut projeté par l'impact et vola vers la fissure qui ne mesurait plus que dix pieds de large.
 
-Les yeux de Maître Ashen Pine devinrent injectés de sang alors qu'il s'élançait pour rattraper le flacon. La vieille femme, les yeux brillants, se précipita également vers la fissure.
+Les yeux de Maître Pin Cendré devinrent injectés de sang alors qu'il s'élançait pour rattraper le flacon. La vieille femme, les yeux brillants, se précipita également vers la fissure.
 
-C'est à cet instant précis qu'une silhouette blanche jaillit, se déplaçant à la vitesse d'un cultivateur du stade avancé du Nirvana Shatterer. Elle dépassa la vieille femme en vert et Maître Ashen Pine, saisit le flacon et, sans l'ombre d'une hésitation, s'engouffra hors de la fissure.
+C'est à cet instant précis qu'une silhouette blanche jaillit, se déplaçant à la vitesse d'un cultivateur du stade avancé du Briseur du Nirvana. Elle dépassa la vieille femme en vert et Maître Pin Cendré, saisit le flacon et, sans l'ombre d'une hésitation, s'engouffra hors de la fissure.
 
 Dès qu'il eut franchi la brèche, l'inconnu pressa sa main droite contre la fissure, libérant une restriction qui accéléra considérablement sa fermeture.
 
-« Lu Zihao! » Maître Ashen Pine fut stupéfait avant de pousser un rugissement et de s'élancer hors de la fissure pour poursuivre la silhouette blanche.
+« Lu Zihao! » Maître Pin Cendré fut stupéfait avant de pousser un rugissement et de s'élancer hors de la fissure pour poursuivre la silhouette blanche.
 
-Cependant, au moment où il franchit l'ouverture, il tomba dans les restrictions que Wang Lin avait préalablement disposées. Un grondement retentit alors que de nombreuses entraves se déclenchaient, immobilisant Maître Ashen Pine un instant.
+Cependant, au moment où il franchit l'ouverture, il tomba dans les restrictions que Wang Lin avait préalablement disposées. Un grondement retentit alors que de nombreuses entraves se déclenchaient, immobilisant Maître Pin Cendré un instant.
 
 Les trois corps de la vieille femme fusionnèrent pour n'en former qu'un et s'élancèrent hors de la fissure comme un éclair. Elle poursuivait Wang Lin!
 
@@ -104,7 +104,7 @@ Le scorpion mesurait des dizaines de milliers de pieds de long. Sa queue fouetta
 
 Wang Lin fit soudainement volte-face, un éclat froid dans les yeux. Il leva sa main gauche et décocha un coup de poing contre la queue du scorpion! Un grondement tellurique retentit, faisant trembler la queue qui s'effondra instantanément.
 
-À cet instant précis, Maître Ashen Pine surgit également, les yeux injectés de sang. Il sortit une autre perle et, faisant fi de la douleur lancinante, il la lança en criant: « Invoque, Défiant! »
+À cet instant précis, Maître Pin Cendré surgit également, les yeux injectés de sang. Il sortit une autre perle et, faisant fi de la douleur lancinante, il la lança en criant: « Invoque, Défiant! »
 
 À peine eut-il parlé que toute la lumière aux sept couleurs du monde convergea vers la perle pour y être engloutie. Puis, la perle s'effondra brusquement.
 

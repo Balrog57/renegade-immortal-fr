@@ -102,4 +102,4 @@ En voyant clairement Zhou Yi, Wang Lin cessa de reculer et apaisa son sceau. Il 
 
 « Je savais que tu parviendrais jusqu'ici. » En regardant Wang Lin, Zhou Yi afficha un mélange de mélancolie et de sourire, teinté d'une pointe de nostalgie.
 
-Aux yeux de Wang Lin, Zhou Yi avait beaucoup changé. Ce qui le surprit davantage fut une aura émanant de lui, très similaire à celle d'un trésor de grade Pseudo Nirvana Void.
+Aux yeux de Wang Lin, Zhou Yi avait beaucoup changé. Ce qui le surprit davantage fut une aura émanant de lui, très similaire à celle d'un trésor de grade Pseudo Vide du Nirvana.

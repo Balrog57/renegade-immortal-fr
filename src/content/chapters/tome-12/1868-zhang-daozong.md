@@ -36,7 +36,7 @@ Il y avait initialement six ou sept mille cultivateurs de chaque côté, mais il
 
 Il ne voulait pas prendre part à ce carnage. À ses yeux, le Continent du Taureau Céleste et le Continent du Démon Vert se valaient; l'un n'était pas meilleur que l'autre.
 
-En un éclair, Wang Lin chargea dans les profondeurs du champ de bataille. Peu après, il tourna la tête vers la droite. Dans la brume, deux cultivateurs s'affrontaient, et celui qui était en position de faiblesse traversait des moments critiques. Le vieil homme du Continent du Démon Vert était au stade intermédiaire de l'Arcane Void, et ses attaques étaient féroces.
+En un éclair, Wang Lin chargea dans les profondeurs du champ de bataille. Peu après, il tourna la tête vers la droite. Dans la brume, deux cultivateurs s'affrontaient, et celui qui était en position de faiblesse traversait des moments critiques. Le vieil homme du Continent du Démon Vert était au stade intermédiaire du Vide Arcanique, et ses attaques étaient féroces.
 
 « C'est lui! » Wang Lin fixa le cultivateur qui reculait. Il avait un souvenir de lui; c'était le vieil homme qui était apparu sur la Prairie du Ciel Extrême.
 
@@ -76,7 +76,7 @@ Tout cela se produisit en un éclair. Le vieil homme regardait avec stupéfactio
 
 « C'est l'Ancien de la Grande Secte de l'Âme! » Le vieillard avait rencontré Wang Lin dans le palais souterrain et l'avait reconnu. Cependant, en voyant ses longs cheveux blancs, sa robe immaculée et cette aura glaciale, il avait l'impression d'avoir déjà croisé ce visage quelque part.
 
-Wang Lin fendit le brouillard pour continuer sa progression vers les cultivateurs de la Tribulation du Vide qui combattaient. Tout cultivateur de l'Arcane Void qu'il croisait était immédiatement exécuté. Il scellait leurs âmes originelles dans son corps afin de renforcer sa première veine de sorts.
+Wang Lin fendit le brouillard pour continuer sa progression vers les cultivateurs de la Tribulation du Vide qui combattaient. Tout cultivateur du Vide Arcanique qu'il croisait était immédiatement exécuté. Il scellait leurs âmes originelles dans son corps afin de renforcer sa première veine de sorts.
 
 Wang Lin comprenait vaguement le principe de l'Art du Sort Rapide. Il devait constamment sceller les âmes originelles des cultivateurs pour qu'elles forment un vortex. La rotation de ce vortex atteindrait alors une vitesse extrême!
 
@@ -86,7 +86,7 @@ Cependant, il y avait une limite. En chemin, Wang Lin avait scellé un total de 
 
 Cela était explicité dans l'Art du Sort Rapide, et après l'avoir expérimenté lui-même, Wang Lin en avait acquis une compréhension profonde. S'il voulait former une seconde veine, il aurait besoin de l'âme originelle d'un cultivateur encore plus puissant.
 
-À moins qu'il ne puisse faire comme Xu Decai et commencer le scellement dès le stade du Nirvana Void, la puissance serait bien moindre. Le vortex que Wang Lin avait formé était déjà plus puissant que quatre des vortex de Xu Decai.
+À moins qu'il ne puisse faire comme Xu Decai et commencer le scellement dès le stade du Vide du Nirvana, la puissance serait bien moindre. Le vortex que Wang Lin avait formé était déjà plus puissant que quatre des vortex de Xu Decai.
 
 On pouvait mesurer l'immense écart de puissance.
 

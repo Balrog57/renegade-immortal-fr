@@ -60,7 +60,7 @@ Ce cri résonna et étouffa la peur des dizaines de milliers de cultivateurs. D�
 
 La voix de Maître Lu Fu pénétra les oreilles de tous les cultivateurs d'Allheaven présents.
 
-« Cependant, même si ce vieil homme n'est pas votre rival, je suis certain de pouvoir encore livrer bataille! Ce vieil homme est très talentueux; sans ce manque de Flammes Joss, ma culture aurait depuis longtemps atteint le milieu ou la fin du Nirvana Void! »
+« Cependant, même si ce vieil homme n'est pas votre rival, je suis certain de pouvoir encore livrer bataille! Ce vieil homme est très talentueux; sans ce manque de Flammes Joss, ma culture aurait depuis longtemps atteint le milieu ou la fin du Vide du Nirvana! »
 
 « Bien que ma culture soit limitée par l'absence de Flammes Joss, j'ai raffiné de nombreux trésors au cours des dizaines de milliers d'années passées! Avec la puissance de la formation planétaire, cela suffira encore à vous combattre! » La voix de Maître Lu Fu résonna tandis qu'il agitait sa manche. La formation planétaire libéra une aura plusieurs fois plus puissante que précédemment, balayant les étoiles.
 

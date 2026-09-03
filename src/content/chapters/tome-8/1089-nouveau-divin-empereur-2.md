@@ -78,9 +78,9 @@ Plusieurs silhouettes souriantes s'envolèrent vers les étoiles depuis la Secte
 
 L'ensemble de la Secte Divin de l'Oiseau Vermillon semblait entrer en ébullition alors que d'innombrables personnes quittaient leurs planètes pour rejoindre l'espace. La plupart étaient transportées par l'excitation, mais certains affichaient des expressions sombres et incertaines.
 
-Parmi eux se trouvaient les trois prétendants au titre de prochain Divin Empereur: deux hommes et une femme. Leur apparence importait peu; ils se situaient tous entre les stades Nirvana Scryer et Nirvana Cleanser.
+Parmi eux se trouvaient les trois prétendants au titre de prochain Divin Empereur: deux hommes et une femme. Leur apparence importait peu; ils se situaient tous entre les stades Scruteur du Nirvana et Purificateur du Nirvana.
 
-Le plus remarquable était Ren Tao, qui avait déjà atteint le début du stade Nirvana Cleanser! Derrière lui, quatre Anciens fixaient le ciel d'un air lugubre.
+Le plus remarquable était Ren Tao, qui avait déjà atteint le début du stade Purificateur du Nirvana! Derrière lui, quatre Anciens fixaient le ciel d'un air lugubre.
 
 L'expression de Ren Tao était aussi sombre que l'eau. Il pouvait clairement sentir les flammes du champ d'étoiles s'engouffrer vers ses profondeurs.
 

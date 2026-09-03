@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1205 - Pride
 slug: fierte
 ---
-Wang Lin s'assit sur la tête de la statue. Il savait que si Maître Ashen Pine avait pu restaurer son corps et obtenir cette marque de foudre, c'était en lien étroit avec cette statue de pierre.
+Wang Lin s'assit sur la tête de la statue. Il savait que si Maître Pin Cendré avait pu restaurer son corps et obtenir cette marque de foudre, c'était en lien étroit avec cette statue de pierre.
 
-L'une des âmes naissantes de sang de Maître Ashen Pine avait cultivé la méthode laissée dans cette statue. Grâce à sa puissance de compréhension décuplée, il n'en avait obtenu qu'une infime partie de l'héritage.
+L'une des âmes naissantes de sang de Maître Pin Cendré avait cultivé la méthode laissée dans cette statue. Grâce à sa puissance de compréhension décuplée, il n'en avait obtenu qu'une infime partie de l'héritage.
 
 Désormais, Wang Lin avait absorbé la majeure partie de cet héritage lors de leur combat grâce à son contrôle du tonnerre, et tout cela était concentré dans son œil droit.
 
@@ -24,17 +24,17 @@ De loin, on ne pouvait percevoir qu'une sphère de tonnerre entourant la statue,
 
 C'était une bataille entre la foudre et le tonnerre; un combat pour la domination!
 
-Wang Lin ne cherchait pas à comprendre comme Maître Ashen Pine. Il ne s'inclinait pas devant la marque de foudre de la statue pour en saisir l'essence. Il ne se soumettait pas à cette marque tel un serviteur pour augmenter sa propre compréhension.
+Wang Lin ne cherchait pas à comprendre comme Maître Pin Cendré. Il ne s'inclinait pas devant la marque de foudre de la statue pour en saisir l'essence. Il ne se soumettait pas à cette marque tel un serviteur pour augmenter sa propre compréhension.
 
-Maître Ashen Pine était comme un mendiant qui avait attendu une éternité pour obtenir les derniers vestiges de la puissance de la foudre afin de les transformer en son propre sortilège. Cela lui avait même permis d'invoquer le septième esprit du Royaume Scellé, capable de blesser le corps de Dieu Ancien de Wang Lin!
+Maître Pin Cendré était comme un mendiant qui avait attendu une éternité pour obtenir les derniers vestiges de la puissance de la foudre afin de les transformer en son propre sortilège. Cela lui avait même permis d'invoquer le septième esprit du Royaume Scellé, capable de blesser le corps de Dieu Ancien de Wang Lin!
 
-Maître Ashen Pine avait choisi la voie de la soumission. Il considérait cette statue comme un dieu et avait chargé l'une de ses âmes naissantes de la comprendre et de la vénérer.
+Maître Pin Cendré avait choisi la voie de la soumission. Il considérait cette statue comme un dieu et avait chargé l'une de ses âmes naissantes de la comprendre et de la vénérer.
 
 Il n'y avait aucun danger dans cette voie; tant que l'on était digne, on pouvait en récolter les fruits.
 
 Mais comment Wang Lin aurait-il pu choisir ce chemin? Lui qui osait défier les cieux! Il agissait selon son bon vouloir en parcourant le monde et affrontait les cieux sans trembler. Il avait défié le ciel pour forger son propre Dao et osait rivaliser avec lui!
 
-Il ne vénérerait jamais cette simple statue comme l'avait fait Maître Ashen Pine, même si la foudre à l'intérieur de la statue était capable de faire trembler les cieux et d'invoquer le septième esprit du Royaume Scellé!
+Il ne vénérerait jamais cette simple statue comme l'avait fait Maître Pin Cendré, même si la foudre à l'intérieur de la statue était capable de faire trembler les cieux et d'invoquer le septième esprit du Royaume Scellé!
 
 Ce qu'il exigeait, c'était que la foudre de la statue se soumette! Qu'elle s'incline devant lui! Il ne voulait pas comprendre la foudre de la statue, il voulait l'absorber intégralement! Il voulait la forcer à le vénérer!
 

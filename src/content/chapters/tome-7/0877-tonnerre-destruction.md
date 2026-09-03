@@ -62,7 +62,7 @@ Wang Lin émergea de la jungle derrière Shegong Hu. Le Sceau Céleste flottait 
 
 Wang Lin hocha la tête et son regard balaya le garçon à la grosse tête qui fuyait. Il dit froidement: « Tu veux encore t'enfuir?! » D'un pas, il parcourut immédiatement des centaines de pieds. Le Sceau Céleste chargea directement.
 
-Le niveau de culture du garçon à la grosse tête était identique à celui de Wang Lin: le stade initial du Nirvana Scryer. Ayant été témoin de l'ascension de Wang Lin lors des trois épreuves, il éprouvait une peur immense envers lui et ne voulait pas le provoquer inutilement.
+Le niveau de culture du garçon à la grosse tête était identique à celui de Wang Lin: le stade initial du Scruteur du Nirvana. Ayant été témoin de l'ascension de Wang Lin lors des trois épreuves, il éprouvait une peur immense envers lui et ne voulait pas le provoquer inutilement.
 
 Son sourire idiot avait disparu et il cria rapidement: « Camarade cultivateur Xu Mu, je quitte simplement cette zone! Pourquoi chercher la mort? Nos niveaux de culture sont identiques; si nous combattons, tu seras blessé. Ne donne pas d'opportunité à ce Xu Ting! »
 

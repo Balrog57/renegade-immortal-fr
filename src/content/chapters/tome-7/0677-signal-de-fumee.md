@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 677 - Smoke Signal
 slug: signal-de-fumee
 ---
-« Pourquoi le Serpent Moongazer apparaîtrait-il ici? Pourquoi personne n'a-t-il pris cette veine métallique après tout ce temps alors qu'elle est à découvert... » Ces énigmes se succédaient dans l'esprit de Wang Lin. Il fixa la veine et ne prit aucune décision hâtive.
+« Pourquoi le Serpent aux yeux de lune apparaîtrait-il ici? Pourquoi personne n'a-t-il pris cette veine métallique après tout ce temps alors qu'elle est à découvert... » Ces énigmes se succédaient dans l'esprit de Wang Lin. Il fixa la veine et ne prit aucune décision hâtive.
 
 Des années de prudence lui avaient donné l'habitude de tout remettre en question. Les mystères étaient trop nombreux ici; le moindre manque de vigilance pourrait le plonger dans une crise inimaginable.
 
@@ -30,33 +30,33 @@ Wang Lin fut stupéfait un instant, puis il baissa immédiatement la tête pour 
 
 Fixant la veine, les yeux de Wang Lin s'illuminèrent soudainement et il murmura: « Cet endroit est couvert de tentacules, ce qui donne à la planète entière l'impression d'être couverte de poils... »
 
-« La seconde forme du Serpent Moongazer est celle où tous les poils de son corps sont rétractés, le plongeant dans un état de sommeil... Se pourrait-il que... l'endroit où je me trouve, la planète Yun Xia... soit un Serpent Moongazer extrêmement gigantesque?! »
+« La seconde forme du Serpent aux yeux de lune est celle où tous les poils de son corps sont rétractés, le plongeant dans un état de sommeil... Se pourrait-il que... l'endroit où je me trouve, la planète Yun Xia... soit un Serpent aux yeux de lune extrêmement gigantesque?! »
 
 Wang Lin haleta et fixa la veine métallique située non loin.
 
-« Ce n'est pas une veine métallique, c'est bel et bien un os. Cependant, ce n'est pas l'os d'une quelconque bête, mais... l'os d'un Serpent Moongazer! » Le cœur de Wang Lin se glaça.
+« Ce n'est pas une veine métallique, c'est bel et bien un os. Cependant, ce n'est pas l'os d'une quelconque bête, mais... l'os d'un Serpent aux yeux de lune! » Le cœur de Wang Lin se glaça.
 
-« Si j'avais tenté de prendre cette veine, je crains que je n'eusse immédiatement réveillé ce Serpent Moongazer. Je serais alors mort sur le coup. Il est peu probable qu'il s'éveille complètement, mais il lui suffirait d'un instant de conscience pour tuer quiconque tenterait de voler son os. » Wang Lin comprit enfin pourquoi aucun puissant cultivateur n'était venu tenter sa chance. Ce n'était pas par manque de désir, mais par manque d'audace.
+« Si j'avais tenté de prendre cette veine, je crains que je n'eusse immédiatement réveillé ce Serpent aux yeux de lune. Je serais alors mort sur le coup. Il est peu probable qu'il s'éveille complètement, mais il lui suffirait d'un instant de conscience pour tuer quiconque tenterait de voler son os. » Wang Lin comprit enfin pourquoi aucun puissant cultivateur n'était venu tenter sa chance. Ce n'était pas par manque de désir, mais par manque d'audace.
 
-« Je pense que d'autres sont venus ici auparavant, mais ils ont tous péri. D'une certaine manière, l'homme de la famille Hua a été très intelligent. Il n'a prélevé qu'une petite partie en surface avant de partir immédiatement. S'il avait pris davantage, il aurait suffisamment stimulé le Serpent Moongazer pour l'éveiller. La chance a peut-être aussi joué. Pour n'importe qui d'autre, la moindre incision aurait pu provoquer son réveil. »
+« Je pense que d'autres sont venus ici auparavant, mais ils ont tous péri. D'une certaine manière, l'homme de la famille Hua a été très intelligent. Il n'a prélevé qu'une petite partie en surface avant de partir immédiatement. S'il avait pris davantage, il aurait suffisamment stimulé le Serpent aux yeux de lune pour l'éveiller. La chance a peut-être aussi joué. Pour n'importe qui d'autre, la moindre incision aurait pu provoquer son réveil. »
 
 Des centaines de pensées traversèrent l'esprit de Wang Lin. Il savait qu'il devait quitter les lieux sans plus tarder, mais en regardant la veine, il ressentit une immense frustration à l'idée de repartir les mains vides.
 
-« Ce que je désire, c'est l'os tout entier, mais le Serpent Moongazer s'éveillera totalement si j'essaie de le prendre. Si je fais cela, son corps passera en mode offensif et je mourrai à coup sûr... Pourtant, je refuse de renoncer ainsi! Ah! » Wang Lin laissa échapper un soupir et ses yeux brillèrent d'une lueur nouvelle. Il se remémora tout ce qu'il savait sur le Serpent Moongazer grâce aux souvenirs de l'Ancien Dieu.
+« Ce que je désire, c'est l'os tout entier, mais le Serpent aux yeux de lune s'éveillera totalement si j'essaie de le prendre. Si je fais cela, son corps passera en mode offensif et je mourrai à coup sûr... Pourtant, je refuse de renoncer ainsi! Ah! » Wang Lin laissa échapper un soupir et ses yeux brillèrent d'une lueur nouvelle. Il se remémora tout ce qu'il savait sur le Serpent aux yeux de lune grâce aux souvenirs de l'Ancien Dieu.
 
-« Aucune autre existence ne connaît ces parasites aussi bien que les Anciens Dieux; c'est là mon avantage. Ce Serpent Moongazer se nourrit du sang des Anciens Dieux... »
+« Aucune autre existence ne connaît ces parasites aussi bien que les Anciens Dieux; c'est là mon avantage. Ce Serpent aux yeux de lune se nourrit du sang des Anciens Dieux... »
 
 « Les tentacules sont leurs organes les plus sensibles... Quelle méthode puis-je utiliser pour extraire l'os sans le réveiller... »
 
-Une lumière mystérieuse envahit le regard de Wang Lin alors qu'il murmurait pour lui-même: « À l'époque où j'ai dévoré tous ces Fruits de l'Ascension Céleste, j'étais empreint d'une forme de folie. À ce moment-là, même si quelqu'un avait arraché mes os, je crains que je ne l'eusse ressenti. Si je parviens à plonger ce Serpent Moongazer dans un état d'illusion pendant qu'il dort encore, peut-être pourrai-je alors prendre son os... »
+Une lumière mystérieuse envahit le regard de Wang Lin alors qu'il murmurait pour lui-même: « À l'époque où j'ai dévoré tous ces Fruits de l'Ascension Céleste, j'étais empreint d'une forme de folie. À ce moment-là, même si quelqu'un avait arraché mes os, je crains que je ne l'eusse ressenti. Si je parviens à plonger ce Serpent aux yeux de lune dans un état d'illusion pendant qu'il dort encore, peut-être pourrai-je alors prendre son os... »
 
 Wang Lin réfléchit un instant en contemplant la veine métallique avec regret, puis il poussa un soupir. D'un pas, il se retrouva déjà au-dessus du sol, avant de se téléporter dans les airs pour réapparaître à l'extérieur de la planète Yun Xia. La boussole stellaire apparut et le transporta rapidement loin de la planète.
 
 De loin, tout en chevauchant la boussole stellaire, Wang Lin regarda une dernière fois la planète Yun Xia. Son regard était empreint d'une détermination sans faille.
 
-« Je dois obtenir l'os de ce Serpent Moongazer! Je peux raffiner le médicament pour l'engourdir. Cependant, il m'en faudra une quantité colossale pour plonger un être aussi immense dans un état d'illusion. »
+« Je dois obtenir l'os de ce Serpent aux yeux de lune! Je peux raffiner le médicament pour l'engourdir. Cependant, il m'en faudra une quantité colossale pour plonger un être aussi immense dans un état d'illusion. »
 
-Si n'importe qui d'autre avait conçu cette méthode et obtenu une grande quantité de ce remède, il n'aurait pas pu forcer le Serpent Moongazer à l'absorber. Un Serpent Moongazer lié à un Ancien Dieu n'absorberait rien d'autre que du sang d'Ancien Dieu, à moins que l'on n'utilise la tactique de l'Ancien Dieu pour lui donner des ordres.
+Si n'importe qui d'autre avait conçu cette méthode et obtenu une grande quantité de ce remède, il n'aurait pas pu forcer le Serpent aux yeux de lune à l'absorber. Un Serpent aux yeux de lune lié à un Ancien Dieu n'absorberait rien d'autre que du sang d'Ancien Dieu, à moins que l'on n'utilise la tactique de l'Ancien Dieu pour lui donner des ordres.
 
 Et seul Wang Lin possédait cette tactique.
 
@@ -64,11 +64,11 @@ Tandis que le dragon argenté fendant les étoiles, Wang Lin restait assis sur s
 
 « Tant pis. J'ai déjà attendu plus de huit cents ans, je ne m'opposerai pas à attendre un peu plus longtemps. Dès que j'aurai assez de Fruits de l'Ascension Céleste pour les raffiner, je reviendrai. »
 
-« Cependant, je ne m'attendais pas à tomber sur un Serpent Moongazer aussi colossal... Combien d'étoiles cet Ancien Dieu a-t-il dû porter pour soutenir une telle créature? Et cette chose a manifestement dormi durant des éons, car l'on trouve même des ruines de cités à sa surface. »
+« Cependant, je ne m'attendais pas à tomber sur un Serpent aux yeux de lune aussi colossal... Combien d'étoiles cet Ancien Dieu a-t-il dû porter pour soutenir une telle créature? Et cette chose a manifestement dormi durant des éons, car l'on trouve même des ruines de cités à sa surface. »
 
 L'expression de Wang Lin se détendit alors qu'il poursuivait sa réflexion.
 
-« Ce Serpent Moongazer prend la forme d'une planète; une fois réveillé, je me demande quelle puissance il déploiera... Je crains que même Ling Tianhou, le Tout-Voyant et les autres ne s'enfuient de terreur! Malheureusement, il n'écoutera personne hormis son maître. Même si mon corps originel était présent, cela serait inutile. »
+« Ce Serpent aux yeux de lune prend la forme d'une planète; une fois réveillé, je me demande quelle puissance il déploiera... Je crains que même Ling Tianhou, le Tout-Voyant et les autres ne s'enfuient de terreur! Malheureusement, il n'écoutera personne hormis son maître. Même si mon corps originel était présent, cela serait inutile. »
 
 « À moins que... si je parvenais à le contrôler et à le ramener vers le Système Stellaire de l'Alliance, ne serait-ce pas un événement prodigieux? »
 

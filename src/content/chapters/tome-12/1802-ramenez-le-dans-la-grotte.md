@@ -92,7 +92,7 @@ Il continuait d'injecter des matériaux dans la formation, l'excitation se lisan
 
 Alors que la formation s'activait, à l'extérieur de la grotte, le jeune homme bossu se tenait respectueusement au sommet d'une autre montagne devant un vieil homme aux cheveux blancs.
 
-Le visage de ce vieil homme était d'un noir violacé, créant un contraste saisissant avec sa chevelure blanche. L'aura d'un cultivateur du stade initial du Nirvana Void émanait de son corps.
+Le visage de ce vieil homme était d'un noir violacé, créant un contraste saisissant avec sa chevelure blanche. L'aura d'un cultivateur du stade initial du Vide du Nirvana émanait de son corps.
 
 « Oses-tu perturber la culture isolée de ce vieux pour une affaire aussi dérisoire? Même si tu as une rancune personnelle contre Kang Ren... » Tandis que le vieil homme parlait, ses yeux s'illuminèrent et son regard perça la paroi de la grotte où se trouvait Kang Ren.
 

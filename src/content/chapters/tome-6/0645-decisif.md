@@ -14,7 +14,7 @@ L'un d'eux tenta même d'utiliser l'énergie d'épée de Ling Tianhou, mais cela
 
 L'expression de Chen Long changea radicalement. Il se tourna vers Wang Lin, qui battait en retraite, et cria avec urgence: « Frère Wang, nous traversons une crise! Votre ami peut-il nous aider?! »
 
-« Wang Lin, ce vieil homme n'avait pas l'intention de vous tuer si tôt, mais puisque vous avez foncé tête baissée dans cette affaire, personne ne pourra vous sauver! » La voix de Greed résonna lentement à travers le brouillard violet.
+« Wang Lin, ce vieil homme n'avait pas l'intention de vous tuer si tôt, mais puisque vous avez foncé tête baissée dans cette affaire, personne ne pourra vous sauver! » La voix de Cupidité résonna lentement à travers le brouillard violet.
 
 Les yeux de Wang Lin s'illuminèrent. Sans dire un mot, il recula rapidement. À cet instant, le brouillard violet se contractait avec célérité. S'il tardait trop et se laissait envahir par le gaz pourpre, d'autres dangers pourraient surgir.
 
@@ -24,9 +24,9 @@ Les disciples de la Secte de l'Épée Da Lou battirent également en retraite pr
 
 « Toi! » Chen Long eut une expression sombre et poussa un soupir. Le Secte du Destin Céleste et la Secte de l'Épée Da Lou étaient comme l'eau et le feu. Il comprenait pourquoi Wang Lin refusait d'aider.
 
-« Je m'en veux d'avoir tant hésité. Si j'avais décidé plus tôt de me rebeller contre Greed, nous n'en serions pas là si nous avions utilisé l'énergie d'épée de notre Maître! » Les yeux de Chen Long étaient empreints de regret.
+« Je m'en veux d'avoir tant hésité. Si j'avais décidé plus tôt de me rebeller contre Cupidité, nous n'en serions pas là si nous avions utilisé l'énergie d'épée de notre Maître! » Les yeux de Chen Long étaient empreints de regret.
 
-Cependant, Greed appartenait à la génération de son maître et connaissait donc leur énergie d'épée. Il savait que même s'ils l'utilisaient, Greed serait sans doute déjà préparé. La victoire n'était donc pas garantie. De plus, il était fort probable que tous ses frères apprentis y laisseraient la vie.
+Cependant, Cupidité appartenait à la génération de son maître et connaissait donc leur énergie d'épée. Il savait que même s'ils l'utilisaient, Cupidité serait sans doute déjà préparé. La victoire n'était donc pas garantie. De plus, il était fort probable que tous ses frères apprentis y laisseraient la vie.
 
 Il ne voulait pas payer un tel prix pour une simple suspicion; c'est pourquoi il n'avait pu se montrer décisif et avait attendu un siècle!
 
@@ -48,7 +48,7 @@ Cette énergie s'était formée lorsque Ling Tianhou avait raffiné les quatre p
 
 C'est précisément parce qu'il possédait ce filament d'énergie qu'il regrettait de ne pas avoir agi plus tôt!
 
-Dès que l'énergie d'épée apparut, la contraction du brouillard violet ralentit un instant. À l'extérieur, le regard de Greed se glaça. Il remarqua aussitôt que quelque chose clochait avec ce Chen Long, et il avait vu juste.
+Dès que l'énergie d'épée apparut, la contraction du brouillard violet ralentit un instant. À l'extérieur, le regard de Cupidité se glaça. Il remarqua aussitôt que quelque chose clochait avec ce Chen Long, et il avait vu juste.
 
 Chen Long poussa un soupir, puis l'énergie d'épée enveloppa son corps. Il fonça droit vers le gaz pourpre et, au moment de la collision, un fracas retentit comme une friction intense. Un feu semblait entourer le corps de Chen Long!
 
@@ -110,11 +110,11 @@ Le brouillard se contractait toujours plus vite; il ne mesurait plus même mille
 
 À l'extérieur du brouillard violet, l'expression de Chen Long était extrêmement sombre. L'énergie d'épée de Ling Tianhou brillait intensément dans sa main. D'innombrables bêtes moustiques l'entouraient et l'assaillaient.
 
-« Greed, je veux voir comment tu expliqueras cela à mon maître plus tard! »
+« Cupidité, je veux voir comment tu expliqueras cela à mon maître plus tard! »
 
-Greed se tenait à distance, entouré par les insectes. Ces bêtes étaient d'une tyrannie absolue, leurs yeux brillant d'une lueur féroce. Sans les rugissements constants provenant du groupe, elles auraient déjà bondi sur lui, même si c'était Greed!
+Cupidité se tenait à distance, entouré par les insectes. Ces bêtes étaient d'une tyrannie absolue, leurs yeux brillant d'une lueur féroce. Sans les rugissements constants provenant du groupe, elles auraient déjà bondi sur lui, même si c'était Cupidité!
 
-Même en contrôlant la bête reine, ce qui lui permettait de manipuler indirectement le troupeau, Greed n'osait pas s'approcher de ces créatures. Leur nature était trop violente et impossible à apprivoiser. Le moindre relâchement de sa garde provoquerait une attaque.
+Même en contrôlant la bête reine, ce qui lui permettait de manipuler indirectement le troupeau, Cupidité n'osait pas s'approcher de ces créatures. Leur nature était trop violente et impossible à apprivoiser. Le moindre relâchement de sa garde provoquerait une attaque.
 
 S'il n'y en avait eu que des dizaines ou des centaines, il ne s'en serait pas soucié. Même des milliers n'auraient fait que changer son expression. Mais ici, il y en avait des dizaines de milliers!
 
@@ -124,9 +124,9 @@ Dès lors, comment ne pas avoir le cuir qui pelle? Malgré son contrôle, il res
 
 À cet instant précis, la silhouette de Wang Lin surgit du brouillard violet. Perché sur l'épée céleste, il dégageait une puissante énergie d'épée.
 
-L'apparition de Wang Lin fit immédiatement refroidir le regard de Greed. Il ricana et envoya un ordre mental. Un vaste groupe de bêtes moustiques poussa un rugissement collectif et chargea vers Wang Lin.
+L'apparition de Wang Lin fit immédiatement refroidir le regard de Cupidité. Il ricana et envoya un ordre mental. Un vaste groupe de bêtes moustiques poussa un rugissement collectif et chargea vers Wang Lin.
 
-Greed laissa échapper un froid reniflement. Il n'avait pas l'intention de tuer Wang Lin immédiatement, mais voulait extraire son âme originelle pour découvrir où se trouvait Situ Nan. En voyant Wang Lin apparaître près de la Mer des Esprits Démoniaques Orientaux, il avait senti l'aura de Situ Nan sur lui!
+Cupidité laissa échapper un froid reniflement. Il n'avait pas l'intention de tuer Wang Lin immédiatement, mais voulait extraire son âme originelle pour découvrir où se trouvait Situ Nan. En voyant Wang Lin apparaître près de la Mer des Esprits Démoniaques Orientaux, il avait senti l'aura de Situ Nan sur lui!
 
 Wang Lin observa les bêtes moustiques accourir vers lui avec une expression étrange.
 

@@ -30,7 +30,7 @@ Il pouvait même entendre ses propres battements de cœur s'accélérer. Cependa
 
 Cette sensation de péril n'était pas moins intense que l'effondrement du Bassin de l'Enterrement Céleste; en réalité, elle était plusieurs fois plus puissante. Maître Void eut même la sensation que cette aura lui était familière. Ses pupilles se contractèrent alors qu'il fixait l'épée de fer dans la main de Wang Lin.
 
-« Un trésor de Pseudo-Nirvana Void! »
+« Un trésor de Pseudo-Vide du Nirvana! »
 
 Bien que l'épée ne quittât pas la main de Wang Lin, l'illusion d'une épée d'argent gigantesque de cent mille pieds de long apparut entre lui et Maître Void.
 
@@ -46,7 +46,7 @@ La lumière argentée jaillit violemment et le corps de Maître Void trembla; so
 
 Maître Void afficha une expression de terreur qu'il n'avait jamais montrée auparavant, tandis que des bruits de craquements résonnaient en lui. Repoussé, il se força à s'arrêter pour rester au sein de l'origine première. Cela permit à cette dernière d'envahir son corps, aggravant ainsi ses blessures.
 
-« Petit bâtard! Même avec un trésor de Pseudo-Nirvana Void, tu n'as pas les capacités pour me tuer! » Les yeux de Maître Void se plissèrent alors qu'il lançait une attaque griffue vers Wang Lin.
+« Petit bâtard! Même avec un trésor de Pseudo-Vide du Nirvana, tu n'as pas les capacités pour me tuer! » Les yeux de Maître Void se plissèrent alors qu'il lançait une attaque griffue vers Wang Lin.
 
 Le visage de Wang Lin était pâle; son énergie originelle quittait son corps pour se précipiter avec frénésie dans l'épée de fer. Il avait déjà inspecté l'arme auparavant et savait qu'il pouvait s'en servir sans l'avoir raffinée.
 
@@ -58,7 +58,7 @@ Au moment où Maître Void chargea, Wang Lin leva une fois de plus l'épée de f
 
 La lumière était éblouissante lorsque la main droite de Maître Void fut projetée violemment en arrière, son expression devenant extrêmement sombre. Il était désormais anxieux: être coincé dans l'origine première signifiait subir des attaques constantes de sa part, même si elles n'étaient pas dévastatrices. En comparaison, cette quantité d'origine ne représentait même pas un dix-millième de son énergie originelle, et pourtant, il lui fallait la majeure partie de ses ressources pour résister à ce faible flux.
 
-Il devait également concentrer tout son esprit pour la comprendre tout en luttant contre elle. Auparavant, Maître Void ne voyait en Wang Lin qu'une menace mineure, mais il n'avait jamais imaginé qu'il posséderait un trésor de Pseudo-Nirvana Void!
+Il devait également concentrer tout son esprit pour la comprendre tout en luttant contre elle. Auparavant, Maître Void ne voyait en Wang Lin qu'une menace mineure, mais il n'avait jamais imaginé qu'il posséderait un trésor de Pseudo-Vide du Nirvana!
 
 Il se devait donc d'être vigilant, mais il refusait de renoncer à cette chance de comprendre l'origine première. Son intention meurtrière envers Wang Lin avait atteint son paroxysme.
 
@@ -68,11 +68,11 @@ Sentant son cœur se serrer, une partie de l'âme originelle de Maître Void se 
 
 Wang Lin agita l'épée de fer et, dans un éclat argenté, l'illusion de la gigantesque épée réapparut. Elle fonça vers l'avatar de l'âme originelle de Maître Void. L'avatar forma un sceau et pointa vers la lame géante. Dans un fracas assourdissant, l'avatar fut repoussé; il s'affaiblit considérablement, mais l'épée illusoire s'effondra également.
 
-Dès l'apparition du cube de glace violet, Wang Lin avait ressenti une aura similaire à celle de son épée de fer et de la flèche de l'Estimé Xuan Bao. Il était évident que ce cube était lui aussi un trésor de Pseudo-Nirvana Void.
+Dès l'apparition du cube de glace violet, Wang Lin avait ressenti une aura similaire à celle de son épée de fer et de la flèche de l'Estimé Xuan Bao. Il était évident que ce cube était lui aussi un trésor de Pseudo-Vide du Nirvana.
 
 À cet instant, Wang Lin avait perdu une quantité immense d'énergie originelle, mais ce n'était pas le moment de s'en soucier. La formation meurtrière était lancée et Wang Lin refusait de reculer. Il avait utilisé l'origine première comme appât pour tendre ce piège. S'il ne parvenait pas à tuer ou à blesser gravement Maître Void, son plan serait un échec total.
 
-Non seulement il avait exposé son origine première, mais aussi son trésor de Pseudo-Nirvana Void. Cependant, s'il réussissait à terrasser ou à mutiler Maître Void, cela suffirait à dissuader la belle femme et l'homme en noir.
+Non seulement il avait exposé son origine première, mais aussi son trésor de Pseudo-Vide du Nirvana. Cependant, s'il réussissait à terrasser ou à mutiler Maître Void, cela suffirait à dissuader la belle femme et l'homme en noir.
 
 Après une profonde inspiration, Wang Lin décida de fermer les yeux. En utilisant cette épée, il avait le sentiment qu'elle possédait son propre esprit. Son niveau de culture ne lui permettait pas d'en manifester la pleine puissance, mais puisque l'épée ne nécessitait aucun affinage, il existait un moyen de libérer sa véritable force: il devait simplement traiter le trésor comme une personne à part entière.
 

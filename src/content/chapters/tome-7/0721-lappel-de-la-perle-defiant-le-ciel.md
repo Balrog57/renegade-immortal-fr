@@ -20,15 +20,15 @@ Le mouvement du bras demeurait identique, continuant d'inviter Wang Lin en silen
 
 Il semblait que s'il ne s'y précipitait pas, il n'aurait plus jamais l'occasion d'entrer.
 
-Wang Lin serra les dents et fit un pas en avant. Sa main droite se tendit vers la seule chose qui ne s'était pas encore effondrée: l'os du Serpent Moongazer.
+Wang Lin serra les dents et fit un pas en avant. Sa main droite se tendit vers la seule chose qui ne s'était pas encore effondrée: l'os du Serpent aux yeux de lune.
 
-Bien que cet os ait perdu son élément métallique, il était toujours aussi dur qu'auparavant. Après tout, c'était un vestige appartenant au Serpent Moongazer!
+Bien que cet os ait perdu son élément métallique, il était toujours aussi dur qu'auparavant. Après tout, c'était un vestige appartenant au Serpent aux yeux de lune!
 
 Après avoir saisi le gigantesque os, Wang Lin poussa un rugissement et l'énergie spirituelle céleste déferla dans son corps alors qu'il lançait sans ménagement l'os vers le ciel. L'immense relique siffla dans les airs, fonçant droit vers la porte.
 
-Au moment où l'os du Moongazer allait percuter la porte, le bras géant qui appelait Wang Lin l'attrapa avec aisance.
+Au moment où l'os du Serpent aux yeux de lune allait percuter la porte, le bras géant qui appelait Wang Lin l'attrapa avec aisance.
 
-Wang Lin eut un haut-le-cœur et ses yeux se remplirent d'horreur lorsque le bras serra négligemment l'objet. Une aura puissante jaillit instantanément et l'os du Moongazer s'effrita en poussière!
+Wang Lin eut un haut-le-cœur et ses yeux se remplirent d'horreur lorsque le bras serra négligemment l'objet. Une aura puissante jaillit instantanément et l'os du Serpent aux yeux de lune s'effrita en poussière!
 
 Cette pression fit trembler le monde entier. D'innombrables fissures apparurent immédiatement, jusque sur la planète où se trouvait Wang Lin. Des grondements sourds ébranlèrent le champ d'astéroïdes tandis qu'une multitude de corps célestes se brisaient.
 
@@ -38,7 +38,7 @@ C'était comme si ce simple geste contenait une puissance inimaginable, comme si
 
 Le bras se desserra lentement et fit à nouveau signe à Wang Lin.
 
-Wang Lin en eut le cuir chevelu engourdi et le visage pâle en fixant l'appendice. Il ignorait la force exacte de ce serrement, mais il savait qu'il n'était pas moins puissant que le doigt de l'ancien dieu du Serpent Moongazer!
+Wang Lin en eut le cuir chevelu engourdi et le visage pâle en fixant l'appendice. Il ignorait la force exacte de ce serrement, mais il savait qu'il n'était pas moins puissant que le doigt de l'ancien dieu du Serpent aux yeux de lune!
 
 Ce bras lui donnait l'impression que rien au monde ne pourrait résister à une telle pression.
 
@@ -90,7 +90,7 @@ La Bête du Tonnerre était extrêmement rapide dans sa traversée du champ d'as
 
 Cet environnement ne causait aucun inconfort ni à Wang Lin, ni à la Bête du Tonnerre. La créature était ravie et continuait de rugir joyeusement.
 
-Tout en chevauchant la bête, Wang Lin restait pensif au sujet de la perle défiant le ciel. Au fond de son cœur, il ressentait une pointe de déception. Après tout, il avait passé près de mille ans à rassembler les cinq éléments, et son voyage vers le Serpent Moongazer avait failli lui coûter la vie. Il espérait obtenir un pouvoir immense qui lui serait d'une aide précieuse.
+Tout en chevauchant la bête, Wang Lin restait pensif au sujet de la perle défiant le ciel. Au fond de son cœur, il ressentait une pointe de déception. Après tout, il avait passé près de mille ans à rassembler les cinq éléments, et son voyage vers le Serpent aux yeux de lune avait failli lui coûter la vie. Il espérait obtenir un pouvoir immense qui lui serait d'une aide précieuse.
 
 Cependant, l'écart entre la réalité et ses espoirs était trop grand.
 

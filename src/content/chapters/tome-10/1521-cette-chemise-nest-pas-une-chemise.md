@@ -10,7 +10,7 @@ Chapitre 1521 - Cette chemise n'est pas une chemise!
 
 « Vide Spirituel! Vide Spirituel!! » Wang Lin recula, le visage livide. Bien que tout semble ordinaire, la situation était extrêmement terrifiante. Wang Lin ressentait pour la première fois l'effroi qu'inspirait un cultivateur du Vide Spirituel!
 
-Les cultivateurs du Vide Spirituel étaient bien moins nombreux que ceux du Nirvana Void, et leur statut était bien plus élevé.
+Les cultivateurs du Vide Spirituel étaient bien moins nombreux que ceux du Vide du Nirvana, et leur statut était bien plus élevé.
 
 Tout en reculant, Wang Lin cracha plusieurs bouffées de sang. Il percuta un vieil homme du Royaume Extérieur. Avant même que celui-ci ne puisse pousser un cri, une force puissante s'engouffra dans son corps et celui-ci s'effondra. Cependant, avant que sa chair et son sang ne puissent se disperser, ils furent condensés en une lueur de vitalité qui fut absorbée par Wang Lin!
 

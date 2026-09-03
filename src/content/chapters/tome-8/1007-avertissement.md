@@ -8,7 +8,7 @@ slug: avertissement
 ---
 Le niveau de culture actuel de Wang Lin n'était plus celui d'autrefois; peu de situations pouvaient désormais lui inspirer un sentiment de danger, surtout après être devenu un Dieu Ancien Royal à 5 étoiles.
 
-À moins que le niveau de culture de l'ennemi ne soit au stade avancé du Nettoyage du Nirvana ou supérieur, il était impossible pour Wang Lin de ressentir une menace réelle.
+À moins que le niveau de culture de l'ennemi ne soit au stade avancé du Purificateur du Nirvana ou supérieur, il était impossible pour Wang Lin de ressentir une menace réelle.
 
 Pourtant, dès l'instant où la silhouette blanche apparut, le sentiment de crise de Wang Lin atteignit son paroxysme.
 

@@ -112,7 +112,7 @@ Le temps s'écoulait lentement. Plusieurs heures plus tard, alors que l'aube poi
 
 Une fois la troisième Veine Magique apparue, il pouvait instantanément projeter une multitude de sorts dès leur activation. Même la vitesse de son corps du Dao Ancien changea radicalement.
 
-Cela différait du cultivateur auprès duquel Wang Lin avait appris cette technique: ce dernier ne pouvait qu'augmenter sa vitesse d'incantation sans affecter son corps. La différence venait du fait que la première âme dévorée par le cultivateur appartenait à un expert de la Nirvana Void, tandis que Wang Lin avait dévoré une âme originelle de la Arcane Void!
+Cela différait du cultivateur auprès duquel Wang Lin avait appris cette technique: ce dernier ne pouvait qu'augmenter sa vitesse d'incantation sans affecter son corps. La différence venait du fait que la première âme dévorée par le cultivateur appartenait à un expert de la Vide du Nirvana, tandis que Wang Lin avait dévoré une âme originelle de la Vide Arcanique!
 
 Plus de la moitié des âmes originelles dévorées par Wang Lin serviraient à d'autres desseins.
 

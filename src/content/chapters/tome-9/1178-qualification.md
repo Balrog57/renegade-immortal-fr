@@ -6,49 +6,49 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1178 - Qualification
 slug: qualification
 ---
-« Ces cristaux d'origine m'appartiennent en propre. Je n'ai nul besoin de les signaler à votre Secte Mi Luo! » Une voix antique résonna au loin, puis un rayon de lumière se posa près d'Ouyang Long, révélant Maître Ashen Pine.
+« Ces cristaux d'origine m'appartiennent en propre. Je n'ai nul besoin de les signaler à votre Secte Mi Luo! » Une voix antique résonna au loin, puis un rayon de lumière se posa près d'Ouyang Long, révélant Maître Pin Cendré.
 
 Le jeune homme vêtu de jaune renifla et tonna: « 35 000 cristaux d'origine! »
 
-« 40 000! » Maître Ashen Pine resta d'un calme olympien, comme si ces 40 000 cristaux d'origine n'avaient aucune importance à ses yeux. Cette réaction inhabituelle força immédiatement les cultivateurs environnants à regarder Maître Ashen Pine avec stupéfaction.
+« 40 000! » Maître Pin Cendré resta d'un calme olympien, comme si ces 40 000 cristaux d'origine n'avaient aucune importance à ses yeux. Cette réaction inhabituelle força immédiatement les cultivateurs environnants à regarder Maître Pin Cendré avec stupéfaction.
 
-Maître Ashen Pine était un Grand Ancien de la Secte du Jade Précieux qui n'avait même pas besoin de témoigner de respect au Maître de Secte. Il possédait de nombreux disciples directs et disposait d'assez de pouvoir pour défier le Maître de Secte lui-même. Cependant, il était resté très discret, c'est pourquoi le Maître de Secte n'avait jamais enquêté sur la quantité de jades célestes et de cristaux d'origine qu'il avait accumulés.
+Maître Pin Cendré était un Grand Ancien de la Secte du Jade Précieux qui n'avait même pas besoin de témoigner de respect au Maître de Secte. Il possédait de nombreux disciples directs et disposait d'assez de pouvoir pour défier le Maître de Secte lui-même. Cependant, il était resté très discret, c'est pourquoi le Maître de Secte n'avait jamais enquêté sur la quantité de jades célestes et de cristaux d'origine qu'il avait accumulés.
 
-« 50 000 cristaux d'origine! » Le jeune en jaune fixa Maître Ashen Pine en serrant les dents.
+« 50 000 cristaux d'origine! » Le jeune en jaune fixa Maître Pin Cendré en serrant les dents.
 
-Maître Ashen Pine ricana. Il se moquait d'exposer le fait qu'il possédait une telle fortune et d'attirer l'attention des régions supérieures. Après aujourd'hui, il partirait et ne reviendrait probablement jamais à Peng Lai. Sans compter que ses chances de succès seraient bien plus grandes cette fois-ci. Une fois sa réussite accomplie, son niveau de culture augmenterait considérablement, et après cela, il n'aurait plus rien à craindre!
+Maître Pin Cendré ricana. Il se moquait d'exposer le fait qu'il possédait une telle fortune et d'attirer l'attention des régions supérieures. Après aujourd'hui, il partirait et ne reviendrait probablement jamais à Peng Lai. Sans compter que ses chances de succès seraient bien plus grandes cette fois-ci. Une fois sa réussite accomplie, son niveau de culture augmenterait considérablement, et après cela, il n'aurait plus rien à craindre!
 
-Les mains derrière le dos, Maître Ashen Pine déclara calmement: « 60 000! »
+Les mains derrière le dos, Maître Pin Cendré déclara calmement: « 60 000! »
 
 « Vous!! » Le jeune en jaune prit une profonde inspiration. Après un instant d'hésitation, il était sur le point de proposer une offre supérieure.
 
-« 70 000! » Maître Ashen Pine lança un regard glacial au jeune homme avant de sourire soudainement. « Votre Secte Mi Luo n'a pas amené beaucoup d'hommes et le voyage de retour vers la région de rang 7 est long. Vous devriez faire preuve de prudence sur votre chemin du retour. »
+« 70 000! » Maître Pin Cendré lança un regard glacial au jeune homme avant de sourire soudainement. « Votre Secte Mi Luo n'a pas amené beaucoup d'hommes et le voyage de retour vers la région de rang 7 est long. Vous devriez faire preuve de prudence sur votre chemin du retour. »
 
-Un silence pesant s'abattit instantanément sur les environs, et tous les regards se tournèrent vers Maître Ashen Pine. Il était extrêmement rare de voir quelqu'un menacer ainsi un membre d'une secte de rang 7!
+Un silence pesant s'abattit instantanément sur les environs, et tous les regards se tournèrent vers Maître Pin Cendré. Il était extrêmement rare de voir quelqu'un menacer ainsi un membre d'une secte de rang 7!
 
-« De quel soutien Maître Ashen Pine dispose-t-il pour oser une telle audace? »
+« De quel soutien Maître Pin Cendré dispose-t-il pour oser une telle audace? »
 
-Le jeune en jaune dévisagea Maître Ashen Pine. Après un long moment, il laissa échapper un reniflement méprisant et s'envola vers l'horizon.
+Le jeune en jaune dévisagea Maître Pin Cendré. Après un long moment, il laissa échapper un reniflement méprisant et s'envola vers l'horizon.
 
-L'expression de Maître Ashen Pine resta neutre tandis qu'il saluait Wang Lin d'une inclinaison des mains. Il lança ensuite un sac et tendit la main vers l'armure. L'armure vola dans sa paume et, après l'avoir examinée de plus près, il afficha un sourire.
+L'expression de Maître Pin Cendré resta neutre tandis qu'il saluait Wang Lin d'une inclinaison des mains. Il lança ensuite un sac et tendit la main vers l'armure. L'armure vola dans sa paume et, après l'avoir examinée de plus près, il afficha un sourire.
 
 « Camarade cultivateur Lu, le dépôt se trouve également dans le sac. Un total de 80 000 cristaux d'origine. Partons-nous? »
 
-Wang Lin attrapa le sac, l'examina de son Sens Divin avant de le ranger discrètement. Maître Ashen Pine possédait un haut niveau de culture et se révélait très rusé. C'était aussi un homme impitoyable.
+Wang Lin attrapa le sac, l'examina de son Sens Divin avant de le ranger discrètement. Maître Pin Cendré possédait un haut niveau de culture et se révélait très rusé. C'était aussi un homme impitoyable.
 
-Cependant, quelle que soit sa ruse, il ne pouvait rivaliser avec l'Omniscient. Wang Lin avait même osé défier l'Omniscient; comment pourrait-il craindre un simple Maître Ashen Pine?
+Cependant, quelle que soit sa ruse, il ne pouvait rivaliser avec l'Omniscient. Wang Lin avait même osé défier l'Omniscient; comment pourrait-il craindre un simple Maître Pin Cendré?
 
-Après un léger hochement de tête, Wang Lin fit un pas en avant et s'élança dans les cieux. Maître Ashen Pine sourit et s'envola à son tour. Tous deux disparurent à l'horizon.
+Après un léger hochement de tête, Wang Lin fit un pas en avant et s'élança dans les cieux. Maître Pin Cendré sourit et s'envola à son tour. Tous deux disparurent à l'horizon.
 
 Face à ce spectacle, plus personne n'avait le cœur à poursuivre la vente aux enchères, et chacun prit congé.
 
-Après avoir quitté Peng Lai, Wang Lin et Maître Ashen Pine progressèrent à une vitesse fulgurante à travers la brume stellaire. C'est alors que le son d'une flûte résonna dans la brume.
+Après avoir quitté Peng Lai, Wang Lin et Maître Pin Cendré progressèrent à une vitesse fulgurante à travers la brume stellaire. C'est alors que le son d'une flûte résonna dans la brume.
 
 La brume stellaire au loin se mit à tourbillonner, et Li Qianmei, aux cheveux bleus, en sortit lentement avec un sourire.
 
-Wang Lin s'arrêta pour réfléchir. Il se tourna vers Maître Ashen Pine et dit lentement: « Camarade cultivateur Ashen Pine, allez-y d'abord. Je vous rattraperai un peu plus tard. »
+Wang Lin s'arrêta pour réfléchir. Il se tourna vers Maître Pin Cendré et dit lentement: « Camarade cultivateur Pin Cendré, allez-y d'abord. Je vous rattraperai un peu plus tard. »
 
-Maître Ashen Pine sourit et tendit un jade à Wang Lin. Puis il rit et ajouta: « Le camarade cultivateur Lu peut se rendre à l'endroit indiqué sur la carte. Quelques vieux amis m'y attendront. »
+Maître Pin Cendré sourit et tendit un jade à Wang Lin. Puis il rit et ajouta: « Le camarade cultivateur Lu peut se rendre à l'endroit indiqué sur la carte. Quelques vieux amis m'y attendront. »
 
 Sur ce, il regarda Li Qianmei, joignit les mains et disparut dans la brume. Il ne craignait pas que Wang Lin ne le rejoigne.
 
@@ -64,7 +64,7 @@ Wang Lin resta silencieux, plongé dans ses pensées.
 
 Voyant que Wang Lin n'avait pas l'intention de parler, Li Qianmei fronça les sourcils. Elle le regarda et poussa un soupir.
 
-« Ce Maître Ashen Pine est très secret. J'avais initialement l'intention de partir avec vous... » Li Qianmei mordilla doucement sa lèvre inférieure en fixant Wang Lin, avant de retirer un bracelet d'émeraude de son poignet droit.
+« Ce Maître Pin Cendré est très secret. J'avais initialement l'intention de partir avec vous... » Li Qianmei mordilla doucement sa lèvre inférieure en fixant Wang Lin, avant de retirer un bracelet d'émeraude de son poignet droit.
 
 « Vous avez répondu à mes trois questions auparavant, et nous avions convenu que je vous donnerais un objet par question. Je ne vous ai pas encore remis le troisième. C'est un trésor protecteur. Gardez-le pour assurer votre sécurité. » Li Qianmei tendit le bracelet à Wang Lin.
 
@@ -102,7 +102,7 @@ Wang Lin fronça les sourcils avec un sourire amer. Il rangea le tableau et s'en
 
 Après un long moment, Li Qianmei cessa de jouer et fit un geste de la main. Elle rangea le stylo doré et s'évanouit dans le vide...
 
-Wang Lin progressait tel un éclair en suivant la carte de Maître Ashen Pine à travers la brume. Soudain, il s'arrêta net, fixant l'espace devant lui.
+Wang Lin progressait tel un éclair en suivant la carte de Maître Pin Cendré à travers la brume. Soudain, il s'arrêta net, fixant l'espace devant lui.
 
 Dans la brume, non loin de là, scintillait une vive lumière émeraude où flottait un bracelet. Ni Wang Lin, ni même Li Qianmei n'auraient pu imaginer que le bracelet jeté au hasard finirait sa course sur le trajet précis de Wang Lin.
 
@@ -112,11 +112,11 @@ Wang Lin observa silencieusement le bracelet de jade pendant un long moment avan
 
 Non loin de Peng Lai, dans la région de rang 5, se trouvait un minuscule continent sauvage. C'était une terre sans bêtes où les cultivateurs se rendaient rarement. Pourtant, à cet instant précis, trois cultivateurs y étaient assis.
 
-« Maître Ashen Pine, cet endroit est le plus secret parmi nous. Pourquoi voulez-vous faire venir cet homme nommé Lu? » demanda un vieil homme au visage balafré. C'était le même qu'il avait croisé lors de l'enchère de Maître Ashen Pine.
+« Maître Pin Cendré, cet endroit est le plus secret parmi nous. Pourquoi voulez-vous faire venir cet homme nommé Lu? » demanda un vieil homme au visage balafré. C'était le même qu'il avait croisé lors de l'enchère de Maître Pin Cendré.
 
-Maître Ashen Pine, d'un air serein, répondit: « Cet homme peut utiliser l'Empreinte de l'Esprit de Guerre. Sa présence augmentera mes chances de succès de 20 %! De plus, je devrai solliciter le sortilège du camarade cultivateur Zhao pour nous guider. Une fois la tâche accomplie, conformément à notre accord, le camarade cultivateur Zhao pourra choisir les trois premiers matériaux! »
+Maître Pin Cendré, d'un air serein, répondit: « Cet homme peut utiliser l'Empreinte de l'Esprit de Guerre. Sa présence augmentera mes chances de succès de 20 %! De plus, je devrai solliciter le sortilège du camarade cultivateur Zhao pour nous guider. Une fois la tâche accomplie, conformément à notre accord, le camarade cultivateur Zhao pourra choisir les trois premiers matériaux! »
 
-Le regard de Maître Ashen Pine se posa sur une autre personne, également familière à Wang Lin: une vieille femme vêtue de vert.
+Le regard de Maître Pin Cendré se posa sur une autre personne, également familière à Wang Lin: une vieille femme vêtue de vert.
 
 D'une voix rauque, elle déclara: « Je ferai de mon mieux. »
 
@@ -124,20 +124,20 @@ D'une voix rauque, elle déclara: « Je ferai de mon mieux. »
 
 Dès son apparition, une odeur de sang entêtante envahit l'air. D'innombrables fragments d'âmes se cachaient dans la brume derrière lui; ils pointaient parfois leurs têtes, laissant échapper des gémissements silencieux et lugubres.
 
-« Maître Ashen Pine, j'ai croisé quelques ennemis en chemin, ce qui explique mon retard. » Le visage du vieil homme était pâle, mais ses yeux brillaient d'une lueur sinistre.
+« Maître Pin Cendré, j'ai croisé quelques ennemis en chemin, ce qui explique mon retard. » Le visage du vieil homme était pâle, mais ses yeux brillaient d'une lueur sinistre.
 
-« Maître Cloud Soul! » Les yeux de l'homme balafré se plissèrent à la vue de la couronne.
+« Maître Nuage-Âme! » Les yeux de l'homme balafré se plissèrent à la vue de la couronne.
 
-Le visage du vieillard couronné eut un tressaillement avant d'afficher un sourire sombre. « Camarade cultivateur Pang, nous nous revoyons. » Puis il tourna son regard vers la vieille femme, pour enfin le fixer sur Maître Ashen Pine.
+Le visage du vieillard couronné eut un tressaillement avant d'afficher un sourire sombre. « Camarade cultivateur Pang, nous nous revoyons. » Puis il tourna son regard vers la vieille femme, pour enfin le fixer sur Maître Pin Cendré.
 
-« Maître Ashen Pine, ne sommes-nous que quatre? »
+« Maître Pin Cendré, ne sommes-nous que quatre? »
 
-Maître Ashen Pine se lécha les lèvres et répondit lentement: « Il y en a trois de plus! Ils devraient arriver sous peu. » À peine eut-il fini sa phrase que la brume étoilée s'agita de nouveau et qu'une silhouette en émergea.
+Maître Pin Cendré se lécha les lèvres et répondit lentement: « Il y en a trois de plus! Ils devraient arriver sous peu. » À peine eut-il fini sa phrase que la brume étoilée s'agita de nouveau et qu'une silhouette en émergea.
 
 Une robe blanche, des cheveux noirs flottants et un regard indifférent. Wang Lin sortit de la brume et fixa les quatre individus.
 
-« Un junior du Nettoyage du Nirvana? Maître Ashen Pine, voulez-vous impliquer un junior du Nettoyage du Nirvana dans cette affaire? » Maître Cloud Soul fronça les sourcils.
+« Un junior du Purificateur du Nirvana? Maître Pin Cendré, voulez-vous impliquer un junior du Purificateur du Nirvana dans cette affaire? » Maître Nuage-Âme fronça les sourcils.
 
-« Ce n'est pas un junior du Nettoyage du Nirvana! » sourit Maître Ashen Pine.
+« Ce n'est pas un junior du Purificateur du Nirvana! » sourit Maître Pin Cendré.
 
-« Oh? » Les yeux de Maître Cloud Soul s'illuminèrent. Alors que Wang Lin s'approchait, il agita sa main droite et d'innombrables fragments d'âmes foncèrent sur lui.
+« Oh? » Les yeux de Maître Nuage-Âme s'illuminèrent. Alors que Wang Lin s'approchait, il agita sa main droite et d'innombrables fragments d'âmes foncèrent sur lui.

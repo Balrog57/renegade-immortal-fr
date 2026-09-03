@@ -18,7 +18,7 @@ L'expression du Maître Flamespark changea également. Bien qu'il ne soit pas or
 
 Zhan Xingye!
 
-Le Maître Lu Fu posa la tasse qu'il tenait. Ses yeux trahissaient un choc profond. Il avait rencontré Zhan Xingye par le passé. À cette époque, cet homme avait déjà atteint le sommet du Nirvana Void et était comparable aux cieux!
+Le Maître Lu Fu posa la tasse qu'il tenait. Ses yeux trahissaient un choc profond. Il avait rencontré Zhan Xingye par le passé. À cette époque, cet homme avait déjà atteint le sommet du Vide du Nirvana et était comparable aux cieux!
 
 Le Maître Lu Fu avait même reçu une bénédiction de Zhan Xingye, raison pour laquelle il avait inclus Lie Yunzi parmi les quatre disciples à qui il enseigna le sortilège du Dao. Au-delà de rendre cette faveur passée, il avait également l'intention de tisser des liens avec le disparu Zhan Xingye.
 
@@ -102,7 +102,7 @@ En vérité, lorsqu'il était encore un Dieu Antique de 6 étoiles, il aurait pu
 
 Cependant, même le Ji Qiong pâlissait face à ce que Wang Lin visait désormais. Quant aux nombreuses bêtes féroces de la Mer Nuageuse, même les créatures de rang 13 ne pouvaient captiver son attention!
 
-« Bien que je ne l'aie pas combattue, d'après ce que j'ai vu autrefois, elle doit être au troisième niveau! Même le Serpent Moongazer ne pourra lui résister! Je dois obtenir cette bête! »
+« Bien que je ne l'aie pas combattue, d'après ce que j'ai vu autrefois, elle doit être au troisième niveau! Même le Serpent aux yeux de lune ne pourra lui résister! Je dois obtenir cette bête! »
 
 Alors qu'il progressait, une étincelle de soif de combat brillait dans ses yeux. Il était sur le point de charger vers le domaine stellaire où il l'avait aperçue, mais soudain, il s'arrêta net.
 

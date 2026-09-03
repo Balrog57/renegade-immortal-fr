@@ -30,11 +30,11 @@ Après quelques coups d'œil, Wang Lin put ressentir la férocité de la bataill
 
 Le Maître Dao Blue Dream paraissait épuisé. Il semblait que même pour lui, affronter les trois d'entre eux n'était pas une mince affaire.
 
-« Miao Yin est gravement blessé, au point qu'il ne pourra pas retrouver son niveau de culture maximal avant cent ans. Son niveau a chuté au stade Spirit Void; la prochaine fois que vous le croiserez, vous pourrez le tuer! »
+« Miao Yin est gravement blessé, au point qu'il ne pourra pas retrouver son niveau de culture maximal avant cent ans. Son niveau a chuté au stade Vide Spirituel; la prochaine fois que vous le croiserez, vous pourrez le tuer! »
 
 « Les blessures de Nine Heaven sont légèrement moins graves que celles de Miao Yin, mais son royaume de flammes de Joss a été détruit par moi, ce qui a endommagé son esprit. À l'avenir, il ne sera plus de taille face à vous! »
 
-« Great Desolation a été le plus durement touché et s'est enfui en utilisant un sort secret. Il ne survivra pas plus de dix ans! » Sur ces mots, il s'assit et ferma les yeux pour cultiver.
+« Grande Désolation a été le plus durement touché et s'est enfui en utilisant un sort secret. Il ne survivra pas plus de dix ans! » Sur ces mots, il s'assit et ferma les yeux pour cultiver.
 
 L'expression de Li Qianmei était complexe. Elle avait été témoin des trois jours de combat, ayant observé son père lutter et affrontant des dangers mortels.
 
@@ -46,7 +46,7 @@ Le Maître Dao Blue Dream ouvrit les yeux et fixa Wang Lin, le visage assombri.
 
 « Même avec mon aide, tu ne changeras pas d'avis... Ce vieux ne te demande pas d'abandonner ta femme, mais de faire une promesse à ma fille! »
 
-« Cela ne devrait pas être difficile pour toi! Si ce n'était pour ma fille, même si tu avais atteint le stade Spirit Void et possédais l'héritage ancestral, même si tu pouvais tuer des cultivateurs du stade Arcane Void, tu ne représenterais rien à mes yeux. »
+« Cela ne devrait pas être difficile pour toi! Si ce n'était pour ma fille, même si tu avais atteint le stade Vide Spirituel et possédais l'héritage ancestral, même si tu pouvais tuer des cultivateurs du stade Vide Arcanique, tu ne représenterais rien à mes yeux. »
 
 « Tu aurais pu brandir l'arc Li Guang pour terrasser ces vieux os! Mais même si je meurs, je n'emmènerai pas mon clan Blue Silk dans le Royaume Intérieur! »
 

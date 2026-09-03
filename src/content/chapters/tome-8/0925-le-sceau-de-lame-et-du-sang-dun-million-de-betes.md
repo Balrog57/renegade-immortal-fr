@@ -10,29 +10,29 @@ Les yeux de Wang Lin se rétrécirent lorsqu'il croisa le regard de la femme en 
 
 Ce n'était pas le moment de s'attarder sur ces réflexions. L'expression de Wang Lin resta neutre tandis qu'il continuait de reculer.
 
-Les cent tours se rapprochèrent dans un sifflement strident qui semblait vouloir déchirer l'espace, fonçant droit sur le Serpent Moongazer.
+Les cent tours se rapprochèrent dans un sifflement strident qui semblait vouloir déchirer l'espace, fonçant droit sur le Serpent aux yeux de lune.
 
-Ces hautes tours étaient telles des épées transperçant le vide. Le Serpent Moongazer laissa échapper un rugissement furieux alors que ses innombrables tentacules s'étiraient pour intercepter les tours en approche.
+Ces hautes tours étaient telles des épées transperçant le vide. Le Serpent aux yeux de lune laissa échapper un rugissement furieux alors que ses innombrables tentacules s'étiraient pour intercepter les tours en approche.
 
 À cet instant, la tour la plus rapide fut saisie par un tentacule. Dès le contact, elle se brisa instantanément en une poudre noire qui se propagea dans l'air.
 
-Quant aux cultivateurs de l'Alliance qui se trouvaient sur les tours, ils avaient déjà sauté avant que celles-ci n'atteignent le Serpent Moongazer.
+Quant aux cultivateurs de l'Alliance qui se trouvaient sur les tours, ils avaient déjà sauté avant que celles-ci n'atteignent le Serpent aux yeux de lune.
 
 Peu après, d'autres tours arrivèrent en sifflant. La plupart furent interceptées par les tentacules du serpent et explosèrent en une poussière noire.
 
-Tandis que la poudre noire se répandait, les tours restantes accélérèrent brusquement. Telles des lames fendant le nuage noir, elles esquivèrent les tentacules pour venir percer directement le corps du Serpent Moongazer.
+Tandis que la poudre noire se répandait, les tours restantes accélérèrent brusquement. Telles des lames fendant le nuage noir, elles esquivèrent les tentacules pour venir percer directement le corps du Serpent aux yeux de lune.
 
 Bang!
 
 De violentes explosions retentirent lorsque les tours entrèrent en collision avec le serpent. Des fissures apparurent sur leurs pointes et se propagèrent avec rapidité. En un clin d'œil, les tours furent entièrement lacérées avant de s'effondrer en poussière.
 
-Bang, bang, bang, bang! Les déflagrations se succédèrent alors que les tours qui n'avaient pas été arrêtées par les tentacules percutaient le corps du Serpent Moongazer pour finir en poudre.
+Bang, bang, bang, bang! Les déflagrations se succédèrent alors que les tours qui n'avaient pas été arrêtées par les tentacules percutaient le corps du Serpent aux yeux de lune pour finir en poudre.
 
-Au milieu de ce chaos, le Serpent Moongazer rugissait comme un possédé, balayant la zone de ses tentacules. Certains cultivateurs environnants ne purent esquiver assez vite et périrent sur le coup.
+Au milieu de ce chaos, le Serpent aux yeux de lune rugissait comme un possédé, balayant la zone de ses tentacules. Certains cultivateurs environnants ne purent esquiver assez vite et périrent sur le coup.
 
 « Scellement! » La voix de la femme en robe bleue était douce, mais elle résonna avec clarté à travers les étoiles.
 
-Instantanément, toute la poudre noire entourant le Serpent Moongazer émit une lueur démoniaque. Elle se propagea pour former une sphère autour du monstre. Des lueurs sanglantes brillaient à l'intérieur de cette sphère, tandis qu'à cet instant précis, une scène absolument terrifiante se déroulait sur cent planètes dispersées dans les secteurs est, sud et nord de l'Alliance!
+Instantanément, toute la poudre noire entourant le Serpent aux yeux de lune émit une lueur démoniaque. Elle se propagea pour former une sphère autour du monstre. Des lueurs sanglantes brillaient à l'intérieur de cette sphère, tandis qu'à cet instant précis, une scène absolument terrifiante se déroulait sur cent planètes dispersées dans les secteurs est, sud et nord de l'Alliance!
 
 Sur l'une de ces planètes, presque tous les cultivateurs avaient été mobilisés. Ils avaient capturé des bêtes démoniaques dans leurs habitats respectifs pour les emprisonner au sein d'une immense formation.
 
@@ -50,11 +50,11 @@ Cette scène se répétait sur près de cent autres planètes!
 
 C'était l'une des dix grandes formations de l'Alliance: le Sceau de l'Âme et du Sang d'un Million de Bêtes!
 
-Ces quelque cent tours avaient été forgées avec un matériau spécial pour s'harmoniser avec cette formation. À cet instant, alors que des millions de bêtes mouraient sur les cent planètes, la poudre noire entourant le Serpent Moongazer dégagea une puissante odeur de sang!
+Ces quelque cent tours avaient été forgées avec un matériau spécial pour s'harmoniser avec cette formation. À cet instant, alors que des millions de bêtes mouraient sur les cent planètes, la poudre noire entourant le Serpent aux yeux de lune dégagea une puissante odeur de sang!
 
 Cette effluve était si dense que quiconque la respirait en aurait eu le cœur tremblant!
 
-Sous cette odeur de sang écrasante, la poudre noire se mit à bouger mystérieusement. Elle commença à se solidifier, scellant totalement le Serpent Moongazer sous cette matière noire semblable à de la terre!
+Sous cette odeur de sang écrasante, la poudre noire se mit à bouger mystérieusement. Elle commença à se solidifier, scellant totalement le Serpent aux yeux de lune sous cette matière noire semblable à de la terre!
 
 La poudre noire se mua en une sphère gigantesque qui emprisonna le serpent à l'intérieur. Seuls ses rugissements étouffés continuaient de résonner parmi les étoiles.
 

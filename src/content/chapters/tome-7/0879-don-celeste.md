@@ -98,7 +98,7 @@ Au sommet du Pic Heng Yun, Xie Qing sortit de sa transe. Il regarda le ciel et s
 Sur une planète de culture reculée, Yao Bingyun était assise sur le plus haut iceberg. Elle leva la tête vers les cieux, son regard trahissant une émotion complexe.
 « Je ne m'attendais pas à ce qu'il devienne le Céleste du Tonnerre... »
 
-Dans le Domaine Nord, sur une planète de culture presque dévastée où une odeur fétide régnait depuis des années sans que personne n'en trouve la source, Greed leva les yeux vers le ciel avec un regard malveillant.
+Dans le Domaine Nord, sur une planète de culture presque dévastée où une odeur fétide régnait depuis des années sans que personne n'en trouve la source, Cupidité leva les yeux vers le ciel avec un regard malveillant.
 « Il a donc atteint une telle renommée dans le Système Stellaire d'Allheaven! »
 
 À cet instant, tous les cultivateurs du Système Stellaire d'Allheaven qui connaissaient Wang Lin levèrent les yeux au ciel, la stupéfaction se lisant sur leurs visages.

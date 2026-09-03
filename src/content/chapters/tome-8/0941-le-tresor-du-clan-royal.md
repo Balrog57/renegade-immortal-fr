@@ -8,15 +8,15 @@ slug: le-tresor-du-clan-royal
 ---
 Yi Muzi fut stupéfait devant ce spectacle. Il n'aurait jamais imaginé que ce Xu Mu cachait un secret aussi prodigieux! Cet homme était, en réalité, un Dieu Ancien!
 
-Lorsqu'il fut envoyé ici par le Grand Ancien de la famille, il avait obtenu des détails sur le Serpent Moongazer et s'était méticuleusement préparé. Bien que sous le choc, il n'en oublia pas pour autant sa mission. Après avoir observé le Dieu Ancien à 5 étoiles sortir de la gueule du Serpent Moongazer, il n'hésita pas un instant et chargea l'intérieur.
+Lorsqu'il fut envoyé ici par le Grand Ancien de la famille, il avait obtenu des détails sur le Serpent aux yeux de lune et s'était méticuleusement préparé. Bien que sous le choc, il n'en oublia pas pour autant sa mission. Après avoir observé le Dieu Ancien à 5 étoiles sortir de la gueule du Serpent aux yeux de lune, il n'hésita pas un instant et chargea l'intérieur.
 
 Il fonça droit vers la gueule du serpent. Bien que sa culture ait considérablement chuté, sa vitesse n'était nullement réduite. En un éclair, il disparut dans l'antre de la créature.
 
-L'expression de Wudo Chan était empreinte d'une certaine complexité. Il avait consulté certains registres au sein de l'Alliance et avait découvert par accident l'identité du Serpent Moongazer. Il savait donc qu'une chose appelée la Fleur Lunaire se trouvait à l'intérieur!
+L'expression de Wudo Chan était empreinte d'une certaine complexité. Il avait consulté certains registres au sein de l'Alliance et avait découvert par accident l'identité du Serpent aux yeux de lune. Il savait donc qu'une chose appelée la Fleur Lunaire se trouvait à l'intérieur!
 
-« Les archives indiquent que la Fleur Lunaire du Serpent Moongazer peut servir à raffiner un trésor de type Pseudo-Nirvana Void. Si je parviens à l'obtenir pour forger un tel trésor, je pourrai alors remplacer l'Estimé Xuan Bao au sein du groupe des Anciens! »
+« Les archives indiquent que la Fleur Lunaire du Serpent aux yeux de lune peut servir à raffiner un trésor de type Pseudo-Vide du Nirvana. Si je parviens à l'obtenir pour forger un tel trésor, je pourrai alors remplacer l'Estimé Xuan Bao au sein du groupe des Anciens! »
 
-Il serra les dents et poursuivit Yi Muzi. Au moment même où le Serpent Moongazer refermait sa gueule, il s'y engouffra.
+Il serra les dents et poursuivit Yi Muzi. Au moment même où le Serpent aux yeux de lune refermait sa gueule, il s'y engouffra.
 
 Seul Qing Shui resta à l'extérieur. Il fronça les sourcils, observant silencieusement Wang Lin et l'immense Dieu Ancien à 5 étoiles.
 
@@ -38,11 +38,11 @@ Cependant, Lou Chen parvint immédiatement à saisir la lance de Wang Lin. Sous 
 
 Wang Lin fit un pas en avant. Bien que son corps fût chétif comparé à celui de Lou Chen, il dégageait une aura imposante. Il serra le poing et lança son attaque.
 
-Lou Chen regarda Wang Lin d'un regard tourmenté. Il avait été contraint de consommer une étoile pour transformer Ji Xiantian en marionnette. Bien qu'il ait quitté le corps du Serpent Moongazer, il en subissait les séquelles indicibles. À cet instant même, il ignorait s'il était encore le Serpent Moongazer ou un Dieu Ancien.
+Lou Chen regarda Wang Lin d'un regard tourmenté. Il avait été contraint de consommer une étoile pour transformer Ji Xiantian en marionnette. Bien qu'il ait quitté le corps du Serpent aux yeux de lune, il en subissait les séquelles indicibles. À cet instant même, il ignorait s'il était encore le Serpent aux yeux de lune ou un Dieu Ancien.
 
 Il s'était assimilé à ce serpent pendant bien trop longtemps.
 
-Son esprit était envahi par la créature. À ses yeux, il n'était pas digne de porter le nom de Dieu Ancien; il n'était que l'esclave du Serpent Moongazer.
+Son esprit était envahi par la créature. À ses yeux, il n'était pas digne de porter le nom de Dieu Ancien; il n'était que l'esclave du Serpent aux yeux de lune.
 
 Il avait sans cesse oscillé entre transmettre l'héritage à Wang Lin ou le dévorer. S'il s'était emparé de cette étoile pour Ji Xiantian, c'était peut-être parce qu'au fond de son cœur, il souhaitait en réalité l'offrir à Wang Lin.
 
@@ -66,7 +66,7 @@ Dans un fracas retentissant, ils furent séparés. Alors qu'il reculait, Wang Li
 
 Le regard tourmenté de Lou Chen s'accentua et il leva lui aussi les mains. Une ombre de Dieu Ancien surgit derrière lui, haute de plus de cent mille pieds. C'était comme si un géant véritable venait d'éclore du néant!
 
-Toutefois, le corps de ce géant était anormalement hypertrophié; il ressemblait davantage au Serpent Moongazer qu'à un Dieu Ancien!
+Toutefois, le corps de ce géant était anormalement hypertrophié; il ressemblait davantage au Serpent aux yeux de lune qu'à un Dieu Ancien!
 
 Plus terrifiant encore, une armure enveloppait ce colosse dont l'aura seule suffisait à faire perdre la raison aux cultivateurs ordinaires!
 
@@ -116,7 +116,7 @@ Cette tempête balaya l'espace, révélant une vaste portion du filet. Alors que
 
 Ces lueurs laissaient transparaître un regard froid et impitoyable, comme si quelqu'un observait la scène à travers les mailles du filet, depuis l'extérieur.
 
-« Serpent Moongazer... Dieu Ancien... »
+« Serpent aux yeux de lune... Dieu Ancien... »
 
 ***
 

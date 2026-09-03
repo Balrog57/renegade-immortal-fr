@@ -116,7 +116,7 @@ Bien qu'il paraisse calme, il fronça les sourcils. Lors du premier essai, il av
 
 De nombreux monstres peuplaient l'épreuve du feu, et il en avait tué d'innombrables. Bien qu'il aurait pu s'échapper plus tôt en utilisant toute sa puissance, l'Empereur Antique était un homme très patient. Il préférait perdre du temps à combattre plutôt que de prendre des risques.
 
-Cette patience infinie était ce qui le distinguait grandement de Hunchback Meng.
+Cette patience infinie était ce qui le distinguait grandement de Bossu Meng.
 
 L'Empereur Antique était bien préparé pour surmonter les épreuves cette fois-ci. Même s'il avait rencontré l'épreuve du feu, sa faiblesse naturelle, il était resté fort et avait progressé pas à pas.
 
@@ -128,7 +128,7 @@ Après être entré dans la deuxième épreuve, l'Empereur Antique poussa un pro
 
 Pour entrer dans le troisième essai, il fallait maîtriser les restrictions. C'était une leçon qu'il avait apprise par cœur. S'il n'avait pas eu cette vitesse incroyable qui lui avait permis de traverser le tunnel en trois respirations toutes ces années auparavant, il serait mort, même s'il avait tué tous ceux qui étaient présents ce jour-là.
 
-Il n'était pas comme le Seigneur Démon des Six Désirs, Duanmu ou Hunchback Meng. Il y a plus de 1000 ans, il était déjà au stade intermédiaire de la Formation de l'Âme et était le chef de la dernière expédition.
+Il n'était pas comme le Seigneur Démon des Six Désirs, Duanmu ou Bossu Meng. Il y a plus de 1000 ans, il était déjà au stade intermédiaire de la Formation de l'Âme et était le chef de la dernière expédition.
 
 À l'époque, le Seigneur Démon des Six Désirs et les autres n'étaient que des juniors à ses yeux. Sans sa blessure grave après sa fuite, comment ces trois pourraient-ils encore être en vie aujourd'hui?
 

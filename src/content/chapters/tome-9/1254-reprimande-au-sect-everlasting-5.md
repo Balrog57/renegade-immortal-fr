@@ -1,6 +1,6 @@
 ---
 n: 1254
-title: Réprimande au Sect Everlasting (5)
+title: Réprimande au Secte Éternelle (5)
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1254 - Rebuking the Everlasting Sect (5)

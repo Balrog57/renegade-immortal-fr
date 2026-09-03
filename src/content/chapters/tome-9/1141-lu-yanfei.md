@@ -20,7 +20,7 @@ La séance de culture de Xu Yun n'était pas terminée. Elle cultivait toujours 
 
 Depuis son arrivée à la Secte Originel, Wang Lin n'avait pas caché son niveau de culture. Étant donné son statut actuel, il ne ressentait nul besoin de le dissimuler. Cependant, sans utiliser aucun sort, personne ne pouvait deviner qu'il était un cultivateur, car nul ne pouvait percer sa culture.
 
-L'énergie originelle d'un cultivateur du Nettoyage du Nirvana est intégrée au monde, ce qui lui permet d'en absorber pour son usage personnel. Tant que l'énergie originelle à l'intérieur de son corps reste immobile, aucune fluctuation n'apparaît. Si cela avait été tout, Lu Yanfei aurait peut-être remarqué quelque chose.
+L'énergie originelle d'un cultivateur du Purificateur du Nirvana est intégrée au monde, ce qui lui permet d'en absorber pour son usage personnel. Tant que l'énergie originelle à l'intérieur de son corps reste immobile, aucune fluctuation n'apparaît. Si cela avait été tout, Lu Yanfei aurait peut-être remarqué quelque chose.
 
 Cependant, Wang Lin possédait une parcelle d'origine source et avait déjà atteint la troisième étape. Il avait également expérimenté ce que signifiait être un cultivateur de la troisième étape grâce à l'aide de l'Empereur Céleste Qing Lin. Par conséquent, personne sur ce continent n'était capable de percer sa culture.
 

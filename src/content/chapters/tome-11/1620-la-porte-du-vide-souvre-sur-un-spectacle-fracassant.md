@@ -42,13 +42,13 @@ La Porte du Vide s'était effondrée. Lors de sa chute, un vortex géant apparut
 
 Cependant, les yeux de Wang Lin s'illuminèrent et il agita ses manches. Une force puissante repoussa l'énergie de la Porte du Vide à l'intérieur du vortex.
 
-Bien que Wang Lin n'ait pas absorbé la puissance de la Porte du Vide, son niveau de culture augmenta considérablement. Il dépassa les sommets de Nirvana Shatterer et de Heaven's Blight pour atteindre directement le troisième stade. Il atteignit le stade initial du Nirvana Void!
+Bien que Wang Lin n'ait pas absorbé la puissance de la Porte du Vide, son niveau de culture augmenta considérablement. Il dépassa les sommets de Briseur du Nirvana et de Fléau des Cieux pour atteindre directement le troisième stade. Il atteignit le stade initial du Vide du Nirvana!
 
 Pourtant, ce n'était pas là le véritable niveau de culture de Wang Lin, mais une aura. L'aura d'un véritable cultivateur du troisième stade!
 
-Si Wang Lin l'avait voulu, il lui suffisait d'absorber la puissance de la Porte du Vide pour que son niveau de culture corresponde à son aura! Il serait immédiatement devenu un cultivateur du stade initial du Nirvana Void!
+Si Wang Lin l'avait voulu, il lui suffisait d'absorber la puissance de la Porte du Vide pour que son niveau de culture corresponde à son aura! Il serait immédiatement devenu un cultivateur du stade initial du Vide du Nirvana!
 
-Toutefois, en faisant cela, il n'atteindrait que le stade initial du Nirvana Void grâce à l'essence du tonnerre. Wang Lin ne voulait pas d'un tel niveau. Il avait enduré tant de choses pour compléter six essences; s'il ne parvenait qu'au stade initial du Nirvana Void, il ne serait pas satisfait!
+Toutefois, en faisant cela, il n'atteindrait que le stade initial du Vide du Nirvana grâce à l'essence du tonnerre. Wang Lin ne voulait pas d'un tel niveau. Il avait enduré tant de choses pour compléter six essences; s'il ne parvenait qu'au stade initial du Vide du Nirvana, il ne serait pas satisfait!
 
 Il voulait éblouir le monde par un exploit unique et brillant!
 
@@ -122,4 +122,4 @@ Par conséquent, il agita sa manche, repoussant cette puissance dans un vortex e
 
 Il avait enduré toutes ces années, il avait attendu si longtemps, tout cela pour ce moment précis: devenir un cultivateur du troisième stade!
 
-L'aura de son corps avait déjà atteint le stade initial du Nirvana Void lorsqu'il avait brisé la première porte. Désormais, après avoir brisé la seconde, son aura avait bondi directement au stade médian du Nirvana Void!
+L'aura de son corps avait déjà atteint le stade initial du Vide du Nirvana lorsqu'il avait brisé la première porte. Désormais, après avoir brisé la seconde, son aura avait bondi directement au stade médian du Vide du Nirvana!

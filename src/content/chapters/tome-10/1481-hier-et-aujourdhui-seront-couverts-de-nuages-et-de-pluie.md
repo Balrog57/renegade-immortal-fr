@@ -34,7 +34,7 @@ Wang Lin avait cultivé une fusion entre le Dao et les sorts, utilisant ces dern
 
 À cet instant, le corps de Xie Qing était extrêmement fragile, si faible qu'une simple épée volante suffirait à l'anéantir. Son corps était semblable à une lampe à huile épuisée, mais il débordait d'une telle vitalité qu'il restait en vie!
 
-Bien que son enveloppe charnelle fût fragile, ces 800 ans de méditation avaient permis à Xie Qing d'atteindre une compréhension du domaine dépassant de loin celle de n'importe quel cultivateur ordinaire! Dans un affrontement de domaines, même les cultivateurs du Nirvana Scryer ne pourraient rivaliser avec lui! Son domaine avait atteint le niveau du Nirvana Cleanser et il avait entrevu les lois!
+Bien que son enveloppe charnelle fût fragile, ces 800 ans de méditation avaient permis à Xie Qing d'atteindre une compréhension du domaine dépassant de loin celle de n'importe quel cultivateur ordinaire! Dans un affrontement de domaines, même les cultivateurs du Scruteur du Nirvana ne pourraient rivaliser avec lui! Son domaine avait atteint le niveau du Purificateur du Nirvana et il avait entrevu les lois!
 
 C'était une voie de culture inexistante dans ce monde. À l'instar des Dieux Anciens qui ne cultivaient que leur corps, Xie Qing ne cultivait que son domaine! Il n'y avait ni âme originelle ni Âme Naissante dans son corps; il ne possédait pas les âmes qu'un cultivateur est censé avoir. Il ne possédait qu'une âme vibrante de vitalité!
 
@@ -72,7 +72,7 @@ Au moment où l'épée prit forme, Wang Lin porta ses doigts entre ses sourcils.
 
 Cette simple épée de pluie contenait désormais deux essences complètes ainsi que l'aura de combat ancestrale de Wang Lin. Bien que cette aura ne se soit pas propagée trop loin, elle fut suffisante pour ébranler tout le système stellaire d'Allheaven!
 
-« Avec une telle épée ici, peu de gens oseront offenser cette planète! » La voix de Wang Lin était calme, mais empreinte d'une autorité incontestable. Même des cultivateurs du Spirit Void hésiteraient face à une telle aura. Il ne valait pas la peine de défier quelqu'un capable de maîtriser presque deux essences pour une simple planète de culture... De plus, la pression de l'Ordre Ancestral était assez terrifiante pour n'importe qui!
+« Avec une telle épée ici, peu de gens oseront offenser cette planète! » La voix de Wang Lin était calme, mais empreinte d'une autorité incontestable. Même des cultivateurs du Vide Spirituel hésiteraient face à une telle aura. Il ne valait pas la peine de défier quelqu'un capable de maîtriser presque deux essences pour une simple planète de culture... De plus, la pression de l'Ordre Ancestral était assez terrifiante pour n'importe qui!
 
 « Cette épée, une fois que tu l'auras pleinement comprise, sera le cadeau que ton Maître te fera! »
 

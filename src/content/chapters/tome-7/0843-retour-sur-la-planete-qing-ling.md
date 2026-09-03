@@ -8,15 +8,15 @@ slug: retour-sur-la-planete-qing-ling
 ---
 Au moment où Wang Lin disparut, d'innombrables tentacules surgirent du vide et s'enroulèrent autour de la formation de transfert, provoquant son effondrement.
 
-Profitant de l'aide de Lie Yunzi et de ses compagnons pour entraver le Serpent Moongazer, Maître Flamespark ferma les yeux et hurla: « Scelle-le! »
+Profitant de l'aide de Lie Yunzi et de ses compagnons pour entraver le Serpent aux yeux de lune, Maître Flamespark ferma les yeux et hurla: « Scelle-le! »
 
-D'innombrables fragments du Royaume Céleste grondèrent avant de converger vers le Serpent Moongazer de toutes parts.
+D'innombrables fragments du Royaume Céleste grondèrent avant de converger vers le Serpent aux yeux de lune de toutes parts.
 
-Alors que le Serpent Moongazer laissait échapper un rugissement de rage, tout son corps se précipita en avant. La colère l'habitait et le danger qu'il percevait émanant de Maître Flamespark le rendait presque fou!
+Alors que le Serpent aux yeux de lune laissait échapper un rugissement de rage, tout son corps se précipita en avant. La colère l'habitait et le danger qu'il percevait émanant de Maître Flamespark le rendait presque fou!
 
-Lorsqu'il percuta les fragments célestes, le Serpent Moongazer s'arrêta soudainement. Ses yeux étaient empreints de terreur alors qu'il fixait l'horizon.
+Lorsqu'il percuta les fragments célestes, le Serpent aux yeux de lune s'arrêta soudainement. Ses yeux étaient empreints de terreur alors qu'il fixait l'horizon.
 
-L'endroit que le Serpent Moongazer contemplait venait de s'effondrer. Alors que des vents glaciaux soufflaient sans relâche, une silhouette en sortit!
+L'endroit que le Serpent aux yeux de lune contemplait venait de s'effondrer. Alors que des vents glaciaux soufflaient sans relâche, une silhouette en sortit!
 
 Cette personne était extrêmement floue; il était impossible d'en distinguer les traits. La seule chose dont on pouvait être sûr, c'était qu'il s'agissait d'un homme! D'un calme absolu, il émergea lentement du vide.
 
@@ -28,21 +28,21 @@ Cette personne était extrêmement floue; il était impossible d'en distinguer l
 
 Les quatre autres personnes changèrent immédiatement d'expression pour adopter une attitude respectueuse.
 
-Une fois cette figure illusoire apparue, les yeux de Maître Flamespark furent remplis d'extase. L'individu marcha vers le Serpent Moongazer. Le corps colossal du serpent trembla, comme si l'aura de cet homme provoquait en lui une terreur primordiale.
+Une fois cette figure illusoire apparue, les yeux de Maître Flamespark furent remplis d'extase. L'individu marcha vers le Serpent aux yeux de lune. Le corps colossal du serpent trembla, comme si l'aura de cet homme provoquait en lui une terreur primordiale.
 
-Le Serpent Moongazer recula lentement!
+Le Serpent aux yeux de lune recula lentement!
 
 À ce moment précis, à des millions de kilomètres de là, le corps de Wang Lin apparut!
 
 Dès son apparition, il regarda immédiatement en arrière et commença à réfléchir.
 
-« Il doit y avoir une raison à ce changement soudat chez le Serpent Moongazer. Quelqu'un a-t-il lancé une attaque contre lui? L'enfant divin ancien à l'intérieur du serpent veut que je lui trouve un successeur, mais malheureusement, mon corps originel se trouve toujours dans le Système Stellaire de l'Alliance; sinon, cela vaudrait la peine d'essayer. Cependant, j'ignore s'il est sincère concernant cet héritage ou s'il cherche à utiliser une technique similaire au sort de possession des cultivateurs... Je dois rester prudent et ne pas agir avec imprudence! »
+« Il doit y avoir une raison à ce changement soudat chez le Serpent aux yeux de lune. Quelqu'un a-t-il lancé une attaque contre lui? L'enfant divin ancien à l'intérieur du serpent veut que je lui trouve un successeur, mais malheureusement, mon corps originel se trouve toujours dans le Système Stellaire de l'Alliance; sinon, cela vaudrait la peine d'essayer. Cependant, j'ignore s'il est sincère concernant cet héritage ou s'il cherche à utiliser une technique similaire au sort de possession des cultivateurs... Je dois rester prudent et ne pas agir avec imprudence! »
 
-« Toutefois, puisque j'ai déjà quitté le Serpent Moongazer, je pense que personne ne pourra me détecter pendant un court laps de temps! »
+« Toutefois, puisque j'ai déjà quitté le Serpent aux yeux de lune, je pense que personne ne pourra me détecter pendant un court laps de temps! »
 
 Les yeux de Wang Lin s'illuminèrent; il se transforma en un rayon de lumière et s'élança. Des ondulations apparurent sous ses pas et, peu de temps après, Wang Lin fusionna avec le monde pour disparaître.
 
-Dans le Domaine Nord, à l'opposé du Serpent Moongazer, presque à l'autre extrémité du domaine, se trouvait la planète Qing Ling! Ce jour-là, une ondulation se produisit à l'extérieur de la planète et Wang Lin en émergea. Il contempla la planète de culture familière qui s'offrait à lui, laissant poindre une pointe de mélancolie.
+Dans le Domaine Nord, à l'opposé du Serpent aux yeux de lune, presque à l'autre extrémité du domaine, se trouvait la planète Qing Ling! Ce jour-là, une ondulation se produisit à l'extérieur de la planète et Wang Lin en émergea. Il contempla la planète de culture familière qui s'offrait à lui, laissant poindre une pointe de mélancolie.
 
 « Je suis enfin de retour! » Wang Lin fit un pas, se changea en un rayon de lumière et fonça vers la planète Qing Ling. Cependant, alors qu'il approchait, plusieurs auras puissantes furent projetées vers lui avec une intention hostile.
 
@@ -64,7 +64,7 @@ Après être entré dans la grotte, Wang Lin activa immédiatement les formation
 
 Quelques heures plus tard, la nuit était déjà tombée. La lumière des étoiles se déversait sur la terre et tout était plongé dans le calme.
 
-Lorsque la lueur lunaire pénétra par l'entrée, elle se refléta sur le sol dans un spectacle magnifique. Wang Lin ouvrit la bouche pour expulser une bouffée d'air vicié. Depuis son départ pour le Royaume Céleste, il avait été épuisé. Même à l'intérieur du Serpent Moongazer, il avait peine à trouver un moment de répit.
+Lorsque la lueur lunaire pénétra par l'entrée, elle se refléta sur le sol dans un spectacle magnifique. Wang Lin ouvrit la bouche pour expulser une bouffée d'air vicié. Depuis son départ pour le Royaume Céleste, il avait été épuisé. Même à l'intérieur du Serpent aux yeux de lune, il avait peine à trouver un moment de répit.
 
 Pourtant, en cet instant, sur sa propre planète de culture, Wang Lin pouvait enfin se détendre pleinement. Il leva les yeux vers le ciel à l'extérieur de la grotte et se mit à méditer. Après un long moment, il détourna son regard et murmura: « La chasse de la famille Yao ne s'arrêtera pas; je ne dispose pas de beaucoup de temps! »
 
@@ -110,4 +110,4 @@ Après avoir expulsé une bouffée de gaz gris hors de la grotte, Wang Lin ouvri
 
 L'énergie originelle pénétra le corps de la jeune femme et forma un vortex qui continua d'absorber l'énergie séparée de son être.
 
-« Une fois que j'aurai absorbé toute son énergie originelle, mon niveau de culture augmentera considérablement. Il ne me restera plus qu'à étendre mon domaine pour enfin franchir la deuxième étape et atteindre le stade de Scryer du Nirvana! » Un éclat étrange traversa les yeux de Wang Lin alors qu'il fixait Yao Bingyun. Lorsque le vortex atteignit sa limite, il le retira immédiatement.
+« Une fois que j'aurai absorbé toute son énergie originelle, mon niveau de culture augmentera considérablement. Il ne me restera plus qu'à étendre mon domaine pour enfin franchir la deuxième étape et atteindre le stade du Scruteur du Nirvana! » Un éclat étrange traversa les yeux de Wang Lin alors qu'il fixait Yao Bingyun. Lorsque le vortex atteignit sa limite, il le retira immédiatement.

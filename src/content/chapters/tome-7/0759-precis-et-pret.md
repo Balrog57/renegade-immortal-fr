@@ -62,7 +62,7 @@ Wang Lin l'accepta silencieusement en hochant la tête.
 
 Li Yuan soupira tandis que ses mains formaient un sceau; un réseau de transfert apparut alors devant lui. Ce réseau n'était pas stable et semblait pouvoir s'effondrer à tout instant.
 
-« Frère Xu, ce réseau de transfert ne peut être ouvert que trois fois. Vous... vous devez être prudent! » Li Yuan regarda une dernière fois Wang Lin avant de s'engager dans le réseau. Sans se retourner, il ajouta doucement: « Si je n'avais pas de responsabilités qui me lient, je resterais certainement pour témoigner de la façon dont les restrictions de ma famille Li comploteraient contre un cultivateur du Nettoyage du Nirvana! »
+« Frère Xu, ce réseau de transfert ne peut être ouvert que trois fois. Vous... vous devez être prudent! » Li Yuan regarda une dernière fois Wang Lin avant de s'engager dans le réseau. Sans se retourner, il ajouta doucement: « Si je n'avais pas de responsabilités qui me lient, je resterais certainement pour témoigner de la façon dont les restrictions de ma famille Li comploteraient contre un cultivateur du Purificateur du Nirvana! »
 
 « Frère Xu, prenez soin de vous! » Le soupir de Li Yuan résonna alors que sa silhouette disparaissait dans les éclats du réseau de transfert.
 

@@ -114,7 +114,7 @@ Deux chaînes entravaient encore son corps: l'une attachée à son humérus, l'a
 
 Même un cultivateur dont le niveau n'était pas assez élevé serait immédiatement empoisonné. Une seule inspiration suffirait à le blesser gravement; plusieurs inspirations, et il rendrait l'âme.
 
-« Si je peux contrôler ce cadavre raffiné, j'obtiendrai une autre puissance de stade précoce du Nettoyage du Nirvana! » Les yeux de Wang Lin brillèrent. Il avait pris un risque immense pour s'emparer de ce corps, et le moment était venu d'en récolter les fruits.
+« Si je peux contrôler ce cadavre raffiné, j'obtiendrai une autre puissance de stade précoce du Purificateur du Nirvana! » Les yeux de Wang Lin brillèrent. Il avait pris un risque immense pour s'emparer de ce corps, et le moment était venu d'en récolter les fruits.
 
 Alors qu'il l'observait, son expression changea. D'un revers de la main droite, il remit le cadavre dans son sac. L'énergie Yin et les poisons présents dans la pièce se dissipèrent rapidement.
 

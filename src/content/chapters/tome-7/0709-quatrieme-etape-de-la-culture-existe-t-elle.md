@@ -45,11 +45,11 @@ Personne ne pouvait répondre à cette question.
 
 La Bête du Tonnerre emmena Wang Lin vers la planète Mille Illusions. La planète Ran Yun était le lieu où ses souvenirs étaient scellés, et Wang Lin ne souhaitait plus y retourner.
 
-« Il est temps d'explorer ce Serpent Moongazer sur la planète Yun Xia. J'ai besoin d'une grande quantité de Fruits d'Ascension Céleste, la famille Huan est donc le meilleur choix! » Wang Lin chevaucha la Bête du Tonnerre en avant. Bien que sa progression fût plus lente que celle de la boussole stellaire, elle restait très rapide.
+« Il est temps d'explorer ce Serpent aux yeux de lune sur la planète Yun Xia. J'ai besoin d'une grande quantité de Fruits d'Ascension Céleste, la famille Huan est donc le meilleur choix! » Wang Lin chevaucha la Bête du Tonnerre en avant. Bien que sa progression fût plus lente que celle de la boussole stellaire, elle restait très rapide.
 
 « Le corps original a absorbé l'énergie spirituelle d'une petite planète et sa force est de quatre étoiles. Cependant, il lui manque encore l'aura d'un dieu ancestral adulte. Je me demande si je peux en trouver dans le Système Stellaire de Tout-Ciel... » Les yeux de Wang Lin s'illuminèrent comme s'il venait d'avoir une révélation.
 
-« Le Serpent Moongazer est un parasite qui vit à l'intérieur du corps d'un dieu ancestral. Je me demande s'il reste là-bas des traces de l'aura d'un dieu ancestral... » Wang Lin se remémora un souvenir passé.
+« Le Serpent aux yeux de lune est un parasite qui vit à l'intérieur du corps d'un dieu ancestral. Je me demande s'il reste là-bas des traces de l'aura d'un dieu ancestral... » Wang Lin se remémora un souvenir passé.
 
 « À l'époque, sur la planète Tian Yun, un messager de l'Alliance de la Culture était arrivé avec une Bête Sable Stellaire. Cette créature est extrêmement sensible à l'aura d'un dieu ancestral. Si cette bête était ici, elle m'aiderait grandement dans ma recherche... »
 

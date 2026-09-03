@@ -16,9 +16,9 @@ Finalement, après un fracas retentissant, le filament se brisa et une puissante
 
 Une fois l'odeur dissipée, Wang Lin pénétra rapidement dans le trou qu'il avait creusé. À cet instant, le corps du serpent plus petit situé à l'intérieur de la grande créature commença à rétrécir. Wang Lin pressentait que cette créature ne serait pas vaincue si facilement. Si le grand serpent contenait un serpent plus petit, ce dernier pourrait-il en contenir un autre à son tour?
 
-Plus important encore, Hunchback Meng avait affirmé que ce serpent était une bête désolée, ce qui équivalait à un cultivateur au stade avancé de la Formation de l'Âme. Il faut dire que les cultivateurs au sommet du stade avancé de la Formation de l'Âme étaient les êtres les plus puissants des pays de culture de rang 4.
+Plus important encore, Bossu Meng avait affirmé que ce serpent était une bête désolée, ce qui équivalait à un cultivateur au stade avancé de la Formation de l'Âme. Il faut dire que les cultivateurs au sommet du stade avancé de la Formation de l'Âme étaient les êtres les plus puissants des pays de culture de rang 4.
 
-À moins que l'Empereur Céleste et les autres ne soient également au sommet de ce stade, ils ne pourraient pas l'abattre. D'après les paroles précédentes de Hunchback Meng, Wang Lin pensait qu'aucun d'entre eux n'atteignait ce niveau; au mieux, ils étaient au milieu du stade.
+À moins que l'Empereur Céleste et les autres ne soient également au sommet de ce stade, ils ne pourraient pas l'abattre. D'après les paroles précédentes de Bossu Meng, Wang Lin pensait qu'aucun d'entre eux n'atteignait ce niveau; au mieux, ils étaient au milieu du stade.
 
 Par conséquent, aucune lutte interne n'était envisageable; chacun ne pouvait que tenter de s'échapper par ses propres moyens. Le plan initial de Wang Lin était la fuite, mais après observation, il nota qu'en dehors de sa résistance physique et de sa capacité à cracher cette fumée noire, le serpent ne semblait posséder aucune autre aptitude. Cela surprit grandement Wang Lin.
 
@@ -34,17 +34,17 @@ Quant aux corps extérieurs, ils ne servaient que de paravent, expliquant pourqu
 
 En y pensant, le cœur de Wang Lin se serra et il retrouva promptement sa concentration. Il atteignit rapidement la jonction entre la tête et le cou. Le filament avait disparu, révélant l'os blanc en dessous. Wang Lin toucha l'os et utilisa sa technique d'attraction pour tirer, faisant rouler le serpent frénétiquement.
 
-Simultanément, la tête du petit serpent libéra une lueur noire tandis que sa peau et son corps commençaient à fondre rapidement. Hunchback Meng, le visage déformé par la terreur, s'élança précipitamment dans un état pitoyable vers la tête du grand serpent.
+Simultanément, la tête du petit serpent libéra une lueur noire tandis que sa peau et son corps commençaient à fondre rapidement. Bossu Meng, le visage déformé par la terreur, s'élança précipitamment dans un état pitoyable vers la tête du grand serpent.
 
 En passant près de la jonction entre la tête et le cou, il aperçut Wang Lin. Après une hésitation, il cria: « Fuis vite! C'est un serpent dragon parasite! Il y a neuf serpents au total, et le plus profond est la véritable bête désolée dotée de ses techniques! »
 
-Sur ces mots, sa main droite frappa la paroi de chair. La chair que les épées volantes n'avaient pu entamer devint noire, infligeant une douleur atroce au serpent. Celui-ci ouvrit la gueule sous l'effet de la souffrance, permettant à Hunchback Meng de s'en échapper.
+Sur ces mots, sa main droite frappa la paroi de chair. La chair que les épées volantes n'avaient pu entamer devint noire, infligeant une douleur atroce au serpent. Celui-ci ouvrit la gueule sous l'effet de la souffrance, permettant à Bossu Meng de s'en échapper.
 
 Les yeux de Wang Lin pétillèrent. Loin de fuir, il se plaqua contre la paroi de chair pour se dissimuler.
 
-À cet instant précis, un petit dragon rouge jaillit du serpent desséché. Il passa devant Wang Lin en un éclair et poursuivit Hunchback Meng.
+À cet instant précis, un petit dragon rouge jaillit du serpent desséché. Il passa devant Wang Lin en un éclair et poursuivit Bossu Meng.
 
-Wang Lin resta immobile, collé à la paroi. Une fois le dragon et Hunchback Meng passés, son regard s'anima. Hunchback Meng n'avait aucune intention pure lorsqu'il lui avait dit de fuir; il voulait probablement que Wang Lin l'accompagne pour servir de diversion au dragon rouge.
+Wang Lin resta immobile, collé à la paroi. Une fois le dragon et Bossu Meng passés, son regard s'anima. Bossu Meng n'avait aucune intention pure lorsqu'il lui avait dit de fuir; il voulait probablement que Wang Lin l'accompagne pour servir de diversion au dragon rouge.
 
 Wang Lin ricana intérieurement. Il ne voulait pas s'impliquer avec ces gens. S'il parvenait à ouvrir le troisième essai, tout irait bien, mais il ne connaissait aucun sort de mort. S'il échouait à ouvrir ce troisième essai, ces cultivateurs démoniaques le tueraient sans doute pour évacuer leur colère.
 
@@ -76,7 +76,7 @@ Wang Lin supposa que lorsque le dragon rouge était parti, c'était comme lorsqu
 
 Wang Lin regarda le serpent, les yeux brillants, avant de soupirer et d'abandonner son idée. Ce serpent géant était comme une montagne de trésors attendant d'être récoltée; sa moelle et sa peau valaient déjà une fortune. Mais Wang Lin ne se laissa pas aveugler. Il n'était même pas sûr de pouvoir traverser la chair pour atteindre le cerveau, ni d'avoir la capacité de séparer la peau du corps. Le plus grand problème était que le dragon rouge reviendrait probablement bientôt; s'il le croisait, même s'il lui restait cent ans à vivre, il les perdrait en un instant.
 
-Wang Lin jeta un dernier regard avant de sortir la pilule que Hunchback Meng lui avait donnée. La pilule avait déjà réduit de moitié, mais il l'enferma soigneusement dans son sac de rangement. Sans mot dire, il éteignit le feu et s'élança. Dans ce vide infini, la lumière du feu était trop voyante. Par sécurité, Wang Lin n'eut d'autre choix que de voler dans les ténèbres.
+Wang Lin jeta un dernier regard avant de sortir la pilule que Bossu Meng lui avait donnée. La pilule avait déjà réduit de moitié, mais il l'enferma soigneusement dans son sac de rangement. Sans mot dire, il éteignit le feu et s'élança. Dans ce vide infini, la lumière du feu était trop voyante. Par sécurité, Wang Lin n'eut d'autre choix que de voler dans les ténèbres.
 
 Peu à peu, ses yeux s'habituèrent à l'obscurité. Bien qu'il ne puisse voir clairement, il distinguait les contours généraux des choses.
 
@@ -96,7 +96,7 @@ Wang Lin réfléchit longuement. Il n'osait pas déployer son sens divin trop lo
 
 Mais à cet instant précis, un rayon de lumière rouge apparut soudainement au-dessus de lui et plongea dans un étrange sifflement. Wang Lin se déplaça rapidement sur le côté, se plaqua contre la base du pilier et resta immobile.
 
-Il ne vit qu'un éclat rouge filer près du pilier avant de disparaître sans laisser de trace. Wang Lin sentit son cuir chevelu se hérisser; il comprit que cette lumière était le dragon rouge qui avait poursuivi Hunchback Meng.
+Il ne vit qu'un éclat rouge filer près du pilier avant de disparaître sans laisser de trace. Wang Lin sentit son cuir chevelu se hérisser; il comprit que cette lumière était le dragon rouge qui avait poursuivi Bossu Meng.
 
 Le dragon était revenu, mais il ignorait si ses compagnons étaient morts ou vivants. Wang Lin ricana et vola lentement vers le sommet du pilier de pierre. Une fois arrivé, il observa attentivement les environs.
 

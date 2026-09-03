@@ -51,15 +51,15 @@ L'homme afficha une nouvelle fois un air d'admiration. Il contempla le liquide a
 
 Les yeux de la femme étaient empreints de tendresse. Elle se tint aux côtés de l'homme et dit: « Ne réfléchis pas trop. Ne voulais-tu pas parier avec moi? Je parie que celui qui a posé ces restrictions n'a pas cultivé pendant 10 000 ans. »
 
-L'homme sourit, et la nostalgie disparut de son regard. Il lança un regard significatif à la femme: « D'accord! Nous allons attendre ici de voir le résultat, tout en attendant l'apparition de ce Greed! »
+L'homme sourit, et la nostalgie disparut de son regard. Il lança un regard significatif à la femme: « D'accord! Nous allons attendre ici de voir le résultat, tout en attendant l'apparition de ce Cupidité! »
 
-La femme sourit: « Je me demande ce que fera ce Greed lorsqu'il nous verra. Résistera-t-il, ou remettra-t-il docilement le jeton? »
+La femme sourit: « Je me demande ce que fera ce Cupidité lorsqu'il nous verra. Résistera-t-il, ou remettra-t-il docilement le jeton? »
 
 « Il n'osera pas résister! » répondit l'homme avec un sourire. Son ton était d'un calme absolu, sans la moindre trace de colère.
 
-Dès l'instant où Greed pénétra dans le Domaine des Esprits Démoniaques, le Couple Céleste des Nuages fut déjà au courant de sa présence. Après tout, les deux avaient passé des dizaines de milliers d'années en ces lieux. Ils avaient minutieusement exploré l'une des fausses grottes du domaine et les trésors qu'ils y avaient récoltés étaient innombrables.
+Dès l'instant où Cupidité pénétra dans le Domaine des Esprits Démoniaques, le Couple Céleste des Nuages fut déjà au courant de sa présence. Après tout, les deux avaient passé des dizaines de milliers d'années en ces lieux. Ils avaient minutieusement exploré l'une des fausses grottes du domaine et les trésors qu'ils y avaient récoltés étaient innombrables.
 
-En plus de son talent pour les restrictions, Wang Wei excellait en divination. Bien qu'il ne fût pas aussi doué que l'Omniscient, il lui était possible de calculer la position de Greed ainsi que d'autres changements de flux.
+En plus de son talent pour les restrictions, Wang Wei excellait en divination. Bien qu'il ne fût pas aussi doué que l'Omniscient, il lui était possible de calculer la position de Cupidité ainsi que d'autres changements de flux.
 
 Quant au jeton, ils en avaient également calculé la localisation. Cependant, ce jeton était extrêmement étrange et, pour l'obtenir, ils devaient agir à un moment précis. C'est pourquoi ils n'avaient rien entrepris plus tôt et attendaient désormais à la sortie, dans le Pays des Démons de Feu.
 

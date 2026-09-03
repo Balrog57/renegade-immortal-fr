@@ -10,9 +10,9 @@ D'immenses quantités d'énergie originelle emplissaient la vallée où se trouv
 
 L'histoire du Royaume aux Sept Couleurs était mystérieuse, et ce lieu regorgeait de phénomènes étranges et de dangers mortels. Cependant, c'était aussi une opportunité colossale pour Wang Lin.
 
-Après avoir absorbé les souvenirs du Maître Ashen Pine, Wang Lin en avait appris davantage sur le Royaume aux Sept Couleurs. Il avait même découvert l'utilité de la bouteille de liquide ainsi que la méthode pour quitter cet endroit.
+Après avoir absorbé les souvenirs du Maître Pin Cendré, Wang Lin en avait appris davantage sur le Royaume aux Sept Couleurs. Il avait même découvert l'utilité de la bouteille de liquide ainsi que la méthode pour quitter cet endroit.
 
-S'il ne s'était pas élevé du stade initial au stade intermédiaire de la Condensation de Qi, il aurait hésité. Après tout, Wang Lin avait acquis une bien meilleure compréhension des périls qui régnaient ici grâce aux souvenirs du Maître Ashen Pine. Plus important encore, il connaissait désormais l'existence de cette montagne nichée dans les profondeurs du Royaume aux Sept Couleurs.
+S'il ne s'était pas élevé du stade initial au stade intermédiaire de la Condensation de Qi, il aurait hésité. Après tout, Wang Lin avait acquis une bien meilleure compréhension des périls qui régnaient ici grâce aux souvenirs du Maître Pin Cendré. Plus important encore, il connaissait désormais l'existence de cette montagne nichée dans les profondeurs du Royaume aux Sept Couleurs.
 
 Cependant, le domaine de Wang Lin ayant progressé, il lui suffisait d'absorber assez de cristaux d'origine pour atteindre le stade intermédiaire de la Condensation de Qi. À ce moment-là, grâce à son corps de Dieu Ancien, il pourrait éliminer sans difficulté des cultivateurs au stade intermédiaire de la Brisure de Nirvana. Seuls les cultivateurs au stade tardif de la Brisure de Nirvana représenteraient un véritable défi.
 
@@ -26,11 +26,11 @@ Des bruits de craquements résonnèrent tandis que ses cheveux s'agitaient sans 
 
 Stade intermédiaire de la Condensation de Qi!
 
-Wang Lin sourit et expira une bouffée d'air. Puis, d'un geste de la main, il fit apparaître une bouteille de jade. C'était l'objet qu'il avait pris au Maître Ashen Pine.
+Wang Lin sourit et expira une bouffée d'air. Puis, d'un geste de la main, il fit apparaître une bouteille de jade. C'était l'objet qu'il avait pris au Maître Pin Cendré.
 
-« Utiliser les Perdus pour dévorer le Dao et les Éclairés pour nourrir le Dao. Le Dao ainsi nourri est ensuite absorbé par les quatre tablettes de pierre. Puis, utiliser la scripture gravée sur le squelette sous la tablette pour transformer ce Dao en une force inimaginable. Cette force sert alors à extraire ce sang noir du squelette. Mais ce n'est pas du sang, c'est l'essence du Dao de cette personne! » Les yeux de Wang Lin brillèrent intensément. C'était l'information cruciale qu'il avait extraite de l'esprit du Maître Ashen Pine.
+« Utiliser les Perdus pour dévorer le Dao et les Éclairés pour nourrir le Dao. Le Dao ainsi nourri est ensuite absorbé par les quatre tablettes de pierre. Puis, utiliser la scripture gravée sur le squelette sous la tablette pour transformer ce Dao en une force inimaginable. Cette force sert alors à extraire ce sang noir du squelette. Mais ce n'est pas du sang, c'est l'essence du Dao de cette personne! » Les yeux de Wang Lin brillèrent intensément. C'était l'information cruciale qu'il avait extraite de l'esprit du Maître Pin Cendré.
 
-Wang Lin n'avait pas découvert comment le Maître Ashen Pine avait obtenu ces informations. Après tout, ce dernier était un cultivateur au stade intermédiaire de la Brisure de Nirvana, et le sort de recherche d'âme n'était pas exempt de défauts. Wang Lin n'avait pu tout obtenir.
+Wang Lin n'avait pas découvert comment le Maître Pin Cendré avait obtenu ces informations. Après tout, ce dernier était un cultivateur au stade intermédiaire de la Brisure de Nirvana, et le sort de recherche d'âme n'était pas exempt de défauts. Wang Lin n'avait pu tout obtenir.
 
 « La clé de cette essence du Dao réside dans l'identité de ce demi-squelette! Il y a deux tablettes de pierre et, d'après ce que j'ai vu, chacune devrait avoir un demi-squelette cloué en dessous; il ne s'agissait donc que d'une seule personne! »
 
@@ -38,9 +38,9 @@ Wang Lin n'avait pas découvert comment le Maître Ashen Pine avait obtenu ces i
 
 « La scripture sur les os a été gravée par la suite. On ignore quel puissant cultivateur a transformé son sort en une scripture et a conçu une idée aussi terrifiante! »
 
-« Cependant, cette essence du Dao ne peut pas être consommée immédiatement. Une fois bue, on s'endort pour une durée indéterminée. Le plan du Maître Ashen Pine était de trouver un endroit absolument sûr ici, de la boire et d'attendre le jour de son réveil. C'est aussi pour cela qu'il ne l'avait pas bue lorsqu'il combattait la vieille femme en vert! »
+« Cependant, cette essence du Dao ne peut pas être consommée immédiatement. Une fois bue, on s'endort pour une durée indéterminée. Le plan du Maître Pin Cendré était de trouver un endroit absolument sûr ici, de la boire et d'attendre le jour de son réveil. C'est aussi pour cela qu'il ne l'avait pas bue lorsqu'il combattait la vieille femme en vert! »
 
-L'endroit qu'il avait choisi était la montagne située dans les profondeurs du Royaume aux Sept Couleurs! Seul bémol: il n'y avait aucune trace de ce vieil homme aux cheveux blancs dans les souvenirs du Maître Ashen Pine.
+L'endroit qu'il avait choisi était la montagne située dans les profondeurs du Royaume aux Sept Couleurs! Seul bémol: il n'y avait aucune trace de ce vieil homme aux cheveux blancs dans les souvenirs du Maître Pin Cendré.
 
 Le regard de Wang Lin s'anima et il fixa la bouteille dans sa main gauche.
 
@@ -112,7 +112,7 @@ C'était la partie inférieure d'un squelette, sur laquelle étaient gravés d'i
 
 Une fois apaisé, Wang Lin réfléchit. Il n'était pas prêt à repartir ainsi. En examinant le squelette, il remarqua une fracture profonde sur la jambe droite. Bien que l'os ne fût pas détaché, la blessure était très grave.
 
-Après un long moment, les mains de Wang Lin formèrent un sceau. Il pointa son corps à plusieurs reprises pour y placer de lourdes restrictions mentales. Puis, il sortit l'épée de cristal qu'il avait prise au Maître Ashen Pine. Il y laissa une parcelle de sa pensée et s'avança lentement. Ce n'était que quelques dizaines de pieds, mais Wang Lin était d'une prudence extrême à chaque pas. Il arriva finalement près du squelette, s'accroupit et tendit la main vers la fracture de la jambe droite sans hésiter. Son esprit se projeta depuis sa main droite.
+Après un long moment, les mains de Wang Lin formèrent un sceau. Il pointa son corps à plusieurs reprises pour y placer de lourdes restrictions mentales. Puis, il sortit l'épée de cristal qu'il avait prise au Maître Pin Cendré. Il y laissa une parcelle de sa pensée et s'avança lentement. Ce n'était que quelques dizaines de pieds, mais Wang Lin était d'une prudence extrême à chaque pas. Il arriva finalement près du squelette, s'accroupit et tendit la main vers la fracture de la jambe droite sans hésiter. Son esprit se projeta depuis sa main droite.
 
 Il utilisait son âme pour comprendre!
 

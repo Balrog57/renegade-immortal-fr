@@ -92,7 +92,7 @@ Mais comment Wang Lin pouvait-il le laisser s'échapper? Il pointa sa main droit
 
 « Une montagne, deux effondrements » représentait la limite de la compréhension actuelle de Wang Lin concernant ce sort. Comparé aux six montagnes et douze effondrements de Qing Shui, c'était encore bien insuffisant. Le sort de Qing Shui pouvait détruire un royaume entier; bien que Wang Lin ne puisse en arriver là, cela suffisait amplement à anéantir ces cultivateurs!
 
-S'il n'y avait pas eu de rétribution divine, Wang Lin ne serait pas venu de lui-même. Mais face à la rétribution divine, oubliez le fait que ces deux Anciens n'étaient qu'au stade avancé du Nettoyage du Nirvana; Wang Lin oserait affronter des cultivateurs du Briseur de Nirvana!
+S'il n'y avait pas eu de rétribution divine, Wang Lin ne serait pas venu de lui-même. Mais face à la rétribution divine, oubliez le fait que ces deux Anciens n'étaient qu'au stade avancé du Purificateur du Nirvana; Wang Lin oserait affronter des cultivateurs du Briseur de Nirvana!
 
 L'espace entier commença à trembler sous l'effet du second effondrement. L'immense montagne gémit dans un grondement assourdissant avant de s'effondrer finalement. Non seulement la montagne, mais aussi l'âme de la montagne formée par la volonté et l'énergie originelle céleste de Wang Lin s'écroula également. D'innombrables roches incandescentes furent projetées, tandis qu'une lave infinie et une fumée noire toxique jaillissaient, recouvrant toute la nébuleuse.
 

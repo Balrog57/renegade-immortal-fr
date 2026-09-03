@@ -50,7 +50,7 @@ Au loin, Ji Xiantian afficha un sourire étrange et disparut soudainement. L'exp
 
 Ce qui oppressait encore plus Yi Muzi était que, lorsqu'il utilisait un sort, la majeure partie de sa puissance était affaiblie par le vide. Il lui était impossible de déployer la pleine force de ses techniques, sans quoi il ne serait pas dans un état aussi lamentable.
 
-L'énergie originelle dans son corps continuait de se dissiper, et de plus en plus vite. Sa culture avait déjà chuté du sommet au stade tardif du Nettoyage du Nirvana.
+L'énergie originelle dans son corps continuait de se dissiper, et de plus en plus vite. Sa culture avait déjà chuté du sommet au stade tardif du Purificateur du Nirvana.
 
 Un instant plus tard, Yi Muzi ne se soucia plus de la perte d'énergie originelle. Il ouvrit les bras et cria: « Un Bois, Un Royaume! »
 

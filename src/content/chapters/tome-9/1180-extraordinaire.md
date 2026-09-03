@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1180 - Extraordinary
 slug: extraordinaire
 ---
-Le ciel étoilé était voilé de brume alors que six rayons de lumière fendaient l'air. Maître Ashen Pine semblait très familier avec ce chemin; il ne prit même pas de jade pour vérifier sa direction, se contentant de foncer vers la destination!
+Le ciel étoilé était voilé de brume alors que six rayons de lumière fendaient l'air. Maître Pin Cendré semblait très familier avec ce chemin; il ne prit même pas de jade pour vérifier sa direction, se contentant de foncer vers la destination!
 
 Avec sa culture au niveau du Briseur de Nirvana, il était semblable à un éclair lorsqu'il volait à pleine vitesse. Derrière lui, tous les autres mobilisaient également toute leur puissance de culture pour accélérer.
 
@@ -14,11 +14,11 @@ Wang Lin restait à la traîne. Après tout, son véritable niveau de culture n'
 
 Ils volèrent à toute allure, et quelques jours plus tard, la brume devint encore plus dense. Ils atteignirent les profondeurs de la région de rang 5, où l'on pouvait vaguement distinguer l'ombre d'un continent sauvage.
 
-« Nous y sommes. » Maître Ashen Pine s'élança pour se rapprocher du continent sauvage. Ce dernier n'était pas vaste, mais il regorgeait de bêtes féroces. Rien qu'en survolant la zone, on pouvait entendre leurs rugissements incessants.
+« Nous y sommes. » Maître Pin Cendré s'élança pour se rapprocher du continent sauvage. Ce dernier n'était pas vaste, mais il regorgeait de bêtes féroces. Rien qu'en survolant la zone, on pouvait entendre leurs rugissements incessants.
 
-« Peu de gens connaissent ce continent sauvage, et même ceux qui en ont vent ne découvriront jamais le secret que j'y ai caché. » Maître Ashen Pine sourit, le regard empreint de nostalgie en contemplant la terre.
+« Peu de gens connaissent ce continent sauvage, et même ceux qui en ont vent ne découvriront jamais le secret que j'y ai caché. » Maître Pin Cendré sourit, le regard empreint de nostalgie en contemplant la terre.
 
-« Cher cultivateur Pang, je vous confie une tâche: trouvez tous les cultivateurs sur ce continent sauvage et... tuez-les tous! » lança Maître Ashen Pine à l'adresse du vieil homme au visage balafré.
+« Cher cultivateur Pang, je vous confie une tâche: trouvez tous les cultivateurs sur ce continent sauvage et... tuez-les tous! » lança Maître Pin Cendré à l'adresse du vieil homme au visage balafré.
 
 L'homme nommé Pang hocha la tête puis disparut. Son sens divin se propagea à travers le continent sauvage pour poursuivre sa traque. Il élimina chaque cultivateur qu'il croisa, sans égard pour leur niveau de culture ou leur secte.
 
@@ -26,15 +26,15 @@ Wang Lin observa le continent sauvage sous ses pieds. Il avait le pressentiment 
 
 Les yeux de la vieille femme en vert s'illuminèrent également tandis qu'elle scrutait les environs avec gravité.
 
-Maître Cloud Soul jeta un regard méprisant à Wang Lin. Le secret de ce continent sauvage ne pouvait être perçu que si l'on y avait vécu durant de longues années.
+Maître Nuage-Âme jeta un regard méprisant à Wang Lin. Le secret de ce continent sauvage ne pouvait être perçu que si l'on y avait vécu durant de longues années.
 
 Le jeune garçon fronça également les sourcils en observant les lieux, mais nul ne savait ce qu'il pensait. Seul Chen Tianjun restait impassible, assis là, cultivant les yeux clos.
 
-Peu de temps après, le vieil homme nommé Pang revint. Il adressa un signe de tête à Maître Ashen Pine sans toutefois prononcer un mot.
+Peu de temps après, le vieil homme nommé Pang revint. Il adressa un signe de tête à Maître Pin Cendré sans toutefois prononcer un mot.
 
-Maître Ashen Pine parut s'animer d'une certaine excitation et prit une profonde inspiration. Ses mains formèrent alors un sceau et il agita ses bras. D'immenses quantités d'énergie originelle se rassemblèrent soudainement autour de lui, soulevant la brume pour former un vortex gigantesque devant lui.
+Maître Pin Cendré parut s'animer d'une certaine excitation et prit une profonde inspiration. Ses mains formèrent alors un sceau et il agita ses bras. D'immenses quantités d'énergie originelle se rassemblèrent soudainement autour de lui, soulevant la brume pour former un vortex gigantesque devant lui.
 
-Les cheveux blancs de Maître Ashen Pine flottaient sans qu'aucun vent ne les agitât. Il poussa un rugissement et ses deux mains s'abattirent impitoyablement sur le sol!
+Les cheveux blancs de Maître Pin Cendré flottaient sans qu'aucun vent ne les agitât. Il poussa un rugissement et ses deux mains s'abattirent impitoyablement sur le sol!
 
 La terre trembla dans un fracas assourdissant, déclenchant des grondements interminables. Tandis que le sol s'ébranlait, des craquements sinistres retentirent; des fissures progressèrent comme des dragons s'étendant vers l'horizon.
 
@@ -58,13 +58,13 @@ Wang Lin n'était pas un cultivateur natif de la Mer des Nuages. Son ancien syst
 
 « Un continent sauvage immobile... » Les yeux de Wang Lin brillèrent.
 
-Il ne restait plus un seul grain de gravier sur la terre située entre les quatre montagnes. Maître Ashen Pine s'assit et tendit sa main droite vers le vide. Une faille s'ouvrit dans son espace de stockage, laissant jaillir des jades célestes. Dès qu'ils touchèrent le sol, toute l'énergie spirituelle céleste qu'ils contenaient fut drainée, les transformant en poussière.
+Il ne restait plus un seul grain de gravier sur la terre située entre les quatre montagnes. Maître Pin Cendré s'assit et tendit sa main droite vers le vide. Une faille s'ouvrit dans son espace de stockage, laissant jaillir des jades célestes. Dès qu'ils touchèrent le sol, toute l'énergie spirituelle céleste qu'ils contenaient fut drainée, les transformant en poussière.
 
 À mesure que les jades célestes se dissipaient, la terre absorbait cette énergie dense, et la rune devint de plus en plus nette, émettant une douce lueur.
 
 En l'espace de quinze minutes, plus de cent mille jades célestes furent consommés. La rune brilla de plus en plus intensément jusqu'à ce que le continent sauvage entier soit illuminé!
 
-« Formation céleste, activez! » rugit Maître Ashen Pine, sa voix résonnant comme un coup de tonnerre. À cet instant, la rune au sol projeta un éclat violent et une secousse tellurique ébranla tout l'espace.
+« Formation céleste, activez! » rugit Maître Pin Cendré, sa voix résonnant comme un coup de tonnerre. À cet instant, la rune au sol projeta un éclat violent et une secousse tellurique ébranla tout l'espace.
 
 Wang Lin sentit clairement qu'une fois la rune gorgée d'énergie spirituelle céleste, elle se propagea sur l'ensemble du continent. Le continent sauvage commença soudainement à bouger!
 
@@ -78,19 +78,19 @@ Une fissure aux sept couleurs apparut au centre du continent sauvage! Elle n'ét
 
 « C'est donc ça! » haleta le garçon en fixant la faille, surexcité. Ses traits étaient déjà déformés par l'émotion, et sous l'effet de cette excitation, son visage devint proprement terrifiant.
 
-« Quel coup d'éclat! » L'homme robuste, Chen Tianjun de la Secte des Bêtes de Combat, observa Maître Ashen Pine avant de reporter son regard sur la fissure aux sept couleurs.
+« Quel coup d'éclat! » L'homme robuste, Chen Tianjun de la Secte des Bêtes de Combat, observa Maître Pin Cendré avant de reporter son regard sur la fissure aux sept couleurs.
 
-« Ce continent sauvage n'était pas censé être ici. Je suis passé par là par accident au moment même où la fissure est apparue. Par la suite, pour la dissimuler, j'ai déplacé un continent pour la recouvrir afin que les étrangers ne la trouvent pas! » expliqua Maître Ashen Pine avec une pointe de fierté dans la voix.
+« Ce continent sauvage n'était pas censé être ici. Je suis passé par là par accident au moment même où la fissure est apparue. Par la suite, pour la dissimuler, j'ai déplacé un continent pour la recouvrir afin que les étrangers ne la trouvent pas! » expliqua Maître Pin Cendré avec une pointe de fierté dans la voix.
 
 La vieille femme en vert regarda la faille et demanda: « Où cette fissure aux sept couleurs mène-t-elle? »
 
-« Vous le saurez une fois sur place! » rit Maître Ashen Pine tout en pilotant le continent pour accélérer la course. En un clin d'œil, ils s'étaient déjà éloignés de la faille.
+« Vous le saurez une fois sur place! » rit Maître Pin Cendré tout en pilotant le continent pour accélérer la course. En un clin d'œil, ils s'étaient déjà éloignés de la faille.
 
 « Cette fissure est instable et ne peut être abordée directement. Si deux d'entre nous tentent d'y entrer, elle s'effondrera. Bien qu'elle ne disparaisse pas totalement, elle se rétractera, rendant le retour périlleux! Nous devons donc utiliser ce continent sauvage comme un guide pour forcer le passage. De cette façon, la fissure ne s'effondrera pas et, grâce au sceau qui protège ce continent, l'impact sera bien moindre lors de notre retour. »
 
-Tandis que Maître Ashen Pine terminait ses explications, la fissure aux sept couleurs s'estompait à l'horizon. Le continent sous leurs pieds accéléra brusquement, avant de s'arrêter net.
+Tandis que Maître Pin Cendré terminait ses explications, la fissure aux sept couleurs s'estompait à l'horizon. Le continent sous leurs pieds accéléra brusquement, avant de s'arrêter net.
 
-Maître Ashen Pine forma un sceau et pointa le continent du doigt. Ce dernier se mit alors à foncer vers la fissure avec une célérité encore plus grande!
+Maître Pin Cendré forma un sceau et pointa le continent du doigt. Ce dernier se mit alors à foncer vers la fissure avec une célérité encore plus grande!
 
 La vitesse augmentait sans cesse. En un instant, ils atteignirent leur paroxysme. La vélocité fit trembler violemment le continent, faisant s'effondrer des masses de roche sur ses flancs.
 
@@ -102,10 +102,10 @@ Bien que cela puisse paraître lent, tout se produisit en un éclair. Le contine
 
 Sous l'impact du continent, la fissure parut être déchirée de force et s'élargit instantanément.
 
-« Allez! » cria Maître Ashen Pine en se précipitant vers la faille. Les autres suivirent le mouvement, utilisant toute leur vitesse pour pénétrer dans l'ouverture.
+« Allez! » cria Maître Pin Cendré en se précipitant vers la faille. Les autres suivirent le mouvement, utilisant toute leur vitesse pour pénétrer dans l'ouverture.
 
-À ce moment précis, les deux seuls restés à l'extérieur étaient Maître Cloud Soul et Wang Lin. Maître Cloud Soul lança un regard glacial à Wang Lin, lequel laissa échapper un ricanement intérieur avant de se diriger droit vers la faille. Cependant, juste au moment où il allait s'y engouffrer, une lueur froide traversa le regard de Wang Lin et il se retourna brusquement!
+À ce moment précis, les deux seuls restés à l'extérieur étaient Maître Nuage-Âme et Wang Lin. Maître Nuage-Âme lança un regard glacial à Wang Lin, lequel laissa échapper un ricanement intérieur avant de se diriger droit vers la faille. Cependant, juste au moment où il allait s'y engouffrer, une lueur froide traversa le regard de Wang Lin et il se retourna brusquement!
 
-Les yeux de Maître Cloud Soul se contractèrent. Au moment où Wang Lin fit volte-face, sa main droite plongea dans le vide et une épée de fer apparut soudainement dans sa paume!
+Les yeux de Maître Nuage-Âme se contractèrent. Au moment où Wang Lin fit volte-face, sa main droite plongea dans le vide et une épée de fer apparut soudainement dans sa paume!
 
 Elle était couverte de rouille, mais c'était une lame qui dégageait une aura capable d'ébranler les cieux!

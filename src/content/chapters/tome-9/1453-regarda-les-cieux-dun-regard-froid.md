@@ -6,11 +6,11 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1453 - Looked at the Sky With a Cold Gaze
 slug: regarda-les-cieux-dun-regard-froid
 ---
-Great Desolation agita la main et un vent aux effluves de poisson l'entoura. Les Flammes de Joss l'enveloppèrent également pour l'aider à résister au Dao Master Miao Yin.
+Grande Désolation agita la main et un vent aux effluves de poisson l'entoura. Les Flammes de Joss l'enveloppèrent également pour l'aider à résister au Dao Master Miao Yin.
 
-Tous deux étaient de puissants cultivateurs; ainsi, bien qu'ils ne puissent utiliser que le stade initial de la culture du Nirvana Void, leur combat restait dangereux et capable de faire trembler les cieux.
+Tous deux étaient de puissants cultivateurs; ainsi, bien qu'ils ne puissent utiliser que le stade initial de la culture du Vide du Nirvana, leur combat restait dangereux et capable de faire trembler les cieux.
 
-L'expression de Great Desolation était sombre. Il avait découvert cette terre scellée le premier et avait déployé d'immenses efforts pour briser la restriction. Juste au moment où il allait réussir, le Dao Master Miao Yin était apparu. Ce dernier avait lancé une attaque sournoise, déclenchant alors cette bataille acharnée.
+L'expression de Grande Désolation était sombre. Il avait découvert cette terre scellée le premier et avait déployé d'immenses efforts pour briser la restriction. Juste au moment où il allait réussir, le Dao Master Miao Yin était apparu. Ce dernier avait lancé une attaque sournoise, déclenchant alors cette bataille acharnée.
 
 Comme l'autre personne l'avait affirmé, il était venu ici avec une partie de son âme possédant un autre corps. En termes de force et de sorts, il ne pouvait rivaliser avec l'avatar de Miao Yin. De plus, comme ce corps n'était pas celui qu'il avait lui-même affiné, il ne parvenait pas à contrôler parfaitement ses Flammes de Joss.
 
@@ -28,7 +28,7 @@ La brume défilait autour de lui alors qu'il se rapprochait de la terre scellée
 
 En un éclair, la bête-moustique s'approcha et disparut lorsqu'elle toucha la brume distordue.
 
-Dans le ciel de la terre scellée, le Dao Master Miao Yin et Great Desolation poursuivaient leur affrontement. Une tempête les entourait, rendant invisible la férocité du combat. Cependant, ce tourbillon qui balayait le monde était extrêmement terrifiant.
+Dans le ciel de la terre scellée, le Dao Master Miao Yin et Grande Désolation poursuivaient leur affrontement. Une tempête les entourait, rendant invisible la férocité du combat. Cependant, ce tourbillon qui balayait le monde était extrêmement terrifiant.
 
 La bête-moustique apparut dans un coin et resta immobile. Le fragment de Sens Divin que Wang Lin y avait déposé perçut immédiatement tout. Pourtant, à cet instant précis, un rayon de lumière jaillit de la tempête vers la créature. La bête-moustique explosa instantanément, et même le fragment de Sens Divin de Wang Lin fut anéanti.
 

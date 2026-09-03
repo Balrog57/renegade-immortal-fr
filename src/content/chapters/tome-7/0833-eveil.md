@@ -20,7 +20,7 @@ Tous les sorts et trésors perdirent leur efficacité face aux tentacules. Un de
 
 Cette scène plongea tous les cultivateurs environnants dans la terreur.
 
-Le corps de Yao Bingyun apparut depuis la glace, quelque part à l'intérieur du Serpent Moongazer. À peine était-elle apparue qu'elle cracha une bouffée de sang noir. Son visage devint livide et une ligne noire semblait ramper sur ses traits.
+Le corps de Yao Bingyun apparut depuis la glace, quelque part à l'intérieur du Serpent aux yeux de lune. À peine était-elle apparue qu'elle cracha une bouffée de sang noir. Son visage devint livide et une ligne noire semblait ramper sur ses traits.
 
 « Quel genre de sort est-ce là?! » Le corps de Yao Bingyun trembla et elle cracha davantage de sang, dont la couleur était encore plus sombre!
 
@@ -38,25 +38,25 @@ Les pupilles de Yao Bingyun se rétractèrent brusquement. Un frisson lui glaça
 
 Les vibrations violentes persistèrent. Finalement, la terre commença à s'effondrer et les débris volèrent dans tous les sens. Un instant plus tard, un rugissement encore plus intense jaillit de l'intérieur de la planète.
 
-À ce moment précis, Wang Lin coupait sans relâche ces fils rouges. Chaque fois qu'un fil était sectionné, le Serpent Moongazer tremblait violemment.
+À ce moment précis, Wang Lin coupait sans relâche ces fils rouges. Chaque fois qu'un fil était sectionné, le Serpent aux yeux de lune tremblait violemment.
 
 Dans sa progression, Wang Lin s'enfonçait progressivement dans la faille. Plus il avançait, plus les fils rouges devenaient denses. Le regard de Wang Lin se fit glacial alors qu'il utilisait continuellement le Tranchant Céleste, faisant s'effondrer les fils rouges un à un.
 
 Peu de temps après, il s'arrêta soudainement. Un fil rouge, aussi épais qu'un homme et s'étendant verticalement, apparut devant lui. Ce fil était plus massif que tous ceux qu'il avait vus jusqu'alors. Ses yeux brillèrent alors qu'il se précipitait pour le déchirer sans la moindre hésitation.
 
-Un rugissement de pure folie résonna à travers le Serpent Moongazer lorsque Wang Lin déchira cette ligne rouge!
+Un rugissement de pure folie résonna à travers le Serpent aux yeux de lune lorsque Wang Lin déchira cette ligne rouge!
 
-Dans un fracas assourdissant, la planète de culture formée par le Serpent Moongazer entama son effondrement final. Une aura antique se propagea progressivement, laissant les cultivateurs extérieurs stupéfaits. Ils virent une faille s'ouvrir au milieu de la planète, laquelle se déploya pour révéler un monstre colossal de forme ovale!
+Dans un fracas assourdissant, la planète de culture formée par le Serpent aux yeux de lune entama son effondrement final. Une aura antique se propagea progressivement, laissant les cultivateurs extérieurs stupéfaits. Ils virent une faille s'ouvrir au milieu de la planète, laquelle se déploya pour révéler un monstre colossal de forme ovale!
 
-Une aura de rage se déversa. Le Serpent Moongazer s'était réveillé!
+Une aura de rage se déversa. Le Serpent aux yeux de lune s'était réveillé!
 
-Dès l'éveil du Serpent Moongazer, Wang Lin retira son aura et se cacha promptement. Il s'assit en position du lotus, les sens en alerte.
+Dès l'éveil du Serpent aux yeux de lune, Wang Lin retira son aura et se cacha promptement. Il s'assit en position du lotus, les sens en alerte.
 
 ROAR!
 
-Un rugissement semblable à une tempête d'éclairs tonnantes jaillit du Serpent Moongazer. C'était comme une succession de détonations soniques qui se propageaient sans cesse, forçant les cultivateurs environnants à reculer.
+Un rugissement semblable à une tempête d'éclairs tonnantes jaillit du Serpent aux yeux de lune. C'était comme une succession de détonations soniques qui se propageaient sans cesse, forçant les cultivateurs environnants à reculer.
 
-À cet instant, quel que soit leur niveau de culture, ils ressentirent face au Serpent Moongazer une peur irrésistible.
+À cet instant, quel que soit leur niveau de culture, ils ressentirent face au Serpent aux yeux de lune une peur irrésistible.
 
 De longs tentacules se déployèrent lentement en oscillant de gauche à droite. Simultanément, une immense déchirure apparut là où se trouvait la tête du serpent.
 
@@ -70,7 +70,7 @@ De longs tentacules se déployèrent lentement en oscillant de gauche à droite.
 
 Des exclamations fusèrent de toutes parts. Plus de la moitié des cultivateurs s'enfuirent rapidement sans hésiter. À leurs yeux, à moins d'atteindre le sommet du deuxième stade de culture, il était tout simplement impossible de lui faire face!
 
-Le Serpent Moongazer était extrêmement en colère. En cet instant, la douleur infligée à son corps n'était pas grave et n'avait servi qu'à l'éveiller. Ce qui l'enrageait véritablement, c'était de n'avoir dormi qu'une si courte période avant d'être à nouveau importuné.
+Le Serpent aux yeux de lune était extrêmement en colère. En cet instant, la douleur infligée à son corps n'était pas grave et n'avait servi qu'à l'éveiller. Ce qui l'enrageait véritablement, c'était de n'avoir dormi qu'une si courte période avant d'être à nouveau importuné.
 
 Pour lui, ces quelques décennies n'étaient rien de plus qu'un battement de cils. Dans son esprit, il avait l'impression de s'être à peine assoupi avant d'être immédiatement arraché au sommeil.
 
@@ -78,6 +78,6 @@ Ce sentiment le rendait extrêmement irritable. En voyant ces innombrables petit
 
 Le corps de certains cultivateurs explosa sous la puissance du rugissement. Même leurs âmes originelles ne purent s'échapper et s'effondrèrent instantanément.
 
-La fureur du Serpent Moongazer ne s'était pas dissipée, elle ne faisait que commencer alors qu'il avançait. Pour le serpent, il ne faisait que progresser, mais pour les cultivateurs, c'était une bête féroce titanesque qui chargeait vers eux.
+La fureur du Serpent aux yeux de lune ne s'était pas dissipée, elle ne faisait que commencer alors qu'il avançait. Pour le serpent, il ne faisait que progresser, mais pour les cultivateurs, c'était une bête féroce titanesque qui chargeait vers eux.
 
 Les pupilles de tous les cultivateurs à l'intérieur se rétractèrent soudainement...

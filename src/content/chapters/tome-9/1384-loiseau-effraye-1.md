@@ -28,11 +28,11 @@ Peut-être que ces deux hypothèses sont les véritables raisons de son revireme
 
 De plus, il a puni le Patriarche du Dragon Blindé en envoyant son messager pour me faire étalage de sa puissance... Et enfin, il m'ordonne de participer à la sélection des Anciens Déchus dans trois mois... Cette affaire est étrange. Je n'aurai qu'à m'y rendre dans trois mois pour découvrir les objectifs de ce Grand Empereur! » Les yeux de Wang Lin s'illuminèrent et il se concentra. Il utilisa la Courbure Spatiale pour se diriger vers le Clan du Scorpion Noir.
 
-Le groupe de Greed progressait à une vitesse fulgurante et convergeait rapidement vers le Clan du Scorpion Noir. Ces mille cultivateurs traversaient l'espace, créant d'immenses ondulations alors qu'ils approchaient de la planète du clan.
+Le groupe de Cupidité progressait à une vitesse fulgurante et convergeait rapidement vers le Clan du Scorpion Noir. Ces mille cultivateurs traversaient l'espace, créant d'immenses ondulations alors qu'ils approchaient de la planète du clan.
 
 Un instant plus tard, les mille rayons de lumière percèrent l'atmosphère de la planète et plongèrent droit vers le sol.
 
-Entouré par la foule, Greed descendait avec un air arrogant!
+Entouré par la foule, Cupidité descendait avec un air arrogant!
 
 Le ciel au-dessus du Clan du Scorpion Noir changea de couleur et les nuages se déchirèrent. Le firmament semblait se rompre sous la poussée des rayons de lumière.
 
@@ -66,4 +66,4 @@ Cependant, avant qu'il n'ait pu achever sa phrase, un reniflement glacial descen
 
 « Bruyant! » Ce mot, d'une froideur absolue, étouffa instantanément tous les autres sons. Au même moment, une silhouette s'avança parmi le groupe des mille cultivateurs!
 
-Dès l'apparition de cet individu, sa culture s'activa et une odeur nauséabonde se dégagea de son corps. Cette puanteur était si puissante qu'en se propageant, elle fit reculer précipitamment le Patriarche du Scorpion Noir qui s'écria: « Greed! »
+Dès l'apparition de cet individu, sa culture s'activa et une odeur nauséabonde se dégagea de son corps. Cette puanteur était si puissante qu'en se propageant, elle fit reculer précipitamment le Patriarche du Scorpion Noir qui s'écria: « Cupidité! »

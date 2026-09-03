@@ -24,7 +24,7 @@ De plus, Wang Lin sentait progressivement la rétribution divine approcher. Le s
 
 Après tout, ils se trouvaient dans l'espace profond. Contrairement au champ stellaire de la Secte Divine de l'Oiseau Vermillon, où seule l'énergie originelle du feu régnait après des millénaires de combustion, l'énergie originelle ici était extrêmement hétérogène. Et bien que sa culture fût scellée, l'énergie originelle pénétrait tout de même son corps, transformant lentement ses méridiens.
 
-Les cultivateurs du Nettoyage du Nirvana voyaient leur corps transmué par l'énergie originelle afin de mieux appréhender les lois.
+Les cultivateurs du Purificateur du Nirvana voyaient leur corps transmué par l'énergie originelle afin de mieux appréhender les lois.
 
 Tout en réfléchissant, Wang Lin agita la main droite et une fissure d'environ cinq pieds de long apparut. Cette faille ne restait pas statique, mais se déplaçait à la même vitesse que lui. C'était semblable à un petit esquif glissant rapidement sur l'immensité de l'océan; un spectacle singulier.
 
@@ -70,7 +70,7 @@ Wang Lin, resté en retrait, observait l'écran vert avec un calme imperturbable
 
 « Tu te surestimes! » Un ricanement s'éleva de l'intérieur de la protection. Les deux anciens en pourpre étaient arrivés. Ils dédaignaient Wang Lin depuis leur abri.
 
-Leur tension s'était évaporée en percevant le niveau de culture du jeune homme. Ces deux anciens n'étaient ni des cultivateurs de la Rupture du Nirvana, ni même au sommet du Nettoyage du Nirvana; ils n'étaient qu'au stade avancé du Nettoyage du Nirvana. Après tout, ils n'étaient pas de véritables émissaires de la Mer Nuageuse, mais étaient arrivés là par une méthode secrète.
+Leur tension s'était évaporée en percevant le niveau de culture du jeune homme. Ces deux anciens n'étaient ni des cultivateurs de la Rupture du Nirvana, ni même au sommet du Purificateur du Nirvana; ils n'étaient qu'au stade avancé du Purificateur du Nirvana. Après tout, ils n'étaient pas de véritables émissaires de la Mer Nuageuse, mais étaient arrivés là par une méthode secrète.
 
 Wang Lin agita la main droite et la mer de flammes se retira. Son regard sombre perça l'écran pour se poser sur les deux anciens. D'une voix lugubre, il déclara lentement: « Livrez les bêtes-moustiques et ces trois jeunes téméraires, et je pourrai épargner le reste d'entre vous! »
 
@@ -78,7 +78,7 @@ Les deux anciens éclatèrent de rire. L'un d'eux afficha un sourire moqueur: «
 
 Bien qu'ils méprisassent Wang Lin, ils restaient extrêmement prudents et ne quittèrent pas la protection de l'écran. À leurs yeux, cet homme n'était pas le maître des bêtes, mais un disciple envoyé pour les attirer. Le véritable cultivateur puissant devait se cacher à l'extérieur. Bien que leur sens divin ne détectât rien, cela ne faisait qu'accroître leurs soupçons.
 
-Wang Lin ne perdit plus de temps. Il leva la main droite vers le ciel, prit une profonde inspiration et relâcha le sceau des Neuf Transformations Mystérieuses, laissant sa culture éclater. À cet instant, l'aura d'un cultivateur du Nettoyage du Nirvana émana de son corps tandis qu'une masse colossale d'énergie originelle affluait en lui.
+Wang Lin ne perdit plus de temps. Il leva la main droite vers le ciel, prit une profonde inspiration et relâcha le sceau des Neuf Transformations Mystérieuses, laissant sa culture éclater. À cet instant, l'aura d'un cultivateur du Purificateur du Nirvana émana de son corps tandis qu'une masse colossale d'énergie originelle affluait en lui.
 
 Alors que cette énergie dense pénétrait son être, des bruits de craquements résonnèrent en lui. Simultanément, une force titanesque commença à s'accumuler parmi les étoiles.
 
@@ -87,4 +87,4 @@ Des nuages de rétribution divine commencèrent à s'amonceler au-dessus du cham
 « Ceci... C'est... »
 « La rétribution divine!!! »
 
-Les yeux des deux anciens en pourpre s'écarquillèrent, envahis par l'incrédulité et la terreur. Bien qu'ils fussent des cultivateurs du Nettoyage du Nirvana, ils ne connaissaient que peu de choses sur la rétribution divine; s'ils purent la reconnaître, c'est uniquement parce qu'ils en avaient été témoins dans le système stellaire de la Mer Nuageuse avant d'arriver ici.
+Les yeux des deux anciens en pourpre s'écarquillèrent, envahis par l'incrédulité et la terreur. Bien qu'ils fussent des cultivateurs du Purificateur du Nirvana, ils ne connaissaient que peu de choses sur la rétribution divine; s'ils purent la reconnaître, c'est uniquement parce qu'ils en avaient été témoins dans le système stellaire de la Mer Nuageuse avant d'arriver ici.

@@ -100,7 +100,7 @@ Les trois restants étaient également au stade Corporel Yang. Désormais, quatr
 
 Le regard de Wang Lin devint glacial et il déclara lentement: « Le Pavillon des Collections n'appartient pas à vos quatre familles. Laissez-moi passer et nous éviterons le combat. Sinon, même si je succombe, la moitié d'entre vous mourra! »
 
-L'un d'eux répondit froidement: « À moins d'atteindre le stade Nirvana Scryer, aucun étranger n'est qualifié pour entrer dans le pavillon! » Ils avaient naturellement perçu le niveau de culture de Wang Lin, et la scène précédente les avait grandement surpris. Cependant, étant quatre, ils ne craignaient pas son adversité.
+L'un d'eux répondit froidement: « À moins d'atteindre le stade Scruteur du Nirvana, aucun étranger n'est qualifié pour entrer dans le pavillon! » Ils avaient naturellement perçu le niveau de culture de Wang Lin, et la scène précédente les avait grandement surpris. Cependant, étant quatre, ils ne craignaient pas son adversité.
 
 À ce moment-là, l'aura de l'homme en robe noire se stabilisa. Il lâcha un ricanement froid, s'avança et frappa son sac de rangement. Une épée volante rouge en jaillit aussitôt et, d'un geste du doigt, elle fonça vers Wang Lin.
 
