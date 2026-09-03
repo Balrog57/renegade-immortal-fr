@@ -42,7 +42,7 @@ Le vieil homme fut interdit. Après une réflexion approfondie, il questionna: �
 
 « Si c'était vraiment la Vieille Poisonneuse, pourquoi la Secte des Cinq Poisons existe-t-elle encore? » Les yeux de l'homme d'âge moyen brillèrent de sagesse. Il reprit lentement: « Comment cette Vieille Poisonneuse pourrait-elle résister à Shi Luoxing sans être découverte, compte tenu de son niveau de culture? Et comment aurait-elle pu tuer le Noble Argent de la Secte de la Fleur Claire tout en s'échappant? »
 
-« Le Noble Argent de la Secte de la Fleur Claire était un cultivateur au stade Briseur de Nirvana. Qui aurait pu le tuer dans le court laps de temps précédant l'arrivée de la seconde vague de cultivateurs de la Secte de la Fleur Claire? »
+« Le Noble Argent de la Secte de la Fleur Claire était un cultivateur au stade Briseur du Nirvana. Qui aurait pu le tuer dans le court laps de temps précédant l'arrivée de la seconde vague de cultivateurs de la Secte de la Fleur Claire? »
 
 Le vieil homme eut un haut-le-cœur et son esprit vacilla. Il lui fallut un long moment pour reprendre ses esprits, les yeux empreints de terreur.
 
@@ -64,7 +64,7 @@ Le vieil homme sembla soudain réaliser la situation et fut envahi par l'incréd
 
 L'homme d'âge moyen sourit, puis parla à voix basse, comme dans un monologue.
 
-« Ce mystérieux cultivateur est intelligent; il a offert une excuse aux sectes de rang 6. Peu importe l'issue finale, grâce à cette explication, leur désastre sera bien moindre. Pourquoi n'y a-t-il aucun cultivateur au stade Briseur de Nirvana parmi les escouades de recherche? Il n'y a que des Purificateurs de Nirvana qui traquent un individu capable d'éliminer un Briseur de Nirvana en moins de sept minutes... Si j'étais le maître de l'une des sectes de rang 6, je l'aiderais probablement à effacer toutes les traces. De cette façon, seule la Secte des Cinq Poisons serait anéantie! »
+« Ce mystérieux cultivateur est intelligent; il a offert une excuse aux sectes de rang 6. Peu importe l'issue finale, grâce à cette explication, leur désastre sera bien moindre. Pourquoi n'y a-t-il aucun cultivateur au stade Briseur du Nirvana parmi les escouades de recherche? Il n'y a que des Purificateurs de Nirvana qui traquent un individu capable d'éliminer un Briseur du Nirvana en moins de sept minutes... Si j'étais le maître de l'une des sectes de rang 6, je l'aiderais probablement à effacer toutes les traces. De cette façon, seule la Secte des Cinq Poisons serait anéantie! »
 
 Le vieil homme à ses côtés était totalement stupéfait. Il regarda l'homme d'âge moyen avec un mélange de révérence et d'effroi; une trace de peur perçait même dans son regard.
 

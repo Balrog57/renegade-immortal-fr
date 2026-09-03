@@ -1,6 +1,6 @@
 ---
 n: 1254
-title: Réprimande au Secte Éternelle (5)
+title: Réprimande à la Secte Éternelle (5)
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1254 - Rebuking the Everlasting Sect (5)
@@ -12,13 +12,13 @@ Ce qu'il consommait, c'était l'âme de l'Omniscient et, plus encore, l'énergie
 
 Cependant, la puissance de ce Doigt du Destin Céleste était bien inférieure à celle utilisée par l'Omniscient. Après tout, un gouffre immense les séparait en termes de culture, et la méthode d'exécution du sortilège était radicalement différente.
 
-Wang Lin avait utilisé le Doigt Céleste immédiatement car il voulait choquer l'assistance. Bien qu'encore blessé, il devait démontrer que ses sorts étaient puissants et imprévisibles. Ce n'était qu'à ce prix qu'il pourrait atteindre ses objectifs au sein de la Secte Everlasting.
+Wang Lin avait utilisé le Doigt Céleste immédiatement car il voulait choquer l'assistance. Bien qu'encore blessé, il devait démontrer que ses sorts étaient puissants et imprévisibles. Ce n'était qu'à ce prix qu'il pourrait atteindre ses objectifs au sein de la Secte Éternelle.
 
 À moins d'une nécessité absolue, il n'invoquait pas les bêtes moustiques à la légère. Elles étaient son atout caché!
 
 La terre tremblait encore et l'onde de choc résonnait. Le sifflement du vent hurlait toujours aux oreilles des spectateurs. L'odeur du sang rappelait aux quelque 100 000 cultivateurs cette scène terrifiante.
 
-Wang Lin avait détruit le corps du maître de branche de la Secte Everlasting et avait tué l'Ancien et le disciple principal de la branche. Tout cela s'était produit au sein même de la Secte Everlasting, et lorsque l'Ancien Feng Hai tenta de prendre la parole, Wang Lin trancha d'une voix sans détour:
+Wang Lin avait détruit le corps du maître de branche de la Secte Éternelle et avait tué l'Ancien et le disciple principal de la branche. Tout cela s'était produit au sein même de la Secte Éternelle, et lorsque l'Ancien Feng Hai tenta de prendre la parole, Wang Lin trancha d'une voix sans détour:
 
 « Quiconque tentera de les sauver subira le même sort! »
 
@@ -36,9 +36,9 @@ Li Qianmei gardait un visage serein tout en observant Wang Lin en silence. Un so
 
 Wang Shanshan fronça les sourcils en pensant au doigt de lumière, semblant plongée dans une profonde réflexion.
 
-Les vieux monstres de la Secte Everlasting possédaient des niveaux de culture élevés et étaient tous extrêmement rusés. À cet instant, il était impossible de déceler leurs émotions, mais leurs regards vers Wang Lin semblaient glacials.
+Les vieux monstres de la Secte Éternelle possédaient des niveaux de culture élevés et étaient tous extrêmement rusés. À cet instant, il était impossible de déceler leurs émotions, mais leurs regards vers Wang Lin semblaient glacials.
 
-Seul le Maître de la Secte Everlasting se distinguait, car il était le seul capable de percer la culture de Wang Lin. Il ne manifesta aucune émotion face au massacre des membres de la Secte Musique Céleste, comme s'il n'avait rien vu.
+Seul le Maître de la Secte Éternelle se distinguait, car il était le seul capable de percer la culture de Wang Lin. Il ne manifesta aucune émotion face au massacre des membres de la Secte Musique Céleste, comme s'il n'avait rien vu.
 
 Wang Lin se retourna. Son expression était sereine, mais son intention de tuer se propageait. Il fixa la Secte Recherchant la Montagne au loin et marcha lentement vers lui.
 
@@ -46,9 +46,9 @@ Le silence devint total. Près de 100 000 regards étaient braqués sur Wang Lin
 
 Sa démarche n'était pas rapide, mais chaque pas qu'il faisait faisait rater un battement aux membres de la Secte Recherchant la Montagne. Ils avaient l'impression de faire face à une bête féroce des temps anciens qui s'apprêtait à ouvrir sa gueule pour les dévorer.
 
-Le Maître de la Secte Recherchant la Montagne était livide. Bien qu'il fût un cultivateur au stade de Briseur de Nirvana, il n'avait pas le courage d'affronter Wang Lin. En repensant au fait que cet homme était celui qui avait contraint son secte à déplacer tout un continent, son cuir chevelu en fut engourdi; il n'osait même plus envisager la moindre résistance.
+Le Maître de la Secte Recherchant la Montagne était livide. Bien qu'il fût un cultivateur au stade de Briseur du Nirvana, il n'avait pas le courage d'affronter Wang Lin. En repensant au fait que cet homme était celui qui avait contraint son secte à déplacer tout un continent, son cuir chevelu en fut engourdi; il n'osait même plus envisager la moindre résistance.
 
-« Dans la région de rang 7, la Secte Recherchant la Montagne n'est qu'une petite secte. Il ne serait pas sage pour un simple Ancien de s'opposer à un tel être! » Ses yeux brillèrent et il se tourna vers l'Ancien principal. Ce dernier possédait une culture profonde, étant au stade intermédiaire du Briseur de Nirvana.
+« Dans la région de rang 7, la Secte Recherchant la Montagne n'est qu'une petite secte. Il ne serait pas sage pour un simple Ancien de s'opposer à un tel être! » Ses yeux brillèrent et il se tourna vers l'Ancien principal. Ce dernier possédait une culture profonde, étant au stade intermédiaire du Briseur du Nirvana.
 
 Même l'Ancien principal perdit presque la raison en réalisant que Wang Lin était l'individu terrifiant qui avait dévasté la région de rang 7. Il avait vu personnellement Wang Lin utiliser l'Empreinte Spirituelle de la Guerre et savait qu'il n'était pas de taille. Sentant le regard de son Maître de Secte, ils comprirent instantanément leur situation, mais hésitèrent.
 
@@ -62,21 +62,21 @@ Cependant, cette hésitation vola en éclats alors que Wang Lin avançait. La tr
 
 Dans un rugissement, Zhao Long chargea avec frénésie, les yeux rivés sur Wang Lin. Un feu invisible commença à brûler. Acculé, il décida de consumer son âme originelle en échange d'une puissance démesurée.
 
-Zhao Long chargea comme un possédé, une aura de tristesse enveloppant la zone. Dans sa course, son niveau de culture grimpa follement, passant du début au stade intermédiaire du Briseur de Nirvana. De loin, son corps ressemblait à une météorite ardente fonçant sur Wang Lin.
+Zhao Long chargea comme un possédé, une aura de tristesse enveloppant la zone. Dans sa course, son niveau de culture grimpa follement, passant du début au stade intermédiaire du Briseur du Nirvana. De loin, son corps ressemblait à une météorite ardente fonçant sur Wang Lin.
 
 À mesure qu'il avançait, le sentiment de démence s'intensifiait. Finalement, la lumière même du ciel sembla faiblir, jusqu'à ce que l'âme originelle incandescente de Zhao Long devienne un éclat si brillant qu'il attira l'attention de tous les cultivateurs environnants.
 
 « Si tu veux ma mort, tu vas en payer le prix! » Au dernier instant de son existence, Zhao Long lâcha un rugissement qui ébranla le ciel et la terre. Même l'esprit des cultivateurs alentour en fut ébranlé.
 
-Même les membres de la Secte Everlasting furent saisis par l'émotion!
+Même les membres de la Secte Éternelle furent saisis par l'émotion!
 
-Il était rare qu'un être puisse forcer un cultivateur au stade de Briseur de Nirvana à consumer son âme originelle pour choisir l'autodestruction! Pourtant, cela se produisait sous leurs yeux.
+Il était rare qu'un être puisse forcer un cultivateur au stade de Briseur du Nirvana à consumer son âme originelle pour choisir l'autodestruction! Pourtant, cela se produisait sous leurs yeux.
 
 L'âme originelle en combustion, sur le point d'exploser, allait libérer une puissance destructrice colossale. Même les cultivateurs de niveaux supérieurs choisiraient instinctivement de s'en écarter, mais Wang Lin ne bougea pas; au contraire, ses yeux brillèrent d'un éclat vif.
 
-L'expression de Feng Hai était sombre. En tant qu'Ancien de la Secte Everlasting, il était responsable de la compétition. Wang Lin venait de massacrer la Secte Musique Céleste en faisant fi de ses avertissements! Si cela s'était arrêté là, ce n'aurait pas été grave, mais maintenant, cet homme allait tuer des membres d'une secte du rang 7!
+L'expression de Feng Hai était sombre. En tant qu'Ancien de la Secte Éternelle, il était responsable de la compétition. Wang Lin venait de massacrer la Secte Musique Céleste en faisant fi de ses avertissements! Si cela s'était arrêté là, ce n'aurait pas été grave, mais maintenant, cet homme allait tuer des membres d'une secte du rang 7!
 
-Les sectes de la région de rang 7 étaient précieuses pour leurs membres. Les autres se moquaient éperdument de savoir si Zhao Long vivait ou mourait; ils n'avaient pas à se soucier de sa réputation déchue. Mais lui, Feng Hai, s'en souciait, car il était issu de la Secte Recherchant la Montagne avant de devenir un Ancien de la Secte Everlasting.
+Les sectes de la région de rang 7 étaient précieuses pour leurs membres. Les autres se moquaient éperdument de savoir si Zhao Long vivait ou mourait; ils n'avaient pas à se soucier de sa réputation déchue. Mais lui, Feng Hai, s'en souciait, car il était issu de la Secte Recherchant la Montagne avant de devenir un Ancien de la Secte Éternelle.
 
 Si Li Qianmei avait tué quelqu'un, cela aurait été toléré car elle bénéficiait du soutien de la Secte Briseur de Cieux, et il n'aurait pu rien dire. Mais en ce moment, la situation était tout autre!
 
@@ -98,7 +98,7 @@ Le fracas continua tandis que la météorite se désintégrait en poussière de 
 
 « Cher compagnon, vos paroles sont arrivées trop tard. »
 
-Le visage de Feng Hai resta sombre alors qu'il fixait Wang Lin. Il garda le silence un long moment avant de retourner vers la tribune de la Secte Everlasting.
+Le visage de Feng Hai resta sombre alors qu'il fixait Wang Lin. Il garda le silence un long moment avant de retourner vers la tribune de la Secte Éternelle.
 
 Un silence de mort régnait, mais après ce bref instant, un tumulte se propagea sur les plateformes. En l'espace de quelques instants seulement, Wang Lin avait tué des membres de la Secte Musique Céleste et Zhao Long de la Secte Recherchant la Montagne. Tout cela rendait le choc encore plus intense.
 

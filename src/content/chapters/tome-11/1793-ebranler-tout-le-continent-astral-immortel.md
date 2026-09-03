@@ -102,7 +102,7 @@ Un instant plus tard, Wang Lin quitta le clan Cang Meng. Nul ne sut qu'il était
 
 Plus d'une douzaine de Feuilles Anciennes apparurent pour former un vortex. Elles s'élancèrent vers le clan, scellant le système stellaire et l'intégralité du clan!
 
-« Désormais, tout pouvoir de franchir les étoiles est scellé pour ce clan. Leur culture ne pourra jamais dépasser le stade de Briseur de Nirvana! Ils n'auront plus jamais le droit de fouler les étoiles! » Wang Lin agita sa manche et s'éloigna.
+« Désormais, tout pouvoir de franchir les étoiles est scellé pour ce clan. Leur culture ne pourra jamais dépasser le stade de Briseur du Nirvana! Ils n'auront plus jamais le droit de fouler les étoiles! » Wang Lin agita sa manche et s'éloigna.
 
 Tandis qu'il avançait, tous les clans possédant un cultivateur de la troisième étape subirent le même sort dans le Système d'Étoiles Anciennes. Les maîtres de la troisième étape furent contraints à la réincarnation et leurs clans furent scellés.
 

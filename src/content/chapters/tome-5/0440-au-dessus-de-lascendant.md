@@ -20,17 +20,17 @@ Il ne s'agit pas de dire que personne n'a réussi à échapper au cycle de la r�
 
 Wang Lin hocha la tête. Il se remémora le moment où il avait aidé Li Muwan à repousser l'Émissaire des Cieux.
 
-Situ Nan prit une profonde inspiration, laissant transparaître une pointe de regret. « Après le stade d'Ascendant viennent les trois royaumes du Briseur de Nirvana. »
+Situ Nan prit une profonde inspiration, laissant transparaître une pointe de regret. « Après le stade d'Ascendant viennent les trois royaumes du Briseur du Nirvana. »
 
-Les yeux de Wang Lin s'illuminèrent. « Les trois royaumes du Briseur de Nirvana? »
+Les yeux de Wang Lin s'illuminèrent. « Les trois royaumes du Briseur du Nirvana? »
 
-« C'est exact. La première génération de Suzaku, Yu Wuyou, m'a parlé des trois royaumes du Briseur de Nirvana après avoir reçu les récompenses de l'Alliance de la Culture. S'il ne me l'avait pas dit, je n'en aurais pas eu connaissance avant de devenir le prochain Suzaku. » Situ Nan soupira en se remémorant le passé.
+« C'est exact. La première génération de Suzaku, Yu Wuyou, m'a parlé des trois royaumes du Briseur du Nirvana après avoir reçu les récompenses de l'Alliance de la Culture. S'il ne me l'avait pas dit, je n'en aurais pas eu connaissance avant de devenir le prochain Suzaku. » Situ Nan soupira en se remémorant le passé.
 
-« Les trois royaumes du Briseur de Nirvana: le premier est le royaume du Devin de Nirvana, le deuxième est celui du Purificateur de Nirvana, et le troisième est celui du Briseur de Nirvana. »
+« Les trois royaumes du Briseur du Nirvana: le premier est le royaume du Devin de Nirvana, le deuxième est celui du Purificateur du Nirvana, et le troisième est celui du Briseur du Nirvana. »
 
-Wang Lin prit une profonde inspiration, puis fronça les sourcils et demanda: « Et après les trois royaumes du Briseur de Nirvana? Est-ce là le sommet? »
+Wang Lin prit une profonde inspiration, puis fronça les sourcils et demanda: « Et après les trois royaumes du Briseur du Nirvana? Est-ce là le sommet? »
 
-Situ Nan secoua la tête et répondit: « Comment pourrait-ce être aussi simple? Les trois royaumes du Briseur de Nirvana ne sont considérés que comme la deuxième étape pour les cultivateurs. Pourtant, quelqu'un au stade de Briseur de Nirvana peut être considéré comme une puissance majeure au sein de l'Alliance de la Culture. On cherche rarement à s'attirer leurs foudres. La rumeur prétend même que les vieux monstres de l'Alliance de la Culture ont réussi à franchir le stade du Briseur de Nirvana. »
+Situ Nan secoua la tête et répondit: « Comment pourrait-ce être aussi simple? Les trois royaumes du Briseur du Nirvana ne sont considérés que comme la deuxième étape pour les cultivateurs. Pourtant, quelqu'un au stade de Briseur du Nirvana peut être considéré comme une puissance majeure au sein de l'Alliance de la Culture. On cherche rarement à s'attirer leurs foudres. La rumeur prétend même que les vieux monstres de l'Alliance de la Culture ont réussi à franchir le stade du Briseur du Nirvana. »
 
 Wang Lin réfléchit un instant, puis regarda Situ Nan et demanda: « Êtes-vous un Devin de Nirvana? »
 
@@ -58,7 +58,7 @@ La Tactique du Suzaku que chaque génération de Suzaku apprend est ce que la pr
 
 Wang Lin réfléchit un moment. Ses yeux s'animèrent et il demanda: « Vous avez dit plus tôt que les trésors célestes étaient également classés par rang? »
 
-« Bien sûr. Les trésors célestes qui nécessitent de l'énergie spirituelle céleste pour être utilisés sont divisés en qualité inférieure, moyenne et supérieure! » Les yeux de Situ Nan devinrent graves: « Il existe aussi une rumeur selon laquelle il existerait un rang au-dessus des trésors célestes, extrêmement puissant, et qu'il faille être au moins un Briseur de Nirvana pour l'utiliser. Je pense que la Perle Défiant le Ciel est de ce genre de trésor. »
+« Bien sûr. Les trésors célestes qui nécessitent de l'énergie spirituelle céleste pour être utilisés sont divisés en qualité inférieure, moyenne et supérieure! » Les yeux de Situ Nan devinrent graves: « Il existe aussi une rumeur selon laquelle il existerait un rang au-dessus des trésors célestes, extrêmement puissant, et qu'il faille être au moins un Briseur du Nirvana pour l'utiliser. Je pense que la Perle Défiant le Ciel est de ce genre de trésor. »
 
 Wang Lin se toucha le front. Après réflexion, il sortit l'épée céleste. Il regarda Situ Nan et dit: « Vérifiez à quel rang appartient cette épée! »
 

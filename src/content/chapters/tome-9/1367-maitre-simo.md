@@ -36,7 +36,7 @@ Au moment où Wang Lin quitta sa demeure, les visages des cultivateurs présents
 
 Cependant, ces cultivateurs étaient très avisés et comprirent immédiatement la situation!
 
-« Peu importe que ce soit l'individu qui a massacré le Clan du Tonnerre Dispersé ou non, celui qui se cache ici doit avoir des intentions cachées! » Le vieil homme de niveau Briseur de Nirvana affichait une expression lugubre. Ses yeux s'illuminèrent et il s'élança au loin, suivi par les autres.
+« Peu importe que ce soit l'individu qui a massacré le Clan du Tonnerre Dispersé ou non, celui qui se cache ici doit avoir des intentions cachées! » Le vieil homme de niveau Briseur du Nirvana affichait une expression lugubre. Ses yeux s'illuminèrent et il s'élança au loin, suivi par les autres.
 
 Non seulement lui, mais le vieillard en robe taoïste dont le Sens Divin avait été scindé était sur le point de partir lorsqu'il se retourna soudainement. Un éclat étrange brilla dans son regard; sans dire un mot, il fit volte-face et lança une recherche minutieuse avec son Sens Divin.
 
@@ -94,7 +94,7 @@ Le premier qu'il raffina fut le Tonnerre Spirituel. Il en possédait déjà une 
 
 En conséquence, son Tonnerre Spirituel devint extrêmement puissant! Il gravitait lentement autour de l'âme originelle de Wang Lin. À chaque rotation, son âme originelle grandissait et son niveau de culture augmentait légèrement.
 
-Sa culture du tonnerre progressait vers le sommet du stade Briseur de Nirvana! Atteindre ce stade en 10 000 ans était déjà une prouesse, alors de s'en surpasser était encore plus complexe. Le temps de culture de Wang Lin ne pouvait tout simplement pas rivaliser avec celui de ces vieux monstres. Il avait compté sur le fruit dao pour atteindre le stade Briseur de Nirvana, puis sur le tonnerre.
+Sa culture du tonnerre progressait vers le sommet du stade Briseur du Nirvana! Atteindre ce stade en 10 000 ans était déjà une prouesse, alors de s'en surpasser était encore plus complexe. Le temps de culture de Wang Lin ne pouvait tout simplement pas rivaliser avec celui de ces vieux monstres. Il avait compté sur le fruit dao pour atteindre le stade Briseur du Nirvana, puis sur le tonnerre.
 
 Toutefois, malgré cela, son niveau de culture ne pouvait progresser que très peu... à moins de compléter les neuf types de tonnerre!
 

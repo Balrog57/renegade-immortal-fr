@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1152 - Inside the Valley
 slug: a-linterieur-de-la-vallee
 ---
-Cependant, cette vieille femme avait sous-estimé le vent noir de Wang Lin. Maintenant que celui-ci avait atteint le stade du Nettoyeur du Nirvana, la puissance des sorts de Bai Fen commençait à révéler sa véritable nature. Plus important encore, grâce à la fortune que Qing Lin lui avait octroyée, Wang Lin avait acquis une compréhension profonde des sorts de Bai Fan.
+Cependant, cette vieille femme avait sous-estimé le vent noir de Wang Lin. Maintenant que celui-ci avait atteint le stade du Purificateur du Nirvana, la puissance des sorts de Bai Fen commençait à révéler sa véritable nature. Plus important encore, grâce à la fortune que Qing Lin lui avait octroyée, Wang Lin avait acquis une compréhension profonde des sorts de Bai Fan.
 
 Lorsque les cinq dragons noirs entrèrent en collision avec le brouillard rouge craché par la vieille femme, un grondement tonitruant résonna. Les cinq dragons rugirent, déchirèrent rapidement le brouillard rouge et fusionnèrent en un seul.
 
@@ -20,7 +20,7 @@ Un vent glacial et puissant fit brusquement changer l'expression de la vieille f
 
 Une intention meurtrière brilla dans les yeux de Wang Lin alors qu'il flottait dans les airs. La première attaque qui l'atteignit fut le sceau formé par le regard de la statue. Il se déplaçait avec une célérité fulgurante, visant la poitrine de Wang Lin.
 
-Il n'y avait pas de temps pour esquiver, mais Wang Lin n'avait nullement l'intention de reculer. Le niveau de culture de cette vieille femme était légèrement supérieur au sien et ses sorts étaient bien plus puissants que ceux de Song Wude. Ses attaques étaient vicieuses, mais Wang Lin avait déjà tué son lot de cultivateurs du stade Nettoyeur du Nirvana!
+Il n'y avait pas de temps pour esquiver, mais Wang Lin n'avait nullement l'intention de reculer. Le niveau de culture de cette vieille femme était légèrement supérieur au sien et ses sorts étaient bien plus puissants que ceux de Song Wude. Ses attaques étaient vicieuses, mais Wang Lin avait déjà tué son lot de cultivateurs du stade Purificateur du Nirvana!
 
 L'homme le plus téméraire l'emporte sur le chemin étroit! Au moment où le sceau de poison allait l'atteindre, Wang Lin leva la main droite et projeta une force vers l'avant. Il se trouvait soudainement à moins de sept pouces du sceau!
 
@@ -92,7 +92,7 @@ Les quatre cadavres étaient en pleine décomposition. Leurs yeux étaient terne
 
 L'homme assis était un quadragénaire. Son visage était livide, sans aucune trace de sang, et une ligne noire marquait l'espace entre ses sourcils. Même son âme originelle était au bord du trépas. Il semblait que le poison en lui s'était trop propagé. Ce n'était pas un venin ordinaire, mais un poison d'une puissance extrême!
 
-« Stade avancé du Nettoyeur du Nirvana! » Les yeux de Wang Lin brillèrent. Un poison assez puissant pour tuer un tel cultivateur était comparable au poison du Septième Ciel!
+« Stade avancé du Purificateur du Nirvana! » Les yeux de Wang Lin brillèrent. Un poison assez puissant pour tuer un tel cultivateur était comparable au poison du Septième Ciel!
 
 « Compagnon cultivateur est-il également venu pour le jade et la recette de pilule? Je ne connais pas votre secte, mais je crois que ces deux objets sont indispensables pour vous. Même si je ne vous les donne pas, je suppose que vous avez un moyen d'ouvrir mon espace de stockage. Peu importe... je vous laisse ces deux objets, mais je vous en prie, tuez-moi pour que je cesse de souffrir de ce Ver Mille Pourpre. » L'amertume se lisait sur le visage de l'homme tandis qu'il implorait.
 

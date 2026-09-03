@@ -12,7 +12,7 @@ Après avoir reposé la cruche, il soupira et dit: « Heureusement que ce vieil 
 
 L'intention meurtrière explosa dans le regard glacial de Wang Lin alors qu'il levait les yeux vers les étoiles. Son intention de tuer envers la planète Feng Luan, qui avait plongé Situ Nan dans cet état, était monstrueuse!
 
-Wang Lin demanda lentement: « La planète Feng Luan possède-t-elle des cultivateurs du Briseur de Nirvana? »
+Wang Lin demanda lentement: « La planète Feng Luan possède-t-elle des cultivateurs du Briseur du Nirvana? »
 
 Situ Nan secoua la tête et répondit: « Il n'y a pas de Briseurs de Nirvana, au plus des Purificateurs de Nirvana au stade intermédiaire. Il n'y a même pas de Purificateurs de Nirvana au stade tardif ou au sommet du stade tardif. C'est juste que... il y a beaucoup de Purificateurs de Nirvana sur la planète Feng Luan, et en comptant leurs subalternes, ils sont plus de dix! »
 

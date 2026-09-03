@@ -92,7 +92,7 @@ L'homme d'âge moyen, plongé dans sa tribulation, était désormais anesthési�
 
 Cette méthode était bien plus efficace que de les traquer un par un. Après une autre demi-heure, près de cent personnes avaient été éliminées par Wang Lin!
 
-« Un cultivateur Briseur de Nirvana arrive enfin... » Les yeux de Wang Lin s'illuminèrent et il sourit en observant le vieil homme qui sortait de la brèche dans les nuages de tribulation, enveloppé d'éclairs!
+« Un cultivateur Briseur du Nirvana arrive enfin... » Les yeux de Wang Lin s'illuminèrent et il sourit en observant le vieil homme qui sortait de la brèche dans les nuages de tribulation, enveloppé d'éclairs!
 
 Ce vieillard vêtait du noir et dégageait une majesté imposante. Dès son apparition, son expression changea lorsqu'il baissa les yeux. Il vit immédiatement Wang Lin et sentit l'odeur du sang qui imprégnait le monde!
 
@@ -102,15 +102,15 @@ L'expression du vieil homme devint grave et il révéla une intention meurtrièr
 
 À cet instant, son corps se divisa en deux. L'un chargea Wang Lin tandis que l'autre tentait une retraite effrénée. Utilisant la téléportation, il était sur le point de s'échapper!
 
-L'expression de Wang Lin resta calme. Ce cultivateur Briseur de Nirvana du Clan du Tonnerre Dispersé était un homme décidé. Il avait envisagé de sacrifier un avatar pour garantir sa fuite en si peu de temps!
+L'expression de Wang Lin resta calme. Ce cultivateur Briseur du Nirvana du Clan du Tonnerre Dispersé était un homme décidé. Il avait envisagé de sacrifier un avatar pour garantir sa fuite en si peu de temps!
 
-Wang Lin n'était, après tout, pas dans son corps originel. Sans son Royaume Ji, il aurait été difficile d'empêcher ce vieillard de s'enfuir avec une simple culture de Briseur de Nirvana. Ses yeux brillèrent d'un éclat rouge et son Royaume Ji s'élança. Il se mua en un éclair écarlate qui pénétra immédiatement l'avatar du vieil homme qui lui barrait la route.
+Wang Lin n'était, après tout, pas dans son corps originel. Sans son Royaume Ji, il aurait été difficile d'empêcher ce vieillard de s'enfuir avec une simple culture de Briseur du Nirvana. Ses yeux brillèrent d'un éclat rouge et son Royaume Ji s'élança. Il se mua en un éclair écarlate qui pénétra immédiatement l'avatar du vieil homme qui lui barrait la route.
 
 L'avatar trembla, ses yeux s'obscurcirent avant de s'effondrer. L'éclair rouge jaillit de l'avatar pour frapper le corps du vieillard juste avant qu'il ne puisse se téléporter!
 
 Le vieil homme cracha un flot de sang, les yeux écarquillés par une peur monstrueuse. Cependant, un instant plus tard, son âme originelle fut détruite et il rendit l'âme. Son corps tomba du ciel et sa marque fut capturée.
 
-« Combien de temps comptes-tu encore te cacher? » L'expression de Wang Lin était sereine. Après avoir tué le cultivateur Briseur de Nirvana, il scruta l'horizon. Le Royaume Ji, sous la forme d'un éclair rouge, pointait vers cette direction en crépitant, prêt à frapper à tout instant.
+« Combien de temps comptes-tu encore te cacher? » L'expression de Wang Lin était sereine. Après avoir tué le cultivateur Briseur du Nirvana, il scruta l'horizon. Le Royaume Ji, sous la forme d'un éclair rouge, pointait vers cette direction en crépitant, prêt à frapper à tout instant.
 
 Des ondulations apparurent dans le ciel. Le jeune homme chauve qui avait usurpé ce corps, connu sous le nom de « Maître du Tonnerre Dispersé » par les habitants des 7 Millions de Mondes, fit son apparition.
 

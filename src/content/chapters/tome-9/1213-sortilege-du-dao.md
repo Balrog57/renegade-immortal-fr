@@ -8,7 +8,7 @@ slug: sortilege-du-dao
 ---
 Le vieil homme aux cheveux blancs n'avait pas maîtrisé l'essence de l'Empreinte de l'Esprit Guerrier. Ayant caché son identité pour s'infiltrer dans la Secte Divine, il n'avait guère eu l'occasion de comprendre les sorts fondamentaux de ladite secte. Cependant, son talent était prodigieux; après avoir étudié le sortilège et l'avoir observé à plusieurs reprises, il parvint à en assimiler une partie.
 
-Bien qu'il ne pût être comparé à la véritable Empreinte de l'Esprit Guerrier, il en épousait la forme et en contenait 30 % de la puissance. De plus, il avait utilisé sa culture au stade avancé du Briseur de Nirvana pour forcer le déploiement de ce sort, le rendant presque impossible à distinguer de l'original!
+Bien qu'il ne pût être comparé à la véritable Empreinte de l'Esprit Guerrier, il en épousait la forme et en contenait 30 % de la puissance. De plus, il avait utilisé sa culture au stade avancé du Briseur du Nirvana pour forcer le déploiement de ce sort, le rendant presque impossible à distinguer de l'original!
 
 L'Empreinte de l'Esprit Guerrier de Wang Lin provenait du Royaume Céleste de la Pluie. Après l'avoir contemplée et comprise maintes fois, il avait enfin pu s'en servir. Lui aussi n'en avait appris que la surface, mais la puissance de l'être ayant laissé cette empreinte dans le Royaume Céleste de la Pluie était capable de faire trembler les cieux. Autrement, cette empreinte n'aurait pas dégagé une telle aura des millénaires plus tard, et n'aurait pas laissé de si fines fissures sur le sol.
 

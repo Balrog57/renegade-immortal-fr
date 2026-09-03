@@ -34,7 +34,7 @@ Le regard du vieil homme était empreint de bienveillance, mais aussi d'une prof
 
 Les trois autres semblaient encore plus accablés.
 
-« Hélas, je n'ai pas réussi à atteindre le stade du Briseur de Nirvana. Autrement, lors du voyage vers la Secte de l'Origine Spirituelle de rang 8, on ne m'aurait pas dépossédé de toute ma vitalité pour me laisser dans cet état... » Le vieil homme secoua la tête. Ses yeux brillaient d'une frustration mêlée d'un immense sentiment d'impuissance.
+« Hélas, je n'ai pas réussi à atteindre le stade du Briseur du Nirvana. Autrement, lors du voyage vers la Secte de l'Origine Spirituelle de rang 8, on ne m'aurait pas dépossédé de toute ma vitalité pour me laisser dans cet état... » Le vieil homme secoua la tête. Ses yeux brillaient d'une frustration mêlée d'un immense sentiment d'impuissance.
 
 L'homme d'âge mûr serra les poings et s'exclama: « Maître, cette Secte du Dao Pourpre a placé une formation sur notre continent de Mo Luo avant de se rendre secrètement vers le Système Stellaire de l'Alliance. Pourquoi la secte principale a-t-elle déchargé sa colère sur nous lorsqu'ils n'ont pu revenir? »
 

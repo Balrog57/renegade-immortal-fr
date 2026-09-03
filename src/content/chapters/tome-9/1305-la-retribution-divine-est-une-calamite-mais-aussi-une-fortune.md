@@ -78,7 +78,7 @@ Dès que les fils verts disparurent, les Huit Diagrammes qui étaient figés dan
 
 « La rétribution divine est une calamité mais aussi une fortune... La rétribution divine du Ciel... La Rétribution Ji... Le Royaume Ji!!! » Les yeux de Wang Lin s'illuminèrent alors qu'il fixait les Huit Diagrammes. Son regard devint encore plus intense! Il semblait avoir saisi quelque chose, sans toutefois en être certain.
 
-« Avec ton niveau de culture actuel, ne t'encombre pas de comprendre le Royaume Ji... Lorsque tu atteindras le stade du Briseur de Nirvana, peut-être... pourras-tu le comprendre à travers la rétribution divine... » Les paroles de Qing Shui résonnaient encore à ses oreilles.
+« Avec ton niveau de culture actuel, ne t'encombre pas de comprendre le Royaume Ji... Lorsque tu atteindras le stade du Briseur du Nirvana, peut-être... pourras-tu le comprendre à travers la rétribution divine... » Les paroles de Qing Shui résonnaient encore à ses oreilles.
 
 La roue des Huit Diagrammes se referma sur Wang Lin. L'expression de ce dernier changea radicalement et, au moment où la roue allait l'atteindre, une lueur de folie brilla dans ses yeux. Il prit une décision!
 

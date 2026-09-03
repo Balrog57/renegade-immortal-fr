@@ -94,7 +94,7 @@ Des grondements violents éclatèrent soudainement. Le dragon de tonnerre poussa
 
 Tout cela se produisit en un éclair. Une fois le dragon dissipé, le Maître Zhou Tian apparut, crachant du sang, le visage pâle, les yeux écarquillés par le choc et l'incrédulité. Son regard était empreint d'une panique infinie!
 
-« Briseur de Nirvana!! C'est un cultivateur Briseur de Nirvana!! Non, c'est bien plus qu'un Briseur de Nirvana, c'est... » Le cuir chevelu engourdi par la terreur, il fut terrifié jusqu'aux moelles et recula frénétiquement!
+« Briseur du Nirvana!! C'est un cultivateur Briseur du Nirvana!! Non, c'est bien plus qu'un Briseur du Nirvana, c'est... » Le cuir chevelu engourdi par la terreur, il fut terrifié jusqu'aux moelles et recula frénétiquement!
 
 À cet instant, une seule pensée l'habitait: fuir, fuir, fuir, fuir!
 

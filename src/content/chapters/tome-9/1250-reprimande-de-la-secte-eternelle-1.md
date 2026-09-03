@@ -22,7 +22,7 @@ Le Maître de la Secte Éternelle, cet homme d'âge moyen, paraissait serein, ma
 
 Wang Shanshan, faisant preuve de finesse, sourit pour détourner l'attention. « Maître de la Secte, j'ai entendu dire que Grande Sœur Li est également présente. Je me demande où elle se trouve. »
 
-Puis, Wang Shanshan expliqua à Mu Bingmei: « Grande Sœur Li est l'un des génies de notre Mer des Nuages. En seulement mille ans de culture, elle a déjà atteint le sommet du stade du Briseur de Nirvana. »
+Puis, Wang Shanshan expliqua à Mu Bingmei: « Grande Sœur Li est l'un des génies de notre Mer des Nuages. En seulement mille ans de culture, elle a déjà atteint le sommet du stade du Briseur du Nirvana. »
 
 Même l'expression de Mu Bingmei changea légèrement en entendant cela, et elle hocha la tête.
 

@@ -1,6 +1,6 @@
 ---
 n: 1172
-title: Le Cercle du Briseur de Nirvana
+title: Le Cercle du Briseur du Nirvana
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1172 - The Circle of Nirvana Shatterer
@@ -22,13 +22,13 @@ Quelques sièges étaient dispersés dans la salle, dont un placé au centre. Se
 
 Les regards de ces personnes étaient tranchants comme des épées. Ils semblaient presque solides et pouvaient faire frissonner n'importe qui. L'un d'eux fut surpris un instant en voyant Wang Lin, mais il retrouva rapidement son calme et sourit.
 
-La personne assise au premier siège était un vieil homme aux cheveux argentés vêtu d'une robe grise. Ses yeux étaient mi-clos, mais une lueur cachée y brilla lorsqu'il posa les yeux sur Wang Lin. Ce cultivateur se trouvait au stade moyen du Briseur de Nirvana. Derrière lui, Ouyang Long se pencha pour lui murmurer quelques mots à l'oreille.
+La personne assise au premier siège était un vieil homme aux cheveux argentés vêtu d'une robe grise. Ses yeux étaient mi-clos, mais une lueur cachée y brilla lorsqu'il posa les yeux sur Wang Lin. Ce cultivateur se trouvait au stade moyen du Briseur du Nirvana. Derrière lui, Ouyang Long se pencha pour lui murmurer quelques mots à l'oreille.
 
 L'expression de Wang Lin resta neutre alors qu'il avançait sous le regard de l'assemblée. Il atteignit un siège et s'y assit calmement. Ses yeux demeurèrent sereins tandis qu'il observait la foule, avant de joindre les mains en signe de respect envers celui qui lui avait souri.
 
 Wu Qing ne s'attendait pas à voir Wang Lin ici et fut surpris. Cependant, le fait que Wang Lin puisse accéder à une vente aux enchères privée de ce rang augmenta encore l'estime que Wu Qing lui portait.
 
-Alors que Wang Lin passait son regard sur l'assemblée, il nota que tous les présents, à l'exception du vieil homme — qui était manifestement l'oncle-maître d'Ouyang Long — et de Wu Qing, étaient au stade initial du Briseur de Nirvana!
+Alors que Wang Lin passait son regard sur l'assemblée, il nota que tous les présents, à l'exception du vieil homme — qui était manifestement l'oncle-maître d'Ouyang Long — et de Wu Qing, étaient au stade initial du Briseur du Nirvana!
 
 La personne assise face à Wang Lin était un jeune érudit au teint clair. Il agitait doucement son éventail de plumes, impassible. Lorsque Wang Lin le regarda, l'homme lui rendit son regard avec une pointe d'intérêt dans les yeux.
 
@@ -42,7 +42,7 @@ Un peu plus à gauche siégeait un vieil homme vêtu de noir. C'était un homme 
 
 La dernière personne était une vieille femme aux cheveux blancs comme la neige et à la peau ridée, vêtue d'une robe verte. Elle restait parfaitement immobile. Lorsque le regard de Wang Lin passa sur elle, ses yeux brillèrent comme des éclairs et elle lui lança un regard glacial.
 
-Il s'agissait manifestement d'une vente aux enchères restreinte, réservée aux cultivateurs du stade Briseur de Nirvana. Pour y accéder, il fallait posséder l'identité et la force requises. Si Wang Lin n'avait pas facilement blessé les trois membres de la Secte de la Collection Démoniaque et si sa transaction n'avait pas été d'une ampleur considérable, il lui aurait été difficile d'entrer.
+Il s'agissait manifestement d'une vente aux enchères restreinte, réservée aux cultivateurs du stade Briseur du Nirvana. Pour y accéder, il fallait posséder l'identité et la force requises. Si Wang Lin n'avait pas facilement blessé les trois membres de la Secte de la Collection Démoniaque et si sa transaction n'avait pas été d'une ampleur considérable, il lui aurait été difficile d'entrer.
 
 Bien qu'il fût présent, il demeurait le plus faible aux yeux des autres.
 
@@ -86,7 +86,7 @@ L'érudit d'âge moyen saisit la pilule noire et la renifla. Un air d'hésitatio
 
 Maître Pin Cendré secoua la tête et répondit lentement: « Cent fois ce prix! »
 
-À ces mots, les yeux de tous les cultivateurs alentour se rétrécirent sur la pilule. Tous étaient au stade Briseur de Nirvana et ne laissaient donc transparaître aucune émotion. Bien qu'ils fixassent l'objet, il était difficile pour un étranger de deviner leurs pensées.
+À ces mots, les yeux de tous les cultivateurs alentour se rétrécirent sur la pilule. Tous étaient au stade Briseur du Nirvana et ne laissaient donc transparaître aucune émotion. Bien qu'ils fixassent l'objet, il était difficile pour un étranger de deviner leurs pensées.
 
 L'homme d'âge moyen resta silencieux un instant avant de sourire. Après avoir entendu le prix, il fut conforté dans sa propre spéculation. Il rangea la pilule et hocha la tête au Maître Pin Cendré.
 

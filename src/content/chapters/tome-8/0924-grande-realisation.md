@@ -10,9 +10,9 @@ D'un simple mot — « Arrête! » — l'énergie originelle à l'intérieur du 
 
 C'était comme si d'innombrables fils s'étaient propagés à travers l'espace pour s'enrouler instantanément autour de Ji Xiantian. C'était le moment où Ji Xiantian était le plus vulnérable de toute son existence. Les treize couches de lumière bleue s'étaient effondrées; il devait donc quitter les lieux au plus vite pour trouver un endroit où se rétablir, sans quoi il mourrait sans aucun doute!
 
-Il avait fait preuve d'une grande détermination. Il avait fait exploser quatre couches de lumière bleue rien que pour créer une ouverture et s'échapper. Il devait impérativement rapporter à Zhong Xuanzi que la culture de Maître Flamespark avait franchi le stade avancé du Briseur de Nirvana!
+Il avait fait preuve d'une grande détermination. Il avait fait exploser quatre couches de lumière bleue rien que pour créer une ouverture et s'échapper. Il devait impérativement rapporter à Zhong Xuanzi que la culture de Maître Flamespark avait franchi le stade avancé du Briseur du Nirvana!
 
-« La culture de Maître Flamespark n'a pas encore atteint la troisième étape, mais il est bien plus puissant que les cultivateurs au stade avancé du Briseur de Nirvana! Il a dû atteindre le sommet de la deuxième étape! »
+« La culture de Maître Flamespark n'a pas encore atteint la troisième étape, mais il est bien plus puissant que les cultivateurs au stade avancé du Briseur du Nirvana! Il a dû atteindre le sommet de la deuxième étape! »
 
 Juste au moment où il s'apprêtait à franchir la fissure, Ji Xiantian sentit d'innombrables fils invisibles l'envelopper. Son pied droit, qui s'engageait dans la brèche, ne put s'empêcher de ralentir un instant!
 
@@ -48,7 +48,7 @@ Une impulsion d'énergie originelle d'une puissance inimaginable jaillit du corp
 
 De plus, Maître Flamespark bloqua la puissance de cette énergie afin qu'elle reste entièrement confinée dans le corps de Wang Lin.
 
-À cet instant, Wang Lin sentit l'énergie originelle exploser en lui. Son âme originelle s'éveilla et absorba cette force avec une avidité dévorante. Il sentit sa propre puissance croître de façon vertigineuse. Finalement, sa culture atteignit le sommet du stade initial du Briseur de Nirvana. Il ne lui manquait plus qu'une compréhension profonde de son domaine pour devenir un cultivateur au stade intermédiaire du Briseur de Nirvana!
+À cet instant, Wang Lin sentit l'énergie originelle exploser en lui. Son âme originelle s'éveilla et absorba cette force avec une avidité dévorante. Il sentit sa propre puissance croître de façon vertigineuse. Finalement, sa culture atteignit le sommet du stade initial du Briseur du Nirvana. Il ne lui manquait plus qu'une compréhension profonde de son domaine pour devenir un cultivateur au stade intermédiaire du Briseur du Nirvana!
 
 Cette fois, Maître Flamespark n'avait pas retenu ses coups et avait offert à Wang Lin une fortune inestimable!
 

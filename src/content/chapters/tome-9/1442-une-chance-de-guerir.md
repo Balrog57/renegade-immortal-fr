@@ -11,7 +11,7 @@ Chapitre 1442 - Une chance de guérir!
 
 Des milliers de bêtes humanoïdes ne semblaient pas si impressionnantes en apparence, mais si vous les aviez vues de vos propres yeux, surgissant du brouillard en poussant des hurlements stridents, le spectacle aurait été terrifiant. Leurs expressions féroces, leur vitesse fulgurante et leur apparence monstrueuse leur conféraient un élan redoutable.
 
-Comparé à ces milliers de bêtes, le groupe de vingt-cinq cultivateurs mené par Wang Lin ressemblait à un minuscule esquif en plein océan, susceptible d'être englouti à tout instant. Ces créatures humanoïdes possédaient des niveaux de culture variés: les plus puissantes atteignaient le troisième niveau du Fléau Céleste, tandis que les plus faibles culminaient au sommet du Briseur de Nirvana.
+Comparé à ces milliers de bêtes, le groupe de vingt-cinq cultivateurs mené par Wang Lin ressemblait à un minuscule esquif en plein océan, susceptible d'être englouti à tout instant. Ces créatures humanoïdes possédaient des niveaux de culture variés: les plus puissantes atteignaient le troisième niveau du Fléau Céleste, tandis que les plus faibles culminaient au sommet du Briseur du Nirvana.
 
 Individuellement, elles n'étaient pas si redoutables, mais leur nombre et leur vitesse étrange les rendaient difficiles à affronter. Bien que la tâche fût périlleuse, les cultivateurs présents n'étaient pas de faibles esprits. À cet instant, tous commencèrent à lancer des sorts et à déployer leurs trésors. La bataille était engagée.
 

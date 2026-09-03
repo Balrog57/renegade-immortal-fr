@@ -34,7 +34,7 @@ Les neuf anciens de la Secte Divin de l'Azure Dragon se regardèrent sans longte
 
 Quant à ce qui se tramait dans la Terre des Esprits Démoniaques, grâce à l'autodestruction de l'un des six anciens de la Secte Divin de l'Oiseau Vermillon, Wang Lin avait pu échapper à l'Omniscient. Ses yeux étaient injectés de sang et une douleur fulgurante lui transperçait le cœur en raison de ses blessures.
 
-Au loin, les cinq autres anciens de la Secte Divin de l'Oiseau Vermillon arrivèrent trop tard pour porter secours. Ils n'étaient pas tous des cultivateurs au sommet du stade de Briseur de Nirvana; la plupart se situaient aux premiers ou milieux stades, et ils peinaient déjà à affronter le Démon Ancien Ta Jia. Le moindre instant d'inattention les exposait à de graves blessures.
+Au loin, les cinq autres anciens de la Secte Divin de l'Oiseau Vermillon arrivèrent trop tard pour porter secours. Ils n'étaient pas tous des cultivateurs au sommet du stade de Briseur du Nirvana; la plupart se situaient aux premiers ou milieux stades, et ils peinaient déjà à affronter le Démon Ancien Ta Jia. Le moindre instant d'inattention les exposait à de graves blessures.
 
 Ces cinq anciens étaient entourés de flammes et de trésors magiques. Il ne s'agissait pas là d'objets ordinaires, mais de trésors du Vide accumulés par la Secte Divin de l'Oiseau Vermillon durant d'innombrables années. Bien qu'ils fussent inférieurs aux trésors du Pseudo-Vide du Nirvana, la manière dont les cinq les utilisaient avec le géant de flammes, aidés par la Concubine Impériale Fleur qui avait subjugué la créature humanoïde, leur permettait de tenir tête au démon ancien. Cependant, dès que ce dernier utilisait ses sorts, il était évident qu'ils étaient désavantagés.
 

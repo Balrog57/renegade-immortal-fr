@@ -80,7 +80,7 @@ Il ne manquait qu'une seule ombre pour atteindre les dix millions.
 
 Dès que cette complétude fut atteinte, les ombres de deux cerfs apparurent et encerclèrent l'index de Wang Lin lors de la collision avec la main!
 
-C'était le choc entre une paume et un doigt. Dix millions d'ombres d'épées condensées en un seul point. Cela possédait le pouvoir de tuer n'importe quel cultivateur Briseur de Nirvana, et même les cultivateurs de la Faille Céleste en seraient choqués!
+C'était le choc entre une paume et un doigt. Dix millions d'ombres d'épées condensées en un seul point. Cela possédait le pouvoir de tuer n'importe quel cultivateur Briseur du Nirvana, et même les cultivateurs de la Faille Céleste en seraient choqués!
 
 C'était la première attaque de Wang Lin contre celui qui voulait sa mort!
 
@@ -102,7 +102,7 @@ La main se redressa après cette pause, et une exclamation étouffée parvint du
 
 Une voix ancienne émergea de la brume alors qu'une pression colossale descendait soudainement du ciel: « Tu as du talent! Cependant, comment une luciole peut-elle se comparer à la lune? Comment oses-tu t'élever devant moi? Redescends! »
 
-Cette pression était d'une puissance extrême. Si un cultivateur Briseur de Nirvana l'avait touchée, il serait mort instantanément. Lorsqu'elle s'abattit sur Wang Lin, il cracha du sang. C'était comme si une calèche pesant dix millions de tonnes ou d'innombrables planètes de culture s'écrasaient sur lui. Ses os craquèrent sous la pression qui l'écrasait brutalement contre le sol.
+Cette pression était d'une puissance extrême. Si un cultivateur Briseur du Nirvana l'avait touchée, il serait mort instantanément. Lorsqu'elle s'abattit sur Wang Lin, il cracha du sang. C'était comme si une calèche pesant dix millions de tonnes ou d'innombrables planètes de culture s'écrasaient sur lui. Ses os craquèrent sous la pression qui l'écrasait brutalement contre le sol.
 
 Il n'avait absolument aucun moyen de résister!
 
@@ -114,7 +114,7 @@ Dès que sa voix résonna, les dix millions d'ombres qui avaient pénétré la m
 
 C'était comme si dix millions de cultivateurs s'étaient transformés en épées volantes pour pénétrer dans la main et lancer une attaque autodestructrice et frénétique. Le rugissement semblait issu d'une époque antique, ébranlant le monde!
 
-Ce sort était suffisant pour tuer n'importe quel Briseur de Nirvana, et même les cultivateurs de la Faille Céleste en seraient sortis dans un état lamentable. Pourtant, à cet instant, la main géante trembla soudainement et une force étrange apparut. L'effondrement des dix millions d'ombres se dissipa brusquement. La main resta indemne!
+Ce sort était suffisant pour tuer n'importe quel Briseur du Nirvana, et même les cultivateurs de la Faille Céleste en seraient sortis dans un état lamentable. Pourtant, à cet instant, la main géante trembla soudainement et une force étrange apparut. L'effondrement des dix millions d'ombres se dissipa brusquement. La main resta indemne!
 
 Il ne restait qu'un point rouge au centre de la paume, et une goutte de sang tomba.
 

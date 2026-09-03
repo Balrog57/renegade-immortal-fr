@@ -62,7 +62,7 @@ L'expression de Wang Lin resta neutre tandis que sa main droite traçait un scea
 
 Cette aura antique portait les traces du temps. Cela poussa immédiatement les cultivateurs environnants à devenir sérieux.
 
-Les cultivateurs au stade de la Briseuse de Nirvana ne furent pas déstabilisés. En revanche, les cultivateurs au stade du Voyant et du Purificateur de Nirvana fixèrent intensément la pierre et commencèrent à réfléchir.
+Les cultivateurs au stade de la Briseuse de Nirvana ne furent pas déstabilisés. En revanche, les cultivateurs au stade du Voyant et du Purificateur du Nirvana fixèrent intensément la pierre et commencèrent à réfléchir.
 
 « Une âme de montagne! » La belle femme qui connaissait Wang Lin fut surprise. Elle observa attentivement la pierre avant de secouer la tête: « Hélas, elle est brisée. »
 

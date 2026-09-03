@@ -28,7 +28,7 @@ Tout le monde pouvait le voir: ce doigt géant appartenait au véritable souvera
 
 La lumière aux sept couleurs couvrait le ciel. Même à distance, elle était parfaitement visible. Après tout, ce doigt était d'une démesure absolue!
 
-Maître Yi Chen ne s'élançait pas pour secourir Wang Lin, mais pour être témoin de l'affrontement entre un cultivateur du Briseur de Nirvana et un cultivateur du Purificateur de Nirvana. S'il laissait passer cela par timidité, il le regretterait toute sa vie!
+Maître Yi Chen ne s'élançait pas pour secourir Wang Lin, mais pour être témoin de l'affrontement entre un cultivateur du Briseur du Nirvana et un cultivateur du Purificateur du Nirvana. S'il laissait passer cela par timidité, il le regretterait toute sa vie!
 
 Un autre homme partageait cette même pensée: un jeune homme vêtu de noir. Bien que son apparence fût juvénile, il dégageait une aura antique alors qu'il chargeait en avant.
 

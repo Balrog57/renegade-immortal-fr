@@ -6,13 +6,13 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1274 - Expression Changed
 slug: changement-dexpression
 ---
-Un cultivateur du troisième niveau qui cherchait à tuer un simple cultivateur Briseur de Nirvana avait lui-même subi une légère blessure infligée par ce dernier. Wang Lin savait que si la nouvelle s'ébruitait, elle suffirait à stupéfier le Domaine Scellé et le Domaine Extérieur!
+Un cultivateur du troisième niveau qui cherchait à tuer un simple cultivateur Briseur du Nirvana avait lui-même subi une légère blessure infligée par ce dernier. Wang Lin savait que si la nouvelle s'ébruitait, elle suffirait à stupéfier le Domaine Scellé et le Domaine Extérieur!
 
 Le troisième niveau était un stade de culture légendaire. Dans le Domaine Scellé, les cultivateurs du troisième niveau étaient d'une rareté extrême. Même dans le Domaine Extérieur, ils étaient exceptionnels. Un cultivateur du troisième niveau pouvait balayer le monde et oserait même défier le Ciel lui-même!
 
 Ils étaient comme des empereurs parmi les cultivateurs. Tous les autres n'étaient que des fourmis face à eux, prêtes à être anéanties d'un simple geste!
 
-Un cultivateur Briseur de Nirvana pouvait être un enseignant au sein d'une secte, et un cultivateur du Fléau Céleste pouvait être un Grand Ancien, mais devant un cultivateur du troisième niveau, ils n'étaient que des insectes que l'on pouvait écraser à sa guise!
+Un cultivateur Briseur du Nirvana pouvait être un enseignant au sein d'une secte, et un cultivateur du Fléau Céleste pouvait être un Grand Ancien, mais devant un cultivateur du troisième niveau, ils n'étaient que des insectes que l'on pouvait écraser à sa guise!
 
 C'était cela la force, la cruelle vérité du monde de la culture. La loi de la jungle!
 

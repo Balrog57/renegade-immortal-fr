@@ -30,7 +30,7 @@ Forcer quelqu'un de son rang et de sa culture à tenir un tel discours était l'
 
 L'homme en noir aux côtés du Maître du Vide s'avança et s'assit, montrant clairement qu'il ne participerait pas au conflit. Seule la belle femme resta debout près du Maître du Vide, le visage blême.
 
-Le regard froid de Wang Wei se détourna du Maître du Vide. Bien que tuer cet homme ne soit pas difficile, cela s'avérerait problématique car il était encore un cultivateur du Briseur de Nirvana. Malgré ses blessures graves, en tant que frère cadet du Maître Zhong Xuan, il possédait sans doute encore des sorts et des trésors. Pour l'instant, sauver son maître était la priorité de Wang Wei; il n'était pas nécessaire de précipiter sa vengeance pour Wang Lin.
+Le regard froid de Wang Wei se détourna du Maître du Vide. Bien que tuer cet homme ne soit pas difficile, cela s'avérerait problématique car il était encore un cultivateur du Briseur du Nirvana. Malgré ses blessures graves, en tant que frère cadet du Maître Zhong Xuan, il possédait sans doute encore des sorts et des trésors. Pour l'instant, sauver son maître était la priorité de Wang Wei; il n'était pas nécessaire de précipiter sa vengeance pour Wang Lin.
 
 Voyant que l'affaire allait se résoudre calmement, le Maître du Vide sentit son cœur s'apaiser. Pourtant, à cet instant précis, Wang Lin se leva. Les pupilles du Maître du Vide se rétractèrent brusquement alors qu'il fixait le jeune homme.
 

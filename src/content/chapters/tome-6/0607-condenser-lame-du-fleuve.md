@@ -10,7 +10,7 @@ Le vieil homme en armure noire fronça les sourcils et ses yeux s'illuminèrent.
 
 Ses yeux brillaient intensément alors qu'il fixait cette énergie d'épée et il prit une profonde inspiration.
 
-« Il y a quelque chose de mystérieux dans ce fleuve formé par son Dao. Cependant, il vient tout juste de se former, il manque donc de puissance. Mais cette énergie d'épée... cette énergie d'épée est forte... très forte! La personne qui a créé cette énergie d'épée doit être un expert incomparable. Je crains que le niveau de culture de cette personne n'ait déjà atteint le stade du Briseur de Nirvana! »
+« Il y a quelque chose de mystérieux dans ce fleuve formé par son Dao. Cependant, il vient tout juste de se former, il manque donc de puissance. Mais cette énergie d'épée... cette énergie d'épée est forte... très forte! La personne qui a créé cette énergie d'épée doit être un expert incomparable. Je crains que le niveau de culture de cette personne n'ait déjà atteint le stade du Briseur du Nirvana! »
 
 Wang Lin avait déployé ses deux atouts les plus puissants. Son objectif n'était pas de combattre, mais de terrasser l'ennemi par la surprise!
 

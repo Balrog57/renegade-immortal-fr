@@ -1,6 +1,6 @@
 ---
 n: 1257
-title: Réprimande au Secte Everlasting (8)
+title: Réprimande à la Secte Éternelle (8)
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1257 - Rebuking the Everlasting Sect (8)
@@ -36,7 +36,7 @@ Ces sorts ne s'apprenaient pas, ils se comprenaient par la seule grâce de la fo
 
 Le silence perdura après le départ de Du Lin et Yin Yue, comme si personne n'osait rompre cette éternité de mutisme.
 
-Les anciens de la Secte Everlasting regardaient tous Wang Lin avec respect. Ils ne parvenaient pas à percer les mystères de sa culture ou de ses sorts. Qu'il s'agisse du Doigt du Destin Céleste, du feu céleste ou du plus saisissant des sorts, l'extraction de l'âme planétaire, tout était stupéfiant. Les anciens ne pouvaient qu'être saisis d'admiration devant lui.
+Les anciens de la Secte Éternelle regardaient tous Wang Lin avec respect. Ils ne parvenaient pas à percer les mystères de sa culture ou de ses sorts. Qu'il s'agisse du Doigt du Destin Céleste, du feu céleste ou du plus saisissant des sorts, l'extraction de l'âme planétaire, tout était stupéfiant. Les anciens ne pouvaient qu'être saisis d'admiration devant lui.
 
 Ils ignoraient de quels sorts Wang Lin disposait, mais ils pressentaient que ce qu'il venait de montrer n'était pas sa limite. Trop de secrets et de surprises fracassantes sommeillaient encore en lui.
 
@@ -52,13 +52,13 @@ Un silence absolu engendre souvent une pression invisible. À cet instant, la so
 
 Personne n'osait s'avancer; tous fixaient la plateforme et l'homme sous la pluie qui semblait incarner les cieux eux-mêmes. À cet instant, l'apparence et la prestance de Wang Lin furent gravées profondément dans leurs esprits. C'était une vision qu'ils ne pourraient jamais oublier.
 
-Dans ce silence, les yeux du Maître de la Secte Everlasting s'illuminèrent alors qu'il fixait Wang Lin et déclara lentement: « Le Compagnon Cultivateur Lu a blessé les trois disciples qui devaient participer à la compétition entre les sectes de rang 8. Vous devrez fournir une explication à ce vieil homme! »
+Dans ce silence, les yeux du Maître de la Secte Éternelle s'illuminèrent alors qu'il fixait Wang Lin et déclara lentement: « Le Compagnon Cultivateur Lu a blessé les trois disciples qui devaient participer à la compétition entre les sectes de rang 8. Vous devrez fournir une explication à ce vieil homme! »
 
 Son regard sembla se transformer en deux rayons d'énergie tranchante, tels des sabres, projetés vers Wang Lin. Son regard semblait intimider le tonnerre au point que celui-ci n'osait plus approcher la plateforme, et même la pluie parut suspendre sa chute dans les airs.
 
 C'était comme si le monde s'était arrêté de tourner!
 
-Tout cela était dû au regard du vieil homme! Un simple regard capable de produire un tel effet bouleversant. Ce n'était pas l'œuvre d'un cultivateur du niveau Briseur de Nirvana; seul quelqu'un ayant traversé le Fléau Céleste pouvait en être capable!
+Tout cela était dû au regard du vieil homme! Un simple regard capable de produire un tel effet bouleversant. Ce n'était pas l'œuvre d'un cultivateur du niveau Briseur du Nirvana; seul quelqu'un ayant traversé le Fléau Céleste pouvait en être capable!
 
 Wang Lin ressentit une sensation fulgurante. Il était verrouillé par ce regard et avait l'impression que tout dans l'univers appartenait à l'autre. Ce regard était comme l'avènement de la puissance divine.
 
@@ -72,9 +72,9 @@ Les cultivateurs aux alentours de la plateforme furent frappés par un vent hurl
 
 Le regard de Li Qianmei se glaça et une intention meurtrière jaillit de son corps. Elle s'apprêtait à s'élancer dans cette pression pour secourir Wang Lin. Cependant, à l'instant où son aura apparut, le vieil homme leva la main et fit un geste de balayage. Une pression écrasante repoussa l'intention meurtrière et la comprima à peine à sept pouces de son corps!
 
-Les yeux de Mu Bingmei devinrent froids et l'énergie originelle en elle s'agita, révélant sa culture de Briseur de Nirvana. Ses mains formèrent un sceau et elle s'apprêtait à attaquer, mais elle sentit immédiatement une force irrésistible la subjuguer, rendant toute utilisation de sa culture impossible.
+Les yeux de Mu Bingmei devinrent froids et l'énergie originelle en elle s'agita, révélant sa culture de Briseur du Nirvana. Ses mains formèrent un sceau et elle s'apprêtait à attaquer, mais elle sentit immédiatement une force irrésistible la subjuguer, rendant toute utilisation de sa culture impossible.
 
-La puissance du Maître de la Secte Everlasting était désormais révélée au monde. Être capable de diriger un secte de rang 8 signifiait que sa culture dépassait l'entendement!
+La puissance du Maître de la Secte Éternelle était désormais révélée au monde. Être capable de diriger un secte de rang 8 signifiait que sa culture dépassait l'entendement!
 
 Le visage de Mu Bingmei pâlit. Elle percevait l'intention meurtrière tapie dans la pression du Maître de la Secte. Bien qu'il s'agisse probablement d'un simulacre, cette inquiétude troublait son esprit. N'ayant pas le temps de réfléchir, elle forma un sceau étrange, un sort transmis par des générations de Saintesses du Vide Brillant.
 
@@ -102,6 +102,6 @@ Un grondement de tonnerre retentit tandis qu'un rayon de lumière surgissait de 
 
 « Osez-vous utiliser l'un de mes sorts? »
 
-« Grand Ancien! » Tous les membres de la Secte Everlasting se levèrent et joignirent les mains, leurs visages empreints d'un immense respect.
+« Grand Ancien! » Tous les membres de la Secte Éternelle se levèrent et joignirent les mains, leurs visages empreints d'un immense respect.
 
 Wang Lin leva la tête. La lumière dorée émanant de son corps était comme un soleil s'élevant de l'océan; elle était éblouissante. Alors qu'il contemplait la lumière qui approchait, ses propres yeux devinrent d'or.

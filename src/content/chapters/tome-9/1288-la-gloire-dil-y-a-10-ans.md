@@ -46,7 +46,7 @@ L'expression de Wang Lin était extrêmement sombre alors qu'il s'engouffrait da
 
 Il utilisa presque toute sa vitesse, se déplaçant comme un éclair à travers la région de rang 6. Il ne fallut pas longtemps pour que la Secte de la Musique Céleste apparaisse devant lui!
 
-La Secte de la Musique Céleste était une secte de rang 6 s'étendant sur trois continents, dotée d'une formation de protection puissante. Pour des gens ordinaires, elle serait difficile à briser. Même un cultivateur du niveau Briseur de Nirvana aurait du mal à l'ouvrir en peu de temps et devrait y consacrer un certain délai.
+La Secte de la Musique Céleste était une secte de rang 6 s'étendant sur trois continents, dotée d'une formation de protection puissante. Pour des gens ordinaires, elle serait difficile à briser. Même un cultivateur du niveau Briseur du Nirvana aurait du mal à l'ouvrir en peu de temps et devrait y consacrer un certain délai.
 
 De plus, si les cultivateurs Briseurs de Nirvana de la Secte de la Musique Céleste sortaient pour la renforcer, la formation deviendrait encore plus imprenable!
 
@@ -76,7 +76,7 @@ Des grondements assourdissants résonnèrent à travers le monde, faisant trembl
 
 Ces cinq fissures étaient comme cinq dragons maléfiques qui se propagèrent rapidement pour, en un clin d'œil, recouvrir l'intégralité de la formation!
 
-La protection que même un Briseur de Nirvana aurait mis du temps à briser s'effondra et se désintégra soudainement sous les yeux des cultivateurs de la Secte de la Musique Céleste!
+La protection que même un Briseur du Nirvana aurait mis du temps à briser s'effondra et se désintégra soudainement sous les yeux des cultivateurs de la Secte de la Musique Céleste!
 
 Un impact inimaginable se propagea lors de l'éclatement! La formation se brisa comme un miroir, projetant d'innombrables fragments. Ces débris étaient chargés d'une force puissante en se dispersant. Cette scène terrifia tous les membres de la secte, qui reculèrent précipitamment de peur d'être blessés par ces éclats!
 

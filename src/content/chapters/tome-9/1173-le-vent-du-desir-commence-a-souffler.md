@@ -60,15 +60,15 @@ Ce dernier regarda la jeune femme et dit: « Nous sommes dans une vente aux ench
 
 Wang Lin demeurait calme. Il réfléchit un instant, puis déclara: « Trente mille. »
 
-À sa parole, un silence immédiat s'abattit sur l'assemblée. La belle femme reporta son attention sur Wang Lin, le regard devenu sérieux. Un homme capable de débourser trente mille jades célestes devait sans doute bénéficier du soutien d'une puissance considérable, même s'il n'avait pas atteint le stade du Briseur de Nirvana. De plus, sa présence à l'enchère privée de Maître Pin Cendré prouvait qu'il ne pouvait être un simple roturier. On ne saurait se fier uniquement au niveau de culture d'un individu.
+À sa parole, un silence immédiat s'abattit sur l'assemblée. La belle femme reporta son attention sur Wang Lin, le regard devenu sérieux. Un homme capable de débourser trente mille jades célestes devait sans doute bénéficier du soutien d'une puissance considérable, même s'il n'avait pas atteint le stade du Briseur du Nirvana. De plus, sa présence à l'enchère privée de Maître Pin Cendré prouvait qu'il ne pouvait être un simple roturier. On ne saurait se fier uniquement au niveau de culture d'un individu.
 
 Après une courte réflexion, la belle femme secoua la tête et cessa toute enchère.
 
 Elle n'était pas la seule; même l'homme balafré observa Wang Lin avant de secouer la tête. Il ne poursuivit pas ses offres. Ces gens étaient venus pour commercer et, naturellement, ils n'avaient aucune intention d'entraver délibérément leurs pairs.
 
-Le jeune érudit observait Wang Lin avec un intérêt croissant. Il avait remarqué que, dès son entrée, celui-ci était resté d'un calme olympien face à tous ces cultivateurs au stade du Briseur de Nirvana, sans l'ombre d'un malaise.
+Le jeune érudit observait Wang Lin avec un intérêt croissant. Il avait remarqué que, dès son entrée, celui-ci était resté d'un calme olympien face à tous ces cultivateurs au stade du Briseur du Nirvana, sans l'ombre d'un malaise.
 
-Si un autre cultivateur au stade du Nettoyeur de Nirvana s'était trouvé là, il aurait été pétrifié de peur et n'aurait jamais osé rivaliser avec un Briseur de Nirvana pour des trésors.
+Si un autre cultivateur au stade du Purificateur du Nirvana s'était trouvé là, il aurait été pétrifié de peur et n'aurait jamais osé rivaliser avec un Briseur du Nirvana pour des trésors.
 
 Ce détail suffisait à lever le voile: cet homme devait posséder quelque chose qui lui permettait de maintenir une telle sérénité.
 

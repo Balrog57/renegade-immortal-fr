@@ -90,7 +90,7 @@ Après un long moment, Wang Lin ouvrit les yeux et des craquements résonnèrent
 
 Après avoir dormi pendant cent ans, il se redressa à nouveau! Dès qu'il se leva, l'aura d'un cultivateur du stade avancé de la Purification du Nirvana se propagea de son corps. Cette aura continua de croître jusqu'à atteindre le sommet du stade de la Purification du Nirvana!
 
-Cependant, elle ne s'arrêta pas là. Elle augmenta encore de façon effrénée, tentant d'atteindre le stade du Briseur de Nirvana!
+Cependant, elle ne s'arrêta pas là. Elle augmenta encore de façon effrénée, tentant d'atteindre le stade du Briseur du Nirvana!
 
 La quantité d'intention Dao et d'énergie originelle qu'il avait absorbée de l'une des fleurs était immense. Bien que la Perle Défiant le Ciel en ait absorbé la majeure partie, comme Wang Lin avait pris l'initiative de puiser dedans pour la première fois, il en avait tout de même reçu une quantité considérable.
 
@@ -102,17 +102,17 @@ Alors que la marque scintillait, elle se posa entre les sourcils de Wang Lin et 
 
 Quelle que soit l'apparence de cette étoile, elle ressemblait énormément à celle d'un Dieu Ancien! Si un Dieu Ancien à 9 étoiles avait formé cette étoile de loi, beaucoup auraient pris ce Dieu Ancien pour... un Dieu Ancien à 10 étoiles!
 
-Dès l'apparition de cette étoile de loi, le corps de Wang Lin dégagea l'aura d'un cultivateur Briseur de Nirvana. Cette aura était d'une puissance capable de fendre la terre!
+Dès l'apparition de cette étoile de loi, le corps de Wang Lin dégagea l'aura d'un cultivateur Briseur du Nirvana. Cette aura était d'une puissance capable de fendre la terre!
 
 Wang Lin prit une profonde inspiration, les yeux brillants. Il leva sa main droite, forma rapidement des sceaux et pointa son propre corps. Son visage devint légèrement rouge, mais il ne s'arrêta pas et continua de tracer des sceaux. Après avoir posé d'innombrables restrictions, il s'arrêta enfin.
 
-L'aura de Briseur de Nirvana émanant de son corps se dissipa progressivement jusqu'à être dissimulée sous les multiples sceaux.
+L'aura de Briseur du Nirvana émanant de son corps se dissipa progressivement jusqu'à être dissimulée sous les multiples sceaux.
 
-« Cette aura est suffisante pour porter ma culture au sommet du stade précoce de Briseur de Nirvana, mais elle provient d'une compréhension que je ne maîtrise pas encore totalement. Si je ne comprends pas pleinement tous les Dao que j'ai absorbés, utiliser cette puissance rendra ma progression presque impossible. Cela aurait un impact trop lourd sur ma culture future! »
+« Cette aura est suffisante pour porter ma culture au sommet du stade précoce de Briseur du Nirvana, mais elle provient d'une compréhension que je ne maîtrise pas encore totalement. Si je ne comprends pas pleinement tous les Dao que j'ai absorbés, utiliser cette puissance rendra ma progression presque impossible. Cela aurait un impact trop lourd sur ma culture future! »
 
 « Cependant, la gaspiller maintenant serait regrettable. Je vais d'abord la sceller; une fois que j'aurai parfaitement assimilé toute l'intention Dao absorbée, je pourrai lever les sceaux un par un. À ce moment-là, il n'y aura aucun danger! Cela rendra même ma culture encore plus puissante! » Wang Lin prit une inspiration profonde, une lueur de froideur dans le regard.
 
-« Avec ma culture au sommet de la Purification du Nirvana, à mi-chemin du stade de Briseur de Nirvana, combinée à mon corps de Dieu Ancien, mes sorts et mes trésors magiques, je me demande quelle est ma véritable force... Puis-je vaincre des cultivateurs de stade avancé ou même de stade culminant du Briseur de Nirvana? Je devrais pouvoir vaincre ceux au stade avancé, mais quant à ceux au sommet, n'ayant jamais combattu un tel adversaire, j'ignore... Si l'occasion se présente, je devrais en affronter un! » La marque cachée entre les sourcils de Wang Lin scintilla de manière incontrôlable et une puissante intention de combat l'enveloppa.
+« Avec ma culture au sommet de la Purification du Nirvana, à mi-chemin du stade de Briseur du Nirvana, combinée à mon corps de Dieu Ancien, mes sorts et mes trésors magiques, je me demande quelle est ma véritable force... Puis-je vaincre des cultivateurs de stade avancé ou même de stade culminant du Briseur du Nirvana? Je devrais pouvoir vaincre ceux au stade avancé, mais quant à ceux au sommet, n'ayant jamais combattu un tel adversaire, j'ignore... Si l'occasion se présente, je devrais en affronter un! » La marque cachée entre les sourcils de Wang Lin scintilla de manière incontrôlable et une puissante intention de combat l'enveloppa.
 
 Wang Lin prit une profonde inspiration pour réprimer l'étoile et fronça les sourcils. Il savait que cela résultait de son incompréhension partielle des Dao absorbés.
 

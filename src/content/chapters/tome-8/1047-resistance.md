@@ -50,7 +50,7 @@ Non seulement le sien, mais même l'expression de l'homme en noir changea radica
 
 Seule la belle femme afficha une expression étrange, dénuée de toute avidité. Elle regarda Wang Lin en fronçant les sourcils.
 
-L'Origine Source sature la lumière rouge, laquelle percuta la tempête de sable. Cette dernière trembla et, bien qu'elle contienne la puissance d'un cultivateur du Briseur de Nirvana, elle se dissipa rapidement.
+L'Origine Source sature la lumière rouge, laquelle percuta la tempête de sable. Cette dernière trembla et, bien qu'elle contienne la puissance d'un cultivateur du Briseur du Nirvana, elle se dissipa rapidement.
 
 Wang Lin ressentit une douleur entre ses sourcils. Il ne lui restait plus beaucoup d'Origine Source, et celle-ci se dissipait promptement face à la tempête de sable. Cependant, il ne la retira pas; au contraire, le regard chargé d'intention meurtrière, il laissa l'Origine Source jaillir de son troisième œil.
 

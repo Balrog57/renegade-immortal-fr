@@ -96,21 +96,21 @@ Ses yeux s'ouvraient et se fermaient. Lorsqu'ils s'ouvraient, il dégageait un r
 
 Quatre autres personnes étaient assises en position de lotus à ses côtés. Tous portaient des robes bleues et une grande épée dans le dos. Leurs expressions étaient tout aussi sombres que la sienne.
 
-Soudain, la brume noire devant eux se mit à bouillonner. Une silhouette s'en extirpa rapidement, révélant un homme également vêtu de bleu. Son visage était amer lorsqu'il déclara: « Senior Avarice, les bêtes dans la brume ne se sont pas dispersées... et... elles sont plus nombreuses qu'auparavant. »
+Soudain, la brume noire devant eux se mit à bouillonner. Une silhouette s'en extirpa rapidement, révélant un homme également vêtu de bleu. Son visage était amer lorsqu'il déclara: « Senior Cupidité, les bêtes dans la brume ne se sont pas dispersées... et... elles sont plus nombreuses qu'auparavant. »
 
-L'homme d'âge moyen était Avarice!
+L'homme d'âge moyen était Cupidité!
 
 Il laissa échapper un renflement froid: « C'est moi qui ai sous-estimé cet endroit. Toutes les bêtes ici ont été aspirées de l'immensité de l'espace, puis renforcées par la force mystérieuse des lieux. Il est naturel que des créatures puissantes apparaissent ici. »
 
-À ce moment, un disciple de la Secte de l'Épée Da Lou, resté silencieux jusqu'alors, prit la parole: « Senior Avarice, ces bêtes sont trop nombreuses et chacune d'elles est extrêmement féroce. Normalement, ces espèces sont très célèbres, mais bien que j'y ait longuement réfléchi, je ne parviens pas à me rappeler de quel type de créatures il s'agit. »
+À ce moment, un disciple de la Secte de l'Épée Da Lou, resté silencieux jusqu'alors, prit la parole: « Senior Cupidité, ces bêtes sont trop nombreuses et chacune d'elles est extrêmement féroce. Normalement, ces espèces sont très célèbres, mais bien que j'y ait longuement réfléchi, je ne parviens pas à me rappeler de quel type de créatures il s'agit. »
 
 Cet homme occupait une position singulière; il semblait que tous les autres disciples gravitaient autour de lui.
 
-Avarice le regarda. Il savait que cet homme occupait une place prépondérante dans le cœur de ces disciples. C'était leur frère aîné, Chen Long!
+Cupidité le regarda. Il savait que cet homme occupait une place prépondérante dans le cœur de ces disciples. C'était leur frère aîné, Chen Long!
 
-Ce dernier était le disciple bien-aimé du Saint de l'Épée Ling Tianhou et se montrait très rusé. Il dissimulait sa culture si parfaitement qu'Avarice dut l'observer attentivement pour en déceler quelques indices. En apparence, il se situait au stade avancé de la Transformation de l'Âme, mais en réalité, il était au début de l'Ascendant. Bien qu'il ne possède pas le niveau de culture le plus élevé parmi les Douze Épées, même Chou Nu, qui avait atteint le milieu du stade Ascendant, lui témoignait un immense respect.
+Ce dernier était le disciple bien-aimé du Saint de l'Épée Ling Tianhou et se montrait très rusé. Il dissimulait sa culture si parfaitement que Cupidité dut l'observer attentivement pour en déceler quelques indices. En apparence, il se situait au stade avancé de la Transformation de l'Âme, mais en réalité, il était au début de l'Ascendant. Bien qu'il ne possède pas le niveau de culture le plus élevé parmi les Douze Épées, même Chou Nu, qui avait atteint le milieu du stade Ascendant, lui témoignait un immense respect.
 
-Après avoir écouté Chen Long, Avarice réfléchit un instant: « Ces bêtes sont effectivement très étranges; même moi, je ne les ai jamais vues. L'espace est infini et les cieux agissent de manière mystérieuse; il est donc impossible pour les cultivateurs de connaître toutes les formes de vie.
+Après avoir écouté Chen Long, Cupidité réfléchit un instant: « Ces bêtes sont effectivement très étranges; même moi, je ne les ai jamais vues. L'espace est infini et les cieux agissent de manière mystérieuse; il est donc impossible pour les cultivateurs de connaître toutes les formes de vie.
 
 Ces bêtes ont probablement été aspirées par la phase de marée qui survient tous les 5 000 ans. Je crains qu'elles ne soient ici depuis très longtemps, il n'est donc pas surprenant que tu ne puisses les identifier! »
 

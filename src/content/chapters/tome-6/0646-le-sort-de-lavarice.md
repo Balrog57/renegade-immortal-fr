@@ -1,6 +1,6 @@
 ---
 n: 646
-title: "Le Sort de l'Avarice"
+title: "Le Sort de Cupidité"
 book: 6
 bookTitle: Arriving on Tian Yun
 en: Chapter 646 - Greeds Spell

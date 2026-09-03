@@ -98,7 +98,7 @@ Maître Pin Cendré réfléchit. Après un long moment, il serra les dents et fi
 
 La vieille femme en vert forma un sceau et pointa l'avant. Une restriction s'élança pour atterrir sur la roche devant Maître Pin Cendré. Les ondulations réapparurent et la pierre devint de nouveau transparente.
 
-Sans hésiter, Maître Pin Cendré pénétra directement dans la roche. Sa puissance de cultivateur au stade intermédiaire du Briseur de Nirvana éclata, et dès qu'il entra dans la pierre, il fit quatre pas!
+Sans hésiter, Maître Pin Cendré pénétra directement dans la roche. Sa puissance de cultivateur au stade intermédiaire du Briseur du Nirvana éclata, et dès qu'il entra dans la pierre, il fit quatre pas!
 
 Chaque pas résonnait comme un coup de tonnerre. Le visage de Maître Pin Cendré devint livide alors que l'armure dégageait une énergie démoniaque dense. Après quatre pas, il marqua une pause, puis ses yeux s'illuminèrent et il fit, contre toute attente, trois pas supplémentaires!
 

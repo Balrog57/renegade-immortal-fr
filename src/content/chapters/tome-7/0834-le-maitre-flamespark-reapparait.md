@@ -6,13 +6,13 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 834 - Master Flamespark Reappears
 slug: le-maitre-flamespark-reapparait
 ---
-Les cultivateurs face au Serpent Lunaire ne ressentirent qu'une bourrasque de vent. Puis leurs corps tremblèrent et ils perdirent connaissance.
+Les cultivateurs face au Serpent aux yeux de lune ne ressentirent qu'une bourrasque de vent. Puis leurs corps tremblèrent et ils perdirent connaissance.
 
-Le corps gigantesque du Serpent Lunaire chargea droit devant avec une vitesse fulgurante, provoquant des craquements sonores comme si l'espace lui-même était sur le point de s'effondrer.
+Le corps gigantesque du Serpent aux yeux de lune chargea droit devant avec une vitesse fulgurante, provoquant des craquements sonores comme si l'espace lui-même était sur le point de s'effondrer.
 
 La majorité des cultivateurs traquant Wang Lin étaient au stade de l'Ascendant tardif ou de l'Yin Illusoire. Il n'y avait pas beaucoup de cultivateurs du Yang Corporel, et encore moins ceux ayant atteint le stade du Scruteur du Nirvana.
 
-Les plus malchanceux furent directement percutés par le Serpent Lunaire, leurs corps s'effondrant instantanément. Quant à leurs âmes originelles, elles furent brisées sur le coup, sans la moindre chance de s'échapper.
+Les plus malchanceux furent directement percutés par le Serpent aux yeux de lune, leurs corps s'effondrant instantanément. Quant à leurs âmes originelles, elles furent brisées sur le coup, sans la moindre chance de s'échapper.
 
 En un instant, des hurlements déchirants emplirent la zone. Terrifiés, les cultivateurs environnants s'enfuirent de plus belle.
 
@@ -24,37 +24,37 @@ En un instant, des hurlements déchirants emplirent la zone. Terrifiés, les cul
 
 Diverses pensées traversèrent l'esprit des cultivateurs alors qu'ils battaient en retraite précipitamment.
 
-Le corps colossal du Serpent Lunaire marqua un bref arrêt et sa gueule s'ouvrit comme si elle allait se fendre en deux. Un rugissement strident s'en échappa.
+Le corps colossal du Serpent aux yeux de lune marqua un bref arrêt et sa gueule s'ouvrit comme si elle allait se fendre en deux. Un rugissement strident s'en échappa.
 
-Ce son était si puissant qu'il créa une force de pénétration inimaginable qui se propagea depuis le Serpent Lunaire comme point central. C'était comme si d'innombrables éclairs s'abattaient en cascade, leurs grondements s'empilant les uns sur les autres. Les cultivateurs qui n'avaient pas réussi à fuir assez loin explosèrent instantanément, leurs corps et leurs âmes originelles réduits en miettes.
+Ce son était si puissant qu'il créa une force de pénétration inimaginable qui se propagea depuis le Serpent aux yeux de lune comme point central. C'était comme si d'innombrables éclairs s'abattaient en cascade, leurs grondements s'empilant les uns sur les autres. Les cultivateurs qui n'avaient pas réussi à fuir assez loin explosèrent instantanément, leurs corps et leurs âmes originelles réduits en miettes.
 
-Le Serpent Lunaire reprit sa course, porté par son rugissement féroce. Ses innombrables tentacules s'agitaient frénétiquement, devenant ses armes les plus redoutables. Si un cultivateur était touché par eux, il pâlissait sur l'heure. S'il subissait trop de contacts, il mourait car son âme originelle se dissipait totalement.
+Le Serpent aux yeux de lune reprit sa course, porté par son rugissement féroce. Ses innombrables tentacules s'agitaient frénétiquement, devenant ses armes les plus redoutables. Si un cultivateur était touché par eux, il pâlissait sur l'heure. S'il subissait trop de contacts, il mourait car son âme originelle se dissipait totalement.
 
-La scène était d'un choc extrême. Le corps ovale du Serpent Lunaire, semblable à une planète avec ses innombrables tentacules oscillantes, poursuivait les cultivateurs en fuite qui étaient incapables de se téléporter.
+La scène était d'un choc extrême. Le corps ovale du Serpent aux yeux de lune, semblable à une planète avec ses innombrables tentacules oscillantes, poursuivait les cultivateurs en fuite qui étaient incapables de se téléporter.
 
 La terreur pure se lisait sur le visage de la plupart des survivants.
 
-C'était un massacre, une boucherie que le Serpent Lunaire infligeait pour déverser sa rage. Les cultivateurs ne pouvaient que s'en vouloir d'avoir été trop lents; un regret infini envahissait leurs cœurs.
+C'était un massacre, une boucherie que le Serpent aux yeux de lune infligeait pour déverser sa rage. Les cultivateurs ne pouvaient que s'en vouloir d'avoir été trop lents; un regret infini envahissait leurs cœurs.
 
 Les cultivateurs des cinq planètes principales du Domaine Nord sortirent de leurs mondes respectifs. Horrifiés par ce spectacle, ils activèrent immédiatement les formations défensives de leurs planètes. Personne n'osait sortir pour porter secours.
 
-Une fois le rugissement passé, le Serpent Lunaire s'arrêta soudainement et des grognements sourds émanèrent de son corps. Aussitôt, de petits Serpents Lunaires de tailles diverses jaillirent de sa gueule.
+Une fois le rugissement passé, le Serpent aux yeux de lune s'arrêta soudainement et des grognements sourds émanèrent de son corps. Aussitôt, de petits Serpents aux yeux de lune de tailles diverses jaillirent de sa gueule.
 
 Ces petits spécimens étaient infiniment plus menus que le grand original, qui avait la taille d'une planète, mais ils demeuraient gigantesques aux yeux des cultivateurs.
 
-À l'apparition de ces petits Serpents Lunaires, le carnage atteignit son paroxysme. Les innombrables créatures se dispersèrent et commencèrent à dévorer les cultivateurs alentour.
+À l'apparition de ces petits Serpents aux yeux de lune, le carnage atteignit son paroxysme. Les innombrables créatures se dispersèrent et commencèrent à dévorer les cultivateurs alentour.
 
-Quant aux membres de la famille Yao, seuls ceux au stade du Scruteur du Nirvana purent s'échapper; tous les autres avaient péri! Quant aux familles de culture venues en renfort, la majorité succomba à la fureur du Serpent Lunaire.
+Quant aux membres de la famille Yao, seuls ceux au stade du Scruteur du Nirvana purent s'échapper; tous les autres avaient péri! Quant aux familles de culture venues en renfort, la majorité succomba à la fureur du Serpent aux yeux de lune.
 
 L'espace entier fut imprégné d'une épaisse odeur de sang.
 
-Pourtant, la colère du Serpent Lunaire ne s'était pas encore apaisée. Alors que son immense corps se mouvait, une voix complexe, presque humaine, s'éleva de sa gueule.
+Pourtant, la colère du Serpent aux yeux de lune ne s'était pas encore apaisée. Alors que son immense corps se mouvait, une voix complexe, presque humaine, s'éleva de sa gueule.
 
 Cette scène fit perdre la raison aux cultivateurs environnants. Ils ne s'attendaient pas à ce qu'une bête d'une telle envergure puisse également utiliser des sorts. Si cette créature était capable de lancer des techniques magiques, toute la région serait anéantie.
 
-Si le Serpent Lunaire s'éveillait pleinement, ce serait une catastrophe absolue!
+Si le Serpent aux yeux de lune s'éveillait pleinement, ce serait une catastrophe absolue!
 
-À cet instant, trois silhouettes se tenaient dans l'espace, à 50 000 kilomètres de la zone où le Serpent Lunaire semait le chaos. Ces figures étaient floues, mais chacune dégageait une aura terrifiante.
+À cet instant, trois silhouettes se tenaient dans l'espace, à 50 000 kilomètres de la zone où le Serpent aux yeux de lune semait le chaos. Ces figures étaient floues, mais chacune dégageait une aura terrifiante.
 
 Le Maître Flamespark comptait parmi les trois!
 
@@ -96,18 +96,18 @@ Le Maître Flamespark renifla avec mépris et pensa: « Durant cette période, j
 
 « Ce n'est pas difficile. En unissant nos forces et avec l'aide de ces vieux monstres, une fois le passage ouvert, nous pourrons certainement la précipiter dans le Système Stellaire de l'Alliance. À ce moment-là... » Le regard du Maître Flamespark devint frénétique tandis que son corps vacilla et disparut. Les deux autres s'évanouirent également.
 
-Tandis que le Serpent Lunaire déversait sa rage, ses innombrables tentacules balayaient l'espace, fauchant les vies des cultivateurs. L'espace environnant commença à se fragmenter, faisant trembler violemment le cœur des survivants et les empêchant de se téléporter.
+Tandis que le Serpent aux yeux de lune déversait sa rage, ses innombrables tentacules balayaient l'espace, fauchant les vies des cultivateurs. L'espace environnant commença à se fragmenter, faisant trembler violemment le cœur des survivants et les empêchant de se téléporter.
 
-Peu importe la vitesse de fuite des cultivateurs, le Serpent Lunaire parvenait toujours à les rattraper. Les petits Serpents Lunaires qui dévoraient les victimes instillaient un désespoir profond dans leurs âmes.
+Peu importe la vitesse de fuite des cultivateurs, le Serpent aux yeux de lune parvenait toujours à les rattraper. Les petits Serpents aux yeux de lune qui dévoraient les victimes instillaient un désespoir profond dans leurs âmes.
 
 L'odeur du sang saturait l'air alors que le corps colossal du serpent progressait lentement. À cet instant précis, un motif octogonal rouge sang apparut au-dessus de la créature.
 
 Ce motif dégageait une aura puissante. Dès que cette aura se propagea, des ondulations apparurent aussitôt. Quiconque touchait ces ondes se sentait incapable de résister.
 
-Une silhouette se tenait au sommet du motif octogonal: l'homme en robe rouge. Son expression était grave tandis qu'il descendait avec la formation. Les ondulations s'étendirent rapidement pour entourer le Serpent Lunaire et le piéger!
+Une silhouette se tenait au sommet du motif octogonal: l'homme en robe rouge. Son expression était grave tandis qu'il descendait avec la formation. Les ondulations s'étendirent rapidement pour entourer le Serpent aux yeux de lune et le piéger!
 
 L'homme en rouge cria: « Dépêchez-vous, je ne peux pas le contenir longtemps! »
 
-La rage du Serpent Lunaire sous le motif octogonal atteignit son paroxysme. Il poussa un rugissement et chargea vers le haut avec acharnement.
+La rage du Serpent aux yeux de lune sous le motif octogonal atteignit son paroxysme. Il poussa un rugissement et chargea vers le haut avec acharnement.
 
 Simultanément, la silhouette du Maître Flamespark surgit du vide devant le serpent. D'un revers de manches, il attira une multitude de cultivateurs qui disparurent instantanément.

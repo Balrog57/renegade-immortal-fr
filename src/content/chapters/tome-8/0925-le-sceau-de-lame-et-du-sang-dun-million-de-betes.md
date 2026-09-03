@@ -102,7 +102,7 @@ Dès que son âme originelle fut quelque peu rétablie, Lie Yunzi pointa un autr
 
 Son sens divin pénétra le parchemin et se transforma en une vague incroyable qui balaya les étoiles. L'un des 16 Lou Fu restants explosa en d'innombrables gouttes de sang pour former un autre homme de sang!
 
-Cet être poussa un rugissement et chargea directement vers l'endroit où l'ancêtre de la famille Shengong combattait le sceau retenant le Serpent Lunaire!
+Cet être poussa un rugissement et chargea directement vers l'endroit où l'ancêtre de la famille Shengong combattait le sceau retenant le Serpent aux yeux de lune!
 
 Parmi les cultivateurs de l'Alliance, la femme en robe bleue fronça les sourcils. Elle pointa du doigt une main semblable au jade, et l'un des membres du Clan des Démons Géants poussa un rugissement avant de s'avancer. La planète de culture qu'il portait n'était pas très grande, ne représentant qu'environ 1 % d'une planète normale. Néanmoins, le démon géant paraissait minuscule face à elle. Mais il était extrêmement rapide et, dans sa course, il la lança sans aucune pitié. La planète de culture s'abattit directement vers les 15 Lou Fu restants.
 

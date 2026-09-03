@@ -78,7 +78,7 @@ Bien qu'il fût au stade intermédiaire du Scruteur du Nirvana, ce Xu Mu était 
 
 De plus, il connaissait l'Ancêtre Sanguin, et face à ce choc, son cœur devint instantanément craintif.
 
-« L'Ancêtre Sanguin est un cultivateur au stade du Cleanser du Nirvana, pourtant il a été tué par Xu Mu. Je ne peux absolument rien contre cet homme; je dois m'enfuir! »
+« L'Ancêtre Sanguin est un cultivateur au stade du Purificateur du Nirvana, pourtant il a été tué par Xu Mu. Je ne peux absolument rien contre cet homme; je dois m'enfuir! »
 
 Wang Lin pointa Zhou Tian du doigt et dit calmement: « Entraînez cet homme dans les dix-huit couches de l'enfer! »
 

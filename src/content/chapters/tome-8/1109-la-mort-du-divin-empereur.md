@@ -82,7 +82,7 @@ Ces mouvements attirèrent immédiatement l'attention des diverses forces de l'A
 
 De l'autre côté, dans la région orientale des Quatre Sectes Divines, un groupe d'Anciens menait également les membres de leur secte vers la planète Suzaku, afin de masquer les véritables mouvements des Quatre Sectes Divines!
 
-Presque au moment même où toutes les forces arrivèrent sur la planète Suzaku, les 35 Anciens du Briseur de Nirvana se rassemblèrent dans la Secte Divine de l'Oiseau Vermillon. Ils étaient assis en formation, le visage grave et le regard empreint d'attente.
+Presque au moment même où toutes les forces arrivèrent sur la planète Suzaku, les 35 Anciens du Briseur du Nirvana se rassemblèrent dans la Secte Divine de l'Oiseau Vermillon. Ils étaient assis en formation, le visage grave et le regard empreint d'attente.
 
 Ils formèrent un cercle, chacun disposant d'une formation sous lui. Entre les 35 individus, un espace circulaire restait vide. Cependant, 35 branches reliaient ce centre aux formations situées sous chaque Ancien.
 
@@ -98,7 +98,7 @@ Wang Lin s'arrêta à l'extérieur de la tempête de feu et cria: « Xu Liguo! �
 
 En entendant la voix de Wang Lin, Xu Liguo eut un réflexe de flatterie qu'il réprima de force, laissant place à une colère contenue.
 
-« Espèce de démon assassin, tu te souviens enfin de ton Grand-père Xu! Aujourd'hui, je vais t'en donner! » Xu Liguo avait été confronté à d'innombrables situations de vie ou de mort qui l'avaient forcé à comprendre l'intention d'épée antique. Son niveau de culture avait progressé par bonds prodigieux, au point qu'il osait désormais défier des cultivateurs ordinaires du niveau Briseur de Nirvana.
+« Espèce de démon assassin, tu te souviens enfin de ton Grand-père Xu! Aujourd'hui, je vais t'en donner! » Xu Liguo avait été confronté à d'innombrables situations de vie ou de mort qui l'avaient forcé à comprendre l'intention d'épée antique. Son niveau de culture avait progressé par bonds prodigieux, au point qu'il osait désormais défier des cultivateurs ordinaires du niveau Briseur du Nirvana.
 
 Surpris par la colère, il chargea et se transforma en une épée géante. Il ressemblait trait pour trait à une épée céleste et dégageait une aura de Richesse.
 

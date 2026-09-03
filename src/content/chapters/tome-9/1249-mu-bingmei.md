@@ -30,7 +30,7 @@ Le roi des moustiques fut le dernier à entrer. Il jeta un regard vers Wang Lin 
 
 Désormais, il était le seul être vivant dans le Royaume Céleste du Vent!
 
-Derrière lui, une horde infinie de moustiques le poursuivait avec acharnement, se rapprochant sans cesse! Wang Lin prit une profonde inspiration et sortit un talisman de vitesse. Il l'appliqua sur son corps sans hésiter, et son âme originelle commença à s'activer, faisant fi de ses blessures. L'aura d'un cultivateur du Briseur de Nirvana se propagea et fusionna avec son pouvoir de Dieu Ancien.
+Derrière lui, une horde infinie de moustiques le poursuivait avec acharnement, se rapprochant sans cesse! Wang Lin prit une profonde inspiration et sortit un talisman de vitesse. Il l'appliqua sur son corps sans hésiter, et son âme originelle commença à s'activer, faisant fi de ses blessures. L'aura d'un cultivateur du Briseur du Nirvana se propagea et fusionna avec son pouvoir de Dieu Ancien.
 
 Il se retourna pour fixer la horde de moustiques, et plus particulièrement le gigantesque roi des moustiques. Un doute l'assaillit: ce roi était extrêmement puissant, pourtant il n'avait utilisé aucun sortilège et sa vitesse n'était pas si prodigieuse que cela.
 
@@ -80,7 +80,7 @@ Des grondements résonnèrent sur la plateforme, attirant l'attention des 100 00
 
 Au sommet des gradins, un vieil homme vêtu de blanc pointait du doigt un disciple du Dao Pourpre qui combattait un disciple d'un autre secte de rang 5, tout en riant. « L’ascension de la Secte du Dao Pourpre est entièrement due à Lu Yuncong! Camarade cultivateur Wang, la Secte Divin ne pourra pas l’emporter. »
 
-Le vieil homme en blanc était gracieux et rayonnait de vitalité. Ses yeux brillaient à chaque mouvement de paupières. Son niveau de culture était élevé; il révélait sans hésitation l'aura d'un cultivateur Briseur de Nirvana.
+Le vieil homme en blanc était gracieux et rayonnait de vitalité. Ses yeux brillaient à chaque mouvement de paupières. Son niveau de culture était élevé; il révélait sans hésitation l'aura d'un cultivateur Briseur du Nirvana.
 
 Deux femmes étaient assises près du vieil homme. Toutes deux possédaient une beauté époustouflante. La femme vêtue de pourpre aurait pu faire battre le cœur de n'importe qui; un soupçon de froideur marquait son visage, comme si rien au monde ne pouvait l'émouvoir ou la pousser à montrer sa faiblesse.
 

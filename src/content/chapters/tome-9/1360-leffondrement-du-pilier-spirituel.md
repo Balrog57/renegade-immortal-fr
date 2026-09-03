@@ -96,7 +96,7 @@ Le dragon rugit et ne s'arrêta pas après avoir percé la défense. Sa taille �
 
 Le Daoïste Esprit Dispersé suivit le dragon dans l'enceinte du Clan, le visage déformé par une haine profonde.
 
-« Cet homme n'est qu'au stade de Briseur de Nirvana, mais pour une raison inconnue, il déploie la puissance d'un cultivateur de la Peste Céleste! Tout le monde, attaquez en même temps pour l'éliminer! »
+« Cet homme n'est qu'au stade de Briseur du Nirvana, mais pour une raison inconnue, il déploie la puissance d'un cultivateur de la Peste Céleste! Tout le monde, attaquez en même temps pour l'éliminer! »
 
 « Ce moine chauve au quatrième niveau de la Peste Céleste est le véritable ennemi, empêchez-le de progresser! »
 

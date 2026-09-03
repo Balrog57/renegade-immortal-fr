@@ -1,6 +1,6 @@
 ---
 n: 719
-title: "Absorption de la Perle Défiant le Ciel et Trésor de l'Avarice"
+title: "Absorption de la Perle Défiant le Ciel et Trésor de Cupidité"
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 719 - Heaven Defying Bead Absorption and Greeds Treasure
@@ -48,15 +48,15 @@ Wang Lin utilisa cette quatrième âme comme tremplin pour étendre son sens div
 
 L'absorption par la Perle Défiant le Ciel était très lente; après tout, l'os de serpent aux yeux de lune était tout simplement trop vaste. Après quelques jours, Wang Lin scinda une partie de son sens divin et sortit quelques trésors magiques.
 
-Ces trésors appartenaient tous à l'Avarice. C'étaient les récoltes que Wang Lin avait faites il y a soixante ans.
+Ces trésors appartenaient tous à Cupidité. C'étaient les récoltes que Wang Lin avait faites il y a soixante ans.
 
-Le premier trésor était cette montagne gigantesque. Bien qu'endommagée, l'énergie spirituelle céleste qui s'en dégageait était extrêmement riche. Mieux encore, l'empreinte du sens divin de l'Avarice s'était déjà dissipée.
+Le premier trésor était cette montagne gigantesque. Bien qu'endommagée, l'énergie spirituelle céleste qui s'en dégageait était extrêmement riche. Mieux encore, l'empreinte du sens divin de Cupidité s'était déjà dissipée.
 
 C'était l'une des raisons pour lesquelles Wang Lin était si tenté.
 
-La dissipation du sens divin de l'Avarice ne signifiait pas qu'il était mort; elle avait été effacée après cent ans d'assimilation avec l'os de serpent aux yeux de lune.
+La dissipation du sens divin de Cupidité ne signifiait pas qu'il était mort; elle avait été effacée après cent ans d'assimilation avec l'os de serpent aux yeux de lune.
 
-Wang Lin posa sa main droite sur la montagne et se remémora le moment où l'Avarice avait extrait l'âme de la montagne. Les yeux calmes, il frotta légèrement la roche.
+Wang Lin posa sa main droite sur la montagne et se remémora le moment où Cupidité avait extrait l'âme de la montagne. Les yeux calmes, il frotta légèrement la roche.
 
 Wang Lin gardait un souvenir profond de l'extraction des âmes d'objets dotés d'un esprit, tels que les planètes, les montagnes ou les rivières. C'était une prouesse que seuls les cultivateurs du second niveau étaient censés pouvoir accomplir, mais Wang Lin l'avait expérimentée personnellement lorsque le Démon Dispersé avait contrôlé son corps.
 
@@ -66,7 +66,7 @@ Il leva sa main avec une extrême délicatesse. Son regard était aussi vif que 
 
 Cette petite sphère dégageait une aura puissante. Ce qui choqua le plus Wang Lin, c'était que l'énergie spirituelle céleste était parfaitement contenue dans la sphère, comme si un être céleste utilisait ce sortilège.
 
-« Bien que cette âme de montagne soit bien plus faible qu'à l'époque où l'Avarice l'utilisait, elle n'en reste pas moins extrêmement puissante! Cependant, l'âme de la montagne est très instable; si je suis imprudent, loin de blesser l'ennemi, elle pourrait bien se retourner contre moi. » Les yeux de Wang Lin brillèrent.
+« Bien que cette âme de montagne soit bien plus faible qu'à l'époque où Cupidité l'utilisait, elle n'en reste pas moins extrêmement puissante! Cependant, l'âme de la montagne est très instable; si je suis imprudent, loin de blesser l'ennemi, elle pourrait bien se retourner contre moi. » Les yeux de Wang Lin brillèrent.
 
 Il savait que cela était dû au fait que la montagne n'était pas complète, ce qui avait endommagé l'âme de la montagne.
 
@@ -82,9 +82,9 @@ Wang Lin ressentit précisément cela lorsqu'il échoua à extraire l'âme de la
 
 En contemplant la montagne devant lui, Wang Lin prit une profonde inspiration. La valeur de ce mont résidait dans le fait qu'il lui permettait d'expérimenter le sort d'extraction d'âme, normalement réservé aux cultivateurs du second niveau.
 
-« Cet objet me sera très utile. Je me demande simplement comment l'Avarice a pu le découvrir et l'affiner! » Bien que l'Avarice fût l'ennemi de Wang Lin, la vue de ce sort lui inspira une certaine admiration pour lui.
+« Cet objet me sera très utile. Je me demande simplement comment Cupidité a pu le découvrir et l'affiner! » Bien que Cupidité fût l'ennemi de Wang Lin, la vue de ce sort lui inspira une certaine admiration pour lui.
 
-« Le Dragon de Tonnerre Ancien, la Montagne Céleste, le Fourneau du Dieu Ancien, l'Écran des Montagnes et des Rivières, et cette étrange couronne... Sans oublier les trésors inconnus dans le sac de l'Avarice. Il est véritablement béni par les cieux! » Wang Lin laissa échapper un soupir. Chacun de ces trésors aurait suffi à rendre les gens fous. Pourtant, ce qui surprenait Wang Lin, c'était que personne n'avait réussi à voler ces objets à l'Avarice.
+« Le Dragon de Tonnerre Ancien, la Montagne Céleste, le Fourneau du Dieu Ancien, l'Écran des Montagnes et des Rivières, et cette étrange couronne... Sans oublier les trésors inconnus dans le sac de Cupidité. Il est véritablement béni par les cieux! » Wang Lin laissa échapper un soupir. Chacun de ces trésors aurait suffi à rendre les gens fous. Pourtant, ce qui surprenait Wang Lin, c'était que personne n'avait réussi à voler ces objets à Cupidité.
 
 Cela le laissait totalement perplexe.
 
@@ -106,9 +106,9 @@ On disait que le sang utilisé pour peindre les montagnes et les rivières étai
 
 Ainsi, cet objet fut également nommé le Tableau du Tao Céleste!
 
-Ce qu'avait obtenu l'Avarice n'était pas le véritable tableau des montagnes et des rivières, mais une copie imprimée sur un écran.
+Ce qu'avait obtenu Cupidité n'était pas le véritable tableau des montagnes et des rivières, mais une copie imprimée sur un écran.
 
-Quant au type de sort capable d'imprimer un tel chef-d'œuvre sur un écran, l'Avarice avait beau avoir fouillé les registres anciens, il n'avait jamais réussi à en découvrir le secret.
+Quant au type de sort capable d'imprimer un tel chef-d'œuvre sur un écran, Cupidité avait beau avoir fouillé les registres anciens, il n'avait jamais réussi à en découvrir le secret.
 
 Le regard de Wang Lin se posa sur l'écran. Celui-ci semblait très simple, sans rien d'extraordinaire; il ressemblait aux paravents que l'on trouvait dans les demeures des gens peu fortunés.
 
@@ -126,7 +126,7 @@ Tenant l'objet de la main gauche, Wang Lin le scruta avec son sens divin et ne t
 
 Cependant, les cinq perles qui la décoraient attirèrent son attention. Wang Lin comprit immédiatement que ces cinq perles contenaient le pouvoir des cinq éléments!
 
-Ces cinq éléments étaient similaires aux esprits élémentaires de Papillon Rouge, mais dotés d'une vitalité bien plus grande. En contemplant la couronne, Wang Lin réfléchit un instant avant de la poser sur sa tête, tout comme l'Avarice l'avait fait.
+Ces cinq éléments étaient similaires aux esprits élémentaires de Papillon Rouge, mais dotés d'une vitalité bien plus grande. En contemplant la couronne, Wang Lin réfléchit un instant avant de la poser sur sa tête, tout comme Cupidité l'avait fait.
 
 À cet instant, une force mystérieuse émana immédiatement du sommet de la tête de Wang Lin. Après avoir parcouru son corps, elle retourna dans la couronne et resta inactive.
 

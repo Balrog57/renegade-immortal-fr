@@ -20,7 +20,7 @@ Il avait même la sensation que ce monde changerait selon la volonté de cet hom
 
 C'est à ce moment que les paroles de Li Qianmei retentirent. Sa voix était douce et mélodieuse; elle possédait une élégance qui apaisait instantanément les esprits. Lorsque le regard de Wang Lin passa de Lu Yuncong à Li Qianmei, Lu Yuncong poussa un soupir de soulagement. Il recula de plusieurs pas, l'expression sombre.
 
-Wang Lin observa calmement Li Qianmei. La culture de cette femme était insondable. Bien qu'elle dissimulât son niveau, Wang Lin pouvait percevoir qu'elle se situait au stade du Briseur de Nirvana.
+Wang Lin observa calmement Li Qianmei. La culture de cette femme était insondable. Bien qu'elle dissimulât son niveau, Wang Lin pouvait percevoir qu'elle se situait au stade du Briseur du Nirvana.
 
 « Qui est ce compagnon de culture? » Les yeux de Wang Lin restaient calmes, mais son esprit s'activait.
 

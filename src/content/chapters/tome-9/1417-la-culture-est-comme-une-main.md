@@ -124,7 +124,7 @@ Wang Lin médita en silence alors que l'Oiseau Vermillon qu'il avait formé se d
 
 « En l'absence de bâton d'encens, tu possèdes déjà cinq essences. Bien qu'elles viennent de se former, ce phénomène est rare. Cependant, ton chemin est erroné! » déclara lentement le premier Oiseau Vermillon.
 
-« Ton essence de tonnerre a formé la Porte du Vide, mais tu n'as pu l'ouvrir... Tu penses ne pas être assez fort, et c'est à la fois vrai et faux. Tu crois devoir attendre que ton essence de feu soit complète avant de tenter de nouveau d'ouvrir la Porte du Vide. Au fond de ton cœur, tu ne valorises même pas les cinq Afflictions Célestes. Tu ne veux pas les traverser; tu veux briser directement la Porte du Vide au sommet du stade Briseur de Nirvana! Si tu penses pouvoir y parvenir, tu te trompes! »
+« Ton essence de tonnerre a formé la Porte du Vide, mais tu n'as pu l'ouvrir... Tu penses ne pas être assez fort, et c'est à la fois vrai et faux. Tu crois devoir attendre que ton essence de feu soit complète avant de tenter de nouveau d'ouvrir la Porte du Vide. Au fond de ton cœur, tu ne valorises même pas les cinq Afflictions Célestes. Tu ne veux pas les traverser; tu veux briser directement la Porte du Vide au sommet du stade Briseur du Nirvana! Si tu penses pouvoir y parvenir, tu te trompes! »
 
 Wang Lin fut stupéfait mais resta silencieux.
 

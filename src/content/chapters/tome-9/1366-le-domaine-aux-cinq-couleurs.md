@@ -36,9 +36,9 @@ Bien que l'image eût disparu, les yeux de Wang Lin brillèrent. Il semblait avo
 
 Un éclair de tonnerre défiant les cieux!
 
-Sa culture subit alors un étrange changement. Une telle mutation ne s'était jamais produite, ni dans le Domaine Intérieur, ni dans le Domaine Extérieur! S'il s'était contenté d'utiliser ce pouvoir du tonnerre, il aurait pu franchir le stade intermédiaire du Briseur de Nirvana pour atteindre le stade avancé!
+Sa culture subit alors un étrange changement. Une telle mutation ne s'était jamais produite, ni dans le Domaine Intérieur, ni dans le Domaine Extérieur! S'il s'était contenté d'utiliser ce pouvoir du tonnerre, il aurait pu franchir le stade intermédiaire du Briseur du Nirvana pour atteindre le stade avancé!
 
-Cependant, s'il n'utilisait pas le tonnerre mais plutôt son propre domaine, le feu et son énergie originelle, Wang Lin restait au stade intermédiaire du Briseur de Nirvana.
+Cependant, s'il n'utilisait pas le tonnerre mais plutôt son propre domaine, le feu et son énergie originelle, Wang Lin restait au stade intermédiaire du Briseur du Nirvana.
 
 Cela était directement lié au fait qu'il possédait cinq essences dans son corps!
 

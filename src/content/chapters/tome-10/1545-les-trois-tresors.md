@@ -64,7 +64,7 @@ Il s'agissait d'une planète de culture de rang 7, divisée en des centaines de 
 
 En apparence, l'individu au niveau le plus élevé était un homme d'âge moyen au stade du Purificateur du Nirvana. Cependant, au centre de la planète se trouvait une caverne où résidaient manifestement quatre vieux monstres en culture fermée.
 
-Le plus puissant parmi eux se trouvait au troisième stade du Fléau Céleste. Deux autres étaient au premier stade du Fléau Céleste, et le dernier se trouvait au stade du Briseur de Nirvana.
+Le plus puissant parmi eux se trouvait au troisième stade du Fléau Céleste. Deux autres étaient au premier stade du Fléau Céleste, et le dernier se trouvait au stade du Briseur du Nirvana.
 
 Des forces de feu et de glace émanaient de la caverne centrale. Ces individus empruntaient manifestement ces puissances pour contenir leurs Fléaux Célestes, tentant ainsi de les surmonter lentement.
 

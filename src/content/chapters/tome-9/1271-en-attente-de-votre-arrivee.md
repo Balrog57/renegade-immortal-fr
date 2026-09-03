@@ -60,7 +60,7 @@ Les cultivateurs ordinaires ne pourraient pas supporter un tel nombre d'ombres d
 
 Deux cerfs illusoires poussèrent de longs sifflements et circulèrent autour de l'index de Wang Lin. Finalement, ils se transformèrent en deux tatouages qui s'imprimèrent sur son doigt.
 
-À cet instant, l'index de Wang Lin pouvait détruire le corps d'un cultivateur au stade du Briseur de Nirvana. Même un trésor ordinaire du stade Pseudo-Nirvana Vide ne ferait pas le poids; quiconque toucherait l'index de Wang Lin se désintégrerait instantanément!
+À cet instant, l'index de Wang Lin pouvait détruire le corps d'un cultivateur au stade du Briseur du Nirvana. Même un trésor ordinaire du stade Pseudo-Nirvana Vide ne ferait pas le poids; quiconque toucherait l'index de Wang Lin se désintégrerait instantanément!
 
 Plus effrayant encore, ce doigt contenait également les lois du tonnerre, du feu et de l'intention de combat. Il renfermait aussi la force de Wang Lin en tant que Dieu Ancien. Ce seul doigt pourrait terrasser même un Dieu Fantôme!
 
@@ -100,7 +100,7 @@ En fixant la restriction, Wang Lin afficha un rictus.
 
 Ses mains bougeaient avec la rapidité du vent et ne s'arrêtaient pas. Les restrictions continuèrent de se propager, imprégnant le continent sauvage. Elles s'étendirent jusqu'à couvrir tous les continents sauvages, avant de se lier en un seul!
 
-La création d'autant de restrictions avait consommé une quantité colossale d'énergie originelle, mais Wang Lin était à mi-chemin du stade de Briseur de Nirvana et pouvait donc absorber une énergie originelle infinie. Il disposait également de vastes réserves de cristaux originels qu'il n'hésita pas à utiliser.
+La création d'autant de restrictions avait consommé une quantité colossale d'énergie originelle, mais Wang Lin était à mi-chemin du stade de Briseur du Nirvana et pouvait donc absorber une énergie originelle infinie. Il disposait également de vastes réserves de cristaux originels qu'il n'hésita pas à utiliser.
 
 Il invoqua également la femme en argent et lui ordonna d'utiliser la restriction de vie et de mort. La femme en argent l'exécuta sans hésiter et, grâce aux nombreux cristaux originels, sa restriction de vie et de mort couvrit aussi le continent, se synchronisant avec les restrictions de Wang Lin.
 

@@ -70,7 +70,7 @@ Zhao Long afficha un sourire sinistre et laissa échapper un rire rauque avant d
 
 L'endroit où ils se trouvaient n'était qu'une goutte d'eau dans l'océan comparé à la vaste plateforme où se déroulait la compétition. À cet instant, un rayon de lumière blanche convergea vers les différentes plateformes de combat. Cette lumière traversa le ciel en provoquant une série de grondements tonitruants. Avant même son approche, elle avait déjà capté l'attention des cultivateurs environnants.
 
-L'aura d'un cultivateur de niveau Briseur de Nirvana émanait de cette lueur blanche. Plusieurs silhouettes s'élancèrent depuis la Secte Éternelle pour l'accueillir.
+L'aura d'un cultivateur de niveau Briseur du Nirvana émanait de cette lueur blanche. Plusieurs silhouettes s'élancèrent depuis la Secte Éternelle pour l'accueillir.
 
 Alors que la lumière blanche approchait, elle ralentit, permettant à tous les observateurs de distinguer une femme à l'intérieur. Ils aperçurent également des cheveux bleus qui n'appartenaient qu'à une seule personne dans toute la Mer des Nuages!
 

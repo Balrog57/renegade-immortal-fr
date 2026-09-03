@@ -8,7 +8,7 @@ slug: leternite-entre-le-vrai-et-le-faux
 ---
 Dans l'immensité de l'espace, au-delà des nébuleuses éclatantes et des innombrables météores, s'étendait aussi une poussière infinie. Chaque particule était d'une infime taille. Si certaines pouvaient être perçues par le sens divin d'un cultivateur, la plupart demeuraient indétectables pour eux.
 
-Dans un recoin de l'univers, il existait des particules de poussière si ténues que même les cultivateurs du niveau Briseur de Nirvana ne pouvaient les percevoir avec leur sens divin.
+Dans un recoin de l'univers, il existait des particules de poussière si ténues que même les cultivateurs du niveau Briseur du Nirvana ne pouvaient les percevoir avec leur sens divin.
 
 Ces grains de poussière étaient minuscules, et pourtant, d'autres mondes s'y nichaient!
 

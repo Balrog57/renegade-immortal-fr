@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1181 - Master Cloud Soul is Lost
 slug: la-perte-de-maitre-cloud-soul
 ---
-Wang Lin avait son propre plan en pénétrant dans cette faille aux sept couleurs, et un conflit avec Maître Pin Cendré était inévitable. Wang Lin pouvait faire face à un cultivateur du stade intermédiaire du Briseur de Nirvana; même contre deux d'entre eux, il s'en sortirait tant que le second n'entretenait pas de liens étroits avec Maître Pin Cendré!
+Wang Lin avait son propre plan en pénétrant dans cette faille aux sept couleurs, et un conflit avec Maître Pin Cendré était inévitable. Wang Lin pouvait faire face à un cultivateur du stade intermédiaire du Briseur du Nirvana; même contre deux d'entre eux, il s'en sortirait tant que le second n'entretenait pas de liens étroits avec Maître Pin Cendré!
 
 Wang Lin avait secrètement observé le garçon nommé Duanmu. C'était un être impitoyable, et sa relation avec Maître Pin Cendré n'était dictée que par leurs intérêts mutuels.
 
@@ -20,7 +20,7 @@ Par conséquent, détruire Maître Nuage-Âme reviendrait à trancher l'un des b
 
 Le moment était idéal pour l'attaque!
 
-« Stade intermédiaire du Briseur de Nirvana! » En songeant à l'affrontement contre un tel cultivateur, Wang Lin ressentit une pointe d'excitation. L'épée de fer en main, il abattit son arme sans la moindre pitié!
+« Stade intermédiaire du Briseur du Nirvana! » En songeant à l'affrontement contre un tel cultivateur, Wang Lin ressentit une pointe d'excitation. L'épée de fer en main, il abattit son arme sans la moindre pitié!
 
 La puissance d'un Trésor Pseudo-Vide du Nirvana était capable de faire trembler les cieux. À cet instant, un rayon monstrueux d'énergie d'épée fonça vers Maître Nuage-Âme!
 
@@ -30,11 +30,11 @@ La flamme spirituelle percuta l'énergie d'épée dans un fracas tonitruant, mai
 
 Face à cette crise, les yeux de Maître Nuage-Âme s'écarquillèrent de rage. Au moment ultime, il se mordit la langue et cracha un jet de sang essentiel. Ce sang se mua en un crâne qui dévora le rayon d'énergie d'épée.
 
-Un bang assourdissant secoua l'espace alors que le corps de Maître Nuage-Âme tremblait et que son visage pâlissait. Ses yeux étaient empreints de choc, mais il demeurait, après tout, un cultivateur du stade intermédiaire du Briseur de Nirvana; l'énergie d'épée de Wang Lin ne put donc pas le blesser mortellement. L'impact projeta Wang Lin en arrière de quelques pas, le faisant vaciller vers la faille.
+Un bang assourdissant secoua l'espace alors que le corps de Maître Nuage-Âme tremblait et que son visage pâlissait. Ses yeux étaient empreints de choc, mais il demeurait, après tout, un cultivateur du stade intermédiaire du Briseur du Nirvana; l'énergie d'épée de Wang Lin ne put donc pas le blesser mortellement. L'impact projeta Wang Lin en arrière de quelques pas, le faisant vaciller vers la faille.
 
 « Tu cherches la mort, Junior! » rugit Maître Nuage-Âme en s'élançant. Sa vitesse était prodigieuse et il rejoignit Wang Lin en un instant.
 
-Wang Lin n'eut pas le temps de laisser son épée de fer achever son assaut. Une lueur glaciale passa dans ses yeux. Ce n'était pas une surprise; un cultivateur du stade intermédiaire du Briseur de Nirvana ne tombait pas facilement. Son but était de le blesser! Tout cela n'était qu'une préparation pour la suite!
+Wang Lin n'eut pas le temps de laisser son épée de fer achever son assaut. Une lueur glaciale passa dans ses yeux. Ce n'était pas une surprise; un cultivateur du stade intermédiaire du Briseur du Nirvana ne tombait pas facilement. Son but était de le blesser! Tout cela n'était qu'une préparation pour la suite!
 
 Alors que Wang Lin reculait, sur le point de s'engouffrer totalement dans la faille, Maître Nuage-Âme se rapprocha et n'était plus qu'à quelques centimètres de l'entrée. Il leva la main, prêt à lancer un sort, mais à cet instant précis, Wang Lin esquissa un sourire qui n'en était pas un. Il ouvrit la bouche et hurla: « Arrête! »
 
@@ -50,7 +50,7 @@ La terreur s'empara de ses yeux. On ne pouvait pas se déplacer arbitrairement l
 
 Wang Lin avait traversé de nombreuses failles spatiales. Bien qu'il n'ait jamais exploré cette faille aux sept couleurs auparavant, il en avait conclu que toutes les brèches entre deux royaumes fonctionnaient ainsi. Et comme cette faille était instable, sa certitude n'en était que plus grande!
 
-Son objectif n'était pas de tenter de tuer un Briseur de Nirvana au stade intermédiaire, mais bien de blesser Maître Nuage-Âme pour altérer son point de transfert au moment où il pénétrerait dans la faille!
+Son objectif n'était pas de tenter de tuer un Briseur du Nirvana au stade intermédiaire, mais bien de blesser Maître Nuage-Âme pour altérer son point de transfert au moment où il pénétrerait dans la faille!
 
 Tout s'était déroulé en un éclair, avec une rapidité inimaginable. En franchissant la faille, la vision de Wang Lin se brouilla et son âme originelle subit le contrecoup violent de l'usage du Sort de Stase, mais il parvint à le réprimer par la force. Lorsqu'il retrouva la vue, il se trouvait dans un monde étrange.
 
@@ -90,7 +90,7 @@ Le vieil homme nommé Pang tressaillit. En repensant à la mort de Wu Qing, il r
 
 « Camarade cultivateur Lu, je demande des explications! » lança Maître Pin Cendré en fixant Wang Lin. Il savait que Maître Nuage-Âme surveillait ce jeune homme vêtu de blanc; désormais qu'il manquait à l'appel, ce dernier était le suspect numéro un!
 
-« Quelle plaisanterie! » Wang Lin eut un rire amer. Il regarda Maître Pin Cendré avec indifférence et ricana: « Maître Nuage-Âme est au stade intermédiaire du Briseur de Nirvana, et je ne suis pas son égal. Vous exigez des explications de ma part, mais c'est une chose que je suis incapable de vous donner! »
+« Quelle plaisanterie! » Wang Lin eut un rire amer. Il regarda Maître Pin Cendré avec indifférence et ricana: « Maître Nuage-Âme est au stade intermédiaire du Briseur du Nirvana, et je ne suis pas son égal. Vous exigez des explications de ma part, mais c'est une chose que je suis incapable de vous donner! »
 
 « Maître Nuage-Âme a des jambes et un cerveau; pourquoi viendrait-il me rendre compte de ses déplacements? Ridicule! Si vous cherchez un prétexte pour combattre, alors je vous accompagnerai jusqu'au bout! » Une lueur glaciale traversa les yeux de Wang Lin, sa voix était tranchante comme une lame.
 

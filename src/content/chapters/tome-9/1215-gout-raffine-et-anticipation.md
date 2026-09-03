@@ -36,7 +36,7 @@ Pendant la poursuite, le vieil homme, protégé par sa lumière aux sept couleur
 
 « Arrête-toi! » La folie dans les yeux de Wang Lin s'intensifia et il agita sa main droite. La lumière aux sept couleurs se figea soudainement. À cet instant, Wang Lin chargea et ses deux doigts percèrent la lueur pour frapper directement l'âme originelle du vieil homme.
 
-Dans un fracas retentissant, l'âme originelle du vieillard était sur le point de s'effondrer. Cependant, il restait, après tout, un cultivateur au stade avancé du Briseur de Nirvana. Bien que gravement blessé, il n'était pas encore mort et lutta pour s'enfuir plus rapidement encore.
+Dans un fracas retentissant, l'âme originelle du vieillard était sur le point de s'effondrer. Cependant, il restait, après tout, un cultivateur au stade avancé du Briseur du Nirvana. Bien que gravement blessé, il n'était pas encore mort et lutta pour s'enfuir plus rapidement encore.
 
 En pleine poursuite, Wang Lin poussa un rugissement vers les cieux et une flamme bleue jaillit de son œil gauche. Le sceau trembla, mais finit par céder devant la flamme bleue!
 
@@ -74,7 +74,7 @@ Cette scène était visible de n'importe quel point du Royaume aux Sept Couleurs
 
 Il regarda avec stupeur le pilier de feu et de foudre au loin. Sa gorge était sèche et son visage livide.
 
-« Tuer un cultivateur au stade avancé du Briseur de Nirvana... Son nom sera célèbre dans la Mer des Nuages. Moi, Chen Tianjun, j'ai l'honneur d'être témoin de son exploit en cet instant! »
+« Tuer un cultivateur au stade avancé du Briseur du Nirvana... Son nom sera célèbre dans la Mer des Nuages. Moi, Chen Tianjun, j'ai l'honneur d'être témoin de son exploit en cet instant! »
 
 Au loin, la vieille femme vêtue de vert était pâle en contemplant le brasier et la foudre. La peur brillait dans ses yeux. Elle sentait instinctivement que si elle devait affronter l'un ou l'autre, elle mourrait sans aucun doute!
 
@@ -88,7 +88,7 @@ Plus loin encore, Maître Âme-Nuage affichait un visage amer. Ayant naturelleme
 
 Cependant, après avoir observé le combat, il fut frappé de stupeur et ne put accepter cette réalité. Après un moment, Maître Âme-Nuage laissa échapper un sourire misérable, ses yeux s'illuminant d'une intention meurtrière démente.
 
-« Cet homme ne me laissera jamais partir, mais il doit être gravement blessé après son combat contre ce Briseur de Nirvana au stade avancé. J'ai peut-être encore une chance! S'il récupère, je mourrai sans aucun doute, mais s'il est affaibli, je pourrais l'affronter dans un combat à mort!
+« Cet homme ne me laissera jamais partir, mais il doit être gravement blessé après son combat contre ce Briseur du Nirvana au stade avancé. J'ai peut-être encore une chance! S'il récupère, je mourrai sans aucun doute, mais s'il est affaibli, je pourrais l'affronter dans un combat à mort!
 
 « Une fois que je l'aurai tué, tout le Royaume aux Sept Couleurs m'appartiendra! » Le cœur de Maître Âme-Nuage fut emporté par cette pensée. Avant d'entrer dans le royaume, il était certain de pouvoir tuer Wang Lin. Mais désormais, bien qu'il espère que Wang Lin soit blessé, il ressentait la nervosité d'un mortel tentant de terrasser un être céleste.
 

@@ -68,9 +68,9 @@ Les deux éclairs à l'intérieur de l'âme originelle de Wang Lin finirent par 
 
 Dès que l'éclair éternel fut assimilé, la volonté qu'il contenait fut raffinée par Wang Lin et ne fit plus qu'un avec son âme originelle. Il sentit son âme originelle trembler, tandis que son essence de tonnerre croissait à une vitesse inimaginable.
 
-Cette progression était indescriptible. La seule montée en puissance de son essence de tonnerre permit la culture de Wang Lin de franchir le stade intermédiaire du Briseur de Nirvana pour tendre vers le stade avancé!
+Cette progression était indescriptible. La seule montée en puissance de son essence de tonnerre permit la culture de Wang Lin de franchir le stade intermédiaire du Briseur du Nirvana pour tendre vers le stade avancé!
 
-Tandis que son essence de tonnerre grondait, la culture de Wang Lin atteindrait instantanément le stade avancé du Briseur de Nirvana s'il utilisait son pouvoir!
+Tandis que son essence de tonnerre grondait, la culture de Wang Lin atteindrait instantanément le stade avancé du Briseur du Nirvana s'il utilisait son pouvoir!
 
 La puissance de l'essence représentait les fondements de tous les domaines. Obtenir l'essence signifiait qu'il avait percé à jour toutes les lois du tonnerre. Il n'y avait plus de limite de domaine pour sa culture, ce qui était sans précédent!
 

@@ -38,7 +38,7 @@ Wang Lin ne s'arrêta pas. Après avoir absorbé la foudre, une faible marque d'
 
 Le Maître Pin Cendré recula précipitamment en formant un sceau de ses mains. Ses sept âmes naissantes émettent alors une lumière rouge sang intense, entourant le Maître Pin Cendré pour tenter de bloquer l'éclair!
 
-Les yeux de Wang Lin brillèrent. Bien qu'il n'ait pas encore véritablement franchi le stade intermédiaire du Purificateur de Nirvana, la percée de son domaine avait rendu ses sorts bien plus puissants. Il était également bien différent de la première fois où il avait combattu le Maître Pin Cendré.
+Les yeux de Wang Lin brillèrent. Bien qu'il n'ait pas encore véritablement franchi le stade intermédiaire du Purificateur du Nirvana, la percée de son domaine avait rendu ses sorts bien plus puissants. Il était également bien différent de la première fois où il avait combattu le Maître Pin Cendré.
 
 Au moment où l'éclair fut projeté, Wang Lin tendit la main et son espace de stockage apparut. Une lumière aux sept couleurs s'en échappa, révélant le clou aux sept couleurs. Wang Lin s'en saisit et le lança!
 
@@ -110,7 +110,7 @@ Alors qu'il voyait Wang Lin disparaître à l'horizon, Chen Tianjun poussa un so
 
 « Récolter ces cristaux sera très dangereux, je dois me préparer. » Chen Tianjun prit une profonde inspiration et serra le jade contre lui comme s'il s'agissait de son unique espoir de liberté. Il retourna dans sa grotte.
 
-Wang Lin regagna la grotte située dans la vallée et sortit une grande quantité de cristaux d'origine. Il disposa de nombreuses restrictions autour de lui et commença à absorber l'énergie originelle. Celle-ci affluait de toutes parts, et il cultiva pour progresser vers le stade intermédiaire du Purificateur de Nirvana.
+Wang Lin regagna la grotte située dans la vallée et sortit une grande quantité de cristaux d'origine. Il disposa de nombreuses restrictions autour de lui et commença à absorber l'énergie originelle. Celle-ci affluait de toutes parts, et il cultiva pour progresser vers le stade intermédiaire du Purificateur du Nirvana.
 
 « Bien que cet endroit soit périlleux, c'est le lieu idéal pour la culture. D'après les souvenirs du Maître Pin Cendré, il y avait cette statue de pierre qu'il utilisait pour reformer son corps. Peut-être pourrai-je en absorber une partie de la puissance. Il y a aussi ces trois individus du royaume extérieur; ils possèdent une force et des informations sur ce royaume dont j'ai besoin. »
 

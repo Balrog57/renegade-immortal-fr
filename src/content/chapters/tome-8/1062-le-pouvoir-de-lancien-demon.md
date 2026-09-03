@@ -84,9 +84,9 @@ L'homme en noir eut un mouvement de recul, réprimant instantanément sa cupidit
 
 « Je vais saisir cette opportunité pour achever ce petit et apaiser un peu la haine qui me ronge! »
 
-Bien que le Maître Vide fût lui-même blessé, il se situait toujours au stade du Briseur de Nirvana. À cet instant, il se déplaça comme l'éclair pour apparaître aux côtés de Wang Wei. Il leva sa main et s'apprêta à écraser impitoyablement la tête du jeune homme. Dans un sourire cruel, il hurla: « Puisque tu as osé aider ce petit bâtard, meurs! »
+Bien que le Maître Vide fût lui-même blessé, il se situait toujours au stade du Briseur du Nirvana. À cet instant, il se déplaça comme l'éclair pour apparaître aux côtés de Wang Wei. Il leva sa main et s'apprêta à écraser impitoyablement la tête du jeune homme. Dans un sourire cruel, il hurla: « Puisque tu as osé aider ce petit bâtard, meurs! »
 
-Tandis que Wang Lin reculait, il vit Wang Wei être projeté après avoir été lourdement blessé. Il s'arrêta net et chargea pour le secourir. Cependant, il n'était pas aussi rapide que le Maître Vide qui avait déjà atteint sa cible et levé la main. Une lueur jaune terreuse émana de la paume droite du Maître Vide; elle concentrait la puissance maximale d'un cultivateur au début du stade Briseur de Nirvana.
+Tandis que Wang Lin reculait, il vit Wang Wei être projeté après avoir été lourdement blessé. Il s'arrêta net et chargea pour le secourir. Cependant, il n'était pas aussi rapide que le Maître Vide qui avait déjà atteint sa cible et levé la main. Une lueur jaune terreuse émana de la paume droite du Maître Vide; elle concentrait la puissance maximale d'un cultivateur au début du stade Briseur du Nirvana.
 
 À cet instant précis, Wang Lin n'eut pas le temps de réfléchir. Le fourneau divin antique apparut autour de lui. Il pointa Wang Wei du doigt et cria: « Changez de place! »
 

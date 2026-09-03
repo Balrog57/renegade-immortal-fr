@@ -16,7 +16,7 @@ Un halo rouge, semblable à du sang, l'entourait. Un halo rouge illusoire apparu
 
 L'expression de Wang Lin demeurait calme. Il ne possédait plus beaucoup d'énergie originelle après avoir utilisé la Nuit Déchirée, mais ses yeux aussi dégageaient une intention de combat monstrueuse. L'étoile de la loi entre ses sourcils scintillait follement et tournait rapidement. À mesure qu'elle pivotait, l'énergie originelle du monde commença à se condenser vers Wang Lin avec frénésie.
 
-Il lui était extrêmement difficile de tuer quelqu'un au stade de la première Affliction Céleste. Ce n'est que si ses blessures guérissaient et qu'il levait le sceau sur sa culture pour atteindre le stade du Briseur de Nirvana qu'il aurait une chance!
+Il lui était extrêmement difficile de tuer quelqu'un au stade de la première Affliction Céleste. Ce n'est que si ses blessures guérissaient et qu'il levait le sceau sur sa culture pour atteindre le stade du Briseur du Nirvana qu'il aurait une chance!
 
 Cependant, il était évident que rien de tout cela n'était possible.
 

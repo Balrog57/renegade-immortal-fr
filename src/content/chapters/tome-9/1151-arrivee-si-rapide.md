@@ -104,7 +104,7 @@ Le singe noir changea brusquement de trajectoire pour foncer vers les huit crân
 
 Simultanément, la main droite de Wang Lin forma un sceau et pointa vers l'avant. Un vent noir apparut instantanément et se mua en dragons sombres qui chargèrent la vieille femme.
 
-Le niveau de culture de la vieille femme était identique à celui de Song Wude, au stade intermédiaire du Purificateur de Nirvana. Cependant, sa culture du poison la rendait extrêmement puissante, bien supérieure à celle de Song Wude. Voyant le vent noir approcher, elle forma aussitôt un sceau et expira trois bouffées d'air!
+Le niveau de culture de la vieille femme était identique à celui de Song Wude, au stade intermédiaire du Purificateur du Nirvana. Cependant, sa culture du poison la rendait extrêmement puissante, bien supérieure à celle de Song Wude. Voyant le vent noir approcher, elle forma aussitôt un sceau et expira trois bouffées d'air!
 
 La première se transforma en un brouillard rouge qui se propagea rapidement. Elle entra en collision avec le vent noir dans un grondement assourdissant.
 

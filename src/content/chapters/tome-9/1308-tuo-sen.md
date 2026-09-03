@@ -12,17 +12,17 @@ Même l'âme originelle du cultivateur fut complètement dévorée.
 
 Son cri lugubre, poussé juste avant la mort, résonna dans l'espace silencieux et se propagea très loin.
 
-Alors que ces cultivateurs du Royaume Extérieur étaient encore sous le choc, un vieil homme au sommet du stade de Briseur de Nirvana rugit brusquement: « Formez une formation! » Les cultivateurs se retirèrent instantanément, leurs mains traçant des sceaux. Diverses marques commencèrent à scintiller entre leurs sourcils.
+Alors que ces cultivateurs du Royaume Extérieur étaient encore sous le choc, un vieil homme au sommet du stade de Briseur du Nirvana rugit brusquement: « Formez une formation! » Les cultivateurs se retirèrent instantanément, leurs mains traçant des sceaux. Diverses marques commencèrent à scintiller entre leurs sourcils.
 
 Pourtant, sitôt le cri du vieil homme poussé, son expression changea radicalement et il battit en retraite précipitamment. Le brouillard noir qui avait absorbé le cultivateur précédent fondit sur lui. Après quelques secondes, le brouillard disparut sans laisser de trace!
 
-Sans hésiter, le vieil homme au sommet du stade de Briseur de Nirvana fit jaillir toute l'énergie originelle de son corps dans une explosion violente. Une onde de choc, prenant son corps pour centre, se propagea rapidement.
+Sans hésiter, le vieil homme au sommet du stade de Briseur du Nirvana fit jaillir toute l'énergie originelle de son corps dans une explosion violente. Une onde de choc, prenant son corps pour centre, se propagea rapidement.
 
 « Cet homme est gravement blessé. Si nous dispersons notre énergie, il ne pourra pas s'approcher... » Cependant, avant qu'il n'ait pu achever sa phrase, le brouillard noir apparut dans le vide derrière lui. À l'intérieur de ce brouillard, une paire d'yeux contenait des éclairs rouges. C'était le Domaine Ji. En un éclair, l'atmosphère devint aussi glaciale qu'une nuit d'hiver la plus sombre!
 
 Les éclairs rouges captèrent les regards de tous les cultivateurs présents. Le Domaine Ji rouge sang devint l'unique obsession de leurs esprits!
 
-En particulier, les pupilles du vieil homme au sommet du stade de Briseur de Nirvana se rétractèrent en reflétant ces éclairs. La foudre jaillit du brouillard noir et chargea le vieil homme.
+En particulier, les pupilles du vieil homme au sommet du stade de Briseur du Nirvana se rétractèrent en reflétant ces éclairs. La foudre jaillit du brouillard noir et chargea le vieil homme.
 
 Le vieil homme poussa un rugissement; sa main droite traça un sceau tandis qu'il frappait l'air tout en reculant. Sa main gauche tendue vers le vide fit apparaître soudainement devant lui un bouclier arborant un visage étrange.
 
@@ -30,7 +30,7 @@ Il n'avait jamais ressenti une crise de mort aussi imminente; il était totaleme
 
 À cet instant, les étoiles, les cieux et les cultivatrices alentour disparurent. La seule chose subsistant dans les yeux du vieil homme était l'éclair rouge qui approchait à une vitesse fulgurante.
 
-Sa main droite concentrait toute sa culture de Briseur de Nirvana; alors qu'il frappait, de puissantes vagues d'énergie originelle furent projetées. Elles se transformèrent en divers sorts pour intercepter la foudre, mais les éclairs rouges étaient bien plus puissants que tout ce que l'on aurait pu imaginer!
+Sa main droite concentrait toute sa culture de Briseur du Nirvana; alors qu'il frappait, de puissantes vagues d'énergie originelle furent projetées. Elles se transformèrent en divers sorts pour intercepter la foudre, mais les éclairs rouges étaient bien plus puissants que tout ce que l'on aurait pu imaginer!
 
 Un grondement tonitruant retentit en un instant. Les sorts du vieil homme n'étaient même pas de taille pour arrêter les éclairs rouges et s'effondrèrent instantanément. La foudre les percuta tous et fondit sur le bouclier au visage étrange!
 

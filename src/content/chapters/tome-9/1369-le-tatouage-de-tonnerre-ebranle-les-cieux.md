@@ -88,7 +88,7 @@ Les trésors et les sorts entrèrent en collision avec ces innombrables montagne
 
 Pour certains, l'âme originelle se désintégra complètement!
 
-Cependant, si cela avait été tout, cela n'aurait pas révélé la véritable envergure de Wang Lin. Bien qu'il fût blessé, il l'avait été par la Grande Porte du Vide; sa culture du tonnerre devait atteindre le sommet du Briseur de Nirvana pour pouvoir invoquer une telle porte. Les cultivateurs ordinaires ne valaient pas grand-chose à ses yeux!
+Cependant, si cela avait été tout, cela n'aurait pas révélé la véritable envergure de Wang Lin. Bien qu'il fût blessé, il l'avait été par la Grande Porte du Vide; sa culture du tonnerre devait atteindre le sommet du Briseur du Nirvana pour pouvoir invoquer une telle porte. Les cultivateurs ordinaires ne valaient pas grand-chose à ses yeux!
 
 « Montagnes de tonnerre, contenez mon tonnerre et transformez-vous en tonnerre de scellement pour emprisonner tous ces individus. Bien que cela ne suffise pas à les enfermer à vie, c'est assez pour me permettre de partir! » Wang Lin sourit et d'un geste de la main, un tonnerre infini fusionna avec les innombrables montagnes.
 

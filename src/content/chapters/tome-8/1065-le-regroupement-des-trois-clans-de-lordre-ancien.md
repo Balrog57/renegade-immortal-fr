@@ -56,7 +56,7 @@ Le démon ancestral jura, mais sans ralentir, il chargea lui aussi vers les haut
 
 Master Void avait cultivé pendant de nombreuses années. Bien que son esprit eût été troublé par l'arrivée précoce du premier Fléau Céleste, il était d'une clarté sans précédent à cet instant. Lorsque le ciel s'effondra, il cracha du sang et utilisa l'Évasion Sanguine pour se précipiter dans le magma. Il fit fi de la température extrême et des blessures infligées par la bataille entre les trois membres de l'Ordre Ancien. En s'engouffrant dans la lave, il n'eut même pas le temps de songer à en vouloir à Wang Lin; sa seule priorité était de fuir cet endroit.
 
-En chemin, ses blessures s'aggravèrent et son niveau de culture chuta du stade de Briseur de Nirvana au sommet du Nettoyeur de Nirvana. Un sentiment d'inquiétude oppressant envahit son esprit, faisant ressembler l'autrefois puissant Master Void à un dieu errant.
+En chemin, ses blessures s'aggravèrent et son niveau de culture chuta du stade de Briseur du Nirvana au sommet du Purificateur du Nirvana. Un sentiment d'inquiétude oppressant envahit son esprit, faisant ressembler l'autrefois puissant Master Void à un dieu errant.
 
 Lorsque Wang Lin atteignit le septième étage, une lave infinie s'abattit sur lui. Son corps reprit rapidement sa forme ordinaire. Le visage pâle, il cracha du sang tandis que des douleurs fulgurantes le déchiraient. Il ne put s'empêcher de ralentir légèrement. Bien qu'il fût sous sa forme de Dieu Ancestral, il restait gravement blessé par l'énergie de la lame malgré la présence de la Lance Tueuse de Dieux.
 
@@ -86,7 +86,7 @@ Simultanément, dans l'espace infini où se trouvait la poussière abritant la T
 
 Cet Oiseau Vermillon était doté d'une intelligence. Contre toute attente, il ne se dirigeait pas vers l'entrée de la Mer des Esprits Démoniaques de l'Est, mais vers la véritable localisation de la Terre des Esprits Démoniaques!
 
-Une multitude de cultivateurs suivaient cet Oiseau Vermillon, parmi lesquels se trouvaient six Anciens. Ces derniers portaient tous des robes rouges et dégageaient chacun une aura puissante. Tous étaient des cultivateurs au stade du Briseur de Nirvana!
+Une multitude de cultivateurs suivaient cet Oiseau Vermillon, parmi lesquels se trouvaient six Anciens. Ces derniers portaient tous des robes rouges et dégageaient chacun une aura puissante. Tous étaient des cultivateurs au stade du Briseur du Nirvana!
 
 « Selon les recherches avec l'esprit véritable, c'est ici que se trouve la personne qui s'est éveillée, et c'est aussi le lieu de ce mystérieux sentiment de danger. Ce voyage pourrait être extrêmement périlleux, mais même si je dois tout risquer, je dois protéger celui qui s'est éveillé! » Les six Anciens échangèrent des regards empreints de détermination. Tous les autres membres de la Secte Divine de l'Oiseau Vermillon affichaient la même résolution!
 

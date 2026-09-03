@@ -48,7 +48,7 @@ C'était comme si cet endroit était une zone interdite aux cultivateurs!
 
 Au sein de l'Alliance, seuls ceux dont le statut et la culture atteignaient un certain niveau savaient qu'il y a bien longtemps, avant l'effondrement des Royaumes Célestes, un événement cataclysmique s'était produit ici, manquant de peu de briser les Royaumes Célestes eux-mêmes!
 
-Nul ne savait si ce vide avait une fin. Même les cultivateurs au sommet du stade de Briseur de Nirvana ne pouvaient y progresser très longtemps. Après tout, quelle que soit la quantité d'énergie originelle dont ils disposaient, elle finirait par s'épuiser.
+Nul ne savait si ce vide avait une fin. Même les cultivateurs au sommet du stade de Briseur du Nirvana ne pouvaient y progresser très longtemps. Après tout, quelle que soit la quantité d'énergie originelle dont ils disposaient, elle finirait par s'épuiser.
 
 C'était comme si ce vide fonctionnait tel une formation naturelle d'isolation de l'énergie originelle; un espace totalement scellé empêchant les cultivateurs de le briser pour explorer plus profondément.
 

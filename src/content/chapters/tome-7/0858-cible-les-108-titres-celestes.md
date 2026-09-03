@@ -18,7 +18,7 @@ Wang Lin regarda la silhouette de Qing Shui s'éloigner et réfléchit longuemen
 
 « Cette personne doit être un cultivateur du troisième niveau. Un tel être incroyable existe donc au sein du Système Stellaire d'Allheaven... » Wang Lin se dirigea rapidement vers le lieu où se trouvait la famille de Li Yuan.
 
-« J'ignore seulement s'il existe un cultivateur du troisième niveau dans le Système Stellaire de l'Alliance... Cette personne est trop puissante, même un cultivateur Briseur de Nirvana ne pourrait lui résister... » La silhouette de Wang Lin fendit les étoiles, ses yeux brillant d'un éclat singulier.
+« J'ignore seulement s'il existe un cultivateur du troisième niveau dans le Système Stellaire de l'Alliance... Cette personne est trop puissante, même un cultivateur Briseur du Nirvana ne pourrait lui résister... » La silhouette de Wang Lin fendit les étoiles, ses yeux brillant d'un éclat singulier.
 
 « Cependant, j'ai pu percevoir la direction du troisième niveau grâce à la Perle Défiant le Ciel... » Les yeux de Wang Lin brillèrent davantage alors qu'il traversait l'espace en utilisant la Déformation Spatiale.
 

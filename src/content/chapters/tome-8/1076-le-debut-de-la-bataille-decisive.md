@@ -54,7 +54,7 @@ Presque instantanément, le sol sur cinquante kilomètres se brisa et s'éleva v
 
 L'expression de Wang Lin était sombre. La terre continuait de trembler et la zone était enveloppée d'un brouillard noir et blanc qui entravait tant la vue que le Sens Divin.
 
-L'Ancien Démon Ta Jia se déplaça avec une rapidité fulgurante. Les six anciens du niveau Briseur de Nirvana de la Secte Divine de l'Oiseau Vermillon devinrent graves et s'élancèrent promptement. Leurs mains formèrent des sceaux, faisant jaillir une mer de flammes qui balaya l'espace devant eux.
+L'Ancien Démon Ta Jia se déplaça avec une rapidité fulgurante. Les six anciens du niveau Briseur du Nirvana de la Secte Divine de l'Oiseau Vermillon devinrent graves et s'élancèrent promptement. Leurs mains formèrent des sceaux, faisant jaillir une mer de flammes qui balaya l'espace devant eux.
 
 Ta Jia ricana et fit tournoyer la lame qu'il tenait. L'énergie tranchante fendit l'air et repoussa la mer de feu; sous cette pression, les flammes furent littéralement scindées en deux!
 

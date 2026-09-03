@@ -86,7 +86,7 @@ Une énergie d'origine infinie se rassembla instantanément pour pénétrer chaq
 
 Les trois frères Chen levèrent les yeux vers le ciel, stupéfaits.
 
-Maître Yi Chen eut un souffle court et murmura: « Ce genre de sort... est une technique que seuls les cultivateurs du Purificateur de Nirvana peuvent utiliser! »
+Maître Yi Chen eut un souffle court et murmura: « Ce genre de sort... est une technique que seuls les cultivateurs du Purificateur du Nirvana peuvent utiliser! »
 
 Les yeux de Wang Lin s'illuminèrent et il fit un geste de la main. Un grondement sourd émana de toutes les gouttes de pluie figées, qui se rassemblèrent autour de lui. En un clin d'œil, elles formèrent un immense vortex.
 

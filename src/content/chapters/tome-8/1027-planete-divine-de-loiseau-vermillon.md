@@ -10,7 +10,7 @@ Au plus profond de l'Alliance, il existait quelques endroits que même l'Allianc
 
 Quiconque y pénétrait s'exposait à une mort certaine, sans aucune chance de survie. Même les cultivateurs du stade de Purificateur du Nirvana n'oseraient même pas y poser le pied.
 
-Seuls ceux ayant atteint le stade de Briseur de Nirvana avaient le courage d'y entrer. Et encore, ils devaient faire preuve d'une prudence extrême, car la moindre erreur signifiait la mort.
+Seuls ceux ayant atteint le stade de Briseur du Nirvana avaient le courage d'y entrer. Et encore, ils devaient faire preuve d'une prudence extrême, car la moindre erreur signifiait la mort.
 
 Ces zones étaient appelées les Zones Interdites au sein de l'Alliance! Tous ceux qui avaient atteint la deuxième étape de la Culture connaissaient certains de ces endroits.
 
@@ -124,7 +124,7 @@ C'était la Transformation de l'Oiseau Vermillon! La première depuis leur défa
 
 Cela signifiait qu'un membre de la Lignée de l'Oiseau Vermillon avait éveillé sa Marque et pourrait potentiellement devenir le prochain Empereur Divin de l'Oiseau Vermillon. C'était l'unique moyen pour que la Transformation se produise et invoque le véritable esprit de l'Oiseau Vermillon, disparu depuis des dizaines de milliers d'années!
 
-À cet instant, neuf individus enveloppés de rayons rouge pourpre s'élancèrent depuis les neuf planètes; chacun d'eux était au stade de Briseur de Nirvana. Ils étaient venus pour cette Transformation!
+À cet instant, neuf individus enveloppés de rayons rouge pourpre s'élancèrent depuis les neuf planètes; chacun d'eux était au stade de Briseur du Nirvana. Ils étaient venus pour cette Transformation!
 
 Lorsque les neuf se rapprochèrent de l'esprit de l'Oiseau Vermillon, celui-ci poussa un autre cri. Ce cri se mua en d'innombrables ondulations qui parcoururent le champ stellaire, poussant avec lui des masses colossales de flammes.
 

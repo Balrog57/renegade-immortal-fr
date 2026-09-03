@@ -16,13 +16,13 @@ Wang Lin regarda Xu Liguo et dit calmement: « Cet endroit est bien plus dangere
 
 En apparence, cependant, Xu Liguo n'osa révéler aucune de sa colère et fut remis dans le sac par Wang Lin.
 
-Le corps de Wang Lin vacillait alors qu'il se déplaçait à travers le Serpent Lunaire. Son Sens Divin entourait son corps et il avançait avec une extrême prudence. Pourtant, il ne cessait jamais de bouger, laissant presque des images rémanentes derrière lui.
+Le corps de Wang Lin vacillait alors qu'il se déplaçait à travers le Serpent aux yeux de lune. Son Sens Divin entourait son corps et il avançait avec une extrême prudence. Pourtant, il ne cessait jamais de bouger, laissant presque des images rémanentes derrière lui.
 
-Wang Lin connaissait très bien le Serpent Lunaire; il pouvait donc se diriger vers l'endroit voulu sans réfléchir. Si c'était dans le passé, Wang Lin ne se serait pas déplacé ainsi. Après tout, il y avait autrefois un grand nombre de petits Serpents Lunaires à l'intérieur.
+Wang Lin connaissait très bien le Serpent aux yeux de lune; il pouvait donc se diriger vers l'endroit voulu sans réfléchir. Si c'était dans le passé, Wang Lin ne se serait pas déplacé ainsi. Après tout, il y avait autrefois un grand nombre de petits Serpents aux yeux de lune à l'intérieur.
 
-Cependant, ces petits Serpents Lunaires étaient tous morts. Par conséquent, le danger au sein du Serpent Lunaire avait considérablement diminué.
+Cependant, ces petits Serpents aux yeux de lune étaient tous morts. Par conséquent, le danger au sein du Serpent aux yeux de lune avait considérablement diminué.
 
-Alors qu'il progressait, l'expression de Wang Lin devint sombre. Dès son entrée dans le Serpent Lunaire, il avait remarqué que quelque chose n'allait pas, au moment même où la créature traversa le vortex.
+Alors qu'il progressait, l'expression de Wang Lin devint sombre. Dès son entrée dans le Serpent aux yeux de lune, il avait remarqué que quelque chose n'allait pas, au moment même où la créature traversa le vortex.
 
 Bien qu'il n'y ait pas eu beaucoup d'énergie originelle ici auparavant, il pouvait au moins en ressentir un peu. Cependant, à présent, il ne pouvait absolument rien détecter.
 
@@ -30,7 +30,7 @@ Son cœur sombra. Si cela avait été le seul problème, il ne s'en serait pas s
 
 Cette découverte le choqua grandement. Il vérifia rapidement et découvrit que l'énergie ne disparaissait pas, mais qu'elle était supprimée par une force invisible. Cette suppression agissait comme un sceau et, bien que lente, si il restait ici assez longtemps, elle scellerait totalement toute son énergie originelle.
 
-« Cela n'a rien à voir avec le Serpent Lunaire, cela a tout à voir avec l'endroit où il se trouve. Si l'intérieur du Serpent Lunaire est ainsi, je crains que mon énergie originelle ne disparaisse encore plus vite à l'extérieur! »
+« Cela n'a rien à voir avec le Serpent aux yeux de lune, cela a tout à voir avec l'endroit où il se trouve. Si l'intérieur du Serpent aux yeux de lune est ainsi, je crains que mon énergie originelle ne disparaisse encore plus vite à l'extérieur! »
 
 Les yeux de Wang Lin s'illuminèrent; sa main droite se serra en un poing et il décocha un coup. Un instant plus tard, ses yeux brillèrent d'un éclat vif.
 
@@ -40,13 +40,13 @@ Tout en réfléchissant, Wang Lin chargea droit devant.
 
 « Ce sceau est similaire aux talismans du Clan des Immortels Délaissés... » Les yeux de Wang Lin s'illuminèrent alors qu'il contrôlait soigneusement l'énergie originelle dans son corps. Un moment plus tard, il arriva près de l'endroit où se trouvait l'os.
 
-Après avoir jeté un coup d'œil, l'expression de Wang Lin devint sérieuse. L'os du Serpent Lunaire émettait à l'origine une immense quantité d'énergie spirituelle; cependant, tout cela avait disparu.
+Après avoir jeté un coup d'œil, l'expression de Wang Lin devint sérieuse. L'os du Serpent aux yeux de lune émettait à l'origine une immense quantité d'énergie spirituelle; cependant, tout cela avait disparu.
 
-« Il semble que le sceau ne supprime pas seulement l'énergie originelle, mais aussi l'énergie spirituelle! Tout ce qui peut être absorbé par les cultivateurs sera scellé! Cependant, j'ai le corps d'un Ancien Dieu, cela n'a donc aucune importance pour moi! » Les yeux de Wang Lin brillèrent de froideur alors qu'il suivait la trace de l'os du Serpent Lunaire.
+« Il semble que le sceau ne supprime pas seulement l'énergie originelle, mais aussi l'énergie spirituelle! Tout ce qui peut être absorbé par les cultivateurs sera scellé! Cependant, j'ai le corps d'un Ancien Dieu, cela n'a donc aucune importance pour moi! » Les yeux de Wang Lin brillèrent de froideur alors qu'il suivait la trace de l'os du Serpent aux yeux de lune.
 
 « Puisque cet endroit a un tel effet sur les cultivateurs, il en sera de même pour les autres. Ainsi, plus nous resterons ici, plus mon avantage sera grand! » Wang Lin resta collé à l'os et se dirigea droit vers l'endroit où il avait trouvé l'enfant Ancien Dieu.
 
-Alors qu'il avançait, un grondement sourd et des tremblements violents survinrent devant lui. Dès que les secousses commencèrent, Wang Lin sentit son équilibre devenir instable, comme si le Serpent Lunaire était en mouvement.
+Alors qu'il avançait, un grondement sourd et des tremblements violents survinrent devant lui. Dès que les secousses commencèrent, Wang Lin sentit son équilibre devenir instable, comme si le Serpent aux yeux de lune était en mouvement.
 
 Wang Lin progressa tout en restant accroché à la paroi de chair. Le bruit s'intensifia et des ondes de choc provenant de sorts frappaient occasionnellement, forçant Wang Lin à s'arrêter.
 
@@ -54,9 +54,9 @@ Son expression était hésitante, puis, un instant plus tard, il pénétra dans 
 
 Son Sens Divin s'étendit et il observa attentivement ses environs. Un moment plus tard, le Sens Divin de Wang Lin se rétracta et cessa de s'étendre dans la paroi de chair; au lieu de cela, il scruta attentivement l'extérieur de celle-ci.
 
-Après inspection, Wang Lin recula sans hésiter jusqu'à se retrouver à nouveau près de l'os du Serpent Lunaire. Ses yeux pétillèrent alors qu'il pensait: « Je ne suis pas de taille face à ceux qui sont entrés, mais j'ai aussi mes avantages. Plus ils consommeront d'énergie originelle, plus mon avantage sera grand! »
+Après inspection, Wang Lin recula sans hésiter jusqu'à se retrouver à nouveau près de l'os du Serpent aux yeux de lune. Ses yeux pétillèrent alors qu'il pensait: « Je ne suis pas de taille face à ceux qui sont entrés, mais j'ai aussi mes avantages. Plus ils consommeront d'énergie originelle, plus mon avantage sera grand! »
 
-L'endroit que Wang Lin avait aperçu grâce à son Sens Divin était une zone ouverte d'environ mille pieds de large. Bien que cette zone fût remplie de Serpents Lunaires, tous étaient en pleine retraite.
+L'endroit que Wang Lin avait aperçu grâce à son Sens Divin était une zone ouverte d'environ mille pieds de large. Bien que cette zone fût remplie de Serpents aux yeux de lune, tous étaient en pleine retraite.
 
 Et deux personnes s'y trouvaient.
 
@@ -76,7 +76,7 @@ Il posa son regard sur la bulle et dit calmement: « Peu m'importe ce que fait l
 
 Yi Muzi eut une expression sombre et laissa échapper un renflement glacial avant de s'avancer. Sa main droite traça un sceau et une gigantesque bûche apparut devant lui. Cette énorme pièce de bois occupa tout l'espace disponible et s'élança avec fracas.
 
-« Je ne peux pas gaspiller trop d'énergie originelle ici, je dois terminer ce combat rapidement. Ensuite, j'irai au plus profond du Serpent Lunaire pour accomplir la tâche confiée par le Grand Ancien! »
+« Je ne peux pas gaspiller trop d'énergie originelle ici, je dois terminer ce combat rapidement. Ensuite, j'irai au plus profond du Serpent aux yeux de lune pour accomplir la tâche confiée par le Grand Ancien! »
 
 La bûche géante devant le vieil homme en robe verte chargea. À cet instant, Wudo Chan agita la main et la bulle aux cinq couleurs s'envola pour percuter l'énorme bloc de bois.
 
@@ -96,7 +96,7 @@ Wudo Chan était encerclé par la brume verte, mais seulement trois respirations
 
 L'explosion de chaque bulle dissipait une partie de la brume verte. Après trois respirations, toute la brume avait disparu. Il regarda l'ouverture par laquelle Yi Muzi s'était engouffré et esquissa un sourire. D'un pas décidé, il chargea à son tour dans le trou.
 
-Wang Lin, posté près de l'os du Serpent Lunaire, décida de s'asseoir. Il frappa son sac de rangement et une épée en sortit. Les mains de Wang Lin formèrent un sceau, et il divisa une partie de son Sens Divin pour l'injecter dans l'épée. Il pointa du doigt et l'arme s'élança droit devant.
+Wang Lin, posté près de l'os du Serpent aux yeux de lune, décida de s'asseoir. Il frappa son sac de rangement et une épée en sortit. Les mains de Wang Lin formèrent un sceau, et il divisa une partie de son Sens Divin pour l'injecter dans l'épée. Il pointa du doigt et l'arme s'élança droit devant.
 
 Le Sens Divin de Wang Lin enveloppait l'épée qui continuait d'avancer lentement. Elle pénétra sans hésiter dans le trou et poursuivit sa route.
 

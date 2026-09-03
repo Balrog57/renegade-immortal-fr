@@ -17,13 +17,13 @@ Son visage se couvrit d'une expression d'indignation. Personne ne trouverait cel
 
 Cependant, alors que les huit disciples principaux se rapprochaient et que Wang Lin ordonnait au singe noir de bouger comme s'il allait les suivre, une intention meurtrière brilla dans ses yeux! Il ne pouvait pas retourner sur le continent sauvage; y retourner signifierait la mort!
 
-Sur les dix-huit cultivateurs, celui qui menait se trouvait au stade de Briseur de Nirvana, mais le niveau de culture le plus élevé des dix-sept autres n'était que celui du début du stade de Purificateur de Nirvana!
+Sur les dix-huit cultivateurs, celui qui menait se trouvait au stade de Briseur du Nirvana, mais le niveau de culture le plus élevé des dix-sept autres n'était que celui du début du stade de Purificateur du Nirvana!
 
 Dès qu'il attaquerait, il devrait achever cela en un temps record. D'autres cultivateurs approchaient visiblement, il devait donc terminer rapidement! Et il ne pouvait laisser aucun survivant!
 
 Wang Lin leva la tête et fit un pas en avant tout en agitant la main. « Apparition du Vent » surgit et se transforma en cinq dragons qui chargèrent vers cinq des individus environnants! Au même moment, le singe noir agita ses bras et lança son assaut.
 
-Wang Lin se déplaça comme l'éclair et arriva immédiatement près du cultivateur au stade de Scryer de Nirvana. Il était bien plus rapide que ce dernier. Les pupilles du cultivateur se rétractèrent; il voulut esquiver, mais sa vision fut aussitôt obscurcie par un doigt. Ce doigt percuta rapidement le cultivateur entre les sourcils avant de se retirer, laissant derrière lui un trou sanglant. La puissance d'un cultivateur au stade de Purificateur de Nirvana pénétra dans son corps et écrasa son âme originelle.
+Wang Lin se déplaça comme l'éclair et arriva immédiatement près du cultivateur au stade du Scruteur du Nirvana. Il était bien plus rapide que ce dernier. Les pupilles du cultivateur se rétractèrent; il voulut esquiver, mais sa vision fut aussitôt obscurcie par un doigt. Ce doigt percuta rapidement le cultivateur entre les sourcils avant de se retirer, laissant derrière lui un trou sanglant. La puissance d'un cultivateur au stade de Purificateur du Nirvana pénétra dans son corps et écrasa son âme originelle.
 
 Wang Lin ne marqua aucune pause et se mouva avec la fluidité de l'eau. Après en avoir tué un, il chargea un autre et pointa le corps du cultivateur à plusieurs reprises. Des bruits de déchirement résonnèrent et le sang jaillit de toutes parts.
 
@@ -33,13 +33,13 @@ Par la même occasion, les deux autres tués par Wang Lin explosèrent égalemen
 
 Noble Money, qui s'éloignait, se retourna soudainement, frappé par le choc. Cependant, cette stupeur se mua rapidement en férocité alors qu'il chargeait vers Wang Lin.
 
-L'expression de Wang Lin était neutre mais empreinte d'amertume. Son corps originel n'était pas ici; à moins d'y être contraint, pourquoi provoquerait-il un cultivateur au stade de Briseur de Nirvana? Pourtant, il n'avait pas le temps de réfléchir, car il avait déjà tué huit personnes. Wang Lin s'élança rapidement. Il devait éliminer tous ceux qui entouraient le Briseur de Nirvana au plus vite. Autrement, si l'un d'eux s'échappait, il lui serait difficile de faire le moindre pas dans le Système Stellaire de la Mer de Nuages!
+L'expression de Wang Lin était neutre mais empreinte d'amertume. Son corps originel n'était pas ici; à moins d'y être contraint, pourquoi provoquerait-il un cultivateur au stade de Briseur du Nirvana? Pourtant, il n'avait pas le temps de réfléchir, car il avait déjà tué huit personnes. Wang Lin s'élança rapidement. Il devait éliminer tous ceux qui entouraient le Briseur du Nirvana au plus vite. Autrement, si l'un d'eux s'échappait, il lui serait difficile de faire le moindre pas dans le Système Stellaire de la Mer de Nuages!
 
-Cependant, les neuf survivants, ainsi que le Briseur de Nirvana, réalisèrent immédiatement ce plan et se dispersèrent. Noble Money chargea en avant et projeta un rayon de lumière noire pour bloquer la progression de Wang Lin!
+Cependant, les neuf survivants, ainsi que le Briseur du Nirvana, réalisèrent immédiatement ce plan et se dispersèrent. Noble Money chargea en avant et projeta un rayon de lumière noire pour bloquer la progression de Wang Lin!
 
 Une lueur glaciale brilla dans les yeux de Wang Lin tandis que sa main droite traçait un sceau; des filaments d'énergie de massacre jaillirent de son corps, se condensant en plusieurs couches de défense, avant que Wang Lin ne fonce!
 
-En s'élançant, il eut l'impression de percuter l'univers lui-même, et les filaments d'énergie de massacre autour de lui s'effondrèrent tous. Les sorts d'un Briseur de Nirvana ne pouvaient être sous-estimés. Toute l'énergie de massacre se dissipa instantanément et une force puissante s'engouffra dans le corps de Wang Lin, le faisant cracher une bouchée de sang.
+En s'élançant, il eut l'impression de percuter l'univers lui-même, et les filaments d'énergie de massacre autour de lui s'effondrèrent tous. Les sorts d'un Briseur du Nirvana ne pouvaient être sous-estimés. Toute l'énergie de massacre se dissipa instantanément et une force puissante s'engouffra dans le corps de Wang Lin, le faisant cracher une bouchée de sang.
 
 Néanmoins, il parvint à sortir de la lumière noire. Alors que Noble Money se rapprochait, il chargea vers les neuf personnes qui fuyaient. Des flammes jaillirent de son œil gauche et, d'un revers de main, il fit apparaître une mer de feu. Trois personnes furent piégées dans cet océan de flammes; elles hurlèrent instantanément avant d'être réduites en cendres. Les six autres pâlirent et battirent en retraite précipitamment. Le visage de Wang Lin était livide, mais il s'apprêtait déjà à les poursuivre.
 
@@ -63,7 +63,7 @@ Comment Wang Lin pouvait-il laisser cet homme s'enfuir? Sa main droite plongea d
 
 Une lueur argentée émana de l'espace de stockage et le cadavre féminin argenté apparut. Elle n'aida pas à attaquer Noble Money, mais se dirigea vers les esprits des bêtes sauvages qui venaient de perdre leurs maîtres.
 
-Tout cela se produisit en quelques respirations. Tuer tous les cultivateurs présents, hormis Noble Money, était une tâche ardue, même pour Wang Lin. Pourtant, il ne pouvait se relâcher, car le Briseur de Nirvana qui se tenait devant lui représentait le péril le plus grand! La raison pour laquelle il voulait éliminer les autres cultivateurs d'abord, outre le risque qu'ils s'échappent, était de s'assurer qu'ils n'interféreraient pas dans ce duel. Pour vaincre ce Briseur de Nirvana, il devait être totalement concentré, sans la moindre perturbation. Ce serait sa seule chance!
+Tout cela se produisit en quelques respirations. Tuer tous les cultivateurs présents, hormis Noble Money, était une tâche ardue, même pour Wang Lin. Pourtant, il ne pouvait se relâcher, car le Briseur du Nirvana qui se tenait devant lui représentait le péril le plus grand! La raison pour laquelle il voulait éliminer les autres cultivateurs d'abord, outre le risque qu'ils s'échappent, était de s'assurer qu'ils n'interféreraient pas dans ce duel. Pour vaincre ce Briseur du Nirvana, il devait être totalement concentré, sans la moindre perturbation. Ce serait sa seule chance!
 
 « Si mon corps originel était ici, tuer cet homme serait plus facile », pensa Wang Lin. Alors qu'il parlait, sa main droite pointa vers les dix-huit Tampons Célestes de Scellement de l'Enfer. Dans un éclat de lumière, les fragments d'âmes jaillirent des dix-huit couches de l'enfer. Les âmes les plus puissantes à l'intérieur étaient Maître Vide et celle issue de la fusion des deux avatars de l'Omniscient! Ils étaient les atouts de Wang Lin, et dès leur apparition, une énergie glaciale enveloppa la zone.
 
@@ -73,4 +73,4 @@ Wang Lin pointa du doigt Maître Vide et l'âme de l'Omniscient qui chargèrent.
 
 Ses yeux étaient injectés de sang alors que sa main droite plongeait dans le vide. Tandis que Maître Vide et l'Omniscient s'élançaient, il sortit l'épée de fer! Au moment où l'épée apparut, les étoiles tremblèrent et la brume environnante se mit à tourbillonner. C'était comme si une force colossale venait d'émerger pour repousser le brouillard stellaire.
 
-« Pseudo-Nirvana Vide! » Les yeux de Noble Money se rétractèrent. Si les âmes mortes l'avaient surpris, l'apparition de cette épée de fer le laissa incrédule. Une cupidité intense envahit son regard alors qu'il s'élançait, faisant éclater sa culture de Briseur de Nirvana. Un Briseur de Nirvana était bien plus puissant qu'un Purificateur de Nirvana; c'était donc une lutte acharnée pour Wang Lin. Non seulement il devait gagner, mais il devait le faire avec une rapidité absolue!
+« Pseudo-Nirvana Vide! » Les yeux de Noble Money se rétractèrent. Si les âmes mortes l'avaient surpris, l'apparition de cette épée de fer le laissa incrédule. Une cupidité intense envahit son regard alors qu'il s'élançait, faisant éclater sa culture de Briseur du Nirvana. Un Briseur du Nirvana était bien plus puissant qu'un Purificateur du Nirvana; c'était donc une lutte acharnée pour Wang Lin. Non seulement il devait gagner, mais il devait le faire avec une rapidité absolue!

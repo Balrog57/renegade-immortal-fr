@@ -88,7 +88,7 @@ Ce n'est qu'une fois la barrière franchie que Feng Peishan et Zhao Yu poussère
 
 Feng Peishan demanda: « Camarade cultivateur Zhou, veuillez essayer de décrire en détail comment cet aîné a attaqué après votre entrée dans la cour sud. »
 
-Zhou Hai ressentait encore un effroi profond. Après un moment de silence, il répondit: « La culture de cet aîné est au moins au stade intermédiaire du Briseur de Nirvana ou supérieur. Je ne l'ai pas vu attaquer. Dès que je suis entré dans la cour sud, j'ai senti une énergie d'origine inimaginable se concentrer en une paume qui s'est abattue sur ma poitrine. » En disant cela, il regarda son torse; l'empreinte de la paume était toujours noire.
+Zhou Hai ressentait encore un effroi profond. Après un moment de silence, il répondit: « La culture de cet aîné est au moins au stade intermédiaire du Briseur du Nirvana ou supérieur. Je ne l'ai pas vu attaquer. Dès que je suis entré dans la cour sud, j'ai senti une énergie d'origine inimaginable se concentrer en une paume qui s'est abattue sur ma poitrine. » En disant cela, il regarda son torse; l'empreinte de la paume était toujours noire.
 
 Zhao Yu demanda soudainement: « S'agit-il d'une attaque empoisonnée? »
 

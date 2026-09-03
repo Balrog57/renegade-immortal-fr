@@ -40,7 +40,7 @@ Qing Shui n'hésita pas et fit un pas en avant lui aussi.
 
 À cet instant précis, Wang Lin serra les dents et cria depuis la distance: « Puisque l'Aîné a fini de raffiner la Formation Céleste, j'espère qu'il pourra me rendre ma Bête du Tonnerre! »
 
-Le Maître Flamesspark marqua une pause avant de se tourner vers Wang Lin avec un sourire. « Je dois encore utiliser ta Bête du Tonnerre pour un certain temps. Une fois le passage ouvert et notre entrée dans le Système Stellaire de l'Alliance effectuée, je te la rendrai. Tu es un être dont le destin est lié à ce vieil homme. Si tu parviens à quitter le Royaume Céleste du Tonnerre par tes propres forces et que tu atteins le Temple Céleste du Tonnerre en moins d'un an grâce à mon jeton, alors je t'offrirai une autre opportunité: je t'emmènerai avec moi dans le Système Stellaire de l'Alliance! »
+Le Maître Flamespark marqua une pause avant de se tourner vers Wang Lin avec un sourire. « Je dois encore utiliser ta Bête du Tonnerre pour un certain temps. Une fois le passage ouvert et notre entrée dans le Système Stellaire de l'Alliance effectuée, je te la rendrai. Tu es un être dont le destin est lié à ce vieil homme. Si tu parviens à quitter le Royaume Céleste du Tonnerre par tes propres forces et que tu atteins le Temple Céleste du Tonnerre en moins d'un an grâce à mon jeton, alors je t'offrirai une autre opportunité: je t'emmènerai avec moi dans le Système Stellaire de l'Alliance! »
 
 Tout en parlant, il frappa son sac de stockage et une corne d'un pouce, de couleur or et pourpre, s'envola immédiatement vers Wang Lin.
 

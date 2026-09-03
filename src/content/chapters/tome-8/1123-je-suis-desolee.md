@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1123 - Im Sorry
 slug: je-suis-desolee
 ---
-Lorsque Wang Lin regarda l'homme d'âge moyen, il ne put constater qu'une seule chose: cet homme était un cultivateur du niveau Briseur de Nirvana. Sans mot dire, la main droite de Wang Lin plongea dans le vide, saisit une pierre de jade et la lança.
+Lorsque Wang Lin regarda l'homme d'âge moyen, il ne put constater qu'une seule chose: cet homme était un cultivateur du niveau Briseur du Nirvana. Sans mot dire, la main droite de Wang Lin plongea dans le vide, saisit une pierre de jade et la lança.
 
 L'expression de l'homme resta calme alors qu'il la réceptionnait et déployait son sens divin. Cependant, il fut surpris. En raison de son niveau de culture, il ne parvint pas à percevoir le contenu de cette pierre de jade.
 

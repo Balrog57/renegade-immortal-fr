@@ -1,6 +1,6 @@
 ---
 n: 832
-title: La Joie des Serpents Lunaires
+title: La Joie des Serpents aux yeux de lune
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 832 - Moongazer Serpents Joy
@@ -8,17 +8,17 @@ slug: la-joie-des-serpents-lunaires
 ---
 Après avoir saisi l'âme originelle de Yao Yunhai, Wang Lin n'hésita pas à la placer dans le drapeau spirituel qu'il portait dans son sac. Sans s'arrêter, il disparut en un éclair.
 
-Le Serpent Lunaire, long de mille pieds, surgit de derrière lui et une aura glaciale emplit les environs. Après avoir cherché un instant, la créature ouvrit sa gueule et aspira toute l'aura résiduelle de Wang Lin. Tous les tentacules de son corps s'enroulèrent autour d'elle, comme si elle savourait ce moment.
+Le Serpent aux yeux de lune, long de mille pieds, surgit de derrière lui et une aura glaciale emplit les environs. Après avoir cherché un instant, la créature ouvrit sa gueule et aspira toute l'aura résiduelle de Wang Lin. Tous les tentacules de son corps s'enroulèrent autour d'elle, comme si elle savourait ce moment.
 
-Cependant, un instant plus tard, le Serpent Lunaire referma la gueule, tordit son corps et disparut dans la terre.
+Cependant, un instant plus tard, le Serpent aux yeux de lune referma la gueule, tordit son corps et disparut dans la terre.
 
-Au loin, les yeux de Wang Lin brillèrent d'une lueur étrange alors qu'il se dirigeait vers l'extrémité de l'os du Serpent Lunaire. Il fit preuve d'une grande prudence tout au long du chemin. Dès qu'il percevait une anomalie, il changeait rapidement de direction pour se cacher.
+Au loin, les yeux de Wang Lin brillèrent d'une lueur étrange alors qu'il se dirigeait vers l'extrémité de l'os du Serpent aux yeux de lune. Il fit preuve d'une grande prudence tout au long du chemin. Dès qu'il percevait une anomalie, il changeait rapidement de direction pour se cacher.
 
-Wang Lin songea: « Bien que l'intérieur du Serpent Lunaire soit dangereux, avec ma compréhension et tant que je reste prudent, il ne devrait y avoir aucun risque! Comparé à l'extérieur, cet endroit est bien plus sûr. »
+Wang Lin songea: « Bien que l'intérieur du Serpent aux yeux de lune soit dangereux, avec ma compréhension et tant que je reste prudent, il ne devrait y avoir aucun risque! Comparé à l'extérieur, cet endroit est bien plus sûr. »
 
-« Puisque c'est le cas, pourquoi ne pas rester caché à l'intérieur du serpent? De cette façon, si la famille Yao veut me tuer, ils devront d'abord affronter le Serpent Lunaire! » Un sourire froid apparut sur les lèvres de Wang Lin alors qu'il s'élançait rapidement.
+« Puisque c'est le cas, pourquoi ne pas rester caché à l'intérieur du serpent? De cette façon, si la famille Yao veut me tuer, ils devront d'abord affronter le Serpent aux yeux de lune! » Un sourire froid apparut sur les lèvres de Wang Lin alors qu'il s'élançait rapidement.
 
-Le Serpent Lunaire était trop vaste. Il était également impossible de se téléporter à l'intérieur et, compte tenu de la prudence nécessaire, bien que la vitesse de Wang Lin fût grande, elle restait limitée.
+Le Serpent aux yeux de lune était trop vaste. Il était également impossible de se téléporter à l'intérieur et, compte tenu de la prudence nécessaire, bien que la vitesse de Wang Lin fût grande, elle restait limitée.
 
 Alors qu'il avançait, son expression changea soudainement et il esquiva sur le côté sans hésiter. Au moment même de son mouvement, un cristal de glace bleu fendit l'air là où il se trouvait, tel un éclair.
 
@@ -66,7 +66,7 @@ L'âme originelle de Wang Lin fut ébranlée alors qu'il fixait Yao Bingyun qui 
 
 Le Coup Céleste apparut soudainement, mais il ne visa pas Yao Bingyun, plutôt une couche de boue sur le côté. La terre s'effondra dans un fracas retentissant.
 
-« Le Serpent Lunaire aime le silence et déteste le bruit! » Connaissant les habitudes de la créature, Wang Lin continua de bombarder les couches de boue adjacentes.
+« Le Serpent aux yeux de lune aime le silence et déteste le bruit! » Connaissant les habitudes de la créature, Wang Lin continua de bombarder les couches de boue adjacentes.
 
 Une pointe de dédain apparut dans les yeux de Yao Bingyun. Si elle avait été à l'extérieur, elle n'aurait pu le rattraper; elle admirait d'ailleurs grandement ce Xu Mu pour sa maîtrise de la Déformation Spatiale.
 
@@ -74,19 +74,19 @@ Cependant, ici, la téléportation et la fusion avec le monde étaient impossibl
 
 Pourtant, au moment où elle le rattrapa et qu'elle commença à former un sceau, elle remarqua que les yeux de Xu Mu étaient d'un calme absolu, sans la moindre trace de panique. Yao Bingyun fut surprise, mais n'eut pas le temps de réfléchir avant de lancer son attaque.
 
-À cet instant précis, une aura d'un froid inimaginable jaillit des couches de boue que Wang Lin attaquait. Un Serpent Lunaire de mille pieds chargea soudainement vers Yao Bingyun et Wang Lin.
+À cet instant précis, une aura d'un froid inimaginable jaillit des couches de boue que Wang Lin attaquait. Un Serpent aux yeux de lune de mille pieds chargea soudainement vers Yao Bingyun et Wang Lin.
 
 « Qu'est-ce que c'est donc?! » Yao Bingyun n'avait jamais rencontré de tel spécimen. L'apparence hideuse du serpent et son corps couvert de poils firent trembler son esprit.
 
-L'aura de ce Serpent Lunaire n'était pas inférieure à celle d'un cultivateur du stade Scruteur du Nirvana!
+L'aura de ce Serpent aux yeux de lune n'était pas inférieure à celle d'un cultivateur du stade Scruteur du Nirvana!
 
 Dès l'apparition du serpent, Wang Lin retira immédiatement son aura. C'était son dernier recours: provoquer le chaos pour obtenir une chance de s'échapper.
 
-Wang Lin s'était préparé à cette éventualité. L'objectif du Serpent Lunaire était imprévisible: il y avait autant de chances qu'il poursuive Yao Bingyun que qu'il chargeât contre lui.
+Wang Lin s'était préparé à cette éventualité. L'objectif du Serpent aux yeux de lune était imprévisible: il y avait autant de chances qu'il poursuive Yao Bingyun que qu'il chargeât contre lui.
 
 Le serpent qui venait de surgir tordit son corps et ses poils se hérissèrent. Sa vitesse était prodigieuse, et ce qui amusa amèrement Wang Lin, c'est que la créature ne daigna même pas regarder Yao Bingyun avant de foncer sur lui.
 
-La main de Yao Bingyun avait déjà formé un sceau, mais face à cette vision, elle s'interrompit. Elle se mit plutôt à poursuivre le Serpent Lunaire qui traquait Wang Lin.
+La main de Yao Bingyun avait déjà formé un sceau, mais face à cette vision, elle s'interrompit. Elle se mit plutôt à poursuivre le Serpent aux yeux de lune qui traquait Wang Lin.
 
 Wang Lin continua sa retraite tandis que le Sceau Céleste tournait frénétiquement, créant une force pour repousser la poursuite de l'humaine et de la bête.
 
@@ -94,7 +94,7 @@ Tous les poils du serpent de mille pieds se dressèrent comme s'il était en pro
 
 Cette scène stupéfia Wang Lin. À cet instant, les yeux de Yao Bingyun étaient saturés d'intention meurtrière. Elle fit un pas en avant, dépassa le serpent et se jeta sur Wang Lin. Arrivée devant lui, ses deux doigts libérèrent une intense lumière bleue qu'elle pointa impitoyablement vers lui.
 
-Avant que Wang Lin ne puisse réagir, le Serpent Lunaire poussa un rugissement de rage. Tous les poils de son corps s'allongèrent instantanément pour s'élancer vers Yao Bingyun.
+Avant que Wang Lin ne puisse réagir, le Serpent aux yeux de lune poussa un rugissement de rage. Tous les poils de son corps s'allongèrent instantanément pour s'élancer vers Yao Bingyun.
 
 C'était comme si elle tentait de lui voler un bien précieux. Le serpent déploya ses nombreux tentacules et son corps massif chargea directement sur elle.
 
@@ -108,7 +108,7 @@ Yao Bingyun serra les dents et forma un sceau sans hésiter, faisant apparaître
 
 En un instant, des couches de glace surgirent avec frénésie autour d'elle. La propagation fut si rapide que même la lumière grise de la Paire Dao Fanée fut figée.
 
-Plus de la moitié des tentacules du serpent furent gelées. Cependant, des rugissements éclatèrent de toutes parts: quatre autres Serpents Lunaires de mille pieds chargeaient désormais vers Yao Bingyun.
+Plus de la moitié des tentacules du serpent furent gelées. Cependant, des rugissements éclatèrent de toutes parts: quatre autres Serpents aux yeux de lune de mille pieds chargeaient désormais vers Yao Bingyun.
 
 Le visage de Yao Bingyun devint livide et ses yeux furent submergés par la terreur. Elle saisit le noyau bleu et battit en retraite sans attendre.
 
@@ -118,7 +118,7 @@ Lançant son attaque avec toute sa célérité, Wang Lin forma une épée avec s
 
 Appeler le Vent!
 
-Un vent noir surgit, formant une tempête qui fonça sur Yao Bingyun. Simultanément, les Serpents Lunaires arrivèrent, piégeant la femme sous leurs rugissements.
+Un vent noir surgit, formant une tempête qui fonça sur Yao Bingyun. Simultanément, les Serpents aux yeux de lune arrivèrent, piégeant la femme sous leurs rugissements.
 
 Yao Bingyun était d'une pâleur mortelle. En ses innées années de culture, elle n'avait jamais affronté une telle crise. Elle regarda le noyau dans sa main avec douleur, puis serra les dents et le broya sans hésiter!
 
@@ -134,20 +134,20 @@ Le corps de Yao Bingyun se figea soudainement, puis, presque simultanément, ell
 
 L'intention meurtrière brillait dans les yeux de Wang Lin. Alors que la glace se propageait vers lui, il retira le Sceau Céleste et s'éloigna rapidement sans un regard en arrière.
 
-Peu après, tout en évitant soigneusement les dangers, Wang Lin atteignit le sommet de l'os du Serpent Lunaire, là où se trouvait la connexion nerveuse entre l'os et la créature.
+Peu après, tout en évitant soigneusement les dangers, Wang Lin atteignit le sommet de l'os du Serpent aux yeux de lune, là où se trouvait la connexion nerveuse entre l'os et la créature.
 
 Arrivé là, il redoubla de prudence. Normalement, la jonction entre l'os et le serpent devait être hermétiquement scellée. Cependant, comme il avait extrait l'os précédemment, de nombreuses brèches étaient apparues.
 
-Ces interstices étaient insignifiants pour le Serpent Lunaire, mais pour Wang Lin, ils étaient aussi larges que des canons. Son corps vacilla et il s'engouffra dans les failles. Dès qu'il eut pénétré, il marqua un arrêt brusque.
+Ces interstices étaient insignifiants pour le Serpent aux yeux de lune, mais pour Wang Lin, ils étaient aussi larges que des canons. Son corps vacilla et il s'engouffra dans les failles. Dès qu'il eut pénétré, il marqua un arrêt brusque.
 
 Devant lui se déployaient des fils rouges semblables à une toile d'araignée. Ces filaments semblaient infinis et couvraient toute la zone.
 
 Wang Lin réfléchit et avança prudemment. Fixant ces innombrables fils rouges, il leva sa main droite, en saisit un et tira impitoyablement!
 
-La planète entière formée par le Serpent Lunaire trembla soudainement. Une immense quantité de poussière s'éleva dans l'air et même le brouillard noir se rétracta brusquement.
+La planète entière formée par le Serpent aux yeux de lune trembla soudainement. Une immense quantité de poussière s'éleva dans l'air et même le brouillard noir se rétracta brusquement.
 
 Les yeux de Wang Lin s'illuminèrent et il n'hésita plus. Il leva la main droite et lança plusieurs Coups Célestes. Les lignes rouges furent tranchées et des secousses violentes parcoururent le corps du serpent.
 
-Les vibrations du Serpent Lunaire devinrent encore plus intenses tandis que le brouillard noir environnant était réaspiré. De grandes quantités de terre accumulée furent projetées partout sous l'effet des tremblements de la créature.
+Les vibrations du Serpent aux yeux de lune devinrent encore plus intenses tandis que le brouillard noir environnant était réaspiré. De grandes quantités de terre accumulée furent projetées partout sous l'effet des tremblements de la créature.
 
-Un rugissement, semblant issu d'une époque antique, émana alors du corps du Serpent Lunaire.
+Un rugissement, semblant issu d'une époque antique, émana alors du corps du Serpent aux yeux de lune.

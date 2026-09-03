@@ -58,11 +58,11 @@ Pendant que Wang Lin séjournait sur la planète Esprit d'Eau, un événement d'
 
 Cependant, sa réputation n'était guère exemplaire.
 
-En trois mois, presque toutes les disciples féminines des petites et moyennes sectes avaient été harcelées par lui. Il n'utilisait pourtant jamais la force. Il se contentait d'utiliser sa culture de Nettoyeur de Nirvana comme prétexte pour leur enseigner des sorts, laissant entendre qu'il pouvait leur offrir des pilules pour augmenter leur niveau de culture. De ce fait, il avait rassemblé une multitude de cultivatrices et avait considérablement renforcé le Palais Rose.
+En trois mois, presque toutes les disciples féminines des petites et moyennes sectes avaient été harcelées par lui. Il n'utilisait pourtant jamais la force. Il se contentait d'utiliser sa culture de Purificateur du Nirvana comme prétexte pour leur enseigner des sorts, laissant entendre qu'il pouvait leur offrir des pilules pour augmenter leur niveau de culture. De ce fait, il avait rassemblé une multitude de cultivatrices et avait considérablement renforcé le Palais Rose.
 
 Il passait ses journées dans un plaisir sans fin et, lorsqu'il sortait, mille cultivatrices l'escortaient. Cela avait rendu ses mœurs perverties célèbres.
 
-Toutefois, cet homme était jugé digne de confiance car toutes les disciples entrant au Palais Rose recevaient des enseignements et des pilules. Si une secte portait plainte, Situ Nan se précipitait avec une dignité feinte pour discuter avec elle. Souvent, la secte finissait par lui céder, car après tout, Situ Nan était un cultivateur de niveau Nettoyeur de Nirvana.
+Toutefois, cet homme était jugé digne de confiance car toutes les disciples entrant au Palais Rose recevaient des enseignements et des pilules. Si une secte portait plainte, Situ Nan se précipitait avec une dignité feinte pour discuter avec elle. Souvent, la secte finissait par lui céder, car après tout, Situ Nan était un cultivateur de niveau Purificateur du Nirvana.
 
 Ainsi, de plus en plus de femmes rejoignaient le Palais Rose, et l'on pouvait dire que le nom de Situ Nan s'était répandu sur toute la planète Tian Yun.
 

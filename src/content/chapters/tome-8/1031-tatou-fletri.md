@@ -114,4 +114,4 @@ Bien qu'il fût impossible d'estimer sa vitesse maximale sur une telle distance,
 
 « Quelle vitesse incroyable! » s'exclama Wang Lin, fixant l'épée à cent pieds de là. Le tourbillon s'était évanoui et les runes du talisman s'étaient légèrement estompées.
 
-« Même en utilisant toute ma puissance, il me serait difficile d'atteindre une telle célérité. Peut-être peut-elle rivaliser avec la vitesse d'un cultivateur au stade de Briseur de Nirvana! Si elle est combinée à une Déformation Spatiale... » Les yeux de Wang Lin brillèrent d'une lueur intense.
+« Même en utilisant toute ma puissance, il me serait difficile d'atteindre une telle célérité. Peut-être peut-elle rivaliser avec la vitesse d'un cultivateur au stade de Briseur du Nirvana! Si elle est combinée à une Déformation Spatiale... » Les yeux de Wang Lin brillèrent d'une lueur intense.

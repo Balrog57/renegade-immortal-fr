@@ -8,9 +8,9 @@ slug: extraordinaire
 ---
 Le ciel étoilé était voilé de brume alors que six rayons de lumière fendaient l'air. Maître Pin Cendré semblait très familier avec ce chemin; il ne prit même pas de jade pour vérifier sa direction, se contentant de foncer vers la destination!
 
-Avec sa culture au niveau du Briseur de Nirvana, il était semblable à un éclair lorsqu'il volait à pleine vitesse. Derrière lui, tous les autres mobilisaient également toute leur puissance de culture pour accélérer.
+Avec sa culture au niveau du Briseur du Nirvana, il était semblable à un éclair lorsqu'il volait à pleine vitesse. Derrière lui, tous les autres mobilisaient également toute leur puissance de culture pour accélérer.
 
-Wang Lin restait à la traîne. Après tout, son véritable niveau de culture n'était pas celui d'un Briseur de Nirvana. Il demeura calme, sortit un talisman et le plaça contre lui. Une bourrasque de vent éclata autour de lui et il s'élança.
+Wang Lin restait à la traîne. Après tout, son véritable niveau de culture n'était pas celui d'un Briseur du Nirvana. Il demeura calme, sortit un talisman et le plaça contre lui. Une bourrasque de vent éclata autour de lui et il s'élança.
 
 Ils volèrent à toute allure, et quelques jours plus tard, la brume devint encore plus dense. Ils atteignirent les profondeurs de la région de rang 5, où l'on pouvait vaguement distinguer l'ombre d'un continent sauvage.
 
@@ -94,7 +94,7 @@ Maître Pin Cendré forma un sceau et pointa le continent du doigt. Ce dernier s
 
 La vitesse augmentait sans cesse. En un instant, ils atteignirent leur paroxysme. La vélocité fit trembler violemment le continent, faisant s'effondrer des masses de roche sur ses flancs.
 
-Vu d'en haut, on aurait pu constater que la vitesse du continent n'était pas inférieure à celle d'un cultivateur Briseur de Nirvana. En réalité, elle était même supérieure!
+Vu d'en haut, on aurait pu constater que la vitesse du continent n'était pas inférieure à celle d'un cultivateur Briseur du Nirvana. En réalité, elle était même supérieure!
 
 Des grondements tonitruants résonnèrent à travers les étoiles alors que le continent accélérait encore! Les occupants devinrent graves, fixant la fissure aux sept couleurs qui approchait à grands pas. Tous étaient sur le qui-vive!
 

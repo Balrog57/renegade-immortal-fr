@@ -72,7 +72,7 @@ Les cultivateurs dans les gradins furent enveloppés par l'obscurité. Ils étai
 
 Même les anciens de la Secte Éternelle n'étaient pas épargnés!
 
-Ils ignoraient que, jadis, dans la Terre des Esprits Démoniaques, Wang Lin avait utilisé Nuit Brisée pour tuer Maître Void et forcer le Tout-Voyant aux robes grises à battre en retraite. Deux avatars du Tout-Voyant, pourtant au stade avancé de Briseur de Nirvana, y avaient péri!
+Ils ignoraient que, jadis, dans la Terre des Esprits Démoniaques, Wang Lin avait utilisé Nuit Brisée pour tuer Maître Void et forcer le Tout-Voyant aux robes grises à battre en retraite. Deux avatars du Tout-Voyant, pourtant au stade avancé de Briseur du Nirvana, y avaient péri!
 
 Ils ignoraient également que Nuit Brisée était désormais reconnu comme un sort d'une puissance exceptionnelle suite à la bataille dans la Terre des Esprits Démoniaques!
 

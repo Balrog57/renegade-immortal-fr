@@ -104,7 +104,7 @@ La femme cadavre argentée était assise silencieusement derrière lui. Son rega
 
 Wang Lin restait assis là depuis trois jours. Outre le souvenir de la lumière dorée de Qing Lin, il passait son temps à graver en lui la compréhension qu'il avait acquise au sein de la mer de conscience du maître.
 
-Son niveau de culture n'avait pas progressé après avoir quitté la mer de conscience de Qing Lin; il était toujours au stade initial du Purificateur de Nirvana. Cependant, une graine s'était formée en son corps. C'était une graine pour la troisième étape, pour la Loi et la poursuite du Dao.
+Son niveau de culture n'avait pas progressé après avoir quitté la mer de conscience de Qing Lin; il était toujours au stade initial du Purificateur du Nirvana. Cependant, une graine s'était formée en son corps. C'était une graine pour la troisième étape, pour la Loi et la poursuite du Dao.
 
 C'était le présent de Qing Lin.
 

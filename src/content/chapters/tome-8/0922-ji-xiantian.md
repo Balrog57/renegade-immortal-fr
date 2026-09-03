@@ -8,9 +8,9 @@ slug: ji-xiantian
 ---
 « Continuez en avant et détruisez le royaume sous le Royaume Céleste de la Pluie. Je vous donnerai un corps! Je vous aiderai à vous échapper! » C'était ainsi que s'exprimait le message dans la langue des anciens dieux.
 
-La confusion qui habitait le Serpent aux Yeux de Lune fit place à une clarté soudaine, et son rugissement s'apaisa lentement. Il chargea en avant, devançant l'arbre géant.
+La confusion qui habitait le Serpent aux yeux de lune fit place à une clarté soudaine, et son rugissement s'apaisa lentement. Il chargea en avant, devançant l'arbre géant.
 
-De loin, le corps colossal du Serpent aux Yeux de Lune et ses innombrables tentacules oscillants ressemblaient aux nuages de poussière cosmique enveloppant les étoiles; il n'était en rien moins imposant que l'arbre géant.
+De loin, le corps colossal du Serpent aux yeux de lune et ses innombrables tentacules oscillants ressemblaient aux nuages de poussière cosmique enveloppant les étoiles; il n'était en rien moins imposant que l'arbre géant.
 
 Lie Yunzi observa Wang Lin. Il ressentit une pointe de suspicion en remarquant le changement d'expression de ce dernier lorsque le son émana de la pierre de jade.
 
@@ -24,11 +24,11 @@ L'ancêtre de la famille Shengong était resté silencieux jusqu'alors, quand il
 
 Wang Lin réfléchit en silence. Un instant plus tard, sans hésiter, il toucha l'espace entre ses sourcils et le Dao de Shengong Hu s'envola. L'ancêtre de la famille Shengong s'en saisit, l'examina un instant, puis le rangea. Il ne prêta plus aucune attention à Wang Lin et reporta son regard vers l'avant.
 
-Le Serpent aux Yeux de Lune ouvrait la voie à une vitesse fulgurante. Ses innombrables tentacules se déployaient pour envelopper tout cultivateur de l'Alliance qu'il croisait sur son passage. Les victimes prises dans ses filets hurlaient tandis que leurs corps dépérissaient jusqu'à devenir des momies. Les cultivateurs d'Allheaven s'approchaient alors de ces cadavres desséchés pour leur ravir leurs sacs de rangement et leurs trésors.
+Le Serpent aux yeux de lune ouvrait la voie à une vitesse fulgurante. Ses innombrables tentacules se déployaient pour envelopper tout cultivateur de l'Alliance qu'il croisait sur son passage. Les victimes prises dans ses filets hurlaient tandis que leurs corps dépérissaient jusqu'à devenir des momies. Les cultivateurs d'Allheaven s'approchaient alors de ces cadavres desséchés pour leur ravir leurs sacs de rangement et leurs trésors.
 
-L'arbre géant suivait de près le Serpent aux Yeux de Lune en direction de la région nord!
+L'arbre géant suivait de près le Serpent aux yeux de lune en direction de la région nord!
 
-Le Serpent aux Yeux de Lune et l'arbre géant étaient d'une rapidité extrême, bien au-delà des trésors des cultivateurs. Leur vitesse égalait celle de la téléportation, créant des détonations soniques constantes en fendant l'espace.
+Le Serpent aux yeux de lune et l'arbre géant étaient d'une rapidité extrême, bien au-delà des trésors des cultivateurs. Leur vitesse égalait celle de la téléportation, créant des détonations soniques constantes en fendant l'espace.
 
 À cet instant, une guerre titanesque éclata dans la région nord!
 
@@ -108,8 +108,8 @@ Ce Ji Xiantian ressemblait à une femme extrêmement séduisante. Pourtant, en r
 
 Le regard de Maître Flammespark resta calme alors qu'il levait la main droite vers le vide. L'énergie d'origine du monde se rassembla frénétiquement pour former une sphère de flammes blanches dans sa paume. Il fixa Ji Xiantian et dit lentement: « Quand je suis parti, j'ai déclaré que si le jour venait où je reviendrais, je ferais disparaître l'Alliance de la Culture. Peu importe si le ciel se couvre de sang après ma mort! »
 
-À ce moment précis, dans la région occidentale, avec le Serpent aux Yeux de Lune en tête et l'arbre géant en soutien, ils convergeaient vers la région nord...
+À ce moment précis, dans la région occidentale, avec le Serpent aux yeux de lune en tête et l'arbre géant en soutien, ils convergeaient vers la région nord...
 
-Sur l'arbre géant, Wang Lin regardait devant lui. Une pointe d'incertitude flottait dans ses yeux, particulièrement lorsqu'il posait son regard sur le Serpent aux Yeux de Lune.
+Sur l'arbre géant, Wang Lin regardait devant lui. Une pointe d'incertitude flottait dans ses yeux, particulièrement lorsqu'il posait son regard sur le Serpent aux yeux de lune.
 
 « Enfant divin ancien... » Un éclat de lumière froide, presque imperceptible, passa dans les yeux de Wang Lin.

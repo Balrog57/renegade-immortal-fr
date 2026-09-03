@@ -14,7 +14,7 @@ Les yeux de Lie Yunzi s'illuminèrent lorsqu'il les ouvrit. Il lança un regard 
 
 La belle femme sourit et prit une gorgée. Elle reposa ensuite sa tasse en souriant de nouveau. « Le Senior Lie Yunzi est très célèbre à Allheaven. Le fait qu'Allheaven envoie un tel Senior pour féliciter le nouvel Empereur Divin de l'Oiseau Vermillon suggère qu'Allheaven a l'intention de nouer des relations amicales avec lui. »
 
-« Vous êtes une disciple centrale de la Secte des Cadavres, et vous avez déjà atteint le stade de la Purification du Nirvana à un si jeune âge. La rumeur prétend que vous possédez quatre marionnettes cadavériques, dont trois ne sont pas moins puissantes que des cultivateurs au stade Briseur de Nirvana. Si la Secte des Cadavres vous envoie, c'est qu'il accorde également une grande importance au nouvel Empereur Divin de l'Oiseau Vermillon. » La voix de Lie Yunzi était calme, mais lorsqu'elle parvint aux oreilles de la femme, ses pupilles se rétractèrent imperceptiblement.
+« Vous êtes une disciple centrale de la Secte des Cadavres, et vous avez déjà atteint le stade de la Purification du Nirvana à un si jeune âge. La rumeur prétend que vous possédez quatre marionnettes cadavériques, dont trois ne sont pas moins puissantes que des cultivateurs au stade Briseur du Nirvana. Si la Secte des Cadavres vous envoie, c'est qu'il accorde également une grande importance au nouvel Empereur Divin de l'Oiseau Vermillon. » La voix de Lie Yunzi était calme, mais lorsqu'elle parvint aux oreilles de la femme, ses pupilles se rétractèrent imperceptiblement.
 
 « Ce cultivateur doit être issu de l'Alliance. J'ignore simplement votre nom. » La femme changea de sujet et tourna son regard vers l'homme chauve.
 
@@ -72,7 +72,7 @@ Toute l'énergie d'origine du feu sembla s'emballer, encerclant l'homme en armur
 
 Ce n'était pas seulement l'énergie présente dans la pièce qui changeait; toute l'énergie d'origine de la planète et du champ stellaire environnant semblait converger rapidement vers cet homme. Ce changement soudain provoqua une onde de choc de pression qui se propagea partout.
 
-Quelques cultivateurs suivaient l'homme. Ils étaient quatre au total, tous âgés et au stade Briseur de Nirvana. Ils portaient des robes rouges, bien que d'un style très différent de celui de Lie Yunzi.
+Quelques cultivateurs suivaient l'homme. Ils étaient quatre au total, tous âgés et au stade Briseur du Nirvana. Ils portaient des robes rouges, bien que d'un style très différent de celui de Lie Yunzi.
 
 Les quatre entrèrent avec l'homme en armure, se tenant derrière lui tout en observant calmement les trois autres.
 

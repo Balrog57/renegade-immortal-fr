@@ -34,7 +34,7 @@ Quoi que faisait l'ancien démon, il ne parvenait pas à les expulser. Même en 
 
 Le visage de Wang Lin pâlit. L'énergie de cette lame était immense; même le vieil homme sur la gourde ne pourrait y échapper. L'esprit de Wang Lin resta d'une clarté absolue alors que le fourneau du dieu antique se matérialisait autour de lui. Il pointa du doigt l'homme en noir qui observait la scène à distance.
 
-Il n'avait pas choisi Maître Void car le danger était imminent et il devait impérativement réussir. Bien que Maître Void fût gravement blessé, il demeurait au stade du Briseur de Nirvana; Wang Lin ne pouvait donc compter sur lui avec certitude!
+Il n'avait pas choisi Maître Void car le danger était imminent et il devait impérativement réussir. Bien que Maître Void fût gravement blessé, il demeurait au stade du Briseur du Nirvana; Wang Lin ne pouvait donc compter sur lui avec certitude!
 
 L'expression de l'homme en noir changea radicalement lorsqu'il sentit une lumière l'envelopper. L'énergie de la lame approchait si près que Wang Lin pouvait ressentir l'oppressante acuité qui s'en dégageait.
 

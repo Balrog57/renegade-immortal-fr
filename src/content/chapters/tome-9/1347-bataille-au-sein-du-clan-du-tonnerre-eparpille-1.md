@@ -8,7 +8,7 @@ slug: bataille-au-sein-du-clan-du-tonnerre-eparpille-1
 ---
 Wang Lin ne les arrêta pas. Il regarda l'homme d'âge moyen terrifié saisir la magnifique femme, tout aussi effrayée, et ils disparurent en un instant.
 
-« Les cultivateurs du stade Briseur de Nirvana de l'autre royaume doivent mourir... » Les yeux de Wang Lin s'illuminèrent et le Domaine Ji se lança. La foudre rouge chargea immédiatement!
+« Les cultivateurs du stade Briseur du Nirvana de l'autre royaume doivent mourir... » Les yeux de Wang Lin s'illuminèrent et le Domaine Ji se lança. La foudre rouge chargea immédiatement!
 
 Le Domaine Ji influença le tonnerre infini du ciel, et le grondement s'intensifia, comme si la voûte céleste allait s'effondrer! Le tonnerre déferla sur la planète telle une tempête éternelle; il semblait que la planète entière était devenue une prison de foudre!
 
@@ -46,7 +46,7 @@ L'expression de Wang Lin resta calme et il ignora totalement cette voix. Il poin
 
 Les grondements étaient apocalyptiques, et une lumière verte scintilla autour de la terre sainte. Alors que les innombrables éclairs tombaient comme une pluie battante, ils provoquèrent d'importantes ondulations sur le bouclier de lumière verte.
 
-« Tu oses? Quiconque profane la terre sainte mourra! » Dans un rugissement, un individu s'envola hors du lieu sacré. Ce vieil homme était au stade Briseur de Nirvana. Il franchit la barrière, forma un sceau et chargea Wang Lin!
+« Tu oses? Quiconque profane la terre sainte mourra! » Dans un rugissement, un individu s'envola hors du lieu sacré. Ce vieil homme était au stade Briseur du Nirvana. Il franchit la barrière, forma un sceau et chargea Wang Lin!
 
 Wang Lin ricana. Au lieu de reculer, il fonça en avant. En un éclair, il se retrouva devant le vieil homme. Les yeux de ce dernier se remplirent instantanément de terreur et, avant qu'il ne puisse réagir, Wang Lin lui saisit la main droite. D'un mouvement sec du bras, Wang Lin souleva l'homme!
 
@@ -78,7 +78,7 @@ Ils se regroupèrent rapidement autour de lui, formant une sphère de tonnerre d
 
 Des grondements tonitruants retentirent comme des coups de foudre et la barrière trembla violemment!
 
-« Quelle arrogance! Le tonnerre du monde devrait-il obéir à tes ordres? Quand mon Clan du Tonnerre Éparpillé a-t-il produit un enfant aussi ingrat? » Une voix sombre émana de la terre sainte. Un vieil homme vêtu de noir sortit du temple. Il avait les cheveux gris et une expression morne. Sa culture dépassait le stade Briseur de Nirvana; il était un puissant cultivateur au premier niveau de Fléau Céleste!
+« Quelle arrogance! Le tonnerre du monde devrait-il obéir à tes ordres? Quand mon Clan du Tonnerre Éparpillé a-t-il produit un enfant aussi ingrat? » Une voix sombre émana de la terre sainte. Un vieil homme vêtu de noir sortit du temple. Il avait les cheveux gris et une expression morne. Sa culture dépassait le stade Briseur du Nirvana; il était un puissant cultivateur au premier niveau de Fléau Céleste!
 
 Dès que le vieil homme parla, des dizaines de milliers de cultivateurs s'élancèrent depuis les seize planètes environnantes.
 

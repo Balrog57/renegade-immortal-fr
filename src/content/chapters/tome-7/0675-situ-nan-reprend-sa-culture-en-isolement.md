@@ -122,4 +122,4 @@ Situ Nan poussa un cri étrange; une flamme sembla brûler en lui alors qu'il s'
 
 « Vieille salope, attends un peu! Ce vieil homme fera en sorte que tous les cultivateurs et mortels du Système Stellaire Alliance voient ton comportement de séductrice! Je te rendrai très célèbre dans tout le Système Stellaire Alliance! Ce vieil homme tiendra sa promesse! » Situ Nan cracha une autre bouchée de sang et s'enfuit comme un dément.
 
-« Au pire, je n'aurai qu'à retourner en culture en isolement, tu n'as qu'à attendre! » Les yeux de Situ Nan étaient injectés de sang. Sa décision était prise: il retournerait en culture en isolement. S'il ne parvenait pas au stade du Scryer Nirvana, il ne ressortirait pas!
+« Au pire, je n'aurai qu'à retourner en culture en isolement, tu n'as qu'à attendre! » Les yeux de Situ Nan étaient injectés de sang. Sa décision était prise: il retournerait en culture en isolement. S'il ne parvenait pas au stade du Scruteur du Nirvana, il ne ressortirait pas!

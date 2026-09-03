@@ -16,7 +16,7 @@ L'air de la vieille femme était sombre et elle tenait un jade à la main. Elle 
 
 Après une journée de marche, le continent sauvage où se trouvait Wang Lin apparut dans la brume devant elle.
 
-La vieille femme laissa échapper un froid reniflement et fit un pas en avant. Elle disparut pour réapparaître instantanément sur le continent sauvage. Son sens divin se déploya, révélant une culture au sommet du stade Briseur de Nirvana, et balaya l'étendue sauvage.
+La vieille femme laissa échapper un froid reniflement et fit un pas en avant. Elle disparut pour réapparaître instantanément sur le continent sauvage. Son sens divin se déploya, révélant une culture au sommet du stade Briseur du Nirvana, et balaya l'étendue sauvage.
 
 Elle trouva immédiatement la vallée qu'elle cherchait!
 
@@ -130,7 +130,7 @@ Une fois libéré, il leva les yeux vers les étoiles et fit un pas en avant. Sa
 
 « Guidez-moi! Je veux aller sur le champ de bataille de la Secte Démon! »
 
-La voix de Wang Lin était calme, mais elle dégageait une majesté irrésistible. Même des cultivateurs au sommet du stade Briseur de Nirvana ne pourraient l'opposer aucune résistance! Ils n'oseraient même pas tenter de lui désobéir!
+La voix de Wang Lin était calme, mais elle dégageait une majesté irrésistible. Même des cultivateurs au sommet du stade Briseur du Nirvana ne pourraient l'opposer aucune résistance! Ils n'oseraient même pas tenter de lui désobéir!
 
 « Tu... » L'âme originelle de la vieille femme trembla. Elle fut incapable d'utiliser le moindre sort face à l'aura de Wang Lin. Incapable d'esquiver, elle fut instantanément capturée par lui.
 

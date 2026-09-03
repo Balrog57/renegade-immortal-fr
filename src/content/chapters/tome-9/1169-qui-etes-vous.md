@@ -26,7 +26,7 @@ Wang Lin vit cette scène et entendit ces mots. Il ne pouvait pas se retourner e
 
 « Je le ferai. »
 
-À cet instant, Wang Lin regarda Li Qianmei qui était déjà au stade avancé du Briseur de Nirvana, mais qui ne montrait aucune trace d'arrogance et ressemblait à une jeune sœur de voisinage.
+À cet instant, Wang Lin regarda Li Qianmei qui était déjà au stade avancé du Briseur du Nirvana, mais qui ne montrait aucune trace d'arrogance et ressemblait à une jeune sœur de voisinage.
 
 Il l'écouta lui parler des secrets de la région de rang 9. Il l'écouta parler de la guerre contre les bêtes féroces. Il l'écouta lui demander de l'accompagner pour son départ.
 
@@ -50,13 +50,13 @@ Sans parler du vaste champ d'étoiles au sein de la Secte Divine de l'Oiseau Ver
 
 Les cultivateurs de la Secte du Jade Précieux affichaient une certaine fierté car ils possédaient une véritable planète de culture. Mais face à Wang Lin, leur orgueil était dérisoire.
 
-Alors que chaque cultivateur payait ses pierres spirituelles pour entrer, ce fut enfin le tour de Wang Lin et Li Qianmei. Les cultivateurs postés ici étaient principalement au stade Yin et Yang. Cependant, celui qui les dirigeait était étonnamment au stade du Scryer de Nirvana.
+Alors que chaque cultivateur payait ses pierres spirituelles pour entrer, ce fut enfin le tour de Wang Lin et Li Qianmei. Les cultivateurs postés ici étaient principalement au stade Yin et Yang. Cependant, celui qui les dirigeait était étonnamment au stade du Scruteur du Nirvana.
 
-« La Secte du Jade Précieux porte bien son nom pour avoir un cultivateur Scryer de Nirvana chargé d'accueillir les gens. » Wang Lin secoua intérieurement la tête. Il voyait facilement clair dans les manœuvres de la secte; ils faisaient simplement une démonstration de puissance.
+« La Secte du Jade Précieux porte bien son nom pour avoir un cultivateur Scruteur du Nirvana chargé d'accueillir les gens. » Wang Lin secoua intérieurement la tête. Il voyait facilement clair dans les manœuvres de la secte; ils faisaient simplement une démonstration de puissance.
 
 Après avoir payé les pierres spirituelles, Wang Lin et Li Qianmei pénétrèrent sur le continent de Peng Lai.
 
-Li Qianmei sourit et murmura: « Cette enchère est bien meilleure que la précédente. La dernière fois que je suis venue, ils avaient un cultivateur Purificateur de Nirvana pour accueillir les gens. J'ai cru que j'allais dans une autre secte de rang 9, oubliant que nous ne sommes que dans la région de rang 5. »
+Li Qianmei sourit et murmura: « Cette enchère est bien meilleure que la précédente. La dernière fois que je suis venue, ils avaient un cultivateur Purificateur du Nirvana pour accueillir les gens. J'ai cru que j'allais dans une autre secte de rang 9, oubliant que nous ne sommes que dans la région de rang 5. »
 
 Wang Lin secoua silencieusement la tête.
 

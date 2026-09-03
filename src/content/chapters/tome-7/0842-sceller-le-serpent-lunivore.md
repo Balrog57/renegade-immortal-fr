@@ -1,6 +1,6 @@
 ---
 n: 842
-title: Sceller le Serpent Lunivore
+title: Sceller le Serpent aux yeux de lune
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 842 - Sealing the Moongazer Serpent
@@ -8,21 +8,21 @@ slug: sceller-le-serpent-lunivore
 ---
 Le Dieu du Sang n'hésita pas à exploser en un vaste nuage de sang pour utiliser l'Évasion Sanguine, s'appuyant sur l'ombre démoniaque derrière lui.
 
-À l'extérieur, tous les tentacules du Serpent Lunivore se détachèrent pour se transformer en d'innombrables serpents plus petits. Ce spectacle fit haleter de stupeur tous les vieux monstres environnants.
+À l'extérieur, tous les tentacules du Serpent aux yeux de lune se détachèrent pour se transformer en d'innombrables serpents plus petits. Ce spectacle fit haleter de stupeur tous les vieux monstres environnants.
 
-Les yeux de Maître Flamespark s'illuminèrent et ses mains formèrent des sceaux sans la moindre hésitation. Les innombrables fragments entourèrent immédiatement la zone. Au même instant, Maître Flamesspark laissa échapper un rugissement tandis que des ondes de puissance mystérieuse se propageaient.
+Les yeux de Maître Flamespark s'illuminèrent et ses mains formèrent des sceaux sans la moindre hésitation. Les innombrables fragments entourèrent immédiatement la zone. Au même instant, Maître Flamespark laissa échapper un rugissement tandis que des ondes de puissance mystérieuse se propageaient.
 
-Chaque fragment était imprégné d'une force colossale. Ils encerclèrent tous les Serpents Lunivores et tournèrent à une vitesse fulgurante, formant un vortex gigantesque.
+Chaque fragment était imprégné d'une force colossale. Ils encerclèrent tous les serpents aux yeux de lune et tournèrent à une vitesse fulgurante, formant un vortex gigantesque.
 
-Le vieil homme en robe rouge agita ses manches et la formation octogonale s'effondra, se fragmentant en une multitude de petites formations qui piégèrent chaque Serpent Lunivore. Puis, l'homme à la robe rouge s'élança dans les airs, traça un sceau de sa main et divisa son esprit pour pénétrer chacune des formations.
+Le vieil homme en robe rouge agita ses manches et la formation octogonale s'effondra, se fragmentant en une multitude de petites formations qui piégèrent chaque Serpent aux yeux de lune. Puis, l'homme à la robe rouge s'élança dans les airs, traça un sceau de sa main et divisa son esprit pour pénétrer chacune des formations.
 
-Les quatre garçons encerclèrent étroitement le Serpent Lunivore, tandis que le noyau rouge continuait de sceller la trajectoire de la bête.
+Les quatre garçons encerclèrent étroitement le Serpent aux yeux de lune, tandis que le noyau rouge continuait de sceller la trajectoire de la bête.
 
-Le regard de Lie Yunzi s'illumina. Brandissant son épée d'argent, il franchit le barrage pour fondre sur les innombrables petits Serpents Lunivores. Sa vitesse était telle qu'il portait déjà ses coups avant même que les éclairs argentés ne soient visibles.
+Le regard de Lie Yunzi s'illumina. Brandissant son épée d'argent, il franchit le barrage pour fondre sur les innombrables petits serpents aux yeux de lune. Sa vitesse était telle qu'il portait déjà ses coups avant même que les éclairs argentés ne soient visibles.
 
-Cependant, aucune de ces attaques n'eut d'effet sur les doigts du Dieu Antique générés par le Serpent Lunivore enragé. D'innombrables doigts de Dieu Antique se condensèrent et furent projetés dans toutes les directions.
+Cependant, aucune de ces attaques n'eut d'effet sur les doigts du Dieu Antique générés par le Serpent aux yeux de lune enragé. D'innombrables doigts de Dieu Antique se condensèrent et furent projetés dans toutes les directions.
 
-Boum, boum, boum... Des grondements tonitruants résonnèrent. Le doigt du Dieu Antique formé par le corps principal du Serpent Lunivore percuta la barrière établie par les quatre garçons.
+Boum, boum, boum... Des grondements tonitruants résonnèrent. Le doigt du Dieu Antique formé par le corps principal du Serpent aux yeux de lune percuta la barrière établie par les quatre garçons.
 
 Le visage de l'un d'eux pâlit instantanément et il cracha une large bouchée de sang. Des fissures apparurent sur le noyau rouge au sommet de sa tête, d'où s'échappa rapidement un brouillard écarlate.
 
@@ -36,37 +36,37 @@ Du sang s'échappa du coin de la bouche du vieil homme.
 
 Les yeux de Maître Flamespark devinrent injectés de sang. Il poussa un rugissement et, d'un geste de la main formant un sceau, fit s'étendre les fragments du Royaume Céleste. C'était comme si le Royaume Céleste du Tonnerre lui-même était apparu en ces lieux!
 
-À première vue, on aurait dit que les Serpents Lunivores étaient encerclés par des fragments du Royaume Céleste! La foudre reliait les fragments entre eux, emprisonnant le Serpent Lunivore à l'intérieur, tandis que les fragments commençaient à se contracter!
+À première vue, on aurait dit que les serpents aux yeux de lune étaient encerclés par des fragments du Royaume Céleste! La foudre reliait les fragments entre eux, emprisonnant le Serpent aux yeux de lune à l'intérieur, tandis que les fragments commençaient à se contracter!
 
 À cet instant, le Domaine Nord entier trembla, comme si l'espace lui-même était sur le point de s'effondrer!
 
-« Compagnons cultivateurs, aidez-moi à sceller cette bête! » La voix de Maître Flamesspark tonna comme le tonnerre. Son bras se tendit et les veines de son visage saillirent alors qu'il déployait toute sa puissance!
+« Compagnons cultivateurs, aidez-moi à sceller cette bête! » La voix de Maître Flamespark tonna comme le tonnerre. Son bras se tendit et les veines de son visage saillirent alors qu'il déployait toute sa puissance!
 
-Une trace de "Retour aux Origines" émana du corps de Maître Flamesspark. Bien que ce ne fût qu'une étincelle, elle suffit à plonger le Serpent Lunivore dans la panique!
+Une trace de "Retour aux Origines" émana du corps de Maître Flamespark. Bien que ce ne fût qu'une étincelle, elle suffit à plonger le Serpent aux yeux de lune dans la panique!
 
 Il se souvint que, dans ses souvenirs les plus lointains, la voix terrifiante qui l'avait averti possédait cette même aura. Sauf que l'aura de cette voix était encore plus puissante!
 
-Le Serpent Lunivore fut saisi par le même sentiment d'effroi en ressentant l'aura de Maître Flamesspark. Il se remémora que lorsqu'il percevait cette présence, c'était comme s'il retournait à sa vie passée au sein du corps du Dieu Antique, là où il vivait sans conscience!
+Le Serpent aux yeux de lune fut saisi par le même sentiment d'effroi en ressentant l'aura de Maître Flamespark. Il se remémora que lorsqu'il percevait cette présence, c'était comme s'il retournait à sa vie passée au sein du corps du Dieu Antique, là où il vivait sans conscience!
 
 De féroces rugissements s'échappèrent de son corps. Puis, sa masse gigantesque s'agita frénétiquement et une voix étrange sortit de sa gueule. Tous les doigts de Dieu Antique des petits serpents commencèrent à converger vers le corps principal.
 
 Ces innombrables doigts fusionnèrent. Le doigt du Dieu Antique devant le corps principal n'était plus une illusion, il paraissait désormais bien réel!
 
-Doté d'une peau rugueuse et fissurée par des motifs semblables à des runes, un doigt de Dieu Antique corporel apparut devant le Serpent Lunivore!
+Doté d'une peau rugueuse et fissurée par des motifs semblables à des runes, un doigt de Dieu Antique corporel apparut devant le Serpent aux yeux de lune!
 
 Le doigt s'abattit dans un rugissement.
 
-Les trois garçons face au Serpent Lunivore furent incapables de résister; leurs corps explosèrent tous. Les noyaux rouges au sommet de leurs têtes se brisèrent également, libérant un vaste brouillard rouge.
+Les trois garçons face au Serpent aux yeux de lune furent incapables de résister; leurs corps explosèrent tous. Les noyaux rouges au sommet de leurs têtes se brisèrent également, libérant un vaste brouillard rouge.
 
-La barrière disparut et une multitude de Serpents Lunivores s'en précipitèrent. L'ancêtre de la famille Shengong fit un pas en avant, le corps parcouru d'éclairs. Une légion de dragons de tonnerre apparut pour tenter de stopper les serpents.
+La barrière disparut et une multitude de serpents aux yeux de lune s'en précipitèrent. L'ancêtre de la famille Shengong fit un pas en avant, le corps parcouru d'éclairs. Une légion de dragons de tonnerre apparut pour tenter de stopper les serpents.
 
 Le Domaine Nord entier semblait vaciller tandis que le fracas résonnait à travers les étoiles. L'espace dans cette zone commença à s'effondrer. Même la barrière formée par les messagers du Temple Céleste du Tonnerre, situés à 50 000 kilomètres de là, fut affectée. Une brèche se forma, mais elle fut rapidement comblée par la foudre.
 
-Au même moment, le fantôme formé par le Daoïste aux Cinq Couleurs s'élança pour attaquer le Serpent Lunivore.
+Au même moment, le fantôme formé par le Daoïste aux Cinq Couleurs s'élança pour attaquer le Serpent aux yeux de lune.
 
 L'homme d'âge moyen en robe noire suivit de près le Daoïste aux Cinq Couleurs. Il se transforma en un immense aigle et, ouvrant son bec, cracha une cloche. Cette cloche était illusoire et enveloppa l'aigle. Alors que celui-ci chargeait, la cloche se mit à sonner!
 
-Le son de la cloche portait une puissance phénoménale. En résonnant, elle intensifia l'effondrement de l'espace et le projeta directement vers le Serpent Lunivore.
+Le son de la cloche portait une puissance phénoménale. En résonnant, elle intensifia l'effondrement de l'espace et le projeta directement vers le Serpent aux yeux de lune.
 
 Cependant, ces attaques s'effondrèrent instantanément devant le doigt du Dieu Antique devenu presque tangible. Le premier à affronter cette menace fut Lie Yunzi de la famille Zhan. Au moment où son épée d'argent entra en contact avec le doigt, des bruits de déchirement résonnèrent dans son corps. Il cracha du sang et fut projeté en arrière! Pourtant, après avoir parcouru une centaine de pieds, les yeux de Lie Yunzi brillèrent de rage. Il ne recula plus et chargea de nouveau!
 
@@ -106,7 +106,7 @@ Les messagers du Temple Céleste du Tonnerre, à 50 000 kilomètres, crachèrent
 
 Plus loin, les deux barrières formées par les cultivateurs en robes noire et rouge furent également affectées. Ils pâlirent et reculèrent promptement.
 
-À cet instant, à l'intérieur du Serpent Lunivore, l'ancien dieu devant Wang Lin tremblait violemment alors que les tentacules le dévoraient avec frénésie. Une autre étoile sur son front s'effondra soudainement!
+À cet instant, à l'intérieur du Serpent aux yeux de lune, l'ancien dieu devant Wang Lin tremblait violemment alors que les tentacules le dévoraient avec frénésie. Une autre étoile sur son front s'effondra soudainement!
 
 Une fois l'étoile détruite, une grande quantité de puissance fut absorbée par les tentacules, mais les yeux de l'ancien dieu brillèrent d'une lueur étrange et il commença un chant complexe. Une partie de cette puissance fut détournée pour former un simple tableau de transfert!
 

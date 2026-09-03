@@ -50,7 +50,7 @@ Un fracas de tonnerre retentit et, tandis que l'impact se propageait, Maître Fl
 
 « Si le vice-doyen du Conseil Souverain, l'estimé Maître Tian Zhao, n'avait pas conclu d'accord avec votre Royaume Intérieur pour cesser tout combat, croyez-vous encore que le Royaume du Vide Brillant vous appartiendrait?! » Le membre du Clan du Loup Céleste afficha un mépris manifeste. Il agita la main droite et un fantôme de loup vert, haut de milliers de pieds, apparut pour bondir sur Maître Flammespark.
 
-Les deux cultivateurs du Système des Étoiles Anciennes étaient tous deux au sommet du stade de Briseur de Nirvana, tout comme l'actuel Maître Flammespark. Le fait qu'il puisse encore tenir était la preuve de sa puissance.
+Les deux cultivateurs du Système des Étoiles Anciennes étaient tous deux au sommet du stade de Briseur du Nirvana, tout comme l'actuel Maître Flammespark. Le fait qu'il puisse encore tenir était la preuve de sa puissance.
 
 Alors que le loup vert se rapprochait, Maître Flammespark fit soudainement volte-face. Il mordit le bout de sa langue et cracha du sang sur la douzaine de fragments derrière lui. Son expression devint sauvage et il hurla: « Explosez! »
 

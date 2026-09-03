@@ -34,7 +34,7 @@ Cependant, tout cela changea lorsque la voix glaciale de Qing Shui résonna!
 
 De nombreux édifices en forme d'épées s'effondrèrent. D'innombrables chaînes de fer tombèrent et se transformèrent en une tempête qui balaya le Royaume de la Boucherie.
 
-Des rugissements éclatèrent et, en un instant, une multitude d'ombres jaillirent de la tourmente. Ces cultivateurs étaient tous vêtus de noir et d'âges divers. Leurs niveaux de culture variaient du stade Yin Illusoire au stade intermédiaire de la Scryer Nirvana. La plupart se situaient au stade Yin et Yang, et très peu atteignaient le stade Scryer Nirvana.
+Des rugissements éclatèrent et, en un instant, une multitude d'ombres jaillirent de la tourmente. Ces cultivateurs étaient tous vêtus de noir et d'âges divers. Leurs niveaux de culture variaient du stade Yin Illusoire au stade intermédiaire du Scruteur du Nirvana. La plupart se situaient au stade Yin et Yang, et très peu atteignaient le stade du Scruteur du Nirvana.
 
 « Xu Mu, peux-tu m'aider à gérer ces sbires? » D'un pas assuré, Qing Shui dépassa les cultivateurs en robes noires. Sa voix était comme une bourrasque d'air glacial.
 
@@ -44,7 +44,7 @@ Avec la ruse qui le caractérisait, Wang Lin comprit naturellement que Qing Shui
 
 Un fracas capable de faire trembler le ciel retentit, suivi d'un bang supersonique devant lui. Le vide se brisa et des fissures s'élancèrent vers l'avant.
 
-La tempête infinie générée par le coup de poing de Wang Lin se condensa en un point unique avant de jaillir. Même l'expression d'un cultivateur au sommet du stade tardif Scryer Nirvana changerait face à une telle force. S'ils étaient trop lents pour esquiver, ils seraient instantanément tués!
+La tempête infinie générée par le coup de poing de Wang Lin se condensa en un point unique avant de jaillir. Même l'expression d'un cultivateur au sommet du stade tardif du Scruteur du Nirvana changerait face à une telle force. S'ils étaient trop lents pour esquiver, ils seraient instantanément tués!
 
 Devant Wang Lin se trouvaient plusieurs cultivateurs du stade Yin Illusoire qui avaient passé leur vie dans la boucherie. À peine s'étaient-ils approchés que l'impact du coup de poing de Wang Lin déchira leurs expressions. Des craquements sinistres résonnèrent dans leurs corps et d'importantes quantités de sang jaillirent de leurs plaies. L'homme situé directement devant Wang Lin ne put opposer aucune résistance et son corps s'effondra.
 
@@ -62,7 +62,7 @@ Le visage de Wang Lin restait de marbre. Il y avait environ une centaine de cult
 
 Wang Lin fit un pas, des ondulations apparurent sous ses pieds et il disparut.
 
-« Distorsion Spatiale!!! » Les yeux d'un cultivateur au début du stade Scryer Nirvana s'écarquillèrent. Le choc et l'effroi remplirent son regard et son cuir chevelu se glaça. Prêt à perdre la raison, il recula sans hésiter.
+« Distorsion Spatiale!!! » Les yeux d'un cultivateur au début du stade du Scruteur du Nirvana s'écarquillèrent. Le choc et l'effroi remplirent son regard et son cuir chevelu se glaça. Prêt à perdre la raison, il recula sans hésiter.
 
 « Il maîtrise donc la Distorsion Spatiale! Peu importe le nombre d'hommes que compte mon Royaume de la Boucherie, il sera extrêmement difficile de le blesser! »
 
@@ -72,17 +72,17 @@ Cet homme n'avait même pas les capacités pour esquiver ou détecter ce coup. I
 
 Après avoir saisi l'âme originelle de cet homme, la silhouette de Wang Lin disparut à nouveau.
 
-Un cultivateur au stade intermédiaire Scryer Nirvana, les yeux injectés de sang, hurla: « Formez une formation!! » Cependant, alors qu'il criait, son expression changea. Il se retourna brusquement, ouvrit la bouche et cracha un rayon de lumière rouge.
+Un cultivateur au stade intermédiaire Scruteur du Nirvana, les yeux injectés de sang, hurla: « Formez une formation!! » Cependant, alors qu'il criait, son expression changea. Il se retourna brusquement, ouvrit la bouche et cracha un rayon de lumière rouge.
 
 Une longue épée se trouvait à l'intérieur de ce rayon, émettant un sifflement strident en fonçant vers l'avant. Des milliers de fragments d'âmes émanaient de l'arme. Les cris lugubres de ces âmes portèrent l'épée volante à son apogée!
 
-« Cette épée est excellente! » Une voix froide résonna de toutes parts. Wang Lin surgit du vide devant le cultivateur Scryer Nirvana. Sa main s'étira et se transforma instantanément en le bras massif d'un Dieu Ancien. Il saisit l'épée volante et la tira violemment vers lui.
+« Cette épée est excellente! » Une voix froide résonna de toutes parts. Wang Lin surgit du vide devant le cultivateur Scruteur du Nirvana. Sa main s'étira et se transforma instantanément en le bras massif d'un Dieu Ancien. Il saisit l'épée volante et la tira violemment vers lui.
 
 Le cultivateur poussa un gémissement étouffé, le visage livide. Cette épée volante était son trésor de vie; en la déconnectant ainsi, Wang Lin l'avait gravement blessé.
 
 Cependant, une panique indicible surpassait tout le reste.
 
-« Être capable de s'emparer si facilement de mon trésor... Cet homme... Quel est donc son niveau de culture!?! » Ce cultivateur du stade intermédiaire Scryer Nirvana était célèbre même au sein du Royaume de la Boucherie; sa renommée surpassait celle du Tueur Yu Fei.
+« Être capable de s'emparer si facilement de mon trésor... Cet homme... Quel est donc son niveau de culture!?! » Ce cultivateur du stade intermédiaire Scruteur du Nirvana était célèbre même au sein du Royaume de la Boucherie; sa renommée surpassait celle du Tueur Yu Fei.
 
 Pourtant, à cet instant, il était terrifié, d'autant plus qu'il se souvenait comment Yu Fei, bien qu'ayant réussi à s'échapper vers le Royaume de la Boucherie, avait été tué par une main gigantesque surgissant d'un vortex. Ce souvenir lui glaçait le sang.
 
@@ -90,11 +90,11 @@ Sans hésiter, il recula rapidement et frappa son sac de stockage. Une grande qu
 
 Tous ces jades explosèrent simultanément, créant un impact dévastateur.
 
-Tout cela se produisit en un éclair. Après avoir récupéré l'épée volante, Wang Lin chargea sans la moindre hésitation. L'explosion de tous ces jades n'eut aucun effet sur lui. Le cultivateur Scryer Nirvana fut totalement pétrifié par l'approche de Wang Lin. Les deux doigts de ce dernier formèrent une épée et il les pressa entre les sourcils de son adversaire.
+Tout cela se produisit en un éclair. Après avoir récupéré l'épée volante, Wang Lin chargea sans la moindre hésitation. L'explosion de tous ces jades n'eut aucun effet sur lui. Le cultivateur Scruteur du Nirvana fut totalement pétrifié par l'approche de Wang Lin. Les deux doigts de ce dernier formèrent une épée et il les pressa entre les sourcils de son adversaire.
 
 Dans un fracas, le corps de ce célèbre cultivateur s'effondra. Son âme originelle fut expulsée par la force de Wang Lin et, avant qu'elle ne puisse fuir, elle fut capturée.
 
-À cet instant précis, Wang Lin sentit enfin l'ampleur de sa propre progression. Ce n'était pas que le cultivateur Scryer Nirvana était devenu faible, c'était que lui était devenu assez puissant pour s'élever parmi les plus grands!
+À cet instant précis, Wang Lin sentit enfin l'ampleur de sa propre progression. Ce n'était pas que le cultivateur Scruteur du Nirvana était devenu faible, c'était que lui était devenu assez puissant pour s'élever parmi les plus grands!
 
 Quant à Qing Shui, dans un éclat de rire, il chargea vers la tour située au centre du Royaume de la Boucherie.
 

@@ -32,7 +32,7 @@ Dès leur apparition, ces nuages sombres se densifièrent avec rapidité. Finale
 
 Alors que son sens divin balayait la masse nuageuse, le tonnerre éclata à l'intérieur des nuages. Son sens divin fit vibrer les nuages, provoquant des grondements et une pluie torrentielle.
 
-Les cultivateurs au stade du Scryer Nirvana devaient prêter attention aux lois; c'est ce qui rendait véritablement puissants les cultivateurs de la deuxième étape! Cependant, les lois sont éthérées et extrêmement difficiles à saisir!
+Les cultivateurs au stade du Scruteur du Nirvana devaient prêter attention aux lois; c'est ce qui rendait véritablement puissants les cultivateurs de la deuxième étape! Cependant, les lois sont éthérées et extrêmement difficiles à saisir!
 
 C'est aussi pour cette raison qu'il y avait si peu de cultivateurs de la deuxième étape. Certains avaient réussi à saisir certaines lois, ce qui permettait d'augmenter leur niveau de culture. Pourtant, en fin de compte, ils ne parvenaient toujours pas à progresser et leurs sorts manquaient de puissance. La raison principale était que leur façon de saisir les lois était passive plutôt qu'active!
 

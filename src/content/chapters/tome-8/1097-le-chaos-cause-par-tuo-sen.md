@@ -84,7 +84,7 @@ Le Maître Flemespark fronça les sourcils et pointa impitoyablement l'espace en
 
 Le Maître Flemespark tonna: « Lie Yunzi, parle clairement! Pourquoi la Secte des Cadavres t'a-t-elle tendu une embuscade? »
 
-« L'Empereur Divin Vermillion Bird est Wang Lin. Il voulait que je vous remette un jade. Sur le chemin du retour, j'ai été pris en embuscade par les membres de la Secte des Cadavres et j'ai été frappé par le Septième Poison Céleste... » Bien que le niveau de culture de Lie Yunzi fût supérieur à celui de Situ Nan, il n'avait pas encore atteint le stade du Briseur de Nirvana. Désormais privé de son corps physique, il n'était pas aussi doué que Situ Nan pour trouver d'autres moyens de supprimer le poison.
+« L'Empereur Divin Vermillion Bird est Wang Lin. Il voulait que je vous remette un jade. Sur le chemin du retour, j'ai été pris en embuscade par les membres de la Secte des Cadavres et j'ai été frappé par le Septième Poison Céleste... » Bien que le niveau de culture de Lie Yunzi fût supérieur à celui de Situ Nan, il n'avait pas encore atteint le stade du Briseur du Nirvana. Désormais privé de son corps physique, il n'était pas aussi doué que Situ Nan pour trouver d'autres moyens de supprimer le poison.
 
 Pour diverses raisons, le poison en lui était devenu extrêmement virulent.
 
@@ -106,7 +106,7 @@ L'un des vieillards réfléchit un instant et dit lentement: « Nous ignorons si
 
 « Si une telle personne parvient à s'échapper, ce sera une catastrophe pour tout le Système Stellaire de l'Alliance. Bien que cela ne nous concerne pas directement, si les informations contenues dans ce jade sont vraies, alors mon Allheaven perdrait tout espoir d'occuper l'Alliance. Nous devrions immédiatement retourner à Allheaven et renforcer nos protections... Si cette personne pénètre à Allheaven... » Les yeux de l'Ancien étaient remplis de terreur.
 
-« Cela est probablement faux! Une telle personne ne peut pas exister. Le contenu prétend que même nous, cultivateurs au stade du Briseur de Nirvana, serions gravement blessés, voire tués, d'un simple geste du doigt. C'est absurde! » Certains, refusant d'y croire, laissèrent échapper des reniflements méprisants.
+« Cela est probablement faux! Une telle personne ne peut pas exister. Le contenu prétend que même nous, cultivateurs au stade du Briseur du Nirvana, serions gravement blessés, voire tués, d'un simple geste du doigt. C'est absurde! » Certains, refusant d'y croire, laissèrent échapper des reniflements méprisants.
 
 Le Maître Flemespark dit soudainement: « Est-ce que tout le monde se souvient de cette Bête Lunaire...? »
 

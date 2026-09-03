@@ -18,7 +18,7 @@ La tempête vola en éclats, comme déchirée par une force invisible. En un ins
 
 « Ceci... C'est impossible! » Maître Hollow Wind était livide; à cet instant, une douleur indicible emplissait son être. Le sang jaillit de ses orifices et il cracha une large traînée de sang. Il tenta de reculer, mais fut terrifié de constater que, peu importe ses mouvements, le soleil demeurait obstinément devant lui.
 
-« Je n'ai d'autre choix que de tenter le tout pour le tout! » La main de Maître Hollow Wind traça un sceau et sa culture de Purificateur de Nirvana explosa. La capacité de rassembler l'énergie originelle était le propre des cultivateurs de ce rang, et il mobilisa cette faculté avec précipitation.
+« Je n'ai d'autre choix que de tenter le tout pour le tout! » La main de Maître Hollow Wind traça un sceau et sa culture de Purificateur du Nirvana explosa. La capacité de rassembler l'énergie originelle était le propre des cultivateurs de ce rang, et il mobilisa cette faculté avec précipitation.
 
 Des filaments d'énergie originelle surgirent du vide pour converger devant Maître Hollow Wind tels des dragons rugissants. Rapidement, ils formèrent une sphère d'énergie originelle devant lui.
 
@@ -26,11 +26,11 @@ Bien que cette sphère ne fût pas de grande taille, la force destructrice qu'el
 
 Dès que la sphère apparut, les couleurs du monde basculèrent et la planète trembla. L'expression des trois frères Chen changea radicalement et ils furent contraints de battre en retraite.
 
-Big Head et sa troupe reculèrent également. Ils n'osaient s'approcher de trop près d'un sortilège lancé par un cultivateur de Purificateur de Nirvana!
+Big Head et sa troupe reculèrent également. Ils n'osaient s'approcher de trop près d'un sortilège lancé par un cultivateur de Purificateur du Nirvana!
 
 Les cheveux de Maître Hollow Wind étaient en désordre. La crise vitale et la terreur qu'il ressentait l'avaient poussé dans ses retranchements, tel une bête acculée. Il ne pensait plus à tuer Wang Lin; il ne cherchait plus qu'un moyen de survivre à cet incroyable sortilège.
 
-« Ceci... Quel genre de sort est-ce là? Il contient une loi du monde inimaginable. Ce n'est pas le genre de pouvoir qu'un cultivateur de Purificateur de Nirvana devrait posséder! » En rugissant, Maître Hollow Wind projeta la sphère d'énergie originelle vers l'avant.
+« Ceci... Quel genre de sort est-ce là? Il contient une loi du monde inimaginable. Ce n'est pas le genre de pouvoir qu'un cultivateur de Purificateur du Nirvana devrait posséder! » En rugissant, Maître Hollow Wind projeta la sphère d'énergie originelle vers l'avant.
 
 Cette boule d'énergie jaillit comme un éclair vers le soleil flamboyant!
 
@@ -96,7 +96,7 @@ La nuit n'existait plus et tout disparut. Tout revint à la normale, comme si ri
 
 « C'est... c'est le sort qu'il a passé deux mois à comprendre... C'est terrifiant! Si un tel pouvoir m'était infligé, seule la mort me serait réservée! »
 
-« Maître Hollow Wind est un cultivateur de Purificateur de Nirvana, et pourtant il a été contraint de battre en retraite. Si Senior Wang n'avait pas été dépourvu d'intention meurtrière, il aurait été presque impossible pour Maître Hollow Wind d'échapper à ce désastre! »
+« Maître Hollow Wind est un cultivateur de Purificateur du Nirvana, et pourtant il a été contraint de battre en retraite. Si Senior Wang n'avait pas été dépourvu d'intention meurtrière, il aurait été presque impossible pour Maître Hollow Wind d'échapper à ce désastre! »
 
 Les trois frères Chen se regardèrent, partageant la même terreur dans leurs yeux.
 

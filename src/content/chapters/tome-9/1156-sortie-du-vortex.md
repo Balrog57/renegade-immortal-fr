@@ -18,11 +18,11 @@ D'autant plus qu'actuellement, sa jambe droite n'était qu'un carnage sanglant, 
 
 Sans l'Armure de Cuir d'Ancien Dieu protégeant son âme originelle, celle-ci se serait déjà effondrée. Heureusement, le corps de Wang Lin n'était pas ordinaire; après avoir été raffiné dans la Secte Divine du Vermillon, il contenait les lois du feu et de la foudre.
 
-Grâce à cela, il ne subissait que des blessures au lieu de mourir sous les sorts de Noble Money! Ayant traversé de nombreux périls durant sa vie de cultivateur, Wang Lin connaissait naturellement le danger que représentaient les cultivateurs du niveau Briseur de Nirvana.
+Grâce à cela, il ne subissait que des blessures au lieu de mourir sous les sorts de Noble Money! Ayant traversé de nombreux périls durant sa vie de cultivateur, Wang Lin connaissait naturellement le danger que représentaient les cultivateurs du niveau Briseur du Nirvana.
 
-Wang Lin n'avait pas de temps à perdre en réflexions; il devait mettre fin à ce combat et tenter de tuer ce cultivateur Briseur de Nirvana! D'un mouvement de sa main gauche, Maître Vide et Omniscient se précipitèrent sur Noble Money.
+Wang Lin n'avait pas de temps à perdre en réflexions; il devait mettre fin à ce combat et tenter de tuer ce cultivateur Briseur du Nirvana! D'un mouvement de sa main gauche, Maître Vide et Omniscient se précipitèrent sur Noble Money.
 
-Face à ces deux âmes puissantes, même Noble Money se montra extrêmement prudent. Dans toute sa vie de culture, il n'avait jamais vu un cultivateur du niveau Purificateur de Nirvana posséder des sorts capables de menacer des Briseurs de Nirvana.
+Face à ces deux âmes puissantes, même Noble Money se montra extrêmement prudent. Dans toute sa vie de culture, il n'avait jamais vu un cultivateur du niveau Purificateur du Nirvana posséder des sorts capables de menacer des Briseurs de Nirvana.
 
 L'âme d'Omniscient semblait presque avoir sombré dans la folie, formant frénétiquement des sceaux pour lancer des sorts. Ces derniers étaient souvent flous et immatériels, mais ils dirigeaient les lois du monde vers Noble Money.
 
@@ -56,7 +56,7 @@ La vitesse était inimaginable. Noble Money fut incapable de résister aux dix-n
 
 Son corps trembla et fut instantanément découpé en dix-neuf morceaux. Le sang jaillit de toutes parts!
 
-Un rugissement misérable s'éleva alors que le corps de Noble Money s'effondrait. Étant un cultivateur Briseur de Nirvana, son âme originelle s'échappa de sa tête. Il saisit son trésor plumeau et s'enfuit à toute vitesse.
+Un rugissement misérable s'éleva alors que le corps de Noble Money s'effondrait. Étant un cultivateur Briseur du Nirvana, son âme originelle s'échappa de sa tête. Il saisit son trésor plumeau et s'enfuit à toute vitesse.
 
 Il était envahi par une terreur indicible; il avait même le sentiment que ce cultivateur aux cheveux blancs connaissait l'affaire de la Secte Briseuse de Ciel. La mort de Shi Luoxing était probablement liée à cet homme.
 

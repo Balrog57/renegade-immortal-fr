@@ -38,7 +38,7 @@ Une fois ses jambes effondrées, la marque du démon ancien entre ses sourcils n
 
 Pourtant, ce monde était vaste. Si même la nuit ne pouvait échapper au pouvoir de la Nuit Brisée, comment le Maître du Vide le pourrait-il? Peu importe la distance parcourue dans sa retraite, il ne pouvait fuir la mort. Tandis qu'il reculait, la lumière du soleil se précipita vers lui. Les hurlements du Maître du Vide résonnèrent alors que les rayons perçaient son corps. Il disparut avec un sourire désespéré, consumé par le désespoir...
 
-Le Maître du Vide était un puissant cultivateur au sommet du stade de Briseur de Nirvana, doté d'un rang élevé au sein de l'Alliance, et il était même le frère cadet du Maître Zhong Xuan. Il fut autrefois si illustre, et pourtant, il ne put échapper au cycle de la réincarnation, à la première Affliction Céleste et aux conséquences de ses propres méfaits!
+Le Maître du Vide était un puissant cultivateur au sommet du stade de Briseur du Nirvana, doté d'un rang élevé au sein de l'Alliance, et il était même le frère cadet du Maître Zhong Xuan. Il fut autrefois si illustre, et pourtant, il ne put échapper au cycle de la réincarnation, à la première Affliction Céleste et aux conséquences de ses propres méfaits!
 
 Le Maître du Vide s'éteignit dans un regret infini et une soif de vivre déçue...
 

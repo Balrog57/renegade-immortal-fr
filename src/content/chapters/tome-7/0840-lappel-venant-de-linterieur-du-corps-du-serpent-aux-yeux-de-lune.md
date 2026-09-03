@@ -1,16 +1,16 @@
 ---
 n: 840
-title: "L'appel venant de l'intérieur du corps du Serpent aux Yeux de Lune"
+title: "L'appel venant de l'intérieur du corps du Serpent aux yeux de lune"
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 840 - The Call From Inside the Moongazer Serpents Body
 slug: lappel-venant-de-linterieur-du-corps-du-serpent-aux-yeux-de-lune
 ---
-Tous quatre étaient vêtus de rouge et n'étaient que des garçons! Leurs expressions étaient froides, dépourvues de toute émotion, comme s'ils n'étaient que des marionnettes. Dès leur apparition, ils se dispersèrent dans quatre directions pour encercler la planète formée par le Serpent aux Yeux de Lune.
+Tous quatre étaient vêtus de rouge et n'étaient que des garçons! Leurs expressions étaient froides, dépourvues de toute émotion, comme s'ils n'étaient que des marionnettes. Dès leur apparition, ils se dispersèrent dans quatre directions pour encercler la planète formée par le Serpent aux yeux de lune.
 
-Les quatre garçons s'assirent en position du lotus et un noyau de sang jaillit du sommet de la tête de chacun! Ces quatre noyaux se lièrent instantanément pour entourer le Serpent aux Yeux de Lune!
+Les quatre garçons s'assirent en position du lotus et un noyau de sang jaillit du sommet de la tête de chacun! Ces quatre noyaux se lièrent instantanément pour entourer le Serpent aux yeux de lune!
 
-Le vieil homme vêtu de rouge sortit de la formation gigantesque. Bien que son visage fût calme, ses yeux étaient glacials. Son corps dégageait une puissante intention meurtrière, dirigée contre le Serpent aux Yeux de Lune.
+Le vieil homme vêtu de rouge sortit de la formation gigantesque. Bien que son visage fût calme, ses yeux étaient glacials. Son corps dégageait une puissante intention meurtrière, dirigée contre le Serpent aux yeux de lune.
 
 Les yeux du Maître Flamespark s'illuminèrent en voyant les quatre garçons et il sourit: « Cher cultivateur Xiang, vous avez donc amené les Quatre Fils du Sceau Divin de la famille Xiang. Avec cela, nos chances augmentent! Le cher cultivateur Gongsun a-t-il invité d'autres amis à participer? »
 
@@ -22,7 +22,7 @@ En entendant le nom de « Dieu du Sang », le Maître Flamespark eut un ricaneme
 
 Alors qu'il parlait, un rayon de lumière argentée fendit l'horizon. Un homme d'âge mûr se tenait sur ce flux argenté; son apparence rappelait celle de Shengong Hu. En un éclair, il apparut devant l'assemblée.
 
-« Shengong! » Une fois arrivé, il joignit les mains et ne dit plus un mot. Il se contenta de fixer le Serpent aux Yeux de Lune. Son expression demeurait imperturbable, et nul ne pouvait deviner ses pensées.
+« Shengong! » Une fois arrivé, il joignit les mains et ne dit plus un mot. Il se contenta de fixer le Serpent aux yeux de lune. Son expression demeurait imperturbable, et nul ne pouvait deviner ses pensées.
 
 Des ondes de lumière argentée ondulaient autour de lui, offrant un spectacle saisissant.
 
@@ -34,7 +34,7 @@ Le vieil homme de la famille Xiang rit: « Pour attirer l'attention du Daoïste 
 
 « Si le patriarche Xiang le souhaite, je vous en offrirai un après avoir capturé cette bête! » Le Daoïste aux Cinq Couleurs observa les environs, secrètement impressionné. Chacun ici était un monstre ancien de grande renommée. Puisque tous étaient réunis, la capture de la créature était inéluctable.
 
-Tandis qu'ils discutaient, le patriarche de la famille Shengong restait de marbre, les yeux rivés sur le Serpent aux Yeux de Lune. Quant à l'homme en noir, il était encore plus silencieux.
+Tandis qu'ils discutaient, le patriarche de la famille Shengong restait de marbre, les yeux rivés sur le Serpent aux yeux de lune. Quant à l'homme en noir, il était encore plus silencieux.
 
 Le visage du Maître Flamespark demeurait serein. Bien que le niveau de culture du Daoïste aux Cinq Couleurs fût élevé, cela ne méritait pas son attention.
 
@@ -50,7 +50,7 @@ L'homme en blanc hocha légèrement la tête et resta immobile, toujours silenci
 
 Une masse de lumière rouge surgit au loin, et une odeur de sang se propagea rapidement à travers l'espace. Cette lueur sanglante apparut à moins de cent pieds des cultivateurs avant de se condenser instantanément en une silhouette!
 
-Il s'agissait d'un vieil homme aux sourcils rouges, vêtu d'une robe écarlate qui semblait imprégnée de sang frais. Son expression était lugubre et, dès son apparition, il ignora tout le monde pour fixer le Serpent aux Yeux de Lune avec une lueur mystérieuse dans les yeux.
+Il s'agissait d'un vieil homme aux sourcils rouges, vêtu d'une robe écarlate qui semblait imprégnée de sang frais. Son expression était lugubre et, dès son apparition, il ignora tout le monde pour fixer le Serpent aux yeux de lune avec une lueur mystérieuse dans les yeux.
 
 « Dieu du Sang! » À sa vue, tous les vieux monstres plissèrent les yeux. Lie Yunzi et le patriarche Shengong ne firent exception.
 
@@ -58,9 +58,9 @@ Le Dieu du Sang détourna son regard pour balayer l'assemblée d'un œil impitoy
 
 Une lueur de froideur passa dans les yeux du Maître Flamespark, qui sourit: « Ce sera un honneur de vous accompagner! »
 
-À cet instant, des éclairs de tonnerre déchirèrent le Domaine du Nord. Presque tous les messagers du Temple Céleste du Tonnerre étaient sortis. Ils encerclèrent le Serpent aux Yeux de Lune, formant un blocus circulaire à 50 000 kilomètres de la créature.
+À cet instant, des éclairs de tonnerre déchirèrent le Domaine du Nord. Presque tous les messagers du Temple Céleste du Tonnerre étaient sortis. Ils encerclèrent le Serpent aux yeux de lune, formant un blocus circulaire à 50 000 kilomètres de la créature.
 
-Chaque messager traça un sceau lui permettant de communiquer par une méthode secrète. Rapidement, des éclairs denses apparurent entre eux, érigeant une barrière de foudre autour du Serpent aux Yeux de Lune.
+Chaque messager traça un sceau lui permettant de communiquer par une méthode secrète. Rapidement, des éclairs denses apparurent entre eux, érigeant une barrière de foudre autour du Serpent aux yeux de lune.
 
 À quelque 5 000 kilomètres derrière ces messagers, des cultivateurs en robes noires et rouges formaient un second périmètre pour s'assurer que rien ne puisse s'échapper!
 
@@ -76,7 +76,7 @@ Ce que Wang Lin découvrit fit violemment trembler son corps et ses pupilles se 
 
 Devant lui, plus d'une centaine de tentacules enlacèrent un bébé!
 
-Le corps de cet enfant était immense, s'élevant à une centaine de mètres. Ses yeux étaient clos et il restait recroquevillé. La vitalité foisonnante émanant de son corps était absorbée par le Serpent aux Yeux de Lune.
+Le corps de cet enfant était immense, s'élevant à une centaine de mètres. Ses yeux étaient clos et il restait recroquevillé. La vitalité foisonnante émanant de son corps était absorbée par le Serpent aux yeux de lune.
 
 Huit étoiles illusoires scintillaient sur le front du nourrisson, mais aucune n'était tangible. Elles tournaient, créant une force mystérieuse que le serpent s'empressait également d'absorber.
 
@@ -90,7 +90,7 @@ La seconde était terrifiante, et elle glaça le cœur de Wang Lin. Cette explic
 
 « Si c'est la seconde explication, alors où est passé le pouvoir du Dieu Ancien? » Wang Lin observa les environs d'un regard sombre. Ses yeux se fixèrent sur les centaines de tentacules, et une idée effroyable lui traversa l'esprit.
 
-« Se pourrait-il que la mutation massive du Serpent aux Yeux de Lune soit liée à cela? Le serpent a capturé le Dieu Ancien et possède désormais sa puissance! » Wang Lin recula lentement.
+« Se pourrait-il que la mutation massive du Serpent aux yeux de lune soit liée à cela? Le serpent a capturé le Dieu Ancien et possède désormais sa puissance! » Wang Lin recula lentement.
 
 Cependant, sans qu'il le sache, une immense tristesse envahit son cœur. Cette mélancolie provenait de sa connexion avec son corps originel! Elle était si puissante qu'en se propageant, elle finit par envelopper tout son être.
 
@@ -112,14 +112,14 @@ Ce changement soudain assombrit le visage de Wang Lin. Sans hésiter, il regagna
 
 La zone subissant cette mutation colossale ne se limitait pas à l'espace de Wang Lin; tout le passage étroit était en plein chaos.
 
-Comme si le Serpent aux Yeux de Lune était en proie au désespoir, il absorbait toute la vitalité disponible, comme s'il voulait consommer instantanément toutes les réserves accumulées au fil des éternités.
+Comme si le Serpent aux yeux de lune était en proie au désespoir, il absorbait toute la vitalité disponible, comme s'il voulait consommer instantanément toutes les réserves accumulées au fil des éternités.
 
 Des bruits de craquements résonnèrent alors que les corps momifiés s'effondraient, leur ultime étincelle de vie étant aspirée par le serpent.
 
-Simultanément, l'endroit commença à trembler violemment, comme si un événement inimaginable se produisait à l'extérieur. Des rugissements furieux déchirèrent alors le corps du Serpent aux Yeux de Lune.
+Simultanément, l'endroit commença à trembler violemment, comme si un événement inimaginable se produisait à l'extérieur. Des rugissements furieux déchirèrent alors le corps du Serpent aux yeux de lune.
 
 Les plus petits serpents situés à l'extérieur du vortex s'élancèrent dans les airs, les traits féroces! Partout, à l'intérieur même du grand serpent, on entendait les hurlements de ses semblables.
 
 Ils étaient trop nombreux. Sous la conduite de huit grands spécimens, ils se mirent en mouvement avec célérité.
 
-Une bataille d'une ampleur inouïe, rarement vue dans n'importe quel système stellaire, venait de s'engager à l'extérieur du Serpent aux Yeux de Lune!
+Une bataille d'une ampleur inouïe, rarement vue dans n'importe quel système stellaire, venait de s'engager à l'extérieur du Serpent aux yeux de lune!

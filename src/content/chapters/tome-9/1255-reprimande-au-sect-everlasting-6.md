@@ -1,6 +1,6 @@
 ---
 n: 1255
-title: Réprimande au Secte Éternelle (6)
+title: Réprimande à la Secte Éternelle (6)
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1255 - Rebuking the Everlasting Sect (6)
@@ -8,15 +8,15 @@ slug: reprimande-au-sect-everlasting-6
 ---
 La Secte Nuage Vert de rang 7 s'était classé troisième parmi les sectes de rang 7 lors de la dernière compétition. Les sorts de cette secte étaient axés sur le changement et l'imprévisibilité. C'était une organisation vaste, comptant plus de 7 000 membres, et au fil des millénaires, elle avait engendré de nombreux cultivateurs puissants.
 
-Ces cultivateurs d'élite étaient souvent choisis par la Secte Everlasting pour être formés.
+Ces cultivateurs d'élite étaient souvent choisis par la Secte Éternelle pour être formés.
 
 Cette voix calme émanait d'un homme d'âge moyen vêtu d'une robe. Il paraissait serein et son teint était légèrement jaunâtre, comme s'il souffrait d'une grave maladie. Après avoir parlé, il sauta de la plateforme; on aurait dit que des nuages invisibles se formaient sous ses pieds alors qu'il approchait progressivement de l'arène.
 
 Cet homme, Yun Shan, était très célèbre dans la région de rang 7. En temps normal, il restait en culture de porte close et ne s'aventurait guère à l'extérieur. Il n'était sorti que pour la compétition du secte principal. Son niveau de culture était élevé; il dégageait une aura de Briseur du Nirvana de stade avancé.
 
-La rumeur disait qu'il était l'un des trois représentants de la Secte Everlasting pour la compétition entre les sectes de rang 8. La Secte Everlasting lui avait accordé une attention particulière au cours des 1 000 dernières années. D'immenses quantités de pilules, de trésors magiques et même de sorts lui avaient été envoyées pour l'aider. Même l'un des sept Grands Anciens de la Secte Everlasting était allé l'instruire pendant 1 000 ans.
+La rumeur disait qu'il était l'un des trois représentants de la Secte Éternelle pour la compétition entre les sectes de rang 8. La Secte Éternelle lui avait accordé une attention particulière au cours des 1 000 dernières années. D'immenses quantités de pilules, de trésors magiques et même de sorts lui avaient été envoyées pour l'aider. Même l'un des sept Grands Anciens de la Secte Éternelle était allé l'instruire pendant 1 000 ans.
 
-On pouvait dire que la Secte Everlasting avait investi des efforts colossaux pour faire de lui un champion capable de remporter la compétition entre les sectes de rang 8!
+On pouvait dire que la Secte Éternelle avait investi des efforts colossaux pour faire de lui un champion capable de remporter la compétition entre les sectes de rang 8!
 
 Alors qu'il avançait, les murmures s'élevèrent dans la foule.
 
@@ -28,19 +28,19 @@ Les ombres de neuf tigres rouges apparurent soudainement dans le vortex, et leur
 
 « Transformation des Neuf Âmes du Tigre! » Certains connaisseurs présents devinrent immédiatement graves.
 
-Sur la tribune où siégeait la Secte Everlasting, Feng Hai affichait une expression sombre en observant Wang Lin. C'était un homme très rusé qui, à moins d'être acculé, ne combattait jamais quelqu'un contre qui il n'était pas sûr de l'emporter. Il allait saisir cette occasion pour sonder les limites de celui qui avait tué Zhao Long!
+Sur la tribune où siégeait la Secte Éternelle, Feng Hai affichait une expression sombre en observant Wang Lin. C'était un homme très rusé qui, à moins d'être acculé, ne combattait jamais quelqu'un contre qui il n'était pas sûr de l'emporter. Il allait saisir cette occasion pour sonder les limites de celui qui avait tué Zhao Long!
 
-Les autres anciens de la Secte Everlasting considéraient Yun Shan comme leur égal. Ils savaient que s'il n'avait pas été désigné pour être l'un des trois compétiteurs face aux autres sectes de rang 8, il serait déjà devenu un ancien de la Secte Everlasting.
+Les autres anciens de la Secte Éternelle considéraient Yun Shan comme leur égal. Ils savaient que s'il n'avait pas été désigné pour être l'un des trois compétiteurs face aux autres sectes de rang 8, il serait déjà devenu un ancien de la Secte Éternelle.
 
-Le Maître de la Secte Everlasting plissa les yeux, laissant paraître une pointe d'admiration. Il savait que Yun Shan n'était pas le plus fort des trois élus, mais sa seule culture de Briseur du Nirvana de stade avancé suffisait à afficher la puissance de la Secte Everlasting.
+Le Maître de la Secte Éternelle plissa les yeux, laissant paraître une pointe d'admiration. Il savait que Yun Shan n'était pas le plus fort des trois élus, mais sa seule culture de Briseur du Nirvana de stade avancé suffisait à afficher la puissance de la Secte Éternelle.
 
-Lors des précédentes grandes compétitions entre les sectes de rang 8, la Secte Everlasting s'était approché du bas du classement. Cette fois, le vieil homme était convaincu que même sans victoire, ils ne seraient pas les derniers.
+Lors des précédentes grandes compétitions entre les sectes de rang 8, la Secte Éternelle s'était approché du bas du classement. Cette fois, le vieil homme était convaincu que même sans victoire, ils ne seraient pas les derniers.
 
 Une intention de combat jaillit des yeux de Yun Shan; ses mains formèrent un sceau et pointèrent vers l'avant. À cet instant, les neuf âmes de tigres rouges formées par le vortex rugirent et chargèrent. Dans le ciel, elles atteignirent plus de 1 000 pieds de haut et s'élancèrent vers Wang Lin depuis neuf directions différentes.
 
 Le monde sembla se teindre de rouge avec l'apparition de ces neuf tigres.
 
-L'expression de Wang Lin resta neutre, imperturbable. La clé pour atteindre son objectif au sein de la Secte Everlasting était la rapidité. C'était le seul moyen de choquer l'assistance et de faire connaître la Secte Origin.
+L'expression de Wang Lin resta neutre, imperturbable. La clé pour atteindre son objectif au sein de la Secte Éternelle était la rapidité. C'était le seul moyen de choquer l'assistance et de faire connaître la Secte Origin.
 
 S'il s'éternisait et que ses blessures refoulées s'aggravaient, cela n'en vaudrait pas la peine.
 
@@ -56,7 +56,7 @@ Wang Lin jaillit du feu vers Yun Shan. Au même moment, il pointa le ciel et cri
 
 Les cultivateurs de feu ressentirent une sensation de brûlure interne. Un feu monstrueux apparut et se rassembla vers la main droite de Wang Lin!
 
-Parmi les membres de la Secte Everlasting, l'expression d'un ancien changea radicalement. Lui qui cultivait le feu dut former rapidement des sceaux et pointer plusieurs fois sa propre poitrine pour stabiliser l'origine du feu dans son corps.
+Parmi les membres de la Secte Éternelle, l'expression d'un ancien changea radicalement. Lui qui cultivait le feu dut former rapidement des sceaux et pointer plusieurs fois sa propre poitrine pour stabiliser l'origine du feu dans son corps.
 
 C'était comme si, à cet instant précis, Wang Lin s'était incarné en la première flamme apparue au monde, devenant le souverain absolu du feu. Tout le feu de l'univers devait désormais obéir à ses ordres.
 
@@ -90,7 +90,7 @@ Cependant, le coût de cette attaque était immense. Wang Lin s'était forcé à
 
 Les cultivateurs environnants se levèrent tous pour fixer Wang Lin après la défaite de Yun Shan, leurs yeux empreints d'un immense respect.
 
-Les anciens de la Secte Everlasting étaient terrifiés. Bien qu'ils aient entendu parler de la force de Wang Lin, ce n'étaient que des rumeurs. Même s'ils y croyaient, rien ne les avait préparés à un tel choc visuel.
+Les anciens de la Secte Éternelle étaient terrifiés. Bien qu'ils aient entendu parler de la force de Wang Lin, ce n'étaient que des rumeurs. Même s'ils y croyaient, rien ne les avait préparés à un tel choc visuel.
 
 Lorsqu'il avait tué les membres de la Secte de la Musique Céleste et Zhao Long, on pouvait croire qu'il ne faisait que s'en prendre aux faibles. Bien que ses sorts fussent impressionnants, les anciens pensaient qu'ils auraient pu en faire autant, ils n'avaient donc pas accordé d'importance à ces faits.
 

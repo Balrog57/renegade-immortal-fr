@@ -78,13 +78,13 @@ Cette tête ressemblait à Wang Lin!
 
 « Bien que la bête fût très puissante, je pouvais encore l'affronter et même lui trancher une tête... Cependant, avec le recul, il semble que la bête n'ait pas utilisé toute sa puissance. On peut supposer qu'elle craignait quelque chose... » pensa Wang Lin en repensant à l'empreinte violette apparue sur la tête invoquée par le Ji Qiong et à celle qui s'était manifestée dans le ciel après l'invocation.
 
-« Se pourrait-il qu'elle soit scellée? Si elle utilise son véritable pouvoir, cela activera le sceau... Cette tête qui est apparue... était trop terrifiante! Avec ces deux tatouages de flétrissement, ma vitesse était comparable à celle d'un cultivateur au stade avancé du Briseur de Nirvana, mais je n'avais aucune chance face à cette force d'aspiration! »
+« Se pourrait-il qu'elle soit scellée? Si elle utilise son véritable pouvoir, cela activera le sceau... Cette tête qui est apparue... était trop terrifiante! Avec ces deux tatouages de flétrissement, ma vitesse était comparable à celle d'un cultivateur au stade avancé du Briseur du Nirvana, mais je n'avais aucune chance face à cette force d'aspiration! »
 
 Wang Lin regarda silencieusement devant lui et réfléchit longuement. Puis il poussa un soupir et murmura avec un sourire amer: « Wang Lin, ton niveau de culture actuel ne représente rien dans ce monde. Je dois encore rester prudent en toute chose! »
 
 Une amertume envahit Wang Lin. Dans la Terre des Esprits Démoniacs, il avait combattu le Maître du Vide, il avait combattu l'Omniscient avec la Nuit Déchirée, il avait combattu l'ancien démon avec le Rêve des Temps Anciens, puis il était devenu l'Empereur Divin de l'Oiseau Vermillon. Après cela, il avait réussi à sauver l'Empereur Divin du Dragon Azure et avait réveillé l'Empereur Céleste Qing Lin. Tout au long de ce parcours, le niveau de culture de Wang Lin avait progressé, et après être devenu l'Empereur Divin de l'Oiseau Vermillon, il avait mobilisé diverses forces pour combattre Tuo Sen.
 
-Tout cela lui avait donné l'impression que tout était sous son contrôle, et affronter des cultivateurs au stade du Briseur de Nirvana lui avait inconsciemment insufflé un sentiment de complaisance.
+Tout cela lui avait donné l'impression que tout était sous son contrôle, et affronter des cultivateurs au stade du Briseur du Nirvana lui avait inconsciemment insufflé un sentiment de complaisance.
 
 S'il avait été prudent, il aurait tenté de fuir le Ji Qiong plutôt que d'essayer de le blesser, ce qui avait conduit à sa mort.
 

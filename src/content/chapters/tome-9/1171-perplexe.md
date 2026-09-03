@@ -18,7 +18,7 @@ Le vieil homme aux robes vertes sourit: « Cher cultivateur Lu, je ne me suis pa
 
 « Ce vieux est Wu Qing, également de la Secte du Rassemblement des Démons. » La voix du vieil homme au visage rouge résonna comme une cloche, faisant vibrer tout le troisième étage.
 
-Ces deux anciens étaient tous deux au début du stade de Briseur de Nirvana, mais ils ne firent preuve d'aucune arrogance et traitèrent Wang Lin d'égal à égal. Wu Qing, ayant appris les récents événements par Tang Lihai, était sous le choc; il n'osait plus sous-estimer Wang Lin.
+Ces deux anciens étaient tous deux au début du stade de Briseur du Nirvana, mais ils ne firent preuve d'aucune arrogance et traitèrent Wang Lin d'égal à égal. Wu Qing, ayant appris les récents événements par Tang Lihai, était sous le choc; il n'osait plus sous-estimer Wang Lin.
 
 Li Qianmei s'assit rapidement sur le côté, jouant avec sa coupe de vin. Cependant, son regard balayait occasionnellement une table déserte dans le coin.
 

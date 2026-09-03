@@ -14,7 +14,7 @@ Ce changement prit Wang Lin au dépourvu. Il était perplexe, et un léger senti
 
 À l'intérieur de la Secte de l'Origine, Lu Yanfei et les autres attendaient Wang Lin. Ils saluèrent immédiatement Wang Lin à son arrivée, mais celui-ci, plongé dans ses pensées, se contenta d'un mince hochement de tête.
 
-Le jade que Liu Jinbiao avait envoyé était devenu un simple morceau de pierre, dépourvu de l'aura d'un cultivateur Briseur de Nirvana. Ce jade était sans artifice; Liu Jinbiao n'avait fait qu'infuser l'aura des centipèdes à l'objet, lui conférant une véritable aura de Briseur de Nirvana sans en révéler la moindre faille.
+Le jade que Liu Jinbiao avait envoyé était devenu un simple morceau de pierre, dépourvu de l'aura d'un cultivateur Briseur du Nirvana. Ce jade était sans artifice; Liu Jinbiao n'avait fait qu'infuser l'aura des centipèdes à l'objet, lui conférant une véritable aura de Briseur du Nirvana sans en révéler la moindre faille.
 
 Maintenant que les huit centipèdes étaient morts, l'aura s'était évanouie et le jade n'était plus qu'un objet ordinaire.
 
@@ -84,6 +84,6 @@ Elle regarda son maître, s'agenouilla lentement et effectua une profonde révé
 
 L'esprit du maître de Li Qianmei trembla. Il la contempla, son regard devenant plus complexe encore. Il l'avait élevée depuis son enfance et connaissait parfaitement sa nature.
 
-« Vous m'avez enseigné la culture et m'avez aidée à raffiner des pilules, permettant à Qianmei d'atteindre le stade de Briseur de Nirvana en seulement mille ans. Qianmei sait que vous avez utilisé une quantité immense de ressources de la secte, allant jusqu'à provoquer certains Anciens! Ils n'étaient pas ravis de vos actes... Maître, je ne peux oublier cette bienveillance. Si j'avais une autre vie, même si je ne devenais qu'un bœuf ou un cheval, je vous rendrais toujours cette faveur. » Li Qianmei s'inclina une seconde fois. Elle sentait qu'elle ne pourrait jamais égaler la dette envers son maître.
+« Vous m'avez enseigné la culture et m'avez aidée à raffiner des pilules, permettant à Qianmei d'atteindre le stade de Briseur du Nirvana en seulement mille ans. Qianmei sait que vous avez utilisé une quantité immense de ressources de la secte, allant jusqu'à provoquer certains Anciens! Ils n'étaient pas ravis de vos actes... Maître, je ne peux oublier cette bienveillance. Si j'avais une autre vie, même si je ne devenais qu'un bœuf ou un cheval, je vous rendrais toujours cette faveur. » Li Qianmei s'inclina une seconde fois. Elle sentait qu'elle ne pourrait jamais égaler la dette envers son maître.
 
 « Qianmei sait aussi que ces Anciens ont toujours soupçonné que j'appartenais à un clan étranger à cause de la couleur de mes cheveux. Parce qu'ils doutaient de mes origines, ils étaient indignés que vous dépensiez tant de pilules de la secte pour moi. Ils étaient même hostiles au fait que vous m'enseigniez le Dao! Pourtant, cela ne vous a jamais détourné de votre bienveillance et vous avez été pour moi un père. Vous m'avez même aidée à raffiner des pilules pour consolider mes fondations, au détriment de votre propre âme originelle. Comment Qianmei pourrait-elle vous rendre tant de gratitude... »

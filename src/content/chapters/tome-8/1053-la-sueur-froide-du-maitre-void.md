@@ -108,7 +108,7 @@ Une intention meurtrière traversa les yeux de Zhou Yi alors qu'il flottait vers
 
 Cette scène soudaine fit pousser un cri étouffé de stupeur chez le Maître Void; une sueur froide couvrit son front et son cœur s'emballa. Il ignorait ce que Wang Lin avait accompli durant ces quelques mois pour que ces gens viennent à sa rescousse!
 
-Le Couple du Nuage Céleste et cet étrange homme chauve lui donnaient l'impression qu'il devait rester prudent, même à l'apogée de sa puissance. Or, en cet instant, il était gravement blessé et la moitié de son âme originelle lui manquait. Son niveau de culture était tombé du sommet du stade de Briseur de Nirvana au milieu de ce même stade.
+Le Couple du Nuage Céleste et cet étrange homme chauve lui donnaient l'impression qu'il devait rester prudent, même à l'apogée de sa puissance. Or, en cet instant, il était gravement blessé et la moitié de son âme originelle lui manquait. Son niveau de culture était tombé du sommet du stade de Briseur du Nirvana au milieu de ce même stade.
 
 Il n'osait ni bouger, ni reculer. Il était la cible des regards de tous les occupants de la salle. Le moindre mouvement de sa part risquait de déclencher l'assaut général.
 

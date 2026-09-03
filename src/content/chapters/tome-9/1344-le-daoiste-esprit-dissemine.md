@@ -8,7 +8,7 @@ slug: le-daoiste-esprit-dissemine
 ---
 Le jeune homme chauve esquissa un sourire, mais au plus profond de ses yeux brillait un regard solennel. Une pointe d'horreur traversa son regard lorsqu'il fixa Wang Lin. Il avait suivi ce dernier et avait été le témoin direct de tout ce qu'il avait accompli. Il avait vu Wang Lin utiliser ce cultivateur comme appât et massacrer près de cent personnes en seulement trente minutes!
 
-Ce qui le bouleversait le plus, c'est que ce puissant cultivateur du Briseur de Nirvana n'avait même pas pu encaisser un seul coup!
+Ce qui le bouleversait le plus, c'est que ce puissant cultivateur du Briseur du Nirvana n'avait même pas pu encaisser un seul coup!
 
 « Quel est son niveau de culture? »
 
@@ -68,7 +68,7 @@ Wang Lin gardait une expression sereine tout en voyageant avec lui à travers le
 
 « Malheureusement, bien que mon talent fût excellent, je ne pouvais plus contenir ma culture. À deux cents ans, elle déborda et déclencha la rétribution divine... Le Céleste qui apparut était l'actuel Grand Ancien du Clan du Tonnerre Dispersé...
 
-« Son niveau de culture à l'époque n'était que celui d'un Clairvoyant du Nirvana. J'étais gravement blessé et au bord de la mort; je ne pouvais tout simplement pas résister... Cependant, au lieu de m'achever, il a réduit ma culture à néant avant de partir...
+« Son niveau de culture à l'époque n'était que celui d'un Scruteur du Nirvana. J'étais gravement blessé et au bord de la mort; je ne pouvais tout simplement pas résister... Cependant, au lieu de m'achever, il a réduit ma culture à néant avant de partir...
 
 « J'ai d'abord cru que les cieux étaient cléments, et ce n'est que bien des années plus tard que j'ai compris qu'il m'avait laissé la vie sauve pour me donner une chance de continuer ma culture. Ainsi, il y aurait une autre possibilité de faire naître le Tonnerre Spirituel. » La voix du jeune homme était empreinte d'amertume.
 
@@ -82,13 +82,13 @@ Le jeune homme hocha la tête.
 
 « 971 était la limite de la technique de l'Esprit Disséminé; on ne pouvait pas la dépasser. J'ai donc trouvé un moyen de contourner cette règle. Chaque avatar agit comme un corps principal et utilise à son tour la technique de l'Esprit Disséminé. Chacun de mes 971 avatars possède ses propres 971 avatars!
 
-« Grâce à ce cycle perpétuel, mon niveau de culture a lentement progressé jusqu'à atteindre le stade du Clairvoyant du Nirvana... » En arrivant à ce point, le jeune homme laissa échapper un soupir.
+« Grâce à ce cycle perpétuel, mon niveau de culture a lentement progressé jusqu'à atteindre le stade du Scruteur du Nirvana... » En arrivant à ce point, le jeune homme laissa échapper un soupir.
 
 Lui et Wang Lin étaient tous deux de puissants cultivateurs. Ils traversaient les mondes, s'éloignant de plus en plus.
 
-« Après avoir atteint le stade du Nettoyeur du Nirvana, j'ai commencé à poursuivre le doute qui m'habitait depuis longtemps. Je voulais savoir si ce ciel était véritablement le ciel. Si cette terre était réellement la terre. Si ce Royaume Céleste était vraiment le Royaume Céleste!
+« Après avoir atteint le stade du Purificateur du Nirvana, j'ai commencé à poursuivre le doute qui m'habitait depuis longtemps. Je voulais savoir si ce ciel était véritablement le ciel. Si cette terre était réellement la terre. Si ce Royaume Céleste était vraiment le Royaume Céleste!
 
-« Je voulais percer le mystère de la légende transmise par nos ancêtres depuis l'Antiquité, leur description et leur désir ardent du Royaume Céleste! Cependant, bien que j'eusse atteint le stade du Nettoyeur du Nirvana et possédae une culture puissante, je ne pouvais quitter les 7 Millions de Mondes. Je ne pouvais que voyager en son sein; il existait une barrière invisible que ma culture ne parvenait pas à briser!
+« Je voulais percer le mystère de la légende transmise par nos ancêtres depuis l'Antiquité, leur description et leur désir ardent du Royaume Céleste! Cependant, bien que j'eusse atteint le stade du Purificateur du Nirvana et possédae une culture puissante, je ne pouvais quitter les 7 Millions de Mondes. Je ne pouvais que voyager en son sein; il existait une barrière invisible que ma culture ne parvenait pas à briser!
 
 « J'ai donc conçu une méthode pour contrôler mes innombrables avatars afin qu'ils franchissent tous le stade de la Formation de l'Âme et déclenchent la rétribution divine! À ce moment-là, j'ai provoqué moi-même une infime partie de cette rétribution!
 
@@ -104,4 +104,4 @@ Wang Lin réfléchissait silencieusement en écoutant le récit du jeune homme, 
 
 « À partir de ce jour, je ne fus plus confus. Je me suis juré de briser ce monde, de sortir et de voir ce qui se trouvait au-delà. Pour vérifier si mes soupçons étaient fondés! » Le jeune homme était transporté par l'excitation. C'était la première fois qu'il confiait cela à quelqu'un.
 
-« J'ai commencé à cultiver. Chacun de mes avatars a également commencé à pratiquer la technique de l'Esprit Disséminé. Le temps a passé, mais l'indignation dans mon cœur ne cessait de croître... Jusqu'à ce que j'atteigne le stade du Briseur de Nirvana! Même mes avatars avaient atteint les stades de Clairvoyant et de Nettoyeur du Nirvana! J'ai enfin brisé ma cage et j'ai fait un pas dans la voûte étoilée! »
+« J'ai commencé à cultiver. Chacun de mes avatars a également commencé à pratiquer la technique de l'Esprit Disséminé. Le temps a passé, mais l'indignation dans mon cœur ne cessait de croître... Jusqu'à ce que j'atteigne le stade du Briseur du Nirvana! Même mes avatars avaient atteint les stades du Scruteur et du Purificateur du Nirvana! J'ai enfin brisé ma cage et j'ai fait un pas dans la voûte étoilée! »

@@ -40,7 +40,7 @@ Maître Flamespark réfléchit et secoua la tête. « Cette fluctuation n'est pa
 
 « Les Quatre Sectes Divins? Si l'Alliance de Culture n'est pas de taille face à nous, une si petite secte s'effondrerait simplement sous la pression de mon armée d'Allheaven! » Un vieil homme aux cheveux roux, à l'intérieur du palais, afficha un regard empreint de mépris et de fierté.
 
-Maître Flamesspark regarda le vieillard roux et dit: « Les Quatre Sectes Divins ne sont certainement pas ce que tu imagines. Cette fluctuation de l'énergie originelle est probablement la naissance d'un nouvel Empereur Divin. Je me demande simplement lequel! »
+Maître Flamespark regarda le vieillard roux et dit: « Les Quatre Sectes Divins ne sont certainement pas ce que tu imagines. Cette fluctuation de l'énergie originelle est probablement la naissance d'un nouvel Empereur Divin. Je me demande simplement lequel! »
 
 Il ne savait pas pourquoi un sentiment de malaise accompagnait cette fluctuation de l'énergie originelle. Ce sentiment était mystérieux, mais d'une clarté absolue.
 
@@ -48,7 +48,7 @@ Une autre personne ressentit cette fluctuation: un vieil homme vêtu de noir. Il
 
 Il leva immédiatement la tête et scruta l'horizon. Son regard semblait capable de percer les confins du système stellaire, et ses yeux s'illuminèrent.
 
-« Le nouvel Empereur Divin des Quatre Sectes Divins... Cette fluctuation contient une trace d'énergie originelle de feu; il doit donc s'agir du nouvel Empereur Divin du Vermillion Bird. Dans ce cas, la pièce devient bien plus intéressante... Maître Everlasting, il est impossible que vous ne fassiez pas votre apparition lorsque l'Alliance sombrera dans le chaos! »
+« Le nouvel Empereur Divin des Quatre Sectes Divins... Cette fluctuation contient une trace d'énergie originelle de feu; il doit donc s'agir du nouvel Empereur Divin du Vermillion Bird. Dans ce cas, la pièce devient bien plus intéressante... Maître Éternel, il est impossible que vous ne fassiez pas votre apparition lorsque l'Alliance sombrera dans le chaos! »
 
 Dans la partie sud de l'Alliance, au plus profond de la Secte des Cadavres, se trouvait un immense cercueil noir. Des chaînes l'entouraient selon une structure octogonale, le reliant à un autre cercueil.
 

@@ -64,7 +64,7 @@ Wang Lin ne prêta plus attention à Big Red et détourna le regard du temple fa
 
 Les portes est, sud et ouest menaient toutes à trois espaces distincts. Mais il existait aussi un quatrième espace sans entrée apparente. Le Sens Divin de Wang Lin balaya les lieux et détecta clairement neuf auras en pleine culture.
 
-« Il y a beaucoup de cultivateurs puissants dans le Clan du Tonnerre Disséminé. Sur les neuf auras, cinq sont au stade de Scryer Nirvana, trois au stade de Cleanser Nirvana, et une est même au stade de Shatterer Nirvana! » Wang Lin marcha silencieusement vers la porte est du temple.
+« Il y a beaucoup de cultivateurs puissants dans le Clan du Tonnerre Disséminé. Sur les neuf auras, cinq sont au stade du Scruteur du Nirvana, trois au stade de Purificateur du Nirvana, et une est même au stade de Briseur du Nirvana! » Wang Lin marcha silencieusement vers la porte est du temple.
 
 Le lieu grouillait de membres du Clan du Tonnerre Disséminé. Certains étaient seuls, d'autres en groupe; l'atmosphère était extrêmement animée.
 

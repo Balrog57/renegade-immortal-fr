@@ -22,7 +22,7 @@ Le dieu ancestral à 7 étoiles Wang Lin n'était pas plus faible que Tu Si lors
 
 Wang Lin oserait même affronter des cultivateurs du Vide du Nirvana au stade intermédiaire. Bien qu'il risquât probablement de perdre, ils auraient extrêmement de mal à le tuer!
 
-Au troisième pas, les stades Vide du Nirvana, Vide Spirituel, Vide Arcanique et Tribulant du Vide comprenaient tous les phases initiale, intermédiaire et tardive, tout comme au second pas. La différence entre chaque niveau était immense, comparable à celle entre un cultivateur du Purificateur du Nirvana et un Briseur de Nirvana!
+Au troisième pas, les stades Vide du Nirvana, Vide Spirituel, Vide Arcanique et Tribulant du Vide comprenaient tous les phases initiale, intermédiaire et tardive, tout comme au second pas. La différence entre chaque niveau était immense, comparable à celle entre un cultivateur du Purificateur du Nirvana et un Briseur du Nirvana!
 
 Les yeux de Wang Lin brillaient comme le feu alors qu'il siégeait sur le trône, laissant la force de rejet secouer son corps. Cependant, la puissance qui autrefois suffisait à briser son corps ne pouvait plus l'affecter outre mesure.
 

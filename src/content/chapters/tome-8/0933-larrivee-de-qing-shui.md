@@ -6,11 +6,11 @@ bookTitle: "Alliance's Secret"
 en: Chapter 933 - Qing Shui Arrives
 slug: larrivee-de-qing-shui
 ---
-Alors que le rugissement du Serpent Clair de Lune résonnait, d'innombrables tentacules se détachèrent de son corps. Puis, tous ces tentacules convergèrent devant la créature, s'entrelacèrent et formèrent un bras gigantesque!
+Alors que le rugissement du Serpent aux yeux de lune résonnait, d'innombrables tentacules se détachèrent de son corps. Puis, tous ces tentacules convergèrent devant la créature, s'entrelacèrent et formèrent un bras gigantesque!
 
 Ce bras mesurait cent mille pieds de long et se terminait par un poing massif. De loin, il ressemblait au bras d'un dieu ancien!
 
-La colère du Serpent Clair de Lune était semblable au doigt d'un dieu ancien! Cependant, lorsque sa fureur atteindrait son paroxysme, elle serait comparable au bras d'un dieu ancien!
+La colère du Serpent aux yeux de lune était semblable au doigt d'un dieu ancien! Cependant, lorsque sa fureur atteindrait son paroxysme, elle serait comparable au bras d'un dieu ancien!
 
 Dès l'apparition de ce bras divin, il chargea impitoyablement. Sa cible était la Flèche du Pseudo-Vide du Nirvana!
 
@@ -18,7 +18,7 @@ Ce coup provoqua chez Wang Lin une véritable illusion. Il eut l'impression de r
 
 Il vit un dieu ancien agiter son bras en rugissant. Les planètes s'effondraient, l'espace se déchirait et tous ses ennemis se désintégraient!
 
-À cet instant précis, le bras formé par le Serpent Clair de Lune était semblable à cela. Le coup partit et percuta la flèche. Celle-ci trembla, puis s'effondra instantanément!
+À cet instant précis, le bras formé par le Serpent aux yeux de lune était semblable à cela. Le coup partit et percuta la flèche. Celle-ci trembla, puis s'effondra instantanément!
 
 Même un trésor de niveau Pseudo-Vide du Nirvana devait se briser sous le poing d'un dieu ancien!
 
@@ -42,7 +42,7 @@ Dès que Qing Shui fut sur place, sa main traça un sceau et pointa vers le ciel
 
 « Qing Shui, tu n'es pas mort! » L'Estimé Xuan Bao recula promptement, mais sa fuite fut entravée par les sept dragons noirs. Sous la déferlante d'air glacial, il serra les dents tout en formant un sceau pour pointer l'avant.
 
-Les neuf papillons noirs qui entouraient le Serpent Clair de Lune disparurent et, lorsqu'ils réapparurent, ils se trouvaient aux côtés de l'Estimé Xuan Bao.
+Les neuf papillons noirs qui entouraient le Serpent aux yeux de lune disparurent et, lorsqu'ils réapparurent, ils se trouvaient aux côtés de l'Estimé Xuan Bao.
 
 « Neuf papillons, n'en faites qu'un! »
 
@@ -78,11 +78,11 @@ L'Estimé Xuan Bao pointa l'avant sans hésiter, et la seconde aile du papillon 
 
 Tous les sorts disparus, y compris l'« Appel du Vent et Convocation de la Pluie » de Qing Shui, réapparurent. Cependant, cette fois, ils devinrent les sorts de l'Estimé Xuan Bao!
 
-Dans un rugissement, il tendit le bras et repoussa immédiatement l'attaque. Une partie servit à stopper le Serpent Clair de Lune, tandis que l'autre fut dirigée contre Qing Shui.
+Dans un rugissement, il tendit le bras et repoussa immédiatement l'attaque. Une partie servit à stopper le Serpent aux yeux de lune, tandis que l'autre fut dirigée contre Qing Shui.
 
 Profitant de cette ouverture, l'Estimé Xuan Bao battit en retraite rapidement. Mais la foudre rouge le poursuivait sans relâche, lui causant un véritable tourment. Si la Flèche du Pseudo-Vide du Nirvana était encore là, il aurait pu affronter Qing Shui sans crainte!
 
-En songeant à sa flèche, il ressentit une douleur au cœur. Il ne s'attendait pas à ce que ce Serpent Clair de Lune soit aussi puissant; il différait trop des spécimens décrits dans les textes anciens.
+En songeant à sa flèche, il ressentit une douleur au cœur. Il ne s'attendait pas à ce que ce Serpent aux yeux de lune soit aussi puissant; il différait trop des spécimens décrits dans les textes anciens.
 
 Autrement, il ne serait pas venu ici. Non seulement il avait échoué, mais il avait également perdu son unique trésor de niveau Pseudo-Vide du Nirvana. Il pouvait imaginer à quel point son statut au sein du groupe des Anciens allait s'effondrer.
 

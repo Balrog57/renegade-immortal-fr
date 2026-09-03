@@ -18,7 +18,7 @@ En un éclair, ces cultivateurs chargèrent les 43 plateformes comme des dément
 
 Dans le chaos, Wang Lin n'eut pas le temps de vérifier quels cultivateurs occupaient les 42 autres plateformes. Sa main traça un sceau et il créa un rideau d'air pour bloquer la douzaine de personnes qui chargeaient sur lui.
 
-Le plus puissant de ces dix cultivateurs était un vieil homme au quatrième stade du Fléau Céleste. Les autres étaient plus faibles, mais même le moins fort se trouvait au stade avancé du Purificateur de Nirvana.
+Le plus puissant de ces dix cultivateurs était un vieil homme au quatrième stade du Fléau Céleste. Les autres étaient plus faibles, mais même le moins fort se trouvait au stade avancé du Purificateur du Nirvana.
 
 Bien que leurs niveaux de culture ne soient pas les plus élevés, ils déployèrent tout leur potentiel en ce moment crucial de vie ou de mort. Ils étaient nombreux et chargeaient la plateforme de Wang Lin de toutes parts.
 

@@ -1,6 +1,6 @@
 ---
 n: 516
-title: "Le Voyage de l'Avarice"
+title: "Le Voyage de Cupidité"
 book: 6
 bookTitle: Arriving on Tian Yun
 en: Chapter 516 - Greeds Trip
@@ -130,14 +130,14 @@ Il chargea droit devant lui sans se soucier de personne, pénétrant directement
 
 L'homme d'âge moyen, assis sur le crâne géant et entouré par cette aura funèbre, laissa échapper un rire rauque: « Vieux ami Ling Tian! »
 
-Le Saint de l'Épée Ling Tianhou esquissa un sourire ténu et répondit: « Avarice! »
+Le Saint de l'Épée Ling Tianhou esquissa un sourire ténu et répondit: « Cupidité! »
 
-Cet Avarice était celui de la planète Suzaku qui cherchait à dévorer d'anciens cultivateurs pour restaurer sa culture. Il cherchait également l'origine de cette divine rétribution et, sans le savoir, traquait Wang Lin.
+Cupidité était celui de la planète Suzaku qui cherchait à dévorer d'anciens cultivateurs pour restaurer sa culture. Il cherchait également l'origine de cette divine rétribution et, sans le savoir, traquait Wang Lin.
 
 Cet homme était l'un des principaux responsables de la tentative de vol de la Perle Défiant le Ciel appartenant à Situ Nan.
 
 Pour échapper à Situ Nan, il s'était réfugié ici afin de retrouver son vieil ami, le Saint de l'Épée Ling Tianhou.
 
-« Comment as-tu pu être si gravement blessé? » Le Saint de l'Épée vit immédiatement que les blessures d'Avarice n'étaient pas encore cicatrisées.
+« Comment as-tu pu être si gravement blessé? » Le Saint de l'Épée vit immédiatement que les blessures de Cupidité n'étaient pas encore cicatrisées.
 
-Les yeux d'Avarice brillaient d'une lueur spectrale lorsqu'il répondit lentement: « C'est une longue histoire. Je suis allé à la Secte de l'Épée Da Lou pour te chercher. Quand j'ai appris que tu étais ici, je me suis précipité, car je voulais t'offrir une opportunité inouïe! Si nous nous alliions, tu pourras enfin surpasser ce vieux fou de l'Omniscient! »
+Les yeux de Cupidité brillaient d'une lueur spectrale lorsqu'il répondit lentement: « C'est une longue histoire. Je suis allé à la Secte de l'Épée Da Lou pour te chercher. Quand j'ai appris que tu étais ici, je me suis précipité, car je voulais t'offrir une opportunité inouïe! Si nous nous alliions, tu pourras enfin surpasser ce vieux fou de l'Omniscient! »

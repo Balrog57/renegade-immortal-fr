@@ -48,7 +48,7 @@ L'épée brisée siffla dans les airs, portée par une intention meurtrière cé
 
 L'épée brisée pénétra inopinément le pied droit de Tuo Sen. Portant une force irrésistible, elle traversa la jambe et chargea vers le visage du colosse.
 
-Le sortilège de cette épée brisée dépassait de loin ce qu'un cultivateur du Briseur de Nirvana pouvait accomplir. Même les cultivateurs du Fléau Céleste ne pouvaient égaler la vitesse de cette arme.
+Le sortilège de cette épée brisée dépassait de loin ce qu'un cultivateur du Briseur du Nirvana pouvait accomplir. Même les cultivateurs du Fléau Céleste ne pouvaient égaler la vitesse de cette arme.
 
 Tout cela ne prit qu'un instant: l'épée perça la jambe droite de Tuo Sen! En un éclair, elle atteignit le visage de ce dernier et chargea vers la quatrième étoile.
 

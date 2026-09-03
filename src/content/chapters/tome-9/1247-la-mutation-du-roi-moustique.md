@@ -38,7 +38,7 @@ Simultanément, le roi moustique de Wang Lin rugit une fois de plus, arborant un
 
 Les moustiques rouges, bleus et blancs s'immobilisèrent. Une bataille entre rois moustiques était une chose à laquelle ils ne pouvaient prendre part; cela était gravé dans leurs âmes. Seuls les moustiques violets ou de rang supérieur étaient éligibles.
 
-Malgré cet arrêt, près de mille moustiques violets chargèrent avec frénésie, exhalant une odeur fétide. Leur vitesse était prodigieuse; chacun d'eux possédait une aura comparable à celle d'un cultivateur au sommet du stade de Briseur de Nirvana, et ils convergèrent en un instant.
+Malgré cet arrêt, près de mille moustiques violets chargèrent avec frénésie, exhalant une odeur fétide. Leur vitesse était prodigieuse; chacun d'eux possédait une aura comparable à celle d'un cultivateur au sommet du stade de Briseur du Nirvana, et ils convergèrent en un instant.
 
 Les cheveux blancs de Wang Lin flottaient dans les airs tandis que le trident de sa main droite balayait l'espace. Des craquements résonnèrent en lui alors que la puissance de l'Ancien Dieu emplissait son corps. L'Étoile de la Loi apparut entre ses sourcils et, d'un mouvement de trident, il fit trembler les cieux. Le tonnerre tonna et une mer de feu bleu surgit.
 

@@ -82,7 +82,7 @@ Le ciel et la terre grondèrent tandis que le brouillard stellaire s'effondrait 
 
 Même dans la région de rang 7, une fissure spatiale la fendit en deux!
 
-Cette attaque était infiniment proche d'un sort du troisième niveau. Elle suffisait à détruire n'importe quel cultivateur du Briseur de Nirvana ou toute puissance du Fléau Céleste. Même l'Empereur Divin du Dragon Azur en mourrait sans aucun doute!
+Cette attaque était infiniment proche d'un sort du troisième niveau. Elle suffisait à détruire n'importe quel cultivateur du Briseur du Nirvana ou toute puissance du Fléau Céleste. Même l'Empereur Divin du Dragon Azur en mourrait sans aucun doute!
 
 Wang Lin ne pouvait utiliser cette attaque qu'une seule fois, car elle exigeait l'effondrement des cinq essences qu'il venait d'acquérir. En détruisant ses cinq essences, ce petit cultivateur était capable de lancer une attaque comparable à celle d'un cultivateur du Nirvana Vide!
 

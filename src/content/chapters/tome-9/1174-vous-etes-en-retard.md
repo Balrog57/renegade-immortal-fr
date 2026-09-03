@@ -14,7 +14,7 @@ Son départ ne manqua pas d'attirer l'attention de nombreux vieux monstres, en p
 
 « Si je retourne là-bas avec autant de jades célestes, je réussirai à coup sûr! » Il prit une profonde inspiration et s'apprêtait à revoir son plan une dernière fois lorsqu'il redressa brusquement la tête. C'était comme si son regard pouvait percer les murs pour voir Wu Qing fendre les airs à l'extérieur.
 
-« Bien que Wu Qing soit désormais au stade de Briseur de Nirvana, sa cupidité n'a pas diminué; elle a même augmenté. Ce qui est encore plus frappant, c'est que bien qu'il se prenne pour un stratège, il n'est en réalité qu'un homme d'une immense vanité. Je l'ai invité à participer car j'avais entendu parler de frictions entre sa Secte de la Collection des Démons et Lu Zhihao, et je voulais voir si je pouvais provoquer un conflit. Puisqu'il poursuit Lu Zhihao, ce dernier mourra sans aucun doute. Peu importe. Puisque j'ai traité avec lui, je ne laisserai pas ses cristaux d'origine tomber entre les mains d'un autre. » Maître Pin Cendré afficha un sourire sinistre tandis que son sens divin s'élançait pour suivre de près Wu Qing.
+« Bien que Wu Qing soit désormais au stade de Briseur du Nirvana, sa cupidité n'a pas diminué; elle a même augmenté. Ce qui est encore plus frappant, c'est que bien qu'il se prenne pour un stratège, il n'est en réalité qu'un homme d'une immense vanité. Je l'ai invité à participer car j'avais entendu parler de frictions entre sa Secte de la Collection des Démons et Lu Zhihao, et je voulais voir si je pouvais provoquer un conflit. Puisqu'il poursuit Lu Zhihao, ce dernier mourra sans aucun doute. Peu importe. Puisque j'ai traité avec lui, je ne laisserai pas ses cristaux d'origine tomber entre les mains d'un autre. » Maître Pin Cendré afficha un sourire sinistre tandis que son sens divin s'élançait pour suivre de près Wu Qing.
 
 Au quatrième étage d'un restaurant de la ville principale, un homme et une femme étaient assis l'un face à l'autre. L'homme était vêtu de blanc, et sa compagne était une magnifique jeune femme dont la robe fleurie sublimait la beauté du visage.
 
@@ -36,7 +36,7 @@ Dans l'auberge d'une petite ville, loin de la cité principale, un vieillard mai
 
 « J'ai laissé Wu Qing prendre l'avantage... Quel malheur... »
 
-Tous les vieux monstres ayant participé aux enchères de Maître Pin Cendré pensaient que Wang Lin mourrait sans aucun doute. Tous, sauf le lettré en blanc! Bien qu'il fût quelque peu sceptique, il savait au fond de lui que les cultivateurs du stade de Nettoyeur de Nirvana n'avaient aucune chance face à un Briseur de Nirvana!
+Tous les vieux monstres ayant participé aux enchères de Maître Pin Cendré pensaient que Wang Lin mourrait sans aucun doute. Tous, sauf le lettré en blanc! Bien qu'il fût quelque peu sceptique, il savait au fond de lui que les cultivateurs du stade de Purificateur du Nirvana n'avaient aucune chance face à un Briseur du Nirvana!
 
 Non seulement eux, mais d'autres Briseurs de Nirvana présents dans la ville furent alertés par le départ de Wu Qing, et leurs sens divins se déployèrent. L'un d'eux était Tang Lihai!
 
@@ -66,7 +66,7 @@ S'il se contentait de cela, son intention ne serait pas pleinement exprimée. No
 
 Soudain, Wang Lin s'arrêta et se retourna lentement. Il fit face à la silhouette de Wu Qing qui chargeait vers lui comme une rafale violente! Les yeux de Wu Qing étaient empreints d'une intention meurtrière qu'il ne cherchait même pas à dissimuler. Voyant que Wang Lin ne fuyait plus, il abattit sa main droite et attaqua immédiatement de toutes ses forces, sans retenue.
 
-Il activa sa culture de Briseur de Nirvana au stade initial et une montagne gigantesque apparut devant lui. D'un geste de la main, cette montagne s'abattit sur Wang Lin!
+Il activa sa culture de Briseur du Nirvana au stade initial et une montagne gigantesque apparut devant lui. D'un geste de la main, cette montagne s'abattit sur Wang Lin!
 
 « Cadet, ne me reproche pas ma cruauté. Tu as blessé un junior de ma Secte de la Collection des Démons, tu dois donc être prêt à mourir! Aujourd'hui, ce vieil homme détruira ton corps et utilisera ton âme originelle pour raffiner une pilule! »
 
@@ -98,7 +98,7 @@ Cette fois, toute l'énergie originelle de Peng Lai sembla entrer en ébullition
 
 Le vortex trembla et s'effondra instantanément. Une onde de choc surpuissante se propagea dans toutes les directions, soulevant un nuage de poussière titanesque. D'innombrables rochers furent projetés et pulvérisés par l'onde de choc, plongeant le monde sous une poussière infinie.
 
-Sans son corps original, Wang Lin pouvait tuer un Briseur de Nirvana au stade initial. Mais avec son corps original, il était bien plus puissant qu'auparavant. La force de son corps était inconcevable et, alliée à la puissance d'un Dieu Ancien, sa capacité de destruction avait décuplé!
+Sans son corps original, Wang Lin pouvait tuer un Briseur du Nirvana au stade initial. Mais avec son corps original, il était bien plus puissant qu'auparavant. La force de son corps était inconcevable et, alliée à la puissance d'un Dieu Ancien, sa capacité de destruction avait décuplé!
 
 Après l'impact des trois doigts, la main droite de Wang Lin s'abattit, projetant son énergie originelle sur Wu Qing. Les pupilles de ce dernier se contractèrent. En cet instant de vie ou de mort, il n'eut même pas le temps de regretter. Des trésors jaillirent précipitamment de son espace de stockage pour tenter d'endiguer cette force.
 
@@ -108,7 +108,7 @@ Wu Qing n'était pas digne de posséder un trésor capable de contrer ce sort! I
 
 Un grondement tonnerre retentit et tous les trésors de Wu Qing explosèrent, tandis que la paume noire s'écrasait sur sa poitrine. Ses vêtements furent réduits en lambeaux et il cracha un torrent de sang. Il recula, le visage livide, totalement terrassé par la stupeur.
 
-« Tu n'es pas un cultivateur du stade Nettoyeur de Nirvana!! » hurla Wu Qing d'une voix erratique.
+« Tu n'es pas un cultivateur du stade Purificateur du Nirvana!! » hurla Wu Qing d'une voix erratique.
 
 « Wu Qing, je ne te ferai pas de funérailles! » Wang Lin ferma les yeux et leva une nouvelle fois sa main droite. L'immense empreinte de la paume du Royaume Céleste de la Pluie apparut dans son esprit. L'empreinte grandit jusqu'à occulter tout le reste!
 
@@ -134,7 +134,7 @@ La volonté contenue dans cette paume était celle d'un être s'élevant au-dess
 
 Cette paume était comme le firmament! Et sous elle, Wu Qing n'était qu'une fourmi! Dès l'apparition de cette main, le sens divin de tous les vieux monstres trembla et tout Peng Lai fut saisi par la terreur!
 
-« L'Empreinte... l'Empreinte de l'Esprit Guerrier!!! L'Empreinte de l'Esprit Guerrier de la Secte Divin de Rang 9!! » Wu Qing était totalement pétrifié, et un sentiment de désespoir sans précédent envahit son être. Bien qu'il fût un Briseur de Nirvana, la pression de l'Empreinte de l'Esprit Guerrier lui donnait l'impression que le monde s'effondrait. Ce qui était encore plus terrifiant, c'était de voir l'emblématique Empreinte de la Secte Divin se manifester devant ses yeux.
+« L'Empreinte... l'Empreinte de l'Esprit Guerrier!!! L'Empreinte de l'Esprit Guerrier de la Secte Divin de Rang 9!! » Wu Qing était totalement pétrifié, et un sentiment de désespoir sans précédent envahit son être. Bien qu'il fût un Briseur du Nirvana, la pression de l'Empreinte de l'Esprit Guerrier lui donnait l'impression que le monde s'effondrait. Ce qui était encore plus terrifiant, c'était de voir l'emblématique Empreinte de la Secte Divin se manifester devant ses yeux.
 
 Dans son esprit, ce n'était pas seulement l'Empreinte, mais tout la Secte Divin qui s'abattait sur lui!
 
@@ -146,7 +146,7 @@ Son âme originelle s'échappa, mais fut balayée par la paume avant d'avoir pu 
 
 Dès que Wu Qing eut péri, Wang Lin s'avança vers l'endroit où l'espace de stockage avait été ouvert. Très peu de temps s'était écoulé entre l'arrivée et la mort de Wu Qing. Bien qu'il ne s'agût pas d'une exécution instantanée, elle fut d'une netteté absolue.
 
-L'espace de stockage n'avait même pas eu le temps de se refermer. La mort de son propriétaire avait effacé sa marque, et l'ouverture se refermait rapidement. Juste avant la fermeture complète, la main droite de Wang Lin s'y engouffra sans pitié pour tout rafler. C'était une technique qu'il avait conçue pour dépouiller les espaces de stockage des cultivateurs dépassant le stade de Nettoyeur de Nirvana!
+L'espace de stockage n'avait même pas eu le temps de se refermer. La mort de son propriétaire avait effacé sa marque, et l'ouverture se refermait rapidement. Juste avant la fermeture complète, la main droite de Wang Lin s'y engouffra sans pitié pour tout rafler. C'était une technique qu'il avait conçue pour dépouiller les espaces de stockage des cultivateurs dépassant le stade de Purificateur du Nirvana!
 
 Tuer l'adversaire dès l'ouverture de son espace de stockage permet d'en saisir instantanément les richesses!
 
@@ -158,7 +158,7 @@ Un grondement tonnerre retentit sur Peng Lai, comme pour saluer le retour de l'E
 
 La paume accéléra encore, absorbant davantage d'énergie originelle. Bientôt, elle échappa au contrôle de Wang Lin. Ce dernier se contenta de retirer son sens divin et la laissa poursuivre sa route selon sa propre volonté.
 
-Le sol trembla plus violemment encore et la vitesse de la paume atteignit son paroxysme. Elle n'était pas plus lente qu'un Briseur de Nirvana. En un clin d'œil, elle fonça vers les cités flottantes de la partie est de Peng Lai.
+Le sol trembla plus violemment encore et la vitesse de la paume atteignit son paroxysme. Elle n'était pas plus lente qu'un Briseur du Nirvana. En un clin d'œil, elle fonça vers les cités flottantes de la partie est de Peng Lai.
 
 Cette scène était d'une telle violence que tous les cultivateurs de Peng Lai furent pris de stupeur. Voyant la paume charger vers eux, ils s'envolèrent tous des cités pour l'éviter.
 
@@ -210,7 +210,7 @@ Le vieillard desséché en noir fut le plus chanceux. À cet instant, les deux s
 
 Il y avait aussi la vieille femme en vert qui avait vendu la carte des étoiles à Wang Lin. Ses yeux s'illuminèrent et elle fronça les sourcils, réprimant le choc dans son cœur. Elle observa les ruines laissées par la paume, mais nul ne savait ce qu'elle pensait réellement.
 
-La plus terrassée de tous fut Tang Lihai. Ses lèvres étaient sèches et il était pétrifié par l'effroi. S'il devait croiser à nouveau le regard de Wang Lin, il ne serait plus jamais aussi calme qu'auparavant. Chaque Briseur de Nirvana au stade initial ressentirait une peur indicible face à quelqu'un capable d'éliminer un semblable si promptement.
+La plus terrassée de tous fut Tang Lihai. Ses lèvres étaient sèches et il était pétrifié par l'effroi. S'il devait croiser à nouveau le regard de Wang Lin, il ne serait plus jamais aussi calme qu'auparavant. Chaque Briseur du Nirvana au stade initial ressentirait une peur indicible face à quelqu'un capable d'éliminer un semblable si promptement.
 
 Outre eux, les cultivateurs des diverses sectes et les vieux monstres présents pour l'enchère, surtout ceux qui avaient assisté au combat, tournèrent tous leurs regards vers l'ouest avec des expressions complexes.
 

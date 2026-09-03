@@ -78,7 +78,7 @@ Il n'y avait pas de retraite; il devait tout donner!
 
 Les flammes bleues chargèrent le majeur avec une fureur démentielle. Le visage de Wang Lin était pâle et du sang coulait de sa bouche. En affrontant personnellement le majeur, il en ressentit la puissance colossale, suffisante pour faire trembler son corps et l'enfoncer violemment.
 
-« Je ne me résignerai pas! » Le rugissement furieux de Wang Lin résonna à travers le Royaume aux Sept Couleurs. Il refusait de se soumettre à ce destin. Il venait d'engloutir le fruit du Dao, augmentant considérablement son niveau de culture et gagnant des dizaines de milliers d'années pour atteindre le stade Briseur de Nirvana. Et alors qu'il était sur le point de quitter le Royaume aux Sept Couleurs, il se retrouvait face à une crise mortelle.
+« Je ne me résignerai pas! » Le rugissement furieux de Wang Lin résonna à travers le Royaume aux Sept Couleurs. Il refusait de se soumettre à ce destin. Il venait d'engloutir le fruit du Dao, augmentant considérablement son niveau de culture et gagnant des dizaines de milliers d'années pour atteindre le stade Briseur du Nirvana. Et alors qu'il était sur le point de quitter le Royaume aux Sept Couleurs, il se retrouvait face à une crise mortelle.
 
 Il ne se résignerait pas!
 

@@ -60,7 +60,7 @@ Alors que les trois étaient plongés dans leurs pensées, une aura oppressante 
 
 Un morceau de jade traversa la barrière protectrice du continent et le toit du bâtiment. Il descendit des cieux pour atterrir juste entre les trois vieillards. Une aura extrêmement puissante se propagea soudainement depuis le jade, remplissant la salle. Elle s'étendit sur toute la Secte de la Grande Ourse, faisant trembler l'édifice tout entier.
 
-Face à cette puissance, les expressions des trois anciens changèrent radicalement. Ils se levèrent un à un, fixant le jade, l'esprit vacillant. La peur envahit leurs cœurs alors que cette aura leur faisait ressentir la force d'un sort de Briseur de Nirvana.
+Face à cette puissance, les expressions des trois anciens changèrent radicalement. Ils se levèrent un à un, fixant le jade, l'esprit vacillant. La peur envahit leurs cœurs alors que cette aura leur faisait ressentir la force d'un sort de Briseur du Nirvana.
 
 Simultanément, une voix arrogante émana du jade et résonna dans la salle.
 
@@ -72,11 +72,11 @@ Simultanément, une voix arrogante émana du jade et résonna dans la salle.
 
 « Ce vieil homme a-t-il prononcé un seul mensonge? »
 
-« Tout ce que l'Aîné a dit est exact. Qui êtes-vous, Aîné? » Les trois étaient sous le choc. Chaque détail prononcé par cette voix était d'une précision chirurgicale; certains faits étaient même des souvenirs qu'ils avaient oubliés, et pourtant cet inconnu les connaissait parfaitement. De plus, l'aura du Briseur de Nirvana les terrassait au point de leur faire perdre la raison.
+« Tout ce que l'Aîné a dit est exact. Qui êtes-vous, Aîné? » Les trois étaient sous le choc. Chaque détail prononcé par cette voix était d'une précision chirurgicale; certains faits étaient même des souvenirs qu'ils avaient oubliés, et pourtant cet inconnu les connaissait parfaitement. De plus, l'aura du Briseur du Nirvana les terrassait au point de leur faire perdre la raison.
 
 « Le nom de ce vieil homme est Liu Jinbiao! Nom Dao: Maître du Tigre d'Or! »
 
-Leurs visages devinrent graves. Bien qu'ils n'eussent jamais entendu ce nom, le simple fragment de jade portait l'aura d'un cultivateur Briseur de Nirvana. Le fait qu'il connaisse leur vie entière imposait un respect immense.
+Leurs visages devinrent graves. Bien qu'ils n'eussent jamais entendu ce nom, le simple fragment de jade portait l'aura d'un cultivateur Briseur du Nirvana. Le fait qu'il connaisse leur vie entière imposait un respect immense.
 
 Zhu Yunming prit une profonde inspiration pour réprimer le choc et demanda: « Aîné, pourquoi êtes-vous venu ici...? »
 
@@ -84,13 +84,13 @@ Zhu Yunming prit une profonde inspiration pour réprimer le choc et demanda: « 
 
 À ces mots, leurs visages pâlirent instantanément.
 
-« Cependant, je n'ai aucun grief contre votre Secte de la Grande Ourse. Bien que j'aie besoin de cristaux d'origine pour l'alchimie, je suis réticent à accomplir un tel acte. Mais si je n'ai pas le choix, je devrai prendre vos vies. » La voix devint progressivement ténébreuse, fusionnant avec l'aura du Briseur de Nirvana émanant du jade. Les trois hommes devinrent livides.
+« Cependant, je n'ai aucun grief contre votre Secte de la Grande Ourse. Bien que j'aie besoin de cristaux d'origine pour l'alchimie, je suis réticent à accomplir un tel acte. Mais si je n'ai pas le choix, je devrai prendre vos vies. » La voix devint progressivement ténébreuse, fusionnant avec l'aura du Briseur du Nirvana émanant du jade. Les trois hommes devinrent livides.
 
 « Aîné... »
 
 « Bien sûr, ce n'est pas ma volonté. Si vous pouvez fournir 60 000 cristaux d'origine ou une valeur équivalente, non seulement je ne vous tuerai pas, mais je vous aiderai également à écarter le danger qui menace la dissolution de votre Secte de la Grande Ourse! »
 
-« 60 000 cristaux d'origine... » Les trois tremblaient de panique. Malgré leurs doutes, l'aura du Briseur de Nirvana et la précision des détails personnels rendaient toute suspicion insignifiante.
+« 60 000 cristaux d'origine... » Les trois tremblaient de panique. Malgré leurs doutes, l'aura du Briseur du Nirvana et la précision des détails personnels rendaient toute suspicion insignifiante.
 
 « Nous ne possédons pas autant de cristaux d'origine... »
 

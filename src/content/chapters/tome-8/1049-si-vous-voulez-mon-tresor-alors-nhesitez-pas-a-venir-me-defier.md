@@ -76,7 +76,7 @@ Wang Lin tenait son épée de fer tandis que son regard glacial se tourna vers l
 
 Quant à l'homme en noir, lorsque Wang Lin le fixa, ses yeux révélèrent un mélange de choc et de terreur. Lui non plus n'osait affronter le regard de Wang Lin. L'aura que ce dernier dégageait était la plus puissante qu'il ait jamais ressentie de toute sa vie!
 
-Que ce fût par la ruse ou par la tromperie, il avait réussi à vaincre un cultivateur Briseur de Nirvana. Personne ne voulait s'attirer les foudres d'un tel homme!
+Que ce fût par la ruse ou par la tromperie, il avait réussi à vaincre un cultivateur Briseur du Nirvana. Personne ne voulait s'attirer les foudres d'un tel homme!
 
 « Si vous voulez mon origine source, si vous voulez mon trésor, alors venez vite les chercher! » Une intention meurtrière traversa les yeux de Wang Lin tandis qu'il affichait un rictus méprisant. Son corps disparut progressivement dans le vortex violet formé par les deux statues.
 

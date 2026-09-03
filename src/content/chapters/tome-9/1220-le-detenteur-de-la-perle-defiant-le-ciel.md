@@ -68,17 +68,17 @@ Cette douleur intense semblait capable de déchirer son esprit. Son domaine se p
 
 Tous ces éléments fusionnèrent pour devenir sa propre compréhension, créant un nouveau type de loi qui n'avait jamais existé auparavant!
 
-À l'instant où cette loi apparut, la culture de Wang Lin trembla comme si d'innombrables éclairs avaient explosé en lui. Il franchit le stade intermédiaire du Nettoyeur de Nirvana pour atteindre le stade avancé!
+À l'instant où cette loi apparut, la culture de Wang Lin trembla comme si d'innombrables éclairs avaient explosé en lui. Il franchit le stade intermédiaire du Purificateur du Nirvana pour atteindre le stade avancé!
 
 Cette loi englobait le vrai et le faux, le tonnerre, le feu et la bataille, devenant ainsi son propre Dao unique! Elle contenait le tonnerre, le feu, la bataille, la vie et la mort, le karma, ainsi que le vrai et le faux!
 
-Ce n'est qu'en fusionnant toutes ces innombrables intentions du Dao avec son domaine du vrai et du faux que Wang Lin avait pu progresser du stade intermédiaire au stade avancé du Nettoyeur de Nirvana en si peu de temps!
+Ce n'est qu'en fusionnant toutes ces innombrables intentions du Dao avec son domaine du vrai et du faux que Wang Lin avait pu progresser du stade intermédiaire au stade avancé du Purificateur du Nirvana en si peu de temps!
 
-Cependant, ce n'était pas fini! Sous la protection de la Perle Défiant le Ciel, et sans que personne ne s'en aperçoive, l'esprit de Wang Lin fut aspiré par la perle. Alors qu'il comprenait et absorbait continuellement les innombrables intentions du Dao, son niveau de culture commença à tendre vers le sommet du stade Nettoyeur de Nirvana! Il semblait que même le sommet du Nettoyeur de Nirvana ne soit pas une limite, tant il absorbait le fruit du Dao!
+Cependant, ce n'était pas fini! Sous la protection de la Perle Défiant le Ciel, et sans que personne ne s'en aperçoive, l'esprit de Wang Lin fut aspiré par la perle. Alors qu'il comprenait et absorbait continuellement les innombrables intentions du Dao, son niveau de culture commença à tendre vers le sommet du stade Purificateur du Nirvana! Il semblait que même le sommet du Purificateur du Nirvana ne soit pas une limite, tant il absorbait le fruit du Dao!
 
-Une telle chose ne s'était jamais produite auparavant. Wang Lin se rapprochait infiniment du sommet du Nettoyeur de Nirvana et, par extension, du Briseur de Nirvana. L'écart entre ces deux stades était immense et nécessitait souvent des dizaines de milliers d'années de culture pour être comblé. Pourtant, après avoir absorbé l'un des sept fruits, cet écart se réduisait à une vitesse fulgurante.
+Une telle chose ne s'était jamais produite auparavant. Wang Lin se rapprochait infiniment du sommet du Purificateur du Nirvana et, par extension, du Briseur du Nirvana. L'écart entre ces deux stades était immense et nécessitait souvent des dizaines de milliers d'années de culture pour être comblé. Pourtant, après avoir absorbé l'un des sept fruits, cet écart se réduisait à une vitesse fulgurante.
 
-Sans cette opportunité sans pareille, même avec d'innombrables pilules, il lui aurait fallu une éternité pour passer du Nettoyeur au Briseur de Nirvana!
+Sans cette opportunité sans pareille, même avec d'innombrables pilules, il lui aurait fallu une éternité pour passer du Purificateur au Briseur du Nirvana!
 
 Toutefois, le Dao qu'il venait d'obtenir n'était pas quelque chose qu'il avait lui-même conçu; il l'avait absorbé en expérimentant d'innombrables vies. Il lui faudrait du temps pour tout assimiler et transformer, mais Wang Lin n'avait pas le luxe de s'en soucier pour l'instant!
 

@@ -94,12 +94,12 @@ Un groupe de cultivateurs traversait le Pays Déchu. Ils étaient près de mille
 
 Cet homme portait des vêtements somptueux; c'était un vieillard dont l'apparence était ordinaire, mais l'expression extrêmement sombre.
 
-« Seigneur Avarice, la planète du Clan des Scorpions Noirs n'est pas loin! Nous avons découvert que le Cadavre de Scorpion de Dix Mille Ans que vous recherchez se trouve probablement là-bas! »
+« Seigneur Cupidité, la planète du Clan des Scorpions Noirs n'est pas loin! Nous avons découvert que le Cadavre de Scorpion de Dix Mille Ans que vous recherchez se trouve probablement là-bas! »
 
 Le vieillard au centre, d'un air arrogant, hocha la tête. Il dit fièrement: « Très bien. Si cela s'avère vrai, vous en tirerez tous profit! »
 
-Après sa parole, une joie immense se répandit parmi les cultivateurs environnants. Si quelqu'un d'autre avait dit cela, ils n'auraient pas été si joyeux, mais celui qui venait de parler était Avarice!
+Après sa parole, une joie immense se répandit parmi les cultivateurs environnants. Si quelqu'un d'autre avait dit cela, ils n'auraient pas été si joyeux, mais celui qui venait de parler était Cupidité!
 
-Au fil des ans, qui ne connaissait pas Avarice?
+Au fil des ans, qui ne connaissait pas Cupidité?
 
-Avarice n'allait jamais nulle part sans trésors. Ses paroles avaient été confirmées maintes et maintes fois par les cultivateurs. Il n'avait jamais fait de fausses promesses!
+Cupidité n'allait jamais nulle part sans trésors. Ses paroles avaient été confirmées maintes et maintes fois par les cultivateurs. Il n'avait jamais fait de fausses promesses!

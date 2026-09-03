@@ -62,9 +62,9 @@ L'expression de Wang Lin resta sereine. Il émit un ordre, faisant pousser un cr
 
 ***
 
-À cet instant, dans la région de rang 8 où se trouvait la Secte Everlasting, trois planètes de culture étaient présentes. La compétition se déroulait sur la deuxième planète et avait commencé il y a plusieurs jours.
+À cet instant, dans la région de rang 8 où se trouvait la Secte Éternelle, trois planètes de culture étaient présentes. La compétition se déroulait sur la deuxième planète et avait commencé il y a plusieurs jours.
 
-L'ensemble de la Secte Everlasting bouillonnait d'activité lors de cette compétition qui n'avait lieu que tous les mille ans. Une foule immense s'entassait, occupant la totalité de la planète.
+L'ensemble de la Secte Éternelle bouillonnait d'activité lors de cette compétition qui n'avait lieu que tous les mille ans. Une foule immense s'entassait, occupant la totalité de la planète.
 
 Certains puissants cultivateurs du secteur avaient même été invités pour assister à l'événement, renforçant l'effervescence. Des cultivateurs solitaires étaient également venus observer ce grand spectacle.
 
@@ -92,7 +92,7 @@ Cet homme d'âge moyen n'était pas seul; deux Anciens aux cheveux blancs le sui
 
 « En particulier, ce Lu Yingjie pratique une méthode de culture extrêmement cruelle et nécessite souvent un grand nombre de fours de culture. Même les plus puissants ne semblent pouvoir échapper à son emprise. »
 
-« Les rumeurs sur ce Lu Yingjie sont légion. On raconte qu'il aurait un lien de parenté avec l'Ancien Lu de la Secte Everlasting... L'Ancien Lu est au sommet du stade Briseur du Nirvana; avec un tel soutien, il n'est pas étonnant que Lu Yingjie se montre si arrogant. »
+« Les rumeurs sur ce Lu Yingjie sont légion. On raconte qu'il aurait un lien de parenté avec l'Ancien Lu de la Secte Éternelle... L'Ancien Lu est au sommet du stade Briseur du Nirvana; avec un tel soutien, il n'est pas étonnant que Lu Yingjie se montre si arrogant. »
 
 Le corps de Lu Yanfei trembla et son regard devint glacial lorsqu'elle se tourna vers l'homme en bleu. Ce dernier était plutôt beau et dégageait une aura virile.
 

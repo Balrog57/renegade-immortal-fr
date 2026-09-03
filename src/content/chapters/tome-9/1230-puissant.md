@@ -62,7 +62,7 @@ C'étaient tous des cultivateurs puissants qui n'avaient que peu d'affection pou
 
 Après avoir pénétré dans la région de rang 7, Wang Lin accéléra encore davantage. Il n'avait plus qu'à traverser cette zone pour atteindre la région de rang 8. Le Royaume Céleste du Vent était là!
 
-Cependant, les cultivateurs de la région de rang 7 étaient bien plus puissants que ceux de la région de rang 6. Alors que Wang Lin survolait un continent, quatre Sens Divins de niveau Briseur de Nirvana jaillirent immédiatement pour former un blocus et l'arrêter!
+Cependant, les cultivateurs de la région de rang 7 étaient bien plus puissants que ceux de la région de rang 6. Alors que Wang Lin survolait un continent, quatre Sens Divins de niveau Briseur du Nirvana jaillirent immédiatement pour former un blocus et l'arrêter!
 
 « Quel cultivateur ose violer le territoire de ma secte et pense pouvoir repartir ainsi? » Un message transmis par Sens Divin résonna de toutes parts.
 

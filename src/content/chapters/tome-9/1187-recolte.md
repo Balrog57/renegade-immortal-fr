@@ -70,7 +70,7 @@ En réalité, il n'avait pas décidé de le tuer. Si la mort de cet homme avait 
 
 « Cette personne entretient un lien très étroit avec le Maître Pin Cendré; ce dernier possède peut-être sa marque de vie. S'il meurt, le Maître Pin Cendré pourrait le savoir instantanément. » Wang Lin n'en était pas certain, et cela ne figurait pas dans les souvenirs de l'homme, mais il préférait toujours agir avec prudence.
 
-Après quelques calculs, Wang Lin ouvrit calmement son espace de stockage pour inspecter les possessions du défunt. L'homme était un cultivateur au niveau Briseur de Nirvana, il possédait donc de nombreux trésors: des centaines de milliers de jades célestes et même entre 50 000 et 60 000 cristaux d'origine.
+Après quelques calculs, Wang Lin ouvrit calmement son espace de stockage pour inspecter les possessions du défunt. L'homme était un cultivateur au niveau Briseur du Nirvana, il possédait donc de nombreux trésors: des centaines de milliers de jades célestes et même entre 50 000 et 60 000 cristaux d'origine.
 
 Outre cela, il y avait une grande quantité de recettes d'herbes et de pilules. Cet homme s'était pleinement préparé pour ce voyage.
 

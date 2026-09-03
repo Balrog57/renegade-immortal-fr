@@ -15,7 +15,7 @@ Le Tonnerre Céleste avait déjà été raffiné avec succès et était devenu l
 
 Wang Lin savait que le temps pressait. Sans hésiter, il se lança vers le quatrième type de tonnerre: le Tonnerre Originel. Ce dernier était formé par l'énergie originelle du monde. Après trois heures de raffinage par Wang Lin, il trembla et ne put plus résister!
 
-À cet instant, quatre types de tonnerres accompagnateurs tournaient autour de l'âme d'origine du tonnerre de Wang Lin. À mesure que ces quatre types de tonnerres effectuaient leur rotation, son âme d'origine devenait plus puissante encore, et sa culture du tonnerre se rapprochait du sommet du stade Briseur de Nirvana.
+À cet instant, quatre types de tonnerres accompagnateurs tournaient autour de l'âme d'origine du tonnerre de Wang Lin. À mesure que ces quatre types de tonnerres effectuaient leur rotation, son âme d'origine devenait plus puissante encore, et sa culture du tonnerre se rapprochait du sommet du stade Briseur du Nirvana.
 
 « Tonnerre Magnétique, je t'ordonne, en tant que tonnerre des cieux, de devenir mon tonnerre accompagnateur! » rugit le Sens Divin de Wang Lin. Le cinquième type de tonnerre accompagnateur, le Tonnerre Magnétique, était très singulier. Il contenait une force magnétique colossale et dégageait une puissante force répulsive.
 
@@ -23,9 +23,9 @@ Pour l'absorber complètement, il aurait dû le raffiner pendant plusieurs jours
 
 Ils formèrent une force dévastatrice qui entra en collision avec la force magnétique. Après un rugissement violent, le Tonnerre Magnétique résista un instant avant de s'effondrer! Dès son effondrement, l'âme d'origine de Wang Lin dévora le Tonnerre Magnétique. Toutefois, parce qu'il n'avait pas été absorbé mais dévoré après avoir cédé, il était bien plus faible que les autres types de tonnerres accompagnateurs.
 
-Wang Lin n'en avait cure. Après avoir absorbé les cinq types de tonnerres accompagnateurs, ceux-ci tournèrent rapidement autour de son âme d'origine. À cet instant précis, sa culture passa du stade avancé du Briseur de Nirvana au sommet du Briseur de Nirvana!
+Wang Lin n'en avait cure. Après avoir absorbé les cinq types de tonnerres accompagnateurs, ceux-ci tournèrent rapidement autour de son âme d'origine. À cet instant précis, sa culture passa du stade avancé du Briseur du Nirvana au sommet du Briseur du Nirvana!
 
-Une fois sa culture du tonnerre ayant atteint le sommet du Briseur de Nirvana, son âme d'origine s'étendit brusquement avant de frapper le sixième type de tonnerre accompagnateur: le Tonnerre Dao!
+Une fois sa culture du tonnerre ayant atteint le sommet du Briseur du Nirvana, son âme d'origine s'étendit brusquement avant de frapper le sixième type de tonnerre accompagnateur: le Tonnerre Dao!
 
 Le Clan des Disperseurs de Tonnerre avait découvert le Tonnerre Dao dans le Royaume Intérieur. Seuls les cultivateurs du Royaume Intérieur cultivaient le Dao et pouvaient ainsi former une intention Dao. C'était ainsi que le tonnerre Dao prenait vie!
 
@@ -33,7 +33,7 @@ Si ce tonnerre résistait, Wang Lin n'hésiterait pas à l'écraser. Son âme d'
 
 Ces âmes ressentirent également l'intention Dao de Wang Lin et chargèrent son âme d'origine. Sans même que Wang Lin ait besoin de le dévorer, le Tonnerre Dao s'intégra de lui-même à son essence! Une intégration parfaite!
 
-Les six types de tonnerres accompagnateurs furent dévorés et tournaient désormais frénétiquement autour de l'essence du tonnerre de Wang Lin. Sa culture avait atteint le paroxysme du stade Briseur de Nirvana! Ses yeux s'ouvrirent soudainement, et dans la marque de tonnerre de son œil droit, les six types de tonnerres accompagnateurs tournaient en boucle. D'innombrables grondements s'élevèrent du tonnerre dans le ciel!
+Les six types de tonnerres accompagnateurs furent dévorés et tournaient désormais frénétiquement autour de l'essence du tonnerre de Wang Lin. Sa culture avait atteint le paroxysme du stade Briseur du Nirvana! Ses yeux s'ouvrirent soudainement, et dans la marque de tonnerre de son œil droit, les six types de tonnerres accompagnateurs tournaient en boucle. D'innombrables grondements s'élevèrent du tonnerre dans le ciel!
 
 Les cent mille cultivateurs sur la planète qui traquaient Wang Lin remarquèrent immédiatement ce changement atmosphérique. Leurs Sens Divins fusionnèrent pour balayer toute la planète, mais ils ne trouvèrent toujours rien! Si la Secte Zhen Yan ne les en avait pas empêchés, ces cultivateurs auraient ignoré toute forme de vie pour raffiner la planète entière afin de forcer Wang Lin à se manifester! Des rayons de lumière emplirent le ciel; des cultivateurs étaient partout!
 

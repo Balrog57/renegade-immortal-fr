@@ -6,9 +6,9 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1092 - Wang Lins Plan
 slug: le-plan-de-wang-lin
 ---
-Les deux vieux cultivateurs au stade avancé de la Purification du Nirvana se regardèrent, avant de porter leur attention sur le vieil homme au stade initial du Briseur de Nirvana. Ils suivaient manifestement ses ordres.
+Les deux vieux cultivateurs au stade avancé de la Purification du Nirvana se regardèrent, avant de porter leur attention sur le vieil homme au stade initial du Briseur du Nirvana. Ils suivaient manifestement ses ordres.
 
-Ce dernier fixa Wang Lin. Bien que son expression fût sereine, son esprit était bouleversé. Il aurait pu tuer Ren Tao avec deux mouvements tout aussi bien, mais lui était un cultivateur du Briseur de Nirvana, tandis que Wang Lin n'était qu'au sommet du stade du Voyant de Nirvana.
+Ce dernier fixa Wang Lin. Bien que son expression fût sereine, son esprit était bouleversé. Il aurait pu tuer Ren Tao avec deux mouvements tout aussi bien, mais lui était un cultivateur du Briseur du Nirvana, tandis que Wang Lin n'était qu'au sommet du stade du Voyant de Nirvana.
 
 En tenant compte de cela, il devait accorder une importance capitale à l'individu qui se tenait devant lui. Plus important encore...
 
@@ -82,7 +82,7 @@ Wang Lin s'était cultivé pendant plus de mille ans; il n'était plus le petit 
 
 À ce moment précis, un flux de flammes surgit du lointain. Lorsqu'il atteignit la centaine de pieds autour de Wang Lin, les flammes se dissipèrent pour révéler un ancien vêtu de rouge. Le vieil homme, d'un calme olympien, regarda Wang Lin et déclara lentement: « Empereur Divin, la Secte des Cadavres, Allheaven et le pays de Chu Yun ont tous envoyé des émissaires; ils attendent dans la salle arrière. Souhaitez-vous les recevoir? »
 
-Cet ancien n'était pas l'un des six qui s'étaient rendus au Domaine de l'Esprit Démon. Wang Lin savait seulement qu'il s'appelait Xu et qu'il se trouvait au stade intermédiaire du Briseur de Nirvana. Il jouissait d'un grand prestige parmi les anciens de ce rang.
+Cet ancien n'était pas l'un des six qui s'étaient rendus au Domaine de l'Esprit Démon. Wang Lin savait seulement qu'il s'appelait Xu et qu'il se trouvait au stade intermédiaire du Briseur du Nirvana. Il jouissait d'un grand prestige parmi les anciens de ce rang.
 
 Au cours des derniers jours, de nombreux émissaires de l'Alliance étaient venus le féliciter. Wang Lin n'avait naturellement pas reçu ces personnes, car les membres et les anciens de la Secte Divine de l'Oiseau Vermillon s'en chargeaient.
 

@@ -86,7 +86,7 @@ Sur la planète du Clan du Scorpion Noir, la main géante de Wang Lin balaya le 
 
 Lorsque la main de Wang Lin toucha l'arbre, un grondement retentit, mais le végétal resta indemne. Au lieu de cela, la main créée par Wang Lin fut repoussée et une énergie verte jaillit de l'arbre. Sous son impact, la main de Wang Lin fut déchiquetée!
 
-Une lueur de joie brilla dans les yeux de Wang Lin; il ne s'attendait pas à ce que l'arbre possède une telle capacité de protection. Cette paume aurait suffi à tuer un cultivateur de niveau Briseur de Nirvana, mais non seulement l'arbre n'avait pas été endommagé, il avait même riposté!
+Une lueur de joie brilla dans les yeux de Wang Lin; il ne s'attendait pas à ce que l'arbre possède une telle capacité de protection. Cette paume aurait suffi à tuer un cultivateur de niveau Briseur du Nirvana, mais non seulement l'arbre n'avait pas été endommagé, il avait même riposté!
 
 Il faut dire qu'il n'y avait personne pour contrôler les trésors. Si quelqu'un les dirigeait, leur puissance augmenterait!
 

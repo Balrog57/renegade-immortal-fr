@@ -26,7 +26,7 @@ Comparés à l'Ancien Dieu, ces cultivateurs n'étaient que des fourmis.
 
 Wang Lin possédait le niveau de culture le plus bas. Bien qu'il n'ait pas craché de sang, des craquements sinistres résonnaient dans son corps. De nouvelles fissures apparurent, et celle sur sa poitrine perça son buste. Son regard devint vacant, son âme originelle était blessée, et son corps montrait des signes de pétrification.
 
-Les cultivateurs au stade du Briseur de Nirvana avaient également pénétré le vortex. Grâce à leur niveau de culture, ils n'étaient pas affectés par la loi du temps, mais leurs esprits étaient sur le point de s'effondrer. La voix provoquait l'instabilité de leurs âmes originelles tandis que le grondement tonnerreux résonnait dans leurs oreilles.
+Les cultivateurs au stade du Briseur du Nirvana avaient également pénétré le vortex. Grâce à leur niveau de culture, ils n'étaient pas affectés par la loi du temps, mais leurs esprits étaient sur le point de s'effondrer. La voix provoquait l'instabilité de leurs âmes originelles tandis que le grondement tonnerreux résonnait dans leurs oreilles.
 
 Le regard de l'Ancien Dieu qui se redressait devint glacial, et la deuxième étoile s'illumina. Si l'on avait regardé de plus près, on aurait pu percevoir quelque chose d'unique au cœur de cette étoile...
 
@@ -36,13 +36,13 @@ C'était comme si la distance n'avait aucune existence pour l'Ancien Dieu. Il ne
 
 Rumble, rumble, rumble, rumble!
 
-Avant même que le rugissement assourdissant ne parvienne à leurs oreilles, la main était déjà là. La vitesse du mouvement était indescriptible. Le cultivateur au stade du Briseur de Nirvana situé devant lui ne pouvait s'échapper; il activa donc toute sa puissance et déploya des couches de protection. Au moment même où des dizaines de milliers de couches de protection apparurent, il recula, tentant d'encaisser un dommage sérieux pour espérer résister à cette main de la taille d'une planète de culture.
+Avant même que le rugissement assourdissant ne parvienne à leurs oreilles, la main était déjà là. La vitesse du mouvement était indescriptible. Le cultivateur au stade du Briseur du Nirvana situé devant lui ne pouvait s'échapper; il activa donc toute sa puissance et déploya des couches de protection. Au moment même où des dizaines de milliers de couches de protection apparurent, il recula, tentant d'encaisser un dommage sérieux pour espérer résister à cette main de la taille d'une planète de culture.
 
 Le bras s'approcha et percuta la couche protectrice du cultivateur. Ces dizaines de milliers de protections furent aussi fragiles qu'une fine feuille de papier face au bras de l'Ancien Dieu!
 
 Toutes les couches de protection autour du cultivateur s'effondrèrent instantanément. En vérité, il y eut un infime intervalle entre l'effondrement de chaque couche, mais la différence était si ténue qu'elle en était dérisoire. Le bras ne ralentit pas et balaya simplement tout sur son passage.
 
-Le cultivateur qui avait passé d'innombrables années pour atteindre le début du stade de Briseur de Nirvana afficha un sourire misérable alors que son corps explosait en une brume de sang qui éclaboussa le bras de l'Ancien Dieu.
+Le cultivateur qui avait passé d'innombrables années pour atteindre le début du stade de Briseur du Nirvana afficha un sourire misérable alors que son corps explosait en une brume de sang qui éclaboussa le bras de l'Ancien Dieu.
 
 Son âme originelle se dissipa également, se transformant en énergie originelle qui fut absorbée par une fissure sur la peau rugueuse de l'Ancien Dieu.
 

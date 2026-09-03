@@ -36,7 +36,7 @@ Des bruits de déchirement retentirent tandis que l'énergie des lames balayait 
 
 Les sept centipèdes étaient mortes et les restrictions de Wang Lin se refermèrent. Il n'y avait plus rien pour entraver leur progression. Elles encerclèrent complètement le jade, l'empêchant désormais de toute fuite!
 
-Tous les sorts de Wang Lin auraient suffi à tuer un cultivateur du stade moyen du Briseur de Nirvana. Bien qu'il ait éliminé les sept centipèdes, le jade n'avait subi aucun dommage!
+Tous les sorts de Wang Lin auraient suffi à tuer un cultivateur du stade moyen du Briseur du Nirvana. Bien qu'il ait éliminé les sept centipèdes, le jade n'avait subi aucun dommage!
 
 Plus Wang Lin observait le jade, plus il lui semblait extraordinaire. Il devait s'agir d'un trésor magique surpuissant. Lorsqu'il cherchait un moyen de survivre, la dernière chose qu'il avait vue était Liu Jinbiao; il était désormais certain que sa survie était liée à ce jade!
 
@@ -44,7 +44,7 @@ Alors que les restrictions se resserraient, Wang Lin s'approcha du jade et tendi
 
 Une nouvelle brume noire jaillit du jade et une centipède de 10 000 pieds en sortit. Wang Lin était bien trop près, la créature se trouvait juste à ses côtés. Elle ouvrit la gueule pour cracher un nuage toxique et tenta d'engloutir Wang Lin.
 
-Simultanément, l'expression de Liu Jinbiao devint hideuse et il rugit: « Jade, dévore-le! C'est un vieux monstre du stade Briseur de Nirvana, il possède sûrement une multitude de trésors et de cristaux d'origine. Dévore-le! Je n'en veux aucun, je te donnerai tout! »
+Simultanément, l'expression de Liu Jinbiao devint hideuse et il rugit: « Jade, dévore-le! C'est un vieux monstre du stade Briseur du Nirvana, il possède sûrement une multitude de trésors et de cristaux d'origine. Dévore-le! Je n'en veux aucun, je te donnerai tout! »
 
 Alors que la centipède fonçait sur lui, l'expression de Wang Lin ne changea pas d'un iota. Avec sa force mentale, comment aurait-il pu ne pas se méfier de ce jade étrange? Tandis que la créature approchait, Wang Lin ouvrit la bouche et poussa un rugissement!
 
@@ -54,9 +54,9 @@ Ce n'était pas le cri d'un cultivateur, mais celui d'un dieu ancien! Le rugisse
 
 La terre trembla et d'innombrables montagnes s'effondrèrent au loin. Les rivières coulèrent à l'envers dans un fracas assourdissant!
 
-Le rugissement d'un dieu ancien, conjugué à la culture de Wang Lin, pouvait directement briser n'importe quel cultivateur du Nettoyeur de Nirvana, détruire le corps d'un Briseur de Nirvana au début de son stade et endommager l'âme de tout cultivateur du milieu du stade Briseur de Nirvana!
+Le rugissement d'un dieu ancien, conjugué à la culture de Wang Lin, pouvait directement briser n'importe quel cultivateur du Purificateur du Nirvana, détruire le corps d'un Briseur du Nirvana au début de son stade et endommager l'âme de tout cultivateur du milieu du stade Briseur du Nirvana!
 
-Il pouvait faire perdre tous ses sens à un Briseur de Nirvana au stade tardif! Même les Briseurs de Nirvana au sommet de leur puissance seraient blessés à une telle proximité, leurs oreilles bourdonnant de douleur!
+Il pouvait faire perdre tous ses sens à un Briseur du Nirvana au stade tardif! Même les Briseurs de Nirvana au sommet de leur puissance seraient blessés à une telle proximité, leurs oreilles bourdonnant de douleur!
 
 La centipède de 10 000 pieds émit un rugissement misérable avant même d'avoir pu l'engloutir. C'était comme si une rafale de vent dévastatrice l'avait frappée, ou qu'un char pesant des millions de kilogrammes s'était écrasé sur elle!
 
@@ -100,7 +100,7 @@ Toutefois, comparée à sa propre vie, cette pierre de jade n'était rien. Les y
 
 Liu Jinbiao continuait de se prosterner, terrifié par Wang Lin, implorant sa grâce.
 
-« Cette pierre de jade est trop troublante. Huit simples centipèdes ont pu cultiver jusqu'au stade proche du Briseur de Nirvana! Ce Liu Jinbiao a pu agir à sa guise dans la Mer des Nuages. Il a trompé d'innombrables personnes sans jamais être démasqué! » Wang Lin prit une profonde inspiration. Il ne voulait plus entendre les lamentations de Liu Jinbiao. D'un revers de manche, il envoya immédiatement l'homme dans son espace de stockage.
+« Cette pierre de jade est trop troublante. Huit simples centipèdes ont pu cultiver jusqu'au stade proche du Briseur du Nirvana! Ce Liu Jinbiao a pu agir à sa guise dans la Mer des Nuages. Il a trompé d'innombrables personnes sans jamais être démasqué! » Wang Lin prit une profonde inspiration. Il ne voulait plus entendre les lamentations de Liu Jinbiao. D'un revers de manche, il envoya immédiatement l'homme dans son espace de stockage.
 
 « Le crime de cet homme ne mérite effectivement pas la mort. Il a trompé autrui pendant des années, mais cela ne me concerne pas. Cependant, il a tenté de duper la Secte Originel, il doit donc être puni! Xu Liguo, tu te plains toujours de ta solitude, je te donne donc cet homme. Donne-lui une bonne leçon ou deux! » Le sens divin de Wang Lin se posa sur Xu Liguo, qui ne s'était pas manifesté depuis longtemps.
 

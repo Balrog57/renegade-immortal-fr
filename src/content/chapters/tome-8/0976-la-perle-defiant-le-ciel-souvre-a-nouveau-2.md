@@ -28,7 +28,7 @@ Cette fois, l'Omniscient n'osa pas la poursuivre. Son visage était livide et so
 
 L'Omniscient esquissa un sourire amer. S'il n'avait pas pris l'initiative d'attaquer, ses pertes n'auraient pas été aussi lourdes. Cependant, pour l'heure, il ne pouvait que soupirer.
 
-« Je n'ai été capturé par cette main géante que pendant dix respirations, mais s'il s'était agi d'un autre cultivateur du Briseur de Nirvana, sa chair, son sang et son âme originelle auraient été totalement drainés... »
+« Je n'ai été capturé par cette main géante que pendant dix respirations, mais s'il s'était agi d'un autre cultivateur du Briseur du Nirvana, sa chair, son sang et son âme originelle auraient été totalement drainés... »
 
 En soupirant, l'Omniscient semblait avoir vieilli. Il savait que ce qu'il avait perdu n'était pas seulement son énergie originelle. Une fissure venait de se former sur son cœur taoïste parfait.
 
