@@ -1,9 +1,9 @@
 ---
 n: 1259
-title: "Réprimander le Secte de l'Éternité, le Temps qui s'écoule"
+title: "Réprimander la Secte de l'Éternité, le Temps qui s'écoule"
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: Chapter 1259 - Rebuking the Everlasting Sect, Flowing Time
+en: Chapter 1259 - Rebuking the Everlasting Secte, Flowing Time
 slug: reprimander-le-secte-de-leternite-le-temps-qui-secoule
 ---
 Le vieil homme aux cheveux blancs continuait de reculer, mais ses yeux étaient empreints d'une intention de combat monstrueuse. Ses mains formèrent un sceau et il pointa l'avant. À chaque geste, un grondement tonitruant émanait de son corps alors qu'il commençait à résister au pouvoir de la Nuit Déchirée.

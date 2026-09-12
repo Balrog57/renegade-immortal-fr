@@ -3,7 +3,7 @@ n: 10
 title: "L'entrée dans la Secte"
 book: 1
 bookTitle: The Mediocre Youth
-en: Chapter 10 - Entering the Sect
+en: Chapter 10 - Entering the Secte
 slug: lentree-dans-la-secte
 ---
 Le vieil homme au visage rubicond fronça les sourcils de mécontentement et déclara: « Ancien Li, notre Secte Heng Yue va-t-elle vraiment sombrer à ce point? Faire une exception pour la vie ou la mort d'un simple mortel? »

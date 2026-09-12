@@ -3,7 +3,7 @@ n: 1945
 title: La Secte Morte
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
-en: Chapter 1945 - Dead Sect
+en: Chapter 1945 - Dead Secte
 slug: la-secte-morte
 ---
 La montagne verdoyante n'était plus là... Elle était devenue une montagne nue et dévastée.

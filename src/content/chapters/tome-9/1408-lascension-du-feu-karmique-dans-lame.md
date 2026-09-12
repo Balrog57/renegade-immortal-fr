@@ -74,7 +74,7 @@ Seule la calamité de l'Ancien Dieu, où son corps s'effondrait et se reformait 
 
 Wang Lin ne répondit pas. À cet instant, sa conscience n'était plus qu'un brouillard. La douleur se mua en souvenirs qui défilèrent à travers son âme.
 
-Sa première rencontre avec Li Muwan... la Mer des Diables... la Secte Cloud Sky... sa mort... jusqu'à ce qu'elle ne devienne qu'un cadavre endormi dans son cercueil.
+Sa première rencontre avec Li Muwan... la Mer des Diables... la Secte Ciel Nuageux... sa mort... jusqu'à ce qu'elle ne devienne qu'un cadavre endormi dans son cercueil.
 
 Tous ces souvenirs brûlaient au plus profond de son être.
 

@@ -10,7 +10,7 @@ Un vieil homme extrêmement maigre sortit de la section de la Secte Lou He. Il p
 
 Dès que la Pilule du Ciel Lointain fut mentionnée, Wang Lin remarqua que tous les cultivateurs environnants devinrent tendus, leur respiration se faisant saccadée.
 
-Il existait quelques informations sur cette pilule dans la mémoire de Ma Liang. Il n'y avait pas plus de trente exemplaires de ces pilules à Hou Fen; elles pouvaient être considérées comme l'une des ressources les plus prestigieuses de la région, car elles augmentaient les chances de réussir la Formation du Noyau. Si un cultivateur venant tout juste de former son noyau en consommait une, il entrerait immédiatement dans le stade initial de la Formation du Noyau et stabiliserait sa base. L'ingrédient principal avait depuis longtemps disparu; ces trente pilules environnantes étaient précieusement conservées depuis plus de mille ans.
+Il existait quelques informations sur cette pilule dans la mémoire de Ma Liang. Il n'y avait pas plus de trente exemplaires de ces pilules à Huo Fen; elles pouvaient être considérées comme l'une des ressources les plus prestigieuses de la région, car elles augmentaient les chances de réussir la Formation du Noyau. Si un cultivateur venant tout juste de former son noyau en consommait une, il entrerait immédiatement dans le stade initial de la Formation du Noyau et stabiliserait sa base. L'ingrédient principal avait depuis longtemps disparu; ces trente pilules environnantes étaient précieusement conservées depuis plus de mille ans.
 
 Par la suite, cinq mille cultivateurs furent répartis en équipes, chacune ayant sa propre mission. Wang Lin en faisait partie.
 
@@ -22,9 +22,9 @@ Leur mission consistait à aider la 10e brigade à prendre le contrôle d'une ve
 
 Avant son départ, Feng Luan ordonna à quelqu'un d'appeler Wang Lin.
 
-Feng Luan se tenait à la fenêtre d'une magnifique demeure surplombant Hou Fen. Après un long moment, elle lança un morceau de jade et dit: « Hong Er a dit que tu étais extrêmement puissant sur le champ de bataille étranger; alors pourquoi ton niveau de culture n'est-il qu'au milieu du stade de l'Établissement des Fondations? »
+Feng Luan se tenait à la fenêtre d'une magnifique demeure surplombant Huo Fen. Après un long moment, elle lança un morceau de jade et dit: « Hong Er a dit que tu étais extrêmement puissant sur le champ de bataille étranger; alors pourquoi ton niveau de culture n'est-il qu'au milieu du stade de l'Établissement des Fondations? »
 
-Wang Lin attrapa le jade. Après l'avoir parcouru de son Sens Divin, son expression devint étrange. Ce jade contenait une partie d'une carte. Elle représentait environ sept ou huit pays au nord de Hou Fen, indiquant même le rang de chaque nation et les ressources dont elles étaient célèbres.
+Wang Lin attrapa le jade. Après l'avoir parcouru de son Sens Divin, son expression devint étrange. Ce jade contenait une partie d'une carte. Elle représentait environ sept ou huit pays au nord de Huo Fen, indiquant même le rang de chaque nation et les ressources dont elles étaient célèbres.
 
 Après un instant de réflexion, ses yeux s'illuminèrent. Il parvint à deviner le sens caché derrière ses paroles.
 
@@ -32,7 +32,7 @@ Feng Luan fit un geste de la main et ajouta: « Cette carte se compose de trois 
 
 Wang Lin partit sans dire un mot. Il comprenait les intentions de Feng Luan. La charité n'existait pas dans ce monde, il n'y avait que des échanges inéquitables.
 
-Comparée aux autres cultivateurs de l'Âme Naissante de Hou Fen, cette Feng Luan se montrait du moins assez clémente. En raison de l'affaire avec Zhou Zihong, elle avait réglé la question de la possession du corps de Ma Liang. Quant à la carte, ses intentions étaient limpides: si Wang Lin en avait la capacité, il obtiendrait la carte; sinon, il ne pourrait blâmer personne s'il venait à mourir sur le champ de bataille.
+Comparée aux autres cultivateurs de l'Âme Naissante de Huo Fen, cette Feng Luan se montrait du moins assez clémente. En raison de l'affaire avec Zhou Zihong, elle avait réglé la question de la possession du corps de Ma Liang. Quant à la carte, ses intentions étaient limpides: si Wang Lin en avait la capacité, il obtiendrait la carte; sinon, il ne pourrait blâmer personne s'il venait à mourir sur le champ de bataille.
 
 Wang Lin n'avait initialement pas l'intention de s'impliquer dans cette guerre, mais il avait désormais d'autres projets. La carte n'était qu'une raison; la Pilule du Ciel Lointain en était la principale.
 
@@ -42,7 +42,7 @@ Wang Lin brûlait d'envie d'atteindre le stade de la Formation du Noyau. Une foi
 
 En y pensant, son regard dégagea une puissante intention meurtrière.
 
-L'équipe d'invasion de l'Union de Hou Fen se dispersa le deuxième jour. Dix cultivateurs de l'Âme Naissante encerclaient la zone: dès qu'un ennemi du même stade apparaîtrait, ils se téléporteraient instantanément pour l'affronter.
+L'équipe d'invasion de l'Union de Huo Fen se dispersa le deuxième jour. Dix cultivateurs de l'Âme Naissante encerclaient la zone: dès qu'un ennemi du même stade apparaîtrait, ils se téléporteraient instantanément pour l'affronter.
 
 Une escouade de trente cultivateurs vola vers le nord sur leurs épées volantes et s'arrêta au-dessus d'une montagne désolée. Un vieil homme à l'apparence ordinaire, dont les yeux laissaient parfois transparaître une féroce intention meurtrière, déclara avec fierté: « Les cultivateurs de la 10e brigade ont déjà commencé leur assaut sur les environs de la veine spirituelle. Je suppose qu'ils recevront des renforts; notre tâche est donc d'empêcher quiconque de franchir cette zone de 250 kilomètres. Dispersez-vous et rapportez-moi immédiatement toute anomalie. »
 

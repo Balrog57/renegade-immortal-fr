@@ -12,7 +12,7 @@ Chapitre 1896 - Une Fortune Insensée!
 
 Chaque fois qu'il frappait son propre corps, un objet mystérieux en était expulsé pour flotter dans les airs, émettant une lueur éblouissante. Son corps agissait tel un sac de stockage ayant renfermé la vaste quantité d'objets que sa famille avait préparée au fil d'innombrables années.
 
-Ces objets avaient tous été conçus pour favoriser la résurrection du Scorpion Vert Démon. Ils étaient scellés dans le Ji Si de chaque génération par une méthode spéciale; à moins qu'ils ne les sortent volontairement, nul autre ne pouvait s'en emparer. Seul un Grand Empyrean en serait peut-être capable.
+Ces objets avaient tous été conçus pour favoriser la résurrection du Scorpion Vert Démon. Ils étaient scellés dans le Ji Si de chaque génération par une méthode spéciale; à moins qu'ils ne les sortent volontairement, nul autre ne pouvait s'en emparer. Seul un Grand Empyrée en serait peut-être capable.
 
 « Le corps de cette personne est clairement issu du Dao Ancien, mais bien que ce corps soit puissant, il manque de résilience. J'utiliserai cette branche d'arbre céleste vieille de 90 000 ans pour rendre ce corps extrêmement difficile à détruire! » La main gauche du vieil homme en robe verte s'étendit et saisit une branche noire exhalant une aura antique.
 
@@ -50,7 +50,7 @@ Malgré sa propre détermination, Wang Lin fut stupéfait par celle du vieil hom
 
 « Au fil des âges, mon clan a parcouru le monde pour rassembler plus de 90 000 types de matériaux Yin différents. Nous avons également payé n'importe quel prix pour obtenir un fragment d'âme provenant de vingt âmes supprimées du Continent de l'Est, afin de les raffiner ensemble et de forger cette lame Yin! »
 
-« Cette lame n'a pas encore subi de Calamité du Continent Astral Immortel. Une fois qu'elle l'aura traversée, elle sera un trésor qui fera rougir les yeux d'un Grand Empyrean! » Les yeux du vieil homme brillèrent d'un éclat vif alors qu'il agitait sa main gauche. Une brume glaciale l'enveloppa et s'élança vers Wang Lin. Une lame invisible semblait se tapir au cœur de la brume!
+« Cette lame n'a pas encore subi de Calamité du Continent Astral Immortel. Une fois qu'elle l'aura traversée, elle sera un trésor qui fera rougir les yeux d'un Grand Empyrée! » Les yeux du vieil homme brillèrent d'un éclat vif alors qu'il agitait sa main gauche. Une brume glaciale l'enveloppa et s'élança vers Wang Lin. Une lame invisible semblait se tapir au cœur de la brume!
 
 La lame ressemblait à une colonne vertébrale incurvée, offrant un spectacle terrifiant!
 

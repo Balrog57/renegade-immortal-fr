@@ -8,7 +8,7 @@ slug: une-rencontre-avec-soi-même
 ---
 C'était l'automne de la 35e année depuis que Wang Lin avait quitté Zhao.
 
-À Hou Fen, alors que le vent d'automne balayait la mer en direction de Zhao, l'hiver était déjà là. Le pays de Zhao tout entier était recouvert de neige, tel un bloc de jade blanc posé sur la terre.
+À Huo Fen, alors que le vent d'automne balayait la mer en direction de Zhao, l'hiver était déjà là. Le pays de Zhao tout entier était recouvert de neige, tel un bloc de jade blanc posé sur la terre.
 
 Seules deux traces laissées par le passage du chariot étaient visibles. Le craquement lent et régulier de l'attelage s'éloignait peu à peu dans le lointain.
 

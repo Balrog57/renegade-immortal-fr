@@ -16,7 +16,7 @@ Un cultivateur Briseur du Nirvana pouvait être un enseignant au sein d'une sect
 
 C'était cela la force, la cruelle vérité du monde de la culture. La loi de la jungle!
 
-Si Wang Lin avait été un cultivateur du troisième niveau, Daoist Water aurait fait preuve d'une prudence extrême quant à son désir de le tuer. Il n'aurait probablement même pas choisi de combattre, préférant inviter Wang Lin en tant qu'hôte prestigieux. Les deux se seraient alors assis pour échanger ce qu'ils désiraient.
+Si Wang Lin avait été un cultivateur du troisième niveau, Shui Daozi aurait fait preuve d'une prudence extrême quant à son désir de le tuer. Il n'aurait probablement même pas choisi de combattre, préférant inviter Wang Lin en tant qu'hôte prestigieux. Les deux se seraient alors assis pour échanger ce qu'ils désiraient.
 
 Si Wang Lin avait été un cultivateur du troisième niveau, il aurait pu balayer l'Alliance, la Mer des Nuages et le Tout-Ciel. Même Maître Lu Fu se serait montré très poli et lui aurait témoigné son respect; aucune des deux parties n'aurait provoqué l'autre.
 
@@ -26,7 +26,7 @@ La force était tout, et elle était la clé de la survie dans ce monde impitoya
 
 Ce garçon avait une chevelure blanche, mais sa peau était claire et pure. En sortant, son regard se posa sur Wang Lin, en contrebas. Les cultivateurs du troisième niveau apparaissaient rarement en personne, car ils pouvaient fusionner avec le monde et créer un avatar du troisième niveau n'importe où.
 
-Seules les batailles à mort entre cultivateurs du troisième niveau les poussaient à combattre dans leurs corps réels. Mais Daoist Water était apparu inopinément sous sa forme véritable. Cela démontrait manifestement sa volonté de tuer Wang Lin, mais révélait aussi l'importance et la prudence qu'il accordait à cette affaire!
+Seules les batailles à mort entre cultivateurs du troisième niveau les poussaient à combattre dans leurs corps réels. Mais Shui Daozi était apparu inopinément sous sa forme véritable. Cela démontrait manifestement sa volonté de tuer Wang Lin, mais révélait aussi l'importance et la prudence qu'il accordait à cette affaire!
 
 Il craignait que Wang Lin ne soit réellement la réincarnation de son maître; il craignait que Wang Lin ne possède des trésors défiant le ciel!
 
@@ -48,17 +48,17 @@ Chaque tatouage sanguin était formé par l'essence de bêtes féroces. Ils cont
 
 En s'élançant vers le garçon, le ciel fut teint de rouge et un hurlement tonitruant couvrit l'étendue.
 
-« Tu connais le sort du Clan des Tatouages, mais ce sort est inutile contre ce vieil homme! » L'expression de Daoist Water était neutre; au moment où les innombrables tatouages convergèrent vers lui, il agita nonchalamment sa main droite.
+« Tu connais le sort du Clan des Tatouages, mais ce sort est inutile contre ce vieil homme! » L'expression de Shui Daozi était neutre; au moment où les innombrables tatouages convergèrent vers lui, il agita nonchalamment sa main droite.
 
-« Effondrement du Dao Insouciant! » La voix de Daoist Water était calme, mais elle donnait l'illusion qu'un dieu rugissait. Sa voix devint plus intense alors qu'elle se propageait avec frénésie.
+« Effondrement du Dao Insouciant! » La voix de Shui Daozi était calme, mais elle donnait l'illusion qu'un dieu rugissait. Sa voix devint plus intense alors qu'elle se propageait avec frénésie.
 
-Tous les tatouages sanguins qui entrèrent en collision avec l'onde sonore invisible s'effondrèrent, incapables de s'approcher de Daoist Water. L'effondrement fut incessant, à la mesure du nombre de tatouages!
+Tous les tatouages sanguins qui entrèrent en collision avec l'onde sonore invisible s'effondrèrent, incapables de s'approcher de Shui Daozi. L'effondrement fut incessant, à la mesure du nombre de tatouages!
 
 Un grondement de tonnerre résonna et toute la région de rang 5 trembla violemment. Un bruit de déchirure retentit lorsqu'une fissure spatiale fendit la région en deux!
 
-« Tatouages, transformez-vous en sang! » Les mains de Wang Lin formèrent un sceau tandis qu'il crachait une bouchée de sang. Ce sang émettait une lueur démoniaque et, dès son apparition, tout le sang issu des tatouages effondrés se rassembla. En un instant, ce sang projeta une lumière rouge vif et chargea en avant, brisant tous les sorts sur son passage pour foncer vers Daoist Water.
+« Tatouages, transformez-vous en sang! » Les mains de Wang Lin formèrent un sceau tandis qu'il crachait une bouchée de sang. Ce sang émettait une lueur démoniaque et, dès son apparition, tout le sang issu des tatouages effondrés se rassembla. En un instant, ce sang projeta une lumière rouge vif et chargea en avant, brisant tous les sorts sur son passage pour foncer vers Shui Daozi.
 
-Cependant, alors que le sang approchait, un simple regard de Daoist Water suffit à le faire s'effondrer! À cet instant, le garçon aux cheveux blancs tendit la main et une seule goutte de sang cessa de se dissiper. Elle vola rapidement vers la main du garçon.
+Cependant, alors que le sang approchait, un simple regard de Shui Daozi suffit à le faire s'effondrer! À cet instant, le garçon aux cheveux blancs tendit la main et une seule goutte de sang cessa de se dissiper. Elle vola rapidement vers la main du garçon.
 
 Le corps blanc saisit cette goutte de sang et l'avala, ses yeux commençant à briller.
 
@@ -72,11 +72,11 @@ Alors que le sang se dissipait et que les tatouages étaient détruits, le monde
 
 Une restriction n'était pas un sort; elle était formée d'un fragment d'aura des temps anciens qui s'était transformé en son propre Dao!
 
-En particulier, Wang Lin avait fusionné les trois grandes restrictions, atteignant presque l'origine même des restrictions. À ce moment-là, les cent continents sauvages commencèrent à trembler et à pivoter rapidement sous le contrôle de Wang Lin, s'abattant vers Daoist Water!
+En particulier, Wang Lin avait fusionné les trois grandes restrictions, atteignant presque l'origine même des restrictions. À ce moment-là, les cent continents sauvages commencèrent à trembler et à pivoter rapidement sous le contrôle de Wang Lin, s'abattant vers Shui Daozi!
 
 « Restriction d'Annihilation, scelle le monde! Restriction de la Vie et de la Mort, scelle le corps! Restriction du Temps, scelle l'âme originelle! Trois grandes restrictions n'en font qu'une: Scelle! Scelle! Scelle! Scelle ton monde, scelle ton corps et scelle ton âme originelle! » Wang Lin pointa le doigt vers l'avant.
 
-Des grondements de tonnerre résonnèrent. Hormis le continent sauvage sous le contrôle de Wang Lin, tous les autres continents sauvages encerclèrent Daoist Water pour former une matrice. Une pression colossale apparut et s'écrasa sur lui!
+Des grondements de tonnerre résonnèrent. Hormis le continent sauvage sous le contrôle de Wang Lin, tous les autres continents sauvages encerclèrent Shui Daozi pour former une matrice. Une pression colossale apparut et s'écrasa sur lui!
 
 Les restrictions qui avaient été contenues dans ces cent continents sauvages éclatèrent. La restriction d'Annihilation jaillit, formant une cage gigantesque qui emprisonna le monde!
 
@@ -86,7 +86,7 @@ La Restriction du Temps avait inversé 5 000 ans grâce au sort « Flux Temporel
 
 Alors que Wang Lin parlait, les trois grandes restrictions éclatèrent soudainement!
 
-« Trois grandes restrictions!! Malheureusement, la quatrième restriction est absente, sinon elle aurait pu avoir un certain pouvoir! » Les yeux de Daoist Water s'illuminèrent alors qu'il agissait de nouveau de sa main droite.
+« Trois grandes restrictions!! Malheureusement, la quatrième restriction est absente, sinon elle aurait pu avoir un certain pouvoir! » Les yeux de Shui Daozi s'illuminèrent alors qu'il agissait de nouveau de sa main droite.
 
 D'un revers de main, le monde s'effondra. L'Effondrement du Dao Insouciant qu'il venait d'utiliser ne s'était pas dissipé, et l'onde provoqua son apogée. Il pouvait anéantir tout ce qui vivait dans ce monde!
 
@@ -112,12 +112,12 @@ Tout ce que Wang Lin avait fait n'était que pour cette fraction de seconde!
 
 Les pupilles de Wang Lin se contractèrent, ses cheveux devinrent ébouriffés et ses yeux virèrent au rouge sang alors qu'il rugissait: « Charriot de Guerre Divin! »
 
-La lance du charriot de guerre formé par la Bête du Tonnerre jaillit comme un rayon de lumière vers Daoist Water. Elle était d'une puissance telle qu'en traversant les airs, elle fendit la région de rang 5!
+La lance du charriot de guerre formé par la Bête du Tonnerre jaillit comme un rayon de lumière vers Shui Daozi. Elle était d'une puissance telle qu'en traversant les airs, elle fendit la région de rang 5!
 
-Après la lance, les sept épines du charriot de guerre aux sept couleurs formèrent un arc-en-ciel qui se condensa et s'abattit sur Daoist Water!
+Après la lance, les sept épines du charriot de guerre aux sept couleurs formèrent un arc-en-ciel qui se condensa et s'abattit sur Shui Daozi!
 
 À cet instant, toutes les lois s'effondrèrent devant ces Charriots de Guerre Divins! Les lois ne pouvaient les arrêter, le monde ne pouvait les arrêter; aucune puissance ne pouvait stopper ces deux Charriots de Guerre Divins!
 
 C'était le véritable Charriot de Guerre Divin! Il possédait le pouvoir d'égorger les dieux!
 
-L'expression de Daoist Water changea pour la toute première fois!
+L'expression de Shui Daozi changea pour la toute première fois!

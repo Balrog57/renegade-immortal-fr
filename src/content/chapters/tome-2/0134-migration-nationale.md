@@ -30,7 +30,7 @@ Situ Nan avait toujours voulu qu'il emprunte la voie démoniaque, mais Wang Lin 
 
 « Et si je devenais un démon? » Lâcha-t-il dans un rire glacial avant de s'élancer dans les airs d'un geste de la main.
 
-Wang Lin fit le tour d'un volcan dans une zone désertée de Hou Fen. Après avoir choisi un emplacement, il atterrit et utilisa le morceau de métal pour creuser une grotte dans la montagne.
+Wang Lin fit le tour d'un volcan dans une zone désertée de Huo Fen. Après avoir choisi un emplacement, il atterrit et utilisa le morceau de métal pour creuser une grotte dans la montagne.
 
 Une heure plus tard, la grotte était achevée. Wang Lin y pénétra, utilisa les gravats pour placer quelques formations de confusion, puis scella l'entrée.
 
@@ -38,7 +38,7 @@ Une fois tout cela terminé, il s'assit au sol, sortit les sacs de rangement obt
 
 Il plaça le premier jade contre son front. Après l'avoir examiné un moment, il le mit de côté. Celui-ci contenait une méthode de culture de la Secte Démoniaque nommée Méthode de Culture sans Restraint.
 
-La Secte Démoniaque était l'une des sectes maléfiques de Hou Fen, et leur pratique donnaitrait la chair de poule. Cette méthode possédait six niveaux et se concentrait sur la cruauté.
+La Secte Démoniaque était l'une des sectes maléfiques de Huo Fen, et leur pratique donnaitrait la chair de poule. Cette méthode possédait six niveaux et se concentrait sur la cruauté.
 
 Les instructions du jade étaient les suivantes: Tuer quelqu'un, puis raffiner son cœur. En raffinant ce cœur, utilisez cette expérience pour transformer votre propre cœur en celui d'un assassin et marcher sur le sentier de l'impitoyabilité. Immergez-vous dans cette voie pour former une âme Shura capable de remplacer votre Âme Naissante; alors, la méthode sera accomplie.
 
@@ -86,7 +86,7 @@ En fixant la perle, le regard de Wang Lin vacilla. Il la remit dans son front. E
 
 Durant tout ce temps, Wang Lin n'avait pas trouvé le moment de vérifier ce jade. Il pouvait enfin l'étudier en paix.
 
-À cet instant, les innombrables volcans de Hou Fen émettaient une fumée noire. Celle-ci devint plus dense, propageant une énergie spirituelle chargée de rage à travers toute la région.
+À cet instant, les innombrables volcans de Huo Fen émettaient une fumée noire. Celle-ci devint plus dense, propageant une énergie spirituelle chargée de rage à travers toute la région.
 
 Parallèlement, les disciples des diverses sectes remarquèrent les bêtes de feu aux embouchures des volcans. Tous furent stupéfaits et utilisèrent divers moyens pour transmettre l'information à leurs sectes respectives.
 
@@ -106,9 +106,9 @@ L'homme d'âge moyen ne se sentit pas humilié. Il regarda la femme avec embarra
 
 Voyant que le silence s'était installé, l'homme nommé Song dit: « Peu importe. J'espère que l'apparition des bêtes de feu ne fera pas céder les sceaux. Faisons ce que nous faisons d'ordinaire et scellons les volcans dont nous avons la charge. »
 
-La même scène se déroula à la Secte Lou He, à la Secte Démoniaque et à la Secte des Cadavres. Les résultats furent sensiblement les mêmes, et tous les cultivateurs de l'Âme Naissante de Hou Fen s'attelèrent au scellement des volcans.
+La même scène se déroula à la Secte Lou He, à la Secte Démoniaque et à la Secte des Cadavres. Les résultats furent sensiblement les mêmes, et tous les cultivateurs de l'Âme Naissante de Huo Fen s'attelèrent au scellement des volcans.
 
-Soudain, tout le comté de Hou Fen put voir divers cultivateurs de l'Âme Naissante de différentes sectes planer autour des volcans pour les sceller. Les fluctuations d'énergie spirituelle devinrent également plus violentes ces derniers jours.
+Soudain, tout le comté de Huo Fen put voir divers cultivateurs de l'Âme Naissante de différentes sectes planer autour des volcans pour les sceller. Les fluctuations d'énergie spirituelle devinrent également plus violentes ces derniers jours.
 
 Alors qu'ils scellaient les volcans, tous les cultivateurs de l'Âme Naissante ne purent s'empêcher de sentir que quelque chose clochait. Chaque volcan était gardé par d'innombrables bêtes de feu qui attendaient à ses portes. Elles n'entravaient pas le scellement et n'attaquaient pas les cultivateurs; elles se contentaient d'attendre, le regard froid.
 
@@ -166,7 +166,7 @@ Wang Lin fronça les sourcils en testant l'arme. L'épée était bien plus rapid
 
 Le démon n'attendit pas d'ordre et pénétra docilement dans l'épée volante. Wang Lin rangea son arme. Après quelques calculs pour estimer le temps nécessaire, il prit une pause pour cultiver. Une fois son énergie spirituelle récupérée, il disparut d'un pas décidé.
 
-Wang Lin ignorait que durant ses quelques jours de retraite, des changements sismiques s'étaient produits à Hou Fen.
+Wang Lin ignorait que durant ses quelques jours de retraite, des changements sismiques s'étaient produits à Huo Fen.
 
 L'origine de ce bouleversement fut un volcan qu'un cultivateur de l'Âme Naissante de la Secte Lou He tentait de sceller. L'un des volcans qu'il avait sécurisés entra soudainement en éruption, projetant de la lave à des centaines de pieds de hauteur.
 
@@ -174,9 +174,9 @@ Simultanément, d'immenses nuages de fumée noire envahirent le ciel. Ce n'étai
 
 Parmi ces bêtes spirituelles, une était particulièrement gigantesque. Après avoir combattu ces colosses, le cultivateur de l'Âme Naissante comprit qu'il n'était pas de taille et s'enfuit blessé.
 
-Heureusement, la bête ne le poursuivit pas; elle se dirigea plutôt vers les autres volcans pour briser leurs sceaux. Soudain, de nombreux volcans à travers Hou Fen éclatèrent, saturant l'air d'une énergie spirituelle violente. Quiconque tenterait de cultiver cette énergie risquerait soit la folie, soit de se consumer par les flammes.
+Heureusement, la bête ne le poursuivit pas; elle se dirigea plutôt vers les autres volcans pour briser leurs sceaux. Soudain, de nombreux volcans à travers Huo Fen éclatèrent, saturant l'air d'une énergie spirituelle violente. Quiconque tenterait de cultiver cette énergie risquerait soit la folie, soit de se consumer par les flammes.
 
-Dès cet instant, tout le pays de Hou Fen sombra dans le chaos. Les premiers touchés furent les mortels, incapables de se défendre contre les bêtes de feu; ils commencèrent tous à fuir le pays.
+Dès cet instant, tout le pays de Huo Fen sombra dans le chaos. Les premiers touchés furent les mortels, incapables de se défendre contre les bêtes de feu; ils commencèrent tous à fuir le pays.
 
 Virent ensuite les petites et moyennes sectes ainsi que les familles, qui tournèrent leurs regards vers les quatre grandes sectes pour savoir si elles allaient combattre ou s'enfuir.
 
@@ -184,7 +184,7 @@ Les cultivateurs de l'Âme Naissante des quatre sectes se réunirent au Sanctuai
 
 Après tout, il y avait le risque qu'un pays de culture de rang 4 n'apparaisse à tout moment. Même en cas de victoire, leurs pertes seraient si lourdes qu'ils risqueraient de retomber au rang 2.
 
-À la frontière de Hou Fen se trouvait le pays de Xuan Wu. Comparé à Hou Fen, Xuan Wu était bien plus chaotique en raison de sa densité de sectes.
+À la frontière de Huo Fen se trouvait le pays de Xuan Wu. Comparé à Huo Fen, Xuan Wu était bien plus chaotique en raison de sa densité de sectes.
 
 Lorsque Wang Lin sortit de sa grotte, les quatre grandes sectes étaient en pleine migration. Une telle évacuation peut paraître simple, mais comme elle est rare, elle fut extrêmement complexe. Sous les assauts constants des bêtes de feu, les sectes devaient sans cesse envoyer des disciples pour les contenir.
 

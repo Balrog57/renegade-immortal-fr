@@ -3,7 +3,7 @@ n: 1175
 title: Membre du Secteur Divin
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: Chapter 1175 - Member of the God Sect
+en: Chapter 1175 - Member of the God Secte
 slug: membre-du-secteur-divin
 ---
 Le visage de l'homme d'âge moyen était pâle et il affichait une expression amère en regardant Wang Lin s'approcher. Il réfléchit un instant, puis joignit les mains. « Shang Qi, du Secteur de la Collection des Démons, salue le camarade cultivateur. »

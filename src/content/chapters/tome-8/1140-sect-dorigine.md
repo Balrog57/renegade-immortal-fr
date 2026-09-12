@@ -1,9 +1,9 @@
 ---
 n: 1140
-title: "Sect d'Origine"
+title: "Secte d'Origine"
 book: 8
 bookTitle: "Alliance's Secret"
-en: Chapter 1140 - Origin Sect
+en: Chapter 1140 - Origin Secte
 slug: sect-dorigine
 ---
 La cour sud de la Secte d'Origine. Bien que des pavillons couvraient le bassin, des bâtiments s'étendaient également sur la partie méridionale de la chaîne de montagnes. En particulier, au sein d'une forêt dont le feuillage restait rouge en toute saison, se dressait un pavillon écarlate. Il était orné de nombreuses sculptures de grues dansantes et s'avérait d'une grande beauté.

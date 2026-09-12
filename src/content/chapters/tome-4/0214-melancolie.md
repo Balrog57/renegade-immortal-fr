@@ -8,11 +8,11 @@ slug: melancolie
 ---
 Les yeux de Wang Lin devinrent graves. L'Ancienne Li, disciple de la Secte Luo He du pays de Huo Fen... Ces deux phrases résonnaient dans son esprit lorsqu'un nom lui vint soudainement à l'esprit.
 
-« Impossible... » pensa secrètement Wang Lin. Comment une telle coïncidence pouvait-elle exister dans ce monde? La jeune fille d'alors était-elle devenue une Ancienne de la Secte Cloud Sky?
+« Impossible... » pensa secrètement Wang Lin. Comment une telle coïncidence pouvait-elle exister dans ce monde? La jeune fille d'alors était-elle devenue une Ancienne de la Secte Ciel Nuageux?
 
 Wang Lin esquissa un sourire forcé et se dit qu'il s'imaginait des choses.
 
-D'une voix empreinte de regret, Cheng Xian dit: « L'Ancienne Li est un génie de sa génération. Dans le pays de Hou Fen, elle était déjà célèbre. Le pays de Hou Fen fut envahi, provoquant l'effondrement de la secte Luo He et la dispersion de tous ses disciples. Sans cela, l'Ancienne Li ne serait pas venue ici. »
+D'une voix empreinte de regret, Cheng Xian dit: « L'Ancienne Li est un génie de sa génération. Dans le pays de Huo Fen, elle était déjà célèbre. Le pays de Huo Fen fut envahi, provoquant l'effondrement de la secte Luo He et la dispersion de tous ses disciples. Sans cela, l'Ancienne Li ne serait pas venue ici. »
 
 Wang Lin hocha la tête, mais resta silencieux tout en continuant d'avancer.
 
@@ -24,17 +24,17 @@ Cheng Xian fut stupéfait. Puis, détournant le regard, il dit: « Aucun problè
 
 Wang Lin ne répondit plus et continua sa marche vers la cour sud.
 
-Tout au long du trajet, Cheng Xian ne cessa presque pas de parler. Il était évident qu'il possédait une grande facilité d'élocution. Il partagea toutes les nouvelles, les potins et les rumeurs concernant la Secte Cloud Sky.
+Tout au long du trajet, Cheng Xian ne cessa presque pas de parler. Il était évident qu'il possédait une grande facilité d'élocution. Il partagea toutes les nouvelles, les potins et les rumeurs concernant la Secte Ciel Nuageux.
 
 Sa façon de parler était si animée que Wang Lin n'en fut pas irrité. C'est ainsi que les deux arrivèrent à la cour sud.
 
-« Il faut dire que l'Ancienne Li n'est pas dans la secte depuis longtemps. Elle n'est ici que depuis environ cent ans, mais ses compétences en alchimie sont prodigieuses. J'ai entendu dire qu'autrefois, l'Ancienne Li rivalisait avec les deux alchimistes de rang 5 de la Secte Cloud Sky. Elle ne leur est pas restée en reste et a réussi à raffiner une Pilule de Cultivation Démoniaque de rang 5, qui est l'un des trois trésors de notre secte. » En évoquant la pilule, Cheng Xian afficha un regard d'admiration.
+« Il faut dire que l'Ancienne Li n'est pas dans la secte depuis longtemps. Elle n'est ici que depuis environ cent ans, mais ses compétences en alchimie sont prodigieuses. J'ai entendu dire qu'autrefois, l'Ancienne Li rivalisait avec les deux alchimistes de rang 5 de la Secte Ciel Nuageux. Elle ne leur est pas restée en reste et a réussi à raffiner une Pilule de Cultivation Démoniaque de rang 5, qui est l'un des trois trésors de notre secte. » En évoquant la pilule, Cheng Xian afficha un regard d'admiration.
 
 « Une Pilule de Cultivation Démoniaque? » Wang Lin fut frappé de stupeur. Le nom de cette pilule était bien étrange. Se pourrait-il qu'en la consommant, on se transforme en démon?
 
 Voyant l'expression de Wang Lin, Cheng Xian esquissa un sourire fier et dit: « Hehe, c'est vrai que cette pilule a un nom bizarre. Lors de sa création, l'Ancêtre a demandé à l'Ancienne Li d'en trouver un nom. Après avoir réfléchi un moment, elle est tombée sur celui-ci. Bien que son nom soit "Cultivation Démoniaque", cela n'a rien à voir avec le fait de cultiver pour devenir un démon. »
 
-« Quel est l'effet de cette pilule? » Wang Lin trouvait cela très suspect. Cette pilule s'appelait la Cultivation Démoniaque, et cette Ancienne Li venait du pays de Hou Fen et de la secte Li Hui. Il devait y avoir un lien.
+« Quel est l'effet de cette pilule? » Wang Lin trouvait cela très suspect. Cette pilule s'appelait la Cultivation Démoniaque, et cette Ancienne Li venait du pays de Huo Fen et de la secte Li Hui. Il devait y avoir un lien.
 
 « Les effets sont prodigieux, mais je ne connais pas leurs propriétés exactes. » Cheng Xian haussa les épaules et ajouta: « Avec mon rang, comment pourrais-je le savoir? Cette pilule est considérée comme l'un des trois grands trésors de notre secte. »
 
@@ -46,7 +46,7 @@ Cheng Xian s'arrêta devant le pont et sourit: « Il existe une autre rumeur con
 
 « Je suis tout ouïe. » Les yeux de Wang Lin suivirent le pont vers l'intérieur de la cour, mais une restriction l'empêchait de voir trop loin. Il pouvait néanmoins distinguer l'environnement élégant à l'intérieur; cela ressemblait au jardin d'Éden.
 
-Cheng Xian dit avec fierté: « La rumeur veut que l'Ancienne Li ait vécu quelque temps dans la Mer des Démons. Le nom de la pilule serait lié à un événement qu'elle y a vécu. Bien sûr, ce n'est qu'une rumeur. En réalité, il existe une multitude de légendes sur l'Ancienne Li au sein de la Secte Cloud Sky. Nous en discuterons plus longuement tout à l'heure. »
+Cheng Xian dit avec fierté: « La rumeur veut que l'Ancienne Li ait vécu quelque temps dans la Mer des Démons. Le nom de la pilule serait lié à un événement qu'elle y a vécu. Bien sûr, ce n'est qu'une rumeur. En réalité, il existe une multitude de légendes sur l'Ancienne Li au sein de la Secte Ciel Nuageux. Nous en discuterons plus longuement tout à l'heure. »
 
 Après avoir entendu cela, l'expression de Wang Lin resta sereine. Il joignit les mains vers Cheng Xian et s'engagea sur le pont.
 
@@ -86,13 +86,13 @@ Son visage était aussi beau qu'une fleur et sa peau aussi lisse que du jade. On
 
 Le regard de la femme se posa sur Wang Lin. Après l'avoir observé un instant, elle laissa paraître une pointe de mélancolie. Elle rabattit le rideau et retrouva sa contenance élégante.
 
-L'expression de Wang Lin demeurait aussi calme qu'une eau immobile. Dès que la femme avait parlé, il avait déjà deviné son identité. Il ne s'attendait pas à ce que, après toutes ces années, cette jeune fille soit devenue une Ancienne de la Secte Cloud Sky.
+L'expression de Wang Lin demeurait aussi calme qu'une eau immobile. Dès que la femme avait parlé, il avait déjà deviné son identité. Il ne s'attendait pas à ce que, après toutes ces années, cette jeune fille soit devenue une Ancienne de la Secte Ciel Nuageux.
 
-Bien que la culture de l'avatar de Wang Lin ne fût pas élevée, ses instincts restaient aiguisés. Il pouvait sentir que la culture de cette femme se situait au début du stade de Formation du Noyau. Dans n'importe quelle autre secte, il serait étrange qu'un maître et son disciple aient le même niveau de culture, mais ce n'était pas le cas dans la Secte Cloud Sky.
+Bien que la culture de l'avatar de Wang Lin ne fût pas élevée, ses instincts restaient aiguisés. Il pouvait sentir que la culture de cette femme se situait au début du stade de Formation du Noyau. Dans n'importe quelle autre secte, il serait étrange qu'un maître et son disciple aient le même niveau de culture, mais ce n'était pas le cas dans la Secte Ciel Nuageux.
 
 Dans la cour intérieure, on mesurait la valeur d'une personne à ses compétences en alchimie, et non à sa culture.
 
-Par conséquent, il arrivait fréquemment dans la cour intérieure que le maître ait un niveau de culture inférieur à celui du disciple. La Secte Cloud Sky suivait une échelle de valeurs bien différente des autres.
+Par conséquent, il arrivait fréquemment dans la cour intérieure que le maître ait un niveau de culture inférieur à celui du disciple. La Secte Ciel Nuageux suivait une échelle de valeurs bien différente des autres.
 
 Certes, certaines pilules exigeaient un certain niveau de culture pour être raffinées; il fallait alors que le cultivateur augmente son niveau.
 
@@ -138,7 +138,7 @@ Dans le bâtiment, Li Muwan posa son instrument. Elle réfléchit un moment, pui
 
 Un éclair passa dans ses yeux et elle pressa son front. Une goutte de sang en perla. Le sang était rouge vif et dégageait une aura destructrice.
 
-C'était le présent que Wang Lin lui avait offert avant son départ. Cette goutte de sang contenait un fragment du Royaume Ji. Wang Lin l'avait donnée pour la protéger toute sa vie. Sans elle, Li Muwan n'aurait pas survécu à la destruction du pays de Hou Fen.
+C'était le présent que Wang Lin lui avait offert avant son départ. Cette goutte de sang contenait un fragment du Royaume Ji. Wang Lin l'avait donnée pour la protéger toute sa vie. Sans elle, Li Muwan n'aurait pas survécu à la destruction du pays de Huo Fen.
 
 « Si c'était vraiment lui, pourquoi ce sang n'a-t-il pas réagi? » Li Muwan se mordit la lèvre et soupira.
 
@@ -150,11 +150,11 @@ En voyant Li Muwan, il afficha une affection non dissimulée et dit doucement: �
 
 Le visage de Li Muwan resta impassible. Elle ne daigna même pas regarder la boîte et répondit: « Je vous remercie pour votre gentillesse, Senior Frère Sun, mais j'ai déjà trouvé un remplaçant et fabriqué la pilule. Le frère Sun n'a qu'à le garder. »
 
-L'homme sourit chaleureusement. Il mit la boîte de côté et dit avec douceur: « Jeune sœur, les Ancêtres sont bienveillants. Après tout, vous n'êtes pas une disciple directe de la Secte Cloud Sky. Si vous souhaitez acquérir de meilleures techniques d'alchimie, vous devrez choisir un disciple direct pour former un couple de culture. Nous nous connaissons depuis longtemps; je suis sûr que vous comprenez mes sentiments. »
+L'homme sourit chaleureusement. Il mit la boîte de côté et dit avec douceur: « Jeune sœur, les Ancêtres sont bienveillants. Après tout, vous n'êtes pas une disciple directe de la Secte Ciel Nuageux. Si vous souhaitez acquérir de meilleures techniques d'alchimie, vous devrez choisir un disciple direct pour former un couple de culture. Nous nous connaissons depuis longtemps; je suis sûr que vous comprenez mes sentiments. »
 
 Un éclair de froideur traversa les yeux de Li Muwan. Elle fixa l'homme et trancha: « Ne reparlez plus jamais de cette affaire! »
 
-L'homme la regarda silencieusement. Après un long moment, il dit calmement: « Jeune sœur, si je ne vous avais pas sauvée lors de l'attaque du pays de Hou Fen, vous seriez morte. Comment ai-je agi envers vous ces dernières années? Je veux comprendre pourquoi vous vous y opposez ainsi. »
+L'homme la regarda silencieusement. Après un long moment, il dit calmement: « Jeune sœur, si je ne vous avais pas sauvée lors de l'attaque du pays de Huo Fen, vous seriez morte. Comment ai-je agi envers vous ces dernières années? Je veux comprendre pourquoi vous vous y opposez ainsi. »
 
 Li Muwan réfléchit. La silhouette d'un homme flotta inconsciemment dans son esprit. Elle refoula cette pensée et dit: « Sans raison... »
 
@@ -180,7 +180,7 @@ Cheng Xian ne chercha pas à esquiver. Le grand singe agrippa ses vêtements et 
 
 Le petit singe lança un regard de colère à Wang Lin. Il tenta de l'attraper, mais Wang Lin esquiva la griffe et sauta sur son dos. Le singe ne sembla pas en souffrir et poursuivit rapidement le plus grand.
 
-Les singes étaient extrêmement rapides; chevaucher ces bêtes revenait à voler sur les nuages. Cheng Xian semblait très habitué à cela. Après quelques cris, il sortit une gourde de vin, prit une grande gorgée, puis éclata de rire: « Chevaucher un singe spirituel jusqu'à la cour ouest... Dans toute la Secte Cloud Sky, je suis le seul capable de faire ça! Haha! »
+Les singes étaient extrêmement rapides; chevaucher ces bêtes revenait à voler sur les nuages. Cheng Xian semblait très habitué à cela. Après quelques cris, il sortit une gourde de vin, prit une grande gorgée, puis éclata de rire: « Chevaucher un singe spirituel jusqu'à la cour ouest... Dans toute la Secte Ciel Nuageux, je suis le seul capable de faire ça! Haha! »
 
 Wang Lin esquissa un sourire ironique. Bien que Cheng Xian fût espiègle, il n'était pas désagréable. Même s'il lui faisait perdre du temps, Wang Lin ne s'en souciait guère. En réalité, grâce à lui, son aversion pour les interactions sociales s'était un peu atténuée.
 

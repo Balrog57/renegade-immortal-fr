@@ -86,7 +86,7 @@ Ce que Xu Mu lui avait infligé était un véritable cauchemar. Dans le royaume 
 
 Même après être entré dans le bassin céleste, il n'avait pas osé provoquer Xu Mu. Chaque fois qu'il repensait à cet incroyable sortilège, une terreur profonde l'envahissait.
 
-Il prit une grande inspiration et disparut. Lorsqu'il réapparut, il se trouvait dans le ciel, au-dessus de la Secte Cloud Sky, fixant la statue de Wang Lin.
+Il prit une grande inspiration et disparut. Lorsqu'il réapparut, il se trouvait dans le ciel, au-dessus de la Secte Ciel Nuageux, fixant la statue de Wang Lin.
 
 Plus il regardait, plus il était terrifié. Plus il regardait, plus son cœur tremblait!
 

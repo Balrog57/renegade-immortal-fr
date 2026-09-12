@@ -58,7 +58,7 @@ Avec le mot « feu », la mer commença à brûler, recouverte d'une flamme aux 
 
 Après la flamme venait la mer déchaînée. Enfin, la terre traversa le corps de l'homme et chargea vers le ciel comme pour colmater le vortex.
 
-Lorsque tout cela se manifesta devant Wang Lin, son esprit fut bouleversé. Que ce soit l'Oiseau Vermillon ou l'homme d'âge mûr, ils possédaient tous deux une puissance que Daoist Water et Maître Simo ne pouvaient égaler. Si ces deux forces entraient en collision, l'onde de choc serait assez puissante pour détruire cette terre sainte!
+Lorsque tout cela se manifesta devant Wang Lin, son esprit fut bouleversé. Que ce soit l'Oiseau Vermillon ou l'homme d'âge mûr, ils possédaient tous deux une puissance que Shui Daozi et Maître Simo ne pouvaient égaler. Si ces deux forces entraient en collision, l'onde de choc serait assez puissante pour détruire cette terre sainte!
 
 Même Wang Lin ne pourrait survivre! À moins qu'il n'utilise un sort d'une puissance similaire pour affronter cette vague de destruction!
 

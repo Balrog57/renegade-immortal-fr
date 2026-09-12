@@ -3,7 +3,7 @@ n: 92
 title: Secte du Yin des Corps (1)
 book: 2
 bookTitle: The Bloody Image of Cultivation
-en: Chapter 92 - Corpse Yin Sect (1)
+en: Chapter 92 - Corpse Yin Secte (1)
 slug: secte-du-yin-des-corps-1
 ---
 Wang Lin eut un petit rire. Il ne ressentait plus d'hostilité envers cet étrange être bleu. Ressentant le besoin de s'étirer, il s'élança brusquement vers lui tel un lapin.

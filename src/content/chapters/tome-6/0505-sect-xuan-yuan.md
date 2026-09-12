@@ -1,9 +1,9 @@
 ---
 n: 505
-title: Sect Xuan Yuan
+title: Secte Xuan Yuan
 book: 6
 bookTitle: Arriving on Tian Yun
-en: Chapter 505 - Xuan Yuan Sect
+en: Chapter 505 - Xuan Yuan Secte
 slug: sect-xuan-yuan
 ---
 Planète Tian Yun, une planète de culture de rang 7 sous l'autorité de l'Alliance de la Culture.

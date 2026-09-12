@@ -3,7 +3,7 @@ n: 1925
 title: Secte Céleste
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
-en: Chapter 1925 - Heaven Sect
+en: Chapter 1925 - Heaven Secte
 slug: secte-celeste
 ---
 « Cette affaire semble injuste envers Qing Shuang et n'est pas équitable pour Qing Lin... Je n'aurais pas dû faire cela... Mais l'obsession de mille ans de Zhou Yi... Peu importe, je ne peux pas tout rendre parfait. » Wang Lin soupira.
@@ -18,7 +18,7 @@ Tandis que le dragon de mer sous lui rugissait, ils quittèrent la Secte Terrest
 
 Sous les ordres de Wang Lin, le dragon de mer fonça vers la seconde puissance du continent: la Secte Terrestre de Meng, une secte d'égale envergure à la Secte Terrestre.
 
-Grâce au niveau de culture d'Empyrean Exalt de Wang Lin et à la puissance du dragon de mer d'Exalt Doré, le voyage se déroula sans encombre. La Secte Terrestre de Meng remit respectueusement la carte de jade, craignant de déplaire à Wang Lin.
+Grâce au niveau de culture d'Exalté Empyréen de Wang Lin et à la puissance du dragon de mer d'Exalt Doré, le voyage se déroula sans encombre. La Secte Terrestre de Meng remit respectueusement la carte de jade, craignant de déplaire à Wang Lin.
 
 Wang Lin déploya également son Sens Divin sur tout le Continent Terrestre de Meng. Bien que les chances fussent faibles, il souhaitait tenter de retrouver d'anciens amis.
 
@@ -26,9 +26,9 @@ Mais il ne trouva rien.
 
 Dans un soupir et une bénédiction adressée à Zhou Yi et Qing Shuang, Wang Lin s'assit sur le dragon de mer qui volait désormais vers le Continent Céleste.
 
-L'ensemble du Continent Oriental ne comptait que quelques Empyrean Exalts. Sur le Continent Céleste, la Secte Céleste faisait partie des neuf sectes et treize factions. L'Ancien Ancestral de la Secte Céleste était réputé être un génie de la même génération que Luo Yunhai.
+L'ensemble du Continent Oriental ne comptait que quelques Exaltés Empyréens. Sur le Continent Céleste, la Secte Céleste faisait partie des neuf sectes et treize factions. L'Ancien Ancestral de la Secte Céleste était réputé être un génie de la même génération que Luo Yunhai.
 
-Cependant, sa culture s'était arrêtée au stade d'Empyrean Exalt. Il avait autrefois suivi le Grand Empyrean Gemini; mais après un événement mystérieux, il était parti en silence. Il était retourné à la secte et n'en était plus sorti depuis des dizaines de milliers d'années.
+Cependant, sa culture s'était arrêtée au stade d'Exalté Empyréen. Il avait autrefois suivi le Grand Empyrée Gemini; mais après un événement mystérieux, il était parti en silence. Il était retourné à la secte et n'en était plus sorti depuis des dizaines de milliers d'années.
 
 La Secte Céleste était l'organisation la plus puissante du Continent Céleste. Parmi les neuf sectes et treize factions, elle seule régnait sur l'intégralité du continent. Elle se distinguait des autres par sa structure: loin d'être une entité unique, elle possédait dix-neuf sectes branches réparties sur tout le territoire, contrôlant ainsi totalement les ressources du continent.
 
@@ -62,9 +62,9 @@ Le corps de Wang Lin trembla et la lumière dorée de son regard se fit plus int
 
 « Pourquoi m'as-tu convoqué ici? » Le vieil homme retira son regard et fixa Wang Lin avec une expression sérieuse.
 
-« Je viens d'atteindre le stade d'Empyrean Exalt et je souhaiterais simplement solliciter quelques conseils de la part d'un camarade, rien de plus. » Wang Lin n'avait aucune animosité envers la Secte Céleste. Ses paroles étaient polies et il joignit les mains en signe de respect devant le vieil homme.
+« Je viens d'atteindre le stade d'Exalté Empyréen et je souhaiterais simplement solliciter quelques conseils de la part d'un camarade, rien de plus. » Wang Lin n'avait aucune animosité envers la Secte Céleste. Ses paroles étaient polies et il joignit les mains en signe de respect devant le vieil homme.
 
-Le vieil homme éclata de rire et une intention de combat jaillit de ses yeux. S'il était rare qu'un combat à mort oppose des Empyrean Exalts, des échanges techniques étaient habituels. Cependant, comme ces êtres étaient si peu nombreux, il était exceptionnel que l'un d'eux renonce à l'opportunité de défier un autre. Un tel échange était bénéfique pour les deux parties.
+Le vieil homme éclata de rire et une intention de combat jaillit de ses yeux. S'il était rare qu'un combat à mort oppose des Exaltés Empyréens, des échanges techniques étaient habituels. Cependant, comme ces êtres étaient si peu nombreux, il était exceptionnel que l'un d'eux renonce à l'opportunité de défier un autre. Un tel échange était bénéfique pour les deux parties.
 
 « Bien! » Le vieil homme fit un pas en avant et leva la main droite. Il fit un geste vers Wang Lin au sommet du pic, et toute la neige environnante s'agita. Elle se transforma en une tempête furieuse qui fonça sur Wang Lin de toutes parts.
 
@@ -80,7 +80,7 @@ Quelques heures plus tard, la silhouette de Wang Lin émergea de la neige infini
 
 Au même moment, le vieil homme aux cheveux blancs avait également reculé de plusieurs dizaines de milliers de pieds avant de se stabiliser.
 
-« Tu viens à peine d'atteindre le stade d'Empyrean Exalt et tu es déjà capable de fusionner neuf sorts dans tes mouvements. De plus, tu ne sembles pas très vieux; ce vieil homme t'admire! »
+« Tu viens à peine d'atteindre le stade d'Exalté Empyréen et tu es déjà capable de fusionner neuf sorts dans tes mouvements. De plus, tu ne sembles pas très vieux; ce vieil homme t'admire! »
 
 Séparés par des dizaines de milliers de pieds, les deux hommes joignirent les mains en signe de respect et sourirent.
 
@@ -89,13 +89,13 @@ Séparés par des dizaines de milliers de pieds, les deux hommes joignirent les 
 
 Les deux lancèrent une offensive rapide depuis deux directions opposées. Les fracas furent tels que le cœur du dragon de mer en trembla; la créature recula, observant ces deux figures terrifiantes avant de s'éloigner encore davantage.
 
-La bataille dura sept jours. Wang Lin et le vieil homme s'affrontèrent vingt-trois fois! À chaque escarmouche, ils se séparaient pour restaurer leur culture et méditer sur l'échange précédent, tout en discutant ensemble. Ce type de combat entre Empyrean Exalts ne comportait aucune haine; c'était une source d'enseignement précieuse pour chacun.
+La bataille dura sept jours. Wang Lin et le vieil homme s'affrontèrent vingt-trois fois! À chaque escarmouche, ils se séparaient pour restaurer leur culture et méditer sur l'échange précédent, tout en discutant ensemble. Ce type de combat entre Exaltés Empyréens ne comportait aucune haine; c'était une source d'enseignement précieuse pour chacun.
 
 « Camarade Wang, je vois que tu te retiens encore un peu. Nos forces de combat sont comparables, alors pourquoi ne pas tout donner? » À l'issue du vingt-troisième affrontement, le vieil homme rit à distance.
 
 « D'accord! » Wang Lin se leva et son Vrai Corps des Cinq Éléments apparut!
 
-Avec un seul corps véritable, la puissance de combat de Wang Lin décuplerait, lui permettant de rivaliser avec un Empyrean Exalt ayant fusionné dix-huit sorts!
+Avec un seul corps véritable, la puissance de combat de Wang Lin décuplerait, lui permettant de rivaliser avec un Exalté Empyréen ayant fusionné dix-huit sorts!
 
 « Un Vrai Corps d'Essence! Et ce n'est pas un simple corps d'essence, mais un corps issu de la fusion de multiples essences! » Les pupilles du vieil homme se rétractèrent en contemplant la forme de Wang Lin.
 
@@ -109,4 +109,4 @@ Tandis que la neige tombait, le vieil homme sortit et regarda dans la direction 
 
 « Il n'a pas utilisé toute sa force... Avec une telle culture, je me demande jusqu'où il parviendra lors de l'Épreuve de l'Empyrean. » Le vieil homme attendit que Wang Lin disparaisse complètement avant de partir.
 
-« Un nouvel Empyrean Exalt est apparu dans mon clan céleste. Cette affaire doit être rapportée au Grand Empyrean. » Ces dix jours de combat lui avaient également apporté de profondes révélations.
+« Un nouvel Exalté Empyréen est apparu dans mon clan céleste. Cette affaire doit être rapportée au Grand Empyrée. » Ces dix jours de combat lui avaient également apporté de profondes révélations.

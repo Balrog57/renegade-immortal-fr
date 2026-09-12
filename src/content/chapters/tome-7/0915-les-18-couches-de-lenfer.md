@@ -64,7 +64,7 @@ Le fragment d'âme de l'homme d'âge moyen s'envola et pénétra dans l'âme ori
 
 La scène changea une fois de plus. Cette fois, c'était une grotte dans la forêt. Il dévora les fondations de Teng Li, puis le fragment d'âme de ce dernier vola vers lui.
 
-Les scènes s'enchaînèrent, du pays de Zhao à la Secte des Cadavres, puis à la Vallée Jue Ming, au Champ de Bataille Étranger, à Hou Fen, et enfin à la Mer des Démons avec le tendon de dragon et l'Ordre des Dix Mille Démons de cent jours.
+Les scènes s'enchaînèrent, du pays de Zhao à la Secte des Cadavres, puis à la Vallée Jue Ming, au Champ de Bataille Étranger, à Huo Fen, et enfin à la Mer des Démons avec le tendon de dragon et l'Ordre des Dix Mille Démons de cent jours.
 
 Puis il retourna à Zhao, où il massacra la famille Teng. La bataille contre Xue Yue, le Royaume Céleste de la Pluie, suivie du meurtre de l'ancêtre du pays de Xue Yue [1] et de l'ancêtre du Clan des Démons Géants. Ensuite vinrent la bataille entre le Clan des Immortels Délaissés et le pays Suzaku, ainsi que les événements survenus dans la Tombe de Suzaku. Tout défilait comme si Wang Lin revivait sa propre existence.
 

@@ -3,7 +3,7 @@ n: 1258
 title: Réprimander la Secte Éternelle, Nuit Brisée
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: Chapter 1258 - Rebuking the Everlasting Sect, Sundered Night
+en: Chapter 1258 - Rebuking the Everlasting Secte, Sundered Night
 slug: reprimander-la-secte-eternelle-nuit-brisee
 ---
 « Pourquoi aurais-je peur? »

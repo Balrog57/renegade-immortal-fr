@@ -6,11 +6,11 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 160 - Cultivating the Core
 slug: la-formation-du-noyau
 ---
-Le doute qui l'habitait s'intensifiait. Après une courte réflexion, il disparut pour traverser Hou Fen à une vitesse effrayante, pénétrant dans l'un de ses pays limitrophes: Tian Mo.
+Le doute qui l'habitait s'intensifiait. Après une courte réflexion, il disparut pour traverser Huo Fen à une vitesse effrayante, pénétrant dans l'un de ses pays limitrophes: Tian Mo.
 
 Son objectif était la Tour Céleste située au centre de Tian Mo. L'individu qui s'y trouvait était un messager provenant d'un pays de culture de rang supérieur.
 
-Tous les pays de culture de rang 3 ne possèdent pas de Tour Céleste; Hou Fen et Xuan Wu n'en ont pas. C’est d'ailleurs la raison pour laquelle Hou Fen avait choisi d'envahir Xuan Wu plutôt que Tian Mo.
+Tous les pays de culture de rang 3 ne possèdent pas de Tour Céleste; Huo Fen et Xuan Wu n'en ont pas. C’est d'ailleurs la raison pour laquelle Huo Fen avait choisi d'envahir Xuan Wu plutôt que Tian Mo.
 
 Le temps s'écoula lentement tandis que Wang Lin cultivait à l'intérieur de la Perle Défiant le Ciel. Bientôt, cent jours s'étaient écoulés.
 
@@ -54,7 +54,7 @@ Avant de partir, il alla rendre visite à Situ Nan ainsi qu'aux âmes de ses par
 
 Dans un lieu souterrain, une lueur multicolore jaillit alors que Wang Lin se manifestait. Dès son apparition, il s'élança rapidement vers les lointains.
 
-Simultanément, il déploya son Sens Divin pour observer attentivement les environs. C'était le cœur de la nuit et tout était calme. Wang Lin réfléchit un instant avant de foncer vers l'Union de Hou Fen.
+Simultanément, il déploya son Sens Divin pour observer attentivement les environs. C'était le cœur de la nuit et tout était calme. Wang Lin réfléchit un instant avant de foncer vers l'Union de Huo Fen.
 
 Mais avant d'avoir pu parcourir beaucoup de distance, son Sens Divin lui alerta d'un danger imminent. Il utilisa sa technique d'évasion terrestre à son paroxysme pour s'enfoncer plus profondément sous terre. De 990 mètres à 3,3 kilomètres, il continua sa descente, sa vitesse ne faisant que croître.
 
@@ -64,7 +64,7 @@ Le crâne de Wang Lin picota, ses cheveux se hérissèrent et son visage s'assom
 
 « Hehe, heureusement que j'ai emprunté ce bateau terrestre à quelqu'un. Il serait bien difficile de t'attraper si tu t'échappais à travers la croûte terrestre grâce à cette force! » La voix continuait de résonner dans son Sens Divin.
 
-Wang Lin resta de marbre, changea brusquement de direction et commença à remonter. De 1 000 pieds sous terre à 330 mètres, il jaillit à la surface, avec la chaîne de montagnes de l'Union de Hou Fen se dressant devant lui.
+Wang Lin resta de marbre, changea brusquement de direction et commença à remonter. De 1 000 pieds sous terre à 330 mètres, il jaillit à la surface, avec la chaîne de montagnes de l'Union de Huo Fen se dressant devant lui.
 
 Dès son apparition, il chargea vers la montagne. Un écran de lumière enveloppait le massif. Au moment où il toucha la barrière, il sortit le jade d'identification qui lui avait été confié. Il traversa sans effort la lumière, puis jeta un regard en arrière.
 
@@ -74,7 +74,7 @@ Le visage de Wang Lin était sombre, mais il laissa échapper un ricanement sile
 
 Les lèvres du vieil homme bougèrent en un sourire singulier. Sa main droite pressa doucement l'écran de lumière, faisant apparaître quelques fissures avant que la barrière ne vole en éclats. Toute la montagne trembla, soulevant une immense nuée de poussière et de terre.
 
-Les cultivateurs de l'Âme Naissante de l'Union de Hou Fen s'envolèrent les uns après les autres, terrifiés.
+Les cultivateurs de l'Âme Naissante de l'Union de Huo Fen s'envolèrent les uns après les autres, terrifiés.
 
 Les pupilles de Wang Lin se rétractèrent. Il fit volte-face et replongea dans le sol pour tenter une nouvelle fuite.
 
@@ -82,11 +82,11 @@ Le vieil homme ricana et s'apprêtait à le poursuivre lorsqu'un cultivateur de 
 
 Cet homme était présent depuis trois mois. La plupart du temps, il ne faisait rien d'autre que balayer les environs de son Sens Divin. Sa puissance de perception était telle qu'elle avait stupéfié tous les cultivateurs de l'Âme Naissante présents.
 
-En secret, les cultivateurs de Hou Fen surveillaient le vieil homme. Aujourd'hui, ils avaient vu un disciple de l'Union de Hou Fen approcher, mais avant qu'ils ne puissent l'identifier, ils furent sidérés par la facilité avec laquelle l'homme brisa leur formation d'un simple geste de la paume.
+En secret, les cultivateurs de Huo Fen surveillaient le vieil homme. Aujourd'hui, ils avaient vu un disciple de l'Union de Huo Fen approcher, mais avant qu'ils ne puissent l'identifier, ils furent sidérés par la facilité avec laquelle l'homme brisa leur formation d'un simple geste de la paume.
 
-S'ils passaient cela sous silence, l'Union de Hou Fen perdrait toute dignité. C'était au tour de la Secte du Démon Maléfique de monter la garde aujourd'hui, c'est pourquoi ce cultivateur de l'Âme Naissante s'était risqué à poser la question. Ce faisant, il exprimait leur position. Que le vieil homme réponde ou non, le cultivateur n'aurait pas insisté davantage.
+S'ils passaient cela sous silence, l'Union de Huo Fen perdrait toute dignité. C'était au tour de la Secte du Démon Maléfique de monter la garde aujourd'hui, c'est pourquoi ce cultivateur de l'Âme Naissante s'était risqué à poser la question. Ce faisant, il exprimait leur position. Que le vieil homme réponde ou non, le cultivateur n'aurait pas insisté davantage.
 
-Le vieil homme fixa les cultivateurs de Hou Fen et lâcha un seul mot: « Dégagez! »
+Le vieil homme fixa les cultivateurs de Huo Fen et lâcha un seul mot: « Dégagez! »
 
 Ce mot unique projeta une onde de choc si puissante qu'elle fit résonner leurs oreilles de façon douloureuse.
 

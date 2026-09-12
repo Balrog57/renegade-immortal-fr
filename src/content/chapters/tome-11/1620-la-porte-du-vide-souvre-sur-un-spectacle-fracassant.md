@@ -104,7 +104,7 @@ Lorsque la Porte du Vide apparut pour la seconde fois, les yeux de Wang Lin s'il
 
 « Essence de feu, par mon nom, Wang Lin, consume la Porte du Vide! » À l'instant où il parla, un feu aux neuf couleurs jaillit et envahit la zone.
 
-À cet instant précis, dans le Brilliant Void, la Mer des Nuages, Allheaven, Summoned River, et même dans le Royaume Extérieur, un feu infini se précipita vers le doigt de Wang Lin tel le tonnerre d'autrefois. Tout ce brasier s'abattit sur la Porte du Vide.
+À cet instant précis, dans le Vide Brillant, la Mer des Nuages, Allheaven, Summoned River, et même dans le Royaume Extérieur, un feu infini se précipita vers le doigt de Wang Lin tel le tonnerre d'autrefois. Tout ce brasier s'abattit sur la Porte du Vide.
 
 Il était impossible de décrire la splendeur de ce spectacle. C'était une scène que bien des cultivateurs ne verraient jamais de leur vivant.
 

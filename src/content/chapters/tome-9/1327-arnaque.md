@@ -80,7 +80,7 @@ D'une simple pression, le fil doré se mua en une brume dorée et pénétra dans
 
 Wang Lin plissa les yeux en observant la scène. Il s'était longtemps interrogé sur son identité, mais les indices étaient trop rares pour deviner qui elle était.
 
-Cependant, à voir le choc et la peur de Daoist Water en la voyant, Wang Lin savait que l'identité du Cadavre Argenté n'avait rien de commun!
+Cependant, à voir le choc et la peur de Shui Daozi en la voyant, Wang Lin savait que l'identité du Cadavre Argenté n'avait rien de commun!
 
 « Comment une telle personne a-t-elle pu devenir un cadavre raffiné par l'Alliance de Culture… Comment l'Alliance a-t-elle pu obtenir son corps… » Wang Lin regarda le familier Cadavre Argenté. Ses yeux fixaient toujours l'horizon avec confusion. Nul ne savait ce qu'elle pensait.
 
@@ -104,7 +104,7 @@ Cependant, au moment où elle allait pénétrer dans la fissure spatiale, elle s
 
 La fissure de l'espace de stockage se referma après que la femme en argent fut entrée.
 
-Pourtant, ses paroles déclenchèrent une onde de choc immense dans l'esprit de Wang Lin, et ses yeux brillèrent intensément. Du Seigneur du Royaume Scellé, Daoist Water, au Maître du Dao Blue Dream, il avait appris que les Flammes Joss étaient la clé pour atteindre la troisième étape et le moyen de nourrir ses essences!
+Pourtant, ses paroles déclenchèrent une onde de choc immense dans l'esprit de Wang Lin, et ses yeux brillèrent intensément. Du Seigneur du Royaume Scellé, Shui Daozi, au Maître du Dao Blue Dream, il avait appris que les Flammes Joss étaient la clé pour atteindre la troisième étape et le moyen de nourrir ses essences!
 
 Il était lui-même parvenu à cette conclusion, mais à présent, les paroles de la femme argentée disaient exactement le contraire!
 

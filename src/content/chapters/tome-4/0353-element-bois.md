@@ -63,7 +63,7 @@ Après une réflexion, son regard devint glacial. Au cours de ses 500 ans de cul
 
 Il réfléchit: « Ce tatouage provient de la plante située entre mes sourcils. Tous les sauvages possèdent également une plante entre les deux yeux... Puisqu'il s'agit d'une plante, quel que soit le pouvoir du tatouage, il doit impérativement contenir un élément bois! »
 
-Il avait déjà affronté un danger similaire lorsqu'il était au stade de l'Établissement des Fondations, lors de sa rencontre avec l'esprit de feu désolé à Hou Fen. Cet esprit dévorait les cultivateurs pour croître. Au dernier moment, la Perle Défiant le Ciel était apparue pour absorber l'esprit et avait ainsi complété l'exigence de l'élément feu.
+Il avait déjà affronté un danger similaire lorsqu'il était au stade de l'Établissement des Fondations, lors de sa rencontre avec l'esprit de feu désolé à Huo Fen. Cet esprit dévorait les cultivateurs pour croître. Au dernier moment, la Perle Défiant le Ciel était apparue pour absorber l'esprit et avait ainsi complété l'exigence de l'élément feu.
 
 Fort de cette pensée, Wang Lin décida de tenter sa chance. Il prit une profonde inspiration, pointa son front et s'écria: « Défi au ciel! »
 

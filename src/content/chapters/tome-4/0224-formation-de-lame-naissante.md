@@ -120,13 +120,13 @@ Bien que la tactique de l'Ancien Dieu de Wang Lin présentât des différences p
 
 Le temps s'écoula rapidement et le jour de la cérémonie de jumelage de culture entre Li Muwan et Sun Zhenwei arriva enfin.
 
-Ce jour-là, toute la Secte Cloud Sky était empreinte d'une atmosphère festive. Aucun nuage ne troublait le ciel sur des milles à la ronde. Le ciel était d'un bleu pur et d'innombrables lumières volaient vers la secte.
+Ce jour-là, toute la Secte Ciel Nuageux était empreinte d'une atmosphère festive. Aucun nuage ne troublait le ciel sur des milles à la ronde. Le ciel était d'un bleu pur et d'innombrables lumières volaient vers la secte.
 
-Presque toutes les sectes et familles de cultivateurs du pays de Chu étaient rassemblées ici. Tous les arrivants étaient des Anciens ou des membres éminents de leurs clans respectifs. Une telle ambiance était le privilège exclusif de la Secte Cloud Sky; aucune autre secte n'aurait pu attirer une telle assemblée.
+Presque toutes les sectes et familles de cultivateurs du pays de Chu étaient rassemblées ici. Tous les arrivants étaient des Anciens ou des membres éminents de leurs clans respectifs. Une telle ambiance était le privilège exclusif de la Secte Ciel Nuageux; aucune autre secte n'aurait pu attirer une telle assemblée.
 
-En raison du nombre impressionnant d'invités, la formation défensive de la Secte Cloud Sky avait été étendue pour couvrir toute la chaîne de montagnes. D'innombrables disciples de la secte extérieure avaient été déployés en patrouille pour accueillir les convives.
+En raison du nombre impressionnant d'invités, la formation défensive de la Secte Ciel Nuageux avait été étendue pour couvrir toute la chaîne de montagnes. D'innombrables disciples de la secte extérieure avaient été déployés en patrouille pour accueillir les convives.
 
-Il faut dire que le statut de Li Muwan au sein de la Secte Cloud Sky était unique. Après tout, elle était l'une des trois alchimistes de rang 5 de la secte. La position de Sun Zhenwei était également prestigieuse: il était le fils d'un Ancien de la secte extérieure, cultivateur au stade intermédiaire de l'Âme Naissante, et le seul en un siècle capable de progresser vers le stade avancé pour devenir un ancêtre de la secte.
+Il faut dire que le statut de Li Muwan au sein de la Secte Ciel Nuageux était unique. Après tout, elle était l'une des trois alchimistes de rang 5 de la secte. La position de Sun Zhenwei était également prestigieuse: il était le fils d'un Ancien de la secte extérieure, cultivateur au stade intermédiaire de l'Âme Naissante, et le seul en un siècle capable de progresser vers le stade avancé pour devenir un ancêtre de la secte.
 
 De plus, la secte extérieure plaçait de grands espoirs en lui. Une fois qu'il atteindrait l'Âme Naissante, une série de mesures serait prise pour le positionner comme candidat au titre de chef de la secte extérieure. Si son père devenait avec succès un ancêtre de la secte, Sun Zhenwei deviendrait alors inévitablement le chef de la secte extérieure.
 
@@ -134,7 +134,7 @@ Sans cela, il lui aurait été impossible d'être associé à Li Muwan lors de c
 
 Tous les visiteurs étaient au courant de ces enjeux. On pouvait dire que cette cérémonie visait à sceller l'alliance entre les sectes intérieure et extérieure.
 
-Après tout, la Secte Cloud Sky était scindée en deux: la secte intérieure pratiquait l'alchimie tandis que la secte extérieure se consacrait à la culture. C'est grâce à leur synergie que la secte avait atteint ses sommets actuels.
+Après tout, la Secte Ciel Nuageux était scindée en deux: la secte intérieure pratiquait l'alchimie tandis que la secte extérieure se consacrait à la culture. C'est grâce à leur synergie que la secte avait atteint ses sommets actuels.
 
 Sun Zhenwei portait une longue robe rouge. Sa stature haute et droite lui conférait une aura à la fois douce et distinguée. Il se tenait actuellement derrière les Anciens des deux secteurs pour accueillir les invités.
 
@@ -144,7 +144,7 @@ Il trouvait ce sentiment absurde. Aujourd'hui, presque tous les ancêtres au sta
 
 À moins que son niveau de culture ne soit celui de la Séparation d'Esprit.
 
-Mais Sun Zhenwei ne croyait pas qu'un cultivateur de la Séparation d'Esprit s'abaisserait à s'en prendre à la Secte Cloud Sky. Et même une secte de ce niveau devait rester vigilante face à la Secte du Démon Géant qui se trouvait derrière eux.
+Mais Sun Zhenwei ne croyait pas qu'un cultivateur de la Séparation d'Esprit s'abaisserait à s'en prendre à la Secte Ciel Nuageux. Et même une secte de ce niveau devait rester vigilante face à la Secte du Démon Géant qui se trouvait derrière eux.
 
 Par conséquent, Sun Zhenwei ne trouvait aucune raison logique à son anxiété. Il sourit intérieurement, pensant qu'il s'inquiétait pour rien.
 
@@ -162,7 +162,7 @@ Cet homme était Liu Fei, le chef de la secte extérieure. Sa culture était mys
 
 À côté de ce vieil homme se tenait un autre Ancien aux cheveux blancs: Song Qing, le chef de la secte intérieure. Derrière lui se trouvait un groupe de personnes aux niveaux de culture variés qui, dans n'importe quelle autre secte, seraient devenus les alchimistes en chef en une seule journée.
 
-« Sima Yunnan, chef de la Secte Hao Ran, et l'Ancien Xu Li sont ici pour célébrer cette occasion! » Une voix tonna au loin, résonnant à travers toute la chaîne de montagnes de la Secte Cloud Sky.
+« Sima Yunnan, chef de la Secte Hao Ran, et l'Ancien Xu Li sont ici pour célébrer cette occasion! » Une voix tonna au loin, résonnant à travers toute la chaîne de montagnes de la Secte Ciel Nuageux.
 
 Simultanément, deux arcs-en-ciel convergèrent. Ils atterrirent au sein de la secte, révélant deux silhouettes. L'une d'elles portait une robe violette et dégageait une aura ancestrale.
 
@@ -178,7 +178,7 @@ Sima Yunnan rit: « Ne me mettez pas dans l'embarras! Puisque votre mémoire est
 
 Les trois hommes éclatèrent de rire en échangeant quelques mots. Liu Fei fit un signe de la main et Sun Zhenwei guida rapidement Sima Yunnan vers la salle principale.
 
-Sima Yunnan étudia attentivement Sun Zhenwei et commenta: « Tu es un véritable génie. Si jeune, et pourtant tu as déjà atteint le seuil de l'Âme Naissante. Très bien. Dans cent ans, la Secte Cloud Sky comptera un autre cultivateur de ce stade. »
+Sima Yunnan étudia attentivement Sun Zhenwei et commenta: « Tu es un véritable génie. Si jeune, et pourtant tu as déjà atteint le seuil de l'Âme Naissante. Très bien. Dans cent ans, la Secte Ciel Nuageux comptera un autre cultivateur de ce stade. »
 
 Sun Zhenwei esquissa un sourire humble: « Senior est trop aimable. Ce junior ne mérite pas de tels éloges. »
 
@@ -188,11 +188,11 @@ Plusieurs tables, garnies de vins fins et de fruits, étaient disposées dans la
 
 Après son arrivée, Sima Yunnan ne put s'empêcher d'échanger avec plusieurs autres personnes aux côtés de Xu Li. Sun Zhenwei recula discrètement pour quitter la salle.
 
-Une fois seul, Sima Yunnan et Xu Li s'assirent près d'une table. Sima Yunnan demanda par transmission mentale: « Tu disais que cet individu se cache au sein de la Secte Cloud Sky? »
+Une fois seul, Sima Yunnan et Xu Li s'assirent près d'une table. Sima Yunnan demanda par transmission mentale: « Tu disais que cet individu se cache au sein de la Secte Ciel Nuageux? »
 
-L'expression de Xu Li resta impassible tandis qu'il répondait également par transmission mentale: « Chef de secte, ce n'est qu'une supposition, elle n'est pas forcément exacte. Cet homme dégageait une aura démoniaque et a disparu près de la Secte Cloud Sky. De plus, il y a trois mois, un mystérieux individu est apparu dans notre secte et a réussi à s'échapper malgré la poursuite de trois cultivateurs de l'Âme Naissante. Selon les rapports de nos espions, je soupçonne qu'il s'agisse de la personne que j'ai rencontrée. Quant à savoir s'il se cache ici, je n'en suis pas certain. »
+L'expression de Xu Li resta impassible tandis qu'il répondait également par transmission mentale: « Chef de secte, ce n'est qu'une supposition, elle n'est pas forcément exacte. Cet homme dégageait une aura démoniaque et a disparu près de la Secte Ciel Nuageux. De plus, il y a trois mois, un mystérieux individu est apparu dans notre secte et a réussi à s'échapper malgré la poursuite de trois cultivateurs de l'Âme Naissante. Selon les rapports de nos espions, je soupçonne qu'il s'agisse de la personne que j'ai rencontrée. Quant à savoir s'il se cache ici, je n'en suis pas certain. »
 
-Sima Yunnan réfléchit: « Si cet homme est celui que Xu Li décrit, il doit être un grand mal venu de la Mer des Démons. Héhé, si la Secte Cloud Sky attire l'attention d'une telle entité, comment cela ne pourrait-il profiter à ma Secte Hao Ran? »
+Sima Yunnan réfléchit: « Si cet homme est celui que Xu Li décrit, il doit être un grand mal venu de la Mer des Démons. Héhé, si la Secte Ciel Nuageux attire l'attention d'une telle entité, comment cela ne pourrait-il profiter à ma Secte Hao Ran? »
 
 « Tianyi Zhenren et l'Ancien Shi Tianlai de la Secte Lou Yue sont arrivés pour célébrer l'événement! » Une autre voix puissante retentit, attirant le regard de Sima Yunnan vers l'extérieur.
 
@@ -206,7 +206,7 @@ Peu après, Liu Fei et Song Qing entrèrent dans la salle principale, suivis par
 
 À leur entrée, tous les invités cessèrent leurs conversations pour les observer.
 
-Dans la salle, Liu Fei regarda Song Qing. Il sourit et fit quelques pas en retrait. Song Qing acquiesça. Son regard balaya l'assemblée et il déclara: « Chers compagnons cultivateurs, aujourd'hui est un jour de célébration pour ma Secte Cloud Sky... »
+Dans la salle, Liu Fei regarda Song Qing. Il sourit et fit quelques pas en retrait. Song Qing acquiesça. Son regard balaya l'assemblée et il déclara: « Chers compagnons cultivateurs, aujourd'hui est un jour de célébration pour ma Secte Ciel Nuageux... »
 
 Il ne put achever sa phrase qu'une secousse soudaine fit trembler le sol, tandis qu'une pression monstrueuse émergeait des profondeurs. Sous la force de cette présence écrasante, tous les cultivateurs de l'Âme Naissante dans la salle se levèrent, terrifiés. Ils déployèrent tous leur Sens Divin sous terre pour comprendre ce qui se passait.
 

@@ -10,19 +10,19 @@ Les épées volantes étaient rapides, mais la technique d'évasion tellurique l
 
 De puissantes fluctuations d'énergie spirituelle émanaient des nombreuses brèches dans le sol. Des membres humains jonchaient le terrain et une odeur de sang écœurante imprégnait la zone.
 
-Dès l'arrivée des cent cultivateurs, d'innombrables combattants de Hou Fen surgirent et la bataille éclata.
+Dès l'arrivée des cent cultivateurs, d'innombrables combattants de Huo Fen surgirent et la bataille éclata.
 
 Au même instant, huit rayons de lumière chargèrent, enveloppant les environs d'une aura surpuissante. Les yeux de Wang Lin se plissèrent: ces huit êtres étaient tous des cultivateurs de l'Âme Naissante.
 
-À leur approche, ils furent pris pour cible par les patrouilles de l'Âme Naissante de Hou Fen. Les combats entre les maîtres de l'Âme Naissante des deux camps s'engageaient; la terre tremblait et le ciel changeait de couleur.
+À leur approche, ils furent pris pour cible par les patrouilles de l'Âme Naissante de Huo Fen. Les combats entre les maîtres de l'Âme Naissante des deux camps s'engageaient; la terre tremblait et le ciel changeait de couleur.
 
 Peu après, cent autres équipes apparurent au loin pour rejoindre ce tumulte.
 
 Le regard de Wang Lin devint glacial. Après une brève observation, son Sens Divin du Royaume Ji jaillit du sol et s'élança dans le champ de bataille.
 
-Un disciple de l'Établissement des Fondations de Xuan Wu venait d'abattre un disciple du 15e niveau de Hou Fen. Alors qu'il s'apprêtait à attaquer de nouveau, une lueur rouge passa devant lui. Il eut l'impression de recevoir un coup de marteau géant sur la tête et perdit connaissance. Son âme fut détruite sans la moindre résistance, et il chuta du ciel.
+Un disciple de l'Établissement des Fondations de Xuan Wu venait d'abattre un disciple du 15e niveau de Huo Fen. Alors qu'il s'apprêtait à attaquer de nouveau, une lueur rouge passa devant lui. Il eut l'impression de recevoir un coup de marteau géant sur la tête et perdit connaissance. Son âme fut détruite sans la moindre résistance, et il chuta du ciel.
 
-Huit cultivateurs de l'Établissement des Fondations de Xuan Wu utilisèrent une formation d'épées pour piéger un cultivateur de la Formation du Noyau de Hou Fen, mais après le passage d'une lueur rouge, les huit hommes tremblèrent et leurs visages se figèrent. Ils sentirent leurs âmes s'embrouiller et perdre leur forme alors que leurs corps tombaient du ciel.
+Huit cultivateurs de l'Établissement des Fondations de Xuan Wu utilisèrent une formation d'épées pour piéger un cultivateur de la Formation du Noyau de Huo Fen, mais après le passage d'une lueur rouge, les huit hommes tremblèrent et leurs visages se figèrent. Ils sentirent leurs âmes s'embrouiller et perdre leur forme alors que leurs corps tombaient du ciel.
 
 Le cultivateur de la Formation du Noyau pris au piège fut surpris, mais la situation ne lui laissa aucun répit pour réfléchir tandis qu'il chargeait vers l'ennemi.
 
@@ -60,7 +60,7 @@ La tension augmentait alors que les combats faisaient rage. L'affrontement entre
 
 C'est à ce moment précis que les cultivateurs de l'Établissement des Fondations de Xuan Wu commencèrent à tomber mystérieusement du ciel, leurs corps n'étant plus que des masses ensanglantées en frappant le sol.
 
-Face à ces morts inexplicables, la panique s'empara de Xuan Wu. Les cultivateurs de Hou Fen saisirent cette opportunité pour lancer une offensive.
+Face à ces morts inexplicables, la panique s'empara de Xuan Wu. Les cultivateurs de Huo Fen saisirent cette opportunité pour lancer une offensive.
 
 L'homme d'âge moyen en robe pourpre qui avait envoyé les dix hommes traquer Wang Lin fronça les sourcils. Son regard balaya le sol comme un éclair avant de se fixer sur un point précis. Il désigna l'endroit et, sans un mot, un cultivateur du stade initial de la Formation du Noyau chargea.
 
@@ -70,7 +70,7 @@ Le cultivateur de la Formation du Noyau afficha un sourire moqueur. Il était co
 
 Croyant cela, il agita la main et une aiguille dorée apparut devant lui. Elle marqua une hésitation avant de foncer sur Wang Lin. La vitesse de l'aiguille était fulgurante, créant des ondulations dans l'air lors de sa progression.
 
-Wang Lin ne daigna même pas tourner la tête; il lança le trésor qui lui avait été confié par Hou Fen. L'objet se transforma en un poing argenté pour attaquer l'aiguille.
+Wang Lin ne daigna même pas tourner la tête; il lança le trésor qui lui avait été confié par Huo Fen. L'objet se transforma en un poing argenté pour attaquer l'aiguille.
 
 Lors de la collision, l'aiguille tourna encore plus vite et perça le poing d'argent. Bien que son éclat faiblisse, elle ne ralentit pas et continua sa poursuite vers Wang Lin.
 
@@ -154,7 +154,7 @@ Les deux mois passés dans la perle n'équivalaient qu'à dix jours à l'extéri
 
 Wang Lin rejoignit les lieux de la bataille. Les cadavres jonchaient le sol et la veine spirituelle avait été arrachée, laissant un gouffre béant.
 
-Après une brève inspection, il se dirigea vers la montagne de l'Union Hou Fen. Arrivé au pied de celle-ci, il émergea du sol et sauta sur son épée volante.
+Après une brève inspection, il se dirigea vers la montagne de l'Union Huo Fen. Arrivé au pied de celle-ci, il émergea du sol et sauta sur son épée volante.
 
 De nombreux cultivateurs patrouillaient, mais lorsqu'ils virent le jade servant à enregistrer ses exploits, personne ne l'arrêta. Wang Lin se rendit directement dans un bâtiment latéral au sommet de la montagne, là où Fen Lou l'avait convoqué la dernière fois.
 
@@ -178,9 +178,9 @@ Wang Lin avait anticipé ces questions. Calme, il répondit simplement: « Ce cu
 
 Fen Lou lança un regard significatif à Wang Lin avant de lui rendre le jade. « Voici la deuxième partie de la carte. Je compterai ce cultivateur de la Formation du Noyau pour dix disciples de l'Établissement des Fondations. Si tu parviens à en abattre 150, reviens me voir pour la troisième partie. »
 
-Wang Lin acquiesça. En vérifiant le jade avec son Sens Divin, il confirma qu'il s'agissait bien de la carte. En combinant les deux fragments, il aurait une vision claire des environs de Hou Fen.
+Wang Lin acquiesça. En vérifiant le jade avec son Sens Divin, il confirma qu'il s'agissait bien de la carte. En combinant les deux fragments, il aurait une vision claire des environs de Huo Fen.
 
-Hou Fen bordait la Mer des Démons. Selon la carte, aucun Zhao ne se trouvait dans les parages. Les descriptions indiquaient qu'un autre continent existait de l'autre côté de la Mer des Démons; il était certain que le troisième fragment contiendrait des informations à ce sujet.
+Huo Fen bordait la Mer des Démons. Selon la carte, aucun Zhao ne se trouvait dans les parages. Les descriptions indiquaient qu'un autre continent existait de l'autre côté de la Mer des Démons; il était certain que le troisième fragment contiendrait des informations à ce sujet.
 
 Il y avait aussi une description détaillée de la Mer des Démons, mais Wang Lin n'y prêta pas attention en retirant son Sens Divin.
 

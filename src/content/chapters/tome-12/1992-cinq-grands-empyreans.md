@@ -6,21 +6,21 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1992 - Five Grand Empyreans!"
 slug: cinq-grands-empyreans
 ---
-Chapitre 1992 - Cinq Grands Empyreans!
+Chapitre 1992 - Cinq Grands Empyrées!
 
-L'apparition soudaine du Grand Empyrean Jiu Di ne surprit pas l'Empereur Céleste. Ce dernier restait confiant, debout sur la tête de l'Ancêtre Céleste, observant Jiu Di s'avancer.
+L'apparition soudaine du Grand Empyrée Jiu Di ne surprit pas l'Empereur Céleste. Ce dernier restait confiant, debout sur la tête de l'Ancêtre Céleste, observant Jiu Di s'avancer.
 
 « Jiu Di! Tu es donc venu! » sourit l'Empereur Céleste.
 
-L'expression du Grand Empyrean Jiu Di était grave tandis qu'il fixait l'Empereur Céleste. Son regard se posa sur la tête de l'Ancêtre Céleste, et une expression complexe traversa son visage.
+L'expression du Grand Empyrée Jiu Di était grave tandis qu'il fixait l'Empereur Céleste. Son regard se posa sur la tête de l'Ancêtre Céleste, et une expression complexe traversa son visage.
 
 « La tête de l'Ancêtre Céleste... Autrefois, ce vieil homme suivait l'Ancêtre Céleste, et voilà maintenant des millénaires qui ont passé... Lian Daozhen, ce vieil homme a connu plusieurs générations d'Empereurs Célestes, mais tu peux être considéré comme le plus grandiose!
 
-« En utilisant le désir de l'Instructeur Impérial, tu as obtenu le contrôle de la tête de l'Ancêtre Céleste. Si tu avais eu assez de temps pour absorber pleinement la tête de l'Ancêtre Céleste dans ton corps, tu serais bel et bien le premier Grand Empyrean de notre clan céleste!
+« En utilisant le désir de l'Instructeur Impérial, tu as obtenu le contrôle de la tête de l'Ancêtre Céleste. Si tu avais eu assez de temps pour absorber pleinement la tête de l'Ancêtre Céleste dans ton corps, tu serais bel et bien le premier Grand Empyrée de notre clan céleste!
 
-« Mais désormais, tu n'en auras plus la chance! » La voix de Jiu Di résonna avec une antiquité profonde alors qu'il faisait un pas en avant. À cet instant, la femme issue de la fusion du Grand Empyrean Gemini fut soudainement enveloppée d'une lumière pourpre et elle avança elle aussi vers l'Empereur Céleste!
+« Mais désormais, tu n'en auras plus la chance! » La voix de Jiu Di résonna avec une antiquité profonde alors qu'il faisait un pas en avant. À cet instant, la femme issue de la fusion du Grand Empyrée Gemini fut soudainement enveloppée d'une lumière pourpre et elle avança elle aussi vers l'Empereur Céleste!
 
-Les trois Grands Empyreans engagèrent le combat au cœur de ce palais interdit!
+Les trois Grands Empyrées engagèrent le combat au cœur de ce palais interdit!
 
 L'Empereur Céleste demeurait serein face à Gemini et Jiu Di. Il leva la main droite et pressa fermement la tête sous ses pieds.
 
@@ -38,7 +38,7 @@ Wang Lin n'agit pas avec imprudence face à ce changement soudain; il attendait!
 
 Tant qu'il n'aurait pas pleinement saisi la situation, il ne sortirait pas!
 
-Le fracas du tonnerre continua de retentir. Le visage du Grand Empyrean Gemini était pâle alors que la lumière pourpre enveloppait son corps et qu'elle reculait de quelques pas. Jiu Di fit également marche arrière, l'air grave.
+Le fracas du tonnerre continua de retentir. Le visage du Grand Empyrée Gemini était pâle alors que la lumière pourpre enveloppait son corps et qu'elle reculait de quelques pas. Jiu Di fit également marche arrière, l'air grave.
 
 Ce à quoi ils venaient de faire face n'était pas l'Empereur Céleste, mais l'Ancêtre Céleste! Une attaque de l'Ancêtre Céleste avait forcé même leur assaut combiné à battre en retraite!
 
@@ -58,33 +58,33 @@ L'épée de l'Ancêtre Céleste!
 
 Dès que l'épée se manifesta, Wang Lin entendit une voix l'appeler.
 
-« Autrefois, d'un seul coup d'épée, de nombreuses âmes étrangères furent fauchées. Seuls ceux qui en étaient dignes furent scellés dans des continents. Aujourd'hui, vous deux avez offensé la puissance de l'Ancêtre Céleste — refusez-vous encore de reculer face à cette épée?! » La voix de l'Empereur Céleste tonna alors qu'il levait l'épée dorée et l'abattait vers le Grand Empyrean Jiu Di et Gemini!
+« Autrefois, d'un seul coup d'épée, de nombreuses âmes étrangères furent fauchées. Seuls ceux qui en étaient dignes furent scellés dans des continents. Aujourd'hui, vous deux avez offensé la puissance de l'Ancêtre Céleste — refusez-vous encore de reculer face à cette épée?! » La voix de l'Empereur Céleste tonna alors qu'il levait l'épée dorée et l'abattait vers le Grand Empyrée Jiu Di et Gemini!
 
-L'épée était silencieuse, mais le monde changea de couleur, comme si l'espace lui-même allait être tranché en deux. L'expression du Grand Empyrean Jiu Di se crispa. Ses mains formèrent des sceaux et un soleil blanc apparut. Ce soleil blanc trônait dans le ciel aux côtés du soleil pourpre. Un loup blanc jaillit de l'astre blanc et poussa un hurlement vers l'épée dorée!
+L'épée était silencieuse, mais le monde changea de couleur, comme si l'espace lui-même allait être tranché en deux. L'expression du Grand Empyrée Jiu Di se crispa. Ses mains formèrent des sceaux et un soleil blanc apparut. Ce soleil blanc trônait dans le ciel aux côtés du soleil pourpre. Un loup blanc jaillit de l'astre blanc et poussa un hurlement vers l'épée dorée!
 
-Simultanément, les mains du Grand Empyrean Gemini formèrent des sceaux et la lumière pourpre enveloppa le monde. Des bambous violets apparurent derrière elle, se transformant instantanément en une forêt de bambou pourpre. Tous ces bambous s'élancèrent dans les airs pour foncer sur l'épée dorée.
+Simultanément, les mains du Grand Empyrée Gemini formèrent des sceaux et la lumière pourpre enveloppa le monde. Des bambous violets apparurent derrière elle, se transformant instantanément en une forêt de bambou pourpre. Tous ces bambous s'élancèrent dans les airs pour foncer sur l'épée dorée.
 
 « Dao Yi, Wu Feng, si vous n'agissez pas maintenant, quand le ferez-vous?! » rugit Jiu Di alors que le loup blanc bondissait en avant. Un changement stupéfiant survint sur les flancs de l'Empereur Céleste!
 
-Le monde à la gauche de l'Empereur Céleste devint immobile; plus rien ne bougeait. Tout s'arrêta, et le Grand Empyrean Dao Yi sortit du néant. Il leva la main droite et pointa l'Empereur Céleste. Tout semblait calme, mais cela représentait le Dao de Dao Yi!
+Le monde à la gauche de l'Empereur Céleste devint immobile; plus rien ne bougeait. Tout s'arrêta, et le Grand Empyrée Dao Yi sortit du néant. Il leva la main droite et pointa l'Empereur Céleste. Tout semblait calme, mais cela représentait le Dao de Dao Yi!
 
 Son Dao était celui où tout redevient Un. D'un simple doigt, il libéra le sommet de sa puissance!
 
-Sur le côté droit de l'Empereur Céleste, les vents faisaient rage et les nuages s'éparpillaient. Des grondements tonitruants retentirent alors que le Grand Empyrean Wu Feng sortait à son tour. Sans hésiter, il lança un coup de poing vers l'Empereur Céleste!
+Sur le côté droit de l'Empereur Céleste, les vents faisaient rage et les nuages s'éparpillaient. Des grondements tonitruants retentirent alors que le Grand Empyrée Wu Feng sortait à son tour. Sans hésiter, il lança un coup de poing vers l'Empereur Céleste!
 
-Le Grand Empyrean Wu Feng était celui qui avait franchi le 16e palais lors de l'Épreuve Empyréenne. Il était un adepte des arts martiaux dont le Dao s'était accompli à travers eux. Ce coup de poing contenait l'apogée de sa foi en sa propre force!
+Le Grand Empyrée Wu Feng était celui qui avait franchi le 16e palais lors de l'Épreuve Empyréenne. Il était un adepte des arts martiaux dont le Dao s'était accompli à travers eux. Ce coup de poing contenait l'apogée de sa foi en sa propre force!
 
-Quatre Grands Empyreans attaquèrent de concert!
+Quatre Grands Empyrées attaquèrent de concert!
 
 Wang Lin vit tout cela avec clarté depuis l'œil droit de l'Ancêtre Céleste. Son esprit trembla. Il ne s'attendait pas à une telle déferlante lors de ce voyage au palais impérial. Même Dao Yi et Wu Feng étaient apparus!
 
-À leur apparition, Wang Lin comprit que tout ici n'était qu'une partie d'échecs, et qu'il n'était qu'un pion dans ce jeu. Même ces Grands Empyreans n'étaient que des pièces. C'était une partie dont l'Empereur Céleste était l'un des joueurs, mais qui était l'autre?
+À leur apparition, Wang Lin comprit que tout ici n'était qu'une partie d'échecs, et qu'il n'était qu'un pion dans ce jeu. Même ces Grands Empyrées n'étaient que des pièces. C'était une partie dont l'Empereur Céleste était l'un des joueurs, mais qui était l'autre?
 
 L'épée dorée percuta Gemini, Dao Yi, Wu Feng et Jiu Di. Dans un fracas de tonnerre, Dao Yi fut repoussé. Wu Feng recula le visage pâle, tandis que des bruits de craquement résonnaient dans son corps.
 
 Gemini et Jiu Di possédaient des niveaux de culture supérieurs à ceux de Dao Yi et Wu Feng, mais même eux furent contraints de battre en retraite face à l'épée dorée.
 
-Bien qu'ils aient reculé, la puissance combinée de leurs attaques était phénoménale. Hormis cet individu du clan Ancien, personne ne pouvait résister simultanément à la force de quatre Grands Empyreans!
+Bien qu'ils aient reculé, la puissance combinée de leurs attaques était phénoménale. Hormis cet individu du clan Ancien, personne ne pouvait résister simultanément à la force de quatre Grands Empyrées!
 
 Sans compter que ce n'était là qu'une illusion contenant environ 10 % de la véritable puissance de l'Ancêtre Céleste. L'épée finit par se briser, se transformant en d'innombrables fragments qui tombèrent au sol.
 
@@ -94,7 +94,7 @@ Jiu Di regarda l'Empereur Céleste et dit froidement: « Si ce vieil homme ne su
 
 L'expression de l'Empereur Céleste était sombre lorsqu'il répondit lentement: « Que voulez-vous exactement que nous fassions?! »
 
-L'objectif du Grand Empyrean Gemini était limpide. Elle fixa l'Empereur Céleste et dit calmement: « Libère Wang Lin! Et je partirai! »
+L'objectif du Grand Empyrée Gemini était limpide. Elle fixa l'Empereur Céleste et dit calmement: « Libère Wang Lin! Et je partirai! »
 
 Jiu Di regarda la tête de l'Ancêtre Céleste et déclara lentement: « Ce vieil homme espère que l'Empereur Céleste resellera le crâne qui opprime les 72 âmes du clan céleste. Ce crâne est crucial pour notre clan, et ce n'est pas un objet qu'un Empereur Céleste devrait détenir! »
 
@@ -106,7 +106,7 @@ L'Empereur Céleste se mit à rire, d'un rire glacial. Il leva la main, provoqua
 
 Cette radiance se propagea soudainement, formant une onde dorée. Cela fit changer le visage de Gemini et des autres, qui furent tous forcés de reculer.
 
-Tandis qu'ils battaient en retraite, l'Empereur Céleste afficha un regard féroce. À ce stade, il ne reculerait pas facilement; il préférait déclencher toute la puissance de la tête de l'Ancêtre Céleste afin d'empêcher quiconque de s'approcher pendant un moment. Il utiliserait alors ce temps pour absorber de force le pouvoir de l'Ancêtre Céleste. Une fois victorieux, il n'aurait plus la moindre crainte face à quatre Grands Empyreans!
+Tandis qu'ils battaient en retraite, l'Empereur Céleste afficha un regard féroce. À ce stade, il ne reculerait pas facilement; il préférait déclencher toute la puissance de la tête de l'Ancêtre Céleste afin d'empêcher quiconque de s'approcher pendant un moment. Il utiliserait alors ce temps pour absorber de force le pouvoir de l'Ancêtre Céleste. Une fois victorieux, il n'aurait plus la moindre crainte face à quatre Grands Empyrées!
 
 Sous l'éclat de la lumière dorée, l'Empereur Céleste plaqua ses mains sur la tête pour absorber l'énergie. Cependant, il ne put rien absorber; c'était comme si une couche de sceaux entourait la tête, l'empêchant de puiser dans sa puissance.
 

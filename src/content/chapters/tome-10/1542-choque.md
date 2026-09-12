@@ -30,7 +30,7 @@ Un sort Dao d'une puissance extrême, capable de détruire les cieux et la terre
 
 Ce sort pouvait instantanément démultiplier la force de Wang Lin par une méthode mystérieuse. Plus important encore, cette paume contenait trois sources de pouvoir. Si les trois étaient utilisées simultanément, trois paumes s'abattraient pour anéantir le corps physique, l'âme originelle et l'âme en même temps!
 
-« Celui que Daoist Water utilisait ne pouvait détruire que le corps. Le sort Dao que je viens d'apprendre est la véritable Empreinte de l'Esprit Guerrier! » Wang Lin prit une profonde inspiration. Après avoir fermement mémorisé l'Empreinte, il regarda le fou.
+« Celui que Shui Daozi utilisait ne pouvait détruire que le corps. Le sort Dao que je viens d'apprendre est la véritable Empreinte de l'Esprit Guerrier! » Wang Lin prit une profonde inspiration. Après avoir fermement mémorisé l'Empreinte, il regarda le fou.
 
 À ses yeux, ce lunatique était tel un immense coffre au trésor sur le point d'exploser...
 

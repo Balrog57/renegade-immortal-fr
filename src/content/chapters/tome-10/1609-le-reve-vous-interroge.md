@@ -26,7 +26,7 @@ Le visage de Wang Lin sembla vieillir encore davantage. Il s'appuya contre un ar
 
 Wang Lin avança d'un pas erratique, le cœur amer.
 
-Il ignorait quelle distance il avait parcourue. Il ne voyait ni le lever ni le coucher du soleil. Il ne laissait aucune trace dans le pays de Hou Fen, mais il s'éloignait de plus en plus. Jour après jour, mois après mois...
+Il ignorait quelle distance il avait parcourue. Il ne voyait ni le lever ni le coucher du soleil. Il ne laissait aucune trace dans le pays de Huo Fen, mais il s'éloignait de plus en plus. Jour après jour, mois après mois...
 
 L'expression tourmentée dans ses yeux s'intensifiait, mais il utilisait toujours sa confusion pour masquer la vérité qu'il avait déjà perçue. Ce n'était pas qu'il refusait d'y croire, c'est qu'il espérait encore une chance, un mensonge auquel il ne croyait même plus lui-même.
 

@@ -1,9 +1,9 @@
 ---
 n: 133
-title: Troubles à Hou Fen (2)
+title: Troubles à Huo Fen (2)
 book: 2
 bookTitle: The Bloody Image of Cultivation
-en: Chapter 133 - Upheaval in Hou Fen (2)
+en: Chapter 133 - Upheaval in Huo Fen (2)
 slug: troubles-a-hou-fen-2
 ---
 Une vague de chaleur se propagea rapidement dans la sphère de terre au moment où la boule de feu y pénétra avec fluidité. Cependant, au même instant précis, la perle défiant le ciel jaillit, forçant la boule de feu à s'interrompre pour rebrousser chemin sans l'ombre d'une hésitation.
@@ -30,7 +30,7 @@ Les bêtes de feu, quant à elles, n'étaient nullement ralenties puisqu'elles �
 
 Bien que Wang Lin ignorât la nature exacte de cette boule de feu, le simple fait qu'elle ait pu compléter l'élément feu de la perle défiant le ciel était un choc immense. À en juger par le respect témoigné par les bêtes et leur fureur actuelle, cette sphère devait être d'une importance capitale pour elles. Il était fort probable qu'il s'agisse de leur roi.
 
-L'intuition de Wang Lin n'était pas erronée. Les bêtes de feu naissaient de la lave; on pouvait les décrire comme des esprits du feu occupant un rang très élevé dans la hiérarchie. Selon l'Union de Culture, elles étaient universellement appelées « bêtes-esprits de feu ». Dès sa naissance, elle possédait une intelligence. Elle avait cultivé dans la lave sous Hou Fen durant de longues années, et sa culture était extrêmement puissante.
+L'intuition de Wang Lin n'était pas erronée. Les bêtes de feu naissaient de la lave; on pouvait les décrire comme des esprits du feu occupant un rang très élevé dans la hiérarchie. Selon l'Union de Culture, elles étaient universellement appelées « bêtes-esprits de feu ». Dès sa naissance, elle possédait une intelligence. Elle avait cultivé dans la lave sous Huo Fen durant de longues années, et sa culture était extrêmement puissante.
 
 Au cours des innombrables années de son existence, elle s'était transformée cinq fois. Si elle atteignait neuf transformations, elle pourrait passer du rang de bête-esprit à celui de bête désolée. Cependant, après chaque transformation, elle entrait dans un état de faiblesse durant 500 ans, incapable d'utiliser la moindre énergie spirituelle.
 
@@ -68,23 +68,23 @@ Chacune de ces bêtes de feu était capable de bloquer son Sens Divin du Royaume
 
 Le visage de Wang Lin s'assombrit. Il jeta un regard sur les innombrables bêtes en contrebas et s'envola vers l'horizon sans dire un mot. Son humeur devint de plus en plus morne car, tout au long de son périple, chaque volcan croisé abritait des bêtes de feu. Elles attendaient toutes au bord des cratères, le fixant de leurs regards froids. Elles semblaient attendre un ordre pour surgir massivement de la terre.
 
-Wang Lin se frotta les tempes, le cuir chevelu encore endolori. Il se jura d'obtenir une carte au plus vite afin de quitter Hou Fen et de ne plus jamais y revenir.
+Wang Lin se frotta les tempes, le cuir chevelu encore endolori. Il se jura d'obtenir une carte au plus vite afin de quitter Huo Fen et de ne plus jamais y revenir.
 
 Sur cette pensée, il cessa de progresser et déploya son Sens Divin. Après avoir sondé les environs un moment, il changea de direction pour voler vers le nord.
 
 Bien qu'il ne regardât plus les volcans, il percevait encore distinctement ces regards glacials qui le suivaient.
 
-À cet instant, tous les ancêtres de l'Âme Naissante sortirent de leur culture en isolement. Eux, qui se trouvaient au sommet de la hiérarchie d'un pays de culture de rang 3, pouvaient ressentir clairement les ondes d'énergie destructrice qui bouillonnaient à l'intérieur de Hou Fen.
+À cet instant, tous les ancêtres de l'Âme Naissante sortirent de leur culture en isolement. Eux, qui se trouvaient au sommet de la hiérarchie d'un pays de culture de rang 3, pouvaient ressentir clairement les ondes d'énergie destructrice qui bouillonnaient à l'intérieur de Huo Fen.
 
-Cela s'était déjà produit par le passé. Cela signifiait que les volcans de Hou Fen étaient sur le point d'entrer en éruption. Chaque fois que cela arrivait, ils se rendaient aux volcans dont ils avaient la charge pour les sceller et prévenir la catastrophe.
+Cela s'était déjà produit par le passé. Cela signifiait que les volcans de Huo Fen étaient sur le point d'entrer en éruption. Chaque fois que cela arrivait, ils se rendaient aux volcans dont ils avaient la charge pour les sceller et prévenir la catastrophe.
 
-Car si une éruption survenait, ce serait un désastre majeur pour Hou Fen. Les mortels pourraient peut-être fuir vers un autre pays sans résistance majeure. Même la famille royale ferait appel aux cultivateurs pour agir en son nom.
+Car si une éruption survenait, ce serait un désastre majeur pour Huo Fen. Les mortels pourraient peut-être fuir vers un autre pays sans résistance majeure. Même la famille royale ferait appel aux cultivateurs pour agir en son nom.
 
 Après tout, bien que les mortels ne soient que des fourmis face aux cultivateurs, les chances de trouver des disciples parmi eux étaient plus grandes s'ils étaient nombreux.
 
 Les mortels pouvaient partir, mais pas les cultivateurs; si une masse importante de cultivateurs migrait vers un autre pays, cela déclencherait une guerre immense. Dans le monde de la culture, il est extrêmement tabou pour un pays de migrer, car cela équivaut à une perte massive d'énergie spirituelle, à des chaos entre les sectes et à un bouleversement majeur de la possession des pierres spirituelles et des trésors magiques.
 
-Sur la planète Suzaku, le nombre de pays de culture est fixe. Si les volcans entraient en éruption, une quantité colossale d'énergie spirituelle de feu violente s'échapperait. Cette énergie étant impossible à cultiver, les cultivateurs ne pourraient plus survivre à Hou Fen pendant longtemps.
+Sur la planète Suzaku, le nombre de pays de culture est fixe. Si les volcans entraient en éruption, une quantité colossale d'énergie spirituelle de feu violente s'échapperait. Cette énergie étant impossible à cultiver, les cultivateurs ne pourraient plus survivre à Huo Fen pendant longtemps.
 
 Heureusement, ce genre de catastrophe ne s'était jamais produit. À chaque fois, les volcans avaient été scellés sans encombre. Même en cas d'éruptions mineures, elles n'affectaient que de petites zones et non l'intégralité du pays.
 

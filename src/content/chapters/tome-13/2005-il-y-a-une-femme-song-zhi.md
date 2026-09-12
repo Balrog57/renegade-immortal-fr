@@ -86,9 +86,9 @@ Ces trois ombres restèrent là, fixant intensément Wang Lin qui avançait.
 
 « Lorsque j'étais dans le monde des cavernes, mes 27 étoiles n'étaient pas complètes; elles se sont progressivement stabilisées durant mes centaines d'années au sein du clan céleste, mais la puissance que je peux déployer est bien supérieure à celle de cet homme. »
 
-« C'est peut-être là toute la différence entre les lignées. Le niveau de culture de Ye Mo était manifestement supérieur à celui de Seven-Colored, c'est pourquoi ce dernier a eu besoin de l'aide de Li Guang. Selon ma compréhension de la cité ancestrale, le niveau de Li Guang devrait être celui d'un Empyrean Exalt. Les chances qu'il soit un Ascendant Empyrean sont faibles, sans quoi il ne serait pas mort. »
+« C'est peut-être là toute la différence entre les lignées. Le niveau de culture de Ye Mo était manifestement supérieur à celui de Seven-Colored, c'est pourquoi ce dernier a eu besoin de l'aide de Li Guang. Selon ma compréhension de la cité ancestrale, le niveau de Li Guang devrait être celui d'un Exalté Empyréen. Les chances qu'il soit un Ascendant Empyrean sont faibles, sans quoi il ne serait pas mort. »
 
-« De ce point de vue, Ye Mo doit posséder une puissance similaire à celle d'un Empyrean Exalt. Il avait intégré ses 27 étoiles et passé les trois épreuves. Par conséquent, ce membre du clan Ancient est comparable aux Empyrean Exalts. »
+« De ce point de vue, Ye Mo doit posséder une puissance similaire à celle d'un Exalté Empyréen. Il avait intégré ses 27 étoiles et passé les trois épreuves. Par conséquent, ce membre du clan Ancient est comparable aux Exaltés Empyréens. »
 
 « Le clan Ancient doit être semblable au clan céleste à cet égard; il ne devrait pas y avoir plus de 1 000 individus possédant une telle puissance. » Wang Lin monta sur le bras du diable ancien et atteignit sa tête. Il fixa le vieil homme, ce qui fit changer l'expression de ce dernier et perler la sueur sur son front. Incapable de supporter la pression du regard de Wang Lin, il recula inconsciemment de quelques pas.
 

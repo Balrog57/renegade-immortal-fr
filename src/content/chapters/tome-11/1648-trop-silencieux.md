@@ -40,7 +40,7 @@ Il devait posséder la détermination nécessaire pour s'extraire de cette grott
 
 Tandis que Wang Lin fonçait, des milliers de cultivateurs le suivaient. Leur progression dans l'espace générait une onde de choc phénoménale qui grondait et faisait trembler tout le système stellaire.
 
-De nombreux cultivateurs du Royaume Extérieur étaient déjà morts sous les flèches de Wang Lin, mais certains subsistaient. À cet instant, le Sens Divin de Wang Lin couvrait l'intégralité du Brilliant Void.
+De nombreux cultivateurs du Royaume Extérieur étaient déjà morts sous les flèches de Wang Lin, mais certains subsistaient. À cet instant, le Sens Divin de Wang Lin couvrait l'intégralité du Vide Brillant.
 
 Pour lui, les survivants du Royaume Extérieur n'avaient nulle part où se cacher.
 
@@ -68,13 +68,13 @@ Pas une seule goutte de sang n'avait souillé sa robe blanche, et son expression
 
 « Ces têtes sont loin d'être suffisantes! » Wang Lin resta calme et s'élança de nouveau. Peu après, les milliers de cultivateurs arrivèrent; ils virent les restes sanglants flotter dans le vide et ressentirent l'intention meurtrière persistante.
 
-Wang Lin ne ralentissait pas. Aucun cultivateur du Royaume Extérieur qu'il croisait dans le Brilliant Void n'échappait à la mort.
+Wang Lin ne ralentissait pas. Aucun cultivateur du Royaume Extérieur qu'il croisait dans le Vide Brillant n'échappait à la mort.
 
 Beaucoup de gens ne réalisaient qu'ils étaient morts qu'une fois leur tête tranchée et entre les mains de Wang Lin. Dans ce monde, bien que Wang Lin ne soit pas forcément celui qui avait tué le plus grand nombre d'êtres, il en avait tout de même tué énormément.
 
 Lui-même ne pouvait plus compter précisément ses victimes. Pour survivre dans un monde aussi tourmenté, dans un monde de culture cruel régi par la loi de la jungle, s'il ne voulait pas être tué, il devait tuer!
 
-Au plus profond du Brilliant Void, deux cultivateurs du Royaume Extérieur fuyaient avec anxiété. Ils se ressemblaient étrangement; c'étaient des jumeaux, une rareté dans le monde de la culture.
+Au plus profond du Vide Brillant, deux cultivateurs du Royaume Extérieur fuyaient avec anxiété. Ils se ressemblaient étrangement; c'étaient des jumeaux, une rareté dans le monde de la culture.
 
 Ces deux-là jouissaient d'une certaine renommée dans le Système Stellaire Antique. Ils attaquaient toujours de concert et se connaissaient parfaitement. Bien qu'ils n'en fussent qu'au second Fléau Céleste, même des cultivateurs du troisième niveau auraient dû battre en retraite dans un état pitoyable face à eux.
 
@@ -98,8 +98,8 @@ Au moment où le cri retentit, une tête fut tranchée et le sang jaillit partou
 
 « Votre amour fraternel est respectable, mais puisque vous avez tué mes cultivateurs du Royaume Intérieur, vous devez mourir! » Wang Lin avança, et deux autres têtes féroces rejoignirent la centaine de trophées derrière lui.
 
-Wang Lin balaya le Brilliant Void. Lorsqu'il eut terminé, aucun survivant du Royaume Extérieur ne subsistait! Les lieux qu'il traversait étaient ensanglantés, les passages qu'il laissait derrière lui n'étaient que massacres.
+Wang Lin balaya le Vide Brillant. Lorsqu'il eut terminé, aucun survivant du Royaume Extérieur ne subsistait! Les lieux qu'il traversait étaient ensanglantés, les passages qu'il laissait derrière lui n'étaient que massacres.
 
 Les centaines de têtes qui le suivaient avaient leurs âmes originelles scellées. C'était comme si elles avaient été plongées en enfer, incapables de s'en libérer, condamnées à suivre Wang Lin dans sa course.
 
-Après avoir quitté le Brilliant Void pour atteindre les abords de la Rivière des Invocations, Wang Lin murmura lentement: « Trop silencieux... »
+Après avoir quitté le Vide Brillant pour atteindre les abords de la Rivière des Invocations, Wang Lin murmura lentement: « Trop silencieux... »

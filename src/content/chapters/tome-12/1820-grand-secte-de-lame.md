@@ -3,7 +3,7 @@ n: 1820
 title: "Grand Secte de l'Âme"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
-en: Chapter 1820 - Great Soul Sect
+en: Chapter 1820 - Great Soul Secte
 slug: grand-secte-de-lame
 ---
 Le Grand Secte de l'Âme était situé au cœur d'une chaîne de montagnes dont les sommets perçaient les nuages. La montagne dégageait une lueur rouge, telle une montagne en flammes.

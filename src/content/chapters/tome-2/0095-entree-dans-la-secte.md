@@ -3,7 +3,7 @@ n: 95
 title: Entrée dans la Secte
 book: 2
 bookTitle: The Bloody Image of Cultivation
-en: Chapter 95 - Enter the Sect
+en: Chapter 95 - Enter the Secte
 slug: entree-dans-la-secte
 ---
 Au moment où le mot « Senior » fut prononcé, trois anneaux supplémentaires s'illuminèrent, portant le total à 43. Une fois ces 43 anneaux allumés, aucun autre ne s'anima, mais ils se mirent à briller en parfaite synchronie.

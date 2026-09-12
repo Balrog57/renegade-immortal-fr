@@ -44,7 +44,7 @@ Cependant, en lisant plus bas, son cœur sombra en découvrant ces lignes: « Le
 
 « En vérité, l'Ancêtre Chen Chong s'inquiétait trop. Comment ce Chemin Divin pourrait-il être si facilement compris? Depuis lors, seuls une trentaine de personnes ont réussi à le saisir, et parmi elles, seule la moitié est parvenue au stade de l'Âme Naissante. »
 
-« Quant au Chemin Divin que les autres sectes de Hou Fen ont contemplé, il s'agissait d'une contrefaçon; le nombre d'étrangers l'ayant véritablement compris est donc encore plus infime. »
+« Quant au Chemin Divin que les autres sectes de Huo Fen ont contemplé, il s'agissait d'une contrefaçon; le nombre d'étrangers l'ayant véritablement compris est donc encore plus infime. »
 
 En écoutant ces paroles, Wang Lin fixa le mur de pierre verte. Il pouvait presque imaginer ce jeune homme chétif utilisant sa propre vie pour graver ces mots.
 

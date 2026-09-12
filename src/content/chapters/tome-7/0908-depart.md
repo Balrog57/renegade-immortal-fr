@@ -38,7 +38,7 @@ Au même moment, Ta Shan, le garçon à grosse tête et Lei Ji s'envolèrent rap
 
 Zhou Wutai se tenait sur un pic, le regard perdu vers l'horizon. Son expression était sombre et, après un long moment, il partit à son tour.
 
-De même, à la frontière entre la Mer des Démons et le pays de Hou Fen, Li Qiqing leva les yeux vers le ciel. Après un long silence, elle murmura: « Petite sœur... Te suivre est ton choix. Ton frère te bénit... »
+De même, à la frontière entre la Mer des Démons et le pays de Huo Fen, Li Qiqing leva les yeux vers le ciel. Après un long silence, elle murmura: « Petite sœur... Te suivre est ton choix. Ton frère te bénit... »
 
 Dans la Secte du Ciel Nuageux, Tie Yan s'éveilla comme s'il avait pressenti quelque chose et leva les yeux. Il savait qu'après le départ de Wang Lin cette fois, il s'écoulerait probablement une très longue période avant son retour.
 

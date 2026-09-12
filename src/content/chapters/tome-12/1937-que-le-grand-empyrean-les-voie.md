@@ -1,12 +1,12 @@
 ---
 n: 1937
-title: "Que le Grand Empyrean les voie!"
+title: "Que le Grand Empyrée les voie!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
-en: "Chapter 1937 - Let the Grand Empyrean See!"
+en: "Chapter 1937 - Let the Grand Empyrée See!"
 slug: que-le-grand-empyrean-les-voie
 ---
-Chapitre 1937 - Que le Grand Empyrean les voie!
+Chapitre 1937 - Que le Grand Empyrée les voie!
 
 « Ne parle pas! » dit soudain Wang Lin, les yeux étincelants. Il leva les yeux vers le rideau de lumière où l'ombre formée par la paume brisée le fixait en retour.
 
@@ -32,7 +32,7 @@ Parmi ces trois figures, l'une était un jeune homme vêtu d'une robe de Dao. Au
 
 Malgré sa jeunesse, il était enveloppé d'une aura antique. Il dégageait un calme absolu, mais tout autour de lui semblait figé, comme si la création elle-même devait se pétrifier pour le vénérer.
 
-Il s'agissait du Grand Empyrean Dao Yi!
+Il s'agissait du Grand Empyrée Dao Yi!
 
 À quelques mètres de lui se tenait la seconde figure: un homme d'âge moyen à la silhouette élancée, plus grand que l'Exalté Empyrean Dao Yi. Il portait de simples vêtements de lin et gardait les mains derrière le dos.
 
@@ -40,7 +40,7 @@ Bien qu'il n'eût pas de cheveux, il ne paraissait pas pour autant chauve. Son e
 
 Quiconque croisait son regard en oubliait tout, ne gardant en mémoire que ce regard saisissant! Il restait serein, dégageant une puissance colossale sans jamais paraître colérique.
 
-Une aura indicible se propageait autour de lui. Elle semblait représenter la limite même du Dao Céleste, l'apogée des arts martiaux! C'était comme si cet homme avait atteint le Dao par les arts martiaux, utilisant ces derniers pour briser le monde et accéder au rang de Grand Empyrean!
+Une aura indicible se propageait autour de lui. Elle semblait représenter la limite même du Dao Céleste, l'apogée des arts martiaux! C'était comme si cet homme avait atteint le Dao par les arts martiaux, utilisant ces derniers pour briser le monde et accéder au rang de Grand Empyrée!
 
 Puis, dès son ascension, il avait scellé ses propres arts martiaux pour revenir à l'origine et ne faire qu'un avec le monde! Voilà pourquoi son nom était Wu Feng!
 
@@ -50,7 +50,7 @@ La dernière figure était un vieil homme en robe bleue, debout, imperturbable. 
 
 Son visage était sillonné de rides et ses yeux manquaient d'éclat. Il paraissait chétif et mélancolique, pourtant il demeurait indemne face à l'aura de Dao Yi qui gelait tout sur son passage, et c'était comme si l'aura unique de Wu Feng n'existait même pas à ses yeux.
 
-« Jiu Di, votre disciple est en difficulté », sourit Dao Yi en regardant le vieil homme en vert. Bien que ce dernier paraisse banal, Dao Yi savait que Jiu Di était le plus ancien des cinq Grands Empyreans actuels. La rumeur disait qu'il était un cultivateur de l'époque où l'Ancêtre Céleste régnait encore.
+« Jiu Di, votre disciple est en difficulté », sourit Dao Yi en regardant le vieil homme en vert. Bien que ce dernier paraisse banal, Dao Yi savait que Jiu Di était le plus ancien des cinq Grands Empyrées actuels. La rumeur disait qu'il était un cultivateur de l'époque où l'Ancêtre Céleste régnait encore.
 
 Son nom d'origine était Jiu (Neuf) Di, et il était autrefois d'une beauté exceptionnelle. Cependant, après d'innombrables années et neuf réincarnations, le Jiu était devenu Jiu (Long)!
 
@@ -68,7 +68,7 @@ La Mer des Montagnes était désormais recouverte d'une couche d'encre noire. So
 
 C'était l'attaque de l'Exalté Empyrean Hai Zi. Le sceau ovale avait percuté l'ombre de la paume brisée, mais après son effondrement, celle-ci s'était reformée. Wang Lin leva la main, le tatouage du Taureau Céleste sur son visage fulgurant d'éclat. Une armure d'âme recouvrit tout son corps alors qu'il déployait son sort le plus puissant!
 
-« Il doit y avoir un Grand Empyrean dehors — que ce soit Wu Feng, Dao Yi ou Jiu Di. Puisque vous voulez tester mon origine et ma force, alors je vais vous montrer de quoi je suis capable! »
+« Il doit y avoir un Grand Empyrée dehors — que ce soit Wu Feng, Dao Yi ou Jiu Di. Puisque vous voulez tester mon origine et ma force, alors je vais vous montrer de quoi je suis capable! »
 
 Wang Lin leva la main droite et l'agita avec force en s'élançant vers l'avant.
 
@@ -98,15 +98,15 @@ Les rayons traversèrent le tronc et les sceaux, ignorant le trou noir pour bril
 
 La lumière franchit la couche d'encre à la surface et frappa de plein fouet les yeux de Dao Yi, Wu Feng et Jiu Di!
 
-« Un sortilège de foi! » s'exclama le Grand Empyrean Dao Yi, les yeux brillants.
+« Un sortilège de foi! » s'exclama le Grand Empyrée Dao Yi, les yeux brillants.
 
-« C'est un cultivateur de rang Exalté Empyrean, mais il possède une telle puissance de foi! » nota le Grand Empyrean Wu Feng, son regard trahissant une immense puissance.
+« C'est un cultivateur de rang Exalté Empyrean, mais il possède une telle puissance de foi! » nota le Grand Empyrée Wu Feng, son regard trahissant une immense puissance.
 
 Seul le vieil homme trapu fronça les sourcils. Il leva la main droite et pointa l'eau en contrebas d'un geste simple, presque mortel.
 
 Alors que la mer était transpercée par cette lumière infinie, des grondements de tonnerre éclatèrent. L'océan semblait bouillir dans un tourbillon frénétique, tandis qu'un doigt gigantesque semblait s'abattre vers les profondeurs!
 
-Dans un vacarme assourdissant, Wang Lin surgit de la mer sans hésitation. Il s'envola rapidement, agissant comme s'il n'avait pas remarqué la présence des trois Grands Empyreans.
+Dans un vacarme assourdissant, Wang Lin surgit de la mer sans hésitation. Il s'envola rapidement, agissant comme s'il n'avait pas remarqué la présence des trois Grands Empyrées.
 
 Derrière lui, l'Exalté Empyrean Hai Zi le suivait, mais la mer sous ses pieds se transforma en vortex. Une immense paume brisée la poursuivait sans relâche.
 
@@ -116,7 +116,7 @@ Le choc fut titanesque, faisant marquer un temps d'arrêt à la paume brisée. L
 
 *Roar!!*
 
-La paume brisée fut repoussée par le doigt, mais un rugissement féroce retentit. L'ombre se mua en une entité rugissante tournant son regard vers le ciel. Ses yeux étaient empreints d'une folie pure; elle avait distingué les trois Grands Empyreans là-haut. Ignorant Hai Zi, elle chargea contre eux.
+La paume brisée fut repoussée par le doigt, mais un rugissement féroce retentit. L'ombre se mua en une entité rugissante tournant son regard vers le ciel. Ses yeux étaient empreints d'une folie pure; elle avait distingué les trois Grands Empyrées là-haut. Ignorant Hai Zi, elle chargea contre eux.
 
 C'était comme si rien ne pouvait entraver sa puissance!
 

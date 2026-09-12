@@ -3,7 +3,7 @@ n: 375
 title: "Secte de l'Affinement de l'Âme"
 book: 4
 bookTitle: Clean Sweep
-en: Chapter 375 - Soul Refining Sect
+en: Chapter 375 - Soul Refining Secte
 slug: secte-de-laffinement-de-lame
 ---
 À l'instant même où cette faille apparut, une immense quantité d'énergie spirituelle provenant de l'extérieur pénétra dans le corps de Wang Lin. Simultanément, les fragments de son âme originelle commencèrent à se condenser. Bien qu'elle ne fût pas encore totalement restaurée, elle ne se dissipait plus.

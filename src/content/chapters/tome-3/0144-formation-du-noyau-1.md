@@ -96,7 +96,7 @@ Ces derniers jours, l'état d'esprit de Li Muwan avait évolué. Au début, elle
 
 Mais elle réalisa vite que ce Wang Lin passait presque tout son temps en entraînement à huis clos. Elle qui pensait autrefois que son frère était un cultivateur assidu, elle trouvait désormais que Wang Lin l'était véritablement.
 
-À ses yeux, Wang Lin était déjà au sommet du stade de l'Établissement des Fondations et n'était qu'à un pas de la Formation du Noyau. Pourtant, comment atteindre ce stade si facilement? Dans ses souvenirs, la personne la plus jeune à avoir atteint l'Établissement des Fondations avait eu 17 ans, mais il lui avait fallu 30 années supplémentaires pour atteindre la Formation du Noyau. Cette personne était l'ancêtre de Hou Fen, le premier à avoir atteint le stade de l'Âme Naissante et celui qui avait élevé Hou Fen d'un pays de culture de rang 2 à un rang 3.
+À ses yeux, Wang Lin était déjà au sommet du stade de l'Établissement des Fondations et n'était qu'à un pas de la Formation du Noyau. Pourtant, comment atteindre ce stade si facilement? Dans ses souvenirs, la personne la plus jeune à avoir atteint l'Établissement des Fondations avait eu 17 ans, mais il lui avait fallu 30 années supplémentaires pour atteindre la Formation du Noyau. Cette personne était l'ancêtre de Huo Fen, le premier à avoir atteint le stade de l'Âme Naissante et celui qui avait élevé Huo Fen d'un pays de culture de rang 2 à un rang 3.
 
 En regardant Wang Lin, elle pensait qu'il n'avait qu'une vingtaine d'années. Il lui semblait impossible qu'il puisse former son noyau en si peu de temps. Lorsque Wang Lin lui avait promis de la renvoyer chez elle une fois la Formation du Noyau atteinte, elle avait soupiré intérieurement. Elle pensait qu'il lui faudrait des décennies pour y parvenir et ressentit un certain mépris envers lui. S'il voulait la garder, il aurait dû le dire simplement plutôt que d'utiliser ce prétexte.
 
@@ -142,7 +142,7 @@ Peu importait la profondeur de cette quatorzième vallée ou les secrets qu'elle
 
 Le temps s'écoula, et en un clin d'œil, trois années passèrent.
 
-La catastrophe à Hou Fen fut finalement résolue. Le pays de culture de rang 4 avait envoyé trois cultivateurs au stade de la Formation de l'Âme. Ils avaient passé dix-neuf jours à apprivoiser toutes les bêtes de feu, les raffinant en une seule bête spirituelle de qualité moyenne avant de retourner dans leur pays.
+La catastrophe à Huo Fen fut finalement résolue. Le pays de culture de rang 4 avait envoyé trois cultivateurs au stade de la Formation de l'Âme. Ils avaient passé dix-neuf jours à apprivoiser toutes les bêtes de feu, les raffinant en une seule bête spirituelle de qualité moyenne avant de retourner dans leur pays.
 
 La qualité des bêtes spirituelles varie grandement. Elles sont classées en catégories: anormales, spirituelles, désolées et célestes. Chaque catégorie possède des niveaux élevé, moyen et faible.
 
@@ -154,7 +154,7 @@ Le dragon qui était mort était une bête spirituelle de qualité moyenne.
 
 Bien que les bêtes de feu aient disparu, l'énergie spirituelle résiduelle rendait toute culture impossible dans le pays. Ils ne pouvaient qu'attendre que cette énergie se dissipe avec le temps.
 
-La lutte contre Xuan Wu se poursuivait, mais les affrontements impliquant des centaines de personnes étaient devenus rares; la plupart des combats ne concernaient plus que quelques dizaines d'individus. Après avoir pris une partie de Xuan Wu, les cultivateurs de Hou Fen n'avaient plus la puissance nécessaire pour progresser davantage, et la situation se stabilisa.
+La lutte contre Xuan Wu se poursuivait, mais les affrontements impliquant des centaines de personnes étaient devenus rares; la plupart des combats ne concernaient plus que quelques dizaines d'individus. Après avoir pris une partie de Xuan Wu, les cultivateurs de Huo Fen n'avaient plus la puissance nécessaire pour progresser davantage, et la situation se stabilisa.
 
 Quant au conflit entre les deux pays, il passa d'une guerre d'extermination à une sorte de terrain d'entraînement pour leurs disciples respectifs. C'était un immense affront pour tous ceux qui étaient tombés au début du conflit.
 

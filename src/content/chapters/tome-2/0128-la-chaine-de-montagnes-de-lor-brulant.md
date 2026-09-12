@@ -12,11 +12,11 @@ Wang Lin agita sa main droite pour ouvrir la porte de pierre et sortit.
 
 Peu de temps après, Wang Lin arriva à l'embouchure du volcan et scruta l'intérieur. Des vagues de chaleur s'échappaient des profondeurs. Les yeux de Wang Lin s'illuminèrent et il sauta sans la moindre hésitation, utilisant une technique d'attraction pour contrôler sa descente.
 
-La Chaîne de Montagnes de l'Or Brûlant était une cordillère célèbre dans Hou Fen. Sa renommée tirait son origine d'un ingrédient alchimique qui y poussait: le Fruit de l'Or Brûlant.
+La Chaîne de Montagnes de l'Or Brûlant était une cordillère célèbre dans Huo Fen. Sa renommée tirait son origine d'un ingrédient alchimique qui y poussait: le Fruit de l'Or Brûlant.
 
 Ce fruit est un composant essentiel à la fabrication de la Pilule d'Harmonie Spirituelle. L'énergie spirituelle de ce pays est saturée de l'élément feu; l'absorber sur une longue période nuit gravement au corps des cultivateurs. Ainsi, comme la Pilule d'Harmonie Spirituelle permet de réguler l'énergie spirituelle interne, elle est extrêmement prisée par les cultivateurs locaux.
 
-On peut dire que cette pilule est la plus consommée à Hou Fen. Il existe de nombreuses recettes pour la fabriquer, chacune ayant des degrés d'efficacité variables, mais la plus populaire est celle qui utilise le Fruit de l'Or Brûlant.
+On peut dire que cette pilule est la plus consommée à Huo Fen. Il existe de nombreuses recettes pour la fabriquer, chacune ayant des degrés d'efficacité variables, mais la plus populaire est celle qui utilise le Fruit de l'Or Brûlant.
 
 Ce fruit ne pousse que dans l'embouchure des volcans, et seulement au sein d'un massif volcanique, jamais de manière isolée.
 

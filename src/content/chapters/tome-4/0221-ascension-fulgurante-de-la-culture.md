@@ -18,7 +18,7 @@ Li Muwan mordilla discrètement sa lèvre inférieure et poursuivit: « Dans ce 
 
 Wang Lin approuva intérieurement. C'était la seule explication pour laquelle Yun Fei ne l'avait pas ouverte elle-même, tentant plutôt de l'échanger contre la levée de sa restriction.
 
-Li Muwan reprit d'un ton déterminé: « Frère Wang, Wan Er se rendra à la bibliothèque de la Secte Cloud Sky pour voir si des informations sur l'ouverture du sceau existent. Si cette pilule est destinée à accroître la culture, elle augmentera vos chances d'atteindre le stade de l'Âme Naissante. »
+Li Muwan reprit d'un ton déterminé: « Frère Wang, Wan Er se rendra à la bibliothèque de la Secte Ciel Nuageux pour voir si des informations sur l'ouverture du sceau existent. Si cette pilule est destinée à accroître la culture, elle augmentera vos chances d'atteindre le stade de l'Âme Naissante. »
 
 Li Muwan sortit plusieurs flacons de pilules et les tendit à Wang Lin. Après lui avoir expliqué les vertus de chaque préparation, Wang Lin prit congé.
 
@@ -66,9 +66,9 @@ Suivant les instructions de Li Muwan, il disposa les flacons par ordre de consom
 
 Cette préparation s'appelait la Pilule Qi-Zuo, une pilule spirituelle de rang 2. Grâce à ses nombreux ingrédients rares, elle ne fournissait pas seulement une immense quantité d'énergie spirituelle, mais aidait également à élargir les canaux du corps.
 
-La Pilule Qi-Zuo était l'une des dix-huit pilules rares de l'ancienne Secte Luo He. Dans le monde de la culture, c'était un trésor, d'un grade supérieur à la Pilule d'Établissement des Fondations. Sa rareté résidait dans sa capacité à élargir les canaux; même au sein de la Secte Cloud Sky, peu de pilules possédaient cette vertu, et elles étaient toutes de rang 4. Qu'une pilule de rang 2 puisse accomplir cela était exceptionnel.
+La Pilule Qi-Zuo était l'une des dix-huit pilules rares de l'ancienne Secte Luo He. Dans le monde de la culture, c'était un trésor, d'un grade supérieur à la Pilule d'Établissement des Fondations. Sa rareté résidait dans sa capacité à élargir les canaux; même au sein de la Secte Ciel Nuageux, peu de pilules possédaient cette vertu, et elles étaient toutes de rang 4. Qu'une pilule de rang 2 puisse accomplir cela était exceptionnel.
 
-Au sein de la Secte Cloud Sky, on n'en comptait qu'une vingtaine, et toutes avaient été confectionnées par Li Muwan.
+Au sein de la Secte Ciel Nuageux, on n'en comptait qu'une vingtaine, et toutes avaient été confectionnées par Li Muwan.
 
 Wang Lin prit une pilule et l'avala, entamant immédiatement sa culture. L'énergie spirituelle inonda son corps, et il nota instantanément la différence avec la Pilule d'Établissement des Fondations: la Pilule Qi-Zuo contenait plus du double de cette dernière.
 
@@ -88,6 +88,6 @@ Li Muwan n'avait pas nommé cette pilule, lui disant simplement qu'il la reconna
 
 Le flacon contenait cinq pilules violettes. Wang Lin les identifia immédiatement: c'étaient les Pilules Tian Li qu'il avait utilisées auparavant.
 
-Il semblait que Li Muwan ait consacré énormément de sang et de sueur ces deux cents dernières années pour raffiner à nouveau ces précieuses préparations. C'était le cas: la Pilule Tian Li était un remède de rang 3 dont les ingrédients s'étaient éteints avec le pays de Hou Fen. Ce n'est qu'en rejoignant la Secte Cloud Sky et en utilisant son statut d'Ancien que Li Muwan avait pu obtenir les composants nécessaires pour en produire davantage.
+Il semblait que Li Muwan ait consacré énormément de sang et de sueur ces deux cents dernières années pour raffiner à nouveau ces précieuses préparations. C'était le cas: la Pilule Tian Li était un remède de rang 3 dont les ingrédients s'étaient éteints avec le pays de Huo Fen. Ce n'est qu'en rejoignant la Secte Ciel Nuageux et en utilisant son statut d'Ancien que Li Muwan avait pu obtenir les composants nécessaires pour en produire davantage.
 
-Cependant, même la Secte Cloud Sky ne disposait que de peu de ces matériaux. Après avoir raffiné ces cinq pilules, toutes les réserves avaient été épuisées. En vérité, la grande majorité des ingrédients utilisés par Wang Lin provenaient des stocks de la Secte Cloud Sky; on pouvait donc dire que le coût de cette avancée de culture était entièrement supporté par la secte.
+Cependant, même la Secte Ciel Nuageux ne disposait que de peu de ces matériaux. Après avoir raffiné ces cinq pilules, toutes les réserves avaient été épuisées. En vérité, la grande majorité des ingrédients utilisés par Wang Lin provenaient des stocks de la Secte Ciel Nuageux; on pouvait donc dire que le coût de cette avancée de culture était entièrement supporté par la secte.

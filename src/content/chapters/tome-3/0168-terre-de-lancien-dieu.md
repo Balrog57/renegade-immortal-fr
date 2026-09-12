@@ -160,7 +160,7 @@ Wang Lin prit une profonde inspiration et déploya lentement son Sens Divin. Auc
 
 À cet instant, la voix du Seigneur Démon des Six Désirs parvint de la distance: « Il n'y a aucun danger ici, ce n'est qu'un passage. Contentez-vous de rester sur vos piliers. »
 
-Après avoir entendu cela, Wang Lin s'assit et observa les piliers progresser lentement. Constatant que personne ne lui prêtait attention, il glissa sa main dans sa chemise pour toucher le sac de rangement obtenu à l'Union Hou Fen.
+Après avoir entendu cela, Wang Lin s'assit et observa les piliers progresser lentement. Constatant que personne ne lui prêtait attention, il glissa sa main dans sa chemise pour toucher le sac de rangement obtenu à l'Union Huo Fen.
 
 Son Sens Divin pénétra le sac, mais sans réaction. Wang Lin fut surpris, mais ce n'était pas le moment de tester davantage; il retira lentement sa main et scruta les environs.
 

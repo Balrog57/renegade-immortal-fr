@@ -1,9 +1,9 @@
 ---
 n: 1253
-title: Réprimande du Secte Éternel (4)
+title: Réprimande de la Secte Éternel (4)
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: Chapter 1253 - Rebuking the Everlasting Sect (4)
+en: Chapter 1253 - Rebuking the Everlasting Secte (4)
 slug: reprimande-du-secte-eternel-4
 ---
 « Il est arrivé… » Lu Yuncong fixait le ciel, les éclairs incessants et la silhouette blanche qui se dessinait derrière l'orage. Son esprit tremblait de terreur.

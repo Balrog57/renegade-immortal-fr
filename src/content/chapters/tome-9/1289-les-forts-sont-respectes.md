@@ -82,7 +82,7 @@ Les deux hommes se déplacèrent à une vitesse inimaginable pour converger vers
 
 Au moment où leur sort et l'épée-dragon arrivèrent, Wang Lin pointa l'avant de son index droit. Une aura noire et blanche apparut, se transformant en deux petits cerfs. Simultanément, cent mille, un million, cinq millions, dix millions de rayons d'énergie d'épée éclatèrent!
 
-Les dix millions de rayons éblouissants couvrirent le ciel entier! Même Daoist Water avait été blessé par une telle puissance, alors cette attaque était phénoménale! C'était la deuxième fois que cette technique apparaissait dans les mains de Wang Lin, formant une véritable tempête.
+Les dix millions de rayons éblouissants couvrirent le ciel entier! Même Shui Daozi avait été blessé par une telle puissance, alors cette attaque était phénoménale! C'était la deuxième fois que cette technique apparaissait dans les mains de Wang Lin, formant une véritable tempête.
 
 Des grondements tonitruants résonnèrent à travers la planète de culture; même le brouillard entourant la planète fut repoussé comme s'il craignait l'approche de ce pouvoir! Lorsque l'homme en robe noire percuta les rayons d'énergie, la foudre autour de lui s'effondra. Il cracha du sang et recula immédiatement, révélant une expression de terreur qu'il n'avait jamais montrée auparavant!
 
@@ -94,11 +94,11 @@ L'expression du Maître de la Secte changea radicalement; il agita l'épée-drag
 
 Le Maître de la Secte Éternelle esquiva l'énergie et dit d'un ton sombre: « Pourquoi la Secte Éternelle vous prêterait-il quoi que ce soit? Pourquoi devrions-nous vous croire?! »
 
-« Le fait que Daoist Water de la Secte de Dieu ait voulu me tuer et ait échoué, se retrouvant contraint à une culture en porte fermée avec de graves blessures! Ou le fait que je sois prêt à prêter un serment de sang! » Wang Lin mordit la pointe de sa langue et cracha du sang. Ce sang se transforma en une rune de couleur sang contenant une trace de l'âme de Wang Lin! La rune s'échappa de la tempête d'épée et flotta devant le Maître de la Secte Éternelle.
+« Le fait que Shui Daozi de la Secte de Dieu ait voulu me tuer et ait échoué, se retrouvant contraint à une culture en porte fermée avec de graves blessures! Ou le fait que je sois prêt à prêter un serment de sang! » Wang Lin mordit la pointe de sa langue et cracha du sang. Ce sang se transforma en une rune de couleur sang contenant une trace de l'âme de Wang Lin! La rune s'échappa de la tempête d'épée et flotta devant le Maître de la Secte Éternelle.
 
 Les paroles de Wang Lin furent comme un coup de tonnerre qui choqua l'esprit du Maître de la Secte et du vieil homme en noir!
 
-« Daoist Water de la Secte de Dieu a échoué à vous tuer?! » Le Maître de la Secte laissa échapper un souffle, les yeux remplis d'incrédulité.
+« Shui Daozi de la Secte de Dieu a échoué à vous tuer?! » Le Maître de la Secte laissa échapper un souffle, les yeux remplis d'incrédulité.
 
 « Absurde, personne au monde ne vous croirait. Votre serment de sang est inutile à mes yeux! » L'homme en noir avait dû reculer deux fois face à Wang Lin. Avec son niveau de culture et son statut, une telle situation était inédite. Il ricana, les yeux brillants, et tendit sa main droite vers le serment de sang de Wang Lin pour l'écraser sans pitié!
 

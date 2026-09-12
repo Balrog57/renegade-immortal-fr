@@ -116,7 +116,7 @@ Wang Lin regagna la grotte située dans la vallée et sortit une grande quantit�
 
 « Il y a également cette vieille femme en vert avec sa Restriction de la Vie et de la Mort, ainsi que la Restriction du Temps de Sima Mo... »
 
-Dans l'immensité des étoiles, il existait un système stellaire bien plus vaste qu'Allheaven, Brilliant Void, Summoned River ou Cloud Sea. Même en combinant ces quatre systèmes, ils ne pourraient égaler ce vaste ensemble stellaire.
+Dans l'immensité des étoiles, il existait un système stellaire bien plus vaste qu'Allheaven, Vide Brillant, Summoned River ou Mer de Nuages. Même en combinant ces quatre systèmes, ils ne pourraient égaler ce vaste ensemble stellaire.
 
 C'était ce que les habitants du royaume scellé appelaient le royaume extérieur...
 

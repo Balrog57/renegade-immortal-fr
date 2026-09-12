@@ -1,9 +1,9 @@
 ---
 n: 1595
-title: "La cause karmique du Secte de l'Affinement de l'Âme"
+title: "La cause karmique de la Secte de l'Affinement de l'Âme"
 book: 10
 bookTitle: Rampage Through the Inner Realm
-en: Chapter 1595 - Soul Refining Sect’s Karmic Cause
+en: Chapter 1595 - Soul Refining Secte’s Karmic Cause
 slug: la-cause-karmique-du-secte-de-laffinement-de-lame
 ---
 À cette époque, une multitude d'érudits venus des villages, des bourgs et des cités de tout le pays de Zhao se rendaient à la capitale pour l'examen impérial. Certains voyageaient seuls, comme Wang Lin, d'autres en groupes de trois ou cinq, se dirigeant vers les quarante-neuf capitales provinciales. Ce n'est qu'après avoir réussi cet examen qu'ils pourraient se rendre dans la ville de Su pour passer le second concours.

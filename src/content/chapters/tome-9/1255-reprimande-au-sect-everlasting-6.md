@@ -3,7 +3,7 @@ n: 1255
 title: Réprimande à la Secte Éternelle (6)
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: Chapter 1255 - Rebuking the Everlasting Sect (6)
+en: Chapter 1255 - Rebuking the Everlasting Secte (6)
 slug: reprimande-au-sect-everlasting-6
 ---
 La Secte Nuage Vert de rang 7 s'était classé troisième parmi les sectes de rang 7 lors de la dernière compétition. Les sorts de cette secte étaient axés sur le changement et l'imprévisibilité. C'était une organisation vaste, comptant plus de 7 000 membres, et au fil des millénaires, elle avait engendré de nombreux cultivateurs puissants.

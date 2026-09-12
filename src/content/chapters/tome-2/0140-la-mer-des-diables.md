@@ -74,7 +74,7 @@ Après avoir attendu un moment dans la forêt dense, la personne qui arriva n'é
 
 La main droite de Wang Lin bougea et le jade vola rapidement vers lui. Il vérifia l'objet avec son Sens Divin avant de le ranger. Puis, prenant une profonde inspiration, il s'enfonça sous terre et disparut prestement.
 
-Une fois les trois fragments de la carte fusionnés, Wang Lin comprit que Hou Fen appartenait au continent Zhou Wu. Un lieu nommé la Mer des Diables se trouvait entre celui-ci et le continent où résidait Zhao.
+Une fois les trois fragments de la carte fusionnés, Wang Lin comprit que Huo Fen appartenait au continent Zhou Wu. Un lieu nommé la Mer des Diables se trouvait entre celui-ci et le continent où résidait Zhao.
 
 S'il voulait retourner à Zhao, il devrait traverser cette Mer des Diables, réputée être peuplée de cultivateurs démoniaques.
 
@@ -126,13 +126,13 @@ Sans attendre la fin de ses explications, les yeux de Wang Lin s'illuminèrent: 
 
 Le regard de Wang Lin terrifia Li Muwan. Elle était une personne très intelligente, sans quoi elle n'aurait pas osé prononcer ces trois mots dans l'espoir d'être sauvée.
 
-Après tout, ils étaient tous deux originaires de Hou Fen; tomber entre ses mains était préférable à celle de ce cultivateur de la Formation du Noyau. Pensant cela, elle ajouta immédiatement: « Je n'ai pas de Pilule du Ciel Lointain achevée, seulement un produit semi-complet... » Ses yeux s'embuèrent alors qu'elle percevait le regard peu amical de Wang Lin et expliqua précipitamment: « Aucune des pilules de la Secte Lou He n'est complète; elles sont toutes dans un état semi-fini. Cependant, il ne faut que trente minutes de raffinage pour la rendre parfaite. C'est parce qu'une fois la Pilule du Ciel Lointain achevée, elle est impossible à stocker. Elle doit être consommée dans l'année, sinon son efficacité diminue drastiquement. »
+Après tout, ils étaient tous deux originaires de Huo Fen; tomber entre ses mains était préférable à celle de ce cultivateur de la Formation du Noyau. Pensant cela, elle ajouta immédiatement: « Je n'ai pas de Pilule du Ciel Lointain achevée, seulement un produit semi-complet... » Ses yeux s'embuèrent alors qu'elle percevait le regard peu amical de Wang Lin et expliqua précipitamment: « Aucune des pilules de la Secte Lou He n'est complète; elles sont toutes dans un état semi-fini. Cependant, il ne faut que trente minutes de raffinage pour la rendre parfaite. C'est parce qu'une fois la Pilule du Ciel Lointain achevée, elle est impossible à stocker. Elle doit être consommée dans l'année, sinon son efficacité diminue drastiquement. »
 
-L'esprit de Wang Lin tourna à toute vitesse. Il avait initialement prévu de contourner Hou Fen pour atteindre la Mer des Diables, mais désormais, tenant la main délicate de Li Muwan, il chargea vers la frontière de Hou Fen.
+L'esprit de Wang Lin tourna à toute vitesse. Il avait initialement prévu de contourner Huo Fen pour atteindre la Mer des Diables, mais désormais, tenant la main délicate de Li Muwan, il chargea vers la frontière de Huo Fen.
 
-Wang Lin avait deux options. La première consistait à retourner à l'Union de Hou Fen. De nombreux cultivateurs puissants s'y trouvaient et ils seraient en sécurité dès leur arrivée. Cependant, ce jeune homme de la Formation du Noyau pourrait ne pas les laisser atteindre une telle distance. Et si Li Muwan changeait d'avis une fois en sécurité, il lui serait très difficile d'obtenir la pilule.
+Wang Lin avait deux options. La première consistait à retourner à l'Union de Huo Fen. De nombreux cultivateurs puissants s'y trouvaient et ils seraient en sécurité dès leur arrivée. Cependant, ce jeune homme de la Formation du Noyau pourrait ne pas les laisser atteindre une telle distance. Et si Li Muwan changeait d'avis une fois en sécurité, il lui serait très difficile d'obtenir la pilule.
 
-La seconde option était de se rendre à la frontière de Hou Fen. Compte tenu du temps écoulé depuis la rupture du réseau de scellement, les bêtes de feu devaient être en route.
+La seconde option était de se rendre à la frontière de Huo Fen. Compte tenu du temps écoulé depuis la rupture du réseau de scellement, les bêtes de feu devaient être en route.
 
 Wang Lin n'hésita pas et choisit la seconde option.
 
@@ -140,13 +140,13 @@ Le jeune homme continuait sa poursuite. Voyant sa proie s'éloigner davantage, i
 
 À l'instant même, la feuille s'élança à une vitesse prodigieuse, laissant derrière elle une traînée d'images rémanentes qui mit longtemps à se dissiper.
 
-La distance entre les deux parties se réduisait, et le visage de Li Muwan devint encore plus livide. Elle n'osait imaginer ce qui arriverait si le jeune homme la rattrapait. Elle en voulait à Wang Lin de ne pas avoir dirigé vers l'Union de Hou Fen, mais elle garda sa colère pour elle, craignant qu'il ne l'abandonne.
+La distance entre les deux parties se réduisait, et le visage de Li Muwan devint encore plus livide. Elle n'osait imaginer ce qui arriverait si le jeune homme la rattrapait. Elle en voulait à Wang Lin de ne pas avoir dirigé vers l'Union de Huo Fen, mais elle garda sa colère pour elle, craignant qu'il ne l'abandonne.
 
 L'expression de Wang Lin restait calme tandis qu'il calculait précisément le temps. Environ trois heures s'étaient écoulées depuis la nouvelle de la rupture du réseau. En ajoutant le temps nécessaire à l'Âme Naissante pour se téléporter et celui parcouru par les bêtes de feu, celles-ci devaient déjà avoir atteint la frontière de Xuan Wu.
 
 Alors qu'il calculait, son Sens Divin détecta un nuage rouge approchant au loin.
 
-En voyant ce nuage rouge, le jeune homme s'arrêta net et renonça à sa poursuite. De sa position, il comprenait pourquoi Hou Fen envahissait Xuan Wu: les bêtes de feu formaient ce nuage rouge.
+En voyant ce nuage rouge, le jeune homme s'arrêta net et renonça à sa poursuite. De sa position, il comprenait pourquoi Huo Fen envahissait Xuan Wu: les bêtes de feu formaient ce nuage rouge.
 
 Le troupeau de bêtes de feu était extrêmement rapide, tout comme la technique d'évasion tellurique de Wang Lin; ainsi, lorsqu'ils se croisèrent, un immense écart fut créé.
 
@@ -160,15 +160,15 @@ Les bêtes de feu qui s'étaient éloignées s'arrêtèrent brusquement. Elles p
 
 Cependant, l'écart était immense et les réflexes de Wang Lin étaient fulgurants. Au lieu de ralentir, il accéléra; ainsi, malgré leur traque, les bêtes ne pouvaient que le suivre de loin, incapables de le rattraper pour le moment.
 
-Li Muwan fut horrifiée par ce changement, mais une pensée étrange lui traversa l'esprit: il semblait que les bêtes de feu ne cherchaient pas à détruire Hou Fen, mais traquaient spécifiquement ce jeune homme froid.
+Li Muwan fut horrifiée par ce changement, mais une pensée étrange lui traversa l'esprit: il semblait que les bêtes de feu ne cherchaient pas à détruire Huo Fen, mais traquaient spécifiquement ce jeune homme froid.
 
 La véritable technique d'évasion des cinq éléments est légendaire. Elle exige non seulement une immense quantité d'énergie spirituelle, mais aussi un talent exceptionnel. Cependant, ce que Wang Lin avait appris n'était qu'une variante appelée technique d'évasion tellurique. Hormis la forte consommation d'énergie, le talent requis était moindre. Il pouvait même affiner la technique après de multiples usages. Bien qu'il ne la connaisse que depuis peu, sa pratique intensive lui permettait désormais de l'utiliser avec aisance.
 
 Quant à la consommation d'énergie spirituelle... pour être honnête, c'était la dernière chose dont Wang Lin se souciait.
 
-Wang Lin utilisa la technique d'évasion tellurique pendant trois jours consécutifs pour traverser Hou Fen avec Li Muwan. Les bêtes de feu se rapprochaient et leurs rugissements étaient désormais audibles. À la frontière de Hou Fen, il émergea du sol. Il observa la Mer des Diables, puis se tourna vers Li Muwan, au visage pâle et épuisé, et demanda: « Es-tu certaine de pouvoir achever le raffinage de la pilule avant que les bêtes ne nous rattrapent? »
+Wang Lin utilisa la technique d'évasion tellurique pendant trois jours consécutifs pour traverser Huo Fen avec Li Muwan. Les bêtes de feu se rapprochaient et leurs rugissements étaient désormais audibles. À la frontière de Huo Fen, il émergea du sol. Il observa la Mer des Diables, puis se tourna vers Li Muwan, au visage pâle et épuisé, et demanda: « Es-tu certaine de pouvoir achever le raffinage de la pilule avant que les bêtes ne nous rattrapent? »
 
-À ce stade, Li Muwan craignait Wang Lin du plus profond de son âme. Elle était désormais convaincue que la cible des bêtes de feu était l'homme devant elle. Pourquoi ignoreraient-elles l'Union de Hou Fen pour ne le traquer que lui? De plus, les bêtes semblaient nourrir une haine profonde envers ce personnage.
+À ce stade, Li Muwan craignait Wang Lin du plus profond de son âme. Elle était désormais convaincue que la cible des bêtes de feu était l'homme devant elle. Pourquoi ignoreraient-elles l'Union de Huo Fen pour ne le traquer que lui? De plus, les bêtes semblaient nourrir une haine profonde envers ce personnage.
 
 Plus important encore, Li Muwan connaissait un peu cette technique d'évasion tellurique. À moins d'atteindre la Formation du Noyau, il était impossible pour un cultivateur de l'utiliser pendant trois jours sans interruption. Elle devint très curieuse au sujet du liquide que Wang Lin buvait dès qu'il manquait d'énergie spirituelle.
 
@@ -200,9 +200,9 @@ Li Muwan soupira intérieurement et ne dit plus un mot.
 
 Dès leur entrée dans la Mer des Diables, des éclats d'énergie Ying pénétrèrent leurs corps. Cela alerta Wang Lin; il ne s'attendait pas à trouver de l'énergie Ying ici, ce qui le réjouit.
 
-Comparée à Hou Fen, la Mer des Diables était comme un bloc de glace, créant un contraste saisissant. C'était la première fois que Li Muwan venait ici. Les légendes qu'elle avait entendues lui revinrent en mémoire, rendant son visage plus pâle encore.
+Comparée à Huo Fen, la Mer des Diables était comme un bloc de glace, créant un contraste saisissant. C'était la première fois que Li Muwan venait ici. Les légendes qu'elle avait entendues lui revinrent en mémoire, rendant son visage plus pâle encore.
 
-Wang Lin s'arrêta au milieu du brouillard. Là, la brume n'était pas trop épaisse et la limite de Hou Fen était visible. Il vit le nuage rouge approcher, mais une fois les bêtes de feu arrivées à la frontière, aucune ne la franchit. Elles ne purent que rugir vers Wang Lin.
+Wang Lin s'arrêta au milieu du brouillard. Là, la brume n'était pas trop épaisse et la limite de Huo Fen était visible. Il vit le nuage rouge approcher, mais une fois les bêtes de feu arrivées à la frontière, aucune ne la franchit. Elles ne purent que rugir vers Wang Lin.
 
 Peu à peu, de plus en plus de bêtes s'assemblèrent, mais aucune n'entra dans la Mer des Diables. C'était comme si une faille invisible les en empêchait.
 
@@ -210,7 +210,7 @@ Après un long moment, une bête de feu finit par charger, mais dès qu'elle tou
 
 Voyant cela, Wang Lin fut rassuré. Selon son plan, même si les bêtes tentaient de charger, les créatures et les cultivateurs locaux les arrêteraient.
 
-La Mer des Diables était aussi vaste que plusieurs milliers de Hou Fen. Bien que la carte ne le montrait pas, elle soulignait clairement cette différence d'échelle.
+La Mer des Diables était aussi vaste que plusieurs milliers de Huo Fen. Bien que la carte ne le montrait pas, elle soulignait clairement cette différence d'échelle.
 
 Vu l'immensité du lieu, si Wang Lin s'y cachait, il serait difficile pour les bêtes de le trouver.
 

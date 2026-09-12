@@ -3,7 +3,7 @@ n: 896
 title: Secte des Cadavres
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
-en: Chapter 896 - Corpse Sect
+en: Chapter 896 - Corpse Secte
 slug: secte-des-cadavres
 ---
 Presque à l'instant même où l'homme poussa un cri, un grondement sourd émana du sol sous la place. Des fissures déchirèrent la terre et huit vieillards en jaillirent.

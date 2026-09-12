@@ -78,7 +78,7 @@ Elle dit avec inquiétude: « Si cette Papillon Rouge découvre que tu es Ceng N
 
 Le regard de Wang Lin se fit intense. Il répondit calmement: « Avec ma culture actuelle, il ne me faut que quelques années de plus pour atteindre le stade intermédiaire de la Formation de l'Âme. Je suis sûr à 70 % de pouvoir la vaincre à nouveau le moment venu! »
 
-Li Muwan le regarda et dit soudainement: « Te souviens-tu encore de la grotte dans la Mer des Démons? Wang Lin, je veux y retourner... Je veux aussi voir Hou Fen. »
+Li Muwan le regarda et dit soudainement: « Te souviens-tu encore de la grotte dans la Mer des Démons? Wang Lin, je veux y retourner... Je veux aussi voir Huo Fen. »
 
 Wang Lin répondit: « Très bien. Le Pavillon de Raffinage des Trésors va bientôt mettre aux enchères une recette de pilule de rang 6. J'irai l'acheter pour toi. »
 
@@ -116,7 +116,7 @@ Trois jours plus tard, Wang Lin et Li Muwan quittèrent la vallée, suivis par T
 
 À la lisière de Chu, Wang Lin ouvrit un ancien réseau de transfert et disparut avec Li Muwan, Lu Fei et Tie Yan. Les deux derniers ressentirent à nouveau la puissance de Wang Lin. Bien qu'ils aient vécu longtemps, c'était la première fois qu'ils expérimentaient un tel réseau de transfert antique.
 
-Dans la Mer des Démons, près de la frontière de Hou Fen, un réseau de transfert s'alluma soudainement et quatre personnes en sortirent. Il y avait trois hommes et une femme. L'homme et la femme marchant devant étaient manifestement un couple de cultivateurs, tandis que les deux autres derrière eux servaient de gardes.
+Dans la Mer des Démons, près de la frontière de Huo Fen, un réseau de transfert s'alluma soudainement et quatre personnes en sortirent. Il y avait trois hommes et une femme. L'homme et la femme marchant devant étaient manifestement un couple de cultivateurs, tandis que les deux autres derrière eux servaient de gardes.
 
 Li Muwan soupira: « Je ne suis pas revenue ici depuis de nombreuses années. Wang Lin, retournons voir cette Formation du Dragon de Bataille. Je me demande combien de personnes de l'époque sont encore en vie... »
 

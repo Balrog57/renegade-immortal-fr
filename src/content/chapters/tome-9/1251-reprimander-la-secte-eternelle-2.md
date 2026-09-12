@@ -3,7 +3,7 @@ n: 1251
 title: Réprimander la Secte Éternelle (2)
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: Chapter 1251 - Rebuking the Everlasting Sect (2)
+en: Chapter 1251 - Rebuking the Everlasting Secte (2)
 slug: reprimander-la-secte-eternelle-2
 ---
 Lu Yuncong prit une profonde inspiration et hocha la tête à Lu Yanfei avant de se diriger vers les gradins sans dire un mot. Lu Yanfei, plongée dans ses pensées, s'envola avec la grâce d'un papillon vers l'estrade.

@@ -22,11 +22,11 @@ D'une voix lente, Wang Lin dit: « Puisque vous osez tenir ce discours devant mo
 
 En entendant cela, le prince Ji Du se détendit légèrement. Son geste précédent revenait à marcher vers la mort, mais il était déterminé. Il ne laisserait pas passer cette chance après avoir rencontré Wang Lin, d'autant plus qu'elle déciderait de son destin!
 
-« L'unique disciple du Grand Empyrean Xuan Luo de l'Ancienne Voie se nomme Wang Lin. Bien que ce secret soit jalousement gardé, en tant que membre de la famille royale, nous avons fini par l'apprendre. Lorsque Xuan Luo est retourné au clan céleste, il est immédiatement entré en culture de porte close à son retour. Nous avons commencé à enquêter et, avec l'aide du Grand Empyrean Song, nous avons déduit la majeure partie de la vérité.
+« L'unique disciple du Grand Empyrée Xuan Luo de l'Ancienne Voie se nomme Wang Lin. Bien que ce secret soit jalousement gardé, en tant que membre de la famille royale, nous avons fini par l'apprendre. Lorsque Xuan Luo est retourné au clan céleste, il est immédiatement entré en culture de porte close à son retour. Nous avons commencé à enquêter et, avec l'aide du Grand Empyrée Song, nous avons déduit la majeure partie de la vérité.
 
-« Cependant, même alors, mon père et le Grand Empyrean Song Tian n'étaient pas certains que l'Exalt Empyrean aux cheveux blancs du clan céleste, Wang Lin, fût la même personne que le disciple du Grand Empyrean Xuan Luo.
+« Cependant, même alors, mon père et le Grand Empyrée Song Tian n'étaient pas certains que l'Exalt Empyrean aux cheveux blancs du clan céleste, Wang Lin, fût la même personne que le disciple du Grand Empyrée Xuan Luo.
 
-« Moi-même, je ne m'en suis rendu compte qu'après avoir vu Senior à Blackstone City. Il s'avère que Senior est bel et bien le disciple du Grand Empyrean Xuan Luo! » Ji Du transpirait de plus belle en parlant avec précipitation. Devant Wang Lin, il ressentait une pression immense, plus écrasante encore que celle qu'il éprouvait face à son père; elle était comparable à celle du Grand Empyrean Song Tian.
+« Moi-même, je ne m'en suis rendu compte qu'après avoir vu Senior à Blackstone City. Il s'avère que Senior est bel et bien le disciple du Grand Empyrée Xuan Luo! » Ji Du transpirait de plus belle en parlant avec précipitation. Devant Wang Lin, il ressentait une pression immense, plus écrasante encore que celle qu'il éprouvait face à son père; elle était comparable à celle du Grand Empyrée Song Tian.
 
 La femme derrière lui pâlit en entendant ces révélations. Ses yeux étaient empreints d'incrédulité. Toutefois, si elle était autorisée à rester, c'était qu'elle jouissait manifestement de la confiance de Ji Du.
 
@@ -36,7 +36,7 @@ Le regard de Wang Lin balaya la femme. Elle ressemblait beaucoup au prince.
 
 Wang Lin reprit lentement: « Puisque vous connaissez mon identité, que vous savez que je suis le disciple de Xuan Luo et que vous m'avez vu demander la carte de l'Ancienne Voie, vous savez où je me rends. Alors, pourquoi vous inclinez-vous devant moi? »
 
-« Senior, l'Ancienne Voie n'est pas un lieu propice... Même si vous êtes le disciple du Grand Empyrean Xuan Luo, l'Empereur de l'Ancienne Voie est d'une étroitesse d'esprit extrême. Si vous y allez, vous serez inévitablement opprimé... » Avant que le prince Ji Du n'ait pu achever sa phrase, une lueur glaciale traversa les yeux de Wang Lin et il laissa échapper un reniflement méprisant.
+« Senior, l'Ancienne Voie n'est pas un lieu propice... Même si vous êtes le disciple du Grand Empyrée Xuan Luo, l'Empereur de l'Ancienne Voie est d'une étroitesse d'esprit extrême. Si vous y allez, vous serez inévitablement opprimé... » Avant que le prince Ji Du n'ait pu achever sa phrase, une lueur glaciale traversa les yeux de Wang Lin et il laissa échapper un reniflement méprisant.
 
 D'un revers de manche, il se tourna pour quitter le palais.
 
@@ -124,4 +124,4 @@ La femme se leva et demanda doucement: « En valait-il la peine...? »
 
 Le prince Ji Du éclata de rire.
 
-« Cela en valait la peine! Avec sa force actuelle, il n'a nul besoin de chercher le Grand Empyrean Xuan Luo. Cela prouve que mon parrain accorde de l'importance à ses relations. Puisque je le respecte et que je l'ai pris pour parrain, il ne me fera aucun mal! »
+« Cela en valait la peine! Avec sa force actuelle, il n'a nul besoin de chercher le Grand Empyrée Xuan Luo. Cela prouve que mon parrain accorde de l'importance à ses relations. Puisque je le respecte et que je l'ai pris pour parrain, il ne me fera aucun mal! »

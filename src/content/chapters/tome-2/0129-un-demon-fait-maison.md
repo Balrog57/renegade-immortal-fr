@@ -144,9 +144,9 @@ Pendant qu'il récupérait sa culture, faute de liquide spirituel Ying, il n'ava
 
 Toutefois, le Chemin Divin du Sanctuaire du Dieu de la Guerre n'était pas sans avantages. Si l'énergie spirituelle Ying était comme une épée invincible, cette culture était aussi flexible que la soie.
 
-Le Sanctuaire du Dieu de la Guerre se trouvait sur une montagne perçant les cieux dans la partie orientale de Hou Fen. La montagne, enveloppée de nuages, regorgeait de bêtes spirituelles. Quatre sous-montagnes abritaient les quatre sous-sectes du Sanctuaire.
+Le Sanctuaire du Dieu de la Guerre se trouvait sur une montagne perçant les cieux dans la partie orientale de Huo Fen. La montagne, enveloppée de nuages, regorgeait de bêtes spirituelles. Quatre sous-montagnes abritaient les quatre sous-sectes du Sanctuaire.
 
-En tant que l'une des quatre sectes principales du pays de Hou Fen, le Sanctuaire du Dieu de la Guerre comptait plus de 3 000 disciples. Même en excluant les disciples de la secte extérieure, il restait environ 2 300 membres.
+En tant que l'une des quatre sectes principales du pays de Huo Fen, le Sanctuaire du Dieu de la Guerre comptait plus de 3 000 disciples. Même en excluant les disciples de la secte extérieure, il restait environ 2 300 membres.
 
 Ce jour-là, sur un sommet enneigé situé à un kilomètre du Sanctuaire du Dieu de la Guerre, Zhou Zihong, Yang Xiong et Lin Tao attendaient. Trois jours auparavant, ils avaient soudainement senti leurs âmes vaciller lorsque Wang Lin leur avait envoyé un message via l'essence de leur sang spirituel. Il leur avait ordonné d'apporter quelques objets. L'heure convenue était depuis longtemps passée, mais les trois n'osaient pas partir.
 
@@ -198,7 +198,7 @@ Le cœur de Lin Tao s'emballa et il murmura: « Maître, cette carte est placée
 
 Voyant le visage impassible de Wang Lin, Lin Tao serra les dents: « Dix jours! Maître, donnez-moi juste dix jours. D'ici là, ce sera au tour de mon cousin d'assurer la patrouille. Je pourrai au moins lui demander de m'en faire une copie! »
 
-Wang Lin le regarda, hocha la tête et dit d'un ton neutre: « Si tu réussis vraiment à l'obtenir, alors quand je quitterai Hou Fen, je te rendrai ton essence de sang spirituel. » Puis il se tourna vers Yang Xiong, ses yeux devenant froids: « Normalement, je vous aurais rendu votre essence de sang spirituel, mais l'objet que tu tiens annule tes mérites. Cette fois, je ne te tuerai pas, mais la question de savoir si je te rendrai ton essence dépendra de ta prochaine action. »
+Wang Lin le regarda, hocha la tête et dit d'un ton neutre: « Si tu réussis vraiment à l'obtenir, alors quand je quitterai Huo Fen, je te rendrai ton essence de sang spirituel. » Puis il se tourna vers Yang Xiong, ses yeux devenant froids: « Normalement, je vous aurais rendu votre essence de sang spirituel, mais l'objet que tu tiens annule tes mérites. Cette fois, je ne te tuerai pas, mais la question de savoir si je te rendrai ton essence dépendra de ta prochaine action. »
 
 Le corps de Yang Xiong trembla et son visage pâlit instantanément. En voyant Wang Lin, et particulièrement le regard qu'il lui lançait, il ressentit une terreur profonde. Il s'agenouilla au sol et tendit le jade qu'il serrait dans sa main droite, le visage extrêmement tendu.
 
@@ -210,4 +210,4 @@ Cependant, pour les disciples du Sanctuaire, il fallait soit avoir atteint la Fo
 
 Selon l'analyse de Wang Lin, ce Chemin Divin devait avoir une particularité. Il se pouvait que pour un cultivateur de l'Établissement des Fondations, son étude soit dangereuse sans protection adéquate.
 
-Lorsqu'il avait demandé à Zhou Zihong d'en faire une copie, il ne s'attendait pas à ce qu'elle réussisse et n'en fut pas déçu. Il les observa attentivement et dit doucement: « Vous n'avez pas besoin d'être si sur vos gardes en ma présence. Tant que vous ne jouez pas avec moi, je vous rendrai vos essences de sang spirituel lorsque je quitterai Hou Fen. Cependant, si vous osez comploter contre moi, ne me reprochez pas mon manque de pitié. »
+Lorsqu'il avait demandé à Zhou Zihong d'en faire une copie, il ne s'attendait pas à ce qu'elle réussisse et n'en fut pas déçu. Il les observa attentivement et dit doucement: « Vous n'avez pas besoin d'être si sur vos gardes en ma présence. Tant que vous ne jouez pas avec moi, je vous rendrai vos essences de sang spirituel lorsque je quitterai Huo Fen. Cependant, si vous osez comploter contre moi, ne me reprochez pas mon manque de pitié. »

@@ -16,7 +16,7 @@ Xuan Luo observa Wang Lin disparaître à travers l'interstice de la glace. Apr�
 
 « Cette bête semblable à un moustique... pourrait-elle être l'une des neuf créatures nées de la Loi du Continent Astral Immortel aux côtés de l'Ancêtre Ancien... Si c'est le cas, alors l'avenir de Wang Lin est devenu imprévisible... Il... il est probable qu'il devienne, par lui-même, le dixième soleil du Continent Astral Immortel! »
 
-« S'il devient réellement le dixième Grand Empyrean, mon clan Dao Antique existera éternellement!! » Le visage de Xuan Luo devint légèrement rubicond. Il était stupéfait que ce moustique puisse absorber la Loi du Continent Astral Immortel. À cet instant, d'innombrables pensées traversèrent son esprit.
+« S'il devient réellement le dixième Grand Empyrée, mon clan Dao Antique existera éternellement!! » Le visage de Xuan Luo devint légèrement rubicond. Il était stupéfait que ce moustique puisse absorber la Loi du Continent Astral Immortel. À cet instant, d'innombrables pensées traversèrent son esprit.
 
 Après un long moment, Xuan Luo s'éloigna le long du chemin du dragon. Autour de son corps, un soleil de couleur sang apparut. Ce soleil rouge enveloppa les environs et résista à la Loi du Continent Astral Immortel!
 
@@ -110,7 +110,7 @@ Wang Lin luttait pour rejoindre le Continent Astral Immortel. Sur ce continent, 
 
 Il sentit une perle émettre une lueur spectrale. Bien que l'intérieur de la perle soit trouble, il pouvait y voir l'ombre d'une âme féminine endormie.
 
-« Le Grand Empyrean est parti depuis bien longtemps... Hmph, dépenser tant d'efforts pour un simple cultivateur de monde de cavernes. La vieillesse l'a rendu sénile! »
+« Le Grand Empyrée est parti depuis bien longtemps... Hmph, dépenser tant d'efforts pour un simple cultivateur de monde de cavernes. La vieillesse l'a rendu sénile! »
 
 « Hormis Xuan Luo, le seul protecteur dont le clan Dao Antique a besoin est cet Empereur, et ce sera toujours moi à l'avenir! Je veux voir quel genre de personne ce vieux fou va ramener... Peu importe son statut, lorsqu'il verra cet Empereur, il devra s'agenouiller devant moi! »
 

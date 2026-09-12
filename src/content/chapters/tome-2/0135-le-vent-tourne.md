@@ -8,7 +8,7 @@ slug: le-vent-tourne
 ---
 Wang Lin n'hésita pas à utiliser la Technique de l'Évasion Terrestre pour se diriger vers le Sanctuaire du Dieu de la Guerre. En progressant, il découvrit des bêtes de feu partout. Plus il avançait, plus il était stupéfait.
 
-Il changea rapidement de direction. Rencontrer Lin Tao n'était plus son objectif; il se dirigea plutôt vers la frontière du pays en utilisant les informations issues des souvenirs de Ma Liang. Il ne pouvait plus rester à Hou Fen.
+Il changea rapidement de direction. Rencontrer Lin Tao n'était plus son objectif; il se dirigea plutôt vers la frontière du pays en utilisant les informations issues des souvenirs de Ma Liang. Il ne pouvait plus rester à Huo Fen.
 
 Mais avant qu'il n'ait pu parcourir une grande distance, un immense Sens Divin le balaya. Cette onde de perception revint rapidement pour se concentrer sur lui. Choqué, il scruta le ciel. Ce qu'il vit était un cercle de seize bêtes de feu géantes entourant un anneau de flammes.
 
@@ -28,7 +28,7 @@ En même temps, à cause de Wang Lin, ces bêtes de feu voulaient désormais ext
 
 Pour être plus précis, ces bêtes de feu n'avaient pas d'âmes; elles existaient d'une manière singulière. Les épées volantes ordinaires ne pouvaient entamer leurs corps endurcis. La meilleure façon de les combattre était de les frapper avec de puissantes armes contondantes.
 
-Cependant, elles étaient bien trop nombreuses. Même à cet instant, une infinité de bêtes de feu surgissait des volcans, petits ou grands, de Hou Fen. Quant au nombre exact qu'elles formaient, seul l'esprit de feu ancestral, absorbé par la Perle Défiant le Ciel, pouvait le savoir.
+Cependant, elles étaient bien trop nombreuses. Même à cet instant, une infinité de bêtes de feu surgissait des volcans, petits ou grands, de Huo Fen. Quant au nombre exact qu'elles formaient, seul l'esprit de feu ancestral, absorbé par la Perle Défiant le Ciel, pouvait le savoir.
 
 À mesure que Wang Lin s'éloignait, sa vitesse augmentait. Ces bêtes étaient plus rapides que lui lorsqu'elles évoluaient dans la lave, mais à découvert, il réussissait à maintenir la distance.
 
@@ -90,7 +90,7 @@ Bien que le pays entier fût enveloppé par la fumée noire des volcans, les ond
 
 Le Qi des Épées révélait sa puissance en percutant la fumée noire. À l'aube, mêlé à l'intensité du combat, ce spectacle revêtait une dimension majestueuse. Diverses épées volantes et trésors magiques brillaient dans le ciel comme un feu d'artifice chaotique. C'était une scène que Wang Lin n'oublierait jamais; un spectacle réservé aux batailles de grande envergure.
 
-Contrairement au chaos du champ de bataille étranger, il régnait ici un sentiment d'unité et une volonté commune de s'extraire de Hou Fen. Cette puissance n'était pas l'œuvre d'un seul homme, mais le résultat d'une nation entière contrainte à la migration pour sa survie. Seule la horde de bêtes de feu pouvait rivaliser avec elle.
+Contrairement au chaos du champ de bataille étranger, il régnait ici un sentiment d'unité et une volonté commune de s'extraire de Huo Fen. Cette puissance n'était pas l'œuvre d'un seul homme, mais le résultat d'une nation entière contrainte à la migration pour sa survie. Seule la horde de bêtes de feu pouvait rivaliser avec elle.
 
 Wang Lin ne put s'empêcher d'entrer en transe devant tant de grandeur. Lorsqu'il reprit ses esprits, il était déjà arrivé au centre de l'armée avec le jeune homme.
 

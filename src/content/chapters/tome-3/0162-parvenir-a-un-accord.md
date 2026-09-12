@@ -20,7 +20,7 @@ Le vieil homme marqua une pause avant de secouer la tête. « Ce n'est pas encor
 
 L'expression de Wang Lin resta calme, mais il fut très tenté. Il avait entendu parler de la pilule de transformation terrestre par Li Muwan et savait qu'elle était extrêmement rare. C'était une pilule utilisée pour aider à augmenter le niveau de culture d'un cran durant le stade de la Formation du Noyau. Elle offrait une forte chance d'élever un cultivateur du début de la Formation du Noyau au stade intermédiaire. Bien que les chances de passer du stade intermédiaire au stade tardif fussent moindres, elle augmenterait tout de même son énergie spirituelle et jetterait les bases de son avenir.
 
-Wang Lin réfléchit encore un moment avant de lever les yeux vers le vieil homme, mais il ne dit mot. Il était perplexe. Bien qu'il ne puisse percevoir le niveau de culture du vieil homme, celui-ci avait pu détruire la formation de protection de l'Union Hou Fen d'une seule paume et effrayer des cultivateurs de l'Âme Naissante par un simple rugissement. Il devait soit se trouver au sommet du stade tardif de l'Âme Naissante, soit avoir déjà franchi le stade de la Formation de l'Âme.
+Wang Lin réfléchit encore un moment avant de lever les yeux vers le vieil homme, mais il ne dit mot. Il était perplexe. Bien qu'il ne puisse percevoir le niveau de culture du vieil homme, celui-ci avait pu détruire la formation de protection de l'Union Huo Fen d'une seule paume et effrayer des cultivateurs de l'Âme Naissante par un simple rugissement. Il devait soit se trouver au sommet du stade tardif de l'Âme Naissante, soit avoir déjà franchi le stade de la Formation de l'Âme.
 
 Avec un tel niveau de culture, le vieil homme aurait pu facilement imposer des restrictions à Wang Lin pour le menacer, ou même le transformer en une marionnette asservie à ses moindres ordres. Il ne semblait donc pas nécessaire qu'il cherche à marchander avec lui.
 
@@ -74,7 +74,7 @@ Wang Lin soutint son regard sans dire un mot. Un silence pesant s'installa entre
 
 Wang Lin s'y était préparé; il aurait agi de la même manière s'il avait été à sa place. De plus, si le vieil homme avait voulu lui imposer des restrictions nuisibles, il ne lui aurait pas fallu attendre ce moment précis.
 
-Wang Lin ne bougea pas. Il regarda vers l'Union Hou Fen et dit: « Le junior a encore une chose à accomplir. J'espère que le senior pourra patienter quelques jours de plus. »
+Wang Lin ne bougea pas. Il regarda vers l'Union Huo Fen et dit: « Le junior a encore une chose à accomplir. J'espère que le senior pourra patienter quelques jours de plus. »
 
 Le vieil homme fronça les sourcils en fixant Wang Lin: « De quoi s'agit-il? »
 
@@ -84,9 +84,9 @@ Le vieil homme ricana. « La méthode de culture qui peut augmenter les chances 
 
 L'expression de Wang Lin resta impassible, mais son cœur manqua un battement. Comme il s'en doutait, le Sanctuaire du Dieu de la Guerre ne possédait plus le Sentier Divin originel.
 
-Cependant, il n'allait pas renoncer avant d'être allé vérifier par lui-même. Il s'envola donc vers l'Union Hou Fen. Les yeux du vieil homme s'illuminèrent avant qu'il ne suive Wang Lin avec nonchalance.
+Cependant, il n'allait pas renoncer avant d'être allé vérifier par lui-même. Il s'envola donc vers l'Union Huo Fen. Les yeux du vieil homme s'illuminèrent avant qu'il ne suive Wang Lin avec nonchalance.
 
-Peu de temps après, la montagne de l'Union Hou Fen apparut. Il attendit que le vieil homme soit à ses côtés avant de crier: « Ma Liang salue le senior Feng Luan du Sanctuaire du Dieu de la Guerre! »
+Peu de temps après, la montagne de l'Union Huo Fen apparut. Il attendit que le vieil homme soit à ses côtés avant de crier: « Ma Liang salue le senior Feng Luan du Sanctuaire du Dieu de la Guerre! »
 
 Sa voix tonna à travers la montagne. Bientôt, plusieurs personnes sortirent des hauteurs. Une femme magnifique dirigeait le groupe: c'était Feng Luan.
 

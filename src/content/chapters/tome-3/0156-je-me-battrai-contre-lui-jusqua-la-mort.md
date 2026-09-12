@@ -28,7 +28,7 @@ Le propriétaire original du rouleau étant déjà mort, le sens divin qui y ét
 
 Un intérêt manifeste apparut dans les yeux de Wang Lin. S'il s'était agi d'un trésor ordinaire, il aurait pu l'utiliser librement après avoir effacé le sens divin du précédent propriétaire pour y graver le sien. Tant que ce n'était pas un trésor de niveau Âme Naissante, cela était toujours vrai.
 
-À en juger par les fluctuations d'énergie spirituelle émanant du rouleau, il ne semblait pas s'agir d'un trésor de niveau Âme Naissante. Wang Lin possédait lui-même quelques trésors de ce rang, dont le jade protecteur qui lui avait été confié par Zhou Jin, un cultivateur de l'Âme Naissante lié à Hou Fen.
+À en juger par les fluctuations d'énergie spirituelle émanant du rouleau, il ne semblait pas s'agir d'un trésor de niveau Âme Naissante. Wang Lin possédait lui-même quelques trésors de ce rang, dont le jade protecteur qui lui avait été confié par Zhou Jin, un cultivateur de l'Âme Naissante lié à Huo Fen.
 
 La caractéristique la plus notable des trésors de niveau Âme Naissante était les puissantes fluctuations d'énergie spirituelle qu'ils émettaient. Un trésor de niveau Formation du Noyau ne pouvait jamais rivaliser.
 

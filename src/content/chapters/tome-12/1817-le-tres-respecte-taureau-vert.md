@@ -12,7 +12,7 @@ En observant Wang Lin et le roi moustique qui s'éloignaient au loin, Du Qing af
 
 « Maudit soit, pourquoi suis-je si démuni... Je ne peux vraiment pas... rivaliser! » Du Qing se sentait de plus en plus misérable. Il vola pendant une demi-journée sans parvenir à rattraper Wang Lin.
 
-« Cet homme est un génie des cieux, semblable aux véritables disciples de ces grandes sectes; je ne peux l'égaler... Mais moi, Du Qing, j'ai acquis mon niveau de culture et mes trésors par mes propres efforts. Bien qu'il soit supérieur à moi, je parie que tout ce qu'il possède lui a été offert par ce Grand Empyrean... Humph, il n'a que de la chance. » Ce n'est qu'en pensant cela que Du Qing se sentit un peu mieux.
+« Cet homme est un génie des cieux, semblable aux véritables disciples de ces grandes sectes; je ne peux l'égaler... Mais moi, Du Qing, j'ai acquis mon niveau de culture et mes trésors par mes propres efforts. Bien qu'il soit supérieur à moi, je parie que tout ce qu'il possède lui a été offert par ce Grand Empyrée... Humph, il n'a que de la chance. » Ce n'est qu'en pensant cela que Du Qing se sentit un peu mieux.
 
 S'il avait découvert l'identité et l'origine de Wang Lin, et s'il avait appris les deux mille ans de tribulations que celui-ci avait endurés, son cœur ne serait pas aussi apaisé. Même s'il était né dans le Monde des Grottes avec la chance de Cupidité, il n'aurait jamais pu en sortir comme Wang Lin après deux mille ans!
 
@@ -78,7 +78,7 @@ Les yeux de Wang Lin se rétrécirent; il se souvenait de ce nom.
 
 « Avec mon niveau actuel, je ne suis qualifié que pour être un Ancien extérieur au Grand Secte des Âmes. J'ai un prédécesseur qui est Ancien intérieur. C'est grâce à cette relation et à mon rang d'Ancien extérieur que le Grand Secte des Âmes m'accorde sa protection. »
 
-« Le camarade cultivateur Wang possédant un trésor offert par un Grand Empyrean, vous devez être traité comme un hôte d'honneur. Mais si jamais vous veniez à affecter la principale veine de terre-feu, alors... » Du Qing laissa sa menace en suspens.
+« Le camarade cultivateur Wang possédant un trésor offert par un Grand Empyrée, vous devez être traité comme un hôte d'honneur. Mais si jamais vous veniez à affecter la principale veine de terre-feu, alors... » Du Qing laissa sa menace en suspens.
 
 L'expression de Wang Lin resta imperturbable. Il ne connaissait que deux personnes au Grand Secte des Âmes.
 
@@ -104,7 +104,7 @@ L'expression de Wang Lin resta imperturbable. Il ne connaissait que deux personn
 
 « Qui au monde pourrait n'avoir cultivé que durant deux mille ans et inspirer un tel respect à Yun Yifeng au point qu'il n'ose dégainer son épée... »
 
-« Si une telle personne existait vraiment, elle serait déjà célèbre... Elle aurait pu être acceptée comme disciple par un Grand Empyrean... » Soudain, Du Qing s'interrompit, semblant se souvenir de quelque chose. Il cilla en regardant Wang Lin.
+« Si une telle personne existait vraiment, elle serait déjà célèbre... Elle aurait pu être acceptée comme disciple par un Grand Empyrée... » Soudain, Du Qing s'interrompit, semblant se souvenir de quelque chose. Il cilla en regardant Wang Lin.
 
 Ses pupilles se contractèrent brusquement et une pensée audacieuse traversa son esprit. Cette idée le fit haleter et son regard vers Wang Lin devint empreint d'une immense incertitude.
 

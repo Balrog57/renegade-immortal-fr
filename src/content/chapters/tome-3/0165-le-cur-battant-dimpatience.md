@@ -10,7 +10,7 @@ Le vieil homme grommela: « C’est vraiment ennuyeux! » Il leva froidement les
 
 À moins d'y être contraint, il n'avait aucune envie de se battre avec eux. Ce qui l'irritait le plus, c'était que ce combat n'était même pas pour lui, mais pour un junior avec lequel il n'avait aucun lien, si ce n'est qu'il avait besoin d'utiliser ce gamin.
 
-Les pupilles de Zhao Chuanliang se rétractèrent alors qu'il fixait le vieil homme. Ce simple revers de main du vieillard avait suffi à détruire son attaque. Cela le choqua secrètement. Il avait déjà entendu parler de cet homme par Hou Fen. La raison pour laquelle il avait amené tous les cultivateurs de l'Âme Naissante de la secte était précisément d'empêcher cette personne d'agir.
+Les pupilles de Zhao Chuanliang se rétractèrent alors qu'il fixait le vieil homme. Ce simple revers de main du vieillard avait suffi à détruire son attaque. Cela le choqua secrètement. Il avait déjà entendu parler de cet homme par Huo Fen. La raison pour laquelle il avait amené tous les cultivateurs de l'Âme Naissante de la secte était précisément d'empêcher cette personne d'agir.
 
 Mais il semblait désormais que le niveau de culture de cet individu était bien plus élevé qu'il ne l'avait anticipé. Zhao Chuanliang réfléchit un instant, puis dit: « Senior, cet individu est lié à une affaire cruciale de ma Secte des Cadavres. Je me dois de l'emmener avec moi aujourd'hui. »
 
@@ -56,7 +56,7 @@ Le Huitième Seigneur Démon Extrême ne souhaitant pas offenser la Secte des Ca
 
 Le vieil homme fronça les sourcils et dit lentement: « Cet individu est d'une grande utilité pour moi. Je ne me donnerais pas la peine de le protéger autrement. Vous feriez mieux de partir. Si ce n'était pas pour aujourd'hui, je ne me serais même pas encombré de cela. »
 
-Wang Lin observait froidement la scène. Bien que son expression soit restée impassible lorsque le vieil homme brisa la formation de transfert, son cœur était bouleversé. Ce Huitième Seigneur Démon Extrême avait été capable de briser la formation de protection de la secte Hou Fen d'un seul revers de paume et d'écraser sans effort la formation de transfert de la Secte des Cadavres. Wang Lin s'était interrogé sur le niveau exact de culture de ce vieillard, et il en tira une conclusion qui lui coupa le souffle.
+Wang Lin observait froidement la scène. Bien que son expression soit restée impassible lorsque le vieil homme brisa la formation de transfert, son cœur était bouleversé. Ce Huitième Seigneur Démon Extrême avait été capable de briser la formation de protection de la secte Huo Fen d'un seul revers de paume et d'écraser sans effort la formation de transfert de la Secte des Cadavres. Wang Lin s'était interrogé sur le niveau exact de culture de ce vieillard, et il en tira une conclusion qui lui coupa le souffle.
 
 En vérité, il l'avait pressenti depuis longtemps. Dès que le vieil homme avait commencé à le traquer dans la Mer des Démons, chaque action accomplie témoignait de la puissance phénoménale de sa culture.
 

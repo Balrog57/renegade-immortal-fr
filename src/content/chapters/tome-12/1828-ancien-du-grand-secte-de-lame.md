@@ -3,7 +3,7 @@ n: 1828
 title: "Ancien du Grand Secte de l'Âme!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
-en: "Chapter 1828 - Elder of the Great Soul Sect!"
+en: "Chapter 1828 - Elder of the Great Soul Secte!"
 slug: ancien-du-grand-secte-de-lame
 ---
 Chapitre 1828 - Ancien du Grand Secte de l'Âme!

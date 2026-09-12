@@ -3,7 +3,7 @@ n: 435
 title: Le géant sous la Secte des Cadavres
 book: 5
 bookTitle: Cultivation Planet Crystal
-en: Chapter 435 - The giant under the Corpse Sect
+en: Chapter 435 - The giant under the Corpse Secte
 slug: le-geant-sous-la-secte-des-cadavres
 ---
 

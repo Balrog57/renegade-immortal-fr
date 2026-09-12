@@ -11,13 +11,13 @@ Les yeux de Wang Lin s'illuminèrent. Il déploya son sens divin et balaya les e
 
 Il s'agissait de deux hommes. L'un était assez jeune et n'était qu'au stade initial de l'Établissement des Fondations. L'autre était un homme d'âge moyen, au stade initial de la Formation du Noyau.
 
-Mai Guorong était un disciple de la Secte Hao Ran. Suivant les ordres de son maître, il se rendait à la Secte Cloud Sky pour leur rassemblement bi-annuel Kai-Ling. Ce prétendu rassemblement n'était en réalité qu'une vente aux enchères de pilules organisée par la Secte Cloud Sky.
+Mai Guorong était un disciple de la Secte Hao Ran. Suivant les ordres de son maître, il se rendait à la Secte Ciel Nuageux pour leur rassemblement bi-annuel Kai-Ling. Ce prétendu rassemblement n'était en réalité qu'une vente aux enchères de pilules organisée par la Secte Ciel Nuageux.
 
-La Secte Cloud Sky était célèbre pour sa production de pilules dans le pays de culture Chu. Même certains pays de rang 4 venaient y échanger des ressources, mais cela ne se produisait que tous les dix ans, lors du plus grand rassemblement Kai-Ling. Quant à ces rencontres bi-annuelles, elles étaient principalement destinées aux jeunes générations du pays de culture Chu pour se rencontrer et rivaliser.
+La Secte Ciel Nuageux était célèbre pour sa production de pilules dans le pays de culture Chu. Même certains pays de rang 4 venaient y échanger des ressources, mais cela ne se produisait que tous les dix ans, lors du plus grand rassemblement Kai-Ling. Quant à ces rencontres bi-annuelles, elles étaient principalement destinées aux jeunes générations du pays de culture Chu pour se rencontrer et rivaliser.
 
 Lors de ces petits rassemblements Kai-Ling, on ne trouvait pas de pilules précieuses, seulement des produits standards. Cependant, pour ces jeunes cultivateurs, cela restait une aubaine dont ils ne se lassaient jamais.
 
-Il faut dire qu'une pilule fabriquée par la Secte Cloud Sky était au moins 10 % supérieure à celles des autres. Par conséquent, la demande pour leurs produits était immense. De plus, la Secte Cloud Sky ne commerçait avec l'extérieur que lors de ces rassemblements Kai-Ling. Ainsi, bien qu'il n'y ait que deux ans d'intervalle entre chaque événement, toutes les sectes du pays de culture Zhao envoyaient de nombreux jeunes disciples.
+Il faut dire qu'une pilule fabriquée par la Secte Ciel Nuageux était au moins 10 % supérieure à celles des autres. Par conséquent, la demande pour leurs produits était immense. De plus, la Secte Ciel Nuageux ne commerçait avec l'extérieur que lors de ces rassemblements Kai-Ling. Ainsi, bien qu'il n'y ait que deux ans d'intervalle entre chaque événement, toutes les sectes du pays de culture Zhao envoyaient de nombreux jeunes disciples.
 
 Mai Guorong était très fier d'avoir été choisi parmi les innombrables disciples de la secte, mais il savait aussi que s'il pouvait participer, c'était grâce à son excellent maître.
 
@@ -25,11 +25,11 @@ En y pensant, le regard de Mai Guorong se posa sur l'homme d'âge moyen qui le p
 
 Il faut dire qu'être pris comme disciple par un cultivateur de la Formation du Noyau était très rare, même au sein de la Secte Hao Ran. Le statut de Mai Guorong avait immédiatement grimpé, faisant de lui instantanément un disciple interne. Bien qu'il ne soit pas encore un disciple central, si sa culture augmentait encore un peu pour atteindre le stade avancé de l'Établissement des Fondations, il deviendrait automatiquement un disciple central.
 
-Ce qui lui inspirait également un grand respect envers son maître, c'était que celui-ci était l'un des rares alchimistes de la secte. Bien que les pilules qu'il fabriquait ne fussent pas aussi excellentes que celles de la Secte Cloud Sky, elles n'en demeuraient pas moins proches. En conséquence, le statut de son maître était très élevé au sein de la secte et, par extension, celui de Mai Guorong progressait également.
+Ce qui lui inspirait également un grand respect envers son maître, c'était que celui-ci était l'un des rares alchimistes de la secte. Bien que les pilules qu'il fabriquait ne fussent pas aussi excellentes que celles de la Secte Ciel Nuageux, elles n'en demeuraient pas moins proches. En conséquence, le statut de son maître était très élevé au sein de la secte et, par extension, celui de Mai Guorong progressait également.
 
-« Garde ton calme et ne laisse pas tes pensées vagabonder. Nous sommes très proches de la Secte Cloud Sky. Ne fais pas honte à la Secte Hao Ran. » Cette voix rauque interrompit les réflexions de Mai Guorong. Il cessa de rêvasser et suivit attentivement son maître.
+« Garde ton calme et ne laisse pas tes pensées vagabonder. Nous sommes très proches de la Secte Ciel Nuageux. Ne fais pas honte à la Secte Hao Ran. » Cette voix rauque interrompit les réflexions de Mai Guorong. Il cessa de rêvasser et suivit attentivement son maître.
 
-Après un moment, Mai Guorong regarda son maître et demanda avec curiosité: « Maître, la Secte Cloud Sky... »
+Après un moment, Mai Guorong regarda son maître et demanda avec curiosité: « Maître, la Secte Ciel Nuageux... »
 
 Avant qu'il ne puisse terminer sa phrase, il vit l'expression de l'homme au visage jaune changer soudainement. Ce dernier s'arrêta brusquement et se retourna, les yeux fixés sur quelque chose au loin. Il cria: « Silence! »
 
@@ -59,17 +59,17 @@ Ce geste fit brusquement changer l'expression de Xu Li. Il saisit rapidement son
 
 Wang Lin le regarda. Il ouvrit la main pour en sortir un morceau de jade. En plaçant le jade contre son front, une carte apparut dans son esprit. C'était le morceau de jade qu'il avait obtenu de Zhou Zihong au Temple du Dieu de la Guerre; il contenait la carte des pays situés près du pays de Huo Fen.
 
-En entendant le nom de Chu, il eut l'impression de l'avoir déjà entendu quelque part. Après avoir consulté le jade, il situa immédiatement sa position approximative. Le pays de Chu partageait une frontière avec Hou Fen au nord et Xuan Wu à l'est, et possédait même une petite frontière avec la Mer des Démons. Pour le reste, il y avait une chaîne de montagnes appelée les Roches Brisées.
+En entendant le nom de Chu, il eut l'impression de l'avoir déjà entendu quelque part. Après avoir consulté le jade, il situa immédiatement sa position approximative. Le pays de Chu partageait une frontière avec Huo Fen au nord et Xuan Wu à l'est, et possédait même une petite frontière avec la Mer des Démons. Pour le reste, il y avait une chaîne de montagnes appelée les Roches Brisées.
 
-On pouvait dire que le pays de culture Chu était très proche de cette chaîne de montagne. Selon les descriptions du jade, ce pays était vaste et abritait de nombreux cultivateurs. En tant que nation de culture, Chu était sur le point d'accéder au rang 4. Cela s'expliquait par la présence de plus de dix personnes au stade avancé de l'Âme Naissante; ces puissants cultivateurs constituaient le cœur du pays. Dès que l'un d'eux parviendrait au stade de la Formation de l'Âme, le pays entier serait élevé au rang 4. C'est d'ailleurs pour cette raison que lorsque Hou Fen passa au 4e rang, ils choisirent d'envahir Xuan Wu plutôt que Chu. Après tout, comparé à Chu, Xuan Wu était un choix bien plus opportun.
+On pouvait dire que le pays de culture Chu était très proche de cette chaîne de montagne. Selon les descriptions du jade, ce pays était vaste et abritait de nombreux cultivateurs. En tant que nation de culture, Chu était sur le point d'accéder au rang 4. Cela s'expliquait par la présence de plus de dix personnes au stade avancé de l'Âme Naissante; ces puissants cultivateurs constituaient le cœur du pays. Dès que l'un d'eux parviendrait au stade de la Formation de l'Âme, le pays entier serait élevé au rang 4. C'est d'ailleurs pour cette raison que lorsque Huo Fen passa au 4e rang, ils choisirent d'envahir Xuan Wu plutôt que Chu. Après tout, comparé à Chu, Xuan Wu était un choix bien plus opportun.
 
 Le jade contenait également des informations sur certaines sectes du pays de Chu. Wang Lin l'examina un instant, puis le rangea. Il regarda Xu Li et demanda: « Collègue cultivateur, dans quelle partie de Chu nous trouvons-nous? »
 
-Xu Li garda la main sur son sac de rangement, extrêmement vigilant. En entendant la question, il réfléchit un instant avant de répondre: « Nous sommes dans la chaîne de montagnes Cloud Sky! »
+Xu Li garda la main sur son sac de rangement, extrêmement vigilant. En entendant la question, il réfléchit un instant avant de répondre: « Nous sommes dans la chaîne de montagnes Ciel Nuageux! »
 
-Wang Lin hocha la tête. Il scruta l'horizon et dit d'un ton neutre: « Ainsi, si je continue sur 5 000 kilomètres, au sommet de la chaîne de montagnes Cloud Sky, se trouve la Secte Cloud Sky? »
+Wang Lin hocha la tête. Il scruta l'horizon et dit d'un ton neutre: « Ainsi, si je continue sur 5 000 kilomètres, au sommet de la chaîne de montagnes Ciel Nuageux, se trouve la Secte Ciel Nuageux? »
 
-Les yeux de Xu Li trahirent un choc immense. Il demanda: « Monsieur a-t-il des affaires avec la Secte Cloud Sky? »
+Les yeux de Xu Li trahirent un choc immense. Il demanda: « Monsieur a-t-il des affaires avec la Secte Ciel Nuageux? »
 
 Wang Lin esquissa un mince sourire. Il regarda Xu Li et joignit les mains. « Merci. Adieu! » dit-il. Sur ces mots, Wang Lin s'élança rapidement, ne laissant derrière lui qu'une traînée de lumière avant de disparaître.
 
@@ -89,9 +89,9 @@ Xu Li réfléchit un instant, puis acquiesça: « Bien qu'il ne soit pas au stad
 
 Mai Guorong hocha vigoureusement la tête. Même si Xu Li n'avait rien dit, il n'aurait pas osé parler du redoutable cultivateur qu'ils venaient de croiser; l'impression laissée par cet homme était trop terrifiante pour risquer de tels ennuis.
 
-Quant à Wang Lin, une fois sa position déterminée, il s'élança en balayant les environs de son sens divin. Selon la carte, la Secte Cloud Sky devait se trouver juste devant. Il hocha la tête, satisfait que ce duo maître-disciple ne lui ait pas menti. Lorsqu'il fut à proximité de sa destination, il s'arrêta. Puisque la secte était proche, il décida de trouver un endroit pour s'isoler en culture.
+Quant à Wang Lin, une fois sa position déterminée, il s'élança en balayant les environs de son sens divin. Selon la carte, la Secte Ciel Nuageux devait se trouver juste devant. Il hocha la tête, satisfait que ce duo maître-disciple ne lui ait pas menti. Lorsqu'il fut à proximité de sa destination, il s'arrêta. Puisque la secte était proche, il décida de trouver un endroit pour s'isoler en culture.
 
-Il s'arrêta sur un versant montagneux, à environ 7 000 ou 8 000 kilomètres de la Secte Cloud Sky. Après avoir inspecté les lieux, il tapa sur son sac de rangement et une épée volante en sortit. Il la projeta contre le flanc de la montagne.
+Il s'arrêta sur un versant montagneux, à environ 7 000 ou 8 000 kilomètres de la Secte Ciel Nuageux. Après avoir inspecté les lieux, il tapa sur son sac de rangement et une épée volante en sortit. Il la projeta contre le flanc de la montagne.
 
 Bientôt, une grotte fut creusée dans la paroi de la falaise. Elle fut aménagée selon ses préférences avec deux pièces. Une fois à l'intérieur, Wang Lin réfléchit un instant puis ouvrit la seconde pièce. Après avoir terminé ses préparatifs, il sortit de la grotte et fit sortir son drapeau de restriction de son sac de rangement. Ses mains formèrent des sceaux qu'il pointa vers le drapeau. Celui-ci commença à onduler sans vent et grandit dix fois.
 
@@ -127,7 +127,7 @@ Cette technique consistait à créer un second corps réel, un double. L'idée �
 
 De cette manière, il n'aurait pas besoin de détruire sa culture pour évoluer. Le défi majeur résidait dans la capacité de l'avatar à atteindre l'Âme Naissante en seulement trente ans. Grâce à l'Espace de Rébellion Céleste, le temps pouvait être dilaté. Avec le multiplicateur de six fois la vitesse normale, Wang Lin disposait en réalité de 180 ans pour son avatar.
 
-Mais un autre problème crucial subsistait: les pilules! Ce problème serait résolu à la Secte Cloud Sky. C'est d'ailleurs pour cette raison qu'il avait choisi de s'isoler ici dès qu'il apprit que la secte était proche.
+Mais un autre problème crucial subsistait: les pilules! Ce problème serait résolu à la Secte Ciel Nuageux. C'est d'ailleurs pour cette raison qu'il avait choisi de s'isoler ici dès qu'il apprit que la secte était proche.
 
 L'expression de Wang Lin restait sereine. Devant lui reposaient trois fioles blanches remplies du liquide recueilli auprès de la perle de rébellion céleste durant l'année écoulée. Ce liquide constituerait le premier présent offert à son avatar.
 

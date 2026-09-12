@@ -1,6 +1,6 @@
 ---
 n: 1130
-title: Les Huit Rois du Secte des Cadavres
+title: Les Huit Rois de la Secte des Cadavres
 book: 8
 bookTitle: "Alliance's Secret"
 en: Chapter 1130 - Corpse Sects Eight Kings

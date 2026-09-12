@@ -72,7 +72,7 @@ La grande restriction perdit instantanément son équilibre, provoquant l'inclin
 
 Tandis qu'il orchestrait ce chaos, Wang Lin ne marqua aucun temps d'arrêt et s'élança vers l'horizon. La femme qui le poursuivait serra les dents; renonçant à sa traque, elle retourna précipitamment vers la grande restriction pour tenter de la renforcer.
 
-Wang Lin quitta la cour ouest sans plus d'entraves, tout en sachant que les cultivateurs du stade intermédiaire de l'Âme Naissante de la Secte Cloud Sky arriveraient bientôt.
+Wang Lin quitta la cour ouest sans plus d'entraves, tout en sachant que les cultivateurs du stade intermédiaire de l'Âme Naissante de la Secte Ciel Nuageux arriveraient bientôt.
 
 C'est alors qu'un Sens Divin extrêmement puissant émana du lointain. En dépassant Wang Lin, ce sentiment divin laissa échapper un ricanement méprisant. Wang Lin resta impassible. Si n'importe qui d'autre avait été ainsi frappé, son âme en aurait été endommagée, mais celle de Wang Lin était d'une ampleur prodigieuse. Si son âme sortait de son corps, elle ne serait pas moins puissante que l'âme des cultivateurs du stade de la Tranchée Spirituelle. Bien qu'elle soit actuellement confinée dans son enveloppe charnelle, comment pourrait-elle être affectée par un simple cultivateur de l'Âme Naissante?
 
@@ -88,17 +88,17 @@ Le corps principal de Wang Lin était déjà revenu à la grotte située à l'ex
 
 Pendant ce temps, dans la cour où résidait Wang Lin, son avatar émergea d'un cercle de restriction à l'intérieur de la pièce. Après s'être rapidement rafraîchi, il s'assit pour cultiver.
 
-L'affaire fut classée. Au cours des quinze jours suivants, le récit de l'acte du corps principal de Wang Lin se répandit dans toute la secte, décliné en de multiples versions. Il faut dire que la Secte Cloud Sky n'avait pas connu un tel incident depuis longtemps: un individu s'était introduit en plein jour, avait commis un meurtre et s'était volatilisé sous leurs yeux. C'était une véritable insulte faite à l'honneur de la secte.
+L'affaire fut classée. Au cours des quinze jours suivants, le récit de l'acte du corps principal de Wang Lin se répandit dans toute la secte, décliné en de multiples versions. Il faut dire que la Secte Ciel Nuageux n'avait pas connu un tel incident depuis longtemps: un individu s'était introduit en plein jour, avait commis un meurtre et s'était volatilisé sous leurs yeux. C'était une véritable insulte faite à l'honneur de la secte.
 
 Cela alerta même les quelques ancêtres de l'Âme Naissante qui se préparaient au stade de la Tranchée Spirituelle. En venant enquêter, ils découvrirent que les deux victimes étaient Gongsun Tong et Cheng Ling.
 
 Tous les proches des défunts, tels que Cheng Xian et Lu Song, furent interrogés. Même Wang Lin fut soumis à un examen. Finalement, un cultivateur de l'Âme Naissante utilisa son Sens Divin pour vérifier si Wang Lin mentait. Cependant, comme l'âme de Wang Lin était bien plus vaste que la sienne, il ne put rien déceler. Pour une raison inconnue, l'affaire fut abandonnée.
 
-Quant à Li Muwan, elle ne fut impliquée dans rien. Tout cela était l'œuvre de son frère aîné. Ses stratagèmes étaient d'une profondeur abyssale. Il savait que le responsable était un ami de Li Muwan et la technique de cet individu l'effrayait. Même trois cultivateurs de l'Âme Naissante n'avaient pu empêcher cette personne de circuler à sa guise dans la Secte Cloud Sky. Dès lors, comment oserait-il parler? S'il ouvrait la bouche, cet individu réapparaîtrait sans être remarqué pour l'exécuter.
+Quant à Li Muwan, elle ne fut impliquée dans rien. Tout cela était l'œuvre de son frère aîné. Ses stratagèmes étaient d'une profondeur abyssale. Il savait que le responsable était un ami de Li Muwan et la technique de cet individu l'effrayait. Même trois cultivateurs de l'Âme Naissante n'avaient pu empêcher cette personne de circuler à sa guise dans la Secte Ciel Nuageux. Dès lors, comment oserait-il parler? S'il ouvrait la bouche, cet individu réapparaîtrait sans être remarqué pour l'exécuter.
 
 La vie de Wang Lin retrouva son calme, mais dans son esprit, le sourire triste de Li Muwan ne cessait de ressurgir. Chaque fois qu'elle lui apparaissait ainsi, il avait l'impression que son cœur était transpercé.
 
-Ce sentiment atteignit son paroxysme lorsque la Secte Cloud Sky annonça à tout le pays de Chu que l'une des trois alchimistes de rang 5, Li Muwan, formerait un couple de culture avec Sun Zhanwei, le fils de l'Ancien de la secte extérieure, dans deux mois.
+Ce sentiment atteignit son paroxysme lorsque la Secte Ciel Nuageux annonça à tout le pays de Chu que l'une des trois alchimistes de rang 5, Li Muwan, formerait un couple de culture avec Sun Zhanwei, le fils de l'Ancien de la secte extérieure, dans deux mois.
 
 Wang Lin restait assis tranquillement dans sa chambre. Après une journée et une nuit de réflexion, il poussa un soupir et son regard se fit déterminé. Une lueur froide traversa ses yeux alors qu'il se levait pour marcher vers la cour sud.
 
@@ -120,4 +120,4 @@ Wang Lin regarda Li Muwan et soupira. Il posa la main sur son sac de rangement e
 
 À l'instant où le jade apparut, les forces de Li Muwan l'abandonnèrent. Après avoir saisi le précieux objet, elle s'appuya contre le mur tandis que des larmes de joie inondaient son visage.
 
-« Tuer Sun Zhanwei est une tâche facile, mais cela devra attendre que mon niveau de culture soit assez élevé pour garantir que personne dans la Secte Cloud Sky n'ose réagir. Lorsque j'atteindrai le stade de l'Âme Naissante, je pourrai t'emmener n'importe où dans le pays de Chu et nul n'osera se dresser sur notre chemin. » La voix de Wang Lin était monocorde, mais ses paroles étaient empreintes d'une arrogance absolue.
+« Tuer Sun Zhanwei est une tâche facile, mais cela devra attendre que mon niveau de culture soit assez élevé pour garantir que personne dans la Secte Ciel Nuageux n'ose réagir. Lorsque j'atteindrai le stade de l'Âme Naissante, je pourrai t'emmener n'importe où dans le pays de Chu et nul n'osera se dresser sur notre chemin. » La voix de Wang Lin était monocorde, mais ses paroles étaient empreintes d'une arrogance absolue.

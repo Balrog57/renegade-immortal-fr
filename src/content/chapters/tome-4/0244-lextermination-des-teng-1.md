@@ -60,7 +60,7 @@ Il les observa encore un moment avant de les ranger. Il frappa ensuite le sac de
 
 Wang Lin soupira. Après avoir déployé tant d'efforts pour ouvrir ce sac, n'y trouver qu'une telle chose le laissait perplexe: ne savait-il pas s'il devait s'en réjouir ou se sentir impuissant?
 
-Il hésita, puis reporta son attention sur les deux autres sacs de rangement. L'un appartenait au mystérieux momie du temple de bataille de Hou Fen.
+Il hésita, puis reporta son attention sur les deux autres sacs de rangement. L'un appartenait au mystérieux momie du temple de bataille de Huo Fen.
 
 L'autre contenait plus d'une dizaine de trésors magiques appartenant aux anciens cultivateurs de la terre des Dieux Anciens. Cependant, ils étaient trop puissants. Wang Lin avait tenté tout ce qu'il pouvait, mais il n'était parvenu qu'à prendre le contrôle du miroir de bronze.
 
@@ -78,7 +78,7 @@ Le jeune homme s'arrêta brusquement. Il leva la tête et, le regard glacial, il
 
 Les pensées de Wang Lin devinrent chaotiques. Il hésita un instant, les yeux durcis par la froideur. Bien qu'il ne puisse percevoir le niveau de culture du jeune homme, une telle vitesse indiquait que celui-ci était bien au-dessus de lui.
 
-Wang Lin remarqua surtout que la terre sur laquelle ce jeune homme planait était la Mer des Démons. Il était évident que cet être maléfique était la momie de Hou Fen. Puisque Wang Lin avait pris son sac, il était venu le réclamer.
+Wang Lin remarqua surtout que la terre sur laquelle ce jeune homme planait était la Mer des Démons. Il était évident que cet être maléfique était la momie de Huo Fen. Puisque Wang Lin avait pris son sac, il était venu le réclamer.
 
 Si l'individu n'avait pas manifesté d'intention meurtrière, Wang Lin n'aurait pas hésité à lui rendre le sac. Mais puisque celui-ci dégageait une volonté de tuer si puissante, cela signifiait que même s'il rendait le trésor, il ne serait pas épargné.
 

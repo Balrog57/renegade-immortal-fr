@@ -74,7 +74,7 @@ Le visage de Maître Zhong Xuan devint livide et il recula instinctivement de qu
 
 « Toi!! » Maître Long Pan fixa Maître Zhong Xuan, et le regret dans ses yeux se fit plus intense. En réalité, il n'avait rien trouvé de notable dans la mémoire de l'ancien; tout ce qu'il avait fait n'était que pour effrayer Maître Zhong Xuan. Ce dernier, ignorant cela, avait tout déballé sous l'effet de la terreur.
 
-« Peu importe l'âpreté des combats dans le Royaume Intérieur, cela n'a rien à voir avec le Royaume Extérieur. Tant qu'ils ne pénètrent pas ici, ce vieil homme ne s'éveillera pas. L'ascension ou la chute de l'Alliance appartient au destin. Si je vous ai permis de fonder cette Alliance, ce n'était pas pour contrôler le Brilliant Void, mais pour permettre à nos cultivateurs de se renforcer dans cet environnement cruel! Tout cela était en vue de la guerre contre le Royaume Extérieur! » Maître Long Pan soupira.
+« Peu importe l'âpreté des combats dans le Royaume Intérieur, cela n'a rien à voir avec le Royaume Extérieur. Tant qu'ils ne pénètrent pas ici, ce vieil homme ne s'éveillera pas. L'ascension ou la chute de l'Alliance appartient au destin. Si je vous ai permis de fonder cette Alliance, ce n'était pas pour contrôler le Vide Brillant, mais pour permettre à nos cultivateurs de se renforcer dans cet environnement cruel! Tout cela était en vue de la guerre contre le Royaume Extérieur! » Maître Long Pan soupira.
 
 « Une Alliance des Cultivateurs, une Alliance des Cultivateurs... La seule raison pour laquelle le Royaume Extérieur a conclu un marché avec vous est qu'ils m'ont vu à l'intérieur de cette planète. Et vous leur avez révélé mon existence en échange d'une grande fortune! »
 

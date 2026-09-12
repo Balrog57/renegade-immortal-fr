@@ -28,23 +28,23 @@ La vision de Wang Lin se brouilla. Lorsqu'il retrouva la vue, il perdit le contr
 
 Le palais n'avait pas libéré de lumière dorée, ce qui signifiait qu'il avait échoué au premier niveau!
 
-Ce spectacle fut observé par tous les Empyrean Exalts environnants, qui furent frappés de stupeur. Ceux qui avaient combattu Wang Lin étaient remplis d'incrédulité.
+Ce spectacle fut observé par tous les Exaltés Empyréens environnants, qui furent frappés de stupeur. Ceux qui avaient combattu Wang Lin étaient remplis d'incrédulité.
 
 « Il ne peut même pas franchir le premier niveau... Cet homme... »
 
-« Il est très rare qu'un Empyrean Exalt échoue au premier niveau. Aujourd'hui, j'en vois un. »
+« Il est très rare qu'un Exalté Empyréen échoue au premier niveau. Aujourd'hui, j'en vois un. »
 
 « Cela ne devrait pas arriver. La puissance de combat de ce Wang Lin est immense. Comment a-t-il pu échouer dès le départ? »
 
-À cet instant, tous les Empyrean Exalts aux alentours fixaient Wang Lin. Leurs regards oscillaient entre la surprise, le mépris et l'indifférence.
+À cet instant, tous les Exaltés Empyréens aux alentours fixaient Wang Lin. Leurs regards oscillaient entre la surprise, le mépris et l'indifférence.
 
 Chacun ici avait franchi le premier niveau avec une facilité déconcertante; voir Wang Lin échouer ne pouvait qu'attiser leur condescendance. Même s'ils ne le montraient pas ouvertement, elle était palpable.
 
-L'Empyrean Exalt Zhu Lin observa Wang Lin, puis ferma les yeux.
+L'Exalté Empyréen Zhu Lin observa Wang Lin, puis ferma les yeux.
 
 Wang Lin médita en silence face au palais noir qui se dressait devant lui, puis une lueur de froideur traversa son regard. Il se mua en un rayon de lumière et fonça vers le palais.
 
-La plupart des cultivateurs Empyrean Exalts virent son geste et secouèrent la tête.
+La plupart des cultivateurs Exaltés Empyréens virent son geste et secouèrent la tête.
 
 « Après un échec, il est rare de réussir la seconde tentative. Plutôt que de perdre son temps ici, mieux vaut partir et se consacrer à sa culture. »
 
@@ -62,19 +62,19 @@ Un seul fracas tonitruant retentit, mais son écho fut infini. Les neuf planète
 
 Alors que les planètes se brisaient, une lumière dorée infinie se propagea. Cette clarté inonda le système stellaire et jaillit du premier palais.
 
-Les Empyrean Exalts qui observaient de l'extérieur furent attirés par cette lumière et échangèrent des regards étranges. Ils virent un cultivateur aux cheveux blancs jaillir du sommet du palais et s'élancer vers le second palais situé au-dessus à une vitesse vertigineuse!
+Les Exaltés Empyréens qui observaient de l'extérieur furent attirés par cette lumière et échangèrent des regards étranges. Ils virent un cultivateur aux cheveux blancs jaillir du sommet du palais et s'élancer vers le second palais situé au-dessus à une vitesse vertigineuse!
 
 « Il a réussi? »
 
-« Cet Empyrean Exalt aux cheveux blancs est plutôt intéressant. »
+« Cet Exalté Empyréen aux cheveux blancs est plutôt intéressant. »
 
 « La première fois était un échec, la seconde doit être de la chance. Cependant, la chance ne vous aidera pas pour le second palais, seule la force compte! »
 
-Les Empyrean Exalts environnants commençaient à s'intéresser à la scène quand une lumière dorée éclatante jaillit du second palais!!
+Les Exaltés Empyréens environnants commençaient à s'intéresser à la scène quand une lumière dorée éclatante jaillit du second palais!!
 
 La lueur du premier palais n'avait même pas encore disparu que celle du second surgissait déjà. L'entrelacement des lumières dorées des deux palais illumina presque tout le continent!
 
-Cette scène soudaine choqua certains de ces Empyrean Exalts froids et orgueilleux.
+Cette scène soudaine choqua certains de ces Exaltés Empyréens froids et orgueilleux.
 
 « Hein? »
 
@@ -84,7 +84,7 @@ Cette scène soudaine choqua certains de ces Empyrean Exalts froids et orgueille
 
 La silhouette de Wang Lin surgit du second palais dans un éclat de lumière dorée. Sans hésiter, il chargea vers le troisième palais.
 
-Ses actions captèrent l'attention d'un nombre croissant d'Empyrean Exalts. La plupart se trouvaient déjà au niveau du troisième palais et, voyant son échec initial, doutaient de sa capacité à progresser.
+Ses actions captèrent l'attention d'un nombre croissant d'Exaltés Empyréens. La plupart se trouvaient déjà au niveau du troisième palais et, voyant son échec initial, doutaient de sa capacité à progresser.
 
 « Au troisième palais, en plus de fusionner 27 sorts dans votre corps, il y a une planète dorée parmi elles. Cette planète est la clé! »
 
@@ -92,13 +92,13 @@ Ses actions captèrent l'attention d'un nombre croissant d'Empyrean Exalts. La p
 
 « Il lui sera difficile de franchir le troisième niveau! »
 
-Plus de la moitié des deux cents Empyrean Exalts se tournèrent vers la scène. Alors qu'ils pressentaient le résultat, des cris de stupeur s'élevèrent parmi les cultivateurs.
+Plus de la moitié des deux cents Exaltés Empyréens se tournèrent vers la scène. Alors qu'ils pressentaient le résultat, des cris de stupeur s'élevèrent parmi les cultivateurs.
 
 Tous virent le troisième palais briller intensément peu après l'entrée de Wang Lin!!
 
 À cet instant, les lumières dorées du premier et du second palais n'avaient pas encore été dissipées. La lumière du troisième palais s'éleva et se connecta aux autres, tel un long dragon déployant lentement son corps.
 
-La luminosité était monstrueuse. En enveloppant la zone, elle fit briller les yeux des Empyrean Exalts en contrebas.
+La luminosité était monstrueuse. En enveloppant la zone, elle fit briller les yeux des Exaltés Empyréens en contrebas.
 
 « Réussi! »
 
@@ -114,11 +114,11 @@ Wang Lin jaillit du troisième palais et leva les yeux vers le quatrième. Sous 
 
 En un éclair, il disparut dans le quatrième palais.
 
-Même l'Empyrean Exalt Zhu Lin ouvrit les yeux et fixa le quatrième palais. Non seulement lui, mais presque tout le monde était aux aguets.
+Même l'Exalté Empyréen Zhu Lin ouvrit les yeux et fixa le quatrième palais. Non seulement lui, mais presque tout le monde était aux aguets.
 
-Le quatrième palais constituait un seuil redoutable pour les Empyrean Exalts. Moins de deux cents personnes avaient réussi à le franchir; la plupart s'étaient arrêtées là!
+Le quatrième palais constituait un seuil redoutable pour les Exaltés Empyréens. Moins de deux cents personnes avaient réussi à le franchir; la plupart s'étaient arrêtées là!
 
-Par conséquent, les prouesses de Wang Lin attiraient tous les regards. Ceux qui pouvaient surmonter le quatrième niveau étaient considérés comme d'élite parmi les Empyrean Exalts!
+Par conséquent, les prouesses de Wang Lin attiraient tous les regards. Ceux qui pouvaient surmonter le quatrième niveau étaient considérés comme d'élite parmi les Exaltés Empyréens!
 
 Le temps passa lentement. Un souffle, deux souffles...
 
@@ -132,9 +132,9 @@ Dès son apparition, cette lumière connecta parfaitement les quatre palais entr
 
 « Il a franchi le quatrième niveau!! »
 
-« Il a réellement passé le quatrième niveau! Sa force est exceptionnelle, même parmi les Empyrean Exalts! »
+« Il a réellement passé le quatrième niveau! Sa force est exceptionnelle, même parmi les Exaltés Empyréens! »
 
-Les pupilles de l'Empyrean Exalt Zhu Lin se contractèrent alors qu'il fixait la silhouette sortant du quatrième palais. Il se sentit menacé par cette présence.
+Les pupilles de l'Exalté Empyréen Zhu Lin se contractèrent alors qu'il fixait la silhouette sortant du quatrième palais. Il se sentit menacé par cette présence.
 
 Dans le ciel, Wang Lin se tenait au cœur de la lumière dorée entourant le quatrième palais et leva les yeux vers le cinquième. Son regard s'anima.
 

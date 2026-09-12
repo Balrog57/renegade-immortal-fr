@@ -96,7 +96,7 @@ Cette tempête était assez puissante pour détruire un système stellaire, et p
 
 Tandis que des grondements tonitruants résonnaient, la tempête dorée percuta la Formation de Scellement du Royaume et explosa vers l'extérieur. Une force destructrice surgit soudainement!
 
-Les visages des cultivateurs de la Rivière Invoquée, d'Allheaven et de Cloud Sea pâlirent. Les yeux du Maître Hong Shan et de ses compagnons devinrent rouges. Ils utilisèrent désespérément leurs sorts pour déplacer de force ces dizaines de milliers de cultivateurs. En un clin d'œil, plus aucun cultivateur du Royaume Intérieur ne resta sur ce champ de bataille!
+Les visages des cultivateurs de la Rivière Invoquée, d'Allheaven et de Mer de Nuages pâlirent. Les yeux du Maître Hong Shan et de ses compagnons devinrent rouges. Ils utilisèrent désespérément leurs sorts pour déplacer de force ces dizaines de milliers de cultivateurs. En un clin d'œil, plus aucun cultivateur du Royaume Intérieur ne resta sur ce champ de bataille!
 
 Tous les cultivateurs du Royaume Intérieur furent évacués par le Maître Hong Shan et ses pairs. Même eux disparurent en un instant.
 

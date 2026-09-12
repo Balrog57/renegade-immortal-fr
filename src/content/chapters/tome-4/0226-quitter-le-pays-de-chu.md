@@ -8,7 +8,7 @@ slug: quitter-le-pays-de-chu
 ---
 L'un des vieux hommes agita ses manches sans dire un mot. Soudain, d'innombrables nuages sombres apparurent dans le ciel. Si l'on regardait attentivement les nuages, on remarquerait qu'ils étaient composés d'insectes de la taille du pouce. Tous ces insectes rassemblés ensemble faisaient sentir une odeur de poisson dans le vent.
 
-Les cultivateurs de l'Âme Naissante des autres sectes reconnurent immédiatement ce nuage noir comme l'un des trésors célèbres de Cheng Bailiang, un ancêtre de la Secte Cloud Sky: les Insectes d'Encre Violette.
+Les cultivateurs de l'Âme Naissante des autres sectes reconnurent immédiatement ce nuage noir comme l'un des trésors célèbres de Cheng Bailiang, un ancêtre de la Secte Ciel Nuageux: les Insectes d'Encre Violette.
 
 Non seulement les Insectes d'Encre Violette contenaient un poison extrêmement mortel, mais leur carapace était également très épaisse. Les trésors ordinaires ne pourraient pas les blesser. Une fois entourés par eux, il ne leur faudrait que quelques respirations pour être complètement dévorés. Il ne resterait même pas vos os.
 
@@ -16,11 +16,11 @@ De plus, même si un cultivateur parvenait à les éviter, dès qu'un seul insec
 
 Il faut dire que les cent premiers poisons sont presque tous éteints; le simple fait de mentionner les Insectes d'Encre Violette suffisait à faire pâlir les gens.
 
-Lorsque les pays de rang 4 visitaient la Secte Cloud Sky, ils suppliaient pour obtenir quelques Insectes d'Encre Violette. Ces insectes étaient des trésors rares, même dans les pays de rang 4.
+Lorsque les pays de rang 4 visitaient la Secte Ciel Nuageux, ils suppliaient pour obtenir quelques Insectes d'Encre Violette. Ces insectes étaient des trésors rares, même dans les pays de rang 4.
 
 Au moment où les nuages noirs apparurent, Wang Lin jeta Liu Fei sur le côté. Il frappa son sac de rangement et serra le drapeau de restriction dans sa main. Sous le contrôle de Wang Lin, le drapeau grandit et l'entoura ainsi que Li Muwan.
 
-Simultanément, le Domaine Ji de Wang Lin se manifesta. La puissante pression revint, faisant changer soudainement l'expression des cinq ancêtres de la Secte Cloud Sky. Ils sortirent rapidement divers trésors pour se protéger.
+Simultanément, le Domaine Ji de Wang Lin se manifesta. La puissante pression revint, faisant changer soudainement l'expression des cinq ancêtres de la Secte Ciel Nuageux. Ils sortirent rapidement divers trésors pour se protéger.
 
 Le Domaine Ji lança un éclair rouge qui perça les nuages noirs et chargea vers le front de Cheng Bailiang.
 
@@ -52,7 +52,7 @@ Des rayons de lumière de restriction brillaient constamment à l'intérieur. Pe
 
 Le visage de Cheng Bailiang était pâle. Il fixa Wang Lin et dit mot pour mot: « Qui êtes-vous? Avec une telle capacité, je ne pense pas que vous fassiez cela pour une simple alchimiste. Veuillez nous révéler votre but. »
 
-Wang Lin répondit calmement: « Je veux la Secte Cloud Sky! »
+Wang Lin répondit calmement: « Je veux la Secte Ciel Nuageux! »
 
 Cheng Bailiang laissa échapper un rire hystérique. Il dit d'un ton moqueur: « Vous êtes trop arrogant. Même si nous cinq ne pouvons pas résister à votre trésor d'éclair rouge, si nous faisons équipe, nous pourrons encore vous blesser sérieusement... »
 
@@ -100,7 +100,7 @@ Les yeux de Wang Lin brillèrent et il répondit doucement: « Je n'ai aucune ra
 
 Sur ces mots, Wang Lin pointa son front, et le démon Xu Liguo ainsi que le second démon apparurent. Une fois sortis, les deux démons tournèrent leurs regards vers les trois cultivateurs de l'Âme Naissante.
 
-Au même moment, Cheng Bailiang, qui tentait de cultiver au sol, s'écroula. Un ancêtre de la Secte Cloud Sky venait de mourir.
+Au même moment, Cheng Bailiang, qui tentait de cultiver au sol, s'écroula. Un ancêtre de la Secte Ciel Nuageux venait de mourir.
 
 À sa mort, le visage des trois survivants se décomposa. L'un des ancêtres hésita un instant, puis dit avec amertume: « Si je vous donne mon sang d'âme, c'est la même chose que la mort. Autant prendre le risque et me battre. Ainsi, même si je meurs, je n'aurai aucun regret. »
 
@@ -118,9 +118,9 @@ Le vieil homme aux allures féeriques soupira et envoya rapidement une transmiss
 
 Les deux hommes réfléchirent un moment. Leurs visages étaient blêmes lorsqu'ils remirent finalement leur sang d'âme à Wang Lin.
 
-En conséquence, sur les cinq ancêtres de la Secte Cloud Sky, un était mort et quatre s'étaient rendus.
+En conséquence, sur les cinq ancêtres de la Secte Ciel Nuageux, un était mort et quatre s'étaient rendus.
 
-Song Qing était couvert de sueur froide. Son esprit était totalement vide; il ne savait plus quoi faire. Quant à Liu Fei, ses yeux étaient empreints de confusion. Il n'aurait jamais imaginé que même les ancêtres seraient impuissants face à Wang Lin. La Secte Cloud Sky allait-elle vraiment changer de maître?
+Song Qing était couvert de sueur froide. Son esprit était totalement vide; il ne savait plus quoi faire. Quant à Liu Fei, ses yeux étaient empreints de confusion. Il n'aurait jamais imaginé que même les ancêtres seraient impuissants face à Wang Lin. La Secte Ciel Nuageux allait-elle vraiment changer de maître?
 
 Après avoir récupéré le sang d'âme, le regard de Wang Lin se posa sur Song Qing et Liu Fei. Il déclara d'un ton autoritaire: « Tous les cultivateurs au stade de la Formation du Noyau doivent remettre leur sang d'âme! Sans exception! »
 
@@ -128,7 +128,7 @@ Le corps de Song Qing frissonna. Il hocha rapidement la tête et remit son propr
 
 Enfin, le regard de Wang Lin se tourna vers les cultivateurs des autres sectes. Ses yeux étaient aussi froids que la glace lorsqu'il dit: « Je ne vous accompagnerai pas pour votre départ. »
 
-Un soupir de soulagement collectif parcourut l'assemblée. Ils prirent congé précipitamment et quittèrent la Secte Cloud Sky. Bientôt, il ne resta plus que quelques personnes.
+Un soupir de soulagement collectif parcourut l'assemblée. Ils prirent congé précipitamment et quittèrent la Secte Ciel Nuageux. Bientôt, il ne resta plus que quelques personnes.
 
 L'expression de Wang Lin était redevenue normale. Il prit Li Muwan dans ses bras et se dirigea rapidement vers la cour sud. En quelques respirations, ils entrèrent dans la demeure de Li Muwan. Alors que celle-ci s'apprêtait à parler, le visage de Wang Lin devint soudainement livide; il cracha une large bouchée de sang tandis que son corps tremblait de manière incontrôlable.
 
@@ -140,7 +140,7 @@ Sur ces mots, le corps de Wang Lin disparut pour réapparaître à l'intérieur 
 
 En réalité, Wang Lin n'avait pas réussi à franchir avec succès le stade de l'Âme Naissante.
 
-Sinon, avec son tempérament, il aurait tué tous ceux qui se trouvaient sur son chemin, aurait pris toutes les pilules et serait parti de la Secte Cloud Sky avec Li Muwan, au lieu de s'embêter à extorquer le sang d'âme de chacun.
+Sinon, avec son tempérament, il aurait tué tous ceux qui se trouvaient sur son chemin, aurait pris toutes les pilules et serait parti de la Secte Ciel Nuageux avec Li Muwan, au lieu de s'embêter à extorquer le sang d'âme de chacun.
 
 Au cours des vingt derniers jours, après que son avatar eut consommé la pilule de rang 6, celui-ci avait réussi à atteindre le stade de l'Âme Naissante, atteignant même le sommet du début de ce stade. Jusque-là, tout s'était bien passé.
 
@@ -162,7 +162,7 @@ Bien que la situation fût frustrante, elle n'était pas sans avantages. Lors de
 
 Pour être précis, son niveau de culture se situait actuellement au sommet du début du stade de l'Âme Naissante, et le Domaine Ji constituait son dernier recours.
 
-Sans cela, la Secte Cloud Sky n'aurait pas d'avenir.
+Sans cela, la Secte Ciel Nuageux n'aurait pas d'avenir.
 
 L'usage répété du Domaine Ji avait consommé une grande partie de l'énergie de l'Âme Naissante, ce qui causait ses blessures actuelles. Après avoir réorganisé l'énergie spirituelle dans son corps et consommé une grande quantité de pilules, il finit par se stabiliser.
 
@@ -188,15 +188,15 @@ Après un long moment, Li Muwan mordilla sa lèvre inférieure et murmura: « Vo
 
 Une lueur froide traversa les yeux de Wang Lin. Il hocha la tête: « Cette fois, lorsque je reviendrai, je ferai couler les rivières avec le sang de la famille Teng. Tu devrais venir avec moi également. »
 
-Le front de Li Muwan se crispa. Après réflexion, elle dit: « Chaque fois que vous utilisez votre Domaine Ji, cela épuise une grande partie de votre énergie d'Âme Naissante. Ce n'est pas une solution viable à long terme... » Elle leva la tête vers lui avec détermination: « Je veux rester à la Secte Cloud Sky. C'est le seul endroit où j'aurai les matériaux et les conditions pour pratiquer l'alchimie. Si je parviens à créer une pilule de rang 6, cela pourrait énormément aider votre situation actuelle. »
+Le front de Li Muwan se crispa. Après réflexion, elle dit: « Chaque fois que vous utilisez votre Domaine Ji, cela épuise une grande partie de votre énergie d'Âme Naissante. Ce n'est pas une solution viable à long terme... » Elle leva la tête vers lui avec détermination: « Je veux rester à la Secte Ciel Nuageux. C'est le seul endroit où j'aurai les matériaux et les conditions pour pratiquer l'alchimie. Si je parviens à créer une pilule de rang 6, cela pourrait énormément aider votre situation actuelle. »
 
 Wang Lin se tut. Il la regarda et demanda: « En êtes-vous sûre? »
 
-Li Muwan hocha la tête avec sérieux. Elle esquissa un sourire: « Donnez-moi simplement le sang d'âme de ces cultivateurs de l'Âme Naissante, et vous n'aurez plus à vous soucier de ma sécurité. Ne vous inquiétez pas. Wan Er est à la Secte Cloud Sky depuis longtemps, je peux gérer cela moi-même. Je veux transformer la Secte Cloud Sky en une secte qui ne fabrique des pilules que pour vous! »
+Li Muwan hocha la tête avec sérieux. Elle esquissa un sourire: « Donnez-moi simplement le sang d'âme de ces cultivateurs de l'Âme Naissante, et vous n'aurez plus à vous soucier de ma sécurité. Ne vous inquiétez pas. Wan Er est à la Secte Ciel Nuageux depuis longtemps, je peux gérer cela moi-même. Je veux transformer la Secte Ciel Nuageux en une secte qui ne fabrique des pilules que pour vous! »
 
 Wang Lin la regarda, fronça les sourcils et demanda: « Si des pays de culture de rang 4 viennent, que ferez-vous? »
 
-Li Muwan eut un sourire méprisant: « Ces pays de rang 4 se moquent de savoir à qui appartient la Secte Cloud Sky. Tant que nous leur fournissons les pilules, il n'y aura aucun problème. Wang Lin, je vous assure que je peux gérer cela seule. »
+Li Muwan eut un sourire méprisant: « Ces pays de rang 4 se moquent de savoir à qui appartient la Secte Ciel Nuageux. Tant que nous leur fournissons les pilules, il n'y aura aucun problème. Wang Lin, je vous assure que je peux gérer cela seule. »
 
 Wang Lin prit une profonde inspiration. Il n'avait jamais été un homme indécis. Puisque Li Muwan avait pris sa décision, il ne chercha plus à la faire changer d'avis. Après réflexion, il pointa son front et le second démon apparut. Le démon s'inclina respectueusement devant Wang Lin, ses yeux brillant d'admiration.
 
@@ -210,17 +210,17 @@ Malgré cela, Wang Lin restait inquiet. Il agita la main et sortit son drapeau d
 
 Li Muwan regarda Wang Lin. Elle ne refusa pas, mais prit docilement le drapeau et le rangea soigneusement.
 
-Une fois cela fait, Wang Lin déploya son sens divin pour balayer instantanément toute la Secte Cloud Sky. Après avoir localisé Song Qing et les quatre ancêtres, il leur envoya un message pour qu'ils se rassemblent.
+Une fois cela fait, Wang Lin déploya son sens divin pour balayer instantanément toute la Secte Ciel Nuageux. Après avoir localisé Song Qing et les quatre ancêtres, il leur envoya un message pour qu'ils se rassemblent.
 
 Peu de temps après, tous les cultivateurs de l'Âme Naissante de la secte étaient présents. Certains avaient remis leur sang d'âme directement à Wang Lin, tandis que d'autres l'avaient confié à Li Muwan pendant sa méditation.
 
-On pouvait dire que toute la Secte Cloud Sky était désormais entre les mains de Wang Lin. D'une simple pensée, il pouvait tous les anéantir.
+On pouvait dire que toute la Secte Ciel Nuageux était désormais entre les mains de Wang Lin. D'une simple pensée, il pouvait tous les anéantir.
 
 Devant l'assemblée, il sortit les sangs d'âme et les remit à Li Muwan.
 
 Les quatre ancêtres furent surpris. Après avoir regardé Li Muwan, ils ne dirent mot dire. Quant à Song Qing et les anciens, ils se détendirent un peu; comparés à Wang Lin, ils trouvaient plus facile d'accepter Li Muwan, qui avait été une ancienne.
 
-Li Muwan réceptionna les sangs d'âme et regarda l'assemblée de la Secte Cloud Sky. Elle esquissa un doux sourire et dit délicatement: « Cette petite fille prendra soin de la Secte Cloud Sky pour son mari. J'espère que les aînés me traiteront avec bienveillance. Quatre ancêtres, votre statut est très noble, ne prenez donc pas cette affaire de sang d'âme à cœur. Dans 500 ans, Wan Er vous le rendra sans faute. J'espère que vous ne tiendrez pas rigueur de ces cinq siècles. Je fabriquerai même des pilules pour augmenter votre longévité en guise d'excuse. Bien que le raffinage soit difficile et les matériaux rares, j'en ferai une pour chacun de vous tous les 50 ans. Avec chaque pilule, votre espérance de vie augmentera de 50 ans. »
+Li Muwan réceptionna les sangs d'âme et regarda l'assemblée de la Secte Ciel Nuageux. Elle esquissa un doux sourire et dit délicatement: « Cette petite fille prendra soin de la Secte Ciel Nuageux pour son mari. J'espère que les aînés me traiteront avec bienveillance. Quatre ancêtres, votre statut est très noble, ne prenez donc pas cette affaire de sang d'âme à cœur. Dans 500 ans, Wan Er vous le rendra sans faute. J'espère que vous ne tiendrez pas rigueur de ces cinq siècles. Je fabriquerai même des pilules pour augmenter votre longévité en guise d'excuse. Bien que le raffinage soit difficile et les matériaux rares, j'en ferai une pour chacun de vous tous les 50 ans. Avec chaque pilule, votre espérance de vie augmentera de 50 ans. »
 
 L'expression du vieil homme aux allures féeriques changea. Il demanda d'une voix grave: « Augmenter la longévité? »
 
@@ -242,7 +242,7 @@ Song Qing regarda Wang Lin et répondit rapidement: « Il est en train de raffin
 
 Li Muwan eut un petit rire: « Le frère Ouyang Zi est un alchimiste de rang 5 comme moi. S'il en veut, il peut en avoir. Ce ne sont que des pilules de rang 5. »
 
-Puis, elle s'adressa à Wang Lin pour expliquer: « Parmi les trois alchimistes de rang 5 de la Secte Cloud Sky, outre Wan Er et Ouyang Zi, le troisième est le senior Yun Tianzi. »
+Puis, elle s'adressa à Wang Lin pour expliquer: « Parmi les trois alchimistes de rang 5 de la Secte Ciel Nuageux, outre Wan Er et Ouyang Zi, le troisième est le senior Yun Tianzi. »
 
 Wang Lin acquiesça, observant silencieusement Li Muwan gérer la situation.
 
@@ -262,7 +262,7 @@ Seul Wang Lin pouvait faire cela. Personne d'autre n'aurait disposé d'une telle
 
 Après deux heures, Wang Lin eut terminé.
 
-Passant quelques mois supplémentaires à la Secte Cloud Sky, Wang Lin continua de collecter du liquide spirituel. Tout en reconstituant ses propres réserves, il en laissait également pour Li Muwan.
+Passant quelques mois supplémentaires à la Secte Ciel Nuageux, Wang Lin continua de collecter du liquide spirituel. Tout en reconstituant ses propres réserves, il en laissait également pour Li Muwan.
 
 De plus, les Insectes d'Encre Violette de Cheng Bailiang furent rangés dans un sac au cas où il en aurait besoin plus tard.
 
@@ -272,6 +272,6 @@ Cependant, fabriquer un drapeau de propriété unique demande énormément de te
 
 Après plusieurs mois, le drapeau était presque achevé. Wang Lin craignait toutefois qu'il n'attire la rétribution divine une fois terminé; il hésita donc à placer la dernière restriction. En conséquence, il ne pouvait déployer toute sa puissance, mais comme c'était un drapeau de propriété unique, bien qu'il n'atteignît pas le premier niveau, son pouvoir d'attaque n'était que légèrement inférieur à celui de son précédent drapeau.
 
-Par une matinée précoce, Wang Lin marcha sur le vent, tenant les pilules que Li Muwan lui avait remises après avoir inspecté les stocks de la secte, et quitta la Secte Cloud Sky. Au sommet du hall principal se tenait une femme. Son regard était empreint de tendresse alors qu'elle regardait la silhouette de Wang Lin disparaître.
+Par une matinée précoce, Wang Lin marcha sur le vent, tenant les pilules que Li Muwan lui avait remises après avoir inspecté les stocks de la secte, et quitta la Secte Ciel Nuageux. Au sommet du hall principal se tenait une femme. Son regard était empreint de tendresse alors qu'elle regardait la silhouette de Wang Lin disparaître.
 
-Elle ignorait en quel mois ou quelle année ils se reverraient. À l'origine, Li Muwan avait prévu de partir avec lui, mais elle était une femme très prévenante. Elle savait qu'en restant aux côtés de Wang Lin, elle risquait de devenir un fardeau; elle choisit donc de rester à la Secte Cloud Sky pour pratiquer l'alchimie. De cette façon, sa place dans son cœur ne ferait que croître.
+Elle ignorait en quel mois ou quelle année ils se reverraient. À l'origine, Li Muwan avait prévu de partir avec lui, mais elle était une femme très prévenante. Elle savait qu'en restant aux côtés de Wang Lin, elle risquait de devenir un fardeau; elle choisit donc de rester à la Secte Ciel Nuageux pour pratiquer l'alchimie. De cette façon, sa place dans son cœur ne ferait que croître.

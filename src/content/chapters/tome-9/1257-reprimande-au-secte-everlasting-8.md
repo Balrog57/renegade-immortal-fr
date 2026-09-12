@@ -3,7 +3,7 @@ n: 1257
 title: Réprimande à la Secte Éternelle (8)
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: Chapter 1257 - Rebuking the Everlasting Sect (8)
+en: Chapter 1257 - Rebuking the Everlasting Secte (8)
 slug: reprimande-au-secte-everlasting-8
 ---
 « Merci, Compagnon Cultivateur Lu, pour votre clémence! » Le visage de Du Lin était livide alors qu'il joignait les mains. Le sang coulait du coin de sa bouche et il s'éclipsa rapidement sous la pluie, le dos empreint d'une profonde défaite.

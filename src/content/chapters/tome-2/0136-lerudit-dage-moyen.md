@@ -42,7 +42,7 @@ La femme détourna son regard du champ de bataille pour observer Wang Lin. Elle 
 
 Wang Lin acquiesça en silence. Le nom de Wang Lin était bien trop commun pour qu'il ait besoin de le cacher. S'il découvrait qu'il mentait, les conséquences seraient désastreuses.
 
-La femme observa l'armée des cultivateurs qui progressait. Elle réfléchit un instant avant de déclarer: « Actuellement, le pays de Hou Fen est en péril. Une fois que nous aurons atteint Xuan Wu, une autre grande bataille éclatera. Nous pouvons donc oublier cette affaire, ne t'en inquiète pas. Si quelqu'un te cherche des noises, je pourrai te protéger, mais une seule fois. Une fois que je t'aurai aidé, je ne te devrai plus rien pour avoir sauvé Zihong. »
+La femme observa l'armée des cultivateurs qui progressait. Elle réfléchit un instant avant de déclarer: « Actuellement, le pays de Huo Fen est en péril. Une fois que nous aurons atteint Xuan Wu, une autre grande bataille éclatera. Nous pouvons donc oublier cette affaire, ne t'en inquiète pas. Si quelqu'un te cherche des noises, je pourrai te protéger, mais une seule fois. Une fois que je t'aurai aidé, je ne te devrai plus rien pour avoir sauvé Zihong. »
 
 À peine Feng Luan eut-elle fini de parler que le ciel s'assombrit brusquement. Au loin, sur le champ de bataille, dix volcans massifs furent arrachés du sol et projetés au loin par les dix cultivateurs de l'Âme Naissante. Les bêtes de feu se dispersèrent, mais certaines furent frappées par l'impact et réduites en bouillie.
 
@@ -62,9 +62,9 @@ Ce processus dura plus d'une heure. Certains cultivateurs remarquèrent le chang
 
 Une heure supplémentaire passa, et les corps des seize bêtes géantes se dissipèrent. Elles avaient toutes fusionné avec le cercle de feu. Ce dernier ne grandit pas, mais sa couleur devint d'un rouge sombre. Finalement, il éclata silencieusement en une multitude de poussières rouges avant de disparaître.
 
-À cet instant, toutes les bêtes de feu à l'intérieur de Hou Fen cessèrent tout mouvement et s'agenouillèrent au sol, émettant simultanément des sons plaintifs. Soudain, l'une d'elles s'effondra en tremblant. Si l'on regardait de près, on aurait pu voir une étincelle de lumière rouge sur son front. Son corps se dilata rapidement et, en moins d'une heure, elle atteignit 33 mètres de haut.
+À cet instant, toutes les bêtes de feu à l'intérieur de Huo Fen cessèrent tout mouvement et s'agenouillèrent au sol, émettant simultanément des sons plaintifs. Soudain, l'une d'elles s'effondra en tremblant. Si l'on regardait de près, on aurait pu voir une étincelle de lumière rouge sur son front. Son corps se dilata rapidement et, en moins d'une heure, elle atteignit 33 mètres de haut.
 
-Peu après, une bête de feu après l'autre fut touchée par ces étincelles rouges, voyant leur masse croître prodigieusement. En moins de deux heures, toutes les bêtes de feu de Hou Fen semblaient avoir subi une métamorphose. Leur puissance avait été multipliée par dix.
+Peu après, une bête de feu après l'autre fut touchée par ces étincelles rouges, voyant leur masse croître prodigieusement. En moins de deux heures, toutes les bêtes de feu de Huo Fen semblaient avoir subi une métamorphose. Leur puissance avait été multipliée par dix.
 
 Les créatures transformées s'envolèrent dans les airs pour poursuivre l'armée des cultivateurs. De plus en plus de bêtes de feu mutantes rejoignirent la traque, créant un spectacle terrifiant.
 
@@ -74,7 +74,7 @@ Wang Lin soutint le regard froid du vieillard et hocha la tête.
 
 L'homme laissa échapper quelques grognements méprisants, puis sa main gigantesque se tendit vers Wang Lin. Le visage de Feng Luan s'assombrit légèrement lorsqu'elle frappa le char du phénix aux cinq couleurs. Un phénix aux cinq couleurs apparut et poussa un cri perçant. Il battit des ailes, propageant une lumière multicolore.
 
-L'homme retira sa main. Il fixa la femme et cria avec colère: « Feng Luan, que fais-tu? Non seulement cet individu usurpe l'identité d'un disciple de notre Sanctuaire du Dieu de la Guerre, mais il a aussi attiré les bêtes de feu! Tu sais pourtant que plus de mille disciples de Hou Fen sont morts dans cette bataille! »
+L'homme retira sa main. Il fixa la femme et cria avec colère: « Feng Luan, que fais-tu? Non seulement cet individu usurpe l'identité d'un disciple de notre Sanctuaire du Dieu de la Guerre, mais il a aussi attiré les bêtes de feu! Tu sais pourtant que plus de mille disciples de Huo Fen sont morts dans cette bataille! »
 
 Feng Luan afficha un regard déterminé et trancha: « Tant que je serai là, tu ne pourras pas le tuer. »
 

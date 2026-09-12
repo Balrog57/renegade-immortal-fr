@@ -3,7 +3,7 @@ n: 1889
 title: "Le Maître de la Secte du Dao Démoniaque!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
-en: "Chapter 1889 - Devil Dao Sect’s Sect Master !"
+en: "Chapter 1889 - Devil Dao Secte’s Secte Master !"
 slug: le-maitre-de-la-secte-du-dao-demoniaque
 ---
 Chapitre 1889 - Le Maître de la Secte du Dao Démoniaque!

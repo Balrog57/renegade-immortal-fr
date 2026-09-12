@@ -24,13 +24,13 @@ D'un seul pas, le palais entier sembla se superposer à une autre dimension. Cel
 
 « Je vous attendais depuis longtemps... Vous êtes enfin venu! »
 
-Wang Lin leva les yeux vers l'Enseignant Impérial perché sur le temple. Dans le ciel, la bataille entre l'Empereur Céleste et le Grand Empyrean Gemini faisait rage. Il serait difficile de désigner un vainqueur, mais tant que le Grand Empyrean Gemini maintiendrait l'Empereur Céleste occupé, celui-ci ne pourrait pas agir contre Wang Lin!
+Wang Lin leva les yeux vers l'Enseignant Impérial perché sur le temple. Dans le ciel, la bataille entre l'Empereur Céleste et le Grand Empyrée Gemini faisait rage. Il serait difficile de désigner un vainqueur, mais tant que le Grand Empyrée Gemini maintiendrait l'Empereur Céleste occupé, celui-ci ne pourrait pas agir contre Wang Lin!
 
 Hormis l'Empereur Céleste, le palais n'abritait que l'Enseignant Impérial, dont la culture était étrange!
 
 Wang Lin réfléchit silencieusement, puis frappa le sol de son pied droit. Des grondements tonnantes résonnèrent et les cultivateurs environnants choisirent de battre en retraite. Ils n'étaient pas comme le clan Antique, où il n'existait pas de sectes mais seulement trois royaumes et le temple du clan Antique, où presque tous les membres vouaient une loyauté fanatique à la famille royale. Dans le clan céleste, la famille royale n'était qu'un symbole!
 
-Le véritable pouvoir était entre les mains des Grands Empyreans et des nombreuses sectes!
+Le véritable pouvoir était entre les mains des Grands Empyrées et des nombreuses sectes!
 
 À cet instant, face à Wang Lin qui les terrifiait, ils n'hésitèrent pas une seconde à fuir!
 
@@ -116,4 +116,4 @@ Wang Lin ne cilla pas et soutint son regard. Après un long silence, l'Enseignan
 
 « La personne qu'il a choisie pour le sortilège du Retour à l'Origine Ancestrale est Ming Dao, et la personne que j'ai choisie, c'est vous, Wang Lin! Jiu Di représente une menace immense pour l'Empereur Céleste, il ne souhaite donc pas agir personnellement de peur d'attirer ses soupçons. Voilà pourquoi il vous a invité lors de la cérémonie du titre et a tendu ce piège dans la rue. Mais lorsque votre massacre s'est déchaîné, cela l'a stupéfait. Il s'est ensuite appuyé sur les souvenirs de Dao Fei pour finalement réussir à vous attirer ici!
 
-« La raison pour laquelle je voulais que vous veniez est précisément celle-ci: ce n'est que lorsqu'un autre Grand Empyrean combat l'Empereur que je peux lui tenir ces propos sans qu'il ne s'en aperçoive! » Les yeux de l'Enseignant Impérial aux cheveux blancs s'illuminèrent alors qu'il s'adressait à Wang Lin.
+« La raison pour laquelle je voulais que vous veniez est précisément celle-ci: ce n'est que lorsqu'un autre Grand Empyrée combat l'Empereur que je peux lui tenir ces propos sans qu'il ne s'en aperçoive! » Les yeux de l'Enseignant Impérial aux cheveux blancs s'illuminèrent alors qu'il s'adressait à Wang Lin.

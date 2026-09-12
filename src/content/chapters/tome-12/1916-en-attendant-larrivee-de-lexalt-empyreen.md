@@ -3,7 +3,7 @@ n: 1916
 title: "En attendant l'arrivée de l'Exalt Empyréen!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
-en: "Chapter 1916 - Waiting for the Empyrean Exalt to Arrive!"
+en: "Chapter 1916 - Waiting for the Exalté Empyréen to Arrive!"
 slug: en-attendant-larrivee-de-lexalt-empyreen
 ---
 Chapitre 1916 - En attendant l'arrivée de l'Exalt Empyréen!

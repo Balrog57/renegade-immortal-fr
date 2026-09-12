@@ -3,7 +3,7 @@ n: 1596
 title: "L'effet karmique de la Secte du Raffinement de l'Âme"
 book: 10
 bookTitle: Rampage Through the Inner Realm
-en: Chapter 1596 - Soul Refining Sect’s Karmic Effect
+en: Chapter 1596 - Soul Refining Secte’s Karmic Effect
 slug: leffet-karmique-de-la-secte-du-raffinement-de-lame
 ---
 « Serait-il possible que ma Secte du Raffinement de l'Âme n'ait plus aucune chance de renaître, aucune chance de perdurer... » L'homme d'âge moyen sembla sombrer dans la folie et se mit à rire. Cependant, à cet instant précis, son expression changea et il fixa l'horizon.

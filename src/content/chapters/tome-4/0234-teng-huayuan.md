@@ -8,7 +8,7 @@ slug: teng-huayuan
 ---
 Un jour plus tard, un jeune homme enveloppé d'une aura maléfique fixait le sol couvert de végétation d'un regard glacial.
 
-Cet individu était le cultivateur qui s'était précipité ici depuis Hou Fen. Si quelqu'un savait que ce jeune homme n'avait mis que quelques mois pour voyager de Hou Fen à la Mer des Démons, il en serait horrifié. La distance entre Hou Fen et la Mer des Démons était immense.
+Cet individu était le cultivateur qui s'était précipité ici depuis Huo Fen. Si quelqu'un savait que ce jeune homme n'avait mis que quelques mois pour voyager de Huo Fen à la Mer des Démons, il en serait horrifié. La distance entre Huo Fen et la Mer des Démons était immense.
 
 Même Duanmu avait dû utiliser un ancien réseau de transfert. Il avait un jour déclaré que s'il devait voler, il lui faudrait des centaines d'années avec son niveau de culture de « Séparation Spirituelle » pour y parvenir.
 
@@ -118,7 +118,7 @@ Le réseau s'illumina et Wang Lin disparut.
 
 La cultivatrice regarda le réseau désormais vide avec une pointe de tristesse au cœur. Soudain, elle se souvint de quelque chose et son visage rougit à nouveau.
 
-Zhao se situait à l'extrême bord du continent Kong. Ce n'était pas un grand pays; en réalité, il ne faisait que la moitié de la taille de Hou Fen.
+Zhao se situait à l'extrême bord du continent Kong. Ce n'était pas un grand pays; en réalité, il ne faisait que la moitié de la taille de Huo Fen.
 
 Bien qu'il possédât des veines spirituelles, leur production était très faible, suffisant à peine à soutenir le pays; même lors des périodes d'exploitation minière, l'extraction restait limitée. En raison de la rareté des veines spirituelles, les herbes spirituelles étaient également devenues très rares. On pouvait dire que Zhao était un tout petit pays frontalier.
 

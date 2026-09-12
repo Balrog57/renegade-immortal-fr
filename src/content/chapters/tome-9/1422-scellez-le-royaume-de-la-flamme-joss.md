@@ -16,9 +16,9 @@ Par conséquent, personne ne pourrait rien dire et il pourrait repartir en toute
 
 La puissance de l'adoration des innombrables âmes se transforma en un vent violet qui chargea Wang Lin de toutes les directions. À première vue, on aurait dit que le monde entier avait été teinté de pourpre!
 
-Ce sort de la Flamme Joss était assourdissant et suffisamment puissant pour détruire un cultivateur de la Peste Céleste du cinquième ciel. Cependant, l'essence de tonnerre de Wang Lin était complète et son essence de feu avait atteint le Feu Éthéré. Il avait également combattu Daoist Water; ainsi, bien qu'il soit confronté à cette crise, il ne ressentait aucune peur. Au contraire, une intention de combat embrasait ses yeux.
+Ce sort de la Flamme Joss était assourdissant et suffisamment puissant pour détruire un cultivateur de la Peste Céleste du cinquième ciel. Cependant, l'essence de tonnerre de Wang Lin était complète et son essence de feu avait atteint le Feu Éthéré. Il avait également combattu Shui Daozi; ainsi, bien qu'il soit confronté à cette crise, il ne ressentait aucune peur. Au contraire, une intention de combat embrasait ses yeux.
 
-Pour être plus précis, c'était la première fois que Wang Lin affrontait un cultivateur du troisième pas. Lorsqu'il avait combattu Daoist Water, il ne pouvait que se défendre sans pouvoir attaquer. Cependant, son niveau de culture avait augmenté rapidement durant son séjour dans l'Ancien Système Stellaire.
+Pour être plus précis, c'était la première fois que Wang Lin affrontait un cultivateur du troisième pas. Lorsqu'il avait combattu Shui Daozi, il ne pouvait que se défendre sans pouvoir attaquer. Cependant, son niveau de culture avait augmenté rapidement durant son séjour dans l'Ancien Système Stellaire.
 
 Auparavant, il ne pouvait que se protéger, mais désormais, il pouvait tenir tête à son adversaire!
 

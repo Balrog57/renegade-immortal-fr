@@ -124,7 +124,7 @@ Le Maître Dao Blue Dream observa les larmes et songea: « L'âme retourne vers 
 
 À l'intérieur de l'Épreuve Humaine, Wang Lin se tenait au pied de la montagne de la Secte Heng Yue. Il contempla le village devant lui avant de détourner les yeux, une larme roulant sur sa joue.
 
-Pays de Hou Fen, Secte Luo He.
+Pays de Huo Fen, Secte Luo He.
 
 Dans l'atelier d'alchimie de la montagne arrière, une jeune fille vêtue d'une robe fleurie fronça les sourcils en fixant le fourneau à pilules fumant. Elle regarda la femme d'âge mûr, au visage renfrogné, assise près du foyer, et murmura: « Maîtresse, Wan Er a encore échoué... »
 

@@ -64,17 +64,17 @@ Le cœur du Dieu Sanguin battait la chamade et le désespoir emplissait son rega
 
 À l'instant même où Zhou Jin et Ling Dong apparurent, leurs auras de la troisième étape balayèrent Allheaven et s'engouffrèrent dans les trois autres systèmes stellaires!
 
-Dans le système stellaire de Cloud Sea, au sein de la chambre secrète de la Secte de Dieu.
+Dans le système stellaire de Mer de Nuages, au sein de la chambre secrète de la Secte de Dieu.
 
-Daoist Water cultivait calmement. Ses blessures étaient guéries, mais soudain, il ouvrit les yeux, frappé par la stupeur. Il se leva instinctivement et scruta l'horizon.
+Shui Daozi cultivait calmement. Ses blessures étaient guéries, mais soudain, il ouvrit les yeux, frappé par la stupeur. Il se leva instinctivement et scruta l'horizon.
 
 Son expression changea instantanément, empreinte d'incrédulité!
 
 Également au sein de la Secte de Dieu, une femme magnifique était assise à l'intérieur d'une immense formation de scellement. Ses longs cheveux étaient éparpillés autour d'elle, dégageant une beauté capable de faire battre le cœur de n'importe qui.
 
-Elle ne sembla pas remarquer l'aura qui terrifiait Daoist Water et continua sa culture en silence.
+Elle ne sembla pas remarquer l'aura qui terrifiait Shui Daozi et continua sa culture en silence.
 
-Dans la région de rang un du système stellaire de Cloud Sea, se trouvait un petit continent. Il n'y vivait ni bêtes féroces ni humains; c'était un lieu totalement désolé.
+Dans la région de rang un du système stellaire de Mer de Nuages, se trouvait un petit continent. Il n'y vivait ni bêtes féroces ni humains; c'était un lieu totalement désolé.
 
 Au plus profond du continent, dans une vallée, un homme d'âge moyen vêtu de rouge était assis en silence.
 

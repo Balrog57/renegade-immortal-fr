@@ -48,7 +48,7 @@ La rivière reflétait la silhouette de Wang Lin, restituant clairement son appa
 
 Wang Lin murmura doucement: « Il est temps de rentrer à la maison... »
 
-Il existait un autre chemin vers chez lui, en dehors de la Formation du Domaine Scellé. C'était le jade que lui avait donné la femme mystérieuse dans la fissure spatiale de la région de rang 9 du Système Stellaire Cloud Sea.
+Il existait un autre chemin vers chez lui, en dehors de la Formation du Domaine Scellé. C'était le jade que lui avait donné la femme mystérieuse dans la fissure spatiale de la région de rang 9 du Système Stellaire Mer de Nuages.
 
 À l'époque, cette femme avait affirmé qu'elle l'aiderait à explorer un lieu avant de lui remettre ce jade. Une fois utilisé, il serait renvoyé dans la fissure spatiale.
 

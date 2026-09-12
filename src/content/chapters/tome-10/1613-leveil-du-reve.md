@@ -48,7 +48,7 @@ Wang Lin médita en silence. Le temps ne passait pas, mais sa réflexion fut lon
 
 La cithare ne produisait aucun son, mais la musique emplissait le cœur de Wang Lin. Des vagues de chagrin déferlèrent en lui. Une chanson née d'un rêve doit s'achever; un cri de nostalgie inoubliable.
 
-« Cette année-là, cette année-là, nous nous sommes rencontrés dans le pays de Hou Fen, aux abords de la Mer des Démons. Une chasse, une voix sombre résonna, et je baissai les yeux.
+« Cette année-là, cette année-là, nous nous sommes rencontrés dans le pays de Huo Fen, aux abords de la Mer des Démons. Une chasse, une voix sombre résonna, et je baissai les yeux.
 
 Les années passèrent, les cycles défilèrent, nous n'étions que deux grains de poussière aux extrémités de ce rêve. Après combien d'années nous sommes-nous enfin rencontrés pour ne faire que nous croiser dans un état de torpeur?
 
@@ -72,7 +72,7 @@ Une onde invisible se propagea de Wang Lin comme centre. Tous les édifices de l
 
 Le pays de Zhao, les terres au-delà, la Secte de l'Affinement de l'Âme, Xue Yue, les autres nations; tout le monde s'effondra.
 
-Il y eut aussi l'océan infini, la mer déchaînée, l'autre rive, l'autre continent, la terre natale de Li Muwan; tout disparut. Le pays de Hou Fen, le pays de Xuan Wu, la Mer des Démons et le foyer de Wang Lin et Li Muwan s'éteignirent en cendres.
+Il y eut aussi l'océan infini, la mer déchaînée, l'autre rive, l'autre continent, la terre natale de Li Muwan; tout disparut. Le pays de Huo Fen, le pays de Xuan Wu, la Mer des Démons et le foyer de Wang Lin et Li Muwan s'éteignirent en cendres.
 
 Tout ce qui composait ce monde se dispersa... Laissant derrière lui les mortels et les cultivateurs vaquant à leurs occupations. Ils ne disparurent pas; ils demeurèrent calmement, par-delà le monde.
 

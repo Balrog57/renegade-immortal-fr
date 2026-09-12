@@ -28,11 +28,11 @@ Le palais du prince Ji Du fut submergé par cette brume. Les innombrables person
 
 Plus particulièrement, les quelque mille gardes du palais, trop proches de la source, tremblaient de tous leurs membres, le cœur envahi par la peur.
 
-À l'intérieur du palais, le jeune homme en robe violette était trempé de sueur, sa tunique presque totalement imbibée, ses yeux empreints d'horreur. Il avait déjà vu le Grand Empyrean Song Tian, mais même devant ce dernier, il n'avait jamais ressenti une telle terreur.
+À l'intérieur du palais, le jeune homme en robe violette était trempé de sueur, sa tunique presque totalement imbibée, ses yeux empreints d'horreur. Il avait déjà vu le Grand Empyrée Song Tian, mais même devant ce dernier, il n'avait jamais ressenti une telle terreur.
 
 C'était comme si sa vie même dépendait du bon vouloir de cette pression.
 
-Les rumeurs concernant cet homme datant de cent ans surgirent dans l'esprit du jeune homme. Le mépris qu'il éprouvait disparut instantanément. Un être capable d'émettre une telle pression pouvait seulement être comparé au Grand Empyrean Song Tian!
+Les rumeurs concernant cet homme datant de cent ans surgirent dans l'esprit du jeune homme. Le mépris qu'il éprouvait disparut instantanément. Un être capable d'émettre une telle pression pouvait seulement être comparé au Grand Empyrée Song Tian!
 
 Tandis que la pression et la brume enveloppaient le pays, loin de là, dans la cité impériale des Anciens Shi, une montagne se dressait avec un immense temple à son sommet.
 
@@ -60,9 +60,9 @@ L'homme d'âge moyen laissa échapper un froid reniflement.
 
 « Ton maître a déjà croisé ce Wang Lin par le passé, lorsque Xuan Luo l'a amené ici. Sa culture n'est pas faible et sa puissance de combat est extraordinaire, mais il ne mérite toujours pas mon attention!
 
-La seule raison pour laquelle il a pu pénétrer dans le palais de l'Ancien Dao et en ressortir est que Xuan Luo n'est pas intervenu! Il a tué l'Empereur de l'Ancien Dao, pourtant le Grand Empyrean Gu Dao n'a pas prononcé un mot. C'est ce mystère qui préoccupe ton maître, et c'est pourquoi il ne s'est pas précipité pour désigner un futur empereur!
+La seule raison pour laquelle il a pu pénétrer dans le palais de l'Ancien Dao et en ressortir est que Xuan Luo n'est pas intervenu! Il a tué l'Empereur de l'Ancien Dao, pourtant le Grand Empyrée Gu Dao n'a pas prononcé un mot. C'est ce mystère qui préoccupe ton maître, et c'est pourquoi il ne s'est pas précipité pour désigner un futur empereur!
 
-La personne qui intéresse ton maître n'est pas cet homme, mais le Grand Empyrean Gu Dao! Quant à lui, il n'est pas digne de mon égard! » L'homme d'âge moyen regardait l'horizon en percevant faiblement la pression. Il était le Grand Empyrean Song Tian des Anciens Shi, et le jeune homme derrière lui était le prince, Chi Man.
+La personne qui intéresse ton maître n'est pas cet homme, mais le Grand Empyrée Gu Dao! Quant à lui, il n'est pas digne de mon égard! » L'homme d'âge moyen regardait l'horizon en percevant faiblement la pression. Il était le Grand Empyrée Song Tian des Anciens Shi, et le jeune homme derrière lui était le prince, Chi Man.
 
 Le jeune homme poussa un soupir de soulagement avant de demander, après une hésitation:
 
@@ -70,7 +70,7 @@ Le jeune homme poussa un soupir de soulagement avant de demander, après une hé
 
 L'homme d'âge moyen resta silencieux, mais ses pupilles se contractèrent imperceptiblement. Après un long moment de réflexion, il prit la parole:
 
-« Il fusionne ses corps de vérité d'essence! Ses corps d'essence sont extraordinaires et il cherche à les intégrer totalement, ce qui sera une tâche ardue! Cependant, il a décidé de rester chez les Anciens Shi pour mener cette fusion sans m'en informer. Il manque de respect à mon rang en s'immisçant dans la compétition pour le trône des Anciens Shi. Je vais devoir lui donner une leçon. » Bien que l'homme d'âge moyen fût préoccupé par le Grand Empyrean Gu Dao, il demeurait un Grand Empyrean. En tant que gardien des Anciens Shi, il avait le droit de traiter toute menace pesant sur son peuple.
+« Il fusionne ses corps de vérité d'essence! Ses corps d'essence sont extraordinaires et il cherche à les intégrer totalement, ce qui sera une tâche ardue! Cependant, il a décidé de rester chez les Anciens Shi pour mener cette fusion sans m'en informer. Il manque de respect à mon rang en s'immisçant dans la compétition pour le trône des Anciens Shi. Je vais devoir lui donner une leçon. » Bien que l'homme d'âge moyen fût préoccupé par le Grand Empyrée Gu Dao, il demeurait un Grand Empyrée. En tant que gardien des Anciens Shi, il avait le droit de traiter toute menace pesant sur son peuple.
 
 Un éclat glacial brilla dans ses yeux et il leva sa main droite. Formant un sceau, il pointa la direction d'où émanait la pression de Wang Lin.
 

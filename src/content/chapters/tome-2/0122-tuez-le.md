@@ -54,7 +54,7 @@ Il existait quatre grandes matrices de transfert dans le champ de bataille étra
 
 Quiconque pénétrait dans le champ de bataille recevait un morceau de jade. Outre la protection contre le vent d'acier, ce jade permettait également l'utilisation des matrices de transfert.
 
-Wang Lin ne possédant pas de jade de Zhao, il n'avait aucun moyen de retourner par la matrice. De plus, utilisant actuellement le corps de Mai Liang, il était préférable pour lui de regagner son pays d'origine, Hou Fen.
+Wang Lin ne possédant pas de jade de Zhao, il n'avait aucun moyen de retourner par la matrice. De plus, utilisant actuellement le corps de Mai Liang, il était préférable pour lui de regagner son pays d'origine, Huo Fen.
 
 C'était là l'autre raison pour laquelle il avait sauvé le groupe de Zhou Zihong: voler un jade.
 

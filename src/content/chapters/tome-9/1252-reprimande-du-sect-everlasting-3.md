@@ -1,9 +1,9 @@
 ---
 n: 1252
-title: Réprimande du Secte Éternelle (3)
+title: Réprimande de la Secte Éternelle (3)
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: Chapter 1252 - Rebuking the Everlasting Sect (3)
+en: Chapter 1252 - Rebuking the Everlasting Secte (3)
 slug: reprimande-du-sect-everlasting-3
 ---
 En entendant tout cela, les yeux de Mu Bingmei s'illuminèrent et elle ne put s'empêcher de sourire avec amertume intérieurement. Peu importe où il allait, il finissait toujours par accomplir des choses stupéfiantes.

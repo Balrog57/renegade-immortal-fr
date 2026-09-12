@@ -68,13 +68,13 @@ Bien que Qing Shui fût au début du stade Vide du Nirvana, grâce à son essenc
 
 « Tuer... Très bien! » Wang Lin se leva et s'avança vers le ciel. Des ondulations résonnèrent et il disparut du monde. Qing Shui pénétra également dans les ondulations créées par Wang Lin et disparut à son tour.
 
-Si l'ensemble du système stellaire de Brilliant Void était un lac dont les planètes seraient les objets flottants, alors les ondulations à la surface ressemblaient actuellement à deux poissons nageant avec rapidité.
+Si l'ensemble du système stellaire de Vide Brillant était un lac dont les planètes seraient les objets flottants, alors les ondulations à la surface ressemblaient actuellement à deux poissons nageant avec rapidité.
 
-Il n'y avait pas beaucoup de cultivateurs du Royaume Extérieur dans le Brilliant Void. Après tout, l'Alliance n'était que leur quartier général temporaire, et la plupart d'entre eux étaient morts lors du massacre qui avait secoué les cieux plus tôt.
+Il n'y avait pas beaucoup de cultivateurs du Royaume Extérieur dans le Vide Brillant. Après tout, l'Alliance n'était que leur quartier général temporaire, et la plupart d'entre eux étaient morts lors du massacre qui avait secoué les cieux plus tôt.
 
 Ce massacre avait été déclenché par un maître et son disciple. Avec le niveau de culture du Maître Long Pan, peu de cultivateurs du Royaume Extérieur pouvaient espérer survivre.
 
-Cependant, l'objectif du Maître Long Pan étant la Rivière Invoquée, il n'était pas resté dans le Brilliant Void. Cela permit à quelques poissons de s'échapper.
+Cependant, l'objectif du Maître Long Pan étant la Rivière Invoquée, il n'était pas resté dans le Vide Brillant. Cela permit à quelques poissons de s'échapper.
 
 Trois cultivateurs du Royaume Extérieur, portant des marques entre les sourcils, volaient prudemment à travers les étoiles. Ils n'osaient pas se déplacer trop vite, craignant que leurs fluctuations n'attirent l'attention d'autrui.
 
@@ -86,7 +86,7 @@ Alors que les trois avançaient, ils échangeaient des messages. À cet instant 
 
 Lorsque les ondulations finirent leur course, les trois cultivateurs du Royaume Extérieur tremblèrent, incapables de pousser le moindre cri. D'innombrables fissures apparurent sur leurs corps et ils s'effondrèrent soudainement. Leurs âmes originelles furent déchirées et ils périrent.
 
-Des scènes similaires se produisaient ailleurs dans le Brilliant Void, à Allheaven et dans la Mer de Nuages. Peu de temps après que le Maître Long Pan eut déferlé sur la zone, les cultivateurs du Royaume Extérieur restants subirent la folie de Qing Shui.
+Des scènes similaires se produisaient ailleurs dans le Vide Brillant, à Allheaven et dans la Mer de Nuages. Peu de temps après que le Maître Long Pan eut déferlé sur la zone, les cultivateurs du Royaume Extérieur restants subirent la folie de Qing Shui.
 
 Les fleurs de sang s'épanouissaient, révélant la beauté de leur mort.
 

@@ -8,7 +8,7 @@ slug: deuxieme-annee-encore-six-mois
 ---
 Wang Lin regarda le Maître Dao Bleu Rêve. Il prit ensuite la cruche de vin que Papillon Rouge lui avait tendue et en but une gorgée avant de fermer les yeux.
 
-Le Maître Dao Bleu Rêve n'était pas pressé. Il restait assis là, observant l'Outer Realm, attendant la réponse de Wang Lin. Li Qianmei resta silencieuse pendant un long moment avant de s'asseoir lentement. Sa position était très claire: elle se tenait plus près de Wang Lin, comme si elle se méfiait de son propre père.
+Le Maître Dao Bleu Rêve n'était pas pressé. Il restait assis là, observant l'Royaume Extérieur, attendant la réponse de Wang Lin. Li Qianmei resta silencieuse pendant un long moment avant de s'asseoir lentement. Sa position était très claire: elle se tenait plus près de Wang Lin, comme si elle se méfiait de son propre père.
 
 Comment le Maître Dao Bleu Rêve aurait-il pu ne pas remarquer l'attitude de sa fille? Ses yeux s'assombrirent imperceptiblement, mais Li Qianmei ne s'en aperçut pas.
 
@@ -122,7 +122,7 @@ Nous étions au sixième mois de la deuxième année! Il restait encore un semes
 
 « Wang Lin, ce vieil homme sait que tu te méfies de moi, et même ma fille ne m'a pas fait confiance en tant que père pendant ta culture... Aujourd'hui, je ferai ce qu'un père se doit de faire! » Bien que le Maître Dao Bleu Rêve s'adressât à Wang Lin, ses yeux étaient empreints d'une affection paternelle envers Li Qianmei.
 
-D'un revers de manche, il fit un pas vers l'Outer Realm. Son corps se changea en un rayon de lumière et il s'élança instantanément hors de la formation.
+D'un revers de manche, il fit un pas vers l'Royaume Extérieur. Son corps se changea en un rayon de lumière et il s'élança instantanément hors de la formation.
 
 « Miao Yin, Neuf Cieux, Grande Désolation, les trois vous, dégagez de là!! » Le Maître Dao Bleu Rêve poussa soudain un rugissement. Ce cri propagea une onde puissante à travers le système stellaire, créant une véritable tempête. Cela força Miao Yin et ses compagnons à s'arrêter!
 

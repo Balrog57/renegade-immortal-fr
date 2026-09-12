@@ -40,7 +40,7 @@ Cependant, la montagne qui abritait la grotte avait totalement disparu.
 
 « Le temps passe, les gens changent... » Les yeux de Li Muwan s'assombrirent.
 
-« En seulement quelques centaines d'années, la formation du dragon a été détruite, la grotte a disparu, et les souvenirs du passé se sont effacés avec le temps... » L'aura mortelle entourant Li Muwan devint soudainement plus intense. Elle se mordit la lèvre inférieure et dit: « Je ne veux plus aller à Hou Fen. Une fois que nous aurons acheté les recettes de pilules, rentrons chez nous. »
+« En seulement quelques centaines d'années, la formation du dragon a été détruite, la grotte a disparu, et les souvenirs du passé se sont effacés avec le temps... » L'aura mortelle entourant Li Muwan devint soudainement plus intense. Elle se mordit la lèvre inférieure et dit: « Je ne veux plus aller à Huo Fen. Une fois que nous aurons acheté les recettes de pilules, rentrons chez nous. »
 
 Lu Fei et Tie Yan, debout derrière eux, soupirèrent secrètement et gardèrent le silence.
 

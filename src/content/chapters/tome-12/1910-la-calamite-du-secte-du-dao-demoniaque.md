@@ -1,9 +1,9 @@
 ---
 n: 1910
-title: "La Calamité du Secte du Dao Démoniaque!"
+title: "La Calamité de la Secte du Dao Démoniaque!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
-en: "Chapter 1910 - Devil Dao Sect’s Calamity !"
+en: "Chapter 1910 - Devil Dao Secte’s Calamity !"
 slug: la-calamite-du-secte-du-dao-demoniaque
 ---
 Chapitre 1910 - La Calamité de la Secte du Dao Démoniaque!
@@ -64,7 +64,7 @@ Tandis que la lumière solaire dispersée descendait sur eux, une silhouette en 
 
 Le vieil homme à la robe dorée réprima ses tremblements et rugit: « Qui êtes-vous, Monsieur?! Pourquoi avez-vous forcé l'entrée de mon Secte du Dao Démoniaque et détruit notre formation? »
 
-« Mon Secte du Dao Démoniaque est l'un des neuf sectes et treize factions du Continent de l'Est, et nous possédons un ancêtre Empyrean Exalt! Monsieur, vous cachez votre visage pour surgir ici, contre qui nourrissez-vous une telle rancune?! » Outre le vieil homme, le cœur de l'homme d'âge moyen en robe rouge battait la chamade. Bien qu'il fût au stade avancé de la Tribulation du Vide, il n'avait pu lui-même percer la formation de brouillard, et encore moins la détruire d'une manière aussi prodigieuse!
+« Mon Secte du Dao Démoniaque est l'un des neuf sectes et treize factions du Continent de l'Est, et nous possédons un ancêtre Exalté Empyréen! Monsieur, vous cachez votre visage pour surgir ici, contre qui nourrissez-vous une telle rancune?! » Outre le vieil homme, le cœur de l'homme d'âge moyen en robe rouge battait la chamade. Bien qu'il fût au stade avancé de la Tribulation du Vide, il n'avait pu lui-même percer la formation de brouillard, et encore moins la détruire d'une manière aussi prodigieuse!
 
 Si ces deux-là étaient ainsi terrifiés, que dire des dizaines de cultivateurs du troisième stade qui venaient de frôler la mort? Tous fixaient Wang Lin avec effroi.
 

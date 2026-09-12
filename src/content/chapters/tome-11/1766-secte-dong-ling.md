@@ -3,7 +3,7 @@ n: 1766
 title: Secte Dong Ling
 book: 11
 bookTitle: Mysteries of the Ancient Era
-en: Chapter 1766 - Dong Ling Sect
+en: Chapter 1766 - Dong Ling Secte
 slug: secte-dong-ling
 ---
 Grâce à l'utilisation du fou comme bouclier, la force destructrice fut affaiblie au point que l'héritage du Dao Antique de Wang Lin put y résister.

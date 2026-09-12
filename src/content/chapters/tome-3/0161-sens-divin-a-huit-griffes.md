@@ -10,7 +10,7 @@ Un corps principal et trois avatars. Leurs sens divins étaient liés entre eux,
 
 Tout cultivateur entrant ou sortant de Xuan Wu devait passer par ce périmètre de sens divins. De cette façon, le Seigneur Démon Extrême du Huitième Niveau en garderait le contrôle total.
 
-Ce vieil homme avait été contraint à cette extrémité. Il avait poursuivi Wang Lin depuis la Mer des Démons, traversé Hou Fen, et s'était frayé un chemin jusqu'à Xuan Wu, pour que soudainement la présence de Wang Lin disparaisse totalement.
+Ce vieil homme avait été contraint à cette extrémité. Il avait poursuivi Wang Lin depuis la Mer des Démons, traversé Huo Fen, et s'était frayé un chemin jusqu'à Xuan Wu, pour que soudainement la présence de Wang Lin disparaisse totalement.
 
 Malgré sa puissance, il ne parvenait toujours pas à le débusquer. Il avait pensé que Wang Lin se cachait profondément sous terre, mais même après avoir scanné les profondeurs, il n'avait rien trouvé.
 
@@ -18,17 +18,17 @@ Pourtant, il n'avait pas abandonné. Lorsqu'il apprit que Wang Lin pouvait utili
 
 C'était l'unique raison pour laquelle il avait déployé tant d'efforts à traquer Wang Lin. Normalement, avec ses capacités, capturer ce dernier aurait dû être un jeu d'enfant, mais Wang Lin était aussi insaisissable qu'un ver et disparaissait sans laisser de trace. Il avait attendu quatre-vingt-dix-sept jours la première fois, mais au moment où Wang Lin finit par sortir et qu'il allait enfin l'attraper, le petit morveux s'était enfui sous terre en utilisant une technique d'évasion tellurique.
 
-Heureusement, il avait emprunté le bateau de terre. Ce trésor renfermait une puissante technique d'évasion tellurique, ce qui rendait les choses bien plus aisées. Bien qu'il ne puisse pas utiliser pleinement ses techniques sous terre, il pensait que cela ne poserait aucun problème tant qu'il parviendrait à s'approcher. Cependant, il n'avait pas prévu que la destination du petit morveux soit la montagne de l'Union Hou Fen.
+Heureusement, il avait emprunté le bateau de terre. Ce trésor renfermait une puissante technique d'évasion tellurique, ce qui rendait les choses bien plus aisées. Bien qu'il ne puisse pas utiliser pleinement ses techniques sous terre, il pensait que cela ne poserait aucun problème tant qu'il parviendrait à s'approcher. Cependant, il n'avait pas prévu que la destination du petit morveux soit la montagne de l'Union Huo Fen.
 
-Bien qu'il ait pu détruire la formation de protection de la secte d'une seule paume, il avait une fois de plus perdu la trace du garçon. C'est pourquoi il risquait de s'attirer les foudres du pays de culture de rang 4 situé derrière Xuan Wu et Hou Fen en verrouillant le pays avec son sens divin.
+Bien qu'il ait pu détruire la formation de protection de la secte d'une seule paume, il avait une fois de plus perdu la trace du garçon. C'est pourquoi il risquait de s'attirer les foudres du pays de culture de rang 4 situé derrière Xuan Wu et Huo Fen en verrouillant le pays avec son sens divin.
 
-En vérité, il n'avait tué personne dans l'un ou l'autre des deux pays. Cela était dû en grande partie à la présence de ce pays de culture de rang 4. Plus le niveau de culture d'un individu est élevé, plus il connaît les rouages internes de Suzaku. Xuan Wu et Hou Fen étant soutenus par le même pays de culture de rang 4, leurs affrontements n'avaient pas d'importance. En revanche, si un étranger s'y aventurait, ils interviendraient.
+En vérité, il n'avait tué personne dans l'un ou l'autre des deux pays. Cela était dû en grande partie à la présence de ce pays de culture de rang 4. Plus le niveau de culture d'un individu est élevé, plus il connaît les rouages internes de Suzaku. Xuan Wu et Huo Fen étant soutenus par le même pays de culture de rang 4, leurs affrontements n'avaient pas d'importance. En revanche, si un étranger s'y aventurait, ils interviendraient.
 
 Si cela s'était produit auparavant, il aurait pu tuer qui bon lui semblait, mais comme cet endroit allait bientôt s'ouvrir, il ne voulait pas causer trop de troubles ici.
 
 Ce confinement dura deux ans.
 
-Durant ces deux années, Xuan Wu et l'Union Hou Fen s'étaient habitués à être balayés par le sens divin du vieil homme. Cela pouvait se produire plusieurs fois par jour.
+Durant ces deux années, Xuan Wu et l'Union Huo Fen s'étaient habitués à être balayés par le sens divin du vieil homme. Cela pouvait se produire plusieurs fois par jour.
 
 Presque tout le monde connaissait la source de ce phénomène. Les Anciens avaient tous averti les habitants qu'ils n'avaient pas le droit de se déplacer dans les quatre directions d'où émanaient les sens divins.
 

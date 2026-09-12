@@ -90,7 +90,7 @@ Au onzième mois de son voyage, le continent apparut à l'horizon. En le voyant,
 
 Wang Lin fit ses adieux à l'équipage qu'il avait côtoyé pendant près d'un an. Il quitta le navire marchand pour débarquer sur ce continent inconnu.
 
-Il y avait ici de nombreux royaumes mortels, ainsi que de nombreuses sectes et des cultivateurs qu'il aurait pu reconnaître de ses rêves. Parmi ces pays, il y en avait un nommé Hou Fen.
+Il y avait ici de nombreux royaumes mortels, ainsi que de nombreuses sectes et des cultivateurs qu'il aurait pu reconnaître de ses rêves. Parmi ces pays, il y en avait un nommé Huo Fen.
 
 Wang Lin marcha calmement sur ce continent, de l'autre côté de la mer par rapport à sa patrie. Il contemplait les montagnes inconnues, les eaux étrangères et ces visages nouveaux au fil de sa marche.
 

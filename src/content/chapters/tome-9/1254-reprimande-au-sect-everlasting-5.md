@@ -3,7 +3,7 @@ n: 1254
 title: Réprimande à la Secte Éternelle (5)
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: Chapter 1254 - Rebuking the Everlasting Sect (5)
+en: Chapter 1254 - Rebuking the Everlasting Secte (5)
 slug: reprimande-au-sect-everlasting-5
 ---
 Le Doigt Céleste n'utilisait pas d'énergie spirituelle céleste, car ce sortilège n'était pas de nature céleste. C'était une technique que Wang Lin pouvait utiliser lorsqu'il fusionnait avec l'âme de l'Omniscient pendant un instant.
@@ -28,7 +28,7 @@ L'attaque fulgurante de Wang Lin avait totalement stupéfié l'assistance.
 
 Lu Yanfei baissa la tête, affichant un calme apparent, mais une douce chaleur enveloppait son cœur.
 
-Mu Bingmei affichait une expression complexe, l'amertume dans son cœur s'intensifiant. Elle songeait au Système Stellaire de l'Alliance, à la destruction du Royaume Brilliant Void et à la puissance de Tuo Sen. Sa situation était semblable à celle de Lu Yanfei.
+Mu Bingmei affichait une expression complexe, l'amertume dans son cœur s'intensifiant. Elle songeait au Système Stellaire de l'Alliance, à la destruction du Royaume Vide Brillant et à la puissance de Tuo Sen. Sa situation était semblable à celle de Lu Yanfei.
 
 Pourtant, Lu Yanfei pouvait compter sur sa présence derrière elle, tandis qu'elle... dans son impuissance, ne pouvait que rester silencieusement forte et tout endurer.
 

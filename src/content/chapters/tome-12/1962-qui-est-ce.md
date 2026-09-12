@@ -12,7 +12,7 @@ Chapitre 1962 - Qui est-ce?
 
 Cette colère était la preuve de sa spéculation précédente: le voyage vers la cité impériale serait extrêmement dangereux!
 
-La raison pour laquelle l'Empereur Céleste s'était manifesté pour briser l'élan de Wang Lin était d'empêcher tout Grand Empyrean de le recruter. Et même s'ils décidaient de le recruter, ils ne lui accorderaient pas le traitement qu'il méritait après avoir franchi le 13e palais.
+La raison pour laquelle l'Empereur Céleste s'était manifesté pour briser l'élan de Wang Lin était d'empêcher tout Grand Empyrée de le recruter. Et même s'ils décidaient de le recruter, ils ne lui accorderaient pas le traitement qu'il méritait après avoir franchi le 13e palais.
 
 Cette méthode était la plus directe, mais elle s'avérait extrêmement efficace!
 
@@ -48,9 +48,9 @@ Après l'entrée de Wang Lin dans le 14e palais, tous les cultivateurs en contre
 
 « Inutile d'y réfléchir — cet homme ne peut pas passer! Son armure de l'âme est épuisée, quel plan compte-t-il utiliser? »
 
-Les Empyrean Exalts regardèrent froidement le ciel, empreints de mépris envers Wang Lin. Quant aux dizaines d'Ascendant Empyreans, ils contemplaient tous les cieux avec des pensées divergentes. La plupart avaient décidé que Wang Lin échouerait, comparant son comportement à celui d'une bête acculée devenant folle.
+Les Exaltés Empyréens regardèrent froidement le ciel, empreints de mépris envers Wang Lin. Quant aux dizaines d'Ascendant Empyreans, ils contemplaient tous les cieux avec des pensées divergentes. La plupart avaient décidé que Wang Lin échouerait, comparant son comportement à celui d'une bête acculée devenant folle.
 
-Le Grand Empyrean Dao Yi regarda le ciel en fronçant les sourcils. Lui non plus ne pensait pas que Wang Lin puisse franchir le 14e palais.
+Le Grand Empyrée Dao Yi regarda le ciel en fronçant les sourcils. Lui non plus ne pensait pas que Wang Lin puisse franchir le 14e palais.
 
 « Être poussé au désespoir par l'Empereur Céleste avec seulement quelques mots montre que sa détermination n'est pas assez profonde. Cet enfant ne mérite pas d'être recruté. »
 
@@ -74,7 +74,7 @@ Elle était si éclatante qu'elle semblait transpercer les yeux et le cœur des 
 
 « Pourrait-il posséder une autre armure de l'âme? »
 
-Le Grand Empyrean Dao Yi fut stupéfait et s'éleva dans les airs pour observer de plus près la lumière dorée émanant du 14e palais!
+Le Grand Empyrée Dao Yi fut stupéfait et s'éleva dans les airs pour observer de plus près la lumière dorée émanant du 14e palais!
 
 « Il a réellement franchi le 14e palais! » Les yeux de l'Ascendant Empyrean Ming Dao furent emplis d'une intention meurtrière alors qu'il fixait le ciel.
 
@@ -88,17 +88,17 @@ Lorsqu'il pénétra dans le 15e palais au cœur de l'éclat doré, une immense o
 
 « Même avec une armure de l'âme, atteindre le 15e palais est absolument prodigieux! »
 
-Le Grand Empyrean Dao Yi fixait le ciel. Il avait renoncé à recruter Wang Lin, mais son intention venait de renaître.
+Le Grand Empyrée Dao Yi fixait le ciel. Il avait renoncé à recruter Wang Lin, mais son intention venait de renaître.
 
 Une respiration, deux respirations, trois respirations... Après que Wang Lin eut passé neuf respirations dans le 15e palais, une lumière dorée éblouissante jaillit de celui-ci!
 
 Cette clarté perça les nuages et se propagea rapidement. Cette apparition fut comme une gifle monumentale assénée au visage de l'Empereur Céleste. Ce dernier ouvrit les yeux, révélant un signe rare de choc.
 
-Le Grand Empyrean Dao Yi prit une profonde inspiration, une lumière dorée brillant dans ses propres yeux.
+Le Grand Empyrée Dao Yi prit une profonde inspiration, une lumière dorée brillant dans ses propres yeux.
 
 « Cet enfant... nous nous sommes tous trompés sur lui. Il possède un potentiel encore plus terrifiant que Ming Dao. Même l'armure de l'âme n'est pour lui qu'un outil supplémentaire! Si n'importe qui d'autre avait eu cette même armure, qui oserait prétendre pouvoir franchir le 15e palais? »
 
-Le Grand Empyrean Wu Feng restait calme, mais un sourire apparut au coin de ses lèvres et il ne cachait pas l'admiration dans son regard. Il n'hésitait pas à s'opposer à l'Empereur Céleste, car il faisait un pari. Wang Lin se souviendrait de lui, et même si ce dernier choisissait de ne pas le suivre, ils entretiendraient une relation privilégiée si Wang Lin devenait un jour un Grand Empyrean!
+Le Grand Empyrée Wu Feng restait calme, mais un sourire apparut au coin de ses lèvres et il ne cachait pas l'admiration dans son regard. Il n'hésitait pas à s'opposer à l'Empereur Céleste, car il faisait un pari. Wang Lin se souviendrait de lui, et même si ce dernier choisissait de ne pas le suivre, ils entretiendraient une relation privilégiée si Wang Lin devenait un jour un Grand Empyrée!
 
 « Le 15e palais... Il a franchi le 15e palais... » Une intention meurtrière brilla dans les yeux de l'Ascendant Empyrean Ming Dao. Son orgueil ne pouvait tolérer une telle chose. Il s'élança vers le ciel.
 
@@ -114,7 +114,7 @@ Des pensées similaires circulèrent également parmi les Ascendant Empyreans. �
 
 Quelle que soit la méthode, franchir le 15e palais était une preuve de force absolue!
 
-L'Empyrean Exalt Hai Zi observa la scène depuis la foule et sourit en levant les yeux. Bien qu'elle sût que l'écart entre eux s'était encore creusé — au point qu'elle ne pouvait plus que le regarder de bas en haut — elle se sentait profondément heureuse.
+L'Exalté Empyréen Hai Zi observa la scène depuis la foule et sourit en levant les yeux. Bien qu'elle sût que l'écart entre eux s'était encore creusé — au point qu'elle ne pouvait plus que le regarder de bas en haut — elle se sentait profondément heureuse.
 
 L'ascension de l'Ascendant Empyrean Ming Dao fit monter l'excitation à son comble. Il vola droit vers les cieux, et au moment où Wang Lin atteignit le 16e palais, les deux entrèrent dans celui-ci simultanément!
 
@@ -122,7 +122,7 @@ L'Essai Empyréen n'était pas limité à une seule personne à la fois. Les deu
 
 Le 16e palais ne s'était pas illuminé depuis des éons. Ce n'était pas comme le 15e palais, qui s'était manifesté une fois auparavant.
 
-« L'Ascendant Empyrean Ming Dao et Wang Lin tentent tous deux le 16e palais en même temps. Qui réussira? » Le Grand Empyrean Dao Yi fixait le ciel, l'anticipation faisant battre son cœur.
+« L'Ascendant Empyrean Ming Dao et Wang Lin tentent tous deux le 16e palais en même temps. Qui réussira? » Le Grand Empyrée Dao Yi fixait le ciel, l'anticipation faisant battre son cœur.
 
 Après tout, l'un était célèbre depuis de nombreuses années tandis que l'autre venait de commencer son ascension fulgurante. Que les deux tentent le 16e palais était un événement majeur pour le clan céleste!
 
@@ -142,10 +142,10 @@ En un éclair, neuf respirations passèrent. À peine la neuvième achevée, le 
 
 Dao Yi, Wu Feng et l'Empereur Céleste fixaient tous la scène avec gravité. Ils voulaient tous savoir qui cela était!
 
-L'Empyrean Exalt Hai Zi regarda le ciel avec nervosité avant de laisser éclater une expression de joie!
+L'Exalté Empyréen Hai Zi regarda le ciel avec nervosité avant de laisser éclater une expression de joie!
 
 À l'extérieur du 16e palais, Wang Lin sortit. Son visage était légèrement pâle, mais il ne se dirigea pas immédiatement vers le 17e palais. Il resta là, contemplant le palais comme s'il attendait l'Ascendant Empyrean Ming Dao!
 
 Cette scène fit écarquiller les yeux de Dao Yi. Wu Feng fut frappé par le choc. Quant à l'Empereur Céleste, son expression changeait sans cesse, tentant désespérément de masquer son incrédulité.
 
-Et même le Grand Empyrean Jiu Di, au Mont de l'Empereur, en eut le souffle coupé.
+Et même le Grand Empyrée Jiu Di, au Mont de l'Empereur, en eut le souffle coupé.

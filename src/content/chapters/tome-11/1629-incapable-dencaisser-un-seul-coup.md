@@ -8,7 +8,7 @@ slug: incapable-dencaisser-un-seul-coup
 ---
 Wang Lin utilisait son Dao du Vrai et du Faux pour créer une illusion de rétribution divine. Les innombrables silhouettes au sein de la brume laissaient échapper des rugissements de lutte, toutes dirigées vers la faille surplombant Wang Lin.
 
-Un grondement tonnerre résonna à travers tout le Brilliant Void. La faille, frappée par la rétribution divine de Wang Lin, trembla violemment. Les cheveux blancs de Wang Lin flottaient alors qu'il fixait froidement la brèche et s'avançait calmement vers elle.
+Un grondement tonnerre résonna à travers tout le Vide Brillant. La faille, frappée par la rétribution divine de Wang Lin, trembla violemment. Les cheveux blancs de Wang Lin flottaient alors qu'il fixait froidement la brèche et s'avançait calmement vers elle.
 
 Son pas n'était pas rapide, mais chaque enjambée provoquait un fracas tonitruant qui intensifiait les grondements provenant de la faille.
 

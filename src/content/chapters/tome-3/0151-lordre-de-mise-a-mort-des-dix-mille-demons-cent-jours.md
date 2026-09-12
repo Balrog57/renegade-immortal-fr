@@ -28,15 +28,15 @@ Wang Lin leva les yeux vers l'immense caractère « Punir » qui surplombait sa 
 
 Mu Nan et Mu Bei fixèrent avec stupéfaction le gigantesque caractère rouge « Punir » suspendu dans les airs, ressentant une soudaine pulsion de cupidité. Cependant, celle-ci disparut aussitôt qu'ils se tinrent respectueusement sur la montagne Mu Ding, un frisson leur parcourant l'échine.
 
-Wang Lin les dévisagea froidement et demanda: « Le quartier général de la Secte Fighting Evil compte-t-il des cultivateurs de l'Âme Naissante? »
+Wang Lin les dévisagea froidement et demanda: « Le quartier général de la Secte Dou Xie compte-t-il des cultivateurs de l'Âme Naissante? »
 
-Mu Nan répondit précipitamment: « Aucun. Pas seulement la Secte Fighting Evil, il n'y a aucun cultivateur de l'Âme Naissante dans un rayon de dix millions de kilomètres autour de la ville de Nan Dou. Comment ces seniors pourraient-ils être ici? Ils sont tous dans la mer intérieure. »
+Mu Nan répondit précipitamment: « Aucun. Pas seulement la Secte Dou Xie, il n'y a aucun cultivateur de l'Âme Naissante dans un rayon de dix millions de kilomètres autour de la ville de Nan Dou. Comment ces seniors pourraient-ils être ici? Ils sont tous dans la mer intérieure. »
 
-Wang Lin fixa Mu Nan du regard jusqu'à ce que les jambes de ce dernier se mettent à trembler, avant de demander: « Quel est le niveau de culture du chef de la Secte Fighting Evil? »
+Wang Lin fixa Mu Nan du regard jusqu'à ce que les jambes de ce dernier se mettent à trembler, avant de demander: « Quel est le niveau de culture du chef de la Secte Dou Xie? »
 
-Mu Bei fit un pas en avant et dit rapidement: « Senior, le chef de la Secte Fighting Evil est au stade intermédiaire de la Formation du Noyau. Cependant, il est au sommet de son niveau et l'on dit qu'il n'est qu'à un pas du stade avancé. »
+Mu Bei fit un pas en avant et dit rapidement: « Senior, le chef de la Secte Dou Xie est au stade intermédiaire de la Formation du Noyau. Cependant, il est au sommet de son niveau et l'on dit qu'il n'est qu'à un pas du stade avancé. »
 
-Wang Lin ricana intérieurement. Une lueur de froideur traversa ses yeux alors qu'il déclarait: « Vous deux, montrez-moi le chemin. Nous allons nous rendre au quartier général de la Secte Fighting Evil. »
+Wang Lin ricana intérieurement. Une lueur de froideur traversa ses yeux alors qu'il déclarait: « Vous deux, montrez-moi le chemin. Nous allons nous rendre au quartier général de la Secte Dou Xie. »
 
 Comment Mu Nan et Mu Bei auraient-ils osé refuser? Ils se levèrent et guidèrent respectueusement le chemin. En volant, ils jetèrent des regards vers le caractère rouge au-dessus de Wang Lin, priant pour que cela attire davantage de personnes afin de le tuer.
 

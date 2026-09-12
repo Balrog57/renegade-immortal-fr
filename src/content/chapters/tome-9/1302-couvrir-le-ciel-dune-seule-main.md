@@ -76,13 +76,13 @@ Tandis que les grondements tonitruants s'intensifiaient, les nuages et le tonner
 
 Wang Shanshan, à ses côtés, pâlit et leva les yeux vers le ciel.
 
-Au plus profond de la Secte Divin, dans la chambre où se trouvait Daoist Water, la lumière aux sept couleurs entre ses sourcils s'était affaiblie. La pointe de l'ongle aux sept couleurs était apparue et toutes les veines de son corps avaient gonflé. Il était sur le point d'expulser l'ongle aux sept couleurs!
+Au plus profond de la Secte Divin, dans la chambre où se trouvait Shui Daozi, la lumière aux sept couleurs entre ses sourcils s'était affaiblie. La pointe de l'ongle aux sept couleurs était apparue et toutes les veines de son corps avaient gonflé. Il était sur le point d'expulser l'ongle aux sept couleurs!
 
 Les grondements tonitruants précédents ne le distraient absolument pas. Il se trouvait au moment le plus critique, et même si le ciel s'effondrait, il ne détournerait pas le regard. Toute son attention était concentrée sur l'expulsion de l'ongle aux sept couleurs.
 
-Cependant, à cet instant précis, les grondements tonitruants résonnèrent de nouveau, et une trace de la volonté de Wang Lin parvint aux oreilles de Daoist Water au milieu du fracas. L'ongle aux sept couleurs s'était déjà terni et était sur le point d'être expulsé, mais à ce moment-là, en raison de la volonté de Wang Lin contenue dans le grondement, il entra en résonance avec la voix de Wang Lin et brilla de plus belle!
+Cependant, à cet instant précis, les grondements tonitruants résonnèrent de nouveau, et une trace de la volonté de Wang Lin parvint aux oreilles de Shui Daozi au milieu du fracas. L'ongle aux sept couleurs s'était déjà terni et était sur le point d'être expulsé, mais à ce moment-là, en raison de la volonté de Wang Lin contenue dans le grondement, il entra en résonance avec la voix de Wang Lin et brilla de plus belle!
 
-Ce flash intense fit changer radicalement l'expression de Daoist Water, qui cracha du sang. Tous ses efforts acharnés étaient anéantis!
+Ce flash intense fit changer radicalement l'expression de Shui Daozi, qui cracha du sang. Tous ses efforts acharnés étaient anéantis!
 
 Il fixa le vide, hébété, et lâcha un rugissement qui ébranla les cieux!
 

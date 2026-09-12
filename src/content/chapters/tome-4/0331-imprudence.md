@@ -28,7 +28,7 @@ Song Qing fut saisi de stupeur. Il observa la silhouette, à la fois étrange à
 
 « C'est lui... »
 
-Tous les disciples de la Secte Cloud Sky encore en vie sentirent une bise glaciale pénétrer leurs corps, tandis que les insectes hurlaient en s'échappant.
+Tous les disciples de la Secte Ciel Nuageux encore en vie sentirent une bise glaciale pénétrer leurs corps, tandis que les insectes hurlaient en s'échappant.
 
 « C'est lui... » Presque tous les disciples levèrent la tête pour contempler cet homme.
 
@@ -40,9 +40,9 @@ Zhan Bai frissonna imperceptiblement. Jusqu'à présent, il n'avait absolument p
 
 Il se retourna brusquement et vit Wang Lin. Son visage fut frappé par l'incrédulité. Inconsciemment, il recula de quelques pas et hurla: « Toi... Ceng Niu! »
 
-Toute la Secte Cloud Sky était sur le point d'atteindre un point de rupture lorsque Zhan Bai prononça ce nom.
+Toute la Secte Ciel Nuageux était sur le point d'atteindre un point de rupture lorsque Zhan Bai prononça ce nom.
 
-« Ceng Niu!! » Très peu de personnes au sein de la Secte Cloud Sky ignoraient ce nom. L'homme le plus célèbre de Suzaku en ce moment même était Ceng Niu!
+« Ceng Niu!! » Très peu de personnes au sein de la Secte Ciel Nuageux ignoraient ce nom. L'homme le plus célèbre de Suzaku en ce moment même était Ceng Niu!
 
 « Ceng Niu!! » Certains disciples de rang inférieur furent frappés par le choc.
 
@@ -54,13 +54,13 @@ Les yeux des deux anciens chefs au stade avancé de l'Âme Naissante brillèrent
 
 Le regard de Wang Lin devint glacial. Cette froideur n'était apparue que lorsqu'il massacrait la famille Teng. Cela signifiait que la colère de Wang Lin avait atteint son paroxysme et qu'il s'apprêtait à tuer.
 
-« C'est donc toi qui veux anéantir la Secte Cloud Sky... » La voix de Wang Lin était aussi glaciale que les vents des enfers.
+« C'est donc toi qui veux anéantir la Secte Ciel Nuageux... » La voix de Wang Lin était aussi glaciale que les vents des enfers.
 
 Ce vent glacial frappa le corps de Zhan Bai. Pour lui, il était plus froid que n'importe quel souffle qu'il avait jamais ressenti. Wang Lin, capable de saisir le bras de Papillon Rouge, apparut derrière Zhan Bai sans avoir été détecté. Cela terrifia profondément ce dernier.
 
 Avant même que le combat ne commence, l'idée de s'enfuir lui traversa l'esprit.
 
-Zhan Bai balbutia: « Ceng... Ceng Niu, je ne savais pas que tu appartenais à la Secte Cloud Sky. Cette fois, j'ai été imprudent... »
+Zhan Bai balbutia: « Ceng... Ceng Niu, je ne savais pas que tu appartenais à la Secte Ciel Nuageux. Cette fois, j'ai été imprudent... »
 
 « Imprudent? » Les yeux de Wang Lin s'illuminèrent et il chargea soudainement. Le drapeau de restriction sortit de son sac de rangement et se transforma en un brouillard noir qui fonça sur Zhan Bai.
 
@@ -128,7 +128,7 @@ C'était la première fois qu'il utilisait son domaine à pleine puissance. Il m
 
 Zhan Bai se plaignit intérieurement, mais sa fierté l'emporta. Ses yeux devinrent rouges alors qu'il frappait son sac de rangement, faisant apparaître un essaim d'insectes rouges.
 
-Zhan Bai hurla: « Ceng Niu, il n'y a aucune haine entre nous! Pourquoi aller si loin?! Je n'ai tué que quelques disciples de ta Secte Cloud Sky! »
+Zhan Bai hurla: « Ceng Niu, il n'y a aucune haine entre nous! Pourquoi aller si loin?! Je n'ai tué que quelques disciples de ta Secte Ciel Nuageux! »
 
 « Désormais, il y en a une! » Les yeux de Wang Lin brillèrent et il pointa Zhan Bai. Un rugissement tonnerre émana du parchemin et un vortex apparut, entouré d'un épais brouillard gris.
 

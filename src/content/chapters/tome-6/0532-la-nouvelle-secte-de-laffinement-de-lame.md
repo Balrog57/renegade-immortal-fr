@@ -3,7 +3,7 @@ n: 532
 title: "La Nouvelle Secte de l'Affinement de l'Âme"
 book: 6
 bookTitle: Arriving on Tian Yun
-en: Chapter 532 - The New Soul Refining Sect
+en: Chapter 532 - The New Soul Refining Secte
 slug: la-nouvelle-secte-de-laffinement-de-lame
 ---
 Wang Lin se tenait devant la fissure. À cet instant, ses yeux s'illuminèrent; il tendit la main droite et ordonna: « Collecte! »

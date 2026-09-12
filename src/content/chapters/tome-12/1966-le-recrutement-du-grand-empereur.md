@@ -3,7 +3,7 @@ n: 1966
 title: Le recrutement du Grand Empereur
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
-en: Chapter 1966 - The Grand Empyrean’s recruitment
+en: Chapter 1966 - The Grand Empyrée’s recruitment
 slug: le-recrutement-du-grand-empereur
 ---
 Continent de l'Est, Grand Continent des Sages.

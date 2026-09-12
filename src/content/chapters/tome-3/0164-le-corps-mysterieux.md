@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 164 - The Mysterious Corpse
 slug: le-corps-mystérieux
 ---
-Parmi les quatre grandes sectes, seule la Secte des Cadavres était revenue à Hou Fen après que le pays de culture de rang 4 soit intervenu pour éliminer les bêtes de feu.
+Parmi les quatre grandes sectes, seule la Secte des Cadavres était revenue à Huo Fen après que le pays de culture de rang 4 soit intervenu pour éliminer les bêtes de feu.
 
 Ce mouvement déconcerta de nombreuses personnes. Bien que les bêtes de feu aient été nettoyées, l'énergie spirituelle y était devenue trop violente pour la culture. En conséquence, le pays entier était devenu une zone morte pour les cultivateurs.
 
@@ -16,7 +16,7 @@ Aux yeux des trois autres sectes, la Secte des Cadavres était extrêmement myst
 
 Compte tenu de cela, les trois grandes sectes gardèrent le silence et n'essayèrent pas de les arrêter.
 
-Dans la partie occidentale de Hou Fen, sous les volcans en éruption, se trouvait une immense grotte menant à un réseau de tunnels et de cavernes interconnectés qui formaient leur propre monde souterrain.
+Dans la partie occidentale de Huo Fen, sous les volcans en éruption, se trouvait une immense grotte menant à un réseau de tunnels et de cavernes interconnectés qui formaient leur propre monde souterrain.
 
 Comparée à la Secte des Cadavres de Zhao, la structure était assez similaire, bien qu'un peu plus vaste.
 
@@ -48,7 +48,7 @@ Ye Zizai ricana, sa voix empreinte de mécontentement. « Si ce n'était pas par
 
 Zhao Chuanliang prit une profonde inspiration et plaça un morceau de jade sur son front. Après quelques instants, il lança le jade.
 
-« Tous les cultivateurs du stade de la Formation du Noyau et au-delà, suivez-moi pour un voyage vers l'Union de Hou Fen! » À cet ordre, tous les disciples de la Secte des Cadavres ouvrirent les yeux, une lueur spectrale brillant dans leur regard.
+« Tous les cultivateurs du stade de la Formation du Noyau et au-delà, suivez-moi pour un voyage vers l'Union de Huo Fen! » À cet ordre, tous les disciples de la Secte des Cadavres ouvrirent les yeux, une lueur spectrale brillant dans leur regard.
 
 Quant à Wang Lin, bien que le Chemin Divin fût extraordinaire, il n'était pas opportun pour lui de s'y consacrer à la culture pour le moment. Après avoir réfléchi un instant, il laissa échapper un soupir et commença à partir. Ce qui surprit Wang Lin, c'est que le Chemin Divin restait gravé dans son esprit au lieu de disparaître comme d'ordinaire.
 
@@ -152,15 +152,15 @@ Le visage de Wang Lin resta impassible, mais son cœur trembla. Sa supposition �
 
 L'Ancien hocha la tête et rentra dans le temple. Dès qu'il eut franchi la porte, Wang Lin s'envola rapidement hors de la montagne.
 
-En un instant, il quitta les montagnes de l'Union de Hou Fen et aperçut l'Ancien assis sur un nuage. Ce dernier ouvrit les yeux et renifla en voyant approcher Wang Lin: « Si tu étais resté plus longtemps, j'aurais dû entrer te chercher. »
+En un instant, il quitta les montagnes de l'Union de Huo Fen et aperçut l'Ancien assis sur un nuage. Ce dernier ouvrit les yeux et renifla en voyant approcher Wang Lin: « Si tu étais resté plus longtemps, j'aurais dû entrer te chercher. »
 
 Sans un mot, Wang Lin continua sa route. L'Ancien fit bouger son corps, dissipant les nuages pour révéler la calebasse sous lui, et le suivit rapidement.
 
-Wang Lin monta sur la calebasse et disparut dans les cieux avec l'Ancien. La vitesse de l'objet était fulgurante, dépassant même la technique d'évasion terrestre de Wang Lin. Ils virent bientôt apparaître la frontière entre Xuan Wu et Hou Fen.
+Wang Lin monta sur la calebasse et disparut dans les cieux avec l'Ancien. La vitesse de l'objet était fulgurante, dépassant même la technique d'évasion terrestre de Wang Lin. Ils virent bientôt apparaître la frontière entre Xuan Wu et Huo Fen.
 
 Durant le trajet, aucun mot ne fut échangé. Wang Lin sentait le sac de stockage contre lui, mais il ne chercha pas à vérifier son contenu ni à utiliser son Sens Divin pour l'explorer. L'Ancien étant juste à ses côtés, tout mouvement suspect provoquerait des ennuis.
 
-Peu de temps après, la calebasse franchit la frontière de Xuan Wu pour entrer dans Hou Fen. Un jour plus tard, ils atteignirent la bordure de la Mer des Démons, une zone totalement enveloppée par d'épais voiles de brouillard où l'on apercevait parfois des bêtes spirituelles surgir et disparaître.
+Peu de temps après, la calebasse franchit la frontière de Xuan Wu pour entrer dans Huo Fen. Un jour plus tard, ils atteignirent la bordure de la Mer des Démons, une zone totalement enveloppée par d'épais voiles de brouillard où l'on apercevait parfois des bêtes spirituelles surgir et disparaître.
 
 Arrivé à l'extérieur de la Mer des Démons, l'Ancien frappa la calebasse pour la faire rétrécir jusqu'à ce qu'elle tienne dans sa main. Wang Lin sauta au sol. L'Ancien rangea l'objet et déclara: « Nous allons attendre ici quelques jours une autre personne. Une fois qu'elle sera là, nous partirons tous les trois ensemble. »
 

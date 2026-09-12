@@ -90,7 +90,7 @@ Alors qu'un grondement retentissait, avant même que Wang Lin ne puisse en voir 
 
 « Shang Xuandao, oses-tu trahir cet Empereur?! »
 
-La paume dorée contenait la force destructrice d'un Grand Empyrean. Dès son apparition, elle absorba immédiatement la lumière dorée de Ming Dao et du fou. Lorsque toute cette puissance convergea, le palais entier fut secoué!
+La paume dorée contenait la force destructrice d'un Grand Empyrée. Dès son apparition, elle absorba immédiatement la lumière dorée de Ming Dao et du fou. Lorsque toute cette puissance convergea, le palais entier fut secoué!
 
 Le visage de l'Enseignant Impérial devint instantanément livide. Alors que la paume se refermait, il hurla:
 

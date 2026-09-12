@@ -1,9 +1,9 @@
 ---
 n: 1256
-title: "Réprimande au Sect de l'Éternité (7)"
+title: "Réprimande au Secte de l'Éternité (7)"
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: Chapter 1256 - Rebuking the Everlasting Sect (7)
+en: Chapter 1256 - Rebuking the Everlasting Secte (7)
 slug: reprimande-au-sect-de-leternite-7
 ---
 Parmi les cultivateurs présents, nul ne comprenait la portée de l'acte de Wang Lin. Ils sentirent seulement la main du jeune homme se refermer sur le sol, provoquant un tressaillement.

@@ -12,9 +12,9 @@ La neige recouvrait la cité ancestrale en cette matinée, rendant toute visibil
 
 Wang Lin se retourna et marcha à contre-courant du vent et de la neige, regagnant la cité ancestrale.
 
-Il tenait un jade dans sa main; c'était l'un de ses atouts pour venir dans la cité ancestrale. Il s'agissait de son accord avec la Grande Empyrean Gemini et l'Empyrean Exalt Gu Ya.
+Il tenait un jade dans sa main; c'était l'un de ses atouts pour venir dans la cité ancestrale. Il s'agissait de son accord avec la Grande Empyrean Gemini et l'Exalté Empyréen Gu Ya.
 
-Lorsque Wang Lin en aurait eu besoin, la Grande Empyrean Gemini viendrait l'aider en personne. C'était la promesse faite par la Grande Empyrean Gemini et l'Empyrean Exalt Gu Ya à Wang Lin!
+Lorsque Wang Lin en aurait eu besoin, la Grande Empyrean Gemini viendrait l'aider en personne. C'était la promesse faite par la Grande Empyrean Gemini et l'Exalté Empyréen Gu Ya à Wang Lin!
 
 C'est également grâce à l'existence de ce jade que Wang Lin osait venir, sachant qu'il se ferait ainsi un ennemi de l'Empereur Céleste!
 
@@ -86,7 +86,7 @@ Devant le palais, des dizaines de milliers de soldats en armure noire étaient a
 
 Dans le ciel, le monde changea de couleurs. Deux soleils brillaient désormais: l'un pourpre et l'autre doré! À l'intérieur du soleil pourpre se trouvait la Grande Empyrean Gemini, et dans le soleil doré, l'Empereur Céleste!
 
-Le combat entre les deux Grands Empyreans provoqua des grondements tonitruants qui rendirent le monde flou. Des ondes de choc se propagèrent dans toutes les directions.
+Le combat entre les deux Grands Empyrées provoqua des grondements tonitruants qui rendirent le monde flou. Des ondes de choc se propagèrent dans toutes les directions.
 
 « Grande Empyrean Gemini, ce Wang Lin commet une intrusion dans le palais et ne respecte pas l'Ancêtre Céleste. C'est le comportement d'un traître!! Allez-vous continuer à vous montrer si obstinés?! » La voix de l'Ancêtre Céleste résonna dans les cieux, accompagnée de tonnerres et de sorts dévastateurs.
 

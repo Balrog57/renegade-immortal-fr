@@ -50,7 +50,7 @@ La mort de ses parents. Le sourire de Teng Huayuan, son corps détruit, et Situ 
 
 Cela mena à quatre cents ans de massacres. Afin d'augmenter son niveau de culture pour pouvoir revenir se venger, il était devenu un homme sans cœur, insensible et sang-froid.
 
-Hou Fen, la Mer des Démons, et la terre de l'Ancien Dieu. Les scènes de tous ces lieux défilèrent devant ses yeux. L'ordre de tuer dix mille démons. Hormis le massacre de la famille Teng, ce fut le moment où il avait tué le plus.
+Huo Fen, la Mer des Démons, et la terre de l'Ancien Dieu. Les scènes de tous ces lieux défilèrent devant ses yeux. L'ordre de tuer dix mille démons. Hormis le massacre de la famille Teng, ce fut le moment où il avait tué le plus.
 
 Quant à la terre de l'Ancien Dieu, les souvenirs de Wang Lin concernant Bossu Meng et les autres étaient profonds et difficiles à oublier.
 

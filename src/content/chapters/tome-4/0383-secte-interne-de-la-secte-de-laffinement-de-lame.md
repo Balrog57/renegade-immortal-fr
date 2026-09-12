@@ -3,7 +3,7 @@ n: 383
 title: "Secte interne de la Secte de l'Affinement de l'Âme"
 book: 4
 bookTitle: Clean Sweep
-en: Chapter 383 - Inner Sect of the Soul Refining Sect
+en: Chapter 383 - Inner Secte of the Soul Refining Secte
 slug: secte-interne-de-la-secte-de-laffinement-de-lame
 ---
 Le sortilège de la mort fut créé par d'anciens cultivateurs qui avaient étudié le Royaume du Ji. Bien qu'il fût difficile à cultiver, il était plus facile à contrôler que le Royaume du Ji, lequel était impossible à maîtriser.

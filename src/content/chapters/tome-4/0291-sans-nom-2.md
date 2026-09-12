@@ -87,9 +87,9 @@ Après avoir quitté les Étoiles Brisées du Chaos, il réfléchit un instant e
 
 Après avoir obtenu ce Chaudron de la Pluie, Wang Lin l'avait étudié à maintes reprises. Il le contempla un moment avant de le ranger. Selon les cycles habituels, l'apparition des Chaudrons de la Pluie signifiait que les Portes Célestes étaient sur le point de s'ouvrir. De nombreuses années s'étaient déjà écoulées depuis leur apparition; le jour fatidique approchait. Malheureusement, ce vieil homme excentrique ne lui avait pas donné d'échéance précise, sans quoi la situation ne serait pas aussi complexe.
 
-Wang Lin soupira et sortit un morceau de jade de son sac. Après l'avoir inspecté, il monta sur le dos de la bête moustique et se dirigea vers Hou Fen. Son prochain objectif était de gagner le champ de bataille étranger pour rassembler suffisamment d'âmes errantes afin de créer davantage de démons et de parfaire ses préparatifs pour le Royaume Céleste.
+Wang Lin soupira et sortit un morceau de jade de son sac. Après l'avoir inspecté, il monta sur le dos de la bête moustique et se dirigea vers Huo Fen. Son prochain objectif était de gagner le champ de bataille étranger pour rassembler suffisamment d'âmes errantes afin de créer davantage de démons et de parfaire ses préparatifs pour le Royaume Céleste.
 
-Au centre de Hou Fen se trouvait une immense formation: un réseau de transfert directionnel unique qui s'ouvrait tous les 500 ans pour permettre aux disciples du champ de bataille étranger de rentrer chez eux. Ce jour-là, un homme apparut devant la formation. Vêtu de blanc, d'apparence douce, il ressemblait au fils d'une riche famille. Ses yeux étaient comme des étoiles et sa peau aussi blanche que la perle. Il étudiait la structure de la formation.
+Au centre de Huo Fen se trouvait une immense formation: un réseau de transfert directionnel unique qui s'ouvrait tous les 500 ans pour permettre aux disciples du champ de bataille étranger de rentrer chez eux. Ce jour-là, un homme apparut devant la formation. Vêtu de blanc, d'apparence douce, il ressemblait au fils d'une riche famille. Ses yeux étaient comme des étoiles et sa peau aussi blanche que la perle. Il étudiait la structure de la formation.
 
 Cet homme n'était autre que Wang Lin!
 

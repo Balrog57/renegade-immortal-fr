@@ -1,9 +1,9 @@
 ---
 n: 141
-title: Combattre le Secte de la Lutte contre le Mal
+title: Combattre la Secte de la Lutte contre le Mal
 book: 3
 bookTitle: Famous in the Sea of Devils
-en: Chapter 141 - Fighting Evil Sect
+en: Chapter 141 - Fighting Evil Secte
 slug: combattre-le-secte-de-la-lutte-contre-le-mal
 ---
 La brume était très épaisse dans la Mer des Diables, saturée d'énergie Yin. Wang Lin n'était arrivé que depuis peu, mais ses vêtements étaient déjà trempés. La sensation collante du tissu contre sa peau était particulièrement inconfortable.
@@ -18,7 +18,7 @@ Bientôt, d'étranges créatures commencèrent à apparaître dans la brume, cer
 
 Li Muwan était extrêmement nerveuse, car elle avait entendu trop de rumeurs sur cette Mer des Diables. Ici, la raison n'avait pas sa place, seule la puissance importait. De plus, la rareté des cultivatrices signifiait que sans un puissant soutien, son destin serait probablement bien misérable.
 
-Avant les troubles de Hou Fen, de nombreux cultivateurs étaient toujours stationnés à la frontière de la Mer des Diables, incluant souvent des cultivateurs au stade de l'Âme Naissante. Leur unique but était d'empêcher les cultivateurs démoniaques de piller leur pays.
+Avant les troubles de Huo Fen, de nombreux cultivateurs étaient toujours stationnés à la frontière de la Mer des Diables, incluant souvent des cultivateurs au stade de l'Âme Naissante. Leur unique but était d'empêcher les cultivateurs démoniaques de piller leur pays.
 
 Heureusement, les forces puissantes de la Mer des Diables se concentraient dans le centre. Les groupes situés en périphérie étaient de petite taille; ainsi, tant qu'on restait prudent, rien de trop grave ne se produisait.
 
@@ -45,7 +45,7 @@ Au début de cette bataille, un phénomène étrange frappait les cultivateurs d
 Si cela n'avait concerné qu'un ou deux individus, ce n'aurait pas été si grave, mais Xuan Wu ne comptait qu'une deux cents personnes à ce stade, et près de la moitié d'entre elles s'étaient éteintes ainsi. Lorsqu'elle en avait entendu parler, elle n'y avait pas cru, pensant à une simple rumeur; mais en voyant la mort de ces trois cultivateurs, elle ne put s'empêcher de repenser à cette histoire.
 
 Elle suivit Wang Lin et demanda d'une voix tremblante:
-« Senior... senior frère apprenti, dans l'Union de Hou Fen, de quelle armée faisiez-vous partie? »
+« Senior... senior frère apprenti, dans l'Union de Huo Fen, de quelle armée faisiez-vous partie? »
 
 Wang Lin ne tourna pas la tête et répondit froidement:
 « La dixième armée. »
@@ -122,7 +122,7 @@ Une fois le sang reçu, Wang Lin lança plusieurs sacs de rangement:
 « Tous les matériaux sont ici. Vois quel type de pilules tu peux raffiner. »
 
 Li Muwan inspecta les sacs avec son Sens Divin et s'exclama:
-« Ceci... c'est de la racine de bois désolé, et il y a de l'herbe au cœur jaune. Il y a aussi de la racine d'or brûlante et de l'herbe spirituelle céleste... » Plus elle fouillait, plus elle était stupéfaite. La majorité des composants servaient au raffinage, et certains avaient disparu de Hou Fen depuis longtemps. Seuls les disciples revenant du champ de bataille étranger tous les cent ans pouvaient en rapporter.
+« Ceci... c'est de la racine de bois désolé, et il y a de l'herbe au cœur jaune. Il y a aussi de la racine d'or brûlante et de l'herbe spirituelle céleste... » Plus elle fouillait, plus elle était stupéfaite. La majorité des composants servaient au raffinage, et certains avaient disparu de Huo Fen depuis longtemps. Seuls les disciples revenant du champ de bataille étranger tous les cent ans pouvaient en rapporter.
 
 Wang Lin se frotta le menton et lança plus d'une dizaine de sacs supplémentaires: ses récents butins. Après avoir retiré les trésors et les pierres spirituelles, il ne restait que des composants qu'il ignorait, ce qui permettait à Li Muwan de les identifier.
 

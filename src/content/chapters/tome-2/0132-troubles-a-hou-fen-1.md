@@ -1,12 +1,12 @@
 ---
 n: 132
-title: Troubles à Hou Fen (1)
+title: Troubles à Huo Fen (1)
 book: 2
 bookTitle: The Bloody Image of Cultivation
-en: Chapter 132 - Upheaval in Hou Fen (1)
+en: Chapter 132 - Upheaval in Huo Fen (1)
 slug: troubles-a-hou-fen-1
 ---
-Le corps de Sun Youcai tremblait alors qu'il s'enfuyait sous terre. La peur le paralysait au point où il avait du mal à respirer. À cet instant précis, il sentit la terre devant lui se réchauffer et il s'en plaignit intérieurement. Cette technique d’« évasion tellurique » était formidable partout ailleurs, mais ici, à Hou Fen, où les volcans abondaient, elle présentait des restrictions sérieuses.
+Le corps de Sun Youcai tremblait alors qu'il s'enfuyait sous terre. La peur le paralysait au point où il avait du mal à respirer. À cet instant précis, il sentit la terre devant lui se réchauffer et il s'en plaignit intérieurement. Cette technique d’« évasion tellurique » était formidable partout ailleurs, mais ici, à Huo Fen, où les volcans abondaient, elle présentait des restrictions sérieuses.
 
 S'il creusait accidentellement dans la lave, il ne pourrait que s'en vouloir.
 
@@ -30,7 +30,7 @@ Dès qu'il entra dans le volcan, Wang Lin aperçut Sun Youcai, qui contemplait l
 
 Wang Lin suivit le regard de l'homme vers la lave et vit des yeux triangulaires. Il prit une profonde inspiration et recula dans le tunnel. Se cachant sans bouger d'un pouce, il fixa ces yeux.
 
-D'après les souvenirs de Ma Liang, d'après ce qu'il avait appris durant son enfance, aucune créature ne vivait dans les volcans de Hou Fen. Si une telle chose existait, il aurait été impossible qu'elle échappe à la détection des cultivateurs de la région. Il faut dire que tous les quelques années, les ancêtres des quatre grandes sectes scellaient les volcans par mesure de sécurité.
+D'après les souvenirs de Ma Liang, d'après ce qu'il avait appris durant son enfance, aucune créature ne vivait dans les volcans de Huo Fen. Si une telle chose existait, il aurait été impossible qu'elle échappe à la détection des cultivateurs de la région. Il faut dire que tous les quelques années, les ancêtres des quatre grandes sectes scellaient les volcans par mesure de sécurité.
 
 Au même moment, Sun Youcai sembla être possédé par ce regard. Il descendit de son épée volante et posa ses pieds nus sur le rocher. Dès que sa peau toucha la pierre, une odeur de chair brûlée se propagea.
 
@@ -62,7 +62,7 @@ La créature jeta la boule de terre dans la lave avant de plonger à son tour av
 
 Les volcans environnants cessèrent de cracher leur fumée noire et la vague de chaleur se dissipa. Hormis le bassin géant formé par les bêtes de feu, aucune autre trace de l'événement ne subsistait.
 
-Et les bassins étaient très communs à Hou Fen. Presque chaque volcan était bordé de cuvettes, grandes ou petites.
+Et les bassins étaient très communs à Huo Fen. Presque chaque volcan était bordé de cuvettes, grandes ou petites.
 
 Wang Lin serra son corps pour résister aux ondes de chaleur intense. Au moment où la terre l'avait enveloppé, il avait recouvert son corps de son Sens Divin du Royaume Ji. Actuellement, son sens divin dissolvait lentement la sphère de terre.
 

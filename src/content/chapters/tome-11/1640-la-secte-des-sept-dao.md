@@ -3,7 +3,7 @@ n: 1640
 title: La Secte des Sept Dao
 book: 11
 bookTitle: Mysteries of the Ancient Era
-en: Chapter 1640 - Seven Dao Sect
+en: Chapter 1640 - Seven Dao Secte
 slug: la-secte-des-sept-dao
 ---
 Wang Lin retira son regard. Son Doigt de l'Immortel Antique pointait vers l'avant à plusieurs reprises et, à chaque impulsion, l'impact se dissipait un peu. Son index continuait de s'effondrer et de se régénérer jusqu'à ce qu'il finisse par déchirer une brèche dans l'onde de choc. Wang Lin en sortit alors.

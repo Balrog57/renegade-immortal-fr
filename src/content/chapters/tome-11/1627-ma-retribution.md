@@ -30,7 +30,7 @@ Wang Lin resta calme, fixant froidement le vortex au-dessus de lui. Son regard s
 
 « Aujourd'hui, moi, Wang Lin, infligerai une rétribution à la rétribution divine. La première sera nommée: Ma Rétribution du Tonnerre! » À ces mots, le tonnerre éclata de son corps et se répandit avec frénésie. Instantanément, un marquage de tonnerre gigantesque apparut au-dessus de lui.
 
-Ce marquage était radicalement différent de l'éclair vert. Il était rouge, d'un rouge sang! Cette lumière écarlate dégageait une lueur infinie et se mua en une rétribution de tonnerre propre à Wang Lin. Ce tonnerre pourpre fit changer les couleurs du monde; les nuages furent repoussés et le Brilliant Void tout entier trembla.
+Ce marquage était radicalement différent de l'éclair vert. Il était rouge, d'un rouge sang! Cette lumière écarlate dégageait une lueur infinie et se mua en une rétribution de tonnerre propre à Wang Lin. Ce tonnerre pourpre fit changer les couleurs du monde; les nuages furent repoussés et le Vide Brillant tout entier trembla.
 
 Wang Lin leva la main droite et pointa l'éclair céleste vert qui descendait. Le marquage rouge frémit et se transforma en un éclair céleste projeté vers le haut.
 

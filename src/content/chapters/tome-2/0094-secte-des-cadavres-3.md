@@ -3,7 +3,7 @@ n: 94
 title: Secte des Cadavres (3)
 book: 2
 bookTitle: The Bloody Image of Cultivation
-en: Chapter 94 - Corpse Yin Sect (3)
+en: Chapter 94 - Corpse Yin Secte (3)
 slug: secte-des-cadavres-3
 ---
 Wu Yu afficha une expression suppliante et dit rapidement: « Je ne peux pas quitter cet endroit, mais j'aimerais vous demander d'aller à la Secte des Cadavres pour demander à mon frère de discipline, Ye Zi, de venir me sauver. »

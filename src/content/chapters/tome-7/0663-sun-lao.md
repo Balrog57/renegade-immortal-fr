@@ -14,7 +14,7 @@ Même sans énergie spirituelle céleste, les cultivateurs situés en dessous du
 
 Wang Lin murmura: « Des trésors pseudo-célestes! »
 
-C'étaient là les trésors magiques de la plus haute qualité qu'il pouvait fabriquer. Après tout, Wang Lin n'avait qu'une compréhension superficielle du raffinage des trésors; l'essentiel de ses connaissances provenait du jade du pays de Hou Fen, sur Suzaku.
+C'étaient là les trésors magiques de la plus haute qualité qu'il pouvait fabriquer. Après tout, Wang Lin n'avait qu'une compréhension superficielle du raffinage des trésors; l'essentiel de ses connaissances provenait du jade du pays de Huo Fen, sur Suzaku.
 
 En temps normal, il ne pourrait pas créer ce genre d'objets. Cependant, Wang Lin possédait sa propre voie et sa culture avait atteint le stade de l'Ascendant; le plus important était encore son contrôle magistral des restrictions.
 

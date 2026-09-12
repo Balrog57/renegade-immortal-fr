@@ -6,45 +6,45 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1282 - Beginning of a Great Opportunity
 slug: le-debut-dune-grande-opportunite
 ---
-Daoist Water laissa échapper un cri déchirant; à cet instant, une flamme invisible semblait consumer son âme. Une douleur fulgurante explosa dans tout son corps!
+Shui Daozi laissa échapper un cri déchirant; à cet instant, une flamme invisible semblait consumer son âme. Une douleur fulgurante explosa dans tout son corps!
 
 Le clou aux sept couleurs avait été spécialement conçu pour tuer les cultivateurs du troisième niveau! Le météore mystérieux raffiné par le Souverain contenait une puissance que le Souverain lui-même ne pouvait pleinement concevoir. Ce pouvoir pouvait infliger des dommages inimaginables aux cultivateurs du troisième niveau!
 
 Même le Seigneur du Royaume Scellé avait péri après avoir été transpercé par plus de quatre-vingt-dix clous aux sept couleurs! Cette force inintelligible causait des ravages sans précédent.
 
-En cet instant, si ce clou aux sept couleurs ne s'était pas enfoncé complètement en Daoist Water, il n'aurait pas été confronté à une telle crise de vie ou de mort.
+En cet instant, si ce clou aux sept couleurs ne s'était pas enfoncé complètement en Shui Daozi, il n'aurait pas été confronté à une telle crise de vie ou de mort.
 
-Cependant, l'avatar du vieil homme du Royaume Céleste du Vent était arrivé, et son doigt impétueux avait poussé le clou de cinq pouces supplémentaires. Cela rendit Daoist Water presque fou, car il ne parvint pas à contenir la force en lui.
+Cependant, l'avatar du vieil homme du Royaume Céleste du Vent était arrivé, et son doigt impétueux avait poussé le clou de cinq pouces supplémentaires. Cela rendit Shui Daozi presque fou, car il ne parvint pas à contenir la force en lui.
 
-Mobilisant sa puissante culture du troisième niveau, Daoist Water parvint de justesse à réprimer l'attaque par la force. Il comptait tuer Wang Lin pour ensuite entrer en méditation de porte close afin de guérir.
+Mobilisant sa puissante culture du troisième niveau, Shui Daozi parvint de justesse à réprimer l'attaque par la force. Il comptait tuer Wang Lin pour ensuite entrer en méditation de porte close afin de guérir.
 
 Pourtant, il n'aurait jamais pu imaginer qu'au moment même où son sort s'abattait pour achever Wang Lin, la pierre de jade de son maître apparaîtrait!
 
 Le choc provoqué par la pierre n'était en rien inférieur à celui de voir la Perle Défiant le Ciel ou son propre maître! Mais rien de tout cela ne lui inspira le désespoir, jusqu'à... l'apparition du doigt!
 
-Daoist Water connaissait trop bien ce doigt. Il le reconnut d'un seul regard. C'était... le doigt de son maître!
+Shui Daozi connaissait trop bien ce doigt. Il le reconnut d'un seul regard. C'était... le doigt de son maître!
 
 Cette découverte lui fit perdre la raison. Il n'eut même pas le temps de supplier que le doigt descendit, enfonçant définitivement le clou aux sept couleurs dans son crâne!
 
-À cet instant précis, alors que le clou s'était totalement enfoncé dans le crâne de Daoist Water, celui-ci commença à fondre. Il dégagea une puissante lueur arc-en-ciel qui envahit son cerveau!
+À cet instant précis, alors que le clou s'était totalement enfoncé dans le crâne de Shui Daozi, celui-ci commença à fondre. Il dégagea une puissante lueur arc-en-ciel qui envahit son cerveau!
 
-Toutes les orifices de Daoist Water se mirent à irradier cette lumière aux sept couleurs! Sa tête ressemblait à un bouchon percé de sept trous d'où jaillissait cette lueur spectrale!
+Toutes les orifices de Shui Daozi se mirent à irradier cette lumière aux sept couleurs! Sa tête ressemblait à un bouchon percé de sept trous d'où jaillissait cette lueur spectrale!
 
-Poussant des cris de détresse, Daoist Water sembla perdre la raison et recula précipitamment. Ses yeux étaient empreints d'une lutte monstrueuse alors qu'il tentait de résister à la lumière qui envahissait son esprit. Mais peu importait l'intensité de sa résistance, tout était vain. Le clou aux sept couleurs s'était transformé en liquide en un instant, inondant son esprit.
+Poussant des cris de détresse, Shui Daozi sembla perdre la raison et recula précipitamment. Ses yeux étaient empreints d'une lutte monstrueuse alors qu'il tentait de résister à la lumière qui envahissait son esprit. Mais peu importait l'intensité de sa résistance, tout était vain. Le clou aux sept couleurs s'était transformé en liquide en un instant, inondant son esprit.
 
-La douleur était atroce et Daoist Water laissa échapper des hurlements de souffrance. La lueur de lutte dans ses yeux faiblit, et il fut au bord de la folie.
+La douleur était atroce et Shui Daozi laissa échapper des hurlements de souffrance. La lueur de lutte dans ses yeux faiblit, et il fut au bord de la folie.
 
-« Maître, vous m'aviez donné un talisman pour m'exempter de trois dangers. Maintenant que ces trois chances sont épuisées, vous venez pour me tuer... Karma, karma, karma!!! » Daoist Water esquissa un sourire misérable, bien que son visage fût d'une férocité effrayante.
+« Maître, vous m'aviez donné un talisman pour m'exempter de trois dangers. Maintenant que ces trois chances sont épuisées, vous venez pour me tuer... Karma, karma, karma!!! » Shui Daozi esquissa un sourire misérable, bien que son visage fût d'une férocité effrayante.
 
-« Je ne vous obéirai pas! Après votre mort, j'ai atteint le troisième niveau et je suis devenu une puissance majeure. Je suis le seigneur de la Secte de Dieu. Je prendrai votre place! Un milliard et cinq cents millions de disciples du Dao de l'Eau, explosez pour moi!! Donnez-moi vos Flammes Joss pour résister au Clou Divin aux Sept Couleurs!! » Daoist Water poussa un rugissement lugubre en fuyant comme un possédé. Il brisa le vide et s'enfuit vers la Secte de Dieu.
+« Je ne vous obéirai pas! Après votre mort, j'ai atteint le troisième niveau et je suis devenu une puissance majeure. Je suis le seigneur de la Secte de Dieu. Je prendrai votre place! Un milliard et cinq cents millions de disciples du Dao de l'Eau, explosez pour moi!! Donnez-moi vos Flammes Joss pour résister au Clou Divin aux Sept Couleurs!! » Shui Daozi poussa un rugissement lugubre en fuyant comme un possédé. Il brisa le vide et s'enfuit vers la Secte de Dieu.
 
-La planète de culture géante le suivit de près. Les un milliard cinq cents millions de disciples du Dao de l'Eau s'effondrèrent, et les Flammes Joss qui n'appartenaient qu'aux cultivateurs du troisième niveau se précipitèrent dans le cerveau de Daoist Water pour contrer la lumière aux sept couleurs. Des grondements tonitruants résonnèrent dans le corps de Daoist Water avant de disparaître avec lui.
+La planète de culture géante le suivit de près. Les un milliard cinq cents millions de disciples du Dao de l'Eau s'effondrèrent, et les Flammes Joss qui n'appartenaient qu'aux cultivateurs du troisième niveau se précipitèrent dans le cerveau de Shui Daozi pour contrer la lumière aux sept couleurs. Des grondements tonitruants résonnèrent dans le corps de Shui Daozi avant de disparaître avec lui.
 
-Daoist Water resta en proie à la démence tout au long de sa fuite. Il ne cessa de réprimer la destruction qui ravageait son corps jusqu'à ce qu'il disparaisse rapidement!
+Shui Daozi resta en proie à la démence tout au long de sa fuite. Il ne cessa de réprimer la destruction qui ravageait son corps jusqu'à ce qu'il disparaisse rapidement!
 
 Les grondements tonitruants s'estompèrent progressivement après son départ. Seul le silence subsista. Une telle quiétude régnait qu'on aurait dit que plus rien d'autre n'existait!
 
-Wang Lin ferma lentement les yeux. Il avait tout brisé. Même s'il ne s'était pas autodétruit pour entraîner Daoist Water dans sa chute, ses blessures étaient bien plus graves que celles subies jadis dans la Terre des Esprits Démoniaques!
+Wang Lin ferma lentement les yeux. Il avait tout brisé. Même s'il ne s'était pas autodétruit pour entraîner Shui Daozi dans sa chute, ses blessures étaient bien plus graves que celles subies jadis dans la Terre des Esprits Démoniaques!
 
 Toute sa vitalité avait été consommée et il avait vieilli prématurément. Au moment où il ferma les yeux, les trois vortexes retournèrent dans son corps et les cinq essences se déplacèrent vers l'intérieur de celui-ci.
 
@@ -72,7 +72,7 @@ La région de rang 5 s'était effondrée. Elle était désormais criblée de fis
 
 Après une durée indéterminée — qu'il s'agisse d'un jour, de dix jours ou peut-être d'un mois... — Wang Lin, devenu une statue de vieillard, continuait de errer dans la région de rang 5. Parfois, il heurtait un vortex et se faisait projeter au loin. Parfois, il traversait une faille spatiale, provoquant l'apparition de fissures sur tout son corps de pierre.
 
-Une femme se trouvait également dans cette région de rang 5. Elle était arrivée depuis un temps indéterminé. Lorsqu'elle atteignit le champ de bataille où Wang Lin et Daoist Water s'étaient affrontés, des larmes coulèrent sur son visage.
+Une femme se trouvait également dans cette région de rang 5. Elle était arrivée depuis un temps indéterminé. Lorsqu'elle atteignit le champ de bataille où Wang Lin et Shui Daozi s'étaient affrontés, des larmes coulèrent sur son visage.
 
 « Suis-je arrivée trop tard... » La femme se mordit la lèvre inférieure jusqu'au sang. Elle regardait devant elle avec tristesse. À cet instant, il semblait que son cœur s'était éteint.
 

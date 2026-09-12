@@ -3,7 +3,7 @@ n: 1250
 title: Réprimande de la Secte Éternelle (1)
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: Chapter 1250 - Rebuking the Everlasting Sect (1)
+en: Chapter 1250 - Rebuking the Everlasting Secte (1)
 slug: reprimande-de-la-secte-eternelle-1
 ---
 Les paroles de Mu Bingmei étaient douces, comme si elle se remémorait le passé. Une pointe de mélancolie et une humeur inexplicable s'insinuèrent lentement dans l'esprit de tous les membres de la Secte Éternelle.

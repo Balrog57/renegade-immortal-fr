@@ -12,7 +12,7 @@ Ce jour-là, nous étions en juin de la dix-neuvième année depuis qu'il avait 
 
 Cette année-là, Wang Lin approchait de ses quatre-vingts ans.
 
-Outre le pays de Hou Fen, il existait encore d'autres nations sur ce continent, mais Wang Lin n'y allait pas. Le pays de Hou Fen serait le dernier lieu qu'il visiterait.
+Outre le pays de Huo Fen, il existait encore d'autres nations sur ce continent, mais Wang Lin n'y allait pas. Le pays de Huo Fen serait le dernier lieu qu'il visiterait.
 
 Ici, dans la montagne surplombant la secte de Li Muwan, se trouvait une maison en ruine. Elle avait été construite il y a une éternité et plus personne n'y vivait.
 
@@ -42,7 +42,7 @@ Aucun des cultivateurs venus ne repartit.
 
 Ils s'asseyaient calmement aux côtés de Wang Lin, comme s'ils cherchaient le Dao.
 
-Année après année, toujours plus de cultivateurs affluèrent de Hou Fen et de toutes les directions, venant de diverses sectes, comme si quelque chose les appelait au plus profond de leur cœur.
+Année après année, toujours plus de cultivateurs affluèrent de Huo Fen et de toutes les directions, venant de diverses sectes, comme si quelque chose les appelait au plus profond de leur cœur.
 
 Parmi ces cultivateurs, certains n'avaient même pas atteint le stade de l'Établissement des Fondations, d'autres étaient au stade de la Transformation de l'Âme, et l'un d'eux avait même franchi les cieux pour atteindre le stade d'Ascendant. Mais peu importait leur niveau de culture, ils n'existaient pas aux yeux de Wang Lin.
 

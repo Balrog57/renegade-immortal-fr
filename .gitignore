@@ -1,4 +1,4 @@
-﻿# IDE
+# IDE
 .vscode/
 .idea/
 *.swp
@@ -26,3 +26,9 @@ __pycache__/
 *.pyc
 _site/
 .kilo/
+dist_epub/
+tmp/
+raw_chinese/
+rapport-*.json
+mqm_bilingual_zh_fr_report.json
+raw_chinese_index.json

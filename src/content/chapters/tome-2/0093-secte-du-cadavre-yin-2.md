@@ -3,7 +3,7 @@ n: 93
 title: Secte du Cadavre Yin (2)
 book: 2
 bookTitle: The Bloody Image of Cultivation
-en: Chapter 93 - Corpse Yin Sect (2)
+en: Chapter 93 - Corpse Yin Secte (2)
 slug: secte-du-cadavre-yin-2
 ---
 Le visage de l'homme étrange changea soudainement. Il retira les neuf talismans de son corps, puis bondit vers Wang Lin. Sans la moindre hésitation, il déchira la sphère rouge et s'empara de lui.

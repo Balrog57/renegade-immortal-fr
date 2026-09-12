@@ -12,9 +12,9 @@ Elle et Mai Liang avaient grandi dans le même village. Leurs familles étaient 
 
 Mais voilà que Mai Liang était revenu et l'ignorait totalement. À ce propos, Xu Si éprouvait un sentiment étrange dans son cœur. Conjugué à cette sensation soudaine qui la fit frissonner, ce contraste saisissant laissa son esprit vide.
 
-Quant à Wang Lin, il vola longtemps dans cette terre étrangère de Hou Fen, avant de s'arrêter au niveau d'une chaîne de montagnes. D'après les souvenirs de Mai Liang, il s'agissait d'une célèbre chaîne de volcans.
+Quant à Wang Lin, il vola longtemps dans cette terre étrangère de Huo Fen, avant de s'arrêter au niveau d'une chaîne de montagnes. D'après les souvenirs de Mai Liang, il s'agissait d'une célèbre chaîne de volcans.
 
-Hou Fen tirait son nom de la multitude de ces volcans, petits et grands. S'ils n'avaient pas été surveillés et scellés par des cultivateurs, ils auraient déjà fait éruption. Dans l'histoire de Hou Fen, il ne s'était jamais produit d'éruption massive, ce qui était en grande partie dû à la vigilance des cultivateurs pour les maintenir sous contrôle.
+Huo Fen tirait son nom de la multitude de ces volcans, petits et grands. S'ils n'avaient pas été surveillés et scellés par des cultivateurs, ils auraient déjà fait éruption. Dans l'histoire de Huo Fen, il ne s'était jamais produit d'éruption massive, ce qui était en grande partie dû à la vigilance des cultivateurs pour les maintenir sous contrôle.
 
 Après avoir observé les environs, Wang Lin s'éloigna et arriva aux abords d'un village. Celui-ci était très animé et les enfants jouaient dehors. Wang Lin ressentit une vague de douleur dans son cœur. Après un long moment, il entra lentement dans le village.
 

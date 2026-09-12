@@ -3,7 +3,7 @@ n: 64
 title: Dispersion de la Secte
 book: 1
 bookTitle: The Mediocre Youth
-en: Chapter 64 - Sect Scatters
+en: Chapter 64 - Secte Scatters
 slug: dispersion-de-la-secte
 ---
 Le dragon rugit contre Pun Nanzi et l'attaqua.

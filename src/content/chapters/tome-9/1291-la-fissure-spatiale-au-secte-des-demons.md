@@ -1,9 +1,9 @@
 ---
 n: 1291
-title: La Fissure Spatiale au Secte des Démons
+title: La Fissure Spatiale à la Secte des Démons
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: Chapter 1291 - The Spatial Crack at the Demon Sect
+en: Chapter 1291 - The Spatial Crack at the Demon Secte
 slug: la-fissure-spatiale-au-secte-des-demons
 ---
 Le regard de Wang Lin balaya les six anciens de la Secte Éternel avant qu'il ne retire sa main. L'épée de sang dans sa main droite brilla d'un éclat rouge puis se transforma en une goutte de sang. Celle-ci atterrit entre ses sourcils et s'y grava avant de disparaître progressivement.

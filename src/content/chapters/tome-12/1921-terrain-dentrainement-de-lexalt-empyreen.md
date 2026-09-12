@@ -3,7 +3,7 @@ n: 1921
 title: "Terrain d'entraînement de l'Exalt Empyréen"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
-en: Chapter 1921 - Empyrean Exalt Training Ground
+en: Chapter 1921 - Exalté Empyréen Training Ground
 slug: terrain-dentrainement-de-lexalt-empyreen
 ---
 Le jeune aux cheveux noirs était le Grand Empyréen Dao Yi. Il regarda Wang Lin, et ses paroles étaient empreintes d'une force étrange qui insufflerait à quiconque les entendrait un sentiment d'admiration et de conviction infinie.

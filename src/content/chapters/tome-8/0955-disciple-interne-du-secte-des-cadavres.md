@@ -1,9 +1,9 @@
 ---
 n: 955
-title: Disciple interne du Secte des Cadavres
+title: Disciple interne de la Secte des Cadavres
 book: 8
 bookTitle: "Alliance's Secret"
-en: Chapter 955 - Inner Disciple of the Corpse Sect
+en: Chapter 955 - Inner Disciple of the Corpse Secte
 slug: disciple-interne-du-secte-des-cadavres
 ---
 

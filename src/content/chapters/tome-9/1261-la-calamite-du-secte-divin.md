@@ -1,9 +1,9 @@
 ---
 n: 1261
-title: La Calamité du Secte Divine
+title: La Calamité de la Secte Divine
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: Chapter 1261 - The Calamity From the God Sect
+en: Chapter 1261 - The Calamity From the God Secte
 slug: la-calamite-du-secte-divin
 ---
 Le maître de la Secte Éternelle remarqua l'expression de Wang Lin et sourit. « Cette montagne s'appelle Lu Su. On raconte qu'il y a fort longtemps, une épée venue de l'extérieur est tombée et s'est enfoncée dans le sol pour former cette montagne! »

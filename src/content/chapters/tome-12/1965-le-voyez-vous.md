@@ -10,7 +10,7 @@ Chapitre 1965 - Le voyez-vous?
 
 Wang Lin s'en alla, mais un immense bourdonnement s'empara de l'Épreuve Empyréenne. Le fait que Wang Lin ait surmonté les épreuves avait suscité une excitation telle qu'elle changea la perception de tous.
 
-Désormais, ils se souvenaient tous du nom « Wang Lin », ce nom qui avait supplanté l'Ascendant Empyrean Ming Dao pour devenir le numéro un juste après les Grands Empyreans!
+Désormais, ils se souvenaient tous du nom « Wang Lin », ce nom qui avait supplanté l'Ascendant Empyrean Ming Dao pour devenir le numéro un juste après les Grands Empyrées!
 
 L'Ascendant Empyrean aux cheveux blancs!
 
@@ -18,11 +18,11 @@ Tout ce qui concernait l'armure de l'âme fut silencieusement enfoui au plus pro
 
 L'exploit de Wang Lin déclencha une vague massive de tentatives. Après avoir été témoins de sa prouesse, de nombreux cultivateurs se lancèrent à leur tour dans les épreuves.
 
-Le Grand Empyrean Dao Yi observa silencieusement Wang Lin s'éloigner. Une lueur traversa son regard avant qu'il ne parte à son tour. Il voulait retrouver Wang Lin immédiatement. Quel qu'en soit le prix, il comptait le recruter!
+Le Grand Empyrée Dao Yi observa silencieusement Wang Lin s'éloigner. Une lueur traversa son regard avant qu'il ne parte à son tour. Il voulait retrouver Wang Lin immédiatement. Quel qu'en soit le prix, il comptait le recruter!
 
 Wu Feng laissa échapper un soupir. Après que Wang Lin eut franchi le 17e palais, il comprit qu'il serait encore plus difficile de l'enrôler que l'Ascendant Empyrean Ming Dao!
 
-« Heureusement, j'ai noué une bonne relation avec lui. Même si j'échoue, mes liens avec lui seront bien meilleurs que ceux des autres Grands Empyreans », songea Wu Feng avant de disparaître.
+« Heureusement, j'ai noué une bonne relation avec lui. Même si j'échoue, mes liens avec lui seront bien meilleurs que ceux des autres Grands Empyrées », songea Wu Feng avant de disparaître.
 
 Dans le palais impérial, un grondement tonitruant retentit. Le trône du dragon fut réduit en poussière par l'Empereur Céleste.
 
@@ -32,17 +32,17 @@ Dans le palais impérial, un grondement tonitruant retentit. Le trône du dragon
 
 Cette fois, Ming Dao n'hésita pas comme auparavant et hocha sobrement la tête.
 
-Continent Central, au sommet du Mont Empereur. Le Grand Empyrean Jiu Di se tenait sur la cime de la montagne et détourna son regard d'une feuille d'automne. Après un long moment, il ouvrit les yeux, laissant poindre une lueur.
+Continent Central, au sommet du Mont Empereur. Le Grand Empyrée Jiu Di se tenait sur la cime de la montagne et détourna son regard d'une feuille d'automne. Après un long moment, il ouvrit les yeux, laissant poindre une lueur.
 
-« Je n'ai pu recruter l'Ascendant Empyrean Ming Dao, et voilà qu'il nourrit une rancœur envers l'Empereur Céleste. Je veux voir qui pourra rivaliser avec moi! » Le Grand Empyrean Jiu Di se tourna vers l'Empyrean Exalt Hai Zi, qui ouvrait lentement les yeux, et rit.
+« Je n'ai pu recruter l'Ascendant Empyrean Ming Dao, et voilà qu'il nourrit une rancœur envers l'Empereur Céleste. Je veux voir qui pourra rivaliser avec moi! » Le Grand Empyrée Jiu Di se tourna vers l'Exalté Empyréen Hai Zi, qui ouvrait lentement les yeux, et rit.
 
 « Hai Zi, suis le Maître. Le Maître acceptera ce Wang Lin comme disciple et fera de lui ton frère aîné. Qu'en dis-tu? »
 
-L'Empyrean Exalt Hai Zi fut surprise et son cœur se remplit de joie.
+L'Exalté Empyréen Hai Zi fut surprise et son cœur se remplit de joie.
 
 Continent Est, au sein de la Secte Purple Yang. Les yeux de l'homme d'âge moyen s'illuminèrent tandis qu'il continuait de murmurer:
 
-« Le 17e palais... cet homme a réellement franchi le 17e palais. Il sera certainement disputé par les autres Grands Empyreans! Petit Ancêtre, tu dois diviner sa position, nous devons le trouver au plus vite! »
+« Le 17e palais... cet homme a réellement franchi le 17e palais. Il sera certainement disputé par les autres Grands Empyrées! Petit Ancêtre, tu dois diviner sa position, nous devons le trouver au plus vite! »
 
 Les deux petites filles à ses côtés clignèrent des yeux et se levèrent aussitôt. À trois, elles se transformèrent en une bourrasque de vent et disparurent. Cependant, juste au moment où elles s'évanouirent, une petite main apparut aux côtés de la joyeuse Gourmandise.
 

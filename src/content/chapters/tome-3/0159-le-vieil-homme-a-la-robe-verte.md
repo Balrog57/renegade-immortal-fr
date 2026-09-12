@@ -16,13 +16,13 @@ L'homme ne s'arrêta pas, mais son visage était sombre. Il essuya le sang sur s
 
 « Ce petit gars est bien audacieux! » Après un long moment, il ouvrit les yeux et frappa la gourde. Celle-ci rétrécit pour reprendre sa taille originelle. Il l'ouvrit et prit une gorgée; le liquide qui s'en échappait dégageait un doux parfum de vin.
 
-Hou Fen
+Huo Fen
 
 Bien que le fléau des bêtes de feu ait été résolu par le pays de culture de rang 4, l'énergie spirituelle y était saturée d'un élément de feu, rendant toute culture impossible. S'ajoutant au fait que le sol était brûlant, le pays était largement recouvert de lave et de volcans en éruption constante, transformant les royaumes mortels en étendues de terres désolées.
 
-L'ancienne cité impériale n'était plus qu'un amas de lave et tous les bâtiments avaient disparu. Plus aucune créature vivante ne subsistait à Hou Fen; le pays tout entier ressemblait à une tombe silencieuse.
+L'ancienne cité impériale n'était plus qu'un amas de lave et tous les bâtiments avaient disparu. Plus aucune créature vivante ne subsistait à Huo Fen; le pays tout entier ressemblait à une tombe silencieuse.
 
-Wang Lin et Li Muwan survolèrent rapidement le pays. Tous deux restaient plongés dans un silence pensif face au spectacle de ce que Hou Fen était devenue. Bien que Wang Lin éprouvât des sentiments mitigés, s'il n'avait pas eu la perle défiant le ciel pour absorber l'esprit de feu, il aurait déjà été dévoré par celui-ci.
+Wang Lin et Li Muwan survolèrent rapidement le pays. Tous deux restaient plongés dans un silence pensif face au spectacle de ce que Huo Fen était devenue. Bien que Wang Lin éprouvât des sentiments mitigés, s'il n'avait pas eu la perle défiant le ciel pour absorber l'esprit de feu, il aurait déjà été dévoré par celui-ci.
 
 Tout cela ne pouvait être qu'une coïncidence; il n'y avait ni bien ni mal. S'il lui avait été donné le choix à cet instant précis, même en connaissant l'issue, il aurait agi de la même manière.
 
@@ -34,7 +34,7 @@ Wang Lin s'arrêta brusquement en fixant une trace de sang sur l'épée volante.
 
 Il sortit une fiole de jade et y enferma le sang. En cet instant, il sentait comme si une montagne pesait sur son cœur. Il regarda l'immense inscription « Punir » qui surplombait sa tête, ricana, puis s'élança plus vite encore, emportant Li Muwan avec lui.
 
-Après avoir rapidement franchi la frontière de Hou Fen, ils purent apercevoir la montagne où l'Union de Hou Fen avait initialement établi sa base. Les quatre bannières de Hou Fen flottaient haut sur le sommet, signifiant que cette zone appartenait à l'Union.
+Après avoir rapidement franchi la frontière de Huo Fen, ils purent apercevoir la montagne où l'Union de Huo Fen avait initialement établi sa base. Les quatre bannières de Huo Fen flottaient haut sur le sommet, signifiant que cette zone appartenait à l'Union.
 
 Arrivés sur place, Wang Lin s'arrêta. Après une courte réflexion, il dit: « Je vais vous raccompagner. »
 
@@ -54,11 +54,11 @@ Li Muwan prit le fourneau. Après l'avoir observé un moment, elle leva la tête
 
 Une fois les objets reçus, Wang Lin les rangea dans son sac. Il regarda ensuite Li Muwan et joignit ses mains. « Il y a quatre ans, je t'avais promis de te ramener ici saine et sauve. Maintenant que c'est fait, nous ne nous devons plus rien. Adieu! »
 
-Alors que Wang Lin s'apprêtait à partir, Li Muwan cria soudainement: « Frère aîné, ceci est mon cadeau pour vous! » Elle sortit un jade blanc et le lança vers lui. Puis, sans se retourner, elle s'envola en direction de l'Union de Hou Fen.
+Alors que Wang Lin s'apprêtait à partir, Li Muwan cria soudainement: « Frère aîné, ceci est mon cadeau pour vous! » Elle sortit un jade blanc et le lança vers lui. Puis, sans se retourner, elle s'envola en direction de l'Union de Huo Fen.
 
 Wang Lin rattrapa le jade et l'examina. Le message que Li Muwan y avait laissé résonna dans ses oreilles:
 
-« Frère aîné, Wan Er ne connaît pas votre nom car vous ne me l'avez jamais dit durant ces quatre années. Je crois que vous ignorez le mien également... Wan Er vous remercie pour les innombrables fois où vous m'avez sauvée. Le temps passé dans la Mer des Démons est une chose que je n'oublierai jamais... Puisque notre séparation est inévitable, et sachant que le frère aîné se retire souvent en culture fermée, Wan Er vous offre ce jade. Il est l'apogée de mes compétences en formations. Il contient la Formation du Dragon de Combat de la Secte Fighting Evil, avec des améliorations. »
+« Frère aîné, Wan Er ne connaît pas votre nom car vous ne me l'avez jamais dit durant ces quatre années. Je crois que vous ignorez le mien également... Wan Er vous remercie pour les innombrables fois où vous m'avez sauvée. Le temps passé dans la Mer des Démons est une chose que je n'oublierai jamais... Puisque notre séparation est inévitable, et sachant que le frère aîné se retire souvent en culture fermée, Wan Er vous offre ce jade. Il est l'apogée de mes compétences en formations. Il contient la Formation du Dragon de Combat de la Secte Dou Xie, avec des améliorations. »
 
 « Cette formation fusionne attaque et défense, mais par rapport à l'attaque, la défense en est le véritable dessein. Si elle peut protéger le frère aîné un moment face au danger, alors Wan Er sera satisfaite... »
 
@@ -68,7 +68,7 @@ Il était entré dans la perle défiant le ciel; à cet instant, sa présence s'
 
 C'était aussi pour cette raison que, bien qu'il connaisse les dangers liés à cet ordre d'exécution, il avait tout de même tué Qian Kun.
 
-Le vieil homme qui poursuivait Wang Lin arriva rapidement à Hou Fen. Il atteignit l'endroit où Wang Lin avait disparu peu après son entrée dans la perle défiant le ciel. Le visage du vieil homme était empreint de doute tandis qu'il s'enfonçait dans le sol par ses pouvoirs. Après avoir cherché un moment, il en ressortit avec une expression encore plus perplexe. « Disparu... même le lien de l'essence de sang de l'âme a disparu. Il semble que ce petit gars cache bien des secrets. »
+Le vieil homme qui poursuivait Wang Lin arriva rapidement à Huo Fen. Il atteignit l'endroit où Wang Lin avait disparu peu après son entrée dans la perle défiant le ciel. Le visage du vieil homme était empreint de doute tandis qu'il s'enfonçait dans le sol par ses pouvoirs. Après avoir cherché un moment, il en ressortit avec une expression encore plus perplexe. « Disparu... même le lien de l'essence de sang de l'âme a disparu. Il semble que ce petit gars cache bien des secrets. »
 
 À cet instant précis, il leva soudainement la tête et observa sans aucune émotion trois rayons de lumière fonçant vers lui. Bientôt, les trois éclats arrivèrent, révélant une femme et deux hommes.
 
@@ -106,10 +106,10 @@ Le front de Feng Luan se plissa alors qu'elle demandait: « Cette personne, tout
 
 L'expression du vieil homme devint sérieuse: « Si je ne me trompe pas, cet individu était l'un des seigneurs de l'une de ces sept cités! Cependant, les cultivateurs démoniaques des Mers Démoniaques, surtout ceux de la mer intérieure, ne quittent pas leur domaine si facilement. Je ne pense pas qu'il restera ici longtemps. »
 
-Les trois se regardèrent, chacun sentant le poids qui pesait sur le cœur de l'autre. Ils contournèrent le vieil homme pour retourner vers la montagne de l'Union de Hou Fen.
+Les trois se regardèrent, chacun sentant le poids qui pesait sur le cœur de l'autre. Ils contournèrent le vieil homme pour retourner vers la montagne de l'Union de Huo Fen.
 
 Ayant senti plus tôt l'aura d'un étranger au stade de l'Âme Naissante, ils étaient venus vérifier; ils ne s'attendaient cependant pas à tomber sur un être aussi redoutable.
 
 Le vieil homme errat un moment dans la zone avant de laisser échapper un renflement et de déployer son sens divin. Cette fois, il ne laisserait rien passer. Il scruta soigneusement la région, du sol au ciel.
 
-Le sens divin du vieil homme balaya lentement la zone. Il commença à s'étendre de plus en plus, affectant jusqu'à l'Union de Hou Fen. Mais le vieil homme n'en eut cure; il balaya la zone à plusieurs reprises sans pour autant rien trouver.
+Le sens divin du vieil homme balaya lentement la zone. Il commença à s'étendre de plus en plus, affectant jusqu'à l'Union de Huo Fen. Mais le vieil homme n'en eut cure; il balaya la zone à plusieurs reprises sans pour autant rien trouver.

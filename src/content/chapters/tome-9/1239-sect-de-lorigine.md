@@ -1,9 +1,9 @@
 ---
 n: 1239
-title: "Sect de l'Origine"
+title: "Secte de l'Origine"
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: Chapter 1239 - Origin Sect
+en: Chapter 1239 - Origin Secte
 slug: sect-de-lorigine
 ---
 Une lumière dorée pâle émana du corps de la bête moustique et enveloppa les environs. Une pression s’abattit sur les milliers de bêtes moustiques, qui furent alors témoins de la naissance d'un nouveau roi!

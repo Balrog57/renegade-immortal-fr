@@ -1,9 +1,9 @@
 ---
 n: 65
-title: Deuil du Secte
+title: Deuil de la Secte
 book: 2
 bookTitle: The Bloody Image of Cultivation
-en: Chapter 65 - Sect Mourning
+en: Chapter 65 - Secte Mourning
 slug: deuil-du-secte
 ---
 Huang Long toucha son sac de rangement et regarda vers la Montagne Heng Yue d'un air complexe. Dao Xu se tenait à ses côtés et déclara: « Chef de secte, un jour viendra où nous reprendrons la Montagne Heng Yue. »

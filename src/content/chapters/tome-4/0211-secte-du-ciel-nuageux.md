@@ -3,7 +3,7 @@ n: 211
 title: Secte du Ciel Nuageux
 book: 4
 bookTitle: Clean Sweep
-en: Chapter 211 - Cloud Sky Sect
+en: Chapter 211 - Ciel Nuageux Secte
 slug: secte-du-ciel-nuageux
 ---
 Calendrier Suzaku, an 134 500. Dans le pays de culture de Chu, une lueur jaillit sur son territoire. Après trois jours, toutes les sectes avaient envoyé des disciples pour enquêter, mais ils ne finirent par trouver rien d'autre qu'une grotte abandonnée.

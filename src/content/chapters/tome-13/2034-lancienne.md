@@ -34,13 +34,13 @@ Wang Lin restait suspendu dans les airs, le visage impassible. L'apparition de c
 
 Même s'il n'avait pas remarqué cette aura, Wang Lin n'aurait pas été étonné, car lors du banquet, quatre tables avaient été placées au plus près du palais.
 
-Ces quatre tables avaient manifestement été préparées pour le Grand Empyrean, l'Enseignant Impérial et le père de l'empereur, l'ancien empereur. Cependant, cela ne faisait que trois personnes pour quatre tables. Cela signifiait que cette personne occupait un rang si élevé que, même si elle n'était pas censée venir, une table devait lui être réservée.
+Ces quatre tables avaient manifestement été préparées pour le Grand Empyrée, l'Enseignant Impérial et le père de l'empereur, l'ancien empereur. Cependant, cela ne faisait que trois personnes pour quatre tables. Cela signifiait que cette personne occupait un rang si élevé que, même si elle n'était pas censée venir, une table devait lui être réservée.
 
 Wang Lin ignorait qui était cette personne, mais après avoir vu la vieille femme et entendu Xuan Luo prononcer le nom de « Ye Wei », il s'en souvint. Lors de son arrivée à l'Ancient Dao, il avait étudié l'histoire des générations passées d'empereurs.
 
 Dans les dizaines de milliers d'années d'histoire de l'Ancient Dao, il y avait eu une femme. Elle fut la seule femme à être devenue Empereur de l'Ancient Dao!
 
-Son accession au trône avait provoqué un tollé dans tout l'Ancient Dao. Après avoir subi les critiques des membres du clan, le Grand Empyrean Gu Dao avait publié un décret pour la reconnaître officiellement, ce qui finit par apaiser les tensions.
+Son accession au trône avait provoqué un tollé dans tout l'Ancient Dao. Après avoir subi les critiques des membres du clan, le Grand Empyrée Gu Dao avait publié un décret pour la reconnaître officiellement, ce qui finit par apaiser les tensions.
 
 Cette femme faisait également partie de la famille impériale. À cette époque, l'Ancient Dao touchait presque à son apogée et était devenu le plus puissant des trois clans sous sa direction. Cependant, après son règne, l'Ancient Dao finit par devenir le plus faible des trois clans des dizaines de milliers d'années plus tard.
 
@@ -50,7 +50,7 @@ Les habitants de l'Ancient Dao la surnommaient également l'Ancêtre de l'Empere
 
 Son nom était Ye Wei... En entendant ce nom, Wang Lin se remémora tout ce qu'il savait d'elle.
 
-Wang Lin avait aussi appris dans les archives que c'était sous son règne que son maître, Xuan Luo, était devenu un Grand Empyrean.
+Wang Lin avait aussi appris dans les archives que c'était sous son règne que son maître, Xuan Luo, était devenu un Grand Empyrée.
 
 Tout cela traversa instantanément l'esprit de Wang Lin. Il fixa la vieille femme squelettique qui sortait du cercueil, un éclair de froideur dans le regard.
 
@@ -62,7 +62,7 @@ Elle poursuivit d'une voix sombre: « Ma culture n'est pas aussi puissante que l
 
 L'expression de Wang Lin restait calme, mais la froideur de son regard s'accentua.
 
-« Si tu veux mes biens, tente donc de les prendre! » répondit lentement Wang Lin. Soudain, son soleil de Grand Empyrean apparut. Les couleurs noir et blanc resplendirent et les cheveux de Wang Lin s'agitèrent sans qu'aucun vent ne souffle. Une ombre de l'Ancient Dao, identique à lui, se dessina sous son soleil de Grand Empyrean.
+« Si tu veux mes biens, tente donc de les prendre! » répondit lentement Wang Lin. Soudain, son soleil de Grand Empyrée apparut. Les couleurs noir et blanc resplendirent et les cheveux de Wang Lin s'agitèrent sans qu'aucun vent ne souffle. Une ombre de l'Ancient Dao, identique à lui, se dessina sous son soleil de Grand Empyrée.
 
 L'ombre semblait porter le soleil de l'empereur et fixa froidement la vieille femme.
 
@@ -106,7 +106,7 @@ Quant au septième, le Dao Extrême de la Richesse, et au dernier, le Dao Extrê
 
 Au moment où le sort de l'Ancêtre Céleste se manifesta, Wang Lin leva son index droit. Une lumière argentée jaillit et le sort du doigt de l'Ancêtre Ancêtre prit forme.
 
-Cette action fit contracter les pupilles de la vieille femme. Elle pensait qu'en attaquant avec la puissance de la formation, même des Grands Empyreans n'auraient qu'une chance sur trois de survivre.
+Cette action fit contracter les pupilles de la vieille femme. Elle pensait qu'en attaquant avec la puissance de la formation, même des Grands Empyrées n'auraient qu'une chance sur trois de survivre.
 
 Ce Wang Lin devait probablement périr face à la formation.
 

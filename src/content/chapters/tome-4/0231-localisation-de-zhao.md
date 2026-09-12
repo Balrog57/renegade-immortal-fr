@@ -164,7 +164,7 @@ Guidé par la servante, Wang Lin arriva devant une résidence discrète au centr
 
 Sans perdre de temps, Wang Lin entra, ayant déjà projeté son Sens Divin à l'intérieur.
 
-Il vit un vieil homme au nez crochu portant une chemise rouge, assis près d'une théière verte. En voyant entrer Wang Lin, le vieillard rit: « Asseyez-vous, confrère. C'est un thé de haute qualité du pays de Hou Fen. Je l'ai préparé spécialement pour recevoir mes amis. »
+Il vit un vieil homme au nez crochu portant une chemise rouge, assis près d'une théière verte. En voyant entrer Wang Lin, le vieillard rit: « Asseyez-vous, confrère. C'est un thé de haute qualité du pays de Huo Fen. Je l'ai préparé spécialement pour recevoir mes amis. »
 
 Wang Lin joignit les mains et s'assit face au vieil homme. Il ne daigna même pas regarder le thé, préférant examiner les lieux. Il comprit aisément que ce vieillard était au stade intermédiaire de l'Âme Naissante.
 

@@ -12,7 +12,7 @@ Il ne restait au sol qu'un sac de rangement. Les yeux de Wang Lin s'illuminèren
 
 Il réfléchit un instant avant de poser une restriction sur le sac. Après l'avoir rangé, il disparut.
 
-Lorsqu'il réapparut, il surplombait la Secte Cloud Sky. Il entama alors une lente descente.
+Lorsqu'il réapparut, il surplombait la Secte Ciel Nuageux. Il entama alors une lente descente.
 
 Li Muwan fixait Wang Lin, les yeux noyés de larmes d'excitation. Au moment où elle s'apprêtait à parler, elle fut prise d'une violente quinte de toux et s'effondra.
 
@@ -20,7 +20,7 @@ Wang Lin accourut aussitôt aux côtés de Li Muwan et la prit dans ses bras. Ap
 
 Liu Fei et Song Qing répondirent sans délai à l'ordre.
 
-Un immense rideau de lumière enveloppa la Secte Cloud Sky, la dissimulant à nouveau des regards indiscrets.
+Un immense rideau de lumière enveloppa la Secte Ciel Nuageux, la dissimulant à nouveau des regards indiscrets.
 
 Les disciples chanceux qui avaient survécu reçurent tous l'ordre de ne pas sortir. Tous acceptèrent cette directive avec soulagement.
 
@@ -28,7 +28,7 @@ Puisqu'ils ne pouvaient nulle part aller, ils discutaient entre eux. Leurs conve
 
 Une fois que Liu Fei et Song Qing eurent fini de donner leurs instructions, ils se regardèrent. Ils pouvaient lire l'excitation et la peur dans les yeux de l'autre.
 
-L'excitation venait du fait que la Secte Cloud Sky avait été sauvée et que Wang Lin était le célèbre Ceng Niu.
+L'excitation venait du fait que la Secte Ciel Nuageux avait été sauvée et que Wang Lin était le célèbre Ceng Niu.
 
 La peur, quant à elle, découlait du retour de Wang Lin. Après tout, même maintenant, ils ne pouvaient oublier la scène sanglante dont ils avaient été témoins autrefois.
 
@@ -112,9 +112,9 @@ Wang Lin entra dans la tour et s'assit près du lit de Li Muwan. Il observa son 
 
 En un clin d'œil, un mois passa.
 
-Durant ce mois, les souvenirs de tous les disciples de la Secte Cloud Sky furent effacés, laissant place à une curiosité générale quant à la raison pour laquelle le Maître de la secte s'était retiré en culture fermée.
+Durant ce mois, les souvenirs de tous les disciples de la Secte Ciel Nuageux furent effacés, laissant place à une curiosité générale quant à la raison pour laquelle le Maître de la secte s'était retiré en culture fermée.
 
-Liu Fei et Song Qing reprirent la gestion de la secte, qui retrouva progressivement sa gloire d'antan. De plus, profitant de la destruction de nombreuses autres sectes dans Chu, la Secte Cloud Sky étendit son influence de manière considérable.
+Liu Fei et Song Qing reprirent la gestion de la secte, qui retrouva progressivement sa gloire d'antan. De plus, profitant de la destruction de nombreuses autres sectes dans Chu, la Secte Ciel Nuageux étendit son influence de manière considérable.
 
 Quant à Wang Lin, le deuxième jour suivant l'amélioration de Li Muwan, il l'emmena et quitta la secte. Lu Fei et Tie Yan les suivirent; ils avaient renoncé à leurs postes de Grands Anciens pour accompagner Wang Lin dans l'espoir d'atteindre la Formation de l'Âme.
 

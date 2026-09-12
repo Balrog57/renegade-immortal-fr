@@ -50,7 +50,7 @@ La première fois qu'elle avait rencontré Wang Lin, ils l'avaient pris pour Sun
 
 « C'est un homme sans cœur... » Li Muwan observa Wang Lin en soupirant. Après toutes ces années, elle savait qu'il n'aurait aucune intention pervertie à son égard. Après tout, à ses yeux, elle n'était qu'un fourneau à pilules.
 
-Une amertume envahit le cœur de Li Muwan. Cette amertume devint de plus en plus forte, se propageant dans tout son corps. Wang Lin fronça les sourcils en la regardant et dit froidement: « Ne t'inquiète pas. Une fois que j'aurai réglé les affaires ici, je te ramènerai à l'Alliance Hou Fen. »
+Une amertume envahit le cœur de Li Muwan. Cette amertume devint de plus en plus forte, se propageant dans tout son corps. Wang Lin fronça les sourcils en la regardant et dit froidement: « Ne t'inquiète pas. Une fois que j'aurai réglé les affaires ici, je te ramènerai à l'Alliance Huo Fen. »
 
 Le visage de Li Muwan devint encore plus pâle; elle mordit sa lèvre inférieure et hocha la tête.
 

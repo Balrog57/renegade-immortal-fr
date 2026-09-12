@@ -60,7 +60,7 @@ Le visage de Wang Lin pâlit sous l'effet de la pression et la terreur envahit s
 
 « Le troisième niveau!! »
 
-Il sentait clairement que cette pression n'était en rien inférieure à celle que Daoist Water lui avait infligée autrefois!
+Il sentait clairement que cette pression n'était en rien inférieure à celle que Shui Daozi lui avait infligée autrefois!
 
 « Une bête puissante, comparable à des cultivateurs du troisième niveau! » Wang Lin prit une inspiration glacée. Il ne parvenait pas à saisir ce qui se passait. Si le vieil homme s'était contenté de pêcher un dragon, cela aurait été une chose; mais il pêchait un dragon possédant la puissance d'un cultivateur du troisième niveau!
 

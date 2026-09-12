@@ -54,7 +54,7 @@ Dans un fracas de tonnerre, l'empreinte géante entra en collision avec le ridea
 
 Alors que les grondements assourdissants étouffaient tous les autres sons du monde, le messager impérial recracha du sang et fut repoussé de mille pieds. Il parvint à peine à s'arrêter, crachant à nouveau du sang, le regard chargé d'incrédulité face à Wang Lin.
 
-« Empyrean... Une culture d'Empyrean Exalt!! »
+« Empyrean... Une culture d'Exalté Empyréen!! »
 
 Wang Lin avait forcé le messager impérial à reculer d'un seul coup de paume. Sa culture explosa et un vent noir enveloppa son corps, entrant en collision avec les neuf couteaux noirs. Dans un fracas de tonnerre, les neuf lames furent pulvérisées.
 

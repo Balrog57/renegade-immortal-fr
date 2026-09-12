@@ -51,11 +51,11 @@ Après une longue réflexion, la curiosité de Wang Lin fut piquée. Il pressent
 
 ***
 
-À l'intérieur d'un volcan dans le pays de Hou Fen. Ce volcan avait été transformé de volcan actif en volcan éteint par des cultivateurs; il ne contenait plus aucune lave.
+À l'intérieur d'un volcan dans le pays de Huo Fen. Ce volcan avait été transformé de volcan actif en volcan éteint par des cultivateurs; il ne contenait plus aucune lave.
 
-On trouvait en son sein de nombreuses pièces, grandes et petites, et chaque pièce abritait un cultivateur. Ces individus étaient les survivants de la destruction du pays de Hou Fen.
+On trouvait en son sein de nombreuses pièces, grandes et petites, et chaque pièce abritait un cultivateur. Ces individus étaient les survivants de la destruction du pays de Huo Fen.
 
-À l'époque, Hou Fen avait été attaquée par Xuanwu ainsi que par plusieurs autres nations. Les quatre grands secteurs avaient été expulsés, et c'est aussi à ce moment que Li Muwan fut contrainte de quitter son foyer.
+À l'époque, Huo Fen avait été attaquée par Xuanwu ainsi que par plusieurs autres nations. Les quatre grands secteurs avaient été expulsés, et c'est aussi à ce moment que Li Muwan fut contrainte de quitter son foyer.
 
 Sous ce volcan se trouvait un édifice complet: le Temple du Dieu de la Guerre. Il avait fallu plusieurs cultivateurs de l'Âme Naissante pour déplacer cette structure lors de l'attaque. Le temple renfermait les restes d'innombrables ancêtres du culte et de nombreuses techniques sacrées.
 
