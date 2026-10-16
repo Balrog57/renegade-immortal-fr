@@ -18,9 +18,9 @@ La nuit passa dans le silence. Durant les jours qui suivirent, Wang Lin passa du
 
 Wang Lin ressentait une profonde mélancolie en partant. Il ignorait quand il aurait l'occasion de revenir chez lui. Ce serait peut-être dans quelques années, ou peut-être ne reviendrait-il jamais.
 
-À l'origine, il avait prévu d'utiliser la grotte percée par ce trou dans le mur pour sa culture en isolement, mais il renonça à cette idée. Contrairement aux autres cultivateurs, il avait besoin de présence d'eau dans la grotte; sans cela, peu importe la richesse de l'énergie spirituelle, l'endroit ne serait pas propice. De plus, la proximité avec la Montagne Heng Yue représentait un risque trop grand.
+À l'origine, il avait prévu d'utiliser pour sa culture en isolement la grotte « Œil-du-Vent » de la falaise, mais il renonça à cette idée. Contrairement aux autres cultivateurs, il avait besoin de présence d'eau dans la grotte; sans cela, peu importe la richesse de l'énergie spirituelle, l'endroit ne serait pas propice. De plus, la proximité avec la Montagne Heng Yue représentait un risque trop grand.
 
-Après avoir exploré les environs, Wang Lin trouva une grotte située près du sommet d'une montagne déserte. La cavité abritait une mare d'eau souterraine et de nombreuses traces d'animaux; il semblait que la faune sauvage fréquentât souvent les lieux. Après avoir inspecté soigneusement la grotte pour s'assurer qu'aucune autre issue n'existait, Wang Lin utilisa rapidement sa technique d'attraction pour sceller l'entrée avec des rochers.
+Après avoir exploré les environs, Wang Lin trouva une grotte au pied d'un pic dénudé. La cavité abritait une mare d'eau souterraine et de nombreuses traces d'animaux; il semblait que la faune sauvage fréquentât souvent les lieux. Après avoir inspecté soigneusement la grotte pour s'assurer qu'aucune autre issue n'existait, Wang Lin utilisa rapidement sa technique d'attraction pour sceller l'entrée avec des rochers.
 
 Ainsi, la grotte fut totalement hermétiquement close et Wang Lin entama sa deuxième période de culture en isolement.
 
@@ -40,7 +40,7 @@ Au cours de ces quatre ans, l'entrée devint un refuge pour divers animaux. Cert
 
 Un jour, deux traînées de lumière arc-en-ciel volèrent vers la grotte. Deux hommes et une femme apparurent alors qu'ils s'immobilisaient près de l'entrée. L'homme en tête était un homme d'âge mûr vêtu de noir. Il flottait dans les airs, porté par une épée volante verte qui dégageait une aura glaciale capable de susciter la terreur.
 
-À ses côtés se tenait une jeune fille très séduisante, à la voix cristalline: « Troisième frère aîné, tu dois m'aider à trouver une bête spirituelle de cristal. Le concours pour accéder aux montagnes arrières approche et j'ai besoin d'une excellente bête de bois pour la raffiner en esprit d'épée. Avec un tel esprit, ma victoire sera assurée. »
+À ses côtés se tenait une jeune fille très séduisante, à la voix cristalline: « Troisième frère aîné, tu dois m'aider à trouver une bête spirituelle de cristal. Le concours pour accéder aux montagnes arrières approche et j'ai besoin d'une excellente bête de cristal pour la raffiner en esprit d'épée. Avec un tel esprit, ma victoire sera assurée. »
 
 Si Wang Lin avait vu cette jeune fille, il l'aurait trouvée très familière. C'était la jeune femme nommée Xu qui éprouvait des sentiments secrets pour Wang Zhuo. Elle était passée du statut de jolie adolescente à celui de femme magnifique.
 
@@ -54,11 +54,11 @@ L'homme d'âge mûr se tourna vers les deux jeunes gens et ajouta: « Jeune frè
 
 Le jeune homme, visiblement intimidé par l'homme d'âge mûr, répondit: « Troisième frère, je sais que j'ai eu tort. »
 
-La jeune Xu lui tapota la tête et dit: « Patience, jeune frère. Une fois la bête de cristal capturée, nous retournerons au secteur. »
+La jeune Xu lui tapota la tête et dit: « Patience, jeune frère. Une fois la bête de cristal capturée, nous retournerons à la secte. »
 
 Le garçon hocha précipitamment la tête en murmurant: « Grande sœur, tu es l'un des génies de la Secte Xuan Dao. Tu as réussi à passer du 4ème au 7ème niveau en seulement quatre ans. Une fois que tu auras raffiné cet esprit d'épée, tu deviendras l'une des expertes de la Secte. Tu devras m'aider quand Li Shan s'en prendra à moi plus tard. »
 
-La jeune fille secoua la tête avec un sourire amer: « Si l'on parle de génies, le frère aîné Liu Feng en est un véritable. Il a presque rattrapé ton niveau de culture et va bientôt franchir le 13ème niveau. Il y a aussi la grande sœur Liu Mei qui a déjà atteint le 12ème niveau. Comme ils étaient tous originaires de la Secte Xuan Dao, l'accès aux montagnes arrières leur est naturel. Moi, venant de la Secte Heng Yue, je dois me battre pour l'une des places restantes. J'espère gagner cette fois-ci. »
+La jeune fille secoua la tête avec un sourire amer: « Si l'on parle de génies, le frère aîné Liu Feng en est un véritable. Il a presque atteint le niveau du grand frère aîné et va bientôt franchir le 13ème niveau. Il y a aussi la grande sœur Liu Mei qui a déjà atteint le 12ème niveau. Comme ils étaient tous originaires de la Secte Xuan Dao, l'accès aux montagnes arrières leur est naturel. Moi, venant de la Secte Heng Yue, je dois me battre pour l'une des places restantes. J'espère gagner cette fois-ci. »
 
 L'homme d'âge mûr laissa échapper un grognement mécontent: « Ce renard de Liu Feng n'a progressé si vite que parce qu'il a pu accéder aux montagnes arrières. C'est uniquement parce que l'Ancêtre portait un regard sur les montagnes de la Secte Heng Yue qu'il a pu en arriver là. Sans lui, comment Liu Feng aurait-il pu croître si rapidement? Même avec un grand talent, sans une immense quantité d'énergie spirituelle, il lui faudrait des années pour percer. »
 

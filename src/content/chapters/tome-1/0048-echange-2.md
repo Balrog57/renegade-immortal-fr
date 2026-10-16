@@ -6,13 +6,9 @@ bookTitle: The Mediocre Youth
 en: Chapter 48 - Exchange (2)
 slug: echange-2
 ---
-« Trop de fanfaronnade! Frère apprenti Zhao, tabasse-le et fais honneur à la secte! »
 
-« Montrons à ce joli visage la puissance de notre Secte Heng Yue. Allez, frère Zhao! »
 
-« La Secte Xuan Dao est bien trop arrogante. Frère Zhao, tu dois le faire souffrir! Ils ont même osé prétendre n'utiliser que 50 % de leur puissance! »
 
-« La Secte Xuan Dao est bien trop rusée. Ils ont déjà préparé une excuse pour parer à une éventuelle défaite. Je vais observer cela de près, frère Zhao! Vas-y! »
 
 Tous les disciples de la Secte Heng Yue étaient en ébullition. Les propos de l'Ancien de la Secte Xuan Dao avaient atteint leur orgueil.
 
@@ -20,7 +16,7 @@ Les visages des Anciens de la Secte Heng Yue s'assombrirent. Bien qu'ils restass
 
 Sun Dazhu eut un petit rire. Il sourit et chuchota à Wang Lin: « Disciple, observe bien. Cet échange sera plus intense que les précédents. C'est la première fois que la Secte Xuan Dao ose faire preuve d'une telle arrogance. »
 
-Wang Lin parcourut du regard les disciples internes en colère, puis posa les yeux sur Liu Feng. Une couche de brume noire enveloppait encore son corps, empêchant Wang Lin de discerner son niveau de culture.
+Wang Lin parcourut du regard les disciples internes en colère, puis posa les yeux sur Liu Feng. Une couche de brume enveloppait encore son corps, empêchant Wang Lin de discerner son niveau de culture.
 
 Liu Feng, debout sur l'estrade, déclara d'un ton calme: « Frère Zhao, puisque notre Ancien l'a décrété, je n'utiliserai que 50 % de ma puissance dans ce combat. »
 
@@ -32,7 +28,7 @@ Des éclats de qi d'épée émanèrent des lotus blancs. On pouvait entendre le 
 
 Le chef de secte Huang Long sourit: « La lame de lotus de Zhao Long a déjà atteint le rang intermédiaire. Très bien. »
 
-L'Ancien au visage rouge déclara avec fierté sur le côté: « Haha, Chef de secte, Zhang Long est mon disciple préféré. Son talent est remarquable et il est très assidu. Cette lame de lotus est un art qu'il a lui-même sélectionné au pavillon des épées. En seulement cinq ans, il a déjà atteint le rang intermédiaire. »
+L'Ancien au visage rouge déclara avec fierté sur le côté: « Haha, Chef de secte, Zhao Long est mon disciple préféré. Son talent est remarquable et il est très assidu. Cette lame de lotus est un art qu'il a lui-même sélectionné à la bibliothèque des écritures. En seulement cinq ans, il a déjà atteint le rang intermédiaire. »
 
 L'Ancien Xu sourit et s'adressa aux disciples environnants: « La lame de lotus est réputée pour sa puissance d'attaque. Vous, les disciples internes, devriez saisir cette occasion pour apprendre de lui. »
 

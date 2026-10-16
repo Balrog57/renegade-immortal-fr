@@ -12,7 +12,7 @@ Le temps s'écoula en un éclair, et en un clin d'œil, deux ans s'étaient éco
 
 Bien que deux ans se soient écoulés dans le monde réel, il avait en réalité passé treize ans en entraînement à porte close.
 
-L'énergie spirituelle ici était extrêmement riche, ce qui l'impressionna grandement. Bien qu'elle ne puisse égaler l'énergie spirituelle liquide, il constata que chaque fois qu'il attendait dans le monde réel, l'énergie spirituelle y était au moins deux fois plus dense qu'à l'extérieur des montagnes arrières.
+L'énergie spirituelle ici était extrêmement riche, ce qui l'impressionna grandement. Bien qu'elle ne puisse égaler l'énergie spirituelle liquide, il constata que chaque fois qu'il cultivait dans le monde réel, l'énergie spirituelle y était plusieurs fois plus dense qu'à l'extérieur des montagnes arrières.
 
 À partir du deuxième niveau, sa culture ralentit considérablement. Après avoir cultivé dans l'espace de rêve pendant plus de six ans, il atteignit la limite du deuxième niveau. Il entreprit alors de briser cette barrière pour atteindre le troisième. Après d'innombrables tentatives, il réussit enfin son percée.
 
@@ -56,7 +56,7 @@ Le jeune homme en blanc à ses côtés ricana: « Cher frère cadet, va me cherc
 
 Wang Lin resta silencieux et fixa le jeune homme en blanc.
 
-Ce dernier reprit avec un regard méprisant: « Qu'est-ce que ça signifie? Tu veux te battre? Laisse-moi te prévenir, le deuxième frère apprenti a déjà dit que les disciples intérieurs ne pouvaient pas se battre entre eux. Si tu ne te comportes pas comme il se doit, ne t'étonne pas si je te donne une leçon. »
+Ce dernier reprit avec un regard méprisant: « Qu'est-ce que ça signifie? Tu veux te battre? Laisse-moi te prévenir, le deuxième frère apprenti a déjà dit que les disciples intérieurs pouvaient se battre entre eux. Si tu ne te comportes pas comme il se doit, ne t'étonne pas si je te donne une leçon. »
 
 « Ça suffit! Taisez-vous tous! » Un cri retentit depuis la falaise. Rapidement, une ombre fendit l'air comme un éclair: c'était celle du frère apprenti Zhang. Il fronça les sourcils en regardant l'assemblée et grogna: « Wang Zhuo, Sun Hao, au lieu de cultiver, vous êtes ici à intimider un junior qui n'est qu'au premier niveau de Condensation de Qi? Est-ce là un divertissement si intéressant que cela? »
 

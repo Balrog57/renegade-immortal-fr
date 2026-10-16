@@ -26,7 +26,7 @@ Le visage de la jeune fille nommée Xu, qui se tenait aux côtés de l'homme, de
 
 L'épée volante de l'homme d'âge moyen faillit elle aussi lâcher prise, et il dut user de toute sa force pour maintenir son vol. Il fit un pas en avant, rattrapa les deux personnes en chute libre, puis se posa au sol. Ce simple mouvement l'avait laissé trempé de sueur.
 
-Une fois au sol, il joignit rapidement les mains et dit: « Ce junior est Li Hai, disciple de la Secte Xuan Dao. J'ignorais que un Senior cultivait ici. Veuillez nous pardonner. »
+Une fois au sol, il joignit rapidement les mains et dit: « Ce junior est Li Hai, disciple de la Secte Xuan Dao. J'ignorais qu'un Senior cultivait ici. Veuillez nous pardonner. »
 
 La jeune fille nommée Xu remarqua également ce Sens Divin qui l'avait fait perdre le contrôle de son épée. Elle répondit respectueusement: « Ce junior est Xu Fei, disciple de la Secte Xuan Dao. »
 
@@ -74,4 +74,4 @@ Situ Nan répondit avec mécontentement: « Toi! Je t'ai répété d'innombrable
 
 Wang Lin réfléchit encore, puis demanda: « Je me demande comment les autres atteignent l'Établissement des Fondations. »
 
-Situ Nan grogna: « C'est simple. S'ils appartiennent à une secte, un cultivateur de l'Âme Naissante utilise sa propre culture pour aider le disciple à atteindre l'Établissement des Fondations. Si j'avais encore mon corps, je ferais la même chose pour t'aider. Dans mon pays d'origine, le statut d'un cultivateur de l'Âme Naissante est comparable à celui d'un cultivateur de la Formation du Noyau ici. Bien qu'ils ne soient pas si nombreux, il y en a assez pour aider les disciples à atteindre l'Établissement des Fondations. »
+Situ Nan grogna: « C'est simple. S'ils appartiennent à une secte, un cultivateur de l'Âme Naissante utilise sa propre culture pour aider le disciple à atteindre l'Établissement des Fondations. Si j'avais encore mon corps, je ferais la même chose pour t'aider. Dans mon pays d'origine, le statut d'un cultivateur de l'Âme Naissante est comparable à celui d'un cultivateur de l'Établissement des Fondations ici. Bien qu'ils ne soient pas si nombreux, il y en a assez pour aider les disciples à atteindre l'Établissement des Fondations. »

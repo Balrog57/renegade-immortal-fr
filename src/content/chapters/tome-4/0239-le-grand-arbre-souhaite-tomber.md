@@ -12,7 +12,7 @@ Le jeune homme n'agit pas avec précipitation; il observa les innombrables cadav
 
 Wang Lin esquissa un léger sourire et le poursuivit rapidement.
 
-Teng Nine parcourut mille kilomètres d'une traite, mais ce sentiment de danger ne le quittait pas. Cette sensation lui donnait la chair de poule.
+Teng Nine parcourut cinq cents kilomètres d'une traite, mais ce sentiment de danger ne le quittait pas. Cette sensation lui donnait la chair de poule.
 
 Ce pressentiment devint de plus en plus oppressant, jusqu'à ce que les yeux de Teng Nine s'illuminent enfin; il frappa son sac de rangement, en sortit une perle grise et la jeta derrière lui.
 
@@ -84,7 +84,7 @@ Teng Huit était convaincu qu'il aurait pu tous les éliminer lui aussi. Après 
 
 Bien qu'il ne fût pas de taille face aux vieux monstres du stade tardif de l'Âme Naissante, il ne les craignait pas. Dans tout le royaume de Zhao, il n'avait peur que de deux personnes.
 
-De ces deux-là, la première n'était pas Teng Huayuan, mais Teng Un. Teng Huayuan n'arrivait qu'en seconde position. En fait, chaque fois qu'il pensait à Teng Un, un frisson lui parcourait le corps.
+De ces deux-là, la première n'était pas Teng Huayuan, mais Teng Yi. Teng Huayuan n'arrivait qu'en seconde position. En fait, chaque fois qu'il pensait à Teng Yi, un frisson lui parcourait le corps.
 
 Hormis ces deux individus, il ne redoutait personne d'autre. Au contraire, il espérait que cet être mystérieux finisse par se présenter devant lui.
 
@@ -138,7 +138,7 @@ Endurant une douleur atroce, sa vitesse augmenta soudainement de plusieurs multi
 
 Wang Lin fronça les sourcils. Cet homme était très déterminé et avait utilisé une technique interdite: au prix de brûler une partie de son âme, il avait multiplié sa vitesse, rendant toute poursuite impossible pour Wang Lin.
 
-Wang Lin resta immobile et observa la direction de la fuite de Teng Six. Après avoir réfléchi un instant, il sortit son drapeau de restriction pour couvrir un rayon de mille kilomètres.
+Wang Lin resta immobile et observa la direction de la fuite de Teng Six. Après avoir réfléchi un instant, il sortit son drapeau de restriction pour couvrir un rayon de cinq cents kilomètres.
 
 Peu après, Wang Lin pointa son front et les démons Xu Liguo et le troisième démon apparurent. Wang Lin leur ordonna de le protéger pendant qu'il sortait le miroir de bronze. Ce dernier flotta au-dessus de sa tête en oscillant lentement.
 
@@ -148,7 +148,7 @@ Soudain, ce nuage bougea et se propagea avec rapidité pour recouvrir l'intégra
 
 Teng Five était un homme d'âge moyen très séduisant; on pouvait dire qu'il ressemblait beaucoup à Teng Li autrefois. Il était accompagné de deux magnifiques cultivatrices. Tous trois volaient rapidement vers la Cité de la Famille Teng.
 
-Voyant qu'ils approchaient de la limite des dix mille kilomètres de la cité, Teng Five poussa un soupir de soulagement. Mais à cet instant précis, le ciel s'obscurcit brusquement sous l'effet de nuages noirs.
+Voyant qu'ils approchaient de la limite des cinq mille kilomètres de la cité, Teng Five poussa un soupir de soulagement. Mais à cet instant précis, le ciel s'obscurcit brusquement sous l'effet de nuages noirs.
 
 Tandis que Teng Five contemplait la scène, hébété, le nuage noir descendit rapidement pour l'encercler. Puis, il disparut, emportant avec lui l'âme et l'Âme Naissante de Teng Five.
 

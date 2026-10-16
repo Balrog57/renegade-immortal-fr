@@ -56,13 +56,13 @@ Situ Nan, stupéfait, s'exclama d'un ton surpris: « Un Cœur Vert? Je ne pensai
 
 Wang Lin demanda: « Qu'est-ce qu'un Cœur Vert? »
 
-« C'est la technique de culture spéciale des sectes démoniaques des pays de rang 4, le Cœur Vert, ou Faux Cœur. Contrairement aux noyaux normaux, on peut posséder autant de Cœurs Verts que l'on veut. Je me souviens d'un fou d'un pays de rang 4 qui en possédait des dizaines de milliers. Même des cultivateurs de la Formation de l'Âme de pays de rang 5 n'oseraient pas le provoquer. Il faut dire qu'au-delà de sa capacité à augmenter ta culture, ce qui rend le Cœur Vert mortel, c'est son explosion. C'est d'une puissance terrifiante quand des dizaines de milliers de ces cœurs explosent simultanément. »
+« C'est la technique de culture spéciale des sectes démoniaques des pays de rang 4, le Cœur Vert, ou Faux Cœur. Contrairement aux noyaux normaux, on peut posséder autant de Cœurs Verts que l'on veut. Je me souviens d'un fou d'un pays de rang 4 qui en possédait des dizaines de milliers. Même des cultivateurs de la Transformation de l'Âme de pays de rang 5 n'oseraient pas le provoquer. Il faut dire qu'au-delà de sa capacité à augmenter ta culture, ce qui rend le Cœur Vert mortel, c'est son explosion. C'est d'une puissance terrifiante quand des dizaines de milliers de ces cœurs explosent simultanément. »
 
 Les yeux de Wang Lin s'illuminèrent et il demanda soudain: « Combien de Cœurs Verts cet individu possède-t-il? Peux-tu le dire? »
 
 « Lui? Un seul est déjà une prouesse pour lui, et cet être n'est plus vivant. C'est clairement un zombie doté d'intelligence. C'était probablement un cultivateur démoniaque d'un pays de rang 4 qui a utilisé une technique avant sa mort pour se transformer en mort-vivant. »
 
-Ce zombie avait manifestement déjà repéré Wang Lin. Sans bouger, il leva un doigt et le fit claquer. Une lumière verte jaillit droit vers le front de Wang Lin.
+Ce zombie avait manifestement déjà repéré Wang Lin. Sans bouger, il leva légèrement un doigt. Une lumière verte jaillit droit vers le front de Wang Lin.
 
 Wang Lin recula prestement pour esquiver l'éclair vert.
 
@@ -80,7 +80,7 @@ Wang Lin pointa l'avant avec son index droit et l'épée volante verte apparut. 
 
 Soudain, quatre caractères dorés s'illuminèrent sur le jade.
 
-Teng Li eut un sourire carnassier. Il se mordit le doigt et projeta une goutte de son sang sur son épée volante. L'arme trembla brusquement, libérant une lueur démoniaque avant de croître pour devenir une épée gigantesque. D'innombrables sphères de foudre apparurent également, bien qu'en moins grand nombre qu'auparavant.
+Teng Li eut un sourire carnassier. Il se mordit le doigt et projeta une goutte de son sang sur son épée volante. L'arme trembla brusquement, libérant une lueur démoniaque avant de croître pour devenir une épée gigantesque. Plusieurs sphères de foudre apparurent également, bien qu'en nombre bien moindre qu'auparavant.
 
 Dès que la grande épée se manifesta, elle dégagea une aura glaciale tandis que Teng Li l'abattait avec force.
 
@@ -94,7 +94,7 @@ Les quatre symboles explosèrent tous au contact de l'épée volante, la repouss
 
 Des craquements sinistres déchirèrent le sol, incapable de supporter une telle pression. Tous les arbres géants environnants s'effondrèrent. Au moment précis où l'épée allait frapper, le corps de Wang Lin fut enveloppé d'une lumière bleue et il se téléporta.
 
-Alors que la lame était sur le point de le percuter, il apparut à cent mètres de là, un filet de sang coulant de son front.
+Alors que la lame était sur le point de le percuter, il apparut à trois cent trente mètres de là, un filet de sang coulant de son front.
 
 La grande épée s'écrasa au sol dans un fracas assourdissant. Peu après, un hurlement spectral retentit et une silhouette fantomatique, exhalant une odeur de charogne, chargea vers Teng Li.
 

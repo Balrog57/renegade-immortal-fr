@@ -38,7 +38,7 @@ Voyant que Wang Lin l'ignorait, le vieil homme s'en trouva profondément irrité
 
 « C'est donc lui, un immortel? » Sous ce regard, Wang Lin sentit un frisson le parcourir. Son cœur s'emballa et son visage pâlit tandis qu'il fixait l'immortel.
 
-Le jeune homme à la peau sombre, voyant l'immortel, plaça ses mains près de ses poches dans une attitude respectueuse, ses yeux brillant d'un fanatisme manifeste. Seul Wang Zhuo jeta un regard désinvolte aux autres en reniflant avec mépris.
+Le jeune homme à la peau sombre, voyant l'immortel, plaça ses mains le long de son pantalon dans une attitude respectueuse, ses yeux brillant d'un fanatisme manifeste. Seul Wang Zhuo jeta un regard désinvolte aux autres en reniflant avec mépris.
 
 Le père de Wang Zhuo s'avança précipitamment et dit respectueusement: « Immortel, ces trois-là sont les recommandations de la famille Wang. »
 
@@ -46,9 +46,9 @@ Le jeune homme hocha la tête puis demanda avec impatience: « Qui est Wang Zhuo
 
 Un éclair de joie traversa le visage du vieil homme, qui tira rapidement Wang Zhuo vers lui: « Immortel, voici mon fils, Wang Zhuo. »
 
-L'immortel observa Wang Zhuo intensément. Puis son visage s'illumina et il acquiesça: « Wang Zhuo est effectivement talentueux; il n'est pas étonnant que l'Oncle Martial ait eu un penchant pour lui. »
+L'immortel observa Wang Zhuo intensément. Puis son visage s'illumina et il acquiesça: « Wang Zhuo est effectivement talentueux; il n'est pas étonnant que l'Oncle-Maître ait eu un penchant pour lui. »
 
-Wang Zhuo regarda fièrement Wang Lin et le jeune homme à l'air intelligent, puis déclara avec arrogance: « C'est tout naturel. Pour devenir un immortel, il faut posséder une volonté de fer. »
+Wang Zhuo regarda fièrement Wang Lin et le jeune homme à l'air intelligent, puis déclara avec arrogance: « Bien sûr. Mes racines spirituelles pour la culture sont exceptionnelles, et l'Oncle-Maître n'a cessé de me louer. »
 
 Le jeune homme fronça les sourcils, mais cela ne dura qu'un instant. Il esquissa un léger sourire en direction de Wang Zhuo, agita ses manches, et emporta les trois jeunes sur l'arc-en-ciel avant de disparaître.
 
@@ -65,8 +65,6 @@ Après un certain temps, Wang Lin sentit que le jeune homme s'essoufflait et que
 Heureusement, la chute ne fut pas brutale et ils se relevèrent rapidement. Devant Wang Lin s'étendait un paysage paradisiaque, composé de montagnes, de fleurs et d'une rivière; une scène véritablement idyllique.
 
 Tout droit devant lui se dressait une montagne imposante, dont le sommet, drapé de nuages, dissimulait sa silhouette véritable. On pouvait entendre les échos des cris de bêtes sauvages. Un sentier de marches sinueuses serpentait le long de la paroi, tel un tableau vivant, évoquant l'atmosphère d'un autre monde.
-
-Au loin, sur la cime, se trouvait une salle majestueuse. Bien qu'enveloppée par les brumes, la lumière éclatante qui s'en dégageait inspirait la dévotion. À côté de la salle, un pont argenté en forme de croissant de lune reliait ce sommet à une autre crête.
 
 Avec de telles beautés naturelles, cet endroit était véritablement digne d'abriter la Secte Heng Yue. Cette dernière était l'une des rares sectes de culture du pays de Zhao. Il y a cinq cents ans, elle était la puissance dominante du royaume et comptait plusieurs vieux monstres au stade de l'Âme Naissante. Cependant, avec le passage du temps, elle s'était rétrécie pour atteindre sa taille actuelle, ne parvenant plus qu'à maintenir une présence fragile dans le monde de la culture.
 

@@ -16,9 +16,9 @@ Wang Lin regarda Zhou Peng. Après un long silence, il demanda: « Senior Situ, 
 
 Situ fut stupéfait. Il répondit précipitamment: « Qui a dit ça?! La première étape était indispensable. Sans elle, tu ne pouvais même pas entreprendre la seconde. »
 
-Après avoir lui-même fabriqué une marionnette, Wang Lin avait senti que quelque chose clochait. Il voulut en dire plus, mais demanda plutôt: « Pun Nanzi verra-t-il clair dans le jeu de Zhou Peng? »
+Après avoir lui-même fabriqué une marionnette, Wang Lin avait senti que quelque chose clochait. Il voulut en dire plus, mais demanda plutôt: « Pu Nanzi verra-t-il clair dans le jeu de Zhou Peng? »
 
-Situ hésita un instant avant de répondre: « Pour être honnête, lorsque tu fabriquais la marionnette, j'y ai injecté une partie de mon essence. Ainsi, si un cultivateur de l'Âme Naissante n'examine pas la chose avec une extrême attention, il ne devrait rien remarquer d'anormal. De plus, ce Pun Nanzi est probablement en méditation de retraite la plupart du temps; les chances qu'il découvre la vérité sont donc minimes. »
+Situ hésita un instant avant de répondre: « Pour être honnête, lorsque tu fabriquais la marionnette, j'y ai injecté une partie de mon essence. Ainsi, si un cultivateur de l'Âme Naissante n'examine pas la chose avec une extrême attention, il ne devrait rien remarquer d'anormal. De plus, ce Pu Nanzi est probablement en méditation de retraite la plupart du temps; les chances qu'il découvre la vérité sont donc minimes. »
 
 Wang Lin réfléchit un moment. Il mobilisa son corps et s'élança comme un arc-en-ciel vers le village. Sans marquer le moindre arrêt, il vola droit vers sa demeure.
 
@@ -46,7 +46,7 @@ Wang Lin s'avança et serra son père dans ses bras. Il essuya les larmes sur le
 
 Wang Lin s'approcha et s'agenouilla devant elle, le regard empreint de nostalgie. Il dit: « Mère, Tie Zhu est revenu pour vous voir. »
 
-« Toi... comment as-tu pu être aussi impitoyable? Tu n'es pas revenu nous voir de tout l'hiver durant ces cinq ans. Existons-nous encore dans ton cœur? Pendant toutes ces années, ton père et moi avons sans cesse pensé à toi... » En continuant de parler, elle finit par serrer Tie Zhu contre elle en pleurant.
+« Toi... comment as-tu pu être aussi impitoyable? Tu n'es pas revenu nous voir durant ces cinq ans. Existons-nous encore dans ton cœur? Pendant toutes ces années, ton père et moi avons sans cesse pensé à toi... » En continuant de parler, elle finit par serrer Tie Zhu contre elle en pleurant.
 
 Le père de Tie Zhu regarda sa femme, puis déclara: « Notre enfant est un immortel, il doit se consacrer à des desseins plus importants. Regarde comment tu te comportes, on va finir par se moquer de nous au village. Petit Six, tu peux rentrer chez toi. Ne reviens pas avant quelques jours. Je t'appellerai quand Tie Zhu repartira. »
 
@@ -80,7 +80,7 @@ Le père de Tie Zhu vit que sa femme s'apprêtait à répliquer. Il toussa et in
 
 La mère de Tie Zhu marqua une pause et marmonna: « Qu'y a-t-il de si merveilleux chez les immortels? Ils quittent la maison et ne reviennent pas pendant cinq ans. Si j'ai une belle-fille immortelle, mon fils ne la ramènera probablement même pas après dix ans! »
 
-Wang Lin sourit avec amertume. Juste au moment où il allait prendre la parole, sa mère lui lança un regard noir: « Très bien, je vais écouter ton père. Je suppose que tu as des ambitions démesurées et que les filles du village ne sauront pas te l'œil. Maman attendra de voir quel genre de femme tu ramèneras. »
+Wang Lin sourit avec amertume. Juste au moment où il allait prendre la parole, sa mère lui lança un regard noir: « Très bien, je vais écouter ton père. Je suppose que tu es trop difficile et que les filles du village ne te plairont pas. Maman attendra de voir quel genre de femme tu ramèneras. »
 
 Voyant la colère de sa mère, Wang Lin s'empressa de dire: « Mère, ne t'inquiète pas. Ton fils te ramènera assurément une excellente belle-fille. »
 

@@ -24,7 +24,7 @@ Les yeux de l'homme bleu s'illuminèrent. Il ouvrit la bouche et cracha un mot q
 
 Le regard de Wang Lin brilla d'un éclat vif. L'énergie spirituelle Yin à l'intérieur de son corps jaillit et forma un poing qui percuta celui de l'étranger en plein vol. Au moment de l'impact, l'homme bleu adopta une posture étrange: un pied ancré au sol, le corps penché vers la gauche, il commença à respirer selon un rythme singulier. Soudain, une rafale de vent tourbillonna autour de lui, prenant sa position de centre et balayant tous les rochers environnants, créant ainsi une zone dégagée autour d'eux.
 
-Le visage de Wang Lin devint rouge et il recula involontairement de trois pas tout en fixant l'étranger.
+Le visage de Wang Lin devint rouge et il recula involontairement de plus de dix mètres tout en fixant l'étranger.
 
 Le cœur de l'homme bleu fut encore plus secoué que celui de Wang Lin. Il pouvait clairement sentir l'étrange énergie spirituelle Yin pénétrer son corps par le poing de Wang Lin. Cette énergie glaciale se propagea dans ses membres par vagues d'un froid absolu.
 
@@ -42,7 +42,7 @@ L'énergie contenue dans le coup de poing de l'homme était très étrange. Elle
 
 « Force? », se remémora-t-il le mot que l'étranger avait crié avant de frapper.
 
-Faisant abstraction du coup de poing reçu, Wang Lin était très satisfait de la puissance de son énergie spirituelle Yin. Il nomma ce type d'énergie capable de modifier la structure des choses: « l'énergie spirituelle Ji Yan ».
+Faisant abstraction du coup de poing reçu, Wang Lin était très satisfait de la puissance de son énergie spirituelle Yin. Il nomma ce type d'énergie capable de modifier la structure des choses: « l'énergie spirituelle Yin extrême ».
 
 « Ji? », c'était ce que l'homme avait dit en découvrant sa puissance.
 
@@ -50,7 +50,7 @@ Wang Lin murmura pour lui-même: « Il est temps de partir. Une fois que j'aurai
 
 « Je dois trouver des lieux au Yin extrême, absolument! », se dit-il. Wang Lin savait qu'il devait débusquer un Yin extrême car, pour franchir les niveaux supérieurs de sa méthode de culture, il lui faudrait une énergie Yin de qualité bien plus élevée.
 
-Bien que les ruines regorgent d'une énergie Yan dense, Wang Lin savait que l'énergie Yin ici n'était que d'une qualité dense de rang 10 environ. Elle ne pourrait atteindre au maximum qu'une qualité extrême de rang 1.
+Bien que les ruines regorgent d'une énergie Yin dense, Wang Lin savait que l'énergie Yin ici n'était que d'une qualité dense de rang 10 environ. Elle ne pourrait atteindre au maximum qu'une qualité extrême de rang 1 ou 2.
 
 Il fallait savoir que parmi les énergies Yin célestes, terrestres, mystiques et infernales, la différence entre le mystique et l'infernal n'était pas grande, mais l'écart avec les énergies terrestres et célestes était abyssal. Une énergie Yin terrestre de bonne qualité de rang 1 équivalait à une énergie Yin mystique ou infernale de qualité extrême de rang 1.
 
@@ -66,7 +66,7 @@ Il pénétra même dans une fissure du sol pour s'engouffrer dans des tunnels so
 
 Deux jours plus tard, ils atteignirent un coin désert des ruines. Durant ces deux jours, ils n'avaient marqué qu'une seule pause pour se reposer.
 
-À leur arrivée, Wang Lin remarqua une tour intacte à proximité. Au sommet de celle-ci trônait une perle de pierre d'environ deux mètres de large.
+À leur arrivée, Wang Lin remarqua une tour intacte à proximité. Au sommet de celle-ci trônait une immense perle de pierre.
 
 Les yeux de Wang Lin s'illuminèrent. Cette perle était presque identique à celle qu'il avait vue dans les ruines.
 
@@ -88,9 +88,9 @@ L'homme étrange scruta le ciel avec une expression anxieuse. Les deux hommes se
 
 Les huit piliers de lumière convergeaient en ce point précis. L'homme étrange s'arrêta et s'inclina. Ses yeux brillaient de dévotion tandis qu'il entonnait des paroles mélodieuses.
 
-À mesure que sa voix montait dans les aigus, la terre trembla et une statue de cent mètres de haut surgit du sol. La statue s'éleva à mi-hauteur avant de se figer.
+À mesure que sa voix montait dans les aigus, la terre trembla et une statue de 330 mètres de haut surgit du sol. La statue s'éleva à mi-hauteur avant de se figer.
 
-Elle représentait un homme aux longs cheveux. L'homme avait un air singulier, un regard intelligent, et tenait une lance de cent mètres de long tout en scrutant l'horizon. Autour de lui s'enroulait un dragon dont la gueule était ouverte, comme prêt à attaquer. Les écailles du dragon étaient si détaillées qu'elles semblaient réelles.
+Elle représentait un homme aux longs cheveux. L'homme avait un air singulier, un regard intelligent, et tenait une lance tout en scrutant l'horizon. Autour de lui s'enroulait un dragon dont la gueule était ouverte, comme prêt à attaquer. Les écailles du dragon étaient si détaillées qu'elles semblaient réelles.
 
 Les huit rayons de lumière se rassemblèrent sur la statue et les yeux de celle-ci devinrent de plus en plus éclatants. Wang Lin eut l'impression que l'illusion de cet homme aux longs cheveux était douée de vie.
 
@@ -100,7 +100,7 @@ Wang Lin réfléchit un instant. Sans dire un mot, il bondit à plusieurs repris
 
 Il s'assit immédiatement et traça un sceau, faisant apparaître une lumière rouge. Celle-ci se divisa aussitôt en quatre éclats qui scintillèrent rapidement avant d'exploser. Wang Lin fut frappé de stupeur: il comprit que l'énergie de cet endroit avait atteint la limite de l'énergie Yin infernale. Elle était de qualité extrême.
 
-Surpris, il commença promptement à cultiver pour absorber cette énergie. Cependant, cette fois, le rayon d'aspiration n'était pas vaste, mais concentré sur les quelques mètres qui l'entouraient. De loin, on aurait dit qu'une sphère rouge était apparue pour envelopper la tête du dragon.
+Surpris, il commença promptement à cultiver pour absorber cette énergie. Cependant, cette fois, le rayon d'aspiration n'était pas vaste, mais concentré sur la dizaine de mètres qui l'entouraient. De loin, on aurait dit qu'une sphère rouge était apparue pour envelopper la tête du dragon.
 
 Wang Lin resta assis ainsi pendant cinq jours.
 

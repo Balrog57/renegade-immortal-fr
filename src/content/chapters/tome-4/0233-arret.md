@@ -22,7 +22,7 @@ Soudain, la mer de liquide rouge se fendit en deux, comme si de gigantesques mai
 
 Sans plus hésiter, Wang Lin atterrit pour enregistrer l'ancien réseau de transfert sur un morceau de jade. Il s'envola de nouveau et agita la main pour récupérer le drapeau de restriction.
 
-Une fois le drapeau revenu à Wang Lin, le liquide rouge recouvrit à nouveau le réseau de transfert. Une à une, des plantes encore plus grandes commencèrent à envahir la zone. Leur hauteur atteignait déjà une dizaine de pieds, soit trois fois leur taille précédente.
+Une fois le drapeau revenu à Wang Lin, le liquide rouge recouvrit à nouveau le réseau de transfert. Une à une, des plantes encore plus grandes commencèrent à envahir la zone. Leur hauteur atteignait déjà plus d'une centaine de mètres, soit plus de trois fois leur taille précédente.
 
 Flottant dans les airs, Wang Lin observa le jade avec une expression grave. Après un long moment de réflexion, il s'éloigna sans dire un mot.
 
@@ -48,23 +48,23 @@ Après avoir prélevé les pièces nécessaires sur les réseaux intacts, il les
 
 Lorsqu'il eut enfin réuni suffisamment de matériaux, le corps de Wang Lin disparut soudainement. À l'instant même de sa disparition, une épée s'enfonça dans le sol là où il se tenait.
 
-Le visage sombre, Wang Lin apparut en plein ciel, fixant l'homme vêtu de noir au loin. Il maintenait toujours son sens divin déployé, mais il n'avait pas détecté cet individu avant qu'il ne soit à moins de trente mètres et ne lance son épée. Il faut dire que le sens divin de Wang Lin était aussi puissant que celui d'un cultivateur en étape de Séparation Spirituelle. Un cultivateur de l'Âme Naissante normal n'aurait rien remarqué avant que l'épée ne lui transperce le corps.
+Le visage sombre, Wang Lin apparut en plein ciel, fixant l'homme vêtu de noir au loin. Il maintenait toujours son sens divin déployé, mais il n'avait pas détecté cet individu avant qu'il ne soit à moins de 330 mètres et ne lance son épée. Il faut dire que le sens divin de Wang Lin était aussi puissant que celui d'un cultivateur en étape de Formation de l'Âme. Un cultivateur de l'Âme Naissante normal n'aurait rien remarqué avant que l'épée ne lui transperce le corps.
 
-Si cet homme avait été au stade de la Séparation Spirituelle, cela n'aurait pas posé de problème, mais Wang Lin constata qu'il n'était qu'au milieu du stade de l'Âme Naissante. Ce dernier devait posséder une technique spéciale pour dissimuler sa présence au sens divin de Wang Lin.
+Si cet homme avait été au stade de la Formation de l'Âme, cela n'aurait pas posé de problème, mais Wang Lin constata qu'il n'était qu'au milieu du stade de l'Âme Naissante. Ce dernier devait posséder une technique spéciale pour dissimuler sa présence au sens divin de Wang Lin.
 
-Les yeux de Wang Lin brillèrent d'une intention meurtrière. S'il laissait un tel homme en vie, il devrait toujours vivre avec la crainte d'une attaque imminente. Il décida de le tuer à tout prix et activa immédiatement son Domaine de Ji, sans se soucier du coût en Énergie Naissante.
+Les yeux de Wang Lin brillèrent d'une intention meurtrière. S'il laissait un tel homme en vie, il devrait toujours vivre avec la crainte d'une attaque imminente. Il décida de le tuer à tout prix et activa immédiatement son Royaume Ji, sans se soucier du coût en Énergie Naissante.
 
 L'homme en noir était d'âge moyen, un peu maigre, avec un visage particulièrement méchant. Voyant que Wang Lin avait échappé à son attaque surprise, il sortit un sceau de pierre de son sac de rangement. Il poussa un rugissement et le sceau se mit à tournoyer, grandissant à chaque rotation. Lorsqu'il atteignit la taille d'une petite montagne, il s'abattit sur Wang Lin.
 
 Cependant, au moment même où il lança son trésor magique, son visage pâlit en voyant l'éclair rouge dans les yeux de Wang Lin, et il se retourna aussitôt pour fuir. Il abandonna même son trésor; sans maître pour le contrôler, celui-ci rétrécit instantanément à la taille d'une paume avant de tomber au sol.
 
-Wang Lin fronça les sourcils. Son Domaine de Ji jaillit et rattrapa immédiatement l'individu. L'homme, horrifié, serra les dents et, juste au moment où le Domaine de Ji pénétrait son corps, il explosa.
+Wang Lin fronça les sourcils. Son Royaume Ji jaillit et rattrapa immédiatement l'individu. L'homme, horrifié, serra les dents et, juste au moment où le Royaume Ji pénétrait son corps, il explosa.
 
-La puissance de l'autodestruction projeta des ondes de choc dans toutes les directions. Au centre de l'explosion, une fissure apparut, et une Âme Naissante à l'apparence extrêmement faible disparut à l'intérieur. Le Domaine de Ji de Wang Lin s'engouffra rapidement dans la faille.
+La puissance de l'autodestruction projeta des ondes de choc dans toutes les directions. Au centre de l'explosion, une fissure apparut, et une Âme Naissante à l'apparence extrêmement faible disparut à l'intérieur. Le Royaume Ji de Wang Lin s'engouffra rapidement dans la faille.
 
-Après quelques respirations, le Domaine de Ji réapparut et revint vers Wang Lin.
+Après quelques respirations, le Royaume Ji réapparut et revint vers Wang Lin.
 
-L'expression de Wang Lin resta sombre. Bien que son Domaine de Ji ait tué l'homme, celui-ci semblait connaître l'existence du Domaine de Ji. Il en connaissait même la puissance, au point d'être prêt à faire exploser son propre corps pour tenter de s'échapper par une faille spatiale.
+L'expression de Wang Lin resta sombre. Bien que son Royaume Ji ait tué l'homme, celui-ci semblait connaître l'existence du Royaume Ji. Il en connaissait même la puissance, au point d'être prêt à faire exploser son propre corps pour tenter de s'échapper par une faille spatiale.
 
 Wang Lin réfléchit un instant avant de repartir précipitamment. L'explosion ayant détruit tous les sacs de rangement de l'homme, il n'en restait aucune trace. Quelques jours plus tard, Wang Lin revint au réseau de transfert recouvert de plantes rouges pour entamer ses réparations.
 
@@ -78,7 +78,7 @@ Le cœur de Wang Lin s'alourdit. Après réflexion, il posa sa main sur le logem
 
 Peu après, Wang Lin sentit que son énergie spirituelle s'épuisait dangereusement. Il sortit rapidement une fiole de jade et en avala le contenu pour maintenir ses réserves.
 
-Après un long moment, il cessa d'injecter son énergie et se mit à cultiver. Une fois totalement récupéré, il se dirigea vers le coin nord-est du réseau. Lorsqu'il avait injecté son énergie précédemment, il ne cherchait pas à l'activer, mais à vérifier son intégrité. En atteignant le coin nord-est, il sentit une immense quantité d'énergie spirituelle s'y dissiper.
+Après un long moment, il cessa d'injecter son énergie et se mit à cultiver. Environ une heure plus tard, une fois totalement récupéré, il se dirigea vers le coin nord-est du réseau. Lorsqu'il avait injecté son énergie précédemment, il ne cherchait pas à l'activer, mais à vérifier son intégrité. En atteignant le coin nord-est, il sentit une immense quantité d'énergie spirituelle s'y dissiper.
 
 Il comprit alors le problème.
 
@@ -98,7 +98,7 @@ Il n'hésita pas, mais au moment où il s'apprêtait à le démonter, l'appareil
 
 Au même instant où la lumière jaillit, Wang Lin saisit les composants du coin nord-est. Son énergie spirituelle afflua pour arracher de force cette pièce. Alors qu'il l'extrayait, un rugissement colérique retentit parmi les silhouettes: « Arrête! »
 
-Loin de s'arrêter, Wang Lin accéléra son geste et retira la pièce. Il leva ensuite la tête et fixa froidement les silhouettes alors qu'elles disparaissaient lentement dans la lumière. S'il s'était arrêté, il aurait été tué à l'instant même de leur arrivée. Puisque ce groupe osait envahir la Mer des Démons, des cultivateurs en étape de Séparation Spirituelle devaient faire partie du cortège.
+Loin de s'arrêter, Wang Lin accéléra son geste et retira la pièce. Il leva ensuite la tête et fixa froidement les silhouettes alors qu'elles disparaissaient lentement dans la lumière. S'il s'était arrêté, il aurait été tué à l'instant même de leur arrivée. Puisque ce groupe osait envahir la Mer des Démons, des cultivateurs en étape de Formation de l'Âme devaient faire partie du cortège.
 
 À cet instant précis, presque tous les anciens réseaux de la Mer des Démons s'activèrent simultanément. Tous n'étaient pas gardés par un homme en noir — seuls les sites stratégiques l'étaient — mais dès leur arrivée dans la Mer des Démons, ils libérèrent une intention meurtrière monstrueuse.
 
@@ -114,6 +114,6 @@ Des cercles de lumière apparurent. Au moment où le réseau s'ouvrit, Wang Lin 
 
 Le réseau fut pleinement activé et la silhouette de Wang Lin commença à disparaître. Juste avant de s'effacer, il agita la main pour faire revenir le drapeau de restriction.
 
-Une fois sa disparition consommée, le liquide rouge recouvrit immédiatement le réseau et des plantes hautes de plusieurs dizaines de pieds commencèrent à croître. La végétation était si dense qu'avec les craquements de la croissance, le réseau de transfert finit par se briser sous la pression, des racines s'engouffrant dans ses fissures.
+Une fois sa disparition consommée, le liquide rouge recouvrit immédiatement le réseau et des plantes hautes de plus d'une centaine de mètres commencèrent à croître. La végétation était si dense qu'avec les craquements de la croissance, le réseau de transfert finit par se briser sous la pression, des racines s'engouffrant dans ses fissures.
 
 Désormais, même muni d'une carte, il serait presque impossible de deviner qu'un ancien réseau de transfert se cachait en ce lieu.

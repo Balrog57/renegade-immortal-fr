@@ -16,11 +16,11 @@ Cependant, Wang Lin n'était pas une proie facile. Il gravait les visages de tou
 
 Fort de cette détermination, il feignit l'indifférence, faisant mine d'être sourd et aveugle, et continua à aller chercher de l'eau chaque jour tout en étudiant secrètement la perle de pierre.
 
-Il procéda par expérimentations, trempant la perle dans divers liquides. Il essaya de mélanger la rosée avec de l'eau de source, de la sueur, et même du sang. Finalement, il découvrit que la rosée était, de loin, le meilleur élément.
+Il procéda par expérimentations, trempant la perle dans divers liquides. Il essaya de tremper la perle dans de l'eau de source, de la rosée, de la sueur, et même du sang. Finalement, il découvrit que la rosée était, de loin, le meilleur élément.
 
 Mais il existait différents types de rosée. Celle qui apparaissait sur la perle au matin était la plus efficace, suivie par celle qui se formait durant la nuit. Si la rosée était collectée ailleurs, elle perdait son efficacité.
 
-La seconde option consistait à la mélanger avec de l'eau de source. Le sang et la sueur étaient les moins utiles; ils n'avaient presque aucun effet.
+Venait ensuite l'eau de source. Le sang et la sueur étaient les moins utiles; ils n'avaient presque aucun effet.
 
 Afin de ne pas attirer l'attention, il trouva quelques petites gourdes sauvages et les évida pour y recueillir une partie de la rosée.
 
@@ -40,7 +40,7 @@ Wang Lin n'en fut pas perturbé. Il avait appris de Zhang Hu qu'un disciple hono
 
 Wang Lin se souvint que l'anniversaire de son père approchait. Quoi qu'il en coûte, il devait y retourner. Une fois ses tâches terminées, il se dirigea vers l'Ancien responsable des disciples honoraires.
 
-La Secte Heng Yue était divisée en six académies, elles-mêmes scindées en cinq subdivisions: le métal, le bois, l'eau, le feu et la terre; chacune possédant ses propres disciples honoraires. Les disciples intérieurs et les Anciens résidaient tous dans la cour principale. Il passait souvent devant eux lorsqu'il allait chercher de l'eau, les observant toujours avec une pointe d'envie. Arrivé sur place, il inspecta les environs avant de s'écrier: « Le disciple honoraire Wang Lin demande à voir l'Ancien Sun! »
+La Secte Heng Yue comptait une cour principale, six académies et cinq annexes: le métal, le bois, l'eau, le feu et la terre; chacune possédant ses propres disciples honoraires. Les disciples intérieurs et les Anciens résidaient tous dans la cour principale. Il passait souvent devant eux lorsqu'il allait chercher de l'eau, les observant toujours avec une pointe d'envie. Arrivé sur place, il inspecta les environs avant de s'écrier: « Le disciple honoraire Wang Lin demande à voir l'Ancien Sun! »
 
 Un jeune homme vêtu de blanc s'avança d'un pas nonchalant. Il jeta un regard à Wang Lin et demanda avec morgue: « Tu es Wang Lin? »
 
@@ -70,14 +70,14 @@ Wang Lin fronça les sourcils et ne put s'empêcher de répliquer: « Le discipl
 
 L'Ancien marqua un silence avant de dire avec impatience: « Tu as trois jours, alors rentre vite. Voici un talisman immortel qui peut être utilisé deux fois. Il augmentera considérablement ta vitesse. » Sur ces mots, un morceau de papier jaune terne et d'apparence ordinaire flotta par la fenêtre et atterrit aux pieds de Wang Lin.
 
-Wang Lin ramassa le talisman. Il savait par Zhang Hu que tous les disciples partant en visite familiale recevaient ce genre d'objet. Le but de la secte était simple: étaler ses techniques et ses trésirs immortels afin d'attirer de nouveaux jeunes candidats.
+Wang Lin ramassa le talisman. Il savait par Zhang Hu que tous les disciples partant en visite familiale recevaient ce genre d'objet. Le but de la secte était simple: étaler ses techniques et ses trésors immortels afin d'attirer de nouveaux jeunes candidats.
 
-En réalité, ce talisman était de piètre qualité, mais son avantage résidait dans sa grande facilité d'utilisation. Il suffisait de le coller sur sa jambe pour que, pour un humain ordinaire, la vitesse fût décuplée.
+En réalité, ce talisman était de piètre qualité, mais son avantage résidait dans sa grande facilité d'utilisation. Il suffisait de le coller sur sa jambe pour que, pour un humain ordinaire, la vitesse fût nettement accrue.
 
 Toutefois, de nombreux disciples honoraires les collectionnaient car ils avaient entendu dire qu'ils pouvaient être échangés contre d'autres biens dans le monde extérieur. Beaucoup utilisaient le prétexte du retour en famille uniquement pour accumuler ces talismans.
 
 Après avoir quitté la cour, Wang Lin regagna sa chambre. Après avoir fait ses adieux à Zhang Hu, il commença sa descente de la montagne.
 
-À cet instant, les étoiles brillaient dans le ciel. Wang Lin prévoyait de partir le lendemain, mais craignant de ne pas vouloir utiliser le talisman et de manquer l'anniversaire de son père, il décida de partir durant la nuit.
+À cet instant, les étoiles brillaient dans le ciel. Wang Lin prévoyait de partir le lendemain, mais craignant de ne pas savoir maîtriser la vitesse du talisman et de manquer l'anniversaire de son père, il décida de partir durant la nuit.
 
 Peu après le départ de Wang Lin, l'Ancien Sun sortit de sa chambre pour cueillir des herbes, mais il fut soudainement frappé de stupeur. Il fixa l'entrée du portail: toute l'herbe bleue qui y poussait avait soudainement flétri.

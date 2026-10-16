@@ -47,7 +47,7 @@ L'homme le suivit, impassible.
 
 À ce moment-là, quelque part dans les ruines où la lumière du soleil ne pénétrait pas, l'homme à la peau bleue regardait dans la direction de Wang Lin avec une expression mélancolique.
 
-Quant à Wang Lin, bien qu'il ait absorbé une grande quantité d'énergie Yin, celle-ci n'était que de qualité 6 ou 7, soit une "bonne qualité". Avec une telle pureté, peu importe la quantité absorbée, l'impact sur son énergie spirituelle resterait limité et ne suffirait pas à provoquer de nouvelles percées. Il tourna son regard vers les profondeurs des ruines. Sa cible se trouvait là-bas!
+Quant à Wang Lin, bien qu'il ait absorbé une grande quantité d'énergie Yin, celle-ci n'était que de qualité 6 ou 7, soit une "qualité normale". Avec une telle pureté, peu importe la quantité absorbée, l'impact sur son énergie spirituelle resterait limité et ne suffirait pas à provoquer de nouvelles percées. Il tourna son regard vers les profondeurs des ruines. Sa cible se trouvait là-bas!
 
 Il décida d'explorer davantage afin de localiser l'énergie Yin de la plus haute qualité. Après tout, plus la qualité est élevée, plus les chances de réussite lors d'une percée sont grandes.
 
@@ -59,11 +59,11 @@ Voyant la lumière rouge se scinder, Wang Lin afficha un sourire de satisfaction
 
 Au fur et à mesure qu'il avançait, les deux lumières rouges continuaient de briller intensément tandis que le rang augmentait. Bonne qualité: rang 2, rang 3... jusqu'au rang 5. Wang Lin s'arrêta. Devant lui s'étendait une large route bordée de bâtiments en ruines de chaque côté. Il était évident qu'il y a fort longtemps, cet endroit était très peuplé.
 
-Wang Lin évalua la distance et réalisa qu'il n'avait parcouru même pas un millième du rayon de la ville; il accéléra donc le pas.
+Wang Lin évalua la distance et réalisa qu'il n'avait parcouru même pas un millième de la superficie de la ville; il accéléra donc le pas.
 
 La lumière rouge émise par la technique était très voyante dans la nuit. Le sens divin de Wang Lin était déployé, scrutant sans cesse ses environs. La qualité de l'énergie Yin ne cessait d'augmenter: bonne qualité, rang 6, 7, 8...
 
-Le soleil se leva et se coucha. Au quatrième jour, Wang Lin avait déjà pénétré dans les profondeurs des ruines. Il pressentait que sa position actuelle correspondait au centre de la ville, ou du moins qu'il n'en était pas loin.
+Le soleil se leva et se coucha. Au quatrième jour, Wang Lin avait déjà pénétré dans les profondeurs des ruines. Il pressentait que sa position actuelle n'était peut-être pas le centre de la ville, mais qu'il n'en était pas loin.
 
 En chemin, il avait croisé des dizaines de fosses profondes, larges de plusieurs mètres, remplies d'eau de pluie. Il y avait aussi des serpents mystérieux qui surgissaient pour tenter de le mordre de leurs crocs venimeux. De plus, la destruction dans les ruines s'intensifiait; sur le chemin menant à sa position actuelle, aucune structure ne dépassait les dix mètres de haut.
 
@@ -75,11 +75,11 @@ La nuit du cinquième jour, il sortit du marais et se retrouva face à un vaste 
 
 Ce gouffre gigantesque était singulier. Normalement, un tel trou aurait dû être rempli d'eau de pluie, mais il était totalement sec. Wang Lin s'approcha pour examiner la scène. Malgré l'obscurité et la densité de l'énergie Yin, il pouvait distinguer clairement des cavités semblables à des ruches au fond du gouffre.
 
-Au moment où il atteignit le bord pour inspecter ces cavités, la lumière rouge dans sa main réagit soudainement. Les lueurs fusionnèrent en une seule, puis se divisèrent en trois, indiquant que l'énergie Yin ici avait atteint une qualité "Bonne".
+Au moment où il atteignit le bord pour inspecter ces cavités, la lumière rouge dans sa main réagit soudainement. Les deux lueurs se divisèrent en trois, indiquant que l'énergie Yin ici avait atteint une qualité "Bonne".
 
 Les yeux de Wang Lin s'illuminèrent. Sans se précipiter, il fit le tour du gouffre avec prudence. Lorsqu'il atteignit le côté opposé, les trois lumières fusionnèrent à nouveau pour redevenir deux. Il comprit que ce gigantesque trou était la source de cette qualité supérieure.
 
-Wang Lin se mordit le menton, songeur. Après réflexion, il ne sauta pas immédiatement au fond, mais choisit de s'asseoir pour attendre l'aube.
+Wang Lin se caressa le menton, songeur. Après réflexion, il ne sauta pas immédiatement au fond, mais choisit de s'asseoir pour attendre l'aube.
 
 Bientôt, le jour se leva. Dès que l'énergie Yin se dissipa, Wang Lin plongea dans le gouffre. À son atterrissage, sa petite épée volante verte apparut, dégageant une aura glaciale. Wang Lin leva les yeux vers le ciel; avec une telle profondeur, ce trou aurait dû être inondé depuis des années.
 
@@ -95,15 +95,15 @@ Wang Lin afficha un sourire de satisfaction. Il déploya son sens divin et compr
 
 Au fil du temps, la lumière rouge brilla encore plus fort, atteignant le rang 2 Dense. À minuit, elle avait atteint le rang 5 Dense. Wang Lin n'hésita plus et commença immédiatement sa culture.
 
-Alors que de plus en plus d'énergie Yin s'accumulait dans sa poitrine, il nota une différence fondamentale: la pureté de l'énergie était dix fois supérieure à celle qu'il avait connue auparavant. Un changement de qualité entraîne un changement de quantité; cela signifiait qu'une minute d'accumulation équivalait désormais à plus de dix minutes passées auparavant.
+Alors que de plus en plus d'énergie Yin s'accumulait dans sa poitrine, il nota une différence fondamentale: la pureté de l'énergie était des dizaines de fois supérieure à celle qu'il avait connue auparavant. Un changement de qualité entraîne un changement de quantité; cela signifiait que ce qui exigeait auparavant des dizaines de fois plus de temps ne demandait désormais que le temps normal.
 
-Bientôt, l'énergie Yin dans sa poitrine commença à tourbillonner. À mesure que le vortex s'accélérait, le phénomène inattendu survenu la dernière fois se répéta. L'énergie Yin dans un rayon de cent pieds autour de Wang Lin fluctua et se précipita vers lui.
+Bientôt, l'énergie Yin dans sa poitrine commença à tourbillonner. À mesure que le vortex s'accélérait, le phénomène inattendu survenu la dernière fois se répéta. L'énergie Yin dans un rayon de 330 mètres autour de Wang Lin fluctua et se précipita vers lui.
 
-Le tourbillon dans sa poitrine, en absorbant davantage d'énergie, grandit jusqu'à atteindre un rayon de mille pieds. La portée continua de croître: 1200 pieds, 1400 pieds, 1500 pieds... Dans un rayon de dix kilomètres, l'énergie Yin se déplaçait comme si elle était manipulée, s'engouffrant vers Wang Lin pour être dévorée.
+Le tourbillon dans sa poitrine, en absorbant davantage d'énergie, grandit jusqu'à atteindre un rayon de 3 300 mètres. La portée continua de croître: 3 960 mètres, 4 620 mètres, 4 950 mètres... Dans un rayon de cinq kilomètres, l'énergie Yin se déplaçait comme si elle était manipulée, s'engouffrant vers Wang Lin pour être dévorée.
 
 Alors que le vortex dans sa poitrine devenait colossal, il sentit qu'il perdait le contrôle. Conscient de ses limites, il dirigea cette énergie pour tenter la première percée de sa Mer Spirituelle. Le tourbillon d'énergie Yin agissait comme une lame rotative, frappant inlassablement la Mer Spirituelle pour l'ouvrir. Lentement, celle-ci montra des signes de rupture.
 
-Le phénomène s'intensifia. Si l'on comparait cette percée à la destruction d'un mur de pierre, ce mur était désormais parcouru de fissures et prêt à s'effondrer. Après une heure, la Mer Spirituelle ne put plus résister et céda dans un fracas retentissant.
+Le phénomène s'intensifia. Si l'on comparait cette percée à la destruction d'un mur de pierre, ce mur était désormais parcouru de fissures et prêt à s'effondrer. Après deux heures, la Mer Spirituelle ne put plus résister et céda dans un fracas retentissant.
 
 Une quantité phénoménale de potentiel humain explosa de la Mer Spirituelle tel un volcan, se mélangeant rapidement à l'énergie Yin pour former une force Yin extrêmement puissante. L'énergie spirituelle dans son dantian devint alors agitée; elle se précipita vers cette nouvelle force Yin pour la dévorer.
 
@@ -113,7 +113,7 @@ Wang Lin ressentit cette étrange énergie dans son corps. Ses yeux s'illuminèr
 
 En examinant les débris, il retint son souffle: la structure interne de la pierre changeait constamment. Ce n'était plus de la roche, mais une structure cristalline de glace. En d'autres termes, par un simple contact de son pouvoir spirituel, il n'avait pas seulement gelé la pierre, il en avait transmué la structure même.
 
-Wang Lin ignorait qu'après avoir dévoré cette énergie Yin, son énergie spirituelle avait subi une métamorphose radicale. Même si Situ Nan était présent, il n'aurait pu comprendre ce qui venait de se passer.
+Wang Lin ignorait qu'après avoir dévoré cette énergie Yin, son énergie spirituelle avait subi une métamorphose radicale. Même si Situ Nan s'était réveillé, il n'aurait pu comprendre ce qui venait de se passer.
 
 Dans l'ère antique de la culture, outre les différents niveaux de culture, il existait trois rangs pour l'énergie spirituelle: Ji, Dao et Shi. Ces trois royaumes ne suivaient pas une hiérarchie linéaire mais progressaient en parallèle. Une fois un royaume atteint, on ne pouvait plus passer à un autre. La difficulté d'accès n'était pas insurmontable, mais tout dépendait de la chance.
 

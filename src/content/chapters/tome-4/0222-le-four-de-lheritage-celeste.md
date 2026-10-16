@@ -12,13 +12,13 @@ Cinq pilules Tian Li représentaient déjà une quantité phénoménale. Après 
 
 Après les avoir examinées un instant, Wang Lin en prit une et la porta à sa bouche.
 
-Cette pilule Tian Li était plusieurs fois plus puissante que celle que son corps principal avait consommée toutes ces années auparavant. En effet, les pilules Tian Li de l'époque utilisaient des matériaux de substitution.
+Cette pilule Tian Li était nettement plus puissante que celle que son corps principal avait consommée toutes ces années auparavant. En effet, les pilules Tian Li de l'époque utilisaient des matériaux de substitution.
 
 Le temps passa lentement et la première pilule Tian Li échoua. Bien qu'elle n'ait pas produit l'effet escompté, elle déplaça néanmoins toute l'énergie spirituelle de Wang Lin vers son dantian.
 
 La deuxième pilule Tian Li échoua également, mais l'énergie spirituelle dans le corps de Wang Lin devint encore plus concentrée. De l'extérieur, le dantian de Wang Lin ressemblait à un océan et tous les méridiens de son corps étaient tels des rivières. L'énergie spirituelle coulait depuis les méridiens vers son dantian, formant un tourbillon en son centre.
 
-À chaque rotation de ce tourbillon, toute l'énergie spirituelle de son corps entrait en effervescence. Le processus était d'une étrange solennité.
+À chaque rotation de ce tourbillon, toute l'énergie spirituelle de son corps entrait en effervescence. Le processus avait quelque chose d'inquiétant.
 
 La troisième pilule Tian Li échoua aussi, mais le tourbillon dans le dantian de Wang Lin tournait de plus en plus vite. Bientôt, une goutte de liquide doré se rassembla au centre du vortex.
 
@@ -98,9 +98,9 @@ Sa prudence jouait donc un rôle crucial. Même si quelqu'un venait l'espionner,
 
 Même en traçant la technique d'enregistrement qu'elle utilisait, les espions n'y trouveraient rien de probant. Durant son séjour, elle avait consigné tant de choses que les informations sur le sceau ne représentaient qu'une infime fraction de ses notes.
 
-Peu après son départ, Sun Zhenwei entra dans la bibliothèque. Il sortit un jeton violet sur lequel était inscrit clairement le mot « Ciel ».
+Peu après son départ, Sun Zhenwei entra dans la bibliothèque. Il sortit un jeton violet sur lequel était inscrit clairement le mot « Nuage ».
 
-À l'instant où le jeton apparut, l'espace à trois mètres devant lui se distordit et deux hommes en robes grises en émergèrent. Ils regardèrent le jeton avant de s'agenouiller: « Le disciple de la secte extérieure salue l'Ordre Ciel », déclarèrent-ils.
+À l'instant où le jeton apparut, l'espace à trois mètres devant lui se distordit et deux hommes en robes grises en émergèrent. Ils regardèrent le jeton avant de s'agenouiller: « Le disciple de la secte extérieure salue l'Ordre Nuage », déclarèrent-ils.
 
 « Cette bibliothèque a toujours été gardée par la secte extérieure. Qu'avez-vous découvert durant ce mois passé à espionner Li Muwan? » Le visage de Sun Zhenwei n'était plus empreint de douceur, mais révélait une lueur d'obscurité.
 
@@ -148,7 +148,7 @@ Grâce à cette méthode, la culture de Wang Lin bondit du milieu au stade avanc
 
 Cependant, toutes les pilules fournies par Li Muwan étaient épuisées.
 
-Ce jour-là, Wang Lin s'éveilla de sa culture à l'intérieur de la Perle de l'Héritage Céleste. Il sentit un appel de l'esprit Xu Ligou. Selon son accord avec Li Muwan, il comprit que cela signifiait qu'elle avait trouvé le moyen d'ouvrir le sceau.
+Ce jour-là, Wang Lin s'éveilla de sa culture à l'intérieur de la Perle Défiant le Ciel. Il sentit un appel de l'esprit Xu Liguo. Selon son accord avec Li Muwan, il comprit que cela signifiait qu'elle avait trouvé le moyen d'ouvrir le sceau.
 
 Wang Lin se leva et fit un pas en avant. Son corps s'estompa soudainement, comme s'il perçait l'espace pour disparaître sans laisser de trace.
 
@@ -160,7 +160,7 @@ Wang Lin lança calmement l'épée qui se planta dans le sol. Il ouvrit la porte
 
 Mais soudain, ses pas s'arrêtèrent: la porte s'ouvrit silencieusement et Zhou Lin entra.
 
-En voyant Wang Lin, les yeux du jeune homme se fixèrent sur lui. Il détecta immédiatement le changement. Avant sa retraite de porte fermée, Wang Lin n'était qu'au troisième niveau de Condensation de Qi; il ne pouvait même pas sonder sa culture actuelle. Même si Wang Lin n'était pas encore au stade avancé de la Formation du Noyau, Zhou Lin estimait qu'il se situait au moins au stade intermédiaire. Il esquissa un sourire amer et dit: « Ma maîtresse est sous surveillance. Elle m'a chargé de vous conduire quelque part pour vous rencontrer. »
+En voyant Wang Lin, les yeux du jeune homme se fixèrent sur lui. Il détecta immédiatement le changement. Avant sa retraite de porte fermée, Wang Lin n'était qu'au troisième niveau de Condensation de Qi; il ne pouvait même pas sonder sa culture actuelle. Même si Wang Lin n'était pas encore au stade avancé de la Formation du Noyau, Zhou Lin estimait qu'il se situait au moins au stade intermédiaire. Il esquissa un sourire amer et dit: « Elle m'a chargé de vous conduire quelque part pour vous rencontrer. »
 
 Wang Lin le regarda calmement et acquiesça.
 
@@ -180,7 +180,7 @@ Wang Lin se méfiait de tous. Bien que Zhou Lin lui ait été sympathique et soi
 
 Sous le balayage de son Sens Divin, il ne perçut qu'une fluctuation d'énergie spirituelle provenant du fourneau à pilules; tout le reste semblait normal.
 
-Dès que Zhou Lin entra dans la pièce, il toucha sa sacoche et en sortit trois morceaux de jade qu'il plaça sous le fourneau. Il recula de quelques pas, traçant des sceaux qu'il projeta vers l'objet. Le fourneau brilla et s'enfonça de huit centimètres dans le sol.
+Dès que Zhou Lin entra dans la pièce, il toucha sa sacoche et en sortit trois morceaux de jade qu'il plaça sous le fourneau. Il recula de quelques pas, traçant des sceaux qu'il projeta vers l'objet. Le fourneau brilla et s'enfonça de dix centimètres dans le sol.
 
 Zhou Lin prit une grande inspiration et saisit le fourneau. Après l'avoir fait pivoter plusieurs fois, un rayon de lumière apparut sur le mur devant lui.
 

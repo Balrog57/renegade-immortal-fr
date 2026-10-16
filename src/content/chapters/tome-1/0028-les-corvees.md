@@ -60,7 +60,7 @@ Le tumulte des voix mécontentes s'intensifia. Bientôt, tout le monde quitta la
 
 Wang Lin se sentait serein. Il ne les arrêta pas et espérait qu'ils réussiraient. De cette façon, les Anciens seraient furieux et nommeraient quelqu'un d'autre, ce qui lui permettrait de se concentrer sur sa culture.
 
-Les dix personnes restantes hésitaient. Elles voulaient partir, mais si la démarche échouait, ne cela signifierait-il pas qu'elles avaient totalement manqué de respect à Wang Lin?
+Les dix personnes restantes hésitaient. Elles voulaient partir, mais si la démarche échouait, cela ne signifierait-il pas qu'elles avaient totalement manqué de respect à Wang Lin?
 
 Wang Lin n'était pas pressé. Il attendit le résultat venant de la cour principale. Un instant plus tard, tous les disciples honorifiques revinrent un par un, l'air sombre. Cette fois, ils ne criaient plus; leurs yeux étaient remplis de désespoir et de silence.
 

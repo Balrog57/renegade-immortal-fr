@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Seizing the Spirit
 slug: pilule-de-rassemblement-du-qi
 ---
-Le dernier homme était un jeune d'environ vingt ans au visage long et chevalin. Il releva le menton et lança d'un air dédaigneux: « Frère apprenti Wang, tu as passé trois mois en méditation intensive, alors tu n'es pas au courant. Ce Wang Lin est la risée de la secte en ce moment même. Comme l'a dit la sœur apprentie Xu, il a utilisé des méthodes peu avouables pour devenir disciple intérieur. »
+Le dernier homme était un homme d'environ vingt-huit ou vingt-neuf ans au visage long et chevalin. Il releva le menton et lança d'un air dédaigneux: « Frère apprenti Wang, tu as passé trois mois en méditation intensive, alors tu n'es pas au courant. Ce Wang Lin est la risée de la secte en ce moment même. Comme l'a dit la sœur apprentie Xu, il a utilisé des méthodes peu avouables pour devenir disciple intérieur. »
 
 En entendant cela, Wang Zhuo éclata d'un rire sonore. « Tu m'as vraiment fait peur un instant. C'est donc ainsi que tu as intégré la secte. Même une fois ici, tu n'atteindras probablement jamais le premier niveau de Condensation de Qi. Pourquoi venir ici pour ne faire qu'entacher le nom de la famille Wang? »
 
@@ -14,7 +14,7 @@ En entendant cela, Wang Zhuo éclata d'un rire sonore. « Tu m'as vraiment fait 
 
 Alors qu'elle faisait quelques pas vers Wang Zhuo, la jeune fille nommée Xu ajouta: « Ce que le frère Wang dit n'est pas totalement faux pour autant. Ce Wang Lin a l'air si stupide... Il ne ressemble absolument pas à un cultivateur. »
 
-Wang Lin esquissa un sourire. Il comprenait que les relations entre ces personnes étaient complexes. Wang Zhuo éprouvait des sentiments pour la jeune fille nommée Zhou, mais celle-ci était courtisée par la jeune fille nommée Xu, qui tentait de saboter leur lien depuis tout à l'heure.
+Wang Lin esquissa un sourire. Il comprenait que les relations entre ces personnes étaient complexes. Wang Zhuo éprouvait des sentiments pour la jeune fille nommée Zhou, mais la jeune fille nommée Xu, éprise de lui, tentait de saboter leur lien depuis tout à l'heure.
 
 Le rire de Wang Lin irrita profondément Wang Zhuo. Il renifla et lâcha: « Wang Lin, je te conseille pour ton propre bien de quitter la Secte Heng Yue. Si tu refuses, sache que si tu ne meurs pas, tu finiras certainement mutilé lors du concours des disciples à la fin de l'année. »
 
@@ -24,7 +24,7 @@ Wang Lin rétorqua avec désinvolture: « Ne t'en fais pas. Pourquoi te soucier 
 
 Wang Zhuo eut un rire glacial. « Je m'en soucie parce que nous sommes parents. Puisque tu refuses mes bonnes intentions, ne me reproche pas de ne pas t'épargner lors du concours. » Ses yeux brillèrent d'une lueur glaciale en achevant sa phrase.
 
-Depuis son enfance, Wang Zhuo méprisait la famille de Wang Lin. Bien qu'il n'eût jamais rencontré ce dernier, il avait toujours entendu son père raconter que le père de Wang Lin s'était toujours rabaissé devant leur grand-père pour dérober une part importante de l'héritage familial, portant ainsi atteinte à l'honneur de son propre père. Ce n'est que grâce à la vigilance des autres membres de la famille qu'ils avaient pu récupérer cet héritage. Aux yeux de Wang Zhuo, la lignée de Wang Lin était une honte pour la famille Wang. Tel père, tel fils.
+Depuis son enfance, Wang Zhuo méprisait la famille de Wang Lin. Bien qu'il n'eût jamais rencontré ce dernier, il avait toujours entendu son père raconter que le père de Wang Lin avait flatté leur grand-père pour obtenir la plus grosse part de l'héritage familial, avant de couvrir d'insultes le père de Wang Zhuo. Ce n'est que grâce à la vigilance des autres membres de la famille qu'ils avaient pu récupérer cet héritage. Aux yeux de Wang Zhuo, la lignée de Wang Lin était une honte pour la famille Wang. Tel père, tel fils.
 
 Certes, en grandissant, il s'était rendu compte que les faits n'étaient pas exactement tels que son père les avait dépeints, mais il était resté d'une arrogance extrême depuis l'enfance. Parfois, il méprisait même son propre père, sans parler de tout le reste du monde.
 
@@ -42,13 +42,13 @@ Alors qu'il parlait, la porte de la maison des pilules s'ouvrit. Un jeune homme 
 
 Il toussa pour attirer l'attention de l'assemblée et dit d'un air souriant: « Les Pilules de Rassemblement du Qi sont encore dans le fourneau aujourd'hui. Une fois qu'elles seront prêtes, je vous ferai entrer un par un. »
 
-Wang Zhuo fixa Wang Hao en serrant les dents, mais il ne pouvait se permettre de l'offenser pour le moment. Wang Hao était l'assistant du troisième Grand Frère Apprenti et gérait les affaires quotidiennes de la maison des pilules. Si Wang Hao se plaignait à leur Maître, sa propre dotation mensuelle en serait considérablement réduite.
+Wang Zhuo fixa Wang Hao en serrant les dents, mais il ne pouvait se permettre de l'offenser pour le moment. Wang Hao était l'assistant du troisième Grand Frère Apprenti et gérait les affaires quotidiennes de la maison des pilules. Si Wang Hao se plaignait au troisième Grand Frère Apprenti, la dotation mensuelle de Wang Zhuo en serait considérablement réduite.
 
 Après avoir fini de parler, Wang Hao scruta les environs et fut surpris de voir Wang Lin. Il le tira sur le côté et lui dit: « Grand frère Tie Zhu, félicitations pour ton accession au rang de disciple intérieur. J'ai entendu parler de ce qui s'est passé. Je voulais venir te parler, mais les règles ici sont trop strictes. Je n'apprécie pas ce que les autres disent de toi. Une fois que tu maîtriseras quelques techniques, tu pourras te venger de tous ceux qui t'ont méprisé. »
 
 Le cœur de Wang Lin se réchauffa et il sourit: « Wang Hao, merci. »
 
-Wang Hao soupira. « À l'époque, j'aurais voulu rester quelques jours avec toi, mais mon père m'a lancé un regard pour m'en empêcher. Il ne voulait manifestement pas que je sois mêlé à tout cela. Grand frère Tie Zhu, pardonne-moi. »
+Wang Hao soupira. « À l'époque, je voulais prendre ta défense, mais mon père m'a lancé un regard pour m'en empêcher. Il ne voulait manifestement pas que je sois mêlé à tout cela. Grand frère Tie Zhu, pardonne-moi. »
 
 Wang Lin secoua la tête. « Il est inutile de parler du passé. Pour l'instant, je veux simplement cultiver rapidement pour atteindre le premier niveau de Condensation de Qi. »
 
@@ -66,7 +66,7 @@ Wang Zhuo tentait de se faire bien voir de la jeune fille nommée Zhou, mais la 
 
 Le temps s'écoula lentement et le ciel s'assombrit. Alors que la lune s'élevait dans le ciel, la porte de la maison des pilules s'ouvrit à nouveau. Wang Hao sortit, l'air épuisé, un plateau à la main.
 
-Sur le plateau reposaient cinq pierres spirituelles de faible qualité et cinq pilules transparentes.
+Sur le plateau reposaient cinq fragments de pierre spirituelle de faible qualité et cinq pilules transparentes.
 
 Chacun sortit un par un après avoir reçu sa part. Wang Lin fut le dernier. Il sourit, joignit les mains en signe de respect envers Wang Hao, puis partit.
 

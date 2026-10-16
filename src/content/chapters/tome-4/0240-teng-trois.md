@@ -92,7 +92,7 @@ Teng Trois bondit aussitôt pour suivre l'épée. Mobilisant toute l'énergie sp
 
 Au milieu de cette course effrénée, il crut voir sa femme lui sourire et l'appeler.
 
-L'étoile filante traversa le ciel, pénétra le nuage noir et s'écrasa à cent kilomètres de là.
+L'étoile filante traversa le ciel, pénétra le nuage noir et s'écrasa à cinquante kilomètres de là.
 
 Les nuages sombres se rassemblèrent pour former une silhouette ressemblant à Wang Lin. Ce dernier observa pensif la direction où l'étoile était tombée.
 
@@ -100,7 +100,7 @@ L'homme d'âge mûr chargea Wang Lin sans aucune crainte dans les yeux et périt
 
 Wang Lin resta pensif un long moment, mais il ne retira pas son âme, bien que cet homme eût fait un excellent démon. Il ne pensait pas qu'un membre de la famille Teng puisse chérir ses proches à ce point. Néanmoins, l'homme devait mourir; il n'aurait jamais dû naître au sein de la lignée des Teng.
 
-À cent kilomètres de là, Teng Trois s'était arrêté. Son corps ne présentait aucune blessure apparente, mais il était mort.
+À cinquante kilomètres de là, Teng Trois s'était arrêté. Son corps ne présentait aucune blessure apparente, mais il était mort.
 
 Dans sa main, l'épée nommée Dao Yun brilla une ultime fois avant de se briser...
 
@@ -118,9 +118,9 @@ Teng Hai était le véritable nom de Teng Trois.
 
 Lorsqu'un individu devenait un membre éminent de la famille Teng, il laissait une trace de son âme dans un jade spécial. En l'espace de deux jours seulement, nombre de ces jades s'étaient brisés, et à chaque fois, Teng Huayuan avait ressenti une douleur au cœur.
 
-Particulièrement pour Teng Cinq. Il l'avait pratiquement vu mourir sous ses yeux. Bien qu'ils n'aient été séparés que par cent pieds, il lui sembla qu'un gouffre infranchissable les divisait.
+Particulièrement pour Teng Cinq. Il l'avait pratiquement vu mourir sous ses yeux. Bien qu'ils n'aient été séparés que par une trentaine de mètres, il lui sembla qu'un gouffre infranchissable les divisait.
 
-Teng Cinq, hormis Teng Un, était celui qui ressemblait le plus à Teng Li, et avait donc reçu beaucoup d'attention de la part de Teng Huayuan.
+Teng Cinq, hormis Teng Yi, était celui qui ressemblait le plus à Teng Li, et avait donc reçu beaucoup d'attention de la part de Teng Huayuan.
 
 L'enfance amère de Teng Neuf avait forgé une personnalité tordue, l'amenant à emprunter la voie extrême du vol de vies au prix de sa propre longévité. Teng Huayuan lui avait préparé plusieurs pilules de première qualité, mais elles étaient désormais inutiles.
 

@@ -10,7 +10,7 @@ Quant à Wang Lin, une fois la pression dissipée, son expression s'assombrit. Y
 
 Bien que Ye Zizai soit parti, la Secte des Cadavres était plus vigilant que jamais. Après réflexion, Wang Lin jugea que ce n'était peut-être pas une opportunité favorable et décida de déployer son Sens Divin. Mais dès que celui-ci toucha les parois, il fut bloqué. Seuls les interstices dans le mur ne lui opposaient aucune résistance.
 
-Cependant, ces ouvertures étaient saturées d'énergie Yin et s'enfonçaient profondément. Même après avoir sondé plus de cent mètres à l'intérieur, Wang Lin ne trouva rien d'anormal. Néanmoins, l'énergie Yin devenait si puissante que son Sens Divin ne pouvait plus la supporter et commençait à vaciller. Il réfléchit un instant. Ne voulant pas agir avec imprudence, il retira d'abord son Sens Divin. Après avoir calmé son esprit, il forma quelques sceaux, mobilisant toute l'énergie spirituelle de son corps. Une couche de lumière bleu profond enveloppa alors sa silhouette, formant un tourbillon qui aspira tout le gaz blanc environnant.
+Cependant, ces ouvertures étaient saturées d'énergie Yin et s'enfonçaient profondément. Même après avoir sondé près de 330 mètres à l'intérieur, Wang Lin ne trouva rien d'anormal. Néanmoins, l'énergie Yin devenait si puissante que son Sens Divin ne pouvait plus la supporter et commençait à vaciller. Il réfléchit un instant. Ne voulant pas agir avec imprudence, il retira d'abord son Sens Divin. Après avoir calmé son esprit, il forma quelques sceaux, mobilisant toute l'énergie spirituelle de son corps. Une couche de lumière bleu profond enveloppa alors sa silhouette, formant un tourbillon qui aspira tout le gaz blanc environnant.
 
 Tous les disciples de la Secte des Cadavres qui cultivaient à l'intérieur venaient de reprendre leurs esprits après la pression subie. Ils étaient stupéfaits de sentir l'énergie Yin diminuer sous l'effet de la culture de Wang Lin. Comme cette énergie provenait d'un lieu mystérieux situé profondément sous terre, ils en furent extrêmement surpris.
 
@@ -74,13 +74,13 @@ Il comprit que quitter les lieux ne se ferait pas de sitôt. Ses explorations pr
 
 Ses mains formèrent un nouveau sceau pour refermer l'accès à sa grotte. Il reprit la culture de l'énergie Yin. Non seulement il disposait de la perle, mais il projeta également son Sens Divin dans les interstices des murs.
 
-Plutôt que de fragmenter son Sens Divin, il le concentra en un seul flux unique vers l'un des petits trous. De cette manière, sa portée augmenta considérablement. Initialement, son Sens Divin s'étendait sur un kilomètre, mais les interférences des parois rocheuses le maintenaient prisonnier de la grotte.
+Plutôt que de fragmenter son Sens Divin, il le concentra en un seul flux unique vers l'un des petits trous. De cette manière, sa portée augmenta considérablement. Initialement, son Sens Divin s'étendait sur 3 300 mètres, mais les interférences des parois rocheuses le maintenaient prisonnier de la grotte.
 
 Tandis qu'il cultivait, le gaz blanc convergeait rapidement vers lui. Son Sens Divin s'apparentait à un mince fil s'insinuant dans les méandres des tunnels muraux. Bien que ces conduits fussent longs, leur complexité était prodigieuse.
 
-Bientôt, il atteignit la limite de sa portée, soit environ cent mètres de sa grotte. Une fois sur place, son Sens Divin peinait à progresser, entravé par les vagues d'énergie Yin qui se précipitaient vers lui. Si Wang Lin n'avait pas cultivé la Méthode d'Ascension des Enfers — ce qui lui conférait une grande résistance au Yin — son Sens Divin se serait effondré dès la première vague.
+Bientôt, il atteignit la limite de sa portée, soit environ 330 mètres de sa grotte. Une fois sur place, son Sens Divin peinait à progresser, entravé par les vagues d'énergie Yin qui se précipitaient vers lui. Si Wang Lin n'avait pas cultivé la Méthode d'Ascension des Enfers — ce qui lui conférait une grande résistance au Yin — son Sens Divin se serait effondré dès la première vague.
 
-Néanmoins, sa progression ralentit considérablement. Après un temps indéterminé, son Sens Divin s'était enfoncé à trois cents mètres dans le tunnel. Le gaz blanc arrivait par vagues successives, formant presque un mur infranchissable.
+Néanmoins, sa progression ralentit considérablement. Après un temps indéterminé, son Sens Divin s'était enfoncé à un kilomètre dans le tunnel. Le gaz blanc arrivait par vagues successives, formant presque un mur infranchissable.
 
 Wang Lin serra les dents et ordonna à son Sens Divin de briser cet obstacle.
 

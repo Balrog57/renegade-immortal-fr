@@ -14,7 +14,7 @@ Un éclair de froideur passa dans les yeux de Wang Zhuo. Il laissa échapper un 
 
 Le père de Tie Zhu eut soudain l'impression d'avoir vieilli de dix ans et s'effondra sur sa chaise. La mère de Tie Zhu était également sous le choc; elle n'arrivait pas à croire ce qui se passait. Elle demanda d'une voix tremblante: « Tie Zhu, est-ce... est-ce vrai? »
 
-Tie Zhu se mordit les lèvres jusqu'au sang. Il s'effondra au sol et se prosterna plusieurs fois en faisant des kowtows. Il murmura: « Maman, Papa, Tie Zhu n'a pas été choisi par les immortels. Je suis désolé, je... Je vous le pardonnerai dans une prochaine vie. »
+Tie Zhu se mordit les lèvres jusqu'au sang. Il s'effondra au sol et se prosterna plusieurs fois en faisant des kowtows. Il murmura: « Maman, Papa, Tie Zhu n'a pas été choisi par les immortels. Je suis désolé, je... Je vous revaudrai votre éducation dans une prochaine vie. »
 
 La mère de Tie Zhu réalisa que son fils sombrait dans le désespoir. Elle se précipita pour l'aider à se relever et lui murmura: « Mon enfant, ne t'inquiète pas. Et si tu n'as pas été choisi par les immortels? L'année prochaine, il y aura l'examen du district. Ne sois pas si dur envers toi-même. Et surtout, ne fais rien de stupide. Ton père et ta mère comptent encore sur ta présence à nos funérailles. »
 
@@ -26,7 +26,7 @@ Le sixième oncle de Tie Zhu lança une pique: « Je savais bien que ce gamin n'
 
 « C'est tout à fait vrai, ajouta le troisième oncle de Tie Zhu d'un ton sarcastique. Puisque cela devait arriver, pourquoi faire comme s'il avait déjà été accepté? Quelle honte! Lao Er, tu es déjà si vieux, comment peux-tu encore agir de manière aussi stupide? Ce n'est pas pour rien que ton père ne t'a pas laissé de part d'héritage à l'époque. »
 
-« Si vous voulez mon avis, l'histoire prétendant que ce gamin a toujours été un prodige depuis son enfance est une pure invention, déclara le cinquième oncle, le visage renfrogné. C'était probablement parce que Lao Er, sachant qu'il était lui-même un raté, a tenté de sauver la réputation de son fils par le mensonge. Le voilà maintenant démasqué. »
+« Si vous voulez mon avis, l'histoire prétendant que ce gamin a toujours été un prodige depuis son enfance est très probablement une invention, déclara le cinquième oncle, le visage renfrogné. C'était probablement parce que Lao Er, sachant qu'il était lui-même un raté, a tenté de sauver la réputation de son fils par le mensonge. Le voilà maintenant démasqué. »
 
 Une parente ricana: « Sur les trois enfants partis passer les tests, il est le seul à avoir échoué. Tie Zhu est l'enfant le plus médiocre de notre famille Wang. Deuxième belle-sœur, je disais plus tôt que tu avais de la chance avec ton mari, mais il semble que ta fortune ne fera que décliner pour le reste de ta vie. »
 

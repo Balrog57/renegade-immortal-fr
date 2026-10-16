@@ -6,9 +6,9 @@ bookTitle: The Mediocre Youth
 en: Chapter 11 - Zhang Hu
 slug: zhang-hu
 ---
-« Le Blaireau? » Wang Lin était stupéfait. La première personne à laquelle il avait pensé et qui pouvait correspondre à cette description était le disciple vêtu de jaune qui s'était moqué de lui, mais il n'en était pas certain.
+« La Belette? » Wang Lin était stupéfait. La première personne à laquelle il avait pensé et qui pouvait correspondre à cette description était le disciple vêtu de jaune qui s'était moqué de lui, mais il n'en était pas certain.
 
-« Ah? Tu ne l'as pas vu? C'est lui qui est chargé d'organiser le travail des disciples. C'est aussi un disciple honorifique, mais on lui a accordé le droit de commencer sa culture. Vêtu de jaune, il n'a vraiment pas l'air d'un brave homme. Nous l'appelons tous le Blaireau », expliqua Zhang Hu tout en buvant de l'eau.
+« Ah? Tu ne l'as pas vu? C'est lui qui est chargé d'organiser le travail des disciples. C'est aussi un disciple honorifique, mais on lui a accordé le droit de commencer sa culture. Vêtu de jaune, il n'a vraiment pas l'air d'un brave homme. Nous l'appelons tous la Belette », expliqua Zhang Hu tout en buvant de l'eau.
 
 Wang Lin prit une bouchée de patate douce, puis dit: « Je sais de qui il s'agit, je l'ai vu aujourd'hui. Il m'a ordonné de rapporter dix jarres d'eau par jour dès demain, sans quoi je n'aurai aucune nourriture. »
 
@@ -20,7 +20,7 @@ Zhang Hu afficha une expression pitoyable à l'adresse de Wang Lin. « Wang Lin,
 
 Wang Lin sentit un mauvais pressentiment et hocha la tête.
 
-Zhang Hu eut un sourire amer. Il dit: « Tu as dû t'attirer les foudres du Blaireau jaune. Les jarres dont il parle ont la taille de cette pièce; en remplir dix... Wang Lin, je ne mangerai pas ces patates douces, garde-les. Tu auras de la chance si tu parviens à manger tous les quatre ou cinq jours. Tu es nouveau ici, et tous les lieux de cueillette dans la montagne sont déjà pris. Seuls les disciples supérieurs peuvent y accéder. Demain, je me contenterai de mes fruits sauvages. » Il posa les patates douces restantes sur la table, soupira, se coucha sur son lit et s'endormit.
+Zhang Hu eut un sourire amer. Il dit: « Tu as dû t'attirer les foudres de la Belette jaune. Les jarres dont il parle ont la taille de cette pièce; en remplir dix... Wang Lin, je ne mangerai pas ces patates douces, garde-les. Tu auras de la chance si tu parviens à manger tous les quatre ou cinq jours. Tu es nouveau ici, et tous les lieux de cueillette dans la montagne sont déjà pris. Seuls les plus anciens peuvent y accéder. Demain, je me contenterai de mes fruits sauvages. » Il posa les patates douces restantes sur la table, soupira, se coucha sur son lit et s'endormit.
 
 Une rage sourde monta en Wang Lin, mais il pensa aux yeux de ses parents, empreints d'espoir, et réprima son emportement. Il se coucha, le cœur bouillonnant de colère.
 
@@ -56,7 +56,7 @@ Les disciples intérieurs n'étaient pas dans leur situation. Ils avaient leur p
 
 De plus, il existait une classe intermédiaire entre les disciples intérieurs et les honorifiques, comme Wang Hao qui était devenu un assistant, bien qu'il ne fût en réalité qu'un serviteur. Ces personnes n'avaient pas de corvées à effectuer et pratiquaient également quelques techniques de bas niveau; elles devaient simplement accomplir le travail assigné par leur maître. Cependant, ces individus possédaient très peu de talent et passaient toute leur vie à n'être que des assistants.
 
-Quant au prétendu « talent », Wang Lin apprit par Zhang Hu qu'il ne s'agissait rien d'autre que de l'énergie spirituelle. Tout le monde en possédait, mais en quantités variables. Si l'un en disposait suffisamment, il pouvait apprendre une technique immortelle en un an; si l'on en manquait, cela pouvait prendre des dizaines, voire des centaines d'années.
+Quant au prétendu « talent », Wang Lin apprit par Zhang Hu qu'il ne s'agissait rien d'autre que des racines spirituelles. Tout le monde en possédait, mais en quantités variables. Si l'un en disposait suffisamment, il pouvait apprendre une technique immortelle en un an; si l'on en manquait, cela pouvait prendre dix ans, voire cent ans.
 
 La vie d'un homme est limitée. Celui qui possède un talent médiocre ne parviendra jamais à rien de notable de son vivant. C'est pourquoi la secte accordait une telle importance à l'énergie spirituelle.
 

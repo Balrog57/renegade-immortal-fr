@@ -50,7 +50,7 @@ Au moment où le disciple projeté arriva devant lui, Wang Lin vit l'effroi sur 
 
 Après cela, il expira longuement. Il savait que cette énergie froide provenait de Situ Nan. Juste au moment où il allait le remercier, une voix s'éleva du nuage sombre.
 
-« Camarades cultivateurs de la Secte Heng Yue, avez-vous rencontré l'ancêtre de notre Secte Xuan Dao, Pun Nanzi? »
+« Camarades cultivateurs de la Secte Heng Yue, avez-vous rencontré l'ancêtre de notre Secte Xuan Dao, Pu Nanzi? »
 
 Wang Lin tourna la tête. Il vit un centipède géant émerger du nuage noir. Devant lui se tenait l'Ancien Ouyang et, derrière lui, sept ou huit personnes qui les dévisageaient avec mépris.
 

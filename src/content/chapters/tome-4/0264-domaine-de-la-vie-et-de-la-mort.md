@@ -60,7 +60,7 @@ Wang Lin soupira et s'avança pour l'aider à se relever. On lui tendit ensuite 
 
 Au moment où il s'inclina, le ciel s'obscurcit. Toutefois, ce changement était invisible pour les mortels. Une fumée noire apparut au-dessus du corps du défunt et se rassembla jusqu'à former la silhouette du père de Da Niu. Il serrait son propre corps comme s'il avait froid, le visage pâle, tel un spectre prêt à se dissiper à tout instant. Il regarda autour de lui avec confusion, jusqu'à ce que son regard croise celui de Wang Lin.
 
-Nul autre ne pouvait le voir, si ce n'est Wang Lin, dont les yeux oscillaient entre le noir et le blanc. Le spectre le fixait droit dans les yeux.
+Nul autre ne pouvait le voir, si ce n'est Wang Lin, dont les yeux distinguaient nettement le noir du blanc. Le spectre le fixait droit dans les yeux.
 
 Wang Lin soupira intérieurement et broya la fleur noire dans sa main pour en faire une poudre fine. En disparaissant, la poudre se mua en étincelles de lumière invisibles aux mortels et se déposa sur le corps du défunt. Le père de Da Niu cessa instantanément de frissonner et regarda Wang Lin avec gratitude.
 
@@ -104,7 +104,7 @@ Soudain, Wang Lin ouvrit les yeux, couvert de sueur. Une forte odeur nauséabond
 
 Les yeux de Wang Lin s'illuminèrent. Il prit une profonde inspiration, saisit un morceau de bois et commença à sculpter avec soin. Cette fois-là, il travailla durant une journée et une nuit entières.
 
-Enfin, lorsqu'il retira ses doigts, la sculpture d'un homme d'âge moyen vêtu de cyan prit forme. On pouvait y lire les traces du passage du temps. Il contempla silencieusement son œuvre avant de la placer sur une étagère, aux côtés des sculptures de l'homme et de la vieille femme.
+Enfin, lorsqu'il retira ses doigts, la sculpture d'un vieil homme vêtu de cyan prit forme. On pouvait y lire les traces du passage du temps. Il contempla silencieusement son œuvre avant de la placer sur une étagère, aux côtés des sculptures de l'homme et de la vieille femme.
 
 Une fois terminé, il se rendit à l'arrière pour se laver, changea ses vêtements et retourna dans la boutique.
 
@@ -116,7 +116,7 @@ Comprendre les lois célestes n'était pas un acte de paix; c'était une entrepr
 
 Bien qu'il n'ait pas encore atteint la Formation de l'Âme, sa compréhension des cieux avait considérablement progressé. Il croyait être désormais proche du stade requis.
 
-Il venait d'achever la statue de l'homme d'âge moyen imprégnée de son domaine. Il était manifeste que son domaine imitait le cycle de la vie et de la mort. Cependant, avec sa perception actuelle, Wang Lin savait que le chemin de cet homme n'était qu'une imitation, bien loin du véritable Domaine de la Vie et de la Mort.
+Il venait d'achever la statue du vieil homme en cyan imprégnée de son domaine. Il était manifeste que son domaine imitait le cycle de la vie et de la mort. Cependant, avec sa perception actuelle, Wang Lin savait que le chemin de cet homme n'était qu'une imitation, bien loin du véritable Domaine de la Vie et de la Mort.
 
 Car ce Dao Céleste de la vie et de la mort n'était pas une chose qu'un simple cultivateur au stade de la Formation de l'Âme pouvait appréhender.
 

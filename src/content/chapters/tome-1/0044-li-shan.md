@@ -42,7 +42,7 @@ Quelqu'un demanda aussitôt, dubitatif: « Ce trésor est-il vraiment aussi incr
 
 « Moi, Li Shan, je ne mentirais jamais! Si vous ne me croyez pas, tant pis! Je peux vendre cette épée volante n'importe où! »
 
-Wang Lin avait déjà trouvé l'endroit inhabituel, car de nombreux disciples des deux sectes s'y étaient rassemblés. En s'approchant, il vit un disciple de la Secte Xuan Dao d'une vingtaine d'années tenant une épée faite de pièces de monnaie qui émettait une lueur bleue, tout en vantant sa montante avec emphase.
+Wang Lin avait déjà trouvé l'endroit inhabituel, car de nombreux disciples des deux sectes s'y étaient rassemblés. En s'approchant, il vit un disciple de la Secte Xuan Dao d'une vingtaine d'années tenant une épée faite de pièces de monnaie qui émettait une lueur bleue, tout en vantant son épée avec emphase.
 
 Les disciples de la Secte Xuan Dao aux alentours affichaient tous des expressions étranges. L'un d'eux finit par ne plus pouvoir se retenir. Il toussa et dit: « Ce que le Jeune Frère Li Shan affirme est exact. Cette Épée de l'Argent de Midi est bel et bien un trésor de notre Secte Xuan Dao, mais je dois préciser que celle que tient le Jeune Frère Li Shan est une contrefaçon. Elle n'en demeure pas moins utile pour certaines choses. »
 
@@ -50,17 +50,17 @@ Les disciples de la Secte Heng Yue échangèrent quelques mots entre eux. Puis, 
 
 Parmi les disciples internes, certains qui connaissaient l'épée se moquèrent: « Ce n'est qu'une simple épée de fer avec quelques fragments d'or spirituel, et quelqu'un ose essayer de la vendre? On dirait que la Secte Xuan Dao ne vaut pas grand-chose. »
 
-Li Shan répliqua immédiatement: « Ce que ce frère dit est erroné! Mon frère aîné a lui-même dit qu'elle était fausse, et pourtant, quelqu'un de votre Secte Heng Yue l'a quand même achetée. C'est le genre d'objet qu'on achète surtout pour la nouveauté! »
+Li Shan répliqua immédiatement: « Ce que ce frère dit est erroné! Mon jeune frère a lui-même dit qu'elle était fausse, et pourtant, quelqu'un de votre Secte Heng Yue l'a quand même achetée. C'est le genre d'objet qu'on achète surtout pour la collection! »
 
-Le disciple de la Secte Heng Yue qui avait acquis l'épée rit et dit: « Frère Li Shan, tu te trompes. Je ne l'ai pas achetée pour ma collection, mais pour la donner à mon père. Ma famille élève des porcs, cette épée sera donc parfaite pour les abattre! »
+Le disciple de la Secte Heng Yue qui avait acquis l'épée rit et dit: « Frère Li Shan, tu te trompes. Je ne l'ai pas achetée pour ma collection, mais pour la donner à mon père. Ma famille tue des porcs, cette épée sera donc parfaite pour les abattre! »
 
 Li Shan ne s'en offusqua pas et dit en souriant: « Puisque tu l'as déjà achetée, je me fiche de ce que tu en feras. Bien! J'ai un autre trésor. Il s'appelle la Bombe de Foudre Noire et Nauséabonde Invincible! C'est une véritable merveille, je ne mens pas. Nous pouvons même faire une démonstration en direct! »
 
 Sur ces mots, il sortit une sphère noire et la lança contre un mur. Dans un fracas sourd, des fissures apparurent sur la paroi. Une brume sombre envahit l'endroit de l'impact, dégageant une odeur fétide.
 
-Li Shan déclara, le visage fier et souriant: « Alors, qu'en dites-vous? Cette Bombe de Foudre Noire et Nauséabonde Invincible est mon arme secrète personnelle! Bien que sa puissance soit limitée, si elle atteint quelqu'un, cette boue est une substance que même moi, je ne peux pas laver. Quant à l'odeur, c'est un mélange que j'ai concocté après avoir rassemblé les résidus de dizaines de bêtes. N'importe qui en serait écœuré! »
+Li Shan déclara, le visage fier et souriant: « Alors, qu'en dites-vous? Cette Bombe de Foudre Noire et Nauséabonde Invincible est mon arme secrète personnelle! Bien que sa puissance soit limitée, si elle atteint quelqu'un, cette boue est une substance que même moi, je ne peux pas laver. Quant à l'odeur, c'est un mélange que j'ai concocté après avoir rassemblé les humeurs de dizaines de bêtes. N'importe qui en serait écœuré! »
 
-L'assistance était stupéfaite et se regardait, la bouche bée. Quelques disciples féminines se pincèrent le nez en reculant de quelques pas. Wang Lin fut lui aussi surpris. Il projeta son Sens Divin et son expression devint soudainement étrange.
+L'assistance était stupéfaite et se regardait, la bouche bée. Quelques disciples féminins se pincèrent le nez en reculant de quelques pas. Wang Lin fut lui aussi surpris. Il projeta son Sens Divin et son expression devint soudainement étrange.
 
 Les disciples de la Secte Xuan Dao se sentaient tous extrêmement mal à l'aise, mais Li Shan était célèbre au sein de leur secte pour ses inventions bizarres. Personne n'osait le provoquer, car nul ne voulait être la cible de l'une de ses bombes puantes.
 

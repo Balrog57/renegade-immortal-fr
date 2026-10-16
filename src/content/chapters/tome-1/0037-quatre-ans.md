@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Chapter 37 - Four Years
 slug: quatre-ans
 ---
-L'apprenti-frère Zhang lança un regard froid à Wang Zhuo et déclara: « La clé pour franchir un palier dépend véritablement de ton talent. Certains n'ont besoin que de quelques tentatives pour réussir, tandis que d'autres ont besoin de centaines ou de milliers d'années, voire ne parviennent jamais à progresser de toute leur vie. »
+L'apprenti-frère Zhang lança un regard froid à Wang Zhuo et déclara: « La clé pour franchir un palier dépend véritablement de ton talent. Certains n'ont besoin que de quelques tentatives pour réussir, tandis que d'autres ont besoin de centaines ou de milliers de tentatives, voire ne parviennent jamais à progresser de toute leur vie. »
 
 Wang Lin afficha une expression mélancolique et demanda soudainement: « Apprenti-frère Zhang, est-ce aussi difficile de franchir chaque étape? Le passage du deuxième au troisième niveau est-il aussi ardu que celui du troisième au quatrième? »
 
@@ -14,7 +14,7 @@ L'apprenti-frère Zhang hocha la tête: « Oui. Plus on avance dans les stades, 
 
 La réponse de l'apprenti-frère Zhang attira également l'attention de quelques autres disciples. Une disciple demanda soudainement: « Apprenti-frère, qu'est-ce qui rend si difficile le passage du troisième au quatrième niveau? Je suis actuellement au troisième niveau. »
 
-Wang Lin reconnut la personne qui venait de parler. C'était la jeune fille nommée Zhou, celle que Wang Huo courtisait.
+Wang Lin reconnut la personne qui venait de parler. C'était la jeune fille nommée Zhou, celle que Wang Zhuo courtisait.
 
 L'apprenti-frère Zhang réfléchit un instant et dit: « Très bien. Aujourd'hui, je vais vous parler des deux goulots d'étranglement que vous rencontrerez avant d'atteindre le sixième niveau de Condensation de Qi. Le premier est le passage du troisième au quatrième niveau. Pour certains, c'est très facile, mais pour d'autres, c'est un obstacle qu'ils ne surmonteront peut-être jamais de leur existence. La clé n'a rien à voir avec le talent, mais plutôt avec la capacité de chacun à comprendre le sens de l'expression: "la voie est impitoyable". »
 
@@ -28,7 +28,7 @@ Wang Lin s'aventura dans la vallée, suivant le bruit de l'eau en fronçant les 
 
 Une légère odeur d'énergie spirituelle émanait de l'eau. Wang Lin s'approcha et en but une gorgée. Bien que cela ne puisse égaler un liquide d'énergie spirituelle, cela contenait suffisamment de substance pour aider à accroître son énergie spirituelle.
 
-Il sortit alors des gourdes et les remplit une à une. Après un long moment, il finit par remplir toutes ses gourdes et se retourna. Ses pupilles se rétractèrent instantanément lorsqu'il vit l'apprenti-frère Zhang debout à distance derrière lui, tel un fantôme. Alors qu'il puisait l'eau, il balayait constamment la zone avec son Sens Divin, mais n'avait rien détecté. Pourtant, il semblait que l'apprenti-frère Zhang était là depuis longtemps. Le cœur de Wang Lin sombra.
+Il sortit alors des gourdes et les remplit une à une. Après un long moment, il finit par remplir toutes ses gourdes et se retourna. Ses pupilles se rétractèrent instantanément lorsqu'il vit Zhang Kuang debout à distance derrière lui, tel un fantôme. Alors qu'il puisait l'eau, il balayait constamment la zone avec son Sens Divin, mais n'avait rien détecté. Pourtant, il semblait que Zhang Kuang était là depuis longtemps. Le cœur de Wang Lin sombra.
 
 Les yeux de Zhang Kuang s'illuminèrent et il dit: « Frère Wang, cette rivière contient effectivement beaucoup d'énergie spirituelle et est bénéfique pour ta culture, mais je vois que tu as déjà préparé de nombreuses gourdes. Savais-tu que tu en aurais besoin avant même de venir ici? »
 
@@ -48,7 +48,7 @@ Par conséquent, le terme « couper les désirs mortels » était une expression
 
 Après avoir été perplexe pendant longtemps sans trouver d'indices, Wang Lin comprit qu'il ne pourrait jamais rompre les liens avec sa famille. Sa chance résidait dans le fait que le troisième niveau n'était pas comme les deux premiers. Même s'il ne parvenait pas à franchir le palier, son énergie spirituelle continuait de croître. Finalement, il renonça à l'idée de progresser rapidement vers le quatrième niveau pour se concentrer uniquement sur l'accumulation de son énergie spirituelle.
 
-Le temps passa rapidement. Un an, deux ans... sans s'en rendre compte, deux années supplémentaires s'écoulèrent. Wang Lin était en culture fermée depuis quatre ans désormais. Il n'avait quitté sa grotte qu'une seule fois pour remplir ses gourdes d'eau afin de la transformer en eau d'énergie spirituelle pour sa pratique.
+Le temps passa rapidement. Un an, deux ans... sans s'en rendre compte, deux années supplémentaires s'écoulèrent. Wang Lin était en culture fermée depuis quatre ans désormais. Durant les deux dernières années, il n'avait quitté sa grotte qu'une seule fois pour remplir ses gourdes d'eau afin de la transformer en eau d'énergie spirituelle pour sa pratique.
 
 Quatre ans dans le monde réel équivalaient à 25 ans dans l'espace onirique. En incluant la période précédant la culture fermée, Wang Lin cultivait depuis déjà 27 ou 28 ans.
 

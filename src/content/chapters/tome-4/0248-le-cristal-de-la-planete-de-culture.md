@@ -22,7 +22,7 @@ Cependant, ce n'était pas la raison principale. La véritable cause était qu'�
 
 Le jeune homme au regard maléfique laissa échapper un grognement. Il détourna les yeux de la rétribution divine pour fixer Wang Lin: « Cadet, remets-moi le sac de rangement et je laisserai tomber cette affaire », dit-il.
 
-« Est-ce là ce que le Senior désire? » Le regard de Wang Lin était grave alors qu'il fixait l'homme et sortit un sac de rangement.
+« Est-ce là ce que l'Aîné désire? » Le regard de Wang Lin était grave alors qu'il fixait l'homme et sortit un sac de rangement.
 
 Le regard du jeune homme maléfique se porta aussitôt sur le sac: « C'est exact. Jette-le ici. »
 
@@ -32,47 +32,47 @@ Après avoir mûrement réfléchi, Wang Lin lança résolument le sac de rangeme
 
 Le jeune homme maléfique attrapa le sac. Après l'avoir scanné avec son Sens Divin, son expression s'adoucit. Il regarda Wang Lin, le visage impassible, ne montrant ni colère ni joie.
 
-Wang Lin fixa le jeune homme. Il plaça la foudre de la rétribution divine devant lui et déclara: « Senior, le junior a déjà rendu le sac de rangement, je vais donc prendre congé. » Sur ces mots, il recula prudemment.
+Wang Lin fixa le jeune homme. Il plaça la foudre de la rétribution divine devant lui et déclara: « Aîné, le cadet a déjà rendu le sac de rangement, je vais donc prendre congé. » Sur ces mots, il recula prudemment.
 
 Le jeune homme au regard maléfique observa Wang Lin. Soudain, ses yeux se mirent à briller. Deux faisceaux de lumière colorée jaillirent de son regard vers Wang Lin à une vitesse inimaginable.
 
-Wang Lin, étant resté vigilant tout ce temps, vit l'attaque et projeta son Ji Realm sans la moindre hésitation pour percuter la lumière colorée. Peu après, il cracha un flot de sang alors que la foudre rouge générée par le Ji Realm s'effondrait sous l'assaut de la lumière colorée.
+Wang Lin, étant resté vigilant tout ce temps, vit l'attaque et projeta son Royaume Ji sans la moindre hésitation pour percuter la lumière colorée. Peu après, il cracha un flot de sang alors que la foudre rouge générée par le Royaume Ji s'effondrait sous l'assaut de la lumière colorée.
 
 Tout en reculant, Wang Lin sortit l'étendard de restriction. La dernière restriction apparut dans sa main et était sur le point de se poser sur l'étendard.
 
-L'expression du jeune homme maléfique changea radicalement et il cria: « Arrête! Petit ami, ne sois pas téméraire! » Sur ces mots, il recula et fixa l'étendard de restriction avec effroi.
+L'expression du jeune homme maléfique changea radicalement et il cria: « Arrête! Jeune ami, ne sois pas téméraire! » Sur ces mots, il recula et fixa l'étendard de restriction avec effroi.
 
-Il eut un sourire amer. Une simple parcelle de rétribution divine ne ferait que diminuer son niveau de culture, sans le tuer. Au pire, elle le contraindrait à une culture en vase clos pendant quelques milliers d'années.
+Il eut un sourire amer. Une simple parcelle de rétribution divine ne ferait que diminuer son niveau de culture, sans le tuer. Au pire, elle le contraindrait à une culture en vase clos pendant un millier d'années.
 
-Mais en voyant l'étendard de restriction, il comprit pourquoi ce junior possédait une parcelle de rétribution divine. Bien qu'il ignorât la nature exacte de cet étendard, il devina immédiatement qu'il s'agissait d'un trésor magique capable de convoquer la rétribution divine.
+Mais en voyant l'étendard de restriction, il comprit pourquoi ce cadet possédait une parcelle de rétribution divine. Bien qu'il ignorât la nature exacte de cet étendard, il devina immédiatement qu'il s'agissait d'un trésor magique capable de convoquer la rétribution divine.
 
 Il possédait lui-même quelques armes de ce type et connaissait leur puissance. S'il laissait ce gamin continuer, il n'en sortirait pas avec une simple blessure nécessitant du repos; il pourrait perdre à jamais la chance de recouvrer sa culture.
 
 Wang Lin avait encore un peu de sang au coin de la bouche lorsqu'il fixa le jeune homme maléfique. À cet instant précis, d'une simple pensée, la dernière restriction se poserait sur l'étendard. S'il abandonnait l'étendard et utilisait la parcelle de rétribution divine comme guide, il était certain de pouvoir diriger une partie de sa puissance vers le jeune homme maléfique.
 
-Wang Lin fixa l'inconnu et dit: « J'ai déjà rendu le sac de rangement sans même y toucher. Pourquoi le Senior revient-il sur sa parole? »
+Wang Lin fixa l'inconnu et dit: « J'ai déjà rendu le sac de rangement sans même y toucher. Pourquoi l'Aîné revient-il sur sa parole? »
 
-Le jeune homme au regard maléfique réfléchit un instant puis demanda d'un ton incertain: « La foudre rouge que tu viens d'utiliser... était-ce le Ji Realm? »
+Le jeune homme au regard maléfique réfléchit un instant puis demanda d'un ton incertain: « La foudre rouge que tu viens d'utiliser... était-ce le Royaume Ji? »
 
 L'expression de Wang Lin resta neutre, mais son cœur était en plein tumulte alors qu'il fixait silencieusement l'homme.
 
-Le jeune homme maléfique scruta Wang Lin et affirma: « Je devrais avoir raison. Ce que tu as utilisé à l'instant, c'était bien le Ji Realm! » Ses sentiments étaient désormais très complexes. Wang Lin ne cessait de lui réserver des surprises.
+Le jeune homme maléfique scruta Wang Lin et affirma: « Je devrais avoir raison. Ce que tu as utilisé à l'instant, c'était bien le Royaume Ji! » Ses sentiments étaient désormais très complexes. Wang Lin ne cessait de lui réserver des surprises.
 
-Sur cette planète presque dénuée de tout, non seulement ce gamin possédait une parcelle de rétribution divine et un trésor capable de l'invoquer, mais il maîtrisait également le Ji Realm.
+Sur cette planète presque dénuée de tout, non seulement ce gamin possédait une parcelle de rétribution divine et un trésor capable de l'invoquer, mais il maîtrisait également le Royaume Ji.
 
-C'était ce Ji Realm qui avait totalement dissipé son intention de tuer.
+C'était ce Royaume Ji qui avait totalement dissipé son intention de tuer.
 
 Le jeune homme maléfique prit une profonde inspiration, affichant une expression étrange.
 
-Wang Lin resta calme. Après un moment de silence, il dit: « Si le Senior n'a rien d'autre à ajouter, alors le junior prend congé. » Il recula de nouveau avec prudence.
+Wang Lin resta calme. Après un moment de silence, il dit: « Si l'Aîné n'a rien d'autre à ajouter, alors le cadet prend congé. » Il recula de nouveau avec prudence.
 
 Si le jeune homme faisait le moindre mouvement, Wang Lin activerait la rétribution divine sans hésiter.
 
-Le jeune homme maléfique hésita un instant avant de demander: « Ne souhaites-tu pas que ton Ji Realm franchisse son goulot d'étranglement? »
+Le jeune homme maléfique hésita un instant avant de demander: « Ne souhaites-tu pas que ton Royaume Ji franchisse son goulot d'étranglement? »
 
 Le corps de Wang Lin s'immobilisa et il fixa le jeune homme.
 
-L'homme hésita une nouvelle fois, soupira et dit: « Laisse tomber. Gamin, écoute bien. Le Ji Realm est une puissance extrêmement extrême. Briser le goulot d'étranglement est très difficile, mais ce n'est pas impossible. »
+L'homme hésita une nouvelle fois, soupira et dit: « Laisse tomber. Gamin, écoute bien. Le Royaume Ji est une puissance extrêmement extrême. Briser le goulot d'étranglement est très difficile, mais ce n'est pas impossible. »
 
 Wang Lin resta impassible, le regardant en silence.
 
@@ -82,15 +82,15 @@ La prudence de Wang Lin atteignit son paroxysme tandis qu'il fixait cette lueur.
 
 Le jeune homme observa la lumière d'un air complexe. Après un long moment, il soupira: « Examine cette lumière avec ton Sens Divin. »
 
-Wang Lin réfléchit un instant avant de scanner la sphère avec son Sens Divin. Son expression devint immédiatement troublée. Il marqua une pause et demanda: « C'est...? » À l'intérieur de cette lumière colorée, il avait détecté une infime parcelle de Ji Realm. Cette découverte fit trembler son cœur.
+Wang Lin réfléchit un instant avant de scanner la sphère avec son Sens Divin. Son expression devint immédiatement troublée. Il marqua une pause et demanda: « C'est...? » À l'intérieur de cette lumière colorée, il avait détecté une infime parcelle de Royaume Ji. Cette découverte fit trembler son cœur.
 
-Le jeune homme maléfique prit une profonde inspiration et dit lentement: « Tu l'as trouvé? Cette lumière colorée sur ma planète natale s'appelle le Ji Realm aux cinq couleurs. Elle ne m'appartenait pas à l'origine; elle m'a été offerte par un ami sur son lit de mort. »
+Le jeune homme maléfique prit une profonde inspiration et dit lentement: « Tu l'as trouvé? Cette lumière colorée sur ma planète natale s'appelle le Royaume Ji aux cinq couleurs. Elle ne m'appartenait pas à l'origine; elle m'a été offerte par un ami sur son lit de mort. »
 
 Wang Lin prit une grande inspiration, les yeux tremblants devant cette lueur.
 
-Le jeune homme maléfique fit un geste de la main et la lumière disparut. Il regarda Wang Lin: « Le Ji Realm se décline en de nombreuses formes. Quant à leur nombre exact, personne ne le sait vraiment. Les cultivateurs possédant un Ji Realm sont rares au sein de l'Union de Culture, je suis donc incapable de déterminer les propriétés de ton propre Ji Realm. Mais je sais que quel que soit son type, tous possèdent un goulot d'étranglement, et ces verrous sont extrêmement difficiles à briser. »
+Le jeune homme maléfique fit un geste de la main et la lumière disparut. Il regarda Wang Lin: « Le Royaume Ji se décline en de nombreuses formes. Quant à leur nombre exact, personne ne le sait vraiment. Les cultivateurs possédant un Royaume Ji sont rares au sein de l'Union de Culture, je suis donc incapable de déterminer les propriétés de ton propre Royaume Ji. Mais je sais que quel que soit son type, tous possèdent un goulot d'étranglement, et ces verrous sont extrêmement difficiles à briser. »
 
-« Je connais une méthode permettant au Ji Realm de franchir ce stade: le Cristal de la Planète de Culture. Ce cristal est remis à chaque pays de culture de rang 6 lorsqu'il reçoit l'approbation de l'Union de Culture. Les vieux monstres de l'Union utilisent leurs pouvoirs défiant les cieux pour le façonner. C'est le trésor national d'un pays de culture de rang 6. Si un cultivateur de Ji Realm parvient à l'obtenir et à le raffiner, il aura une chance de briser son goulot d'étranglement. »
+« Je connais une méthode permettant au Royaume Ji de franchir ce stade: le Cristal de la Planète de Culture. Ce cristal est remis à chaque pays de culture de rang 6 lorsqu'il reçoit l'approbation de l'Union de Culture. Les vieux monstres de l'Union utilisent leurs pouvoirs défiant les cieux pour le façonner. C'est le trésor national d'un pays de culture de rang 6. Si un cultivateur de Royaume Ji parvient à l'obtenir et à le raffiner, il aura une chance de briser son goulot d'étranglement. »
 
 Le visage de Wang Lin se crispa. Un trésor national d'un pays de culture de rang 6 était une chose hors de sa portée actuelle.
 
@@ -108,13 +108,13 @@ Il prit une profonde inspiration et se détourna pour partir.
 
 Le Cristal d'un pays de culture de rang 6 n'était pas à sa portée pour le moment. Que les paroles du jeune homme maléfique fussent vraies ou non, cela restait un indice précieux. S'il atteignait un jour un niveau de culture suffisant pour l'obtenir, il ne manquerait pas de tenter l'expérience.
 
-Sa seule préoccupation immédiate était de savoir comment atteindre le stade de la Séparation Spirituelle.
+Sa seule préoccupation immédiate était de savoir comment atteindre le stade de la Formation de l'Âme.
 
-Produire un cultivateur de la Séparation Spirituelle est la condition sine qua non pour qu'un pays de culture de rang 3 accède au rang 4. C'est une tâche ardue. On peut dire que si les pays de culture de rang 3 sont innombrables sur la planète, ils sont moins de vingt à être de rang 4.
+Produire un cultivateur de la Formation de l'Âme est la condition sine qua non pour qu'un pays de culture de rang 3 accède au rang 4. C'est une tâche ardue. On peut dire que si les pays de culture de rang 3 sont innombrables sur la planète, ils sont moins de vingt à être de rang 4.
 
 Cette statistique illustrait clairement l'immense difficulté d'atteindre ce stade.
 
-Pour espérer atteindre la Séparation Spirituelle, l'énergie spirituelle et l'environnement d'un pays de culture de rang 3 ne suffiraient pas. L'objectif de Wang Lin était de trouver un pays de culture de rang 4 pour tenter son ascension là-bas.
+Pour espérer atteindre la Formation de l'Âme, l'énergie spirituelle et l'environnement d'un pays de culture de rang 3 ne suffiraient pas. L'objectif de Wang Lin était de trouver un pays de culture de rang 4 pour tenter son ascension là-bas.
 
 Il sortit sa carte. Après l'avoir consultée un moment, il fixa son attention sur l'Union des Cinq Sectes. Ce pays de culture de rang 4 était le plus proche de sa position actuelle.
 

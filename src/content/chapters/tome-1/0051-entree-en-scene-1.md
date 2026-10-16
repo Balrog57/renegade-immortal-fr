@@ -8,7 +8,7 @@ slug: entree-en-scene-1
 ---
 Pendant ce temps, il fit un pas en avant et apparut sur la scène. Il lança aux disciples de la Secte Heng Yue un regard arrogant et déclara: « Que tous les disciples internes de la Secte Heng Yue viennent d'un coup! Moi, Zhou Peng, je vais vous affronter tous! »
 
-Les disciples de la Secte Heng Yue furent pris de topos. Même les anciens de la Secte Heng Yue affichèrent des froncements de sourcils.
+Les disciples de la Secte Heng Yue s'agitèrent, le visage empreint de colère. Même les anciens de la Secte Heng Yue affichèrent des froncements de sourcils.
 
 Personne parmi les membres de la Secte Xuan Dao ne dit mot; ils se contentaient d'échanger des regards respectueux. Il semblait que le statut de cet homme n'était pas négligeable au sein de la Secte Xuan Dao.
 

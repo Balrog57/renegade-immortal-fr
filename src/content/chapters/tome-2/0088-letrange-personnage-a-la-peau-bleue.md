@@ -24,7 +24,7 @@ Wang Lin commença à collecter le liquide spirituel Yin. C'était à minuit que
 
 Après avoir consommé ce liquide, il nota que bien qu'il contienne une grande quantité d'énergie Yin, il n'atteignait pas le même niveau que l'énergie spirituelle des liquides ordinaires.
 
-Si l'on comparait l'efficacité du liquide spirituel Yin à celle d'un liquide ordinaire, cela revenait seulement à tremper la perle dans de l'eau de fonte. Il était loin d'être un liquide spirituel pur.
+Si l'on comparait l'efficacité du liquide spirituel Yin à celle des liquides spirituels ordinaires, il n'atteignait que le niveau de l'eau de neige. Il était loin d'être un liquide spirituel pur.
 
 Wang Lin savait que, pour parler franchement, la Méthode d'Ascension vers le Royaume des Morts reposait entièrement sur la quantité d'énergie Yin que l'on pouvait absorber. Plus on en absorbait, plus on devenait puissant. En conséquence, Wang Lin pénétrait dans l'espace de la perle défiant le ciel pour pratiquer avec le liquide spirituel Yin durant la journée.
 
@@ -48,7 +48,7 @@ Il se caressa le menton. Puis, son corps jaillit comme l'éclair dans la jungle 
 
 Malgré cela, Wang Lin restait inquiet, comme si une ombre gigantesque planait sur lui. Après un long moment, il se calma et déploya son Sens Divin. Il but un peu de liquide spirituel Yin et commença à pratiquer tout en surveillant vigoureusement ses environs.
 
-La nuit tomba. Cette nuit-là, Wang Lin n'absorba aucune énergie Yin, préférant concentrer toute son attention sur ce qui l'entourait. Il déploya son Sens Divin à sa portée maximale, capable de ressentir le mouvement d'un brin d'herbe à des centaines de mètres.
+La nuit tomba. Cette nuit-là, Wang Lin n'absorba aucune énergie Yin, préférant concentrer toute son attention sur ce qui l'entourait. Il déploya son Sens Divin à sa portée maximale, capable de ressentir le mouvement d'un brin d'herbe à environ trois cents mètres.
 
 Il porta une attention particulière aux deux carcasses. Il voulait découvrir quelle créature vivait dans les ruines et s'aventurait ici la nuit.
 
@@ -66,7 +66,7 @@ Il vit que, suite au trouble de l'énergie Yin, une silhouette apparut brusqueme
 
 Wang Lin fut surpris. Lors de cette première apparition, il put distinguer la forme de l'intrus: une créature humanoïde à la peau bleue.
 
-La peau de l'individu était couverte de symboles étranges. De plus, neuf papiers jaunes d'un demi-pouce étaient apposés sur différentes parties de son corps. Cet étrange personnage surprit grandement Wang Lin.
+La peau de l'individu était couverte de symboles étranges. De plus, neuf papiers jaunes d'environ un centimètre et demi étaient apposés sur différentes parties de son corps. Cet étrange personnage surprit grandement Wang Lin.
 
 L'étranger réapparut. Il se tenait à l'extérieur de la formation de Wang Lin, l'air pensif.
 
@@ -92,7 +92,7 @@ L'étranger poussa un gémissement de douleur et recula précipitamment de quelq
 
 Le cœur de Wang Lin sombra. L'étranger, malgré l'attaque de l'épée volante, était encore capable de bouger. Une lueur froide passa dans ses yeux alors qu'il frappait son sac de rangement, faisant apparaître un ancien fourreau d'épée dans sa main.
 
-L'épée verte s'engouffra rapidement dans le fourreau sur environ un tiers de sa longueur. La lame changea brusquement de couleur, passant du vert au bleu, puis du bleu au noir. L'épée jaillit du fourreau et fendit l'air vers l'étranger avec rapidité.
+L'épée verte s'engouffra rapidement dans le fourreau sur environ deux cinquièmes de sa longueur. La lame changea brusquement de couleur, passant du vert au bleu, puis du bleu au noir. L'épée jaillit du fourreau et fendit l'air vers l'étranger avec rapidité.
 
 En voyant l'épée noire, l'étranger fut saisi d'effroi. Juste au moment où il allait reculer, la lame noire se précipita et lui transperça la poitrine. Une série d'explosions secoua le corps de l'individu, le projetant en arrière comme un cerf-volant à la ficelle rompue.
 
@@ -100,7 +100,7 @@ Après avoir été tachée par le sang de l'étranger, l'épée volante resta co
 
 Choqué, l'intention meurtrière de Wang Lin s'intensifia. Il avait remarqué que, lorsque l'épée transperçait l'étranger, les étranges symboles sur son corps brillaient. L'individu avait manifestement utilisé une technique pour bloquer le coup.
 
-Sans un mot, il frappa son sac de rangement et sortit le talisman jaune obtenu de Zhang Hu. Soudain, les pupilles de Wang Lin se rétractèrent. Il vit le corps de l'étranger pivoter selon un angle inimaginable en plein vol avant de s'écraser au sol. Une large blessure béante sur sa poitrine projetait d'importantes quantités de sang bleu.
+Sans un mot, il frappa son sac de rangement et sortit le talisman jaune obtenu de Zhang Hu. Soudain, les pupilles de Wang Lin se rétractèrent. Il vit le corps de l'étranger pivoter selon un angle inimaginable en plein vol avant de se poser sur un genou. Une large blessure béante sur sa poitrine projetait d'importantes quantités de sang bleu.
 
 Les symboles sur son corps clignotaient de manière chaotique. Tandis qu'ils luisaient, sa blessure se refermait rapidement.
 
@@ -112,9 +112,9 @@ L'individu poussa un cri de douleur alors que son corps était à nouveau transp
 
 Le regard de l'étranger trahissait une lutte désespérée. Soudain, il arracha l'un des neuf papiers jaunes. Au moment où le papier fut déchiré, un gaz vert jaillit de tout son corps et l'enveloppa complètement.
 
-Le visage de Wang Lin s'assombrit. Sans hésiter, il rengaina l'épée et la poussa sur les deux tiers de sa longueur. La lame passa alors rapidement du noir au rouge.
+Le visage de Wang Lin s'assombrit. Sans hésiter, il rengaina l'épée et la poussa sur les trois cinquièmes de sa longueur. La lame passa alors rapidement du noir au rouge.
 
-Les deux tiers représentaient la limite de ce que Wang Lin pouvait accomplir. Avec sa culture au stade initial de l'Établissement des Fondations, et l'épée insérée à ce niveau dans son fourreau, il pouvait tenir tête à des cultivateurs au stade intermédiaire de l'Établissement des Fondations.
+Les trois cinquièmes représentaient la limite de ce que Wang Lin pouvait accomplir. Avec sa culture au stade initial de l'Établissement des Fondations, et l'épée insérée à ce niveau dans son fourreau, il pouvait tenir tête à des cultivateurs au stade intermédiaire de l'Établissement des Fondations.
 
 À cet instant précis, le gaz vert entourant l'étranger fut rapidement absorbé par son corps. Lorsqu'il réapparut devant Wang Lin, son corps était parfaitement intact, sans la moindre trace de blessure.
 

@@ -32,7 +32,7 @@ Cheng Bailiang n'hésita pas. Il mordit le bout de sa langue et cracha du sang. 
 
 Instantanément, le sang et l'essence de l'Âme Naissante fusionnèrent pour former une perle de sang. L'éclair rouge arriva en un éclair et pénétra dans la perle.
 
-Cheng Bailiang hurla: « Brise-Illusion! » Ses cheveux blancs s'agitèrent sans vent et une faille spatiale apparut à côté de la perle de sang. Une lumière noire jaillit de la faille alors que la perle, ainsi que l'éclair rouge à l'intérieur, furent aspirés. Au moment où la perle entra dans la faille, celle-ci se referma.
+Cheng Bailiang hurla: « Brise-Vide! » Ses cheveux blancs s'agitèrent sans vent et une faille spatiale apparut à côté de la perle de sang. Une lumière noire jaillit de la faille alors que la perle, ainsi que l'éclair rouge à l'intérieur, furent aspirés. Au moment où la perle entra dans la faille, celle-ci se referma.
 
 Le front de Cheng Bailiang était couvert de sueur froide. Il venait de frôler les portes de l'enfer pour faire demi-tour. S'il avait été plus lent, il serait mort.
 
@@ -122,7 +122,7 @@ En conséquence, sur les cinq ancêtres de la Secte Ciel Nuageux, un était mort
 
 Song Qing était couvert de sueur froide. Son esprit était totalement vide; il ne savait plus quoi faire. Quant à Liu Fei, ses yeux étaient empreints de confusion. Il n'aurait jamais imaginé que même les ancêtres seraient impuissants face à Wang Lin. La Secte Ciel Nuageux allait-elle vraiment changer de maître?
 
-Après avoir récupéré le sang d'âme, le regard de Wang Lin se posa sur Song Qing et Liu Fei. Il déclara d'un ton autoritaire: « Tous les cultivateurs au stade de la Formation du Noyau doivent remettre leur sang d'âme! Sans exception! »
+Après avoir récupéré le sang d'âme, le regard de Wang Lin se posa sur Song Qing et Liu Fei. Il déclara d'un ton autoritaire: « Tous les cultivateurs au stade de la Formation du Noyau ou supérieur doivent remettre leur sang d'âme! Sans exception! »
 
 Le corps de Song Qing frissonna. Il hocha rapidement la tête et remit son propre sang d'âme. Liu Fei et les deux autres anciens firent de même sans tarder.
 
@@ -164,7 +164,7 @@ Pour être précis, son niveau de culture se situait actuellement au sommet du d
 
 Sans cela, la Secte Ciel Nuageux n'aurait pas d'avenir.
 
-L'usage répété du Domaine Ji avait consommé une grande partie de l'énergie de l'Âme Naissante, ce qui causait ses blessures actuelles. Après avoir réorganisé l'énergie spirituelle dans son corps et consommé une grande quantité de pilules, il finit par se stabiliser.
+L'usage répété du Domaine Ji avait consommé une grande partie de l'énergie de l'Âme Naissante, ce qui causait ses blessures actuelles. Après avoir réorganisé l'énergie spirituelle dans son corps et consommé plusieurs pilules, il finit par se stabiliser.
 
 Cette récupération dura sept jours entiers, bien qu'en réalité, un seul jour ne se fût écoulé.
 
@@ -206,7 +206,7 @@ Le second démon regarda Li Muwan et hocha la tête. Il se transforma en un rayo
 
 Li Muwan fut stupéfaite. Elle se souvint soudainement des démons dont Wang Lin avait parlé et ne put s'empêcher d'être curieuse. En pensant au second démon, celui-ci sortit de son front. Elle finit par adorer ce démon à l'apparence bestiale.
 
-Malgré cela, Wang Lin restait inquiet. Il agita la main et sortit son drapeau de restriction le plus puissant. Il le remit à Li Muwan: « Si vous utilisez ce trésor correctement, même face à un cultivateur de la Séparation d'Âme, vous pourrez vous protéger! S'il y a un danger, je le saurai grâce à ma connexion avec le démon. Si quoi que ce soit arrive, je reviendrai au plus vite. »
+Malgré cela, Wang Lin restait inquiet. Il agita la main et sortit son drapeau de restriction le plus puissant. Il le remit à Li Muwan: « Si vous utilisez ce trésor correctement, même face à un cultivateur de la Formation de l'Âme, vous pourrez vous protéger! S'il y a un danger, je le saurai grâce à ma connexion avec le démon. Si quoi que ce soit arrive, je reviendrai au plus vite. »
 
 Li Muwan regarda Wang Lin. Elle ne refusa pas, mais prit docilement le drapeau et le rangea soigneusement.
 

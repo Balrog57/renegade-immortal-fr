@@ -14,11 +14,11 @@ La couleur de cette pilule était cyan et des éclats d'énergie spirituelle s'�
 
 Wang Lin regarda Li Muwan et demanda: « Est-ce une pilule de rang 7? »
 
-Li Muwan fit quelques pas en avant pour se tenir aux côtés de Wang Lin. Elle prit la pilule de sa main et l'examina avec soin. Elle soupira et dit: « Pour être plus précise, il s'agit d'une pilule pseudo-rang 7; c'est donc une véritable pilule de rang supérieur 6. Nous avons probablement manqué le moment précis pour briser le sceau, ce qui a causé la fissuration de la pilule. Si nous l'avions ouverte au moment opportun, elle aurait été de rang supérieur 7. Le Secte Qi Huang appartient à un pays de rang 4, ils ont donc dû créer une rare pilule de rang supérieur 5 avant de la sceller. À en juger par l'apparence du sceau, cela doit remonter à au moins plusieurs milliers d'années. »
+Li Muwan fit quelques pas en avant pour se tenir aux côtés de Wang Lin. Elle prit la pilule de sa main et l'examina avec soin. Elle soupira et dit: « Pour être plus précise, il s'agit d'une pilule pseudo-rang 7; c'est donc une véritable pilule de rang supérieur 6. Nous avons probablement manqué le moment précis pour briser le sceau, ce qui a causé la fissuration de la pilule. Si nous l'avions ouverte au moment opportun, elle aurait été de rang supérieur 7. La Secte Qi Huang appartient à un pays de rang 4, ils ont donc dû créer une rare pilule de rang supérieur 5 avant de la sceller. À en juger par l'apparence du sceau, cela doit remonter à au moins plusieurs milliers d'années. »
 
 Les yeux de Wang Lin s'illuminèrent alors qu'il fixait la pilule et demanda: « Savez-vous de quelle pilule il s'agit? »
 
-Li Muwan réfléchit un instant. Ses yeux s'illuminèrent soudainement et elle dit: « Le Secte Qi Huang est célèbre pour trois types de pilules. Si Wan Er a raison, c'est la Pilule Nuage Cyan. Cette pilule devrait vous permettre de franchir l'étape de la Formation du Noyau. »
+Li Muwan réfléchit un instant. Ses yeux s'illuminèrent soudainement et elle dit: « La Secte Qi Huang est célèbre pour deux types de pilules. Si Wan Er a raison, c'est la Pilule Nuage Cyan. Cette pilule devrait vous permettre de franchir l'étape de la Formation du Noyau. »
 
 Wang Lin réfléchit un moment. Après avoir repris la pilule des mains de Li Muwan, il dit: « Attendez-moi! »
 
@@ -60,17 +60,17 @@ Une fois son Âme Naissante formée, la première étape de son plan serait acco
 
 Dès que son corps principal aurait atteint ce stade, son Royaume Ji connaîtrait également sa première percée. À ce moment-là, il serait l'être le plus puissant du pays de Chu.
 
-Même au sein de la Mer des Démons, il aurait la capacité de fonder sa propre secte et de rivaliser avec les cultivateurs de la Séparation d'Esprit.
+Même au sein de la Mer des Démons, il aurait la capacité de fonder sa propre secte et de rivaliser avec les cultivateurs de la Formation de l'Âme.
 
 Le plus important était qu'il aurait la capacité de retourner dans le pays de Zhao pour accomplir sa vengeance. Teng Huayuan; ce nom était une plaie que Wang Lin nourrissait depuis plus de 400 ans. C'était une haine indicible. Quiconque oserait barrer sa route devrait en payer le prix par le sang.
 
-Wang Lin ignorait quel niveau de culture Teng Huayuan avait atteint en quatre siècles, mais tant qu'il n'avait pas atteint la Séparation d'Esprit, une fois que Wang Lin atteindrait l'Âme Naissante, son destin resterait inchangé.
+Wang Lin ignorait quel niveau de culture Teng Huayuan avait atteint en quatre siècles, mais tant qu'il n'avait pas atteint la Formation de l'Âme, une fois que Wang Lin atteindrait l'Âme Naissante, son destin resterait inchangé.
 
-Wang Lin ne pouvait croire qu'en à peine 400 ans, un cultivateur au début du stade de l'Âme Naissante puisse espérer atteindre la Séparation d'Esprit. Il fallait admettre qu'après l'Âme Naissante, même progresser d'un seul petit stade était extrêmement ardu.
+Wang Lin ne pouvait croire qu'en à peine 400 ans, un cultivateur au début du stade de l'Âme Naissante puisse espérer atteindre la Formation de l'Âme. Il fallait admettre qu'après l'Âme Naissante, même progresser d'un seul petit stade était extrêmement ardu.
 
 Le monde de la culture était une pyramide: plus on s'élève, plus les effectifs sont réduits.
 
-Parmi les sept niveaux de culture — Condensation de Qi, Établissement des Fondations, Formation du Noyau, Âme Naissante, Séparation d'Esprit, Transformation de l'Âme et Ascension — l'Âme Naissante constituait la barrière ultime. Atteindre ce stade signifiait que l'on avait véritablement pénétré le monde de la culture pour aspirer au sommet.
+Parmi les sept niveaux de culture — Condensation de Qi, Établissement des Fondations, Formation du Noyau, Âme Naissante, Formation de l'Âme, Transformation de l'Âme et Ascendant — l'Âme Naissante constituait la barrière ultime. Atteindre ce stade signifiait que l'on avait véritablement pénétré le monde de la culture pour aspirer au sommet.
 
 Outre la vengeance, une autre force le poussait à devenir plus fort: le danger constant qu'il ressentait face à l'homme aux cheveux roux dans les terres de l'Ancien Dieu.
 
@@ -94,13 +94,13 @@ On pourrait dire qu'à ce moment précis, Wang Lin s'était libéré de son uniq
 
 C'est une mentalité que tout être puissant doit porter en soi en permanence.
 
-Après dix jours, Wang Lin quitta l'espace défiant le ciel. Au moment où il réapparut, il fusionna avec son corps principal à l'intérieur du fourneau. À cet instant, des filaments d'énergie spirituelle commencèrent à être drainés depuis les sept Fourneaux de Pillage Céleste situés au-dessus de la chambre.
+Après dix jours, Wang Lin quitta l'espace défiant le ciel. Au moment où il réapparut, il fusionna avec son corps principal à l'intérieur du fourneau. À cet instant, des filaments d'énergie spirituelle commencèrent à être drainés depuis les sept Fours à Pilules « Vol de Ciel » situés au-dessus de la chambre.
 
 Son corps principal et son avatar étaient à l'étape finale de la fusion. Si un échec survenait ici, tous ces efforts seraient vains. Wang Lin restait d'un calme absolu, totalement absorbé par ce processus de fusion.
 
-Le temps passa lentement. Outre le Royaume Ji, un autre obstacle se dressait devant lui: son propre talent. Quant à savoir si l'opération serait un succès, nul ne pouvait en être certain.
+Le temps passa lentement. Outre le Royaume Ji, un autre obstacle se dressait devant lui: un fil de tribulation divine. Quant à savoir si l'opération serait un succès, nul ne pouvait en être certain.
 
-Les milliers d'années d'énergie spirituelle stockées dans les sept Fourneaux de Pillage Céleste étaient lentement aspirées par Wang Lin. Sa tactique d'Ancien Dieu absorbait cette énergie comme un trou noir.
+Les milliers d'années d'énergie spirituelle stockées dans les sept Fours à Pilules « Vol de Ciel » étaient lentement aspirées par Wang Lin. Sa tactique d'Ancien Dieu absorbait cette énergie comme un trou noir.
 
 Au moment où le corps principal fusionna avec l'avatar, la tactique de l'Ancien Dieu subit elle aussi une métamorphose. Au premier niveau de cette tactique, il n'y avait que la dévoration.
 
@@ -112,7 +112,7 @@ L'absorption, en revanche, est un état actif permettant de s'approprier la cult
 
 En réalité, la puissance phénoménale des Anciens Dieux provient de cette tactique. Chaque Ancien Dieu, à son éveil, possède cette technique gravée dans son esprit.
 
-En tant qu'Ancien Dieu, ce n'est qu'en atteignant le second niveau que l'on acquiert une capacité d'attaque dévastatrice en utilisant son corps pour activer cette phase. Toute l'énergie spirituelle dans un rayon de plusieurs milles est alors absorbée et dévorée par le premier niveau de la tactique, créant une boucle infinie.
+En tant qu'Ancien Dieu, ce n'est qu'en atteignant le second niveau que l'on acquiert une capacité d'attaque dévastatrice en utilisant son corps pour activer cette phase. Toute l'énergie spirituelle dans un rayon de plusieurs kilomètres est alors absorbée et dévorée par le premier niveau de la tactique, créant une boucle infinie.
 
 Cependant, la tactique de l'Ancien Dieu appartenait exclusivement aux Anciens Dieux. Si Wang Lin avait obtenu l'héritage de la puissance, il aurait pu atteindre ce second niveau, mais avec son corps mortel actuel, la tâche était trop ardue.
 
@@ -120,13 +120,13 @@ Bien que la tactique de l'Ancien Dieu de Wang Lin présentât des différences p
 
 Le temps s'écoula rapidement et le jour de la cérémonie de jumelage de culture entre Li Muwan et Sun Zhenwei arriva enfin.
 
-Ce jour-là, toute la Secte Ciel Nuageux était empreinte d'une atmosphère festive. Aucun nuage ne troublait le ciel sur des milles à la ronde. Le ciel était d'un bleu pur et d'innombrables lumières volaient vers la secte.
+Ce jour-là, toute la Secte Ciel Nuageux était empreinte d'une atmosphère festive. Aucun nuage ne troublait le ciel à perte de vue. Le ciel était d'un bleu pur et d'innombrables lumières volaient vers la secte.
 
-Presque toutes les sectes et familles de cultivateurs du pays de Chu étaient rassemblées ici. Tous les arrivants étaient des Anciens ou des membres éminents de leurs clans respectifs. Une telle ambiance était le privilège exclusif de la Secte Ciel Nuageux; aucune autre secte n'aurait pu attirer une telle assemblée.
+Presque toutes les sectes et familles de cultivateurs du pays de Chu étaient rassemblées ici. La plupart des arrivants étaient des chefs de secte ou des premiers disciples venus en personne. Une telle ambiance était le privilège exclusif de la Secte Ciel Nuageux; aucune autre secte n'aurait pu attirer une telle assemblée.
 
 En raison du nombre impressionnant d'invités, la formation défensive de la Secte Ciel Nuageux avait été étendue pour couvrir toute la chaîne de montagnes. D'innombrables disciples de la secte extérieure avaient été déployés en patrouille pour accueillir les convives.
 
-Il faut dire que le statut de Li Muwan au sein de la Secte Ciel Nuageux était unique. Après tout, elle était l'une des trois alchimistes de rang 5 de la secte. La position de Sun Zhenwei était également prestigieuse: il était le fils d'un Ancien de la secte extérieure, cultivateur au stade intermédiaire de l'Âme Naissante, et le seul en un siècle capable de progresser vers le stade avancé pour devenir un ancêtre de la secte.
+Il faut dire que le statut de Li Muwan au sein de la Secte Ciel Nuageux était unique. Après tout, elle était l'une des trois alchimistes de rang 5 de la secte. La position de Sun Zhenwei était également prestigieuse: il était le fils d'un Ancien de la secte extérieure, cultivateur au stade intermédiaire de l'Âme Naissante, et l'un des rares en un siècle à pouvoir progresser vers le stade avancé pour devenir un ancêtre de la secte.
 
 De plus, la secte extérieure plaçait de grands espoirs en lui. Une fois qu'il atteindrait l'Âme Naissante, une série de mesures serait prise pour le positionner comme candidat au titre de chef de la secte extérieure. Si son père devenait avec succès un ancêtre de la secte, Sun Zhenwei deviendrait alors inévitablement le chef de la secte extérieure.
 
@@ -142,9 +142,9 @@ Bien qu'il souriait, ses yeux trahissaient une certaine nervosité. En réalité
 
 Il trouvait ce sentiment absurde. Aujourd'hui, presque tous les ancêtres au stade avancé de l'Âme Naissante étaient sortis de leur retraite pour assister à l'événement. Si quiconque osait troubler la cérémonie, sa seule issue serait la mort.
 
-À moins que son niveau de culture ne soit celui de la Séparation d'Esprit.
+À moins que son niveau de culture ne soit celui de la Formation de l'Âme.
 
-Mais Sun Zhenwei ne croyait pas qu'un cultivateur de la Séparation d'Esprit s'abaisserait à s'en prendre à la Secte Ciel Nuageux. Et même une secte de ce niveau devait rester vigilante face à la Secte du Démon Géant qui se trouvait derrière eux.
+Mais Sun Zhenwei ne croyait pas qu'un cultivateur de la Formation de l'Âme s'abaisserait à s'en prendre à la Secte Ciel Nuageux. Et même une secte de ce niveau devait rester vigilante face à le Clan des Démons Géants qui se trouvait derrière eux.
 
 Par conséquent, Sun Zhenwei ne trouvait aucune raison logique à son anxiété. Il sourit intérieurement, pensant qu'il s'inquiétait pour rien.
 
@@ -158,9 +158,9 @@ Sun Zhenwei répondit respectueusement. Bien qu'il puisse mentir à tout le mond
 
 En apprenant que le chef de la secte était impliqué, il retrouva confiance. En levant les yeux vers le chef de la secte, il vit le vieil homme aux cheveux blancs se retourner et lui adresser un léger sourire.
 
-Cet homme était Liu Fei, le chef de la secte extérieure. Sa culture était mystérieuse; on disait qu'il utilisait une pilule pour masquer son véritable niveau et qu'il se trouvait déjà au stade avancé de l'Âme Naissante. À moins de posséder un niveau supérieur, il était presque impossible de percer son secret.
+Cet homme était Liu Fei, le chef de la secte extérieure. Sa culture était mystérieuse; on disait qu'il pratiquait une technique secrète pour masquer son véritable niveau et qu'il se trouvait déjà au stade avancé de l'Âme Naissante. À moins de posséder un niveau supérieur, il était presque impossible de percer son secret.
 
-À côté de ce vieil homme se tenait un autre Ancien aux cheveux blancs: Song Qing, le chef de la secte intérieure. Derrière lui se trouvait un groupe de personnes aux niveaux de culture variés qui, dans n'importe quelle autre secte, seraient devenus les alchimistes en chef en une seule journée.
+À côté de ce vieil homme se tenait un autre Ancien aux cheveux blancs: Song Qing, le chef de la secte intérieure. Derrière lui se trouvait un groupe de personnes aux niveaux de culture variés qui, dans n'importe quelle autre secte, seraient devenus les alchimistes en chef d'un seul bond.
 
 « Sima Yunnan, chef de la Secte Hao Ran, et l'Ancien Xu Li sont ici pour célébrer cette occasion! » Une voix tonna au loin, résonnant à travers toute la chaîne de montagnes de la Secte Ciel Nuageux.
 
@@ -174,7 +174,7 @@ Liu Fei, le chef de la secte extérieure, rit et fit quelques pas en avant. Il j
 
 Song Qing, le chef de la secte intérieure, se frotta le menton: « Vieux Sima, tu m'avais promis un fruit Zhu millénaire. L'as-tu apporté aujourd'hui? »
 
-Sima Yunnan rit: « Ne me mettez pas dans l'embarras! Puisque votre mémoire est si aiguisée, sachez que j'ai bien apporté le fruit Zhu. Cependant, mon petit-fils est sur le point de former son noyau; vous ferez mieux de me donner quelques pilules aux 180 grains, sinon je ne vous remettrai rien. »
+Sima Yunnan rit: « Ne me mettez pas dans l'embarras! Puisque votre mémoire est si aiguisée, sachez que j'ai bien apporté le fruit Zhu. Cependant, mon petit-disciple est sur le point de former son noyau; vous ferez mieux de me donner une centaine, voire cent quatre-vingts pilules, sinon je ne vous remettrai rien. »
 
 Les trois hommes éclatèrent de rire en échangeant quelques mots. Liu Fei fit un signe de la main et Sun Zhenwei guida rapidement Sima Yunnan vers la salle principale.
 
@@ -190,17 +190,17 @@ Après son arrivée, Sima Yunnan ne put s'empêcher d'échanger avec plusieurs a
 
 Une fois seul, Sima Yunnan et Xu Li s'assirent près d'une table. Sima Yunnan demanda par transmission mentale: « Tu disais que cet individu se cache au sein de la Secte Ciel Nuageux? »
 
-L'expression de Xu Li resta impassible tandis qu'il répondait également par transmission mentale: « Chef de secte, ce n'est qu'une supposition, elle n'est pas forcément exacte. Cet homme dégageait une aura démoniaque et a disparu près de la Secte Ciel Nuageux. De plus, il y a trois mois, un mystérieux individu est apparu dans notre secte et a réussi à s'échapper malgré la poursuite de trois cultivateurs de l'Âme Naissante. Selon les rapports de nos espions, je soupçonne qu'il s'agisse de la personne que j'ai rencontrée. Quant à savoir s'il se cache ici, je n'en suis pas certain. »
+L'expression de Xu Li resta impassible tandis qu'il répondait également par transmission mentale: « Chef de secte, ce n'est qu'une supposition, elle n'est pas forcément exacte. Cet homme dégageait une aura démoniaque et a disparu près de la Secte Ciel Nuageux. De plus, il y a trois mois, un mystérieux individu est apparu au sein de la Secte Ciel Nuageux et a réussi à s'échapper malgré la poursuite de trois cultivateurs de l'Âme Naissante. Selon les rapports de nos espions, je soupçonne qu'il s'agisse de la personne que j'ai rencontrée. Quant à savoir s'il se cache ici, je n'en suis pas certain. »
 
 Sima Yunnan réfléchit: « Si cet homme est celui que Xu Li décrit, il doit être un grand mal venu de la Mer des Démons. Héhé, si la Secte Ciel Nuageux attire l'attention d'une telle entité, comment cela ne pourrait-il profiter à ma Secte Hao Ran? »
 
 « Tianyi Zhenren et l'Ancien Shi Tianlai de la Secte Lou Yue sont arrivés pour célébrer l'événement! » Une autre voix puissante retentit, attirant le regard de Sima Yunnan vers l'extérieur.
 
-À cet instant, toutes les sectes et familles de cultivateurs commençaient à affluer. Hormis les grandes sectes accueillies personnellement par Sun Zhenwei, tous les autres arrivaient dans la salle principale.
+À cet instant, toutes les sectes et familles de cultivateurs commençaient à affluer. Hormis les grandes sectes accueillies personnellement par Sun Zhenwei, tous les autres étaient conduits jusqu'à la salle principale par des disciples de la secte.
 
 Bientôt, le hall fut presque comble. Certains invités, plus réservés, s'assirent dans des coins ou se mirent en culture, les yeux clos.
 
-Le long des murs de la salle principale se tenait une rangée de disciples de la secte extérieure, tous au stade de la Formation du Noyau ou supérieur. Ils se tenaient là, le dos droit comme des pins, le regard fixé devant eux.
+Le long des murs de la salle principale se tenait une rangée de disciples de la secte extérieure, tous au stade avancé de l'Établissement des Fondations. Ils se tenaient là, le dos droit comme des pins, le regard fixé devant eux.
 
 Peu après, Liu Fei et Song Qing entrèrent dans la salle principale, suivis par des dizaines d'Anciens et par Sun Zhenwei. Parmi eux se trouvait Li Muwan, portant un voile violet sur le visage.
 

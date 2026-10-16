@@ -48,7 +48,7 @@ Sun Zhenwei regarda Wang Lin en souriant: « Dans deux mois, je serai moi aussi 
 
 L'expression de Wang Lin resta imperturbable alors qu'il répondait froidement: « S'il n'y a rien d'autre, ce disciple doit encore s'occuper d'un lot de pilules. »
 
-Le visage de Sun Zhenwei s'assombrit sous l'effet de la colère, mais il retrouva rapidement son sourire. Après un regard scrutateur sur Wang Lin, il sortit une épée volante et déclara: « Cette épée s'appelle le Vent Vert. Considérez-la comme un cadeau de bienvenue. Prenez-la. » D'un geste de la main, il fit planer l'épée vers Wang Lin.
+Le visage de Sun Zhenwei s'assombrit sous l'effet de la colère, mais il retrouva rapidement son sourire. Après un regard scrutateur sur Wang Lin, il sortit une épée volante et déclara: « Cette épée s'appelle Qingfeng. Considérez-la comme un cadeau de bienvenue. Prenez-la. » D'un geste de la main, il fit planer l'épée vers Wang Lin.
 
 Une fois l'objet reçu, Wang Lin joignit les mains en signe de gratitude, puis se détourna pour partir.
 
@@ -66,9 +66,9 @@ Suivant les instructions de Li Muwan, il disposa les flacons par ordre de consom
 
 Cette préparation s'appelait la Pilule Qi-Zuo, une pilule spirituelle de rang 2. Grâce à ses nombreux ingrédients rares, elle ne fournissait pas seulement une immense quantité d'énergie spirituelle, mais aidait également à élargir les canaux du corps.
 
-La Pilule Qi-Zuo était l'une des dix-huit pilules rares de l'ancienne Secte Luo He. Dans le monde de la culture, c'était un trésor, d'un grade supérieur à la Pilule d'Établissement des Fondations. Sa rareté résidait dans sa capacité à élargir les canaux; même au sein de la Secte Ciel Nuageux, peu de pilules possédaient cette vertu, et elles étaient toutes de rang 4. Qu'une pilule de rang 2 puisse accomplir cela était exceptionnel.
+La Pilule Qi-Zuo était l'une des dix-huit pilules rares de l'ancienne Secte Luo He. Dans le monde de la culture, c'était un trésor, d'un grade supérieur à la Pilule d'Établissement des Fondations. Sa rareté résidait dans sa capacité à élargir les canaux; même au sein de la Secte Ciel Nuageux, peu de pilules possédaient cette vertu, et elles étaient toutes de rang 4 ou plus. Qu'une pilule de rang 2 puisse accomplir cela était exceptionnel.
 
-Au sein de la Secte Ciel Nuageux, on n'en comptait qu'une vingtaine, et toutes avaient été confectionnées par Li Muwan.
+Au sein de la Secte Ciel Nuageux, on n'en comptait moins d'une vingtaine, et toutes avaient été confectionnées par Li Muwan.
 
 Wang Lin prit une pilule et l'avala, entamant immédiatement sa culture. L'énergie spirituelle inonda son corps, et il nota instantanément la différence avec la Pilule d'Établissement des Fondations: la Pilule Qi-Zuo contenait plus du double de cette dernière.
 
@@ -90,4 +90,4 @@ Le flacon contenait cinq pilules violettes. Wang Lin les identifia immédiatemen
 
 Il semblait que Li Muwan ait consacré énormément de sang et de sueur ces deux cents dernières années pour raffiner à nouveau ces précieuses préparations. C'était le cas: la Pilule Tian Li était un remède de rang 3 dont les ingrédients s'étaient éteints avec le pays de Huo Fen. Ce n'est qu'en rejoignant la Secte Ciel Nuageux et en utilisant son statut d'Ancien que Li Muwan avait pu obtenir les composants nécessaires pour en produire davantage.
 
-Cependant, même la Secte Ciel Nuageux ne disposait que de peu de ces matériaux. Après avoir raffiné ces cinq pilules, toutes les réserves avaient été épuisées. En vérité, la grande majorité des ingrédients utilisés par Wang Lin provenaient des stocks de la Secte Ciel Nuageux; on pouvait donc dire que le coût de cette avancée de culture était entièrement supporté par la secte.
+Cependant, même la Secte Ciel Nuageux ne disposait que de peu de ces matériaux. Après avoir raffiné ces cinq pilules, toutes les réserves avaient été épuisées. En vérité, la grande majorité des ingrédients utilisés par Wang Lin provenaient des stocks de la Secte Ciel Nuageux; on pouvait donc dire que le coût de cette avancée de culture était en grande partie supporté par la secte.

@@ -26,7 +26,7 @@ Grâce à ces circonstances, et au fait que Wang Lin dissimulait précieusement 
 
 Durant cette période, le nombre de fois où Wang Lin avait consommé l'eau de source était devenu incalculable. En somme, chaque fois qu'il sentait son corps manquer d'énergie spirituelle, il en buvait quelques grandes gorgées.
 
-Si Sun Dazhu l'avait su, son cœur se serait déchiré de douleur. Il aurait probablement tué ce disciple d'un seul revers de main. Dans toute la communauté des cultivateurs du pays de Zhao, qui d'autre pouvait cultiver ainsi, en s'abreuvant quotidiennement d'une eau de source saturée d'énergie spirituelle? Seuls quelques vieux monstres de sectes du continent majeur pourraient prétendre à de tels privilèges. Ils devraient s'emparer d'une montagne regorgeant d'énergie spirituelle pour obtenir des résultats comparables à ceux que l'eau de source apportait à Wang Lin.
+Si Sun Dazhu l'avait su, son cœur se serait déchiré de douleur. Il aurait probablement tué ce disciple d'un seul revers de main. Dans toute la communauté des cultivateurs du pays de Zhao, qui d'autre pouvait cultiver ainsi, en s'abreuvant quotidiennement d'une eau de source saturée d'énergie spirituelle? Seuls quelques vieux monstres de sectes pourraient prétendre à de tels privilèges. Ils devraient s'emparer d'une montagne regorgeant d'énergie spirituelle pour obtenir des résultats comparables à ceux que l'eau de source apportait à Wang Lin.
 
 L'énergie spirituelle occupait une place primordiale dans le cœur de tout cultivateur. Bien qu'il n'y eût pas d'abondance d'énergie spirituelle dans le pays de Zhao, celle-ci suffisait aux quelques sectes existantes. Si d'autres cultivateurs apprenaient comment Wang Lin utilisait cette ressource, leur cœur en mourrait de jalousie.
 
@@ -38,13 +38,13 @@ Aujourd'hui, alors qu'il cultivait dans l'espace de rêve, il pouvait clairement
 
 Une sensation d'insectes rampant sous sa peau surgit. C'était comme si une eau lavait chaque parcelle de son être. Un liquide noir à l'odeur fétide s'exsudait de ses pores.
 
-Bientôt, ce liquide noir imprégna ses vêtements. Wang Lin n'y prêtait aucune attention. Il se trouvait dans un état merveilleux, comme s'il pouvait voir l'eau de source jaillir en lui tandis que l'énergie spirituelle transformait lentement son corps.
+Bientôt, ce liquide noir imprégna ses vêtements. Wang Lin n'y prêtait aucune attention. Il se trouvait dans un état merveilleux, comme s'il pouvait voir l'eau de source se décomposer en lui tandis que l'énergie spirituelle transformait lentement son corps.
 
 Après un temps indéterminé, Wang Lin ouvrit les yeux. Une lueur nouvelle brillait dans son regard.
 
 Son esprit était clair et son cœur aussi calme qu'une eau sans la moindre ride. Les souvenirs de son enfance affluèrent: le regard affectueux de son père lorsqu'il apprenait à parler, les paroles encourageantes de sa mère durant ses nuits d'étude, l'espoir dans les yeux de ses parents lorsqu'il entra dans la Secte Heng Yue, les visages moqueurs de ses proches et les regards admiratifs des villageois. Il contemplait tout cela avec sérénité, comme s'il observait un étranger.
 
-Bien plus tard, il prit une profonde inspiration. Son cœur était empreint d'amertume. En franchissant le premier niveau de la Condensation de Qi, il avait acquis une forme de compréhension.
+Bien plus tard, il expira profondément. Son cœur était empreint d'amertume. En franchissant le premier niveau de la Condensation de Qi, il avait acquis une forme de compréhension.
 
 Selon les Trois Étapes de la Condensation de Qi, le premier niveau est semblable à une porte. Une fois cette porte franchie, on entre dans le rang des cultivateurs et l'on se détache du monde, renonçant aux affaires terrestres.
 
@@ -66,7 +66,7 @@ Une fois propre, il s'allongea sur un rocher. Il se remémora une technique ment
 
 Elle présentait une technique immortelle appelée la Technique de l'Attraction. Elle était considérée comme l'une des techniques les plus élémentaires et pouvait être utilisée dès que le premier niveau de la Condensation de Qi était atteint.
 
-La Secte Heng Yue avait unifié le pays de Zhao il y a cinq cents ans. Bien qu'elle ait décliné, elle possédait encore de nombreuses techniques immortelles. Chaque disciple était envoyé à la Bibliothèque des Écritures pour choisir parmi une multitude de méthodes, mais la plupart des Anciens recommandaient la culture de l'épée.
+La Secte Heng Yue avait unifié le pays de Zhao il y a cinq cents ans. Bien qu'elle ait décliné, elle possédait encore de nombreuses techniques immortelles. Chaque disciple interne pouvait aller à la Bibliothèque des Écritures choisir librement parmi une multitude de méthodes, mais la plupart des Anciens recommandaient la culture de l'épée.
 
 La culture de l'épée consistait à concentrer toute sa pratique sur l'arme. Bien que le chemin de la culture soit plus difficile par la suite, cette voie était extrêmement puissante au début et facile à maîtriser. La Technique de l'Attraction constituait d'ailleurs la base pour contrôler les épées volantes.
 

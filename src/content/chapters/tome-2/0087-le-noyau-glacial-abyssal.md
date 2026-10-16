@@ -26,7 +26,7 @@ Plus la qualité du Yin est élevée, plus les bénéfices pour le cultivateur s
 
 Wang Lin forma immédiatement un sceau de sa main droite et commença à incanter. Soudain, des éclats de lumière rouge s'assemblèrent devant lui jusqu'à former une sphère lumineuse.
 
-C'était une technique spécialement conçue pour tester la qualité du Yin. Selon la couleur de la lumière, on pouvait déterminer le type d'énergie présente. La sphère pouvait devenir violette, noire, argentée ou rouge, correspondant respectivement au Yin céleste, terrestre, mystique et souterrain.
+C'était une technique spécialement conçue pour tester la qualité du Yin. Selon la couleur de la lumière, on pouvait déterminer le type d'énergie présente. La sphère pouvait devenir violette, bleue, argentée ou rouge, correspondant respectivement au Yin céleste, terrestre, mystique et souterrain.
 
 Situ Nan avait également précisé que, même parmi un même type de Yin extrême, il existait quatre qualités distinctes: ordinaire, bonne, dense et extrême. Chaque niveau était lui-même divisé en dix rangs.
 
@@ -36,11 +36,11 @@ Après l'apparition de la sphère rouge, celle-ci devint de plus en plus éclata
 
 Wang Lin se toucha le menton. Cinq éclats signifiaient que cet endroit possédait un Yin souterrain ordinaire de rang 5.
 
-Après avoir réfléchi un instant, il marcha vers le centre des ruines sans dire un mot. L'énergie Yin environnante devenait de plus en plus dense à mesure qu'il s'approchait du centre. Cette énergie était si épaisse qu'il avait l'impression de marcher sous l'eau. Après seulement quelques centaines de pas, il sentit déjà qu'il ne pouvait plus respirer.
+Après avoir réfléchi un instant, il marcha vers le centre des ruines sans dire un mot. L'énergie Yin environnante devenait de plus en plus dense à mesure qu'il s'approchait du centre. Cette énergie était si épaisse qu'il avait l'impression de marcher sous l'eau. Après seulement plusieurs centaines de mètres, il sentit déjà qu'il ne pouvait plus respirer.
 
 La sphère de lumière brillait de plus en plus intensément en suivant Wang Lin. Cette zone était de rang 8 ordinaire.
 
-Wang Lin ne s'arrêta pas et continua sur quelques centaines de mètres supplémentaires, jusqu'à ce qu'il atteigne les ruines du gigantesque billot de pierre. Il ne pouvait plus avancer. Des lambeaux d'énergie Yin s'insinuaient dans son corps. Ses vaisseaux sanguins commencèrent à pulser de douleur et il commença à perdre le contrôle de son énergie spirituelle.
+Wang Lin ne s'arrêta pas et continua sur plusieurs centaines de mètres supplémentaires, jusqu'à ce qu'il atteigne les ruines où se trouvait la gigantesque sphère de pierre. Il ne pouvait plus avancer. Des lambeaux d'énergie Yin s'insinuaient dans son corps. Ses vaisseaux sanguins commencèrent à pulser de douleur et il commença à perdre le contrôle de son énergie spirituelle.
 
 À cet instant, la sphère rouge se divisa en deux dans un bruit sec. Les yeux de Wang Lin s'illuminèrent. Il comprit que cela signifiait que cet endroit avait atteint une qualité bonne de rang 1.
 
@@ -74,7 +74,7 @@ D'un geste de la main droite, il fit voler les débris et les gravats sur le cô
 
 Une fois tout terminé, Wang Lin s'assit au milieu de l'espace dégagé. Il sortit un livre et commença à le lire avec attention.
 
-C'était l'ouvrage sur les formations qu'il avait acquis à la Ville de la Famille Teng pour une pierre spirituelle de qualité moyenne deux ans auparavant.
+C'était l'ouvrage sur les formations qu'il avait acquis à la Ville de la Famille Teng pour dix pierres spirituelles de qualité moyenne deux ans auparavant.
 
 Auparavant, il ne faisait que le feuilleter, notant qu'il contenait des informations très détaillées sur la mise en place et le contrôle des formations.
 
@@ -96,7 +96,7 @@ Après réflexion, il murmura: « Si une seule ne suffit pas, j'en placerai deux
 
 Sur ce, Wang Lin utilisa sa technique d'attraction pour déplacer les rochers de la zone. Après avoir expérimenté quelques autres formations, la nuit revint.
 
-Wang Lin s'assit en tailleur sur le sol. Dès que l'énergie Yin apparut, il prit une grande inspiration, posa ses mains sur ses genoux et commença à cultiver. Sa méthode de respiration consistait en une expiration longue suivie de cinq courtes. Une respiration longue pour inspirer profondément, et cinq courtes pour expirer en un temps ne représentant qu'un cinquième de l'inspiration. C'était la façon la plus rapide d'absorber le Yin.
+Wang Lin s'assit en tailleur sur le sol. Dès que l'énergie Yin apparut, il prit une grande inspiration, posa ses mains sur ses genoux et commença à cultiver. Sa méthode de respiration consistait en une inspiration longue suivie de cinq courtes. Une respiration longue pour inspirer profondément, et cinq courtes pour expirer en un temps ne représentant qu'un cinquième de l'inspiration. C'était la façon la plus rapide d'absorber le Yin.
 
 À proprement parler, c'était la première fois qu'il utilisait une énergie extérieure pour sa culture. Durant les deux dernières années, il n'avait utilisé que du liquide spirituel à l'intérieur de la Perle Défiant le Ciel; tout avait donc été une absorption interne.
 

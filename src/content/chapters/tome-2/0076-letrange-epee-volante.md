@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 76 - The Strange Flying Sword
 slug: letrange-epee-volante
 ---
-Liu San fit brusquement reculer la tête. Il grinça des dents et s'exclama: « Tu étais vraiment un espion! »
+Liu San se retourna brusquement. Il grinça des dents et s'exclama: « Tu étais vraiment un espion! »
 
 Les yeux de Yang Sen bouillonnaient de rage alors qu'il fixait Wang Lin. Les pupilles de l'homme au visage sombre se rétractèrent; il comprit que la méthode employée par Wang Lin pour s'emparer de la boîte n'était pas du ressort d'un simple mortel.
 
@@ -74,7 +74,7 @@ La voix de Situ Nan résonna à l'oreille de Wang Lin: « Wang Lin, il y a quelq
 
 Au moment où l'épée volante pénétra le fourreau, elle émit un bourdonnement strident, comme si elle rencontrait une résistance phénoménale. Après avoir pénétré d'un cinquième de sa longueur, elle ne put plus avancer davantage. L'épée verte vira soudainement au bleu et se retira brusquement du fourreau pour taillader le fouet.
 
-Ce fouet était un objet qu'il avait obtenu de Zhang Kuang. Durant son entraînement en méditation fermée, il l'avait affiné pour qu'il lui appartienne, suivant les conseils de Situ Nan.
+Ce fouet était un objet qu'il avait obtenu de Sun Dazhu. Durant son entraînement en méditation fermée, il l'avait affiné pour qu'il lui appartienne, suivant les conseils de Situ Nan.
 
 Wang Lin contrôla le fouet pour qu'il contourne l'épée volante et chargea directement l'homme d'âge moyen.
 

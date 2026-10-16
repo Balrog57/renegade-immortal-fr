@@ -23,13 +23,13 @@ Grâce à cela, la Secte Nuage Céleste put se développer rapidement pour deven
 
 Li Muwan affichait une expression grave tandis qu'elle contemplait les vapeurs émanant des sept dragons gravés sur le four. Elle murmura: « Pour ouvrir le sceau de la pilule, nous avons besoin d'énergie spirituelle et du moment opportun. Nous devons emprunter la puissance spirituelle aux sept Fours à Pilules "Vol de Ciel" lorsqu'ils sont en usage. »
 
-L'expression de Wang Lin était calme. Debout aux côtés de Li Muwan, il observait le fourneau et demanda d'une voix basse: « Le Secte Nuage Céleste fabrique-t-il une pilule chaque mois? »
+L'expression de Wang Lin était calme. Debout aux côtés de Li Muwan, il observait le fourneau et demanda d'une voix basse: « La Secte Nuage Céleste fabrique-t-il une pilule chaque mois? »
 
 Li Muwan hocha doucement la tête et répondit d'une voix douce: « Oui. Les Fours à Pilules "Vol de Ciel" ne peuvent être utilisés qu'à un moment précis du mois pour obtenir un effet maximal. Seuls les Anciens de la Secte Nuage Céleste ont le privilège de s'en servir. Certaines pilules rares nécessitent impérativement ces fours pour leur fabrication. »
 
 Wang Lin acquiesça légèrement. Il désigna le fourneau orné des sept têtes de dragon et demanda: « Est-ce aussi un Four à Pilules "Vol de Ciel"? »
 
-Un sourire fier apparut sur les lèvres de Li Muwan, qui ajouta avec charme: « Ce four n'est pas un Four à Pilules "Vol de Ciel", mais son effet est sensiblement le même. Il a été secrètement fabriqué par Wan Er après avoir étudié ces fours pendant toutes ces années. C'était mon atout secret contre la Secte Nuage Céleste s'ils décidaient un jour de s'en prendre à moi. S'ils le faisaient, Wan Er utiliserait ce four pour interférer avec les sept autres lors d'un raffinage et les transformer en poussière. Cela libérerait toute l'énergie spirituelle contenue dans les fours, obligeant tous les cultivateurs de l'Âme Naissante à s'épuiser à tenter de les réparer plutôt qu'à me poursuivre. Après tout, ces fours représentent tout pour eux. »
+Un sourire fier apparut sur les lèvres de Li Muwan, qui ajouta avec charme: « Ce four n'est pas un Four à Pilules "Vol de Ciel", mais son effet est sensiblement le même. Il a été secrètement fabriqué par Wan Er après avoir étudié ces fours pendant toutes ces années. C'était mon atout secret contre la Secte Nuage Céleste s'ils décidaient un jour de me forcer à faire certaines choses. S'ils le faisaient, Wan Er utiliserait ce four pour interférer avec les sept autres lors d'un raffinage et les transformer en poussière. Cela libérerait toute l'énergie spirituelle contenue dans les fours, obligeant tous les cultivateurs de l'Âme Naissante à s'épuiser à tenter de les réparer plutôt qu'à me poursuivre. Après tout, ces fours représentent tout pour eux. »
 
 Wang Lin esquissa un sourire. Il hocha la tête et resta silencieux, fixant le fourneau. Après un long moment, il demanda soudainement: « Tu viens de dire que les sept Fours à Pilules "Vol de Ciel" se trouvent au-dessus d'ici. Contiennent-ils des milliers d'années d'énergie spirituelle? »
 
@@ -45,11 +45,11 @@ Wang Lin se retourna et lui adressa un sourire: « Oui. Si je cultivais dans ce 
 
 L'expression de Li Muwan devint étrange. Juste au moment où elle allait parler, la quantité de gaz violet émanant des têtes de dragon augmenta brusquement. Une masse de vapeur s'éleva, formant un nuage sombre au-dessus du fourneau. À l'intérieur de ce nuage se trouvait le fourneau portant le sceau de la pilule. L'objet rougeoyait et le sceau commença à osciller violemment.
 
-À cet instant précis, sur le sol, au-dessus de cette chambre, les Anciens de la Secte Nuage Céleste scrutaient le ciel, calculant l'heure exacte. Ces hommes étaient tous des maîtres alchimistes du secte, dont l'un des trois alchimistes de rang 5, Ouyang Zi.
+À cet instant précis, sur le sol, au-dessus de cette chambre, les Anciens de la Secte Nuage Céleste scrutaient le ciel, calculant l'heure exacte. Ces hommes étaient tous des maîtres alchimistes de la secte, dont l'un des trois alchimistes de rang 5, Ouyang Zi.
 
 Ouyang Zi était initialement le disciple du chef de la secte intérieure, mais il avait volontairement renoncé à la direction pour consacrer toute son attention à l'alchimie. Sa passion pour cet art avait atteint un degré inimaginable; il ne se souciait ni de la culture, ni du pouvoir. On pouvait dire qu'il n'avait d'autre but que l'alchimie. Son ambition ultime était de raffiner la légendaire pilule divine de rang 9.
 
-Mais cet objectif était hors de portée. Même les pays de rang 6 ne pouvaient produire que des pilules de rang 6, et les rares génies qui apparaissaient ne pouvaient atteindre que le rang 7. C'est précisément à cause de cette difficulté que la Secte Nuage Céleste était protégé par une puissante secte démoniaque d'un pays de rang 4. Il faut dire que les pilules de rang 5 représentaient déjà la limite absolue pour un tel pays. Tout cela démontrait l'importance vitale du secteur pour la secte démoniaque.
+Mais cet objectif était hors de portée. Même les pays de rang 6 ne pouvaient produire que des pilules de rang 6, et les rares génies qui apparaissaient ne pouvaient atteindre que le rang 7. C'est précisément à cause de cette difficulté que la Secte Nuage Céleste était protégée par le Clan des Démons Géants, puissant clan d'un pays de rang 4. Il faut dire que les pilules de rang 5 représentaient déjà la limite absolue pour un tel pays. Tout cela démontrait l'importance vitale de la secte pour le Clan des Démons Géants.
 
 Ouyang Zi, alchimiste de rang 5, avait atteint le début du stade de l'Âme Naissante. S'il n'avait pas été aussi absorbé par son art, il aurait déjà atteint le stade avancé et serait devenu l'un des ancêtres de la secte. Bien qu'il ne fût qu'au début de l'Âme Naissante, son statut était bien supérieur à celui de Li Muwan, qui n'était qu'une étrangère.
 
@@ -81,7 +81,7 @@ Li Muwan fixa le corps principal avec un regard empreint de nostalgie et d'espoi
 
 Le corps principal avança vers le centre de la chambre. Arrivé devant le fourneau dragon, il tourna la tête vers Li Muwan. Le cœur de celle-ci se serra face à ce regard glacial; elle le connaissait trop bien. C'était exactement le même regard que celui de Wang Lin lors de leur rencontre, deux siècles plus tôt. Après tant d'années, la froideur de ses yeux était devenue encore plus intense.
 
-Li Muwan prit une grande inspiration et exécuta rapidement un sceau. Sous son contrôle, le couvercle du fourneau s'écarta lentement. Le corps principal de Wang Lin sauta à l'intérieur et commença sa culture sans la moindre hésitation. Aussitôt, le couvercle se referma.
+Li Muwan prit une grande inspiration et exécuta rapidement un sceau. Sous son contrôle, le couvercle du fourneau s'écarta lentement. Le corps principal de Wang Lin sauta à l'intérieur et s'assit en tailleur sans la moindre hésitation. Aussitôt, le couvercle se referma.
 
 À ce moment-là, au-dessus de la chambre, Ouyang Zi leva les bras en grand et murmura une incantation. Soudain, un gaz vert jaillit du fourneau central pour former une main gigantesque qui commença à croître. Ouyang Zi sortit un sac de rangement et y déversa d'innombrables trésors célestes dans la paume de la main géante. Celle-ci se referma, puis redevint une fumée verte qui retourna dans le fourneau.
 

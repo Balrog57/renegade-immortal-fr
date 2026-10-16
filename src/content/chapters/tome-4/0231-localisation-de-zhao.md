@@ -66,11 +66,11 @@ Avant la disparition du brouillard entourant la Mer des Démons, les pierres spi
 
 Mais depuis que le brouillard s'était dissipé et que les bêtes avaient commencé à envahir la Mer des Démons, l'usage des tableaux de transfert s'était intensifié.
 
-Il existait deux types de tableaux de transfert. Le premier consistait en des tableaux anciens, créés par des cultivateurs d'autrefois. Il n'en restait que peu, et beaucoup étaient endommagés, ce qui limitait leur usage. Selon la quantité de pierres spirituelles investie, ils pouvaient téléporter un individu sur au moins un million de kilomètres. Cependant, leur utilisation exigeait une pierre spirituelle de qualité supérieure, ce qui les rendait inaccessibles pour la plupart des habitants de la Mer des Démons.
+Il existait deux types de tableaux de transfert. Le premier consistait en des tableaux anciens, créés par des cultivateurs d'autrefois. Il n'en restait que peu, et beaucoup étaient endommagés, ce qui limitait leur usage. Selon la quantité de pierres spirituelles investie, ils pouvaient téléporter un individu sur au moins cinq cent mille kilomètres. Cependant, leur utilisation exigeait une pierre spirituelle de qualité supérieure, ce qui les rendait inaccessibles pour la plupart des habitants de la Mer des Démons.
 
 En effet, les pierres spirituelles de qualité supérieure étaient presque éteintes. Même si quelqu'un en possédait, rares étaient ceux prêts à en sacrifier une pour un tableau de transfert.
 
-Le second type était constitué de tableaux de transfert ordinaires, bien plus simples. Leur coût variait de dix pierres spirituelles de faible qualité à moins de cent pierres de qualité moyenne. Au maximum, ils permettaient de parcourir quelques centaines de kilomètres. En raison de leur rentabilité, ils étaient le mode de voyage privilégié des cultivateurs.
+Le second type était constitué de tableaux de transfert ordinaires, bien plus simples. Leur coût variait de dix pierres spirituelles de faible qualité à cent pierres de qualité moyenne. Au maximum, ils permettaient de parcourir plus de cent mille kilomètres. En raison de leur rentabilité, ils étaient le mode de voyage privilégié des cultivateurs.
 
 En conséquence, la consommation et la valeur des pierres spirituelles avaient augmenté.
 
@@ -134,7 +134,7 @@ Le regard de Wang Lin se posa sur lui.
 
 Le cultivateur en robe déclara lentement: « Une carte de haute qualité de la Mer des Démons incluant les quatre continents environnants et 148 pays. Quel prix êtes-vous prêt à offrir? »
 
-À ces mots, tous les cultivateurs se retournèrent, les yeux brillants d'envie. Une carte de haute qualité était déjà rare, mais celle-ci couvrait les quatre continents et 148 pays; cela représentait presque un quart de la planète Suzaku!
+À ces mots, tous les cultivateurs se retournèrent, les yeux brillants d'envie. Une carte de haute qualité était déjà rare, mais celle-ci couvrait les quatre continents et 148 pays; cela représentait presque un dixième de la planète Suzaku!
 
 Le prix de cette carte serait inimaginablement élevé.
 
@@ -156,7 +156,7 @@ Une heure plus tard, l'échange secret prit fin et chacun partit. Wang Lin quitt
 
 En le voyant, elle dit respectueusement: « Aîné, mon maître souhaite vous rencontrer; il m'a chargé de vous accompagner. »
 
-Le cœur de Wang Lin tressaillit et il se fit plus vigilant, tout en gardant un visage impassible. Il observa la jeune femme: elle n'était pas vierge et n'était qu'au stade intermédiaire de l'Établissement des Fondations. Cependant, sa puissance spirituelle était très faible; elle avait manifestement atteint ce niveau grâce à de nombreux médicaments.
+Le cœur de Wang Lin tressaillit et il se fit plus vigilant, tout en gardant un visage impassible. Il observa la jeune femme: elle n'était pas vierge et n'était qu'au stade avancé de l'Établissement des Fondations. Cependant, sa puissance spirituelle était très faible; elle avait manifestement atteint ce niveau grâce à de nombreux médicaments.
 
 Wang Lin avait déjà quelques pressentiments sur la situation.
 
@@ -218,7 +218,7 @@ Wang Lin se leva et dit d'un ton calme: « Maintenant? Montrez-moi le chemin! »
 
 Le vieillard fut stupéfait. Après une hésitation, il finit par dire: « Très bien. Confrère Wang, suivez-moi. »
 
-En un clin d'œil, les deux quittèrent la ville de Lian Mo. À trois mille kilomètres de là se trouvait un bassin. Peu après, ils arrivèrent sur place. Wang Lin déploya son Sens Divin et laissa échapper un ricanement intérieur. Il avait déjà compris que quelque chose clochait: le vieillard semblait trop bien le connaître, et la servante s'était immédiatement approchée d'eux à leur arrivée. Tout cela n'était qu'une machination.
+En un clin d'œil, les deux quittèrent la ville de Lian Mo. À mille cinq cents kilomètres de là se trouvait un bassin. Peu après, ils arrivèrent sur place. Wang Lin déploya son Sens Divin et laissa échapper un ricanement intérieur. Il avait déjà compris que quelque chose clochait: le vieillard semblait trop bien le connaître, et la servante s'était immédiatement approchée d'eux à leur arrivée. Tout cela n'était qu'une machination.
 
 Wang Lin avait délibérément utilisé l'excuse de "l'ami portant le même nom" pour tester le vieillard et, grâce à son puissant Sens Divin, il avait remarqué que les émotions de ce dernier s'étaient troublées. Tout se confirmait exactement comme il l'avait prédit.
 

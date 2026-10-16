@@ -24,15 +24,15 @@ Cependant, dès leur apparition, six d'entre eux s'estompèrent immédiatement a
 
 Le visage de Punnan Zi eut un léger tressaillement et son expression s'assombrit. L'air autour de lui sembla soudain ralentir et, bientôt, même l'eau cessa de goutter du plafond.
 
-Si des cultivateurs au stade de la Séparation Spirituelle avaient été présents, leurs yeux se seraient illuminés, car influencer les fluctuations de l'énergie spirituelle environnante pour exécuter certaines techniques était un privilège réservé à ceux ayant atteint ce stade.
+Si des cultivateurs au stade de la Formation de l'Âme avaient été présents, leurs yeux se seraient illuminés, car influencer les fluctuations de l'énergie spirituelle environnante pour exécuter certaines techniques était un privilège réservé à ceux ayant atteint ce stade.
 
-Punnan Zi se trouvait à la limite du stade de la Séparation Spirituelle. Pour lui, l'objectif n'était plus éloigné. La seule chose qui le séparait de ce stade était une barrière aussi fine qu'une feuille de papier; il lui suffisait de trouver le point de rupture opportun.
+Punnan Zi se trouvait à la limite du stade de la Formation de l'Âme. Pour lui, l'objectif n'était plus éloigné. La seule chose qui le séparait de ce stade était une barrière aussi fine qu'une feuille de papier; il lui suffisait de trouver le point de rupture opportun.
 
 Punnan Zi fixa les points lumineux sur la paroi. Après un long moment, il soupira et dit: « Teng Huayuan, qui as-tu offensé pour attirer une telle calamité sur toi? »
 
-« S'il n'était pas vrai que Lord Shi voulait spécifiquement utiliser la famille Teng comme cobaye, ce vieil homme ne voudrait vraiment pas s'encombrer des affaires de votre clan! » Le visage de Punnan Zi devint lugubre. Même lui ignorait ce qui, dans la famille Teng, avait poussé Lord Shi à les choisir.
+« S'il n'était pas vrai que Seigneur Shi voulait spécifiquement utiliser la famille Teng comme cobaye, ce vieil homme ne voudrait vraiment pas s'encombrer des affaires de votre clan! » Le visage de Punnan Zi devint lugubre. Même lui ignorait ce qui, dans la famille Teng, avait poussé Seigneur Shi à les choisir.
 
-Sans cela, avec les seules ressources de la famille Teng, il n'y aurait eu aucun moyen qu'ils acquièrent soudainement neuf cultivateurs de l'Âme Naissante, et que Teng Huayuan devienne presque aussi puissant que Punnan Zi en seulement quatre cents ans.
+Sans cela, avec les seules ressources de la famille Teng, il n'y aurait eu aucun moyen qu'ils acquièrent soudainement quelques cultivateurs de l'Âme Naissante, et que Teng Huayuan devienne presque aussi puissant que Punnan Zi en seulement quatre cents ans.
 
 Il réfléchit un instant, puis se leva, agita ses manches et disparut.
 
@@ -44,9 +44,9 @@ Punnan Zi agita alors la main et déclara: « Moi, Punnan Zi, issu d'un pays de 
 
 Il s'agissait de deux disques magiques. Sur ces disques, quatre lames émettaient une lueur glaciale, provoquant même des déchirures dans l'espace environnant.
 
-Il était évident qu'il ne s'agissait pas d'un trésor de niveau Âme Naissante, mais d'un objet forgé par un expert du stade de la Séparation Spirituelle ou supérieur.
+Il était évident qu'il ne s'agissait pas d'un trésor de niveau Âme Naissante, mais d'un objet forgé par un expert du stade de la Formation de l'Âme ou supérieur.
 
-Punnan Zi s'inclina respectueusement à plusieurs reprises avant d'y imprimer son Sens Divin et de les ranger soigneusement dans son sac de rangement. Ce n'est qu'alors qu'il se détendit enfin. Une puissante intention meurtrière commença à émaner de lui alors qu'il marmonnait: « Teng Huayuan, c'est la dernière fois que je t'aide. Si, d'ici cent ans, la famille Teng n'a toujours pas produit de cultivateur de la Séparation Spirituelle, ne me blâme pas d'être impitoyable envers ton clan! »
+Punnan Zi s'inclina respectueusement à plusieurs reprises avant d'y imprimer son Sens Divin et de les ranger soigneusement dans son sac de rangement. Ce n'est qu'alors qu'il se détendit enfin. Une puissante intention meurtrière commença à émaner de lui alors qu'il marmonnait: « Teng Huayuan, c'est la dernière fois que je t'aide. Si, d'ici cent ans, la famille Teng n'a toujours pas produit de cultivateur de la Formation de l'Âme, ne me blâme pas d'être impitoyable envers ton clan! »
 
 Sur ces mots, il disparut sans laisser de trace.
 
@@ -68,15 +68,15 @@ Dans les profondeurs de cette fosse se trouvait un cercueil de cristal noir. Ce 
 
 Parmi ces ossements jonchaient les restes d'humains et de bêtes, appartenant à tous ceux qui avaient été aspirés au cours des quatre derniers siècles.
 
-C'était là que cultivait l'individu que Teng Huit craignait le plus. C'était la zone de culture de Teng Un.
+C'était là que cultivait l'individu que Teng Huit craignait le plus. C'était la zone de culture de Teng Yi.
 
-Teng Un était une légende au sein de la famille Teng.
+Teng Yi était une légende au sein de la famille Teng.
 
-Cet homme n'était pas un descendant de Teng Huayuan, mais précisément son frère cadet. Il était le seul membre principal du clan que personne n'osait défier, et le seul à porter le nom de Teng Un depuis quatre cents ans.
+Cet homme n'était pas un descendant de Teng Huayuan, mais précisément un cadet de son clan. Il était le seul membre principal du clan que personne n'osait défier, et le seul à porter le nom de Teng Yi depuis quatre cents ans.
 
-Lorsque Wang Lin entra dans un rayon de mille kilomètres de la fosse, il perçut l'étrangeté des lieux. Après réflexion, il décida de ne pas laisser la bête mosquito continuer sa route et s'envola seul vers l'objectif.
+Lorsque Wang Lin entra dans un rayon de cinq cents kilomètres de la fosse, il perçut l'étrangeté des lieux. Après réflexion, il décida de ne pas laisser la bête-moustique continuer sa route et s'envola seul vers l'objectif.
 
-À peine Wang Lin eut-il franchi la limite des mille kilomètres que des mains desséchées jaillirent du cercueil. Lentement, un homme à l'aspect squelettique se redressa.
+À peine Wang Lin eut-il franchi la limite des cinq cents kilomètres que des mains desséchées jaillirent du cercueil. Lentement, un homme à l'aspect squelettique se redressa.
 
 Son corps entier était d'un noir profond, dépourvu de toute musculature. Il ne lui restait que quelques mèches de cheveux sur le crâne. Sa silhouette était terrifiante.
 
@@ -96,7 +96,7 @@ Il ne semblait nullement affecté. Son corps dégageait une volonté de combat f
 
 Le visage de Wang Lin était livide. Il sentait clairement que, d'un instant à l'autre, les éclairs rouges du Royaume Ji avaient été bloqués au prix de la perte d'un bras.
 
-Une telle chose ne s'était jamais produite auparavant. Wang Lin pouvait confirmer que le niveau de culture de cet individu n'atteignait pas encore la Séparation Spirituelle, et pourtant, il pouvait parer une attaque du Royaume Ji.
+Une telle chose ne s'était jamais produite auparavant. Wang Lin pouvait confirmer que le niveau de culture de cet individu n'atteignait pas encore la Formation de l'Âme, et pourtant, il pouvait parer une attaque du Royaume Ji.
 
 Dès que l'homme commença sa remontée fulgurante, Wang Lin entoura la zone avec son drapeau de restriction sans hésiter. Sa main forma un sceau et quatre-vingt-dix restrictions prirent la forme de dragons pour charger vers la fosse.
 

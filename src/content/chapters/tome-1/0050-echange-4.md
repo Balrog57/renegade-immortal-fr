@@ -32,7 +32,7 @@ Les visages de l'assistance changèrent radicalement. Huang Long plissa les yeux
 
 L'Ancien Ouyang secoua la tête. Il dit: « Huang Long, comme tu peux le voir, ce talisman ne peut être créé par quiconque n'est pas au stade de l'Âme Naissante. Pour te dire la vérité, un ancêtre de la Secte Xuan Dao est revenu du champ de bataille d'un pays de rang 4 et m'a rapporté que tous les ancêtres de la Secte Heng Yue sont morts! »
 
-L'expression de Huang Long se décomposa. Après une longue réflexion, il dit: « Ancien Ouyang, cessez vos fadauderies, sinon ne blâmez pas la Secte Heng Yue pour son manque de clémence! »
+L'expression de Huang Long se décomposa. Après une longue réflexion, il dit: « Ancien Ouyang, cessez vos fadaises, sinon ne blâmez pas la Secte Heng Yue pour son manque de clémence! »
 
 L'Ancien Ouyang sourit et dit: « Notre Secte Xuan Dao n'a pas encore pris cette montagne par la force en raison de notre amitié, nous vous offrons donc une chance équitable lors de cet échange. Si la Secte Heng Yue gagne cette fois, alors nous vous laisserons tranquilles. Mon message est passé. Huang Long, poursuivons cet échange. »
 
@@ -40,7 +40,7 @@ Les disciples internes de la Secte Heng Yue étaient tous confus, mais ils senta
 
 Wang Lin fut alarmé. Il semblait que ce que Situ Nan avait dit soit vrai: le monde de la culture était véritablement divisé par les rangs.
 
-Le visage de Sun Dazhu était livide et son regard éteint. Il murmura pour lui-même: « C'est fini... tout est fini... tous les ancêtres de la Secte Heng Yue sont morts. Auparavant, nous pouvions au moins compter sur eux pour intimider les autres sectes et tenir bon, mais maintenant qu'ils sont morts, c'est la fin. Maudit soit ce destin! Si les pays de rang 4 n'avaient pas envahi la région il y a 500 ans pour voler l'Étoile du Dragon, entraînant le retrait de tous les cultivateurs de l'Âme Naissante du pays, la Secte Heng Yue n'en serait pas arrivée là. »
+Le visage de Sun Dazhu était livide et son regard éteint. Il murmura pour lui-même: « C'est fini... tout est fini... tous les ancêtres de la Secte Heng Yue sont morts. Auparavant, nous pouvions au moins compter sur eux pour intimider les autres sectes et tenir bon, mais maintenant qu'ils sont morts, c'est la fin. Maudit soit ce destin! Si le pays Qinglong, un pays de rang 4, n'avait pas, il y a 500 ans, drainé tous les cultivateurs de l'Âme Naissante de Zhao pour la lutte autour des étoiles de culture extérieures, la Secte Heng Yue n'en serait pas arrivée là. »
 
 Huang Long, percevant l'inquiétude de ses frères et des disciples internes, réprima l'agitation dans son cœur et cria: « Tout le monde à la Secte Heng Yue, cessez de paniquer! Que cela soit vrai ou non, ce sera vérifié par l'Ancien de la Formation du Noyau. De quoi vous inquiétez-vous? Lu Song, continue l'échange! »
 
@@ -62,7 +62,7 @@ Le talisman jaune commença soudain à briller d'une lueur aveuglante, tel un pe
 
 En voyant cela, Wang Lin fut stupéfait; il possédait lui aussi l'un de ces talismans.
 
-« C'est un talisman magique! » Lu Song fronça les sourcils. Il agita ses manches et deux dragons blancs s'envolèrent. Après une brève rotation, ils chargèrent Xu Mu à une vitesse fulgurante.
+« C'est un trésor magique! » Lu Song fronça les sourcils. Il agita ses manches et deux dragons blancs s'envolèrent. Après une brève rotation, ils chargèrent Xu Mu à une vitesse fulgurante.
 
 Xu Mu laissa échapper un rire pitoyable. Il utilisait toute son énergie pour résister au poing géant qui s'était abattu sur lui; il n'avait plus rien pour contrer ces deux dragons blancs.
 
@@ -76,7 +76,7 @@ Xu Mu s'éclipsa rapidement avec son talisman jaune, semblant avoir eu une chanc
 
 Le visage de Huang Long s'assombrit. Il cria: « Secte Xuan Dao, ne dépassez pas les bornes! » Les Anciens à ses côtés étaient également furieux. Certains, plus impétueux, sortirent déjà leurs trésors, prêts au combat.
 
-Les disciples internes, témoins de la scène, bouillonnaient de colère. Les deux derniers disciples vêtus de jaune tournèrent tous leur regard vers l'homme d'âge mûr debout à l'arrière de la Secte Xuan Dao.
+Les disciples internes, témoins de la scène, bouillonnaient de colère. Les deux derniers disciples vêtus de violet tournèrent tous leur regard vers l'homme d'âge mûr debout à l'arrière de la Secte Xuan Dao.
 
 C'était lui qui avait poussé ce reniflement glacial plus tôt.
 

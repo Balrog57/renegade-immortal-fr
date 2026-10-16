@@ -24,7 +24,7 @@ L'expression de Xu Tao changea légèrement tandis qu'il se postait aux côtés 
 
 Peu après, on entendit le bruit de pas légers s'approcher. Bientôt, un cultivateur aux grandes oreilles entra, accompagné du petit cultivateur que Wang Lin avait laissé partir plus tôt.
 
-Le visage de Xu Tao fut instantanément déformé par la terreur. Il reconnut immédiatement que ce cultivateur aux grandes oreilles était celui qui avait contraint le roi à se terrer dans le palais. Son cœur fut plongé dans le chaos, mais après avoir jeté un regard à Wang Lin, il se força à ne pas reculer.
+Le visage de Xu Tao fut instantanément déformé par la terreur. Il reconnut immédiatement que ce cultivateur aux grandes oreilles était celui qui avait contraint le prince à se terrer dans le palais. Son cœur fut plongé dans le chaos, mais après avoir jeté un regard à Wang Lin, il se força à ne pas reculer.
 
 Dès qu'il eut franchi le seuil de la boutique, le petit cultivateur éclata d'un rire et s'écria: « Maître, c'est lui qui m'a blessé! » En se retournant, il fut surpris de constater que son maître ne regardait pas l'agresseur, mais les sculptures sur bois qui les entouraient.
 
@@ -66,7 +66,7 @@ Le petit cultivateur voulut lancer un regard noir à Wang Lin, mais voyant que s
 
 Même Xu Tao trouva les paroles de Wang Lin excessives. Il devint plus prudent encore, craignant que le cultivateur aux grandes oreilles n'entre dans une rage noire.
 
-À sa grande surprise, après avoir fini de méditer, le cultivateur aux grandes oreilles ne se misalkan pas en colère; il afficha au contraire un sourire amer.
+À sa grande surprise, après avoir fini de méditer, le cultivateur aux grandes oreilles ne se mit pas en colère; il afficha au contraire un sourire amer.
 
 Avec son niveau de culture, le petit cultivateur était incapable de percevoir la lutte sous-jacente entre Zhou Wutai et Wang Lin. Quant à Xu Tao, n'étant qu'un mortel, il était impuissant à ressentir la dangerosité de cet échange.
 
@@ -96,7 +96,7 @@ Son chemin semblait empreint d'émotion, mais était impitoyable; et pourtant, a
 
 C'est pourquoi sa réplique fut une véritable contre-attaque. D'abord, en rappelant la limite des cent ans. Ensuite, en exposant la nature impitoyable de Zhou Wutai et en invoquant la tristesse future de ce dernier. Simultanément, il semait une graine de doute dans le cœur du petit cultivateur.
 
-Zhou Wutai esquissa un sourire amer, regarda Wang Lin, puis se leva. Il joignit les mains, hésita un instant, avant de dire à Xu Tao: « Dites à votre roi de livrer l'objet au temple sous trois jours, et je laisserai passer cela. » Sur ces mots, il jeta un dernier regard à Wang Lin avant de tourner le dos et de partir.
+Zhou Wutai esquissa un sourire amer, regarda Wang Lin, puis se leva. Il joignit les mains, hésita un instant, avant de dire à Xu Tao: « Dites à votre prince de livrer l'objet au temple sous trois jours, et je laisserai passer cela. » Sur ces mots, il jeta un dernier regard à Wang Lin avant de tourner le dos et de partir.
 
 Le petit cultivateur, totalement déconcerté, suivit précipitamment son maître. Il avait le sentiment d'avoir vécu une journée extrêmement étrange: son maître n'avait pas agi normalement et ne s'était pas vengé pour lui.
 
@@ -116,6 +116,6 @@ Il observa alors attentivement et constata que rien n'était arrivé à la bouti
 
 Même son Altesse Royale lui avait ordonné d'offrir des cadeaux à Wang Lin chaque année lors du Nouvel An. Comme il le faisait depuis plus de dix ans, lorsque le danger menaçait, la première personne à laquelle il pensait était Wang Lin.
 
-Mais il n'aurait jamais imaginé que Wang Lin soit assez puissant pour forcer celui qui avait contraint le roi à se cacher dans le palais et les immortèles eux-mêmes à renoncer si facilement.
+Mais il n'aurait jamais imaginé que Wang Lin soit assez puissant pour forcer celui qui avait contraint le prince à se cacher dans le palais et les immortèles eux-mêmes à renoncer si facilement.
 
 Il faut dire qu'il y a quelques jours à peine, Son Altesse aurait souhaité pouvoir lui céder le Ding de Pluie pour sauver sa propre vie.

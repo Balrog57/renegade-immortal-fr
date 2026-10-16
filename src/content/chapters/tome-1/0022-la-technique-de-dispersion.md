@@ -16,7 +16,7 @@ Fort de cette pensée, il sortit aussitôt la gourde contenant la meilleure ros�
 
 Peu après, toute la rosée fut versée. Un demi-bol en pierre se retrouva rempli d'un liquide verdâtre dégageant une odeur particulièrement rafraîchissante. En humant ce parfum, Wang Lin sentit son corps se détendre.
 
-Craignant que cette fragrance n'attire l'attention des experts dissimulés au sein de la secte, il précipita la perle de pierre dans le bol. Après un instant, celle-ci en absorba une partie.
+Craignant que cette fragrance n'attire l'attention des autres membres de la secte, il précipita la perle de pierre dans le bol. Après un instant, celle-ci en absorba une partie.
 
 Wang Lin fut quelque peu déçu; il espérait un changement soudain et spectaculaire. Pourtant, la perle se contentait d'absorber l'essence du liquide. Il réfléchit un moment, puis plaça le bol en pierre près de son lit avant de s'asseoir pour commencer sa culture.
 
@@ -52,7 +52,7 @@ Il comprit qu'il avait commis une erreur tragique, mais il était impuissant. Il
 
 Il se dit que si le rythme « une longue, trois courtes » servait à rassembler l'énergie spirituelle, alors l'inverse devait servir à la disperser.
 
-L'intuition de Wang Lin était tout à fait juste. La plupart des cultivateurs connaissaient cette technique, car elle constituait l'étape précédant l'Établissement des Fondations.
+L'intuition de Wang Lin était tout à fait juste. La plupart des cultivateurs connaissaient cette technique, car elle servait de préparation à la dispersion de la culture, pour la reprendre depuis le début.
 
 Sous l'effet de sa respiration, des flux d'énergie spirituelle s'échappèrent de chaque pore de son corps, pour être aussitôt aspirés par la perle de pierre nichée sous son lit.
 
@@ -60,7 +60,7 @@ Au fil du temps, la sensation de gonflement s'atténua progressivement et ses va
 
 Cette coïncidence providentielle permit à Wang Lin d'expulser l'Herbe de Dispersion du Qi de son organisme.
 
-Pour forcer l'expulsion de l'Herbe de Dispersion du Qi, une méthode consistait à saturer le corps d'une immense quantité d'énergie spirituelle pour la rejeter par la force. C'était la stratégie de Sun Dazhu, mais celui-ci, ayant changé d'attitude envers Wang Lin et refusant de gaspiller ses précieuses herbes, avait renoncé.
+Pour forcer l'expulsion de l'Herbe de Dispersion du Qi, une méthode consistait à consumer l'herbe petit à petit à l'aide d'une immense quantité d'énergie spirituelle, jusqu'à la dissoudre. C'était la stratégie de Sun Dazhu, mais celui-ci, ayant changé d'attitude envers Wang Lin et refusant de gaspiller ses précieuses herbes, avait renoncé.
 
 La seconde méthode consistait à utiliser la technique de dispersion: vider intégralement son corps de toute énergie spirituelle pour recommencer sa culture depuis le début. Sun Dazhu n'avait pas opté pour cette voie car Wang Lin ne possédait presque aucune énergie spirituelle; il lui était donc impossible d'enclencher un tel processus.
 

@@ -24,13 +24,13 @@ Les fissures commencèrent à se refermer, parvenant à contenir l'attaque de l'
 
 « Qu'est-ce que c'est? » Les yeux de l'homme d'âge moyen se plissèrent. Il fixa Wang Lin et lança: « Il semble que tu ne sois pas seulement au 8e niveau. Cependant, même si tu es au stade de l'Établissement des Fondations, tu ne pourras échapper vivant à mon épée volante! »
 
-Sur ces mots, l'homme d'âge moyen pointa du doigt, le regard empreint de gravité. Il agita la main, et l'épée volante revint se loger dans son fourreau. Cette fois, elle ne s'y enfonça qu'à moitié; sa couleur passa du bleu au noir avant de jaillir à nouveau du fourreau.
+Sur ces mots, l'homme d'âge moyen pointa du doigt, le regard empreint de gravité. Il agita la main, et l'épée volante revint se loger dans son fourreau. Cette fois, elle ne s'y enfonça que sur deux cinquièmes de sa longueur; sa couleur passa du bleu au noir avant de jaillir à nouveau du fourreau.
 
 Une lueur froide traversa les yeux de Wang Lin. C'était la première fois qu'il affrontait un adversaire ayant le même niveau de culture que lui. Bien que leurs niveaux soient identiques, son opposant possédait manifestement de meilleurs trésors magiques. Wang Lin sentait que l'épée était devenue bien plus puissante et que le jade de Zhou Peng ne pourrait pas résister.
 
 Sans hésiter, il frappa son sac de rangement et en sortit un jade antique. Dès son apparition, ce dernier libéra une aura majestueuse.
 
-Ce jade antique était le trésor salvateur que Liu Wenju avait confié à Wang Lin.
+Ce jade antique provenait du sac de rangement de Sun Dazhu; c'était l'objet le plus puissant qu'il contenait.
 
 Wang Lin ne cilla même pas. Il cracha une bouffée d'énergie spirituelle et la dirigea vers le jade antique. Instantanément, de nombreux symboles dorés s'échappèrent de l'artefact.
 
@@ -48,8 +48,7 @@ Telle une bête capturée, l'épée émit un bourdonnement strident. Elle charge
 
 L'expression de l'homme d'âge moyen changea enfin: « Ceci... est un trésor de niveau Noyau? »
 
-Wang Lin avait appris de Situ Nan ce qu'était un trésor de niveau Noyau: un trésor forgé par un cultivateur de la Formation du Noyau. Si un cultivateur de l'Âme Naissante en fabriquait un, on l'appelait alors un Trésor de l'Âme Naissante.
-
+Wang Lin avait appris de Situ Nan ce qu'était un trésor de niveau Noyau: un trésor forgé par un cultivateur de la Formation du Noyau.
 Une panique soudaine envahit l'homme d'âge moyen. Il agita la main pour tenter de saisir son fourreau.
 
 Wang Lin esquissa un sourire glacial. Le sceau de sa main changea. Les six symboles restants s'illuminèrent instantanément et chargèrent vers l'homme d'âge moyen.
@@ -80,4 +79,4 @@ Une fois terminé, il prit une grande inspiration. Son front était couvert de s
 
 Wang Lin hocha la tête. Sans dire un mot, il examina avec curiosité le trésor qu'il tenait en main.
 
-Situ Nan expliqua: « Cette épée volante est vraiment étrange. Ce petit objet pouvait déployer toute sa puissance. Cependant, le véritable trésor ici, c'est ce fourreau. »
+Situ Nan expliqua: « Cette épée volante est vraiment étrange. Ce gamin n'a pas du tout exploité son véritable potentiel. Cependant, le véritable trésor ici, c'est ce fourreau. »

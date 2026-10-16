@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 251 - Spiritual Retreat
 slug: retraite-spirituelle
 ---
-Wang Lin passa la nuit à condenser l'aura maléfique qui l'entourait. Dans le silence de la nuit, hormis le chant des grillons, on n'entendait que le ronflement de certains hommes.
+Wang Lin passa la nuit à condenser l'aura maléfique qui l'entourait. Dans le silence de la nuit, hormis le bourdonnement de quelques moustiques, on n'entendait que le ronflement de certains hommes.
 
 Peu à peu, le soleil s'éleva dans le ciel et le jour remplaça la nuit.
 
@@ -16,11 +16,11 @@ Le cycle se poursuivit. Wang Lin sentait son corps d'une légèreté absolue, co
 
 Ce genre de sensation était quelque chose que Wang Lin n'avait jamais éprouvé au cours des 400 dernières années. Il était évident qu'il ne pouvait ressentir cette aura céleste qu'en atteignant un certain état de sérénité mentale.
 
-En une seule nuit, la substance rouge entourant Wang Lin s'était à nouveau réduite au dixième de sa taille précédente. Wang Lin n'était pas pressé; il savait que condenser cette substance rouge n'était pas une tâche que l'on pouvait précipiter. Il était convaincu que cela prendrait beaucoup de temps.
+En une seule nuit, la substance rouge entourant Wang Lin s'était à nouveau réduite d'un dixième. Wang Lin n'était pas pressé; il savait que condenser cette substance rouge n'était pas une tâche que l'on pouvait précipiter. Il était convaincu que cela prendrait beaucoup de temps.
 
 Tôt le matin, les voyageurs s'éveillèrent un à un pour se laver. Le vieil homme sortit de la calèche et prit une profonde inspiration, avant de commencer à exécuter divers mouvements corporels.
 
-D'un seul regard, Wang Lin fut frappé de stupeur. Bien que les mouvements de cet homme n'aient aucune puissance offensive, chaque geste renforçait le corps. Utilisés en séquence, leurs effets étaient décuplés.
+D'un seul regard, Wang Lin fut frappé de stupeur. Bien que les mouvements de cet homme n'aient aucune puissance offensive, chaque geste renforçait le corps. Enchaînés, leurs effets étaient bien meilleurs.
 
 Peu après, le vieil homme s'arrêta et laissa échapper un soupir. Il hésita un instant, puis se dirigea vers Wang Lin.
 
@@ -28,7 +28,7 @@ En approchant, il sourit et demanda: « Petit frère, as-tu bien dormi cette nui
 
 Wang Lin hocha silencieusement la tête.
 
-Le vieil homme marqua une pause avant de demander: « Je voulais savoir où ce petit frère a trouvé cette feuille de saule centenaire? » Ses yeux étaient alors empreints d'un regard suppliant.
+Le vieil homme marqua une pause avant de demander: « Je voulais savoir où ce petit frère a trouvé cette feuille de saule centenaire? » Ses yeux étaient alors empreints d'une vive curiosité.
 
 Wang Lin répondit: « Je l'ai ramassée au bord de la route. »
 
@@ -74,7 +74,7 @@ Wang Lin détourna le regard. Il sourit, mais resta silencieux.
 
 Sur un pont reliant les quartiers nord et sud de la capitale, Wang Lin prit congé du groupe de Lu Xing. Bien qu'ils ne se soient pas connus longtemps, Lu Xing s'était beaucoup attaché à lui. Il lui tapota la poitrine en lui assurant que s'il rencontrait le moindre problème, il pourrait venir le trouver pour obtenir de l'aide.
 
-Quant à Lao Er, qui avait dû céder son cheval à Wang Lin, il l'avait pleinement accepté après avoir partagé tant de repas avec lui. Lu Xing promit également que si quelqu'un s'en prenait à Wang Lin, il ferait personnellement intervenir son patron.
+Quant à Lao Er, qui avait dû céder son cheval à Wang Lin, il l'avait pleinement accepté après avoir tant bu avec lui. Il promit lui aussi que si quelqu'un s'en prenait à Wang Lin, il interviendrait en personne.
 
 Enfin, le vieil homme sortit de la calèche. Derrière lui se tenait une jeune dame portant un voile blanc sur la tête, accompagnée de la jolie servante.
 
@@ -82,7 +82,7 @@ Voyant que Wang Lin s'apprêtait à partir, les yeux de la servante se rempliren
 
 Le vieil homme discuta brièvement avec Wang Lin tandis que la dame voilée souriait. Elle ne prit pas part à la conversation. Après une révérence, elle se détourna et partit sans un mot.
 
-La servante échangea quelques mots avec la dame, puis, saisissant une petite bourse, s'approcha de Wang Lin. Elle lui tendit l'objet en disant: « Ma sœur veut vous remercier. Il y a dix pièces d'or ici. C'est votre prix de consultation. »
+La servante échangea quelques mots avec la dame, puis, saisissant une petite bourse, s'approcha de Wang Lin. Elle lui tendit l'objet en disant: « Ma maîtresse veut vous remercier. Il y a dix pièces d'or ici. C'est votre prix de consultation. »
 
 Wang Lin ne refusa pas. Cela faisait plus de 400 ans qu'il n'avait pas touché la monnaie des mortels.
 
@@ -94,7 +94,7 @@ Wang Lin serrait les dix pièces d'or dans sa main tout en arpentant la capitale
 
 Peu après, les yeux de Wang Lin s'illuminèrent légèrement. Dans cette capitale du monde mortel, il aperçut de nombreux cultivateurs parmi la foule.
 
-Bien que le niveau le plus élevé ne soit que d'environ la 12e ou la 14e couche de Condensation de Qi, c'était une rareté dans les autres pays.
+Bien que le niveau le plus élevé ne soit que d'environ la 12e ou la 13e couche de Condensation de Qi, c'était une rareté dans les autres pays.
 
 Après réflexion, il repensa aux piliers noirs. Il devina qu'il s'agissait là d'une particularité des pays de culture de rang 4.
 
@@ -104,7 +104,7 @@ En passant, Wang Lin entrait dans certaines boutiques pour les examiner. Soudain
 
 Les gémissements du vieil homme étaient incessants et sa voix était stridente. Parallèlement, des rires éclataient tandis que l'homme crachait des bouffées de sang. Cela semblait suivre un rythme précis: chaque coup de poing provoquait une nouvelle hémorragie.
 
-Après avoir frappé le vieillard à plusieurs reprises, l'agresseur se redressa et cracha: « Vieux débris, ne reviens plus dans ma boutique! Je te tabasserai à chaque fois que tu oseras revenir. Tu es déjà si vieux et pourtant toujours aussi stupide! » Sur ces mots, il cracha sur le vieil homme.
+Après avoir frappé le vieillard à plusieurs reprises, l'agresseur se redressa et cracha: « Vieux débris, ne reviens plus dans ma boutique! Je te tabasserai à chaque fois que tu oseras revenir. Tu es déjà si vieux et pourtant toujours aussi dépravé! » Sur ces mots, il cracha sur le vieil homme.
 
 Un homme d'âge moyen, debout près de Wang Lin, soupira: « Ce vieux fou se fait battre tous les jours juste pour voir les servantes changer de tenue. Est-ce que ça en vaut la peine? Ah! »
 
@@ -148,7 +148,7 @@ Le vieil homme saisit un morceau d'épaule de porc, prit une grande bouchée et 
 
 Il dévora ensuite l'épaule de porc en quelques bouchées. Il laissa échapper un rot, se frotta le ventre et déclara: « Le stade de la Formation de l'Âme exige que l'on comprenne les cieux, mais je crois que tu as déjà compris cela. En plus de cela, tu dois former un domaine. Sais-tu ce qu'est un domaine? Petit gars, une fois que tu comprendras ce qu'est un domaine, tu ne seras plus loin de la Formation de l'Âme. Quant au domaine... nous en parlerons davantage après mon passage aux toilettes. » Le vieil homme se toucha soudainement le ventre et se leva, l'air maussade.
 
-Craignant que Wang Lin ne le retienne, il lâcha un rot sonore. Une odeur fétide emplit la pièce.
+Craignant que Wang Lin ne le retienne, il lâcha un pet sonore. Une odeur fétide emplit la pièce.
 
 Le vieil homme esquissa un sourire embarrassé et quitta précipitamment les lieux.
 
@@ -158,7 +158,7 @@ Le doute s'installa, une lueur froide brillant dans ses yeux alors qu'il se leva
 
 Le corps de Wang Lin disparut du restaurant pour réapparaître à l'extérieur. Le regard froid, il suivit tranquillement l'homme.
 
-Il nota que le vieillard avait mystérieusement eu le temps de changer de vêtements. Il se curait les dents avec un petit bâtonnet de bois. Après avoir extrait un morceau de viande, il le jeta et recommença son geste.
+Il nota que le vieillard avait mystérieusement eu le temps de changer de vêtements. Il se curait les dents avec un petit bâtonnet de bois. Après avoir extrait un morceau de viande, il ne le jeta pas, mais le remit aussitôt dans sa bouche.
 
 Alors qu'il marchait, le vieil homme s'arrêta soudainement pour observer un homme d'âge moyen vêtu d'une robe violette. Ses yeux s'illuminèrent, il afficha un sourire et se dirigea rapidement vers l'inconnu.
 

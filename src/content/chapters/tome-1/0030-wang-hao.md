@@ -8,9 +8,9 @@ slug: wang-hao
 ---
 « Dois-je être encore plus déraisonnable? » Pour quitter la maison des corvées, Wang Lin était prêt à tout. Il voulait vraiment tester les limites de la patience des anciens.
 
-En privé, parmi les disciples honoraires, en plus des qualificatifs de « déchet » et de « sans vergogne », il s'était vu attribuer un autre titre: le Roi au Cœur Noir. Comparé au surnom du disciple Liu, « frelon », cela se situait à un tout autre niveau.
+En privé, parmi les disciples honoraires, en plus des qualificatifs de « déchet » et de « sans vergogne », il s'était vu attribuer un autre titre: le Roi au Cœur Noir. Comparé au surnom du disciple Liu, « la Belette », cela se situait à un tout autre niveau.
 
-Après avoir pratiqué pendant un an dans l'espace de rêve, l'énergie spirituelle dans son corps avait décuplé. Il avait atteint la limite du premier niveau. Peu importe ses efforts de culture, son énergie spirituelle n'augmentait plus. Ainsi, une nuit, il entreprit d'utiliser le chant pour accéder au deuxième niveau.
+Après avoir pratiqué pendant un an dans l'espace de rêve, l'énergie spirituelle dans son corps avait été multipliée par plusieurs. Il avait atteint la limite du premier niveau. Peu importe ses efforts de culture, son énergie spirituelle n'augmentait plus. Ainsi, une nuit, il entreprit d'utiliser le chant pour accéder au deuxième niveau.
 
 Après tant d'échecs, ses efforts ne furent pas vains puisqu'il finit par percer et atteindre ce second stade.
 
@@ -20,11 +20,11 @@ Il se frotta le menton et songea: « Il ne me reste plus que le chant pour le tr
 
 Après avoir réfléchi un moment sans trouver de solution satisfaisante, il ne put s'empêcher de froncer les sourcils.
 
-Dans un soupir, Wang Lin commença à pratiquer la Technique d'Attraction de Force. Après une année d'entraînement, il réussissait désormais l'exercice dix fois sur dix. Ayant atteint ce degré de maîtrise, il décida de l'essayer sur quelque chose de plus difficile. Il trouva un grand rocher dans la maison des corvées et se mit au travail.
+Dans un soupir, Wang Lin commença à pratiquer la Technique d'Attraction de Force. Après une année d'entraînement, il réussissait désormais l'exercice huit ou neuf fois sur dix. Ayant atteint ce degré de maîtrise, il décida de l'essayer sur quelque chose de plus difficile. Il trouva un grand rocher dans la maison des corvées et se mit au travail.
 
 Un autre mois s'écoula. Le comportement de Wang Lin à la maison des corvées ne cessait d'irriter les disciples honoraires. L'hiver était arrivé et la secte commençait à se préparer pour la compétition annuelle des disciples internes.
 
-Cette année marquait la compétition des disciples honoraires de la Secte Heng Yue, un événement qui n'avait lieu que tous les dix ans. Si l'un d'eux se classait parmi les trois premiers, il deviendrait un disciple interne. Tous les disciples honoraires affinaient leurs techniques de combat et complotaient secrètement.
+Cette année marquait la compétition des disciples honoraires de la Secte Heng Yue, un événement qui n'avait lieu que tous les dix ans. Si l'un d'eux se classait parmi les trois premiers, il obtiendrait le droit de devenir l'assistant d'un disciple interne. Tous les disciples honoraires affinaient leurs techniques de combat et complotaient secrètement.
 
 Par conséquent, les tâches liées à la maison des corvées subissaient des retards, car chacun était trop occupé.
 
@@ -52,7 +52,7 @@ Wang Hao eut un sourire en coin. Il entra et observa attentivement Wang Lin avan
 
 Répondit Wang Lin: « C'est naturel. J'ai atteint le deuxième niveau de la Condensation de Qi; je peux désormais me considérer comme un immortel! »
 
-La bouche de Wang Hao se crispa. Il entra dans la pièce et rétorqua: « Ne te vante pas. Nos talents sont à peu près de même niveau. J'ai bénéficié de l'aide de pilules immortelles et je n'ai toujours pas atteint le premier niveau. Alors toi, atteindre le deuxième? Impossible. »
+La bouche de Wang Hao se crispa. Il entra dans la pièce et rétorqua: « Ne te vante pas. Nos talents sont à peu près de même niveau. J'ai bénéficié de l'aide de pilules de Rassemblement de Qi et je n'ai toujours pas atteint le premier niveau. Alors toi, atteindre le deuxième? Impossible. »
 
 Wang Lin ne chercha pas à se justifier. Parfois, dire la vérité ne suffisait pas à être cru, et mentir risquait d'éveiller des soupçons. De toute façon, ses liens avec Wang Hao n'étaient pas profonds; mieux valait rester sur ses gardes. Accorder sa confiance au premier regard n'était pas dans les habitudes de Wang Lin.
 

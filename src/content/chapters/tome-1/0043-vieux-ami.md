@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Chapter 43 - Old Friend
 slug: vieux-ami
 ---
-Le mille-pattes devant lui mesurait cent pieds de long. Le poison qu'il contenait devait avoir atteint un niveau inimaginable. Wang Lin n'était pas étranger aux mille-pattes; beaucoup d'enfants en capturaient pour jouer, et d'autres les utilisaient pour nourrir leurs poulets.
+Le mille-pattes devant lui mesurait environ 330 mètres de long. Le poison qu'il contenait devait avoir atteint un niveau inimaginable. Wang Lin n'était pas étranger aux mille-pattes; beaucoup d'enfants en capturaient pour jouer, et d'autres les utilisaient pour nourrir leurs poulets.
 
 Parfois, ils se faisaient accidentellement mordre, mais il suffisait de laver la plaie avec beaucoup d'eau, de rester au lit quelques jours, et tout rentrait dans l'ordre.
 
@@ -18,7 +18,7 @@ Bien que la maladie de son père ait été guérie, elle avait laissé des racin
 
 Jusqu'à aujourd'hui, Wang Lin se souvenait encore de ce qui s'était passé alors.
 
-En contemplant ce mille-pattes d'un cent pieds, Wang Lin se caressa le menton. Si le venin des petits spécimens pouvait soulager la maladie de son père, alors celui de cette créature pourrait peut-être en extirper les racines une fois pour toutes.
+En contemplant ce mille-pattes de 330 mètres, Wang Lin se caressa le menton. Si le venin des petits spécimens pouvait soulager la maladie de son père, alors celui de cette créature pourrait peut-être en extirper les racines une fois pour toutes.
 
 Mais le mille-pattes devant lui était tout simplement trop colossal, et Wang Lin n'était qu'une minuscule créature face à lui. Il craignait de ne point parvenir à en extraire le poison et de finir par se blesser.
 
@@ -28,13 +28,13 @@ Après réflexion, il fixa le monstre et se dirigea vers la maison des pilules. 
 
 L'obscurité tombait déjà lorsque Wang Lin atteignit la maison des pilules et aperçut Wang Hao sortir prudemment par la porte latérale. En voyant Wang Lin, Wang Hao lui fit signe de se taire et de le suivre dehors.
 
-Wang Lin fut stupéfait. Il déploya son Sens Divin et découvrit que le troisième Ancien contemplait le fourneau avec une expression grave.
+Wang Lin fut stupéfait. Il déploya son Sens Divin et découvrit que le troisième frère aîné contemplait le fourneau avec une expression grave.
 
 Après avoir marché un moment, Wang Hao s'aperçut que Wang Lin l'avait silencieusement suivi. Il saisit Wang Lin et s'enfuit en courant. Ce n'est qu'après avoir parcouru une certaine distance qu'il put enfin reprendre son souffle.
 
 Essoufflé, Wang Hao lança un regard méfiant vers la maison des pilules avant de demander avec une lueur d'espoir: « Wang Lin, j'ai entendu dire que tu avais suivi l'entraînement intensif il y a quatre ans. À quel niveau es-tu maintenant? »
 
-« Le troisième niveau... qu'est-ce que c'est? » Wang Lin scanna Wang Hao avec son Sens Divin et constata que celui-ci était déjà au premier niveau, mais l'énergie spirituelle dans son corps était très étrange. L'énergie ne circulait pas normalement, elle suivait un chemin aberrant.
+« Le troisième niveau... Tiens? » Wang Lin scanna Wang Hao avec son Sens Divin et constata que celui-ci était déjà au premier niveau, mais l'énergie spirituelle dans son corps était très étrange. L'énergie ne circulait pas normalement, elle suivait un chemin aberrant.
 
 À chaque cycle de circulation, le flux dérobait une part de l'essence vitale de Wang Hao au sein de ses organes pour l'absorber.
 

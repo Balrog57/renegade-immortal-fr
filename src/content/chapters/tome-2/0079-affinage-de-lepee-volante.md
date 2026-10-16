@@ -15,11 +15,11 @@ Zhang Hu acquiesça: « Oui. Chaque mois, une grande foire est organisée et tou
 
 Wang Lin hocha la tête avec un sourire: « Quoi? Tu ne souhaites pas que je t'accompagne? Je ne possède guère de pierres spirituelles, je compte donc sur toi. »
 
-La famille Teng était une lignée de cultivateurs très célèbre dans le nord du pays de Zhao. Le chef de famille, Teng Xingsen, avait atteint le stade de l'Âme Naissante au cours des cinq dernières cent années, ce qui lui permettait de ne pas participer aux guerres des royaumes de rang 4. Il occupait également la fonction de ministre de la Vallée de Wu Feng, ce qui lui conférait un statut très élevé.
+La famille Teng était une lignée de cultivateurs très célèbre dans le nord du pays de Zhao. L'ancêtre fondateur, Teng Huayuan, avait atteint le stade de l'Âme Naissante au cours des cinq dernières cent années, ce qui lui permettait de ne pas participer aux guerres des royaumes de rang 4. Il était également conseiller invité de la Vallée de Wu Feng, ce qui lui conférait un statut très élevé.
 
 Grâce à un ancêtre tel que lui, personne n'osait défier la famille Teng, bien qu'elle ne fût pas une grande secte. La foire aux échanges de la famille Teng offrait une plateforme idéale pour le commerce entre cultivateurs. Au début de chaque mois, la ville de la famille Teng était en pleine effervescence.
 
-Là où les foules se pressent, les conflits ne manquent pas de surgir. Parfois, les gens s'entre-déchiraient dès leur rencontre. C’est pour cette raison que l'ancêtre de la famille Teng, Teng Xingsen, avait instauré une loi interdisant tout combat au sein de la cité. Il était strictement interdit à quiconque de se battre en ville. Dès que cet ordre fut promulgué, chacun s'y conforma, d'autant plus après que Teng Xingsen s'était déplacé personnellement pour massacrer quelques cultivateurs du stade de la Formation du Noyau.
+Là où les foules se pressent, les conflits ne manquent pas de surgir. Parfois, les gens s'entre-déchiraient dès leur rencontre. C’est pour cette raison que l'ancêtre de la famille Teng, Teng Huayuan, avait instauré une loi interdisant tout combat au sein de la cité. Il était strictement interdit à quiconque de se battre en ville. Dès que cet ordre fut promulgué, chacun s'y conforma, d'autant plus après que Teng Huayuan s'était déplacé personnellement pour massacrer deux cultivateurs du stade de la Formation du Noyau.
 
 Ce jour-là, deux arcs-en-ciel traversèrent le ciel en direction de la ville de la famille Teng. L'un d'eux dit: « Wang Lin, le vol est interdit dans la ville, nous devrons donc continuer à pied à partir d'ici. »
 
@@ -47,7 +47,7 @@ Les deux discutèrent un moment avant de regagner leurs quartiers respectifs.
 
 Wang Lin retourna dans sa chambre et s'assit en tailleur. Il sortit l'épée volante et le fourreau qui appartenaient au maître de Zhang Hu. Après les avoir observés longuement, ses yeux brillèrent et il projeta l'épée dans les airs. Sa main traça un sceau et pointa vers l'arme. Une lumière dorée jaillit de l'épée. Soudain, celle-ci s'anima comme si elle reprenait vie et tenta de s'enfuir.
 
-Alors qu'elle traversait la pièce à mi-vitesse, elle sembla heurter un mur invisible. Elle changea de direction pour charger à nouveau, mais fut stoppée une fois de plus. Après avoir tenté plusieurs trajectoires, l'épée s'immobilisa, émit un bourdonnement et fonça droit sur Wang Lin.
+Arrivée à mi-chemin de la pièce, elle sembla heurter un mur invisible. Elle changea de direction pour charger à nouveau, mais fut stoppée une fois de plus. Après avoir tenté plusieurs trajectoires, l'épée s'immobilisa, émit un bourdonnement et fonça droit sur Wang Lin.
 
 L'expression de Wang Lin resta sereine; il sortit son trésor de protection et projeta le symbole doré. L'épée sembla craindre ce symbole et recula. Wang Lin agita la main droite, et le symbole doré commença à graviter autour de lui. L'épée n'osa plus l'attaquer et se mit à charger sauvagement dans toutes les directions, de plus en plus vite.
 

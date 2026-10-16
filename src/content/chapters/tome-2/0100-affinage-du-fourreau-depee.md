@@ -16,11 +16,11 @@ Le cercueil était totalement vide, à l'exception d'une large ouverture d'où �
 
 Cette énergie était si dense que les ondes de puissance empêchaient le sens divin de Wang Lin de voir clair.
 
-Dans sa propre grotte, le regard de Wang Lin s'illumina d'une détermination farouche. Pour découvrir la source de cette énergie et comprendre pourquoi la perle pouvait l'absorber, il sortit la gourde de son sac de rangement et prit une longue gorgée sans l'ombre d'une hésitation.
+Dans sa propre grotte, le regard de Wang Lin s'illumina d'une détermination farouche. Pour découvrir la source de cette énergie et comprendre pourquoi la perle pouvait l'absorber, il sortit la gourde de son sac de rangement et prit une petite gorgée sans l'ombre d'une hésitation.
 
 Malgré sa condition physique actuelle, Wang Lin ne put s'empêcher de frissonner. Il perdait rapidement connaissance et son corps s'engourdissait. Sans perdre un instant, il fit circuler l'énergie spirituelle dans ses méridiens pour absorber l'énergie Yin. À mesure qu'il l'absorbait, son sens divin gagnait en puissance. Porté par ce flux constant, son sens divin s'élança à nouveau vers le trou du cercueil.
 
-Son sens divin lutta au cœur de l'ouverture, et à plusieurs reprises, l'énergie Yin faillit le disperser. Lorsqu'il atteignit une profondeur d'environ quatre cents mètres, l'énergie Yin forma un mur infranchissable.
+Son sens divin lutta au cœur de l'ouverture, et à plusieurs reprises, l'énergie Yin faillit le disperser. Lorsqu'il atteignit une profondeur d'environ mille trois cents mètres, l'énergie Yin forma un mur infranchissable.
 
 Wang Lin serra les dents et prit une immense gorgée de liquide spirituel Yin. Il chargea pour percer ce rempart et fut pétrifié par ce qu'il découvrit.
 
@@ -56,7 +56,7 @@ Après une longue réflexion, il renonça à s'y rendre en personne. Il comprit 
 
 Une fois sa décision prise, il frappa son sac de rangement, et un fourreau d'épée à l'aspect antique apparut, flottant devant lui.
 
-Depuis qu'il avait obtenu ce fourreau après avoir dérobé les fondations de Teng Li, Wang Lin ne l'avait affiné qu'une seule fois. Bien qu'il n'ait pas réussi l'affinement complet, il en avait acquis un certain contrôle, sans pour autant obtenir de résultats probants: il n'avait pu faire s'insérer l'épée volante que d'un tiers de sa longueur.
+Depuis qu'il avait obtenu ce fourreau après avoir dérobé les fondations de Teng Li, Wang Lin ne l'avait affiné qu'une seule fois. Bien qu'il n'ait pas réussi l'affinement complet, il en avait acquis un certain contrôle, sans pour autant obtenir de résultats probants: il n'avait pu faire s'insérer l'épée volante que sur trois cinquièmes de sa longueur.
 
 Wang Lin avait étudié ce fourreau maintes fois. Situ Nan lui avait même confié que cet objet était extrêmement étrange et qu'il avait plus de valeur que la petite épée volante ayant subi l'affinement par le sang.
 
@@ -80,6 +80,6 @@ Le temps s'écoula. Après ce long périple de vibrations, la lumière bleue qui
 
 Voyant le motif apparaître, Wang Lin se détendit légèrement. Il cessa d'envoyer des rayons pour réguler son énergie spirituelle, pensif: « Ma culture est environ cinq fois plus puissante qu'auparavant. Situ Nan m'a enseigné une méthode consistant à forcer l'apparition de la formation sur le fourreau en utilisant mon énergie spirituelle. La dernière fois, il m'avait fallu 5 000 assauts avant que la formation n'apparaisse, et j'étais trop épuisé pour continuer. Cette fois, elle est apparue après seulement 1 000 rayons. Bien que ma culture ait progressé, je suis encore loin de la Formation du Noyau. Situ Nan disait qu'à ce stade, seuls quelques rayons suffiraient à faire surgir la formation. »
 
-Il prit une profonde inspiration. Sa main droite traça un sceau et pointa son abdomen. Son ventre se rétracta alors qu'une expression de douleur marquait ses traits. Sa main redescendit lentement de son abdomen et, lorsqu'il ouvrit la bouche, un orbe bleu de la taille d'un nouveau-né s'en échappa pour flotter dans l'air.
+Il prit une profonde inspiration. Sa main droite traça un sceau et pointa son abdomen. Son ventre se rétracta alors qu'une expression de douleur marquait ses traits. Sa main redescendit lentement de son abdomen et, lorsqu'il ouvrit la bouche, un orbe bleu de la taille du poing d'un nourrisson s'en échappa pour flotter dans l'air.
 
 Le visage de Wang Lin était livide. Après avoir tenté de reprendre son souffle, il pointa brusquement son noyau froid. Soudain, celui-ci fondit en une flaque de liquide bleu. Le teint de Wang Lin devint encore plus pâle; il n'y avait pas la moindre trace de sang, mais son expression se fit plus grave encore tandis qu'il guidait avec précaution le noyau fondu vers le fourreau d'épée.

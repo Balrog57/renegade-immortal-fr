@@ -40,7 +40,7 @@ Tout en discutant, Wang Lin volait à une vitesse fulgurante, laissant derrière
 
 Après une journée de voyage, il pénétra dans la chaîne de montagnes méridionale de la Secte Heng Yue. Craignant d'attirer l'attention, il ralentit sa progression. Le deuxième jour, il atteignit le petit village.
 
-De loin, le village semblait identique à ses souvenirs. Seule sa propre maison avait changé: elle était passée d'une simple bâtisse à une demeure de trois pièces, arborant un immense panneau « Fortune » sur la porte principale. Bien que la lumière soit encore rare, on entendait le chant des coqs et les aboiements des chiens.
+De loin, le village semblait identique à ses souvenirs. Seule sa propre maison avait changé: elle était passée d'une simple bâtisse à une demeure en trois corps de bâtiments autour d'une cour, arborant un immense panneau « Fortune » sur la porte principale. Bien que la lumière soit encore rare, on entendait le chant des coqs et les aboiements des chiens.
 
 Tôt le matin, de la fumée s'échappait des habitations alors que chacun se levait pour préparer le petit-déjeuner.
 

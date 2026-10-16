@@ -16,7 +16,7 @@ Wang Hao soupira et, le visage empreint d'amertume, déclara: « Frère Tie Zhu,
 
 « Comment peut-il cultiver si rapidement? » Wang Lin n'avait pas vu Wang Zhuo depuis un certain temps et en était surpris. Il semblait que le talent jouait un rôle primordial.
 
-Wang Hao afficha une expression de colère et reprit: « C'est uniquement parce qu'il a un maître puissant. Son maître ne s'est pas soucié du prix et a supplié mon propre maître de lui fournir un lot de pilules d'Établissement des Fondations. Ce sont des pilules extrêmement précieuses au sein de la secte. Une fois consommées, la vitesse de culture augmente de façon draconienne. »
+Wang Hao afficha une expression de colère et reprit: « C'est uniquement parce qu'il a un maître puissant. Son maître ne s'est pas soucié du prix et a supplié mon propre maître de lui fournir un lot de pilules de Bonne Fortune. Ce sont des pilules extrêmement précieuses au sein de la secte. Une fois consommées, la vitesse de culture augmente de façon draconienne. »
 
 Wang Lin hocha la tête et demanda: « Quel est le rapport avec ton emprunt de talismanes? »
 
@@ -32,7 +32,7 @@ Wang Hao fut stupéfait. Il hocha la tête et avoua: « Frère Tie Zhu est vraim
 
 Wang Lin réfléchit un instant et dit: « Cet échange semble fort intéressant. Je voudrais également aller y jeter un œil. »
 
-Wang Hao s'empressa de répondre: « Bien sûr, tant que tu possèdes une pilule de déguisement, tu pourras participer. Mon objectif, cette fois, est une pilule d'Établissement des Fondations. J'ai entendu dire qu'un disciple en vendrait durant l'événement. »
+Wang Hao s'empressa de répondre: « Bien sûr, tant que tu possèdes une pilule de déguisement, tu pourras participer. Mon objectif, cette fois, est une pilule de Bonne Fortune. J'ai entendu dire qu'un disciple en vendrait durant l'événement. »
 
 Wang Lin agita sa main droite et sortit quatre cents talismanes de son sac de rangement. Il les divisa en quatre liasses de cent talismanes chacune.
 
@@ -66,9 +66,9 @@ Peu de temps après, Wang Lin avait rempli la moitié de la marmite. Il interrom
 
 Une fois la neige totalement fondue, il essuya la sueur sur son front. L'usage successif de deux techniques l'avait épuisé.
 
-Il n'y avait que peu d'eau dans la marmite. Il y jeta la perle mystérieuse et la récupéra dix minutes plus tard.
+Il n'y avait que peu d'eau dans la marmite. Il y jeta la perle mystérieuse et la récupéra un quart d'heure plus tard.
 
-Il comprenait désormais parfaitement le fonctionnement de la perle: la laisser tremper dans l'eau de source pendant dix minutes était la limite optimale. Il avait testé des durées plus longues, mais avait constaté que tant qu'elle restait immergée au moins dix minutes, l'effet demeurait identique.
+Il comprenait désormais parfaitement le fonctionnement de la perle: la laisser tremper dans l'eau de source pendant un quart d'heure était la limite optimale. Il avait testé des durées plus longues, mais avait constaté que tant qu'elle restait immergée au moins un quart d'heure, l'effet demeurait identique.
 
 Il prit une gorgée de l'eau, ferma les yeux et examina attentivement la modification de l'énergie spirituelle en son sein. Un instant plus tard, il ouvrit les yeux et murmura: « L'effet est bien supérieur à celui de l'eau de source, bien qu'encore inférieur à la rosée. C'est utilisable! »
 

@@ -34,7 +34,7 @@ Pendant qu'ils discutaient, l'expression de Wang Lin changea soudainement. Il le
 
 Même après le passage du convoi, ces deux-là ne firent rien; Wang Lin décida donc de ne rien dire et les ignora.
 
-Après une journée de voyage, le soleil commençait à décliner et la nuit approchait. Liu San cria depuis l'avant: « Les gars! Nous atteindrons la région de Tian Shui demain, et la famille du Nord enverra quelqu'un pour nous accueillir. Comme nous ne trouverons pas d'auberge aujourd'hui, nous allons camper ici pour nous reposer un peu avant de repartir tôt demain matin. Une fois à la ville, je vous emmènerai au Palais de la Glace Rouge pour vous trouver de jolies filles avec qui vous amuser! »
+Après une journée de voyage, le soleil commençait à décliner et la nuit approchait. Liu San cria depuis l'avant: « Les gars! Nous atteindrons la région de Tian Shui demain, et notre employeur enverra quelqu'un pour nous accueillir. Comme nous ne trouverons pas d'auberge aujourd'hui, nous allons camper ici pour nous reposer un peu avant de repartir tôt demain matin. Une fois à la ville, je vous emmènerai à la Maison Binhong pour vous trouver de jolies filles avec qui vous amuser! »
 
 Tous les hommes éclatèrent de rire avant de descendre de leurs montures. Ils formèrent un périmètre autour des wagons et attachèrent les chevaux. Ensuite, ils dressèrent les tentes. Certains s'endormirent tandis que d'autres commencèrent à boire, créant une atmosphère très animée.
 

@@ -26,9 +26,9 @@ Le tourbillon tournait de plus en plus vite, signe que la percée était imminen
 
 Wang Lin en était encore à la phase finale de sa progression. Le tourbillon pivotait avec une telle célérité qu'il ressemblait à une nébuleuse. Bien qu'il paraisse très lent de l'extérieur, il tournait en réalité trop vite pour que l'œil puisse le percevoir.
 
-Jusqu'à minuit, moment où l'énergie Yin est la plus dense, le corps de Wang Lin demeura tel un trou noir. Un tourbillon d'énergie Yin large de sept mètres tournait autour de lui, étant absorbé avec rapidité.
+Jusqu'à minuit, moment où l'énergie Yin est la plus dense, le corps de Wang Lin demeura tel un trou noir. Un tourbillon d'énergie Yin d'un rayon de trente-trois mètres tournait autour de lui, étant absorbé avec rapidité.
 
-Dans un rayon de trois mètres autour de Wang Lin, c'était un véritable broyeur pour l'énergie Yin. Toute cette énergie était dévorée à une vitesse folle.
+Dans un rayon de trente-trois mètres autour de Wang Lin, c'était un véritable broyeur pour l'énergie Yin. Toute cette énergie était dévorée à une vitesse folle.
 
 La masse colossale d'énergie Yin était absorbée par Wang Lin et instantanément ajoutée au tourbillon en son sein. Celui-ci grandissait sans cesse, jusqu'à devenir presque incontrôlable, croissant de manière effrénée. Wang Lin fut immédiatement stupéfait; il voulut interrompre le processus, mais réalisa qu'il n'avait plus aucun contrôle sur ce tourbillon qui ne cessait de s'étendre. Une pointe d'inquiétude l'envahit, car rien de tel n'était mentionné dans les archives de la Méthode d'Ascension des Enfers.
 
@@ -36,11 +36,11 @@ Wang Lin ignorait que si la Méthode d'Ascension des Enfers était qualifiée de
 
 Situ Nan étant toujours endormi, Wang Lin devait faire face à cette situation seul.
 
-À mesure que le tourbillon s'étirait, la force d'aspiration augmentait proportionnellement, et le rayon de trois mètres s'élargit rapidement. C'était un cercle vicieux: plus la portée était grande, plus l'énergie Yin absorbée l'était massive, et plus l'énergie Yin était abondante, plus le tourbillon croissait vite, accélérant encore l'absorption.
+À mesure que le tourbillon s'étirait, la force d'aspiration augmentait proportionnellement, et le rayon de trente-trois mètres s'élargit rapidement. C'était un cercle vicieux: plus la portée était grande, plus l'énergie Yin absorbée l'était massive, et plus l'énergie Yin était abondante, plus le tourbillon croissait vite, accélérant encore l'absorption.
 
-Dix mètres, trente mètres, cinquante mètres, soixante-dix mètres, cent mètres...
+Soixante-six mètres, quatre-vingt-dix-neuf mètres, cent soixante-cinq mètres, deux cent trente et un mètres, trois cent trente mètres...
 
-Toute l'énergie Yin dans un rayon de cent mètres se mit à s'agiter violemment en se précipitant vers Wang Lin. Ce mouvement massif affecta toute l'énergie Yin dans un rayon de mille mètres, la faisant bouger comme si une main géante la guidait.
+Toute l'énergie Yin dans un rayon de trois cent trente mètres se mit à s'agiter violemment en se précipitant vers Wang Lin. Ce mouvement massif affecta toute l'énergie Yin dans un rayon de 3,3 kilomètres, la faisant bouger comme si une main géante la guidait.
 
 Wang Lin avait déjà totalement perdu le contrôle du tourbillon et, après un temps indéterminé, son dantian explosa avec fracas.
 
@@ -48,17 +48,17 @@ C'était la deuxième fois que son dantian subissait une telle percée, et tout 
 
 Si Wang Lin absorbait auparavant l'énergie Yin environnante de manière continue, cette aspiration la dévorait désormais avec une faim insatiable.
 
-En un instant, toute l'énergie Yin dans un rayon de cent mètres fut engloutie par le trou noir, provoquant une perturbation encore plus vaste. Bientôt, le tourbillon passa de cent à cent cinquante mètres, puis deux cents, trois cents, cinq cents, sept cents, pour finalement dépasser les mille mètres.
+En un instant, toute l'énergie Yin dans un rayon de trois cent trente mètres fut engloutie par le trou noir, provoquant une perturbation encore plus vaste. Bientôt, le tourbillon passa de trois cent trente à quatre cent quatre-vingt-quinze mètres, puis six cent soixante, neuf cent quatre-vingt-dix, un kilomètre six cent cinquante, deux kilomètres trois cent dix mètres, pour finalement dépasser les trois kilomètres.
 
 Si l'on observait la scène depuis le ciel, on aurait été témoin d'un spectacle terrifiant: toute l'énergie Yin convergeait violemment vers un point central unique.
 
 Dans les profondeurs des ruines, l'étrange être à la peau bleue tenait le corps d'une bête dans sa main. Il en mordit un morceau et commença à mâcher lorsqu'il se tourna soudainement vers Wang Lin, affichant une expression de choc. Il jeta précipitamment sa nourriture et courut vers Wang Lin comme un lapin terrifié.
 
-Après quelques pas, il s'arrêta, remarquant que toute l'énergie Yin convergeait dans la même direction. Il hésita un instant, puis reprit sa course, avant de s'immobiliser à trois mille mètres de Wang Lin, le visage plus pétrifié encore.
+Après quelques pas, il s'arrêta, remarquant que toute l'énergie Yin convergeait dans la même direction. Il hésita un instant, puis reprit sa course, avant de s'immobiliser à près de dix kilomètres de Wang Lin, le visage plus pétrifié encore.
 
 Quant à Wang Lin, dès qu'il eut réussi sa percée, toute l'énergie spirituelle transformée se rassembla rapidement dans le trou noir de son dantian pour fusionner.
 
-Au moment où toute l'énergie spirituelle refusa de faire unie, il retrouva un certain contrôle sur le tourbillon en lui. Cependant, ce contrôle restait infime et loin d'être suffisant pour stopper la rotation de l'énergie Yin intérieure.
+Au moment où toute l'énergie spirituelle fut fondue dans le trou noir, il retrouva un certain contrôle sur le tourbillon en lui. Cependant, ce contrôle restait infime et loin d'être suffisant pour stopper la rotation de l'énergie Yin intérieure.
 
 Wang Lin serra les dents. Il décida d'abandonner toute tentative d'arrêter l'absorption pour tenter une troisième percée.
 
@@ -84,7 +84,7 @@ Le tourbillon Yin monta lentement jusqu'à atteindre la Mer de Qi et recommença
 
 Le vortex dévorait l'énergie Yin sans relâche. Wang Lin tenta de percer encore et encore, mais échoua à chaque fois. Le ciel commençait doucement à s'éclaircir.
 
-L'énergie Yin dans un rayon de mille mètres se dissipa lentement jusqu'à disparaître totalement.
+L'énergie Yin dans un rayon de 3,3 kilomètres se dissipa lentement jusqu'à disparaître totalement.
 
 La Mer de Qi dans sa poitrine demeurait close. Wang Lin comprit enfin pourquoi la Méthode d'Ascension des Enfers était si éprouvante. Il avait tenté d'ouvrir sa Mer de Qi plus de cent fois, échouant systématiquement et perdant à chaque échec une partie de l'énergie Yin.
 
@@ -106,9 +106,9 @@ Wang Lin se souvint du test effectué quelques mois auparavant et se rappela que
 
 Au même instant, le ciel au-dessus de la forêt s'obscurcit soudainement lorsqu'un vieil homme dégageant une pression colossale apparut silencieusement. Il contemplait la forêt en contrebas, une intention meurtrière fulgurante dans les yeux.
 
-« Li Er, grand-père Tai est là pour te venger! »
+« Li Er, ton grand-père est là pour te venger! »
 
-L'homme était l'ancêtre de la famille Teng, Teng Huayuan. Il avait maudit tout le trajet, mais malgré ses efforts, il ne parvenait pas à localiser précisément le meurtrier de son petit-fils. C'était comme si un brouillard l'enveloppait. S'il ne pouvait déterminer l'endroit exact, il savait que le coupable se trouvait dans la jungle en contrebas.
+L'homme était l'ancêtre de la famille Teng, Teng Huayuan. Tout au long du chemin, il avait ressenti la malédiction, mais malgré ses efforts, il ne parvenait pas à localiser précisément le meurtrier de son petit-fils. C'était comme si un brouillard l'enveloppait. S'il ne pouvait déterminer l'endroit exact, il savait que le coupable se trouvait dans la jungle en contrebas.
 
 Cette jungle était un lieu qu'il n'aurait voulu explorer que par nécessité absolue. D'un simple regard, il pouvait sentir sa dangerosité et percevoir qu'elle abritait une entité avec laquelle même lui n'oserait se mesurer.
 

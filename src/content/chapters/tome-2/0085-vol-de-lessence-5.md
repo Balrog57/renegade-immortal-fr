@@ -16,13 +16,13 @@ Peu après, le corps de Teng Li se rétracta visiblement, tandis que tous les mu
 
 Les yeux de Wang Lin s'illuminèrent. D'un geste de la main droite, il projeta une autre technique. Dans un fracas sourd, la masse de chair se sépara du corps de Teng Li. Ce dernier n'était plus qu'un sac d'ossements.
 
-Wang Lin prit une profonde inspiration et cracha une nouvelle bouffée d'énergie spirituelle. L'énergie pénétra la masse de chair et, après un moment, celle-ci se contracta jusqu'à atteindre la taille de la goutte de sang initiale.
+Wang Lin prit une profonde inspiration et cracha une nouvelle bouffée d'énergie spirituelle. L'énergie pénétra la masse de chair et, après un moment, celle-ci se contracta jusqu'à atteindre la taille de la sphère de sang précédente.
 
 Wang Lin afficha une expression d'épuisement. Il sortit une gourde, en but une gorgée, puis commença à cultiver. Après un court instant, il ouvrit les yeux et pointa le corps de Teng Li du doigt.
 
 Soudain, de puissants craquements déchirèrent l'air. Tous les os du corps de Teng Li se pulvérisèrent en une fine poussière, formant une boule d'os.
 
-Les sphères de sang, de chair et d'os furent alignées, dégageant une aura démoniaque.
+Les sphères de sang, de chair et d'os furent disposées en triangle, dégageant une aura démoniaque.
 
 Wang Lin soupira et murmura pour lui-même: « Pour voler l'essence de quelqu'un, il faut son sang, sa chair, ses os, son âme et sa racine spirituelle. De plus, la cible ne doit pas mourir pendant l'extraction du sang, de la chair et des os. Cette technique est bien trop cruelle. »
 
@@ -34,17 +34,17 @@ Après un temps indéterminé, la brume devint si dense qu'elle prit forme humai
 
 Le petit être affichait un regard confus tandis que son corps tremblait. Lentement, la confusion disparut pour laisser place à une expression de fureur; il lança des cris silencieux vers Wang Lin.
 
-Wang Lin ne cilla même pas. D'un revers de main, il fit apparaître une lueur rouge. Le petit être sembla terrifié par cette lumière et tenta de s'enfuir, mais la zone de trois mètres entourant le corps de Teng Li agissait comme une prison. Peu importait ses efforts, il ne pouvait s'échapper.
+Wang Lin ne cilla même pas. D'un revers de main, il fit apparaître une lueur rouge. Le petit être sembla terrifié par cette lumière et tenta de s'enfuir, mais la zone d'un mètre entourant le corps de Teng Li agissait comme une prison. Peu importait ses efforts, il ne pouvait s'échapper.
 
 Finalement, réalisant qu'il était piégé, le petit être afficha un regard vindicatif et chargea vers la lumière rouge.
 
-Wang Lin garda un visage impassible et agita la main. La lueur rouge encercla la petite silhouette à plusieurs reprises avant de la tirer violemment vers lui.
+Wang Lin garda un visage impassible et agita la main. La lueur rouge encercla la petite silhouette à plusieurs reprises avant de la tirer lentement vers lui.
 
-Wang Lin savait que l'étape de l'extraction de l'âme était cruciale. Il devait extraire l'âme de cette zone de trois mètres sans la briser. Bien qu'une âme brisée n'empêcherait pas le vol de l'essence, il ne pourrait pas utiliser la racine spirituelle de Teng Li pour améliorer la sienne si celle-ci venait à être endommagée.
+Wang Lin savait que l'étape de l'extraction de l'âme était cruciale. Il devait extraire l'âme de cette zone d'un mètre sans la briser. Bien qu'une âme brisée n'empêcherait pas le vol de l'essence, il ne pourrait pas utiliser la racine spirituelle de Teng Li pour améliorer la sienne si celle-ci venait à être endommagée.
 
-Le visage du petit être se crispa de douleur alors que la lumière rouge l'extrayait lentement. En un clin d'œil, la moitié de son corps avait déjà franchi la limite des trois mètres.
+Le visage du petit être se crispa de douleur alors que la lumière rouge l'extrayait lentement. En un clin d'œil, la moitié de son corps avait déjà franchi la limite d'un mètre.
 
-À cet instant, une lueur jaune jaillit du corps du petit être et brisa la lumière rouge. La petite silhouette recula précipitamment dans le périmètre de trois mètres et, sous l'éclat de cette lueur jaune, elle retrouva une certaine consistance.
+À cet instant, une lueur jaune jaillit du corps du petit être et brisa la lumière rouge. La petite silhouette recula précipitamment dans le périmètre d'un mètre et, sous l'éclat de cette lueur jaune, elle retrouva une certaine consistance.
 
 Le visage de Wang Lin s'assombrit alors qu'il fixait le petit être. Il leva la main pour lancer à nouveau sa technique. L'expression du petit être se mua en horreur tandis qu'il s'exclamait:
 
@@ -60,7 +60,7 @@ Le petit être se débattit en criant: « Grand-père, sauve-moi! » La lumière
 
 Sans un mot, Wang Lin tapa sur son sac de rangement et en sortit une gourde d'eau spirituelle. Il versa l'eau sur le fil qui, soudainement, devint aussi épais qu'un pouce sous la force de sa traction.
 
-Cette fois, malgré l'éclat de la lumière jaune, le petit être ne put plus résister. Il fut arraché de la zone des trois mètres. Dès qu'il franchit cette limite, la lumière jaune se mua en un nuage de gaz jaunâtre, formant une silhouette indistincte à l'intérieur. Bien que la forme fût floue, une voix retentit: « Cher compagnon de culture, je vous en prie, arrêtez! Nous pouvons discuter de cela. »
+Cette fois, malgré l'éclat de la lumière jaune, le petit être ne put plus résister. Il fut arraché de la zone d'un mètre. Dès qu'il franchit cette limite, la lumière jaune se mua en un nuage de gaz jaunâtre, formant une silhouette indistincte à l'intérieur. Bien que la forme fût floue, une voix retentit: « Cher compagnon de culture, je vous en prie, arrêtez! Nous pouvons discuter de cela. »
 
 Wang Lin fut surpris, mais Situ Nan intervint rapidement: « Ne t'en fais pas, il s'agit d'un avatar illusionnaire d'un cultivateur de l'Âme Naissante. C'est différent d'un avatar physique car il ne peut ni attaquer, ni te voir, ni même connaître ton emplacement exact. Il ne permet que d'entendre ses paroles. De plus, si cet avatar est si flou, c'est que cette personne se trouve très loin. Quant à sa présence ici, il semble qu'il porte un attachement profond pour Teng Li, car il a laissé cette parcelle de sens divin auprès de lui. »
 
@@ -68,13 +68,13 @@ Sans répondre, Wang Lin pointa le petit être du doigt. Ce dernier s'immobilisa
 
 L'avatar illusionnaire sembla réaliser que l'âme de Teng Li était en train d'être raffinée. Il hurla: « Tu as tué un membre de la famille Teng, tu vas payer! Je te retrouverai un jour et je te tuerai! »
 
-Sur le sommet d'une montagne située à des dizaines de milliers de milles de là, un vieil homme en robes noires se redressa, l'expression sombre. Ses yeux s'illuminèrent. Serrant le poing, il murmura: « Li Er, ton grand-père te promet qu'il se vengera. » Sur ces mots, il frappa sa poitrine du poing droit et cracha un sang noir. Sa main droite aspira rapidement ce sang, formant d'innombrables symboles étranges qui flottèrent dans les airs.
+Sur le sommet d'une montagne située à plus de dix mille kilomètres de là, un vieil homme en robes noires se redressa, l'expression sombre. Ses yeux s'illuminèrent. Serrant le poing, il murmura: « Li Er, ton grand-père te promet qu'il se vengera. » Sur ces mots, il frappa sa poitrine du poing droit et cracha un sang noir. Sa main droite remua rapidement ce sang, formant d'innombrables symboles étranges qui flottèrent dans les airs.
 
-Puis, de petites silhouettes violettes apparurent et flottèrent dans le ciel.
+Puis, une petite silhouette violette apparut et flotta dans le ciel.
 
 La petite silhouette cria: « Malédiction, va! » Sa main forma un sceau tandis que son sens divin se scindait pour fusionner avec tous les symboles.
 
-« Malédiction, accomplie! » L'âme du vieil homme se rétracta visiblement. Il semblait n'avoir aucun scrupule à gaspiller son énergie. Les symboles imprégnés de sens divin projetèrent une lueur démoniaque en s'élevant vers le ciel. Ils couvrirent la voûte céleste, formant une formation qui fit gronder le tonnerre.
+« Malédiction, accomplie! » L'âme du vieil homme se rétracta visiblement. Il semblait n'avoir aucun scrupule à gaspiller son énergie. Les symboles imprégnés de sens divin projetèrent une lueur démoniaque en s'élevant vers le ciel. Ils couvrirent la moitié du ciel, formant une formation qui fit gronder le tonnerre.
 
 « Malédiction, tourne! » La formation commença à pivoter lentement. Des éclairs couleur sang apparurent dans le ciel, dessinant une étrange forme de diamant.
 
@@ -86,7 +86,7 @@ Ce dernier esquissa un sourire sinistre et déclara: « Si tu tues des membres d
 
 À l'intérieur de la cavité de l'arbre, quatre sphères flottaient devant Wang Lin. Il pointa son doigt vers les restes de Teng Li, et d'innombrables particules de lumière dorée s'en échappèrent.
 
-Ces particules étaient si nombreuses que des milliers d'entre elles se dissipèrent dans l'environnement.
+Un tiers de ces particules se dissipa aussitôt dans l'environnement.
 
 Wang Lin prit une profonde inspiration. Il savait que ces éclats de lumière constituaient la fameuse racine spirituelle. Il cracha une bouffée d'énergie spirituelle pour la dévorer. La racine spirituelle entamée commença immédiatement à rejeter Wang Lin, et un autre tiers des particules disparut. Wang Lin ne put finalement dévorer qu'une fraction de la racine spirituelle de Teng Li.
 
@@ -100,4 +100,4 @@ Wang Lin se redressa brusquement. Le visage sombre, il demanda: « Existe-t-il u
 
 Situ Nan réfléchit un instant et eut un rire fier: « En réalité, tu n'as pas à trop t'inquiéter. Ce type de malédiction n'a aucune capacité offensive; elle ne lui permet que de te localiser pour se téléporter. Bien que sa technique soit redoutable, j'ai passé beaucoup de temps à étudier ces sorts qui utilisent des formations et les fluctuations de l'énergie spirituelle du monde. Je ne peux pas en lancer moi-même puisque j'ai perdu mon corps, mais je peux toujours t'aider à les briser. »
 
-« Avec mon aide, dissimule ton aura. Tant que tu ne seras pas trop près de lui, il ne pourra pas te trouver, alors détends-toi. Hé hé, Wang Lin, c'est aussi une opportunité. Je connais une technique ancienne qui permet de retourner la malédiction contre son auteur. Cela nécessite d'atteindre le stade de la Formation du Noyau; ensuite, avec l'aide de quelques pilules, tu pourras voler la moitié de sa culture. Ah, tu as une sacrée chance, gamin! »
+« Avec mon aide, dissimule ton aura. Tant que tu ne seras pas trop près de lui, il ne pourra pas te trouver, alors détends-toi. Hé hé, Wang Lin, c'est aussi une opportunité. Je connais une technique ancienne qui permet de retourner la malédiction contre son auteur. Cela nécessite d'atteindre le stade de la Formation du Noyau; ensuite, avec l'aide de quelques objets spirituels, tu pourras voler la moitié de sa culture. Ah, tu as une sacrée chance, gamin! »

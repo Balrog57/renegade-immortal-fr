@@ -6,9 +6,9 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 97 - Great Change
 slug: grand-changement
 ---
-Le Secte des Cadavres est une secte de très grande envergure. D'après les connaissances de Ye Zizai, le siège principal de la Secte des Cadavres se trouve dans un pays de rang 5, tandis que ses diverses branches sont dispersées à travers la planète.
+La Secte des Cadavres est une secte de très grande envergure. D'après les connaissances de Ye Zizai, le siège principal de la Secte des Cadavres se trouve dans un pays de rang 5, tandis que ses diverses branches s'étagent en dessous, à la manière d'un trapèze.
 
-Toutes ces branches possèdent des systèmes extrêmement rigides pour contraindre les disciples à s'entraîner sans relâche. Après avoir découvert la vérité, Ye Zi eut l'impression qu'ils étaient élevés comme du bétail.
+Toutes ces branches possèdent des systèmes extrêmement rigides pour contraindre les disciples à s'entraîner sans relâche. Après avoir découvert la vérité, Ye Zizai eut l'impression qu'ils étaient élevés comme du bétail.
 
 Une fois que ces « animaux » atteignent le stade de la Formation du Noyau, une cérémonie est organisée. C'est à ce moment que les âmes provenant de pays de rang 5 ayant perdu leur corps physique sont placées dans des marionnettes cadavériques.
 
@@ -20,9 +20,9 @@ Les corps fournis par la Secte des Cadavres possèdent tous un excellent talent 
 
 Le Secte des Cadavres traite avec de nombreuses sectes des pays de rang 4 ou 5, et certaines d'entre elles concluent des accords exclusifs afin d'obtenir des corps plus rapidement. L'une des clauses de ces accords stipule que la secte doit fournir sa méthode de culture de base, faisant ainsi d'une branche une véritable ferme à corps personnelle pour ladite secte.
 
-Le Secte des Cadavres de Zhao est issu d'une secte démoniaque d'un pays de rang 5. Sa méthode de culture se nomme la Méthode des Enfers.
+La branche de Zhao de la Secte des Cadavres est issue d'une secte démoniaque d'un pays de rang 5. Sa méthode de culture se nomme la Méthode des Enfers.
 
-Ye Zi poussa un soupir. Ce n'était pas qu'il n'envisageait pas de se rebeller, mais plus il en apprenait, plus il comprenait à quel point il était insignifiant face à cet univers. Il n'était pas digne de porter la rébellion, et une fois que le processus de possession commence, rien ne peut l'arrêter, à moins que son niveau de culture ne surpasse largement celui de l'âme contenue dans la marionnette cadavérique.
+Ye Zizai poussa un soupir. Ce n'était pas qu'il n'envisageait pas de se rebeller, mais plus il en apprenait, plus il comprenait à quel point il était insignifiant face à cet univers. Il n'était pas digne de porter la rébellion, et une fois que le processus de possession commence, rien ne peut l'arrêter, à moins que son niveau de culture ne surpasse largement celui de l'âme contenue dans la marionnette cadavérique.
 
 Il existe une autre règle au sein de la Secte des Cadavres: si un disciple atteint le stade de l'Âme Naissante, même si son corps est possédé par autrui, il reçoit la possibilité de posséder lui-même quelqu'un d'autre.
 
@@ -66,9 +66,9 @@ La grotte entière était désormais une zone scellée.
 
 Wang Lin observa les lieux et commença à réfléchir. Il avait été contraint de rejoindre la Secte des Cadavres car, dans les ruines, s'il n'était pas entré dans la matrice de transfert, il aurait été entraîné dans l'affrontement entre la marionnette cadavérique et Wu Yu.
 
-À en juger par la situation actuelle, il semblait que Wu Yu ne mentait pas. Cet endroit était parfaitement adapté à la culture de la Méthode d'Ascension des Enfers. Pourtant, le simple fait d'être ici faisait ressentir à Wang Lin un sentiment de danger, particulièrement de la part de Ye Zi. Bien que son expression fût empreinte de bienveillance, Wang Lin avait l'impression d'être observé par un serpent venimeux.
+À en juger par la situation actuelle, il semblait que Wu Yu ne mentait pas. Cet endroit était parfaitement adapté à la culture de la Méthode d'Ascension des Enfers. Pourtant, le simple fait d'être ici faisait ressentir à Wang Lin un sentiment de danger, particulièrement de la part de Ye Zizai. Bien que son expression fût empreinte de bienveillance, Wang Lin avait l'impression d'être observé par un serpent venimeux.
 
-Ce sentiment passa instantanément de Wang Lin à Adai dès que Ye Zi aperçut le garçon.
+Ce sentiment passa instantanément de Wang Lin à Adai dès que Ye Zizai aperçut le garçon.
 
 Néanmoins, loin de s'apaiser, la prudence de Wang Lin ne fit qu'augmenter. « Ce Ye Zizai doit avoir de sombres intentions », pensa-t-il.
 
@@ -96,8 +96,8 @@ Sous cette pression colossale, tous les disciples en Condensation de Qi furent t
 
 Tous les cultivateurs de l'Établissement des Fondations et de la Formation du Noyau s'assirent précipitamment pour cultiver afin de réguler leur énergie interne. Seuls les cultivateurs de l'Âme Naissante purent résister, bien que leurs visages fussent profondément marqués par l'inquiétude.
 
-Dans une zone secrète à l'arrière de la montagne de la Secte Xian Dao, Punnan Zi ouvrit soudainement les yeux. Son expression changea plusieurs fois avant de laisser place à une extase totale. Sans dire un mot, il disparut de son sanctuaire pour réapparaître cent kilomètres plus loin.
+Dans une zone secrète à l'arrière de la montagne de la Secte Xuan Dao, Pu Nanzi ouvrit soudainement les yeux. Son expression changea plusieurs fois avant de laisser place à une extase totale. Sans dire un mot, il disparut de son sanctuaire pour réapparaître cinquante kilomètres plus loin.
 
-Dans la région de Zhao, plusieurs traînées de lumière jaillirent dans le ciel, convergeant toutes vers la Tour Céleste au centre de la cité.
+Dans la région de Zhao, plusieurs traînées de lumière jaillirent dans le ciel, convergeant toutes vers la Tour Céleste, au centre du pays de Zhao.
 
-Face à la réaction des cultivateurs, celle des mortels fut encore plus frappante. Tous s'agenouillèrent face à la Tour Céleste. La légende raconte que la divine rétribution arc-en-ciel n'apparaît qu'une fois tous les cent ans. Elle venait enfin de se manifester à nouveau.
+Face à la réaction des cultivateurs, celle des mortels fut encore plus frappante. La plupart s'agenouillèrent en prière. La légende raconte que la divine rétribution arc-en-ciel n'apparaît qu'une fois tous les cent ans. Elle venait enfin de se manifester à nouveau.

@@ -36,11 +36,11 @@ Cette vallée était dépourvue de végétation. C'était une falaise percée de
 
 Soudain, Wang Lin sentit qu'on l'observait. Il se retourna et vit Wang Zhuo lui adresser un sourire glacial.
 
-À ce moment-là, un jeune homme émergea de l'un des orifices de la falaise. Vêtu de pourpre, il lança un regard froid à l'assemblée et déclara: « Chers frères et sœurs apprentis, voici la montagne de l'arrière-plan de la Secte Heng Yue. Pour être précis, ce n'est pas simplement l'arrière de la secte, mais un terrain de culture pour les disciples internes, édifié il y a 500 ans par plusieurs experts au stade de la Transformation de l'Âme. L'énergie spirituelle ici est bien plus dense qu'en temps normal. Puisque vous êtes ici, concentrez-vous sur votre culture; sinon, ne nous reprochez pas de vous expulser de la montagne. »
+À ce moment-là, un jeune homme émergea de l'un des orifices de la falaise. Vêtu de pourpre, il lança un regard froid à l'assemblée et déclara: « Chers frères et sœurs apprentis, voici la montagne de l'arrière-plan de la Secte Heng Yue. Pour être précis, ce n'est pas simplement l'arrière de la secte, mais un terrain de culture pour les disciples internes, édifié il y a 500 ans par plusieurs experts au stade de l'Âme Naissante. L'énergie spirituelle ici est bien plus dense qu'en temps normal. Puisque vous êtes ici, concentrez-vous sur votre culture; sinon, ne nous reprochez pas de vous expulser de la montagne. »
 
 Wang Lin reconnut ce disciple aux vêtements violets. C'était celui qui avait acheté son liquide d'énergie spirituelle. La rumeur disait qu'il avait déjà atteint le sixième niveau de la Condensation de Qi et qu'il était particulièrement imprévisible.
 
-Wang Lin baissa la tête. Il connaissait bien ce genre de manœuvres pour les avoir lui-même utilisées afin de le placer dans une situation périlleuse par le passé.
+Wang Lin baissa la tête. Il connaissait bien ce genre de manœuvres pour en avoir déjà fait les frais: quelques mots de ce genre l'avaient jadis plongé dans une situation périlleuse.
 
 « Je possède les incantations pour le septième niveau et les niveaux inférieurs. Si vous atteignez ce stade sans posséder l'incantation, venez me voir. Après vérification, je vous la remettrai. Quant à votre lieu de pratique, choisissez n'importe quelle grotte qui n'est pas scellée. Voici des flacons de pilules de rassemblement de Qi. Chaque flacon contient 50 pilules et sera réapprovisionné une fois par an. » Sur ces mots, il agita la main et cinquante flacons blancs apparurent au sol.
 

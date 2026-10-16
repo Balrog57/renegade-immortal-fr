@@ -32,7 +32,7 @@ Il réfléchit un instant, puis prit la perle et quitta le jardin des herbes. À
 
 Dès son entrée, conscient que le temps pressait, il déploya rapidement son sens divin.
 
-Une minute, trois minutes, dix minutes, trente minutes...
+Un quart d'heure, une demi-heure, une heure...
 
 Rien ne changeait. Wang Lin se frotta le menton et marmonna: « Est-il vraiment impossible de laisser mon sens divin à l'intérieur de la perle mystérieuse? »
 
@@ -58,7 +58,7 @@ Wang Lin réfléchit. Il avait déjà examiné la perle avec son sens divin, mai
 
 L'expression de Wang Lin devint étrange. Il esquissa un sourire amer: « Senior, je... »
 
-« Ne m'interromps pas! Je n'ai pas fini. Humph, ta petite secte compte aussi quelques jolies jeunes femmes. Tu ne sais vraiment pas profiter de la vie. Si j'étais toi, je les aurais capturées pour raffiner leurs âmes. Héhé, ce goût me rappelle le passé... Cela fait plus de trente ans que je n'en ai pas goûté... »
+« Ne m'interromps pas! Je n'ai pas fini. Humph, ta petite secte compte aussi quelques jolies jeunes femmes. Tu ne sais vraiment pas profiter de la vie. Si j'étais toi, je les aurais capturées pour en faire des fourneaux de culture et drainer leur yin. Héhé, ce goût me rappelle le passé... Cela fait plus de trente ans que je n'en ai pas goûté... »
 
 Wang Lin resta bouche bée, incapable de prononcer un mot pendant un long moment.
 
@@ -68,6 +68,6 @@ Wang Lin hésita, confus, et demanda: « Senior, qu'est-ce que le stade de Trans
 
 « Ne peux-tu pas réfléchir par toi-même? Toujours à poser des questions sur tout. Laisse tomber! Pour un petit cultivateur d'un pays de rang 3, même si tu te creusais la cervelle jusqu'à l'explosion, tu ne comprendrais rien. Humph. Écoute bien, gamin: je parle du niveau de culture d'un pays de rang 5. Dans un pays de rang 3 comme le tien, il n'existe que quatre royaumes: Condensation de Qi, Établissement des Fondations, Formation du Noyau et Âme Naissante. Quant au stade de Formation de l'Âme, ce ne serait pour toi qu'une légende. »
 
-« Dès qu'un individu atteint le stade de Formation Spirituelle, le rang de ton pays est élevé au rang 4. Ce faisant, la nation reçoit les ressources appropriées de l'Alliance de Culture et obtient le droit de lutter pour des étoiles de culture à l'extérieur de ses frontières. Le pays doit également accomplir des missions pour protéger l'Alliance. »
+« Dès qu'un individu atteint le stade de Formation de l'Âme, le rang de ton pays est élevé au rang 4. Ce faisant, la nation reçoit les ressources appropriées de l'Alliance de Culture et obtient le droit de lutter pour des étoiles de culture à l'extérieur de ses frontières. Le pays doit également accomplir des missions pour protéger l'Alliance. »
 
 « De la même manière, si une Transformation de l'Âme apparaît dans un pays de rang 4, celui-ci est élevé au rang 5, et ainsi de suite. Quant au stade de Mouvement Spirituel, c'est un niveau couramment utilisé dans les pays de rang 4 ou supérieur. Il est similaire au stade de Condensation de Qi, mais possède une portée bien plus vaste. »

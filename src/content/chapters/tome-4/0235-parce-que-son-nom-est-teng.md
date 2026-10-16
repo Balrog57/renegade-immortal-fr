@@ -8,7 +8,7 @@ slug: parce-que-son-nom-est-teng
 ---
 Mont Heng Yue.
 
-Le Secte Xuan Dao était enveloppé de pluie et de brouillard, tandis que des éclairs déchiraient le ciel, accompagnés du rugissement du tonnerre. Le feuillage craquait sous la violence de l'averse.
+La Secte Xuan Dao était enveloppée de pluie et de brouillard, tandis que des éclairs déchiraient le ciel, accompagnés du rugissement du tonnerre. Le feuillage craquait sous la violence de l'averse.
 
 En cette nuit pluvieuse, un jeune homme aux cheveux blancs marchait lentement à travers la forêt. Chaque pas qu'il faisait dans les feuilles détrempées produisait un bruissement.
 
@@ -40,7 +40,7 @@ Pourtant, grâce à son sens divin, il savait sans même l'étendre que personne
 
 Au centre de la pièce principale, Wang Lin vit deux tablettes commémoratives, l'une sur l'autre. Celle du haut indiquait:
 
-« Wang Tianshui, Zhou Tingsu »
+« Wang Tianshui, Zhou Yingsu »
 
 Celle du bas indiquait: « Fils aîné: Wang Lin »
 
@@ -82,7 +82,7 @@ La jeune femme prit une profonde inspiration. Alors que la servante s'apprêtait
 
 La servante fit la moue mais acquiesça docilement.
 
-La jeune femme sourit, toussa quelques fois, puis marcha lentement vers le hall principal. Une fois à l'intérieur, elle regarda les deux tablettes. Elle disposa des effets de couchage devant elles et s'agenouilla. Après avoir effectué ses kowtows, elle s'apprêta à sortir de l'encens, mais ses yeux se figèrent sur les trois bâtons presque consumés. Au moment où elle allait pousser un cri, elle sentit une bourrasée d'air glacial envahir la pièce. Elle se pétrifia, le front couvert de sueur froide; elle sentit que le moindre mouvement entraînerait sa mort instantanée.
+La jeune femme sourit, toussa quelques fois, puis marcha lentement vers le hall principal. Une fois à l'intérieur, elle regarda les deux tablettes. Elle disposa une natte devant elles et s'agenouilla. Après avoir effectué ses kowtows, elle s'apprêta à sortir de l'encens, mais ses yeux se figèrent sur les trois bâtons presque consumés. Au moment où elle allait pousser un cri, elle sentit une bourrasée d'air glacial envahir la pièce. Elle se pétrifia, le front couvert de sueur froide; elle sentit que le moindre mouvement entraînerait sa mort instantanée.
 
 Elle vit alors un jeune homme aux cheveux blancs entrer lentement dans la pièce.
 
@@ -100,7 +100,7 @@ Le visage de la jeune femme devint livide.
 
 Wang Lin ne da même pas un regard à l'homme assommé et reprit froidement: « Je te pose la question une nouvelle fois: de qui es-tu la descendante? » En réalité, dès qu'il avait vu sa maison, il avait eu des soupçons. Il était impossible que la demeure soit restée intacte sans que quelqu'un en prenne soin. Bien qu'elle paraisse identique, elle avait été reconstruite pour retrouver son aspect d'origine.
 
-La jeune femme afficha un regard déterminé. Elle serra les dents: « Mon père est Wang Yun. Puisque vous m'avez suivie jusqu'ici, pourquoi poser ces questions? »
+La jeune femme afficha un regard déterminé. Elle serra les dents: « Mon père est Wang Yunfei. Puisque vous m'avez suivie jusqu'ici, pourquoi poser ces questions? »
 
 Wang Lin fronça les sourcils: « Quel est le lien entre toi et les personnes dont les noms sont gravés sur ces tablettes? »
 
@@ -164,7 +164,7 @@ Plus important encore, la mort de Teng Huayuan seule ne suffirait pas à apaiser
 
 Il déploya son sens divin et couvrit aisément tout le pays de Zhao. Il localisa sans difficulté la ville de la famille Teng où se trouvait Teng Huayuan et s'y précipita comme un éclair.
 
-Wang Lin s'arrêta à dix mille kilomètres de la ville des Teng. Il planta un drapeau de formation dans le sol et, d'un geste, fit disparaître l'objet.
+Wang Lin s'arrêta à cinq mille kilomètres de la ville des Teng. Il planta un drapeau de formation dans le sol et, d'un geste, fit disparaître l'objet.
 
 Puis, il survola la cité des Teng pour y placer seize drapeaux de formation. Il fixa la ville avec des yeux emplis de soif de sang, esquissa un sourire cruel et murmura: « À partir d'aujourd'hui, on peut entrer dans la ville des Teng, mais on ne peut plus en sortir. Teng Huayuan, ma vengeance ne fait que commencer. »
 
@@ -176,7 +176,7 @@ Soudain, le dieu démon illusionnaire ouvrit la bouche et engloutit la goutte de
 
 La lumière descendit lentement. Wang Lin la saisit et l'illusion du dieu démon se dissipe peu à peu.
 
-C'était une technique mineure apprise des souvenirs hérités de l'Ancien Dieu. Elle permettait de récupérer l'âme de quiconque avait été tué, bien que celle-ci ne durât que trente minutes.
+C'était une technique mineure apprise des souvenirs hérités de l'Ancien Dieu. Elle permettait de récupérer l'âme de quiconque avait été tué, bien que celle-ci ne durât que quinze minutes.
 
 L'âme récupérée n'avait aucun souvenir, seulement quelques instincts primaires. Pour un Ancien Dieu, c'était une technique inutile qui ne servait qu'à augmenter temporairement la puissance des trésors magiques.
 
@@ -188,7 +188,7 @@ Anéantir une famille ne consistait pas simplement à tuer ses membres. Wang Lin
 
 Progressivement, les points lumineux se multiplièrent dans son sens divin et son sourire devint de plus en plus sinistre. Au fil des années, le nombre de descendants des Teng avait atteint un degré inimaginable, et Wang Lin mémorisait chaque signature d'âme.
 
-Une demi-heure passa en un instant et l'âme de Teng Li, dévorée par Wang Lin, se dissipa.
+Un quart d'heure passa en un instant et l'âme de Teng Li, dévorée par Wang Lin, se dissipa.
 
 Wang Lin frappa son sac de rangement et la bête moustique apparut soudainement. Il monta dessus et vola vers la secte la plus proche. Sept membres de la famille Teng s'y trouvaient.
 

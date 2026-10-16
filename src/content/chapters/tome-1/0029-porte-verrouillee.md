@@ -28,21 +28,21 @@ Une fois ses paroles prononcées, il pointa du doigt une personne et ordonna: «
 
 L'homme tressaillit. Il ouvrit la bouche pour protester, mais face à l'impatience qui brûlait dans le regard de Wang Lin, il se contenta de sourire et de hocher la tête immédiatement.
 
-« Toi, tu laveras cinq cents kilos de linge chaque jour. Et n'oublie pas: si tu es mécontent, va voir les Anciens! » L'homme désigné déglutit difficilement, manquant de s'évanouir. Il marmonna: « Cinq cents kilos... c'est comme si on réunissait tous les vêtements de la secte... »
+« Toi, tu laveras cinq cents livres de linge chaque jour. Et n'oublie pas: si tu es mécontent, va voir les Anciens! » L'homme désigné déglutit difficilement, manquant de s'évanouir. Il marmonna: « Cinq cents livres... c'est comme si on réunissait tous les vêtements de la secte... »
 
 « Toi, tu nettoieras toute la secte! Même chose: si tu es insatisfait, va voir les Anciens! »
 
 « Toi, tu videras les latrines. Si je vois ne serait-ce qu'une mouche dedans, tu y vivras! »
 
-« Toi, tu devras récolter cinq cents livres d'herbes par jour. Si tu essaies de me tromper avec des mauvaises herbes, je te m'expulse de la secte! Écoutez-moi tous: si vous êtes insatisfaits, allez voir les Anciens! » Pour certains, bien que la charge fût rude, elle restait supportable. Cependant, pour les derniers qu'il désigna, les jambes flanchèrent et ils s'effondrèrent aussitôt au sol.
+« Toi, tu devras récolter cinq cents livres d'herbes par jour. Si tu essaies de me tromper avec des mauvaises herbes, je te chasserai de la secte! Écoutez-moi tous: si vous êtes insatisfaits, allez voir les Anciens! » Pour certains, bien que la charge fût rude, elle restait supportable. Cependant, pour les derniers qu'il désigna, les jambes flanchèrent et ils s'effondrèrent aussitôt au sol.
 
-Les disciples honoraires affichaient tous des expressions de pure détresse. La Secte Heng Yue entière ne possédait peut-être même pas cinq cents kilos d'herbes dans ses montagnes.
+Les disciples honoraires affichaient tous des expressions de pure détresse. La Secte Heng Yue entière ne possédait peut-être même pas cinq cents livres d'herbes dans ses montagnes.
 
 ...
 
 En s'appuyant sur ses souvenirs de ceux qui l'avaient moqué, Wang Lin les désigna un par un, réfléchissant soigneusement à la tâche la plus pénible pour chacun. Nullement fatigué, il finit enfin de répartir le travail. Il resta là un moment, songeant que les corvées qu'il avait assignées étaient impossibles à accomplir. Que pouvaient faire les disciples honoraires d'autre que de se plaindre aux Anciens? Mais au cas où les Anciens décideraient de ne rien faire, il valait mieux aggraver le chaos, afin de leur faire comprendre qu'il était une erreur monumentale de confier la gestion des corvées à lui, Wang Lin.
 
-Fort de cette pensée, il pointa un homme qu'il ne connaissait pas et déclara: « Toi, tu as de la chance. Ton travail consistera à tout tenir en registre. Fais l'inventaire de tous les cadeaux qui me sont offerts. Note leurs noms et l'heure de la remise. Si tu tentes d'être gourmand, je te chasserai de la secte! »
+Fort de cette pensée, il pointa un homme qu'il ne connaissait pas et déclara: « Toi, tu as de la chance. Ton travail consistera à tout tenir en registre. Fais l'inventaire de tous les cadeaux qui me sont offerts. Note leurs noms et la date de la remise. Si tu tentes d'être gourmand, je te chasserai de la secte! »
 
 L'homme fut si stupéfait qu'il s'effondra au sol pour se prosterner devant Wang Lin en kowtowant. Il répéta inlassablement qu'il veillerait à faire son travail avec une précision absolue sans commettre d'erreur.
 

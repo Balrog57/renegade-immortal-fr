@@ -38,7 +38,7 @@ Même les cultivateurs qui l'avaient combattu ne pourraient pas l'identifier.
 
 Son apparence actuelle ne différait en rien de celle d'un mortel. Cela s'appliquait non seulement à son aspect physique, mais aussi à son esprit. Jusque dans la moelle de ses os, il était devenu semblable à un mortel.
 
-Après six années passées à se transformer en mortel, il l'était devenue totalement. Il paraissait un peu vieilli; bien que son dos fût toujours droit, il ne se distinguait pas des autres hommes d'âge mûr croisés dans la rue.
+Après six années passées à se transformer en mortel, il l'était devenu totalement. Il paraissait un peu vieilli; bien que son dos fût toujours droit, il ne se distinguait pas des autres hommes d'âge mûr croisés dans la rue.
 
 Le seul détail qui le différenciait des simples mortels résidait dans ses yeux. Une distinction nette entre le noir et le blanc s'y dessinait, doublée d'une lueur subtile qui lui conférait un regard singulier.
 
@@ -84,11 +84,11 @@ Peu après, un homme d'âge moyen, corpulent et vêtu d'habits épais, sortit de
 
 L'homme gras but rapidement sa coupe, regarda Wang Lin et dit: « Tenancier Wang, ceci... »
 
-Wang Lin saisit la cruche, prit une gorgée et l'interrompit: « Tenancier Lee, je ne suis pas venu aujourd'hui pour collecter le loyer, alors détendez-vous. »
+Wang Lin saisit la cruche, prit une gorgée et l'interrompit: « Tenancier Li, je ne suis pas venu aujourd'hui pour collecter le loyer, alors détendez-vous. »
 
 L'homme sourit: « Les affaires ne vont pas fort ces derniers temps. Le fait d'avoir beaucoup de clients aujourd'hui ne change pas grand-chose. J'ai dû dépenser une fortune pour engager ce groupe. Ce n'est pas facile, la gestion. »
 
-Wang Lin sourit sans dire un mot, se contentant d'observer la représentation. Cet homme s'appelait Lee, mais Wang Lin ignorait son prénom. Deux ans auparavant, cet homme était venu voir Wang Lin et avait engagé sa boutique en gage pour emprunter vingt pièces d'or. À ce jour, il n'avait toujours pas remboursé la dette; la boutique appartenait donc désormais à Wang Lin.
+Wang Lin sourit sans dire un mot, se contentant d'observer la représentation. Cet homme s'appelait Li, mais Wang Lin ignorait son prénom. Deux ans auparavant, cet homme était venu voir Wang Lin et avait engagé sa boutique en gage pour emprunter vingt pièces d'or. À ce jour, il n'avait toujours pas remboursé la dette; la boutique appartenait donc désormais à Wang Lin.
 
 Durant l'année écoulée, il voyait Wang Lin venir chaque jour. Cela le rendait très nerveux, alors il venait souvent vérifier les intentions du propriétaire.
 
@@ -106,7 +106,7 @@ Le propriétaire de l'auberge, assis près de Wang Lin, s'approcha. Il fouilla d
 
 Le vieil homme ramassa la pièce et la mordit. Il sourit au serveur: « C'est du vrai. Plus dur que l'or. Voyez-vous, votre patron sait comment faire. Humph, humph! » Il lança la pièce dans la main du serveur en ajoutant: « Une théière de thé! »
 
-Puis, son regard balaya la salle. Ses yeux se posèrent sur Wang Lin et il s'approcha. Ce n'était pas par reconnaissance qu'il venait, mais simplement parce que la seule place libre dans l'auberge était à côté de lui.
+Puis, son regard balaya la salle. Ses yeux se posèrent sur Wang Lin et il s'approcha. Ce n'était pas qu'il l'eût reconnu, mais simplement parce que la seule place libre dans l'auberge était à côté de lui.
 
 Le serveur fut stupéfait. Il regarda la pièce de bronze, puis le propriétaire. Il avait vu passer bien des mendiants, mais c'était la première fois qu'il en voyait un mordre une pièce pour vérifier sa valeur avant d'acheter du thé.
 

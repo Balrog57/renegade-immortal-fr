@@ -20,7 +20,7 @@ L'Ancien Sun dit d'un ton impatient: « As-tu l'enregistrement de Wang Lin? »
 
 Le cœur du disciple Liu manqua un battement. Il n'aurait jamais imaginé qu'un Ancien de si haut rang vienne s'enquérir de ce déchet de Wang Lin. En repensant aux fois où il avait harcelé ce dernier, son visage pâlit. « Ce disciple... possède... possède l'enregistrement du frère Wang Lin. Le frère Wang est un érudit et prend son travail très au sérieux. Ce disciple... ce disciple l'a toujours considéré comme un modèle. »
 
-L'Ancien Sun ne savait s'il devait rire ou pleurer, mais au fond de lui, il comprit que c'était une bonne chose. Plus quelqu'un était nerveux en lui parlant, plus cela signifiait qu'il le respectait. Le titre d'Ancien est, en réalité, un titre assez dérisoire au sein de la Secte Heng Yue. Presque tous les disciples de la deuxième génération appellent les disciples honorifiques « Ancien », tandis que tous les disciples internes l'appellent « Oncle-Maître ».
+L'Ancien Sun ne savait s'il devait rire ou pleurer, mais au fond de lui, il comprit que c'était une bonne chose. Plus quelqu'un était nerveux en lui parlant, plus cela signifiait qu'il le respectait. Le titre d'Ancien est, en réalité, un titre assez dérisoire au sein de la Secte Heng Yue. Presque tous les disciples de la deuxième génération appellent les disciples honorifiques « Ancien », tandis que la plupart des disciples internes l'appellent « Oncle-Maître ».
 
 Bien qu'il soit respecté aux yeux des disciples honorifiques, il n'avait aucun pouvoir au sein de la deuxième génération. Même la troisième génération ne lui vouait que peu de respect. Autrement, on ne lui aurait pas confié la tâche insignifiante de gérer les demandes de permission des disciples honorifiques souhaitant rentrer chez eux.
 
@@ -46,7 +46,7 @@ Une nuit s'était écoulée, et l'aube du jour suivant pointait. Il prit une gor
 
 Sans s'arrêter, il pressa le pas. Il traversa une ville alors que le soleil brillait et que la foule grouillait d'activité. Wang Lin fit quelques courses pour acheter des cadeaux à ses parents, puis repartit prestement.
 
-Le soir venu, Wang Lin atteignit enfin le village. De loin, il aperçut devant sa maison un drapeau rouge sur lequel était inscrit le mot « Vie ».
+Vers la fin de la matinée, Wang Lin atteignit enfin le village. De loin, il aperçut devant sa maison un drapeau rouge sur lequel était inscrit le mot « Longévité ».
 
 À l'extérieur, de nombreux chariots étaient stationnés et une foule animée s'activait.
 

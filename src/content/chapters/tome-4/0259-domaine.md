@@ -12,7 +12,7 @@ Le vieil homme agita la main et fit apparaître deux chapeaux de paille. « Port
 
 Wang Lin saisit le chapeau, l'examina avec son sens divin et fut immédiatement stupéfait. Bien que ce chapeau de paille paraisse ordinaire, il recelait de profonds secrets. En utilisant son sens divin, il découvrit qu'il contenait d'innombrables restrictions qu'il n'avait jamais vues auparavant; elles étaient comparables à des restrictions antiques.
 
-Et cela n'était que la couche superficielle. Quant aux restrictions logées au cœur de l'objet, Wang Lin ne pouvait même pas les sonder avec son sens divin en si peu de temps. Il décida alors qu'il ne rendrait ce chapeau sous aucun prétexte. Au pire, il n'aurait qu'à y ajouter quelques gravures supplémentaires.
+Et cela n'était que la couche superficielle. Quant aux restrictions logées au cœur de l'objet, Wang Lin ne pouvait même pas les sonder avec son sens divin en si peu de temps. Il décida alors qu'il ne rendrait ce chapeau sous aucun prétexte. Au pire, il n'aurait qu'à y ajouter quelques sculptures supplémentaires.
 
 Lorsque le vieil homme mit le chapeau, une lumière dorée l'enveloppa. Quand Wang Lin tenta d'analyser le vieil homme, la lueur dorée lui infligea une vive douleur.
 
@@ -30,13 +30,13 @@ Peu après, le géant d'or laissa échapper un grognement avant de s'estomper pr
 
 Le vieil homme marmonna aussitôt, mécontent. Wang Lin crut comprendre qu'il réprimandait le géant pour sa paresse...
 
-Au moment où l'écran se brisa, une onde d'énergie se propagea instantanément depuis le point d'impact, chargée d'un pouvoir destructeur. L'expression de Wang Lin changea brusquement. Alors qu'il s'apprêtait à esquiver, le vieil homme agita la main et un pilier surgit devant lui, interceptant l'onde de choc.
+Au moment où l'écran se brisa, une onde d'énergie se propagea instantanément depuis le point d'impact, chargée d'un pouvoir destructeur. L'expression de Wang Lin changea brusquement. Alors qu'il s'apprêtait à esquiver, le vieil homme agita la main et un écran de lumière surgit devant lui, interceptant l'onde de choc.
 
 Puis, Wang Lin regarda le vieil homme: celui-ci se tenait au milieu de l'onde d'énergie, semblant presque en jouir.
 
 Une fois l'onde dissipée, le paysage changea radicalement et des édifices apparurent un à un. Ces bâtiments flottaient parmi les nuages et émettaient des lueurs arc-en-ciel, donnant au lieu l'apparence d'un royaume céleste.
 
-Cette scène était bien plus majestueuse que ce que Wang Lin avait pu voir à Chu. Les bâtisses semblaient s'étendre à l'infini. Simultanément, des cris de colère s'élevèrent de ces structures et une douzaine d'auras puissantes s'élancèrent vers eux.
+Cette scène était bien plus majestueuse que ce que Wang Lin avait pu voir à Chu. Les bâtisses semblaient s'étendre à l'infini. Simultanément, des cris de colère s'élevèrent de ces structures et plusieurs dizaines d'auras puissantes s'élancèrent vers eux.
 
 Wang Lin déploya son sens divin. Parmi ces présences, il compta plus de trente cultivateurs de l'Âme Naissante. Les cinq restants étaient au stade de la Formation de l'Âme.
 
@@ -54,13 +54,13 @@ Soudain, quelques cultivateurs poussèrent des gémissements; leurs corps s'affa
 
 Un homme d'âge moyen vêtu d'une robe bleue s'avança hors du groupe. Son visage était pâle et ses yeux semblaient dépourvus de vie, bien qu'ils possédaient cette distinction nette entre le noir et le blanc que Wang Lin avait lui-même, dégageant une lumière extraordinaire.
 
-Après avoir fait quelques pas, il joignit les mains et déclara: « Vous deux avez brisé la grande formation de mon Secte Nuage Blanc. Si vous n'offrez pas d'explication, vous resterez ici pour toujours! »
+Après avoir fait quelques pas, il joignit les mains et déclara: « Vous deux avez brisé la grande formation de ma Secte Nuage Blanc. Si vous n'offrez pas d'explication, vous resterez ici pour toujours! »
 
 Le vieil homme renifla. D'un geste de la main, il fit apparaître une chaise en bambou qu'il plaça dans les airs avant de s'y asseoir. « Je m'en moque. Je ne suis qu'un homme de main. C'est lui qui m'a demandé de venir, alors parlez-lui. »
 
 Une pointe de crainte traversa le regard de l'homme d'âge moyen, mais la personne qu'il redoutait n'était pas Wang Lin, c'était le vieil homme.
 
-Après avoir entendu ces mots, son regard se tourna vers Wang Lin. « Camarade cultivateur, mon Secte Nuage Blanc vous a-t-il offensé par le passé? »
+Après avoir entendu ces mots, son regard se tourna vers Wang Lin. « Camarade cultivateur, ma Secte Nuage Blanc vous a-t-il offensé par le passé? »
 
 Wang Lin réfléchit un instant. Puis, sans dire un mot, il sortit une épée volante ordinaire de sa sacoche de rangement. Il la secoua légèrement pour y imprimer son sens divin, puis, dans un crépitement, l'épée se transforma en une petite sphère argentée.
 
@@ -68,13 +68,13 @@ Wang Lin réfléchit un instant. Puis, sans dire un mot, il sortit une épée vo
 
 La sphère s'élança soudainement en créant des détonations soniques, comme si elle pouvait déchirer le ciel.
 
-L'homme d'âge moyen afficha une prudence extrême, mais en voyant la sphère, il ricana: « Tu veux voir plus grand que la nature! » Au lieu de sortir un trésor, il pointa le vide et une énergie spirituelle pourpre apparut au bout de son doigt.
+L'homme d'âge moyen afficha une prudence extrême, mais en voyant la sphère, il ricana: « Tu te surestimes! » Au lieu de sortir un trésor, il pointa le vide et une énergie spirituelle pourpre apparut au bout de son doigt.
 
 Dès qu'elle se manifesta, l'énergie se mua en un dragon pourpre. La sphère argentée s'immobilisa brusquement alors que Wang Lin changeait de technique et criait: « Mutation! »
 
 Soudain, la sphère commença à bouger étrangement et se transforma en une créature semblable à une tortue. C'était une bête que Wang Lin avait tuée dans la Mer des Diables: un Zhong Gu.
 
-La bête Zhong Hu créée par la sphère prit soudain vie, révélant ses dents acérées dans un rugissement qui déchira le ciel, entamant un combat contre le dragon pourpre.
+La bête Zhong Gu créée par la sphère prit soudain vie, révélant ses dents acérées dans un rugissement qui déchira le ciel, entamant un combat contre le dragon pourpre.
 
 L'homme d'âge moyen laissa échapper un reniflement froid, forma un sceau et tonna: « Scission! »
 

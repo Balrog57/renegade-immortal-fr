@@ -30,7 +30,7 @@ Tie Zhu répondit d'un bref murmure, s'assit et prit quelques bouchées avec non
 
 « Père, est-ce que le quatrième oncle arrive bientôt? » demanda Tie Zhu en levant la tête.
 
-« Si l'on calcule le temps, il devrait arriver dans les prochains jours. Ton quatrième oncle a eu plus de succès que ton père. Dis-moi, mère de Tie Zhu, les plats spéciaux préparés pour lui ont-ils tous été emballés? » Dès que le père de Tie Zhu mentionna son frère, une pointe de mélancolie passa sur son visage.
+« Si l'on calcule le temps, il devrait arriver dans les prochains jours. Ton quatrième oncle a eu plus de succès que ton père. Dis-moi, mère de Tie Zhu, les légumes de montagne préparés pour lui ont-ils tous été emballés? » Dès que le père de Tie Zhu mentionna son frère, une pointe de mélancolie passa sur son visage.
 
 Sa mère hocha la tête et répondit avec émotion: « Tie Zhu, ton quatrième oncle est un homme de bien. Ces dernières années, c'est grâce à lui que les sculptures de ton père ont conservé leur valeur. Si tu réussis dans la vie, n'oublie pas de lui témoigner ta reconnaissance. »
 
@@ -54,7 +54,7 @@ Tie Zhu poussa un cri d'enthousiasme et se mit à feuilleter les ouvrages, incap
 
 La mère de Tie Zhu regarda tendrement son fils avant de s'adresser à l'invité: « Quatrième frère, ton grand frère pense toujours à toi. Tu devrais rester quelques jours de plus cette fois-ci. »
 
-L'homme secoua la tête: « Deuxième belle-sœur, j'ai beaucoup de affaires à régler en famille ces jours-ci. Je dois repartir dès demain matin. Une fois cette période chargée passée, je reviendrai vous voir. » Il lança un regard empreint de regret à son frère.
+L'homme secoua la tête: « Deuxième belle-sœur, j'ai beaucoup d'affaires à régler en famille ces jours-ci. Je dois repartir dès demain matin. Une fois cette période chargée passée, je reviendrai vous voir. » Il lança un regard empreint de regret à son frère.
 
 Le père de Tie Zhu soupira: « N'écoute pas ma femme. Prépare bien les marchandises demain. Les affaires familiales sont prioritaires. Nous nous reverrons une prochaine fois. »
 
@@ -138,9 +138,9 @@ Le père de Tie Zhu fronça les sourcils et répliqua: « Tie Zhu n'a peut-être
 
 « Ce n'est pas forcément vrai. Lorsque les sectes immortelles recherchent des disciples, les critères sont extrêmement stricts. Je vois bien que ce gamin est bien stupide. Y aller ne sera qu'une perte de temps pour lui », lança une voix hautaine depuis la calèche. Un adolescent de seize ou dix-sept ans en descendit.
 
-Le jeune homme était d'une grande beauté, avec des sourcils comme des lames de cimeterre, un visage rappelant le général Guan Yu et un regard chargé de dédain. Le père de Tie Zhu le foudroya du regard, tandis que Wang Lin lui lança une observation silencieuse mais profonde.
+Le jeune homme était d'une grande beauté, avec des sourcils comme des lames d'épée, un visage de jade et un regard chargé de dédain. Le père de Tie Zhu le foudroya du regard, tandis que Wang Lin lui lança une observation silencieuse mais profonde.
 
-Le visage du vieil homme changea de couleur et il s'écria: « Wang Zhuo, comment peux-tu être aussi impoli?! C'est ton deuxième oncle et ton petit frère Wang Lin! Pourquoi ne les salues-tu pas? » Il se tourna vers le père de Tie Zhu: « Mon fils a des propos déplacés. Deuxième frère, ne lui en veux pas, mais... » Il marqua une pause avant de reprendre: « Mais deuxièmme frère, l'admission dans une secte immortelle n'est pas une mince affaire, c'est une question de destin. Si la famille Wang a obtenu trois places cette fois-ci, c'est uniquement parce que la Secte Heng Yue s'est montrée très intéressée par mon fils. »
+Le visage du vieil homme changea de couleur et il s'écria: « Wang Zhuo, comment peux-tu être aussi impoli?! C'est ton deuxième oncle et ton petit frère Wang Lin! Pourquoi ne les salues-tu pas? » Il se tourna vers le père de Tie Zhu: « Mon fils a des propos déplacés. Deuxième frère, ne lui en veux pas, mais... » Il marqua une pause avant de reprendre: « Mais deuxième frère, l'admission dans une secte immortelle n'est pas une mince affaire, c'est une question de destin. Si la famille Wang a obtenu trois places cette fois-ci, c'est uniquement parce que la Secte Heng Yue s'est montrée très intéressée par mon fils. »
 
 Le père de Tie Zhu renifla: « Si ton fils peut réussir, alors le mien sera également sélectionné! »
 
@@ -174,7 +174,7 @@ Quinze jours passèrent rapidement. Ce jour-là, le quatrième oncle arriva en c
 
 Le père de Tie Zhu fut frappé de stupeur, une ombre de tristesse sur le visage. Il dit fermement: « Soit. Tie Zhu, suis ton oncle. Si tu es sélectionné, étudie avec ardeur à la Secte Heng Yue. Mais si ce n'est pas le cas, ne t'en fais pas et reviens à la maison. »
 
-Tie Zhu, refusant de quitter ses parents, hocha vigoureusement la tête. Sa mère sortit un paquet de la chambre et dit avec tendresse: « Tie Zhu, écoute ton oncle et ne cause aucun problème. Le monde extérieur n'est pas comme notre foyer; fais preuve de patience. Maman t'a préparé de nouveaux vêtements et tes patates douces rôties préférées. Tu vas me manquer... Si tu n'es pas choisi, reviens simplement. » Les larmes commencèrent à couler sur ses joues.
+Tie Zhu, à contrecœur, hocha vigoureusement la tête. Sa mère sortit un paquet de la chambre et dit avec tendresse: « Tie Zhu, écoute ton oncle et ne cause aucun problème. Le monde extérieur n'est pas comme notre foyer; fais preuve de patience. Maman t'a préparé de nouveaux vêtements et tes patates douces rôties préférées. Tu vas me manquer... Si tu n'es pas choisi, reviens simplement. » Les larmes commencèrent à couler sur ses joues.
 
 Tie Zhu n'avait jamais quitté le village de toute sa vie. C'était son premier grand départ.
 

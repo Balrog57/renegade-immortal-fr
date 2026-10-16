@@ -28,7 +28,7 @@ L'homme ramassa quelques fragments du mur brisé. Il les fixa avec une pointe de
 
 Le visage de Wang Lin se détendit légèrement. Il tendit la main dans le vide et, soudainement, toutes les pierres à côté de l'homme se déplacèrent selon un ordre précis. Puis, sa main droite forma un sceau et projeta une lueur. Rapidement, une brume se forma autour de l'amas de pierres.
 
-Wang Lin fixa l'étranger et demanda calmement: « Est-ce la restriction dont vous parliez? »
+Wang Lin fixa l'étranger et demanda calmement: « Est-ce la formation dont vous parliez? »
 
 L'homme afficha instantanément une expression d'excitation en agitant les mains et en se frappant la poitrine. Soudain, un symbole sur son corps s'illumina et il ouvrit les bras. Le sol trembla brusquement et le pan de terre sur lequel reposait la formation rocheuse s'éleva dans les airs, laissant derrière lui un immense gouffre.
 
@@ -46,7 +46,7 @@ Wang Lin fit quelques pas de recul. L'homme n'avait pas utilisé beaucoup de for
 
 Après avoir lancé l'objet, l'étranger adressa un sourire à Wang Lin et repartit.
 
-Le jour étant encore éclatant, Wang Lin observa prudemment la direction où l'homme s'était éloigné. Après un long moment, il détourna le regard. Il s'approcha de l'objet et baissa les yeux.
+Le jour commençant à se lever, Wang Lin observa prudemment la direction où l'homme s'était éloigné. Après un long moment, il détourna le regard. Il s'approcha de l'objet et baissa les yeux.
 
 C'était une perle ne mesurant qu'un dixième de la taille d'un poing. Elle était couverte de poussière et présentait même quelques fissures. Après l'avoir observée un moment, il parut surpris. Il ramassa une pierre au sol et frappa légèrement la perle. Celle-ci roula un peu en arrière.
 
@@ -54,7 +54,7 @@ De faibles éclats de pouvoir spirituel s'échappèrent de la perle.
 
 « C’est un trésor? » Il était stupéfait. Il tendit la main dans le vide et la perle s'éleva dans les airs. Après l'avoir inspectée, il la saisit sans hésiter. Il la scruta avec son Sens Divin et y injecta du pouvoir spirituel.
 
-Soudain, une fumée blanche jaillit de la perle. La fumée s'éleva et prit la forme d'un vieil homme. Ce dernier avait les cheveux d'une grue, la peau d'un poulet, le bec d'un aigle et la tête d'un harrier. Il dégageait une aura dangereuse. Il regarda Wang Lin avec désinvolture et afficha un sourire sarcastique: « Oses-tu affronter ce vieil homme? »
+Soudain, une fumée blanche jaillit de la perle. La fumée s'éleva et prit la forme d'un vieil homme. Ce dernier avait les cheveux d'une grue, la peau d'un poulet, le bec d'un aigle et les yeux d'un épervier. Il dégageait une aura dangereuse. Il regarda Wang Lin avec désinvolture et afficha un sourire sarcastique: « Oses-tu affronter ce vieil homme? »
 
 Wang Lin fut interdit et recula de quelques pas. Après un examen attentif, il remarqua que l'entité n'était qu'au 15e niveau de Condensation de Qi. Il se frotta le nez, ses yeux s'illuminant tandis qu'il injectait rapidement davantage de pouvoir spirituel dans la perle de pierre.
 
@@ -72,7 +72,7 @@ L'aura et l'expression avaient atteint leur apogée. Wang Lin était persuadé q
 
 Et avec l'augmentation de sa propre culture, il pourrait injecter plus de pouvoir spirituel dans la perle, augmentant ainsi la puissance du vieil homme. C'était là une méthode infaillible pour intimider autrui.
 
-Wang Lin rangea le trésor et marmonna pour lui-même: « Cet étrange être à la peau bleue est vraiment intéressant. Il a dû se sentir mal après avoir brisé la petite formation de confusion, alors il m'a offert ce trésor. »
+Wang Lin rangea le trésor et marmonna pour lui-même: « Cet étrange être à la peau bleue est vraiment intéressant. Il a dû se sentir mal après avoir emporté la petite formation de confusion, alors il m'a offert ce trésor. »
 
 De cet échange bref, il comprit immédiatement que l'étranger ne savait pas utiliser les trésors magiques et qu'il devait en exister d'autres au sein des ruines. Désormais, cette cité dévastée était devenue un véritable trésor aux yeux de Wang Lin.
 
@@ -94,7 +94,7 @@ Wang Lin réfléchit un instant, puis fit circuler l'énergie Yin dans son danti
 
 Sous son contrôle, l'énergie Yin tourbillonna de plus en plus vite, provoquant une douleur fulgurante dans son abdomen. Wang Lin connaissait parfaitement cette technique; il savait que plus la douleur était vive, plus le moment de la percée était proche.
 
-Ce type de douleur était au-delà de ce qu'un être normal pouvait endurer. C'était comme si quelqu'un lui transperçait l'estomac avec une épée en la faisant tournoyer. En quelques respirations seulement, Wang Lin fut couvert de sueur froide.
+Ce type de douleur était au-delà de ce qu'un être normal pouvait endurer. C'était comme si quelqu'un lui enfonçait un couteau dans le bas-ventre et le tournait sans cesse. En quelques respirations seulement, Wang Lin fut couvert de sueur froide.
 
 L'énergie Yin se transforma rapidement en un tourbillon s'élargissant sous l'effet de la rotation. De l'extérieur, le ventre de Wang Lin virait au vert et du givre commençait à recouvrir tout son corps.
 

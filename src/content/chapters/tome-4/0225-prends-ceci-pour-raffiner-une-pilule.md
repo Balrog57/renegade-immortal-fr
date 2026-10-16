@@ -48,7 +48,7 @@ Le visage de Liu Fei s'affaissa. D'un revers de manche, il disparut. Au même mo
 
 Quant à la raison initiale de leur rassemblement, elle semblait avoir été oubliée. Comparée à l'ascension vers l'Âme Naissante, la cérémonie de l'union des couples ne pouvait tout simplement pas rivaliser.
 
-Alors qu'ils sortaient de la salle principale pour rejoindre la place, les sept fourneaux à pilules Heaven Stealing émis un bourdonnement sonore. Puis, les sept récipients furent tous repoussés vers l'extérieur, comme mus par une main invisible. De larges fissures apparurent dans le sol, au centre de la place.
+Alors qu'ils sortaient de la salle principale pour rejoindre la place, les sept Fours à Pilules « Vol de Ciel » émirent un bourdonnement sonore. Puis, les sept récipients furent tous repoussés vers l'extérieur, comme mus par une main invisible. De larges fissures apparurent dans le sol, au centre de la place.
 
 Une épaisse couche d'air glacial s'échappa des crevasses, plongeant soudainement la place dans un froid intense. Bien que l'expression de Sima Yunnan fût restée impassible, il était secrètement stupéfait. Une telle aura n'était pas celle qu'un cultivateur de l'Âme Naissante ordinaire pouvait dégager.
 
@@ -66,7 +66,7 @@ Alors que l'Ancien en robe grise s'apprêtait à inspecter la faille, il remarqu
 
 « Puisque tu es déjà venu, ne repars pas. » Une voix aussi glaciale que les vents de l'hiver émana de la fissure.
 
-Le corps de Sun Zhenwei se dérobait et il s'effondra au sol. Il connaissait trop bien cette voix; c'était celle qui le faisait trembler de nervosité ces derniers temps.
+Le corps de Sun Zhenwei se dérobait et il faillit s'effondrer au sol. Il connaissait trop bien cette voix; c'était celle qui le faisait trembler de nervosité ces derniers temps.
 
 Puis, un jeune homme aux longs cheveux blancs émergea de la faille. Une étoile violette étincelante brillait sur son front. Il était semblable à une glace millénaire immuable. À l'instant de son apparition, l'atmosphère devint encore plus glaciale.
 
@@ -88,7 +88,7 @@ Sima Yunnan prit une profonde inspiration, les yeux brillants d'ambition. Bien q
 
 Pourtant, même lui ne s'attendait pas à ce que le niveau de culture de cet individu soit assez élevé pour neutraliser Liu Fei si aisément. Son cœur fut frappé par la stupeur. Au minimum, il était incapable de discerner le niveau de culture de Liu Fei, ce qui signifiait qu'il n'osait même pas imaginer celui du jeune homme. Mais en même temps, une satisfaction l'habitait: plus cet individu était puissant, plus les chances que la Secte du Nuage Céleste soit anéantie aujourd'hui étaient grandes. Surtout après que Liu Fei, qui prétendait vouloir s'emparer de son Âme Naissante, ait été si facilement vaincu. Ce jour-là, la secte perdait véritablement son prestige.
 
-Tout le monde s'écarta pour laisser passer Li Muwan. Même Song Qing, le visage livide, força un sourire pour se pousser. Seul l'homme en robe grise affichait une expression extrêmement disgracieuse, principalement parce que Li Muwan était sa belle-fille et qu'elle marchait vers cet homme sur son appel, ce qui le mettait dans l'embarras. Mais il était avisé: malgré son irritation intérieure, il retrouva rapidement un visage impassible pour s'écarter.
+Tout le monde s'écarta pour laisser passer Li Muwan. Même Song Qing, le visage livide, força un sourire pour se pousser. Seul l'homme en robe grise affichait une expression extrêmement disgracieuse, principalement parce que Li Muwan était sa future belle-fille et qu'elle marchait vers cet homme sur son appel, ce qui le mettait dans l'embarras. Mais il était avisé: malgré son irritation intérieure, il retrouva rapidement un visage impassible pour s'écarter.
 
 Li Muwan traversa lentement la rangée de cultivateurs de l'Âme Naissante. Habituellement, lorsqu'ils la croisaient, ils la saluaient avec des sourires tout en restant arrogants et hautains. Mais aujourd'hui, tous ces experts montraient des signes de peur, et leur attitude envers elle avait radicalement changé. Li Muwan savait que tout cela était dû à un seul homme. Un homme qu'ils redoutaient et qui pouvait terrasser Liu Fei sans effort. Cet homme était son compagnon, Wang Lin.
 

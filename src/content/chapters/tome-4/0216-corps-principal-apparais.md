@@ -10,7 +10,7 @@ Chapitre 216 - Corps principal, apparais!
 
 Avant que Wang Lin n'entre dans la perle défiant le ciel, il avait mis en place des restrictions cachées pour empêcher quiconque de pénétrer dans la pièce. Même si quelqu'un parvenait à entrer, le corps de Wang Lin aurait disparu, et ils ne trouveraient donc rien.
 
-Après tout, même Duanmu, capable de trancher l'âme, ne pourrait détecter l'existence de l'espace de la perle défiant le ciel. La Secte Ciel Nuage n'abritait que des cultivateurs au stade de l'Âme Naissante, ils ne trouveraient donc absolument rien.
+Après tout, même le Seigneur Démon des Huit Extrêmes, Duanmu Ji, au stade de la Formation de l'Âme, ne pourrait détecter l'existence de l'espace de la perle défiant le ciel. La Secte Ciel Nuageux n'abritait que des cultivateurs au stade de l'Âme Naissante, ils ne trouveraient donc absolument rien.
 
 Wang Lin rendit hommage à ses parents et à Situ Nan, puis s'assit pour cultiver un moment. Ensuite, il sortit les pilules d'Établissement des Fondations, les posa sur le côté, et en prit une.
 
@@ -58,7 +58,7 @@ La culture de Wang Lin passa du stade de l'Établissement des Fondations à l'ap
 
 Pourtant, Wang Lin n'était pas satisfait. Il réfléchit un moment et sortit un fourneau à pilules. Ce dernier semblait tout à fait ordinaire, si ce n'est qu'un sceau en papier jaune le recouvrait.
 
-Ce fourneau était celui que Wang Lin avait obtenu de Yun Fei, celui qu'elle avait tenté d'utiliser pour convaincre quelqu'un de lever les restrictions qui l'entravaient. Cependant, tout ce qu'elle faisait était perçu par le démon qui la suivait, ce qui mena à sa perte.
+Ce fourneau était celui que Wang Lin avait obtenu de Yun Fei, celui qu'elle avait tenté d'utiliser en guise de paiement pour faire lever les restrictions qui l'entravaient. Cependant, tout ce qu'elle faisait était perçu par le démon qui la suivait, ce qui mena à sa perte.
 
 Ce fourneau était naturellement tombé entre les mains de Wang Lin.
 

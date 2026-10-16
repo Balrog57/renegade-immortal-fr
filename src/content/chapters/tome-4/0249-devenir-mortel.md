@@ -8,23 +8,23 @@ slug: devenir-mortel
 ---
 Après être entré dans le pays de rang 4, Wang Lin ne volait plus; il marchait tel un mortel. Il observa les environs de ce lieu étranger et poussa un soupir.
 
-Aucune méthode de culture ne peut aider à franchir l'étape de l'Âme Naissante pour atteindre celle de la Séparation Spirituelle. Même les pilules sont inutiles, à moins de pouvoir trouver des remèdes de rang 6 ou supérieur.
+Aucune méthode de culture ne peut aider à franchir l'étape de l'Âme Naissante pour atteindre celle de la Formation de l'Âme. Même les pilules sont inutiles, à moins de pouvoir trouver des remèdes de rang 6 ou supérieur.
 
-Pour atteindre le stade de la Séparation Spirituelle, il faut étudier les cieux et acquérir son propre Dao. C'est là l'unique voie.
+Pour atteindre le stade de la Formation de l'Âme, il faut étudier les cieux et acquérir son propre Dao. C'est là l'unique voie.
 
-Wang Lin n'avait rejoint aucune secte en entrant dans ce pays de rang 4 car il en avait parfaitement conscience. Après tout, intégrer une secte ne l'aiderait guère à atteindre la Séparation Spirituelle. S'il avait voulu rejoindre une organisation pour en devenir un membre éminent, cela lui aurait coûté trop de temps; un temps qu'il ne souhaitait pas gaspiller.
+Wang Lin n'avait rejoint aucune secte en entrant dans ce pays de rang 4 car il en avait parfaitement conscience. Après tout, intégrer une secte ne l'aiderait guère à atteindre la Formation de l'Âme. S'il avait voulu rejoindre une organisation pour en devenir un membre éminent, cela lui aurait coûté trop de temps; un temps qu'il ne souhaitait pas gaspiller.
 
-Fort de ses quatre cents années d'expérience dans la culture et de ses confrontations avec d'autres cultivateurs au stade de la Séparation Spirituelle, il comprenait qu'une compréhension des cieux était primordiale pour franchir ce seuil.
+Fort de ses quatre cents années d'expérience dans la culture et de ses confrontations avec d'autres cultivateurs au stade de la Formation de l'Âme, il comprenait qu'une compréhension des cieux était primordiale pour franchir ce seuil.
 
-Wang Lin avait longtemps arpenté le chemin du sang, mais tous ces massacres n'avaient rien à voir avec la compréhension des cieux. Il pressentait que s'il continuait sur cette voie, il ne serait jamais capable d'atteindre l'étape de la Séparation Spirituelle.
+Wang Lin avait longtemps arpenté le chemin du sang, mais tous ces massacres n'avaient rien à voir avec la compréhension des cieux. Il pressentait que s'il continuait sur cette voie, il ne serait jamais capable d'atteindre l'étape de la Formation de l'Âme.
 
-En réalité, le véritable niveau de culture de Wang Lin n'était pas celui de l'Âme Naissante. Le Domaine Ji de son corps principal l'empêchait d'atteindre ce stade; seul son avatar avait atteint l'Âme Naissante.
+En réalité, le véritable niveau de culture de Wang Lin n'était pas celui de l'Âme Naissante. Le Domaine Ji de son corps principal l'empêchait d'atteindre ce stade; seul son avatar avait atteint le début de l'Âme Naissante.
 
 Alors qu'il marchait sur la route, le corps de Wang Lin changea progressivement: son corps principal s'enfonça en lui pour sombrer dans un profond sommeil, tandis que son avatar se manifestait à l'extérieur.
 
 Wang Lin était arrivé à une certaine compréhension concernant son Domaine Ji; il ne chercherait donc plus à forcer le franchissement de ses blocages. Il ne dépendrait plus autant de ce domaine non plus. Désormais, il ne serait pour lui qu'un autre trésor magique.
 
-Ses trésors magiques actuels étaient trop faibles pour blesser des cultivateurs de la Séparation Spirituelle. Pour que ce trésor gagne en puissance, il aurait besoin de trésors célestes extrêmement rares, tel le Cristal Planétaire de Culture d'un pays de rang 6.
+Ses trésors magiques actuels étaient trop faibles pour blesser des cultivateurs de la Formation de l'Âme. Pour que ce trésor gagne en puissance, il aurait besoin de trésors célestes extrêmement rares, tel le Cristal Planétaire de Culture d'un pays de rang 6.
 
 Après avoir renoncé à l'usage immédiat du Domaine Ji, Wang Lin décida d'utiliser son avatar pour suivre la voie d'un cultivateur. Si un jour son avatar atteignait le stade de la Transformation de l'Âme, il aurait peut-être une chance d'obtenir ce cristal. Une fois raffiné, cela lui donnerait peut-être l'opportunité de briser les limites de son Domaine Ji.
 
@@ -68,15 +68,15 @@ L'homme l'observa attentivement, sourit et dit: « Je m'appelle Lu Xing. Cette r
 
 Wang Lin ne chercha pas d'excuse et hocha la tête.
 
-L'homme sourit, joignit les mains et sauta sur son cheval. Soudain, le cheval poussa un cri, mais au lieu de s'élancer, il fit marche arrière. Wang Lin se retourna et vit qu'à une centaine de mètres derrière lui, une calèche avançait lentement.
+L'homme sourit, joignit les mains et sauta sur son cheval. Soudain, le cheval poussa un cri, mais au lieu de s'élancer, il fit marche arrière. Wang Lin se retourna et vit qu'à cinq kilomètres derrière lui, une calèche avançait lentement.
 
-Une demi-heure plus tard, la calèche apparut derrière Wang Lin. Plus d'une centaine de cavaliers gardaient le véhicule. Leurs yeux étaient vifs et leur port altier; il était évident qu'il s'agissait d'experts en arts martiaux.
+Une heure plus tard, la calèche apparut derrière Wang Lin. Près d'une centaine de cavaliers gardaient le véhicule. Leurs yeux étaient vifs et leur port altier; il était évident qu'il s'agissait d'experts en arts martiaux.
 
 Lu Xing se tenait près de la calèche, discutant avec quelqu'un à l'intérieur. La route n'étant pas large, Wang Lin se posta sur le bas-côté dès qu'il aperçut l'attelage.
 
 Alors que la calèche passait, quatre cavaliers apparurent devant lui pour lui barrer la route. Lu Xing tourna les yeux vers Wang Lin, l'éclat de la curiosité brillant dans son regard. Il rapprocha son cheval de celui de Wang Lin, joignit les mains et demanda: « Jeune frère, aurais-tu des remèdes contre le mal du Vent Maléfique? »
 
-Wang Lin comprit qu'on le prenait pour un médecin. Avec son tempérament habituel, il n'aurait pas pris la peine de s'en préoccuper, mais il eut soudain une illumination. Pour atteindre le stade de la Séparation Spirituelle, il devait comprendre les cieux; peut-être était-ce là une occasion de s'immerger dans le monde mortel.
+Wang Lin comprit qu'on le prenait pour un médecin. Avec son tempérament habituel, il n'aurait pas pris la peine de s'en préoccuper, mais il eut soudain une illumination. Pour atteindre le stade de la Formation de l'Âme, il devait comprendre les cieux; peut-être était-ce là une occasion de s'immerger dans le monde mortel.
 
 Réfléchissant ainsi, Wang Lin demanda: « Quelqu'un est-il souffrant? »
 

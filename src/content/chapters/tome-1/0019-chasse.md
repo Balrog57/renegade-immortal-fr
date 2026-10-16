@@ -24,7 +24,7 @@ La Recherche d'Âme était une technique immortelle simple. Le pire résultat po
 
 Cependant, cette technique d'âme présentait des inconvénients. Avant d'atteindre le stade de la Formation du Noyau, si elle était utilisée sur un mortel, l'utilisateur subirait les mêmes dommages que sa cible.
 
-Au stade de la Formation du Noyau, ce n'était plus un problème. Néanmoins, on ne pouvait l'utiliser que trois fois dans une vie, et chaque usage entraînait la perte d'un niveau de culture pour l'utilisateur.
+Si la cible était elle aussi un cultivateur, cette restriction ne s'appliquait plus. Néanmoins, on ne pouvait l'utiliser que trois fois dans une vie, et chaque usage entraînait la perte d'un niveau de culture pour l'utilisateur.
 
 Wang Lin s'assit en tailleur dans sa chambre. Quelle que fût l'attention qu'il portait à la pierre, elle ne semblait pas spéciale. Pourtant, lorsqu'il la tenait, il sentait son esprit devenir extrêmement limpide. Il commença alors sa culture.
 
@@ -50,7 +50,7 @@ Au bout d'un moment, la sensation de fourmillements apparut enfin. Sun Dazhu pou
 
 Mais à cet instant précis, un Qi impur surgit au sein du corps de Wang Lin et détruisit rapidement le Qi en cours de condensation.
 
-Le visage de Sun Dazhu se crispa d'amertume. Il savait que la source de ce Qi impur était l'herbe brise-Qi qu'il avait glissée dans la nourriture de Wang Lin la veille. Une fois toute l'énergie spirituelle du remède épuisée, aucun Qi ne s'était condensé dans le corps du garçon.
+Le visage de Sun Dazhu se crispa d'amertume. Il savait que la source de ce Qi impur était l'Herbe de Dispersion du Qi qu'il avait glissée dans la nourriture de Wang Lin la veille. Une fois toute l'énergie spirituelle du remède épuisée, aucun Qi ne s'était condensé dans le corps du garçon.
 
 Sun Dazhu soupira, fixant Wang Lin avec des sentiments partagés.
 

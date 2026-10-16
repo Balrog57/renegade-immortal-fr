@@ -132,7 +132,7 @@ Cependant, deux objets captèrent l'attention de Wang Lin.
 
 L'un était une bouteille de jade rouge à moitié vide contenant un liquide semblable à du sang. En le sentant, Wang Lin confirma qu'il s'agissait bien de sang. Cette substance lui était étrangement familière.
 
-En tenant la bouteille, il se souvint soudainement: lors de l'extermination de la famille Teng, il avait trouvé une fiole similaire sur Teng One.
+En tenant la bouteille, il se souvint soudainement: lors de l'extermination de la famille Teng, il avait trouvé une fiole similaire sur Teng Yi.
 
 « Ce sang contient une trace du lignage des anciens dieux. À l'époque, j'avais utilisé cette bouteille pour activer une capacité d'ancien dieu! » Les yeux de Wang Lin s'illuminèrent.
 

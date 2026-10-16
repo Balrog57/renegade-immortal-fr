@@ -6,11 +6,11 @@ bookTitle: Clean Sweep
 en: Chapter 234 - Teng Huayuan
 slug: teng-huayuan
 ---
-Un jour plus tard, un jeune homme enveloppé d'une aura maléfique fixait le sol couvert de végétation d'un regard glacial.
+Deux jours plus tard, un jeune homme enveloppé d'une aura maléfique fixait le sol couvert de végétation d'un regard glacial.
 
 Cet individu était le cultivateur qui s'était précipité ici depuis Huo Fen. Si quelqu'un savait que ce jeune homme n'avait mis que quelques mois pour voyager de Huo Fen à la Mer des Démons, il en serait horrifié. La distance entre Huo Fen et la Mer des Démons était immense.
 
-Même Duanmu avait dû utiliser un ancien réseau de transfert. Il avait un jour déclaré que s'il devait voler, il lui faudrait des centaines d'années avec son niveau de culture de « Séparation Spirituelle » pour y parvenir.
+Même Duanmu avait dû utiliser un ancien réseau de transfert. Il avait un jour déclaré que s'il devait voler, il lui faudrait des centaines d'années avec son niveau de culture de « Formation de l'Âme » pour y parvenir.
 
 Par conséquent, la vitesse de ce jeune homme atteignait un niveau inimaginable.
 
@@ -40,9 +40,9 @@ Wang Lin sauta sur son dos. Il envoya un message mental à la bête moustique. C
 
 Il se déplaçait très rapidement. Peu de temps après, Wang Lin sentit plusieurs lieux regorgeant de puissants cultivateurs. Clairement, ces endroits étaient les sièges des sectes locales.
 
-Wang Lin ne s'arrêta pas et traversa rapidement ce pays. Après dix jours, il avait passé d'innombrables nations de culture de rang 1 et 2 pour atteindre sa destination: le second réseau de transfert.
+Wang Lin ne s'arrêta pas et traversa rapidement ce pays. Après dix jours, il avait traversé plusieurs nations de culture de rang 2 et 3 pour atteindre sa destination: le second réseau de transfert.
 
-Grâce à ce réseau, il pourrait réduire rapidement la distance entre lui et Zhao. Cependant, alors qu'il se trouvait à mille kilomètres du réseau, il commença lentement à froncer les sourcils.
+Grâce à ce réseau, il pourrait réduire rapidement la distance entre lui et Zhao. Cependant, alors qu'il se trouvait à des milliers de kilomètres du réseau, il commença lentement à froncer les sourcils.
 
 Selon la carte, le réseau de transfert devait se trouver dans une montagne, mais Wang Lin sentait clairement que d'innombrables bâtiments avaient été construits dans cette zone. Le secteur était également saturé d'énergie spirituelle. C'était désormais un terrain de culture.
 
@@ -52,7 +52,7 @@ Au même moment, sur les sentiers de la montagne, des jeunes montaient péniblem
 
 En contemplant cette scène familière, Wang Lin ressentit un certain regret dans son cœur. Il ignorait de quoi avait l'air la Secte Heng Yue aujourd'hui. Bien que ses sentiments pour elle ne fussent pas profonds, c'était tout de même la secte qui l'avait introduit dans le monde de la culture.
 
-Wang Lin chevaucha la bête moustique vers la secte, le cœur chargé d'émotions complexes. Lorsqu'il se trouva à environ cent kilomètres de la secte, une brève lumière blanche apparut, lui interdisant l'accès.
+Wang Lin chevaucha la bête moustique vers la secte, le cœur chargé d'émotions complexes. Lorsqu'il se trouva à environ cinquante kilomètres de la secte, une brève lumière blanche apparut, lui interdisant l'accès.
 
 Sans qu'il ait besoin d'agir, la bête moustique poussa un rugissement et perça la lumière de son proboscis acéré. Puis, la bête aspira l'air, provoquant une fissure dans le pilier de lumière qui finit par s'effondrer.
 
@@ -122,19 +122,19 @@ Zhao se situait à l'extrême bord du continent Kong. Ce n'était pas un grand p
 
 Bien qu'il possédât des veines spirituelles, leur production était très faible, suffisant à peine à soutenir le pays; même lors des périodes d'exploitation minière, l'extraction restait limitée. En raison de la rareté des veines spirituelles, les herbes spirituelles étaient également devenues très rares. On pouvait dire que Zhao était un tout petit pays frontalier.
 
-De nos jours, la secte numéro un à Zhao était la Secte Xuan Dao, et son ancêtre, Punnan Zi, avait atteint le stade avancé de l'Âme Naissante il y a de cela bien longtemps. Au cours de ces 400 dernières années, bien qu'il n'ait pas atteint le stade de la Séparation Spirituelle, sa culture avait considérablement augmenté, et les autres cultivateurs au stade avancé de l'Âme Naissante n'étaient absolument pas de taille face à lui.
+De nos jours, la secte numéro un à Zhao était la Secte Xuan Dao, et son ancêtre, Punnan Zi, avait atteint le stade avancé de l'Âme Naissante il y a de cela bien longtemps. Au cours de ces 400 dernières années, bien qu'il n'ait pas atteint le stade de la Formation de l'Âme, sa culture avait considérablement augmenté, et les autres cultivateurs au stade avancé de l'Âme Naissante n'étaient absolument pas de taille face à lui.
 
-Outre la Secte Xuan Dao, les sectes orthodoxes de Zhao, comme la Secte Éthérée, ne s'étaient pas mieux en mieux réussies et étaient progressivement devenues des sectes de seconde zone. Parallèlement, la Secte Nirvana et la Secte Yuan Kui avaient subi le même sort. En raison de l'ascension de Punnan Zi, leurs sectes avaient été reléguées au second rang.
+Outre la Secte Xuan Dao, les sectes orthodoxes de Zhao, comme la Secte Éthérée, ne s'en sortaient plus aussi bien et étaient progressivement devenues des sectes de seconde zone. Parallèlement, la Secte Nirvana et la Secte Yuan Kui avaient subi le même sort. En raison de l'ascension de Punnan Zi, leurs sectes avaient été reléguées au second rang.
 
 Quant aux sectes démoniaques — la Secte du Chemin Céleste, la Secte He Huan et la Secte Wu Feng —, elles s'en sortaient mieux. Bien qu'elles ne pussent rivaliser avec Punnan Zi, elles étaient un cran au-dessus des sectes orthodoxes.
 
 Cependant, sous l'emprise de fer de Punnan Zi, les sectes démoniaques et orthodoxes de Zhao avaient cessé de s'affronter violemment. Bien qu'il existât encore des tensions, il ne s'agissait que de petits conflits qui n'aboutissaient jamais à de grandes batailles.
 
-On pouvait dire que le Zhao actuel était sous le contrôle total de Punnan Zi et progressait lentement vers le statut de pays de culture de rang 4. Une fois que Punnan Zi atteindrait la Séparation Spirituelle, devenir un pays de rang 4 deviendrait une réalité aisée.
+On pouvait dire que le Zhao actuel était sous le contrôle total de Punnan Zi et progressait lentement vers le statut de pays de culture de rang 4. Une fois que Punnan Zi atteindrait la Formation de l'Âme, devenir un pays de rang 4 deviendrait une réalité aisée.
 
 En plus de ces sectes, de nombreuses figures célèbres étaient apparues au cours de ces 400 ans.
 
-Comme le génie de la Secte Xuan Dao, Wang Zhuo. Cet homme n'avait mis que 200 ans pour atteindre la Formation du Noyau et 400 ans de plus pour atteindre son stade avancé. Une telle vitesse de culture était extrêmement rare à Zhao.
+Comme le génie de la Secte Xuan Dao, Wang Zhuo. Cet homme n'avait mis que 200 ans pour atteindre la Formation du Noyau et 200 ans de plus pour atteindre son stade avancé. Une telle vitesse de culture était extrêmement rare à Zhao.
 
 Au-delà de lui, les autres sectes avaient vu émerger des génies, mais comparés à la famille Teng, ils n'étaient pas du tout à la hauteur.
 
@@ -142,9 +142,9 @@ Durant ces 400 dernières années, outre la renommée de Punnan Zi, l'autre figu
 
 L'ancêtre de la famille Teng, Teng Huayuan, était au début du stade de l'Âme Naissante il y a 400 ans. Puis, avec l'aide de Punnan Zi, il atteignit le stade avancé de l'Âme Naissante et devint l'un des plus grands cultivateurs de Zhao.
 
-À Zhao, dès qu'une personne atteignait le stade de l'Âme Naissante, elle recevait un immense pouvoir et un statut élevé. Bien sûr, cela n'était vrai que si elle se soumettait aux ordres de Punnan Zi.
+À Zhao, dès qu'une personne atteignait le stade avancé de l'Âme Naissante, elle recevait un immense pouvoir et un statut élevé. Bien sûr, cela n'était vrai que si elle se soumettait aux ordres de Punnan Zi.
 
-Punnan Zi avait instauré une règle que tous les habitants de Zhao devaient suivre: ils ne devaient pas se soucier de la quantité de ressources consommées; ils devaient impérativement faire émerger un cultivateur au stade de la Séparation Spirituelle parmi les membres de l'Âme Naissante afin d'élever le pays au rang 4.
+Punnan Zi avait instauré une règle que tous les habitants de Zhao devaient suivre: ils ne devaient pas se soucier de la quantité de ressources consommées; ils devaient impérativement faire émerger un cultivateur au stade de la Formation de l'Âme parmi les membres de l'Âme Naissante afin d'élever le pays au rang 4.
 
 Avec l'augmentation du niveau de culture de Teng Huayuan, le statut de la famille Teng avait également progressé. Les perspectives de la lignée s'étaient élargies et elle avait engendré de nombreux descendants, devenant ainsi la première famille de culture de Zhao.
 
@@ -152,23 +152,23 @@ Les membres de cette famille étaient disciples dans presque toutes les sectes, 
 
 On pouvait dire que la famille Teng était déjà profondément intégrée au pays de Zhao. Ce n'était pas que personne ne connaissait leur nom, mais la plupart du temps, Teng Huayuan n'avait même pas besoin d'agir: ceux qui nourrissaient des intentions hostiles envers la famille Teng disparaissaient simplement.
 
-Quant à ce que faisait Teng Huayuan, Punnan Zi ne l'interrogeait jamais. Ce dernier était entièrement investi dans sa tentative de percée vers le stade de la Séparation Spirituelle.
+Quant à ce que faisait Teng Huayuan, Punnan Zi ne l'interrogeait jamais. Ce dernier était entièrement investi dans sa tentative de percée vers le stade de la Formation de l'Âme.
 
 La Ville de la Famille Teng avait déjà été agrandie six fois au cours des 400 dernières années; c'était désormais une métropole immense, célèbre dans tout le Zhao.
 
-Il existait une chambre secrète à cent pieds sous la ville de la famille Teng. Cette pièce possédait dix fois plus d'énergie spirituelle que l'extérieur, car elle reposait sur une veine spirituelle. Bien que cette veine ne fût pas vaste, elle était amplement suffisante pour la culture. Puisque l'ancêtre de la famille Teng en avait découvert l'existence, il s'était servi de chaque agrandissement de la ville pour creuser lentement une chambre pour lui-même.
+Il existait une chambre secrète à 330 mètres sous la ville de la famille Teng. Cette pièce possédait dix fois plus d'énergie spirituelle que l'extérieur, car elle reposait sur une veine spirituelle. Bien que cette veine ne fût pas vaste, elle était amplement suffisante pour la culture. Puisque l'ancêtre de la famille Teng en avait découvert l'existence, il s'était servi de chaque agrandissement de la ville pour creuser lentement une chambre pour lui-même.
 
 C'était un secret que même Punnan Zi ignorait, et seuls quelques membres de la famille Teng en étaient informés. On n'était autorisé à utiliser cette chambre que lorsqu'on était sur le point de réaliser une percée majeure.
 
 Ce jour-là, dans la chambre secrète souterraine, un vieil homme à la chevelure blanche ouvrit les yeux, révélant un regard perçant.
 
-Ses sourcils se froncèrent. Alors qu'il cultivait, il ressentit soudainement une soif de sang. Cette sensation provoqua un chaos dans l'énergie spirituelle de son corps.
+Ses sourcils se froncèrent. Alors qu'il cultivait, il ressentit soudainement un funeste pressentiment de sang. Cette sensation provoqua un chaos dans l'énergie spirituelle de son corps.
 
 Le vieil homme réfléchit un instant. Sa main droite traça un sceau et projeta une lumière blanche qui flotta devant lui. Il prononça rapidement quelques mots complexes, et bientôt la lumière vacilla et trembla. Graduellement, son expression devint de plus en plus grave alors qu'il observait l'éclat.
 
-Mais à cet instant précis, la lumière blanche trembla violemment. Elle échappa à son contrôle et se dissipa sans laisser de trace. Le visage du vieil homme s'assombrit brusquement. Il murmura pour lui-même: « Étrange... même la technique de détection spirituelle de Punnan Zi n'est pas capable de déterminer l'origine de cette soif de sang... »
+Mais à cet instant précis, la lumière blanche trembla violemment. Elle échappa à son contrôle et se dissipa sans laisser de trace. Le visage du vieil homme s'assombrit brusquement. Il murmura pour lui-même: « Étrange... même la technique de détection spirituelle de Punnan Zi n'est pas capable de déterminer l'origine de ce pressentiment de sang... »
 
-Il réfléchit encore et une lueur froide traversa ses yeux. Il pensa: « Avec mon niveau de culture actuel et mes connexions à Zhao, même si le propriétaire de cette soif de sang venait ici, je pourrais facilement m'en débarrasser. »
+Il réfléchit encore et une lueur froide traversa ses yeux. Il pensa: « Avec mon niveau de culture actuel et mes connexions à Zhao, même si ce présage de sang se réalisait, je pourrais facilement y faire face. »
 
 Cet homme était l'ancêtre de la famille Teng qui avait tué Wang Lin, le symbole du clan: Teng Huayuan.
 
@@ -184,7 +184,7 @@ Au cours des 400 dernières années, chaque fois qu'il se sentait troublé ou co
 
 Il soupira, remit la tablette en place et se détourna pour partir.
 
-À ce moment-là, à l'extérieur de la Ville de la Famille Teng, deux éclairs de lumière d'épée volaient vers la cité. À cent pieds de distance, ils se posèrent, révélant un homme et une femme.
+À ce moment-là, à l'extérieur de la Ville de la Famille Teng, deux éclairs de lumière d'épée volaient vers la cité. À 330 mètres de distance, ils se posèrent, révélant un homme et une femme.
 
 L'homme était d'âge mûr, mais restait très séduisant; il avait manifestement été d'une beauté éclatante dans sa jeunesse. Il portait une robe blanche et dégageait l'aura d'un cultivateur. La femme n'était pas éblouissante, mais elle émanait une grande élégance. Elle portait également une robe blanche, les sourcils froncés, signe qu'elle était tourmentée par des pensées.
 

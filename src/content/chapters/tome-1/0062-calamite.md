@@ -92,6 +92,6 @@ La vieille femme ordonna: « Huang Long, vite! Rassemble tous les disciples inte
 
 Le corps de Huang Long trembla. Sans dire un mot, il s'élança vers le pont menant au Pic Heng Yue.
 
-« Hmph. Elle a résisté à deux attaques. Que cette troisième attaque la brise! » Pun Nanzi laissa échapper un ricanement froid. Il projeta une bouffée d'énergie de l'Âme Naissante dans la petite colline, qui grandit alors dix fois, obscurcissant le ciel au-dessus du Pic des Pins.
+« Hmph. Elle a résisté à deux attaques. Que cette troisième attaque la brise! » Pu Nanzi laissa échapper un ricanement froid. Il projeta une bouffée d'énergie de l'Âme Naissante dans la petite colline, qui grandit alors dix fois, obscurcissant le ciel au-dessus du Pic des Pins.
 
 Dans un fracas assourdissant, l'un des piliers de jade blanc se brisa. L'Ancien de l'Établissement des Fondations qui siégeait dessus saigna abondamment par tous les orifices et s'effondra au sol.

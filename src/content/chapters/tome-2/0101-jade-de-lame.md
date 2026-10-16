@@ -28,7 +28,7 @@ Ye Zizai resta longuement en silence pour réfléchir. Après un moment, il sort
 
 « Que tous les disciples au stade de l'Établissement des Fondations des grottes 77 à 99 se rassemblent immédiatement dans la grotte 36. » Après avoir parlé, il marqua une pause et jeta un regard vers le recoin où il avait enfermé Adai. Puis, prenant une décision, il plaça un jade sur son front avant de le lancer.
 
-Mu Rong était en pleine culture lorsque ses yeux s'ouvrirent brusquement: un jade venait de jaillir de son sac de rangement. Son expression changea légèrement et il le ramassa, l'esprit troublé. Après un long silence, il soupira et marmonna: « Heureusement que j'ai franchi le stade du milieu de l'Établissement des Fondations il y a trois ans pour passer de la grotte 82 à la 72, sinon ma vie serait en grand danger aujourd'hui. »
+Mu Rong était en pleine culture lorsque ses yeux s'ouvrirent brusquement: un jade venait de jaillir de son sac de rangement. Son expression changea légèrement et il le ramassa, l'esprit troublé. Après un long silence, il soupira et marmonna: « Heureusement que j'ai atteint le début du stade de l'Établissement des Fondations il y a trois ans pour passer de la grotte 87 à la 72, sinon ma vie serait en grand danger aujourd'hui. »
 
 Soudain, une fumée verte apparut devant lui, prenant la forme d'un morceau de jade.
 
@@ -62,7 +62,7 @@ Wang Lin fronça les sourcils. Il sentait que quelque chose clochait. Après avo
 
 Il n'y avait aucun cultivateur du milieu du stade de l'Établissement des Fondations, mais quelques-uns se trouvaient au stade avancé. Ces derniers étaient radicalement différents des autres, comme la différence entre un mort et un vivant.
 
-Les pupilles de Wang Lin se rétractèrent lorsque des gaz s'échappèrent des seize flammes bleues. Les émanations se rassemblèrent pour former la silhouette de Ye Zizai. Wang Lin remarqua qu'à son apparition, les yeux de tous les occupants de la grotte se remplirent d'admiration.
+Les pupilles de Wang Lin se rétractèrent lorsque des gaz s'échappèrent des seize flammes bleues. Les émanations se rassemblèrent pour former la silhouette de Ye Zizai. Wang Lin remarqua qu'à son apparition, les yeux de la plupart des occupants de la grotte se remplirent d'une ferveur fanatique.
 
 Le regard de Ye Zizai balaya l'assistance et s'arrêta sur Wang Lin durant quelques secondes. Il déclara d'un ton plat: « Le champ de bataille étranger, qui ne s'ouvre que tous les cent ans, est sur le point de réapparaître. Pour obtenir le droit d'y entrer, nous devrons peut-être combattre les sectes orthodoxes. La règle est stricte: les cultivateurs de la Formation du Noyau et de l'Âme Naissante n'ont pas le droit d'entrer. Bientôt, vous serez tous téléportés dans la Vallée Jue Ming. Du Chen sera responsable de tout le monde là-bas. Du Chen, approche. »
 
@@ -78,7 +78,7 @@ Sans dire un mot, Wang Lin se mordit la langue et cracha un peu de sang. Il pres
 
 La technique permettant d'extraire un fragment de son âme était inscrite dans le jade que Ye Zizai lui avait remis.
 
-Wang Lin pointa la goutte de sang doré. Elle s'élança et vint se poser sur l'un des jades tenus par Ye Zizai. Ce dernier fut stupéfait en voyant Wang Lin. Il ne s'attendait pas à une telle coopération. À l'origine, il était prêt à tuer Wang Lin s'il résistait. Il avait déjà décidé de ne plus utiliser Wang Lin comme marionnette ou cible de possession; après tout, hormis sa méthode de culture étrange, le talent de Wang Lin n'égalait pas celui des candidats qu'il avait déjà sélectionnés. N'importe lequel des individus qu'il avait préparés possédait un talent bien supérieur à celui de Wang Lin, c'est pourquoi il avait finalement choisi Adai.
+Wang Lin pointa la goutte de sang doré. Elle s'élança et vint se poser sur l'un des jades tenus par Ye Zizai. Ce dernier fut stupéfait en voyant Wang Lin. Il ne s'attendait pas à une telle coopération. À l'origine, il était prêt à tuer Wang Lin s'il résistait. Il avait déjà décidé de ne plus utiliser Wang Lin comme marionnette ou cible de possession; après tout, hormis sa méthode de culture raffinée, le talent de Wang Lin n'égalait pas celui des candidats qu'il avait déjà sélectionnés. N'importe lequel des individus qu'il avait préparés possédait un talent bien supérieur à celui de Wang Lin, c'est pourquoi il avait finalement choisi Adai.
 
 Voyant que Wang Lin obéissait, Ye Zizai fit un geste de la main et une immense ouverture se déchaîna. L'intérieur était d'une obscurité totale et une force d'aspiration en émanait.
 
@@ -102,7 +102,7 @@ Ye Zizai répondit calmement: « L'énergie Yin de Wang Lin est très pure, il d
 
 La voix rauque éclata d'un rire dément et accepta la proposition.
 
-La Vallée Jue Ming se situait à la limite sud de Zhao. C'était une vallée immense, parsemée de jungles et de rivières. Comme elle servait de lieu de compétition pour l'accès au champ de bataille étranger, la zone était perpétuellement enveloppée de brume.
+La Vallée Jue Ming se situait dans le sud de Zhao. C'était une vallée immense, parsemée de jungles et de rivières. Comme elle servait de lieu de compétition pour l'accès au champ de bataille étranger, la zone était perpétuellement enveloppée de brume.
 
 À cet instant, dans la partie nord de la vallée, une porte monumentale apparut tandis que des cultivateurs, portant leurs cercueils, en sortaient un à un.
 

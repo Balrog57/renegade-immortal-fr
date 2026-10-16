@@ -28,23 +28,23 @@ Tout au long du trajet, Cheng Xian ne cessa presque pas de parler. Il était év
 
 Sa façon de parler était si animée que Wang Lin n'en fut pas irrité. C'est ainsi que les deux arrivèrent à la cour sud.
 
-« Il faut dire que l'Ancienne Li n'est pas dans la secte depuis longtemps. Elle n'est ici que depuis environ cent ans, mais ses compétences en alchimie sont prodigieuses. J'ai entendu dire qu'autrefois, l'Ancienne Li rivalisait avec les deux alchimistes de rang 5 de la Secte Ciel Nuageux. Elle ne leur est pas restée en reste et a réussi à raffiner une Pilule de Cultivation Démoniaque de rang 5, qui est l'un des trois trésors de notre secte. » En évoquant la pilule, Cheng Xian afficha un regard d'admiration.
+« Il faut dire que l'Ancienne Li n'est pas dans la secte depuis longtemps. Elle n'est ici que depuis environ cent ans, mais ses compétences en alchimie sont prodigieuses. J'ai entendu dire qu'autrefois, l'Ancienne Li rivalisait avec les deux alchimistes de rang 5 de la Secte Ciel Nuageux. Elle ne leur est pas restée en reste et a réussi à raffiner une Pilule de Culture Démoniaque de rang 5, qui est l'un des trois trésors de notre secte. » En évoquant la pilule, Cheng Xian afficha un regard d'admiration.
 
-« Une Pilule de Cultivation Démoniaque? » Wang Lin fut frappé de stupeur. Le nom de cette pilule était bien étrange. Se pourrait-il qu'en la consommant, on se transforme en démon?
+« Une Pilule de Culture Démoniaque? » Wang Lin fut frappé de stupeur. Le nom de cette pilule était bien étrange. Se pourrait-il qu'en la consommant, on se transforme en démon?
 
-Voyant l'expression de Wang Lin, Cheng Xian esquissa un sourire fier et dit: « Hehe, c'est vrai que cette pilule a un nom bizarre. Lors de sa création, l'Ancêtre a demandé à l'Ancienne Li d'en trouver un nom. Après avoir réfléchi un moment, elle est tombée sur celui-ci. Bien que son nom soit "Cultivation Démoniaque", cela n'a rien à voir avec le fait de cultiver pour devenir un démon. »
+Voyant l'expression de Wang Lin, Cheng Xian esquissa un sourire fier et dit: « Hehe, c'est vrai que cette pilule a un nom bizarre. Lors de sa création, l'Ancêtre a demandé à l'Ancienne Li d'en trouver un nom. Après avoir réfléchi un moment, elle est tombée sur celui-ci. Bien que son nom soit "Culture Démoniaque", cela n'a rien à voir avec le fait de cultiver pour devenir un démon. »
 
-« Quel est l'effet de cette pilule? » Wang Lin trouvait cela très suspect. Cette pilule s'appelait la Cultivation Démoniaque, et cette Ancienne Li venait du pays de Huo Fen et de la secte Li Hui. Il devait y avoir un lien.
+« Quel est l'effet de cette pilule? » Wang Lin trouvait cela très suspect. Cette pilule s'appelait la Culture Démoniaque, et cette Ancienne Li venait du pays de Huo Fen et de la secte Luo He. Il devait y avoir un lien.
 
 « Les effets sont prodigieux, mais je ne connais pas leurs propriétés exactes. » Cheng Xian haussa les épaules et ajouta: « Avec mon rang, comment pourrais-je le savoir? Cette pilule est considérée comme l'un des trois grands trésors de notre secte. »
 
 Wang Lin ne s'en formalisa pas et hocha la tête. Après un moment, ils arrivèrent devant la cour sud. Ce qui apparut devant Wang Lin fut un pont en arc enjambant un cours d'eau. L'eau émettait des ondulations d'énergie spirituelle.
 
-Sous la surface, d'innombrables carpes aux sept couleurs nageaient paisiblement.
+Sous la surface, plusieurs carpes aux sept couleurs nageaient paisiblement.
 
-Cheng Xian s'arrêta devant le pont et sourit: « Il existe une autre rumeur concernant la Pilule de Cultivation Démoniaque. Le frère veut l'entendre? »
+Cheng Xian s'arrêta devant le pont et sourit: « Il existe une autre rumeur concernant la Pilule de Culture Démoniaque. Le frère veut l'entendre? »
 
-« Je suis tout ouïe. » Les yeux de Wang Lin suivirent le pont vers l'intérieur de la cour, mais une restriction l'empêchait de voir trop loin. Il pouvait néanmoins distinguer l'environnement élégant à l'intérieur; cela ressemblait au jardin d'Éden.
+« Je suis tout ouïe. » Les yeux de Wang Lin suivirent le pont vers l'intérieur de la cour, mais une restriction l'empêchait de voir trop loin. Il pouvait néanmoins distinguer l'environnement élégant à l'intérieur; cela ressemblait à un jardin de pêchers.
 
 Cheng Xian dit avec fierté: « La rumeur veut que l'Ancienne Li ait vécu quelque temps dans la Mer des Démons. Le nom de la pilule serait lié à un événement qu'elle y a vécu. Bien sûr, ce n'est qu'une rumeur. En réalité, il existe une multitude de légendes sur l'Ancienne Li au sein de la Secte Ciel Nuageux. Nous en discuterons plus longuement tout à l'heure. »
 
@@ -54,11 +54,11 @@ Cheng Xian cria rapidement: « Frère Wang Lin, je vous attends ici! N'oubliez p
 
 Wang Lin ne répondit pas et traversa le pont.
 
-Une fois entré dans la cour sud, le brouillard devint plus épais encore. Il ne pouvait rien distinguer à plus de trois pieds devant lui. Si le corps principal de Wang Lin s'était trouvé ici, cela ne l'aurait pas dérangé: il lui aurait suffi de déployer son Sens Divin pour tout voir.
+Une fois entré dans la cour sud, le brouillard devint plus épais encore. Il ne pouvait rien distinguer à plus de dix mètres devant lui. Si le corps principal de Wang Lin s'était trouvé ici, cela ne l'aurait pas dérangé: il lui aurait suffi de déployer son Sens Divin pour tout voir.
 
 Mais actuellement, l'avatar de Wang Lin n'était qu'au huitième niveau, il ne pouvait donc que progresser lentement.
 
-Plus il s'enfonçait, plus la brume se densifiait. Sa vision se réduisit progressivement de trois pieds à un seul pied.
+Plus il s'enfonçait, plus la brume se densifiait. Sa vision se réduisit progressivement de dix mètres à trois mètres.
 
 Une voix émergea du brouillard:
 
@@ -138,7 +138,7 @@ Dans le bâtiment, Li Muwan posa son instrument. Elle réfléchit un moment, pui
 
 Un éclair passa dans ses yeux et elle pressa son front. Une goutte de sang en perla. Le sang était rouge vif et dégageait une aura destructrice.
 
-C'était le présent que Wang Lin lui avait offert avant son départ. Cette goutte de sang contenait un fragment du Royaume Ji. Wang Lin l'avait donnée pour la protéger toute sa vie. Sans elle, Li Muwan n'aurait pas survécu à la destruction du pays de Huo Fen.
+C'était le présent que Wang Lin lui avait offert avant son départ. Cette goutte de sang contenait un fragment de Sens Divin du Royaume Ji. Wang Lin l'avait donnée pour la protéger un temps. Sans elle, Li Muwan n'aurait pas survécu à la destruction du pays de Huo Fen.
 
 « Si c'était vraiment lui, pourquoi ce sang n'a-t-il pas réagi? » Li Muwan se mordit la lèvre et soupira.
 
@@ -170,9 +170,9 @@ Cheng Xian attendait cette réponse avec impatience. Il sourit et dit rapidement
 
 Peu après, des rugissements de bêtes résonnèrent au loin. Wang Lin leva les yeux et vit deux ombres, une grande et une petite, se précipiter vers eux.
 
-Les ombres se rapprochèrent. À dix pieds de Cheng Xian, Wang Lin vit clairement qu'il s'agissait de deux singes. Le grand mesurait un mètre cinquante tandis que le petit en faisait un mètre. Les yeux des deux primates étaient rouges et ils poussèrent des cris stridents contre Cheng Xian.
+Les ombres se rapprochèrent. À une trentaine de mètres de Cheng Xian, Wang Lin vit clairement qu'il s'agissait de deux singes. Le grand mesurait près de cinq mètres tandis que le petit en faisait près de trois. Les yeux des deux primates étaient rouges et ils poussèrent des cris stridents contre Cheng Xian.
 
-Cheng Xian toussa légèrement: « Je ne vous ai fait qu'emprunter quelque chose! Cela fait douze ans que nous nous connaissons. Très bien, emmenez-nous à la cour ouest et je vous rendrai cela. »
+Cheng Xian toussa légèrement: « Je ne vous ai fait qu'emprunter quelque chose! Cela fait plus de dix ans que nous nous connaissons. Très bien, emmenez-nous à la cour ouest et je vous rendrai cela. »
 
 Les deux singes respirèrent bruyamment en s'interpellant un moment, puis l'un d'eux tendit une main vers Cheng Xian.
 

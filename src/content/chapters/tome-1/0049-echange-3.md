@@ -50,7 +50,7 @@ Les bombes puantes dans les mains de Sun Hao explosèrent avec fracas avant mêm
 
 Li Shan poussa un soupir et dit: « La technique du frère Sun Hao est bien trop puissante. Comment appelle-t-on cela? L'autodestruction? Je t'avais pourtant prévenu d'être prudent avec ces bombes, mais tu les as manipulées avec trop de force et elles ont explosé. »
 
-Tous les disciples de la Secte Xuan Dao éclatèrent de rire, et des railleries fusèrent de toutes parts. Même les disciples de la Secte Heng Yue furent tentés par le rire, mais ils s'en abstenrent de peur d'offenser les Anciens.
+Tous les disciples de la Secte Xuan Dao éclatèrent de rire, et des railleries fusèrent de toutes parts. Même les disciples de la Secte Heng Yue furent tentés par le rire, mais ils s'en abstinrent de peur d'offenser les Anciens.
 
 Huang Long agita la main avec colère. Une bourrasque de vent chassa l'odeur et projeta le stupéfait Sun Hao du Pic des Pins vers le Pic Heng Yue.
 
@@ -58,13 +58,13 @@ L'Ancien Ouyang sourit et dit: « Ce Sun Hao a mal maîtrisé sa technique, nous
 
 Huang Long répondit d'un ton lugubre: « Une défaite reste une défaite. Comment peut-on parler de match nul? Continuez! »
 
-L'Ancien Ouyang rit et rétorqua: « Toujours aussi fier, même pour la plus grande secte d'il y a 500 ans! Xu Mu, à toi! »
+L'Ancien Ouyang rit et rétorqua: « Vraiment digne de la grande secte d'il y a 500 ans! Xu Mu, à toi! »
 
 Un disciple de la Secte Xuan Dao s'avança. Il avait environ 24 ou 25 ans. Il joignit les mains sur la scène sans dire un mot de plus.
 
 Huang Long ne convoqua aucun de ses disciples internes; il sortit plutôt un morceau de jade et le broya délicatement. À l'instant où le jade fut brisé, une lueur bleue jaillit sur la plateforme. Trois silhouettes émergèrent de cette lumière scintillante.
 
-Ces trois individus portaient des vêtements violets. Dès leur apparition, ils dégageèrent une pression si intense qu'elle ébranla les disciples internes. L'expression de l'Ancien Ouyang changea légèrement tandis qu'il les examinait avec attention.
+Ces trois individus portaient des vêtements violets. Dès leur apparition, ils dégagèrent une pression si intense qu'elle ébranla les disciples internes. L'expression de l'Ancien Ouyang changea légèrement tandis qu'il les examinait avec attention.
 
 L'homme d'âge moyen qui se tenait à l'arrière de la Secte Xuan Dao se tourna soudainement vers eux, ses yeux brillant d'une soif de combat.
 

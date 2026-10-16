@@ -30,7 +30,7 @@ En repensant au jade que l'homme avait brisé, Wang Lin commença à analyser la
 
 En vérité, sa supposition était très exacte. Ce que l'homme avait utilisé était un jade de fuite confié à tous les disciples principaux de sa secte. Tant qu'ils se trouvaient dans un certain périmètre, ils pouvaient regagner leur secte en un instant.
 
-Le messager était véritablement terrifié par Wang Lin. Selon ses connaissances, la technique employée par Wang Lin était celle de la Secte du Démon Géant. La puissance d'une telle technique était terrifiante; même lui n'était pas certain de pouvoir la bloquer.
+Le messager était véritablement terrifié par Wang Lin. Selon ses connaissances, la technique employée par Wang Lin était celle du Clan des Démons Géants. La puissance d'une telle technique était terrifiante; même lui n'était pas certain de pouvoir la bloquer.
 
 Ayant déjà vu cette technique à deux reprises à Zhao, il était convaincu que Wang Lin pouvait l'utiliser une troisième fois. Face à un tel ennemi, bien que Wang Lin ne fût qu'au stade de l'Âme Naissante, il n'osait pas le provoquer. C'est pourquoi il n'avait pas hésité à utiliser Punnan Zi comme bouclier pour s'offrir le temps nécessaire à sa fuite.
 
@@ -46,9 +46,9 @@ Il resta ainsi à contempler sa maison jusqu'à la tombée de la nuit. Puis, dan
 
 Après son départ, les villageois s'éveillèrent. Constatant qu'il faisait déjà nuit noire, ils s'agenouillèrent tous pour prier les immortels de les protéger.
 
-Wang Lin volait dans les airs. La bête moustique avait déjà été rangée. Il atteignit une vallée; c'était là qu'il était mort autrefois.
+Wang Lin volait dans les airs. La bête moustique avait déjà été rangée. Il atteignit une falaise; c'était là qu'il était tombé autrefois.
 
-Contemplant la vallée, Wang Lin prit une profonde inspiration, puis fixa le ciel.
+Contemplant la falaise, Wang Lin prit une profonde inspiration, puis fixa le ciel.
 
 Tant de pensées l'assaillirent tandis que la scène d'il y a quatre cents ans se rejouait inlassablement dans son esprit.
 
@@ -66,7 +66,7 @@ Wang Lin se redressa en regardant au loin, ses yeux brillant d'une lueur fantast
 
 À cet instant, son état d'esprit bascula. Il n'était plus ce petit garçon cherchant à venger le meurtre de ses parents. Sa vengeance étant accomplie, il allait désormais viser les sommets de la culture pour devenir un véritable immortel.
 
-Wang Lin prit une profonde inspiration. Son corps s'élança et il sauta du précipice. Il atteignit l'endroit même de sa mort passée, puis disparut soudainement.
+Wang Lin prit une profonde inspiration. Son corps s'élança et il sauta du précipice. Il atteignit la caverne de pierre où il avait jadis obtenu la Perle Défiant le Ciel, puis disparut soudainement.
 
 Secte Piao Miao. Gao Qiming était assis dans sa chambre face à un miroir de bronze. Son expression était extrêmement livide. Deux cents ans auparavant, il avait pressenti qu'il allait subir une grande catastrophe. Cependant, ce désastre était si incertain qu'il ne pouvait en obtenir les détails précis avec son seul niveau de culture.
 
@@ -84,7 +84,7 @@ Wang Lin observait Zhao depuis le bord d'une ancienne matrice de transfert. Il l
 
 Dix jours plus tard, un jeune homme au visage maléfique apparut près de la matrice. Il la contempla, puis s'y engouffra sans hésiter.
 
-Dans une vallée située à des millions de milles de Zhao, la silhouette de Wang Lin apparut lentement. Dès son arrivée, il déploya son Sens Divin et vérifia soigneusement sa carte.
+Dans une plaine située à plus d'un million de kilomètres de Zhao, la silhouette de Wang Lin apparut lentement. Dès son arrivée, il déploya son Sens Divin et vérifia soigneusement sa carte.
 
 Il se déplaça ensuite rapidement, cherchant la matrice suivante. Wang Lin savait que le propriétaire du sac de rangement se rapprochait. S'il ne le perdait pas, il ne pourrait jamais cultiver en paix.
 
@@ -104,7 +104,7 @@ Wang Lin ressentit un péril mortel durant le processus de transfert. Il perceva
 
 L'impact du Domaine Ji fit vaciller le Sens Divin un instant. À cet instant précis, une lumière apparut à l'autre extrémité et Wang Lin chargea vers elle avec précipitation.
 
-En sortant de la matrice, il cracha violemment plusieurs bouffées de sang. L'Âme Naissante formée par son avatar avait rétréci et semblait sur le point de s'effondrer à tout moment. Mais sans s'arrêter, Wang Lin se déplaça avec célérité. Il disparut pour réapparaître cent mètres plus loin. Cependant, il ne chercha pas à fuir davantage; au lieu de cela, il sortit un fil rouge de son sac de rangement.
+En sortant de la matrice, il cracha violemment plusieurs bouffées de sang. L'Âme Naissante formée par son avatar avait rétréci et semblait sur le point de s'effondrer à tout moment. Mais sans s'arrêter, Wang Lin se déplaça avec célérité. Il disparut pour réapparaître cinquante kilomètres plus loin. Cependant, il ne chercha pas à fuir davantage; au lieu de cela, il sortit un fil rouge de son sac de rangement.
 
 Wang Lin savait que, peu importe ses efforts, il ne pourrait jamais échapper à la vitesse de cet individu. De plus, son Âme Naissante était trop endommagée. S'il continuait à courir, l'adversaire n'aurait même pas besoin d'agir: il mourrait de l'effondrement de son âme.
 
@@ -112,4 +112,4 @@ C'était là l'arme la plus puissante dont il disposait actuellement.
 
 Au moment où il sortit l'Éclair de la Rétribution Divine, il avala également une poignée de pilules.
 
-Le jeune homme au visage maléfique apparut à dix pieds de Wang Lin. En voyant le fil que ce dernier tenait à la main, son expression devint troublée.
+Le jeune homme au visage maléfique apparut à trente-trois mètres de Wang Lin. En voyant le fil que ce dernier tenait à la main, son expression devint troublée.

@@ -54,7 +54,7 @@ L'homme au centre resta stupéfait. L'assistance, soudainement enthousiaste, se 
 
 En tenant l'objet contenant la technique, Wang Lin resta interdit. Il n'avait jamais vu une chose pareille. Il l'examina rapidement avec son Sens Divin et la méthode de la technique s'imprima aussitôt dans son esprit. Cet objet pouvait être inutile pour les autres, mais il était précieux pour lui, même si sa capacité à masquer la culture était limitée dans le temps.
 
-Soudain, une voix retentit. Bien que rauque, elle était empreinte d'une immense fierté: « Une pilule d'Établissement des Fondations! Faites vos offres! »
+Soudain, une voix retentit. Bien que rauque, elle était empreinte d'une immense fierté: « Une pilule de Bonne Fortune! Faites vos offres! »
 
 Wang Hao s'enflamma aussitôt et cria: « 20 pilules de Rassemblement de Qi! »
 « 1000 talismans et une épée volante! »
@@ -62,6 +62,6 @@ Wang Hao s'enflamma aussitôt et cria: « 20 pilules de Rassemblement de Qi! »
 « 30 pilules de Rassemblement de Qi et 500 talismans! »
 « Un jade de compétence, une épée volante, 10 pilules de Rassemblement de Qi et 500 talismans! »
 
-La foule hurlait ses offres. Il était évident que la pilule d'Établissement des Fondations était un objet d'une importance capitale. Wang Lin avait déjà entendu parler de cette pilule par l'intermédiaire de Wang Hao: une fois consommée, ses effets persistaient dans le corps pendant deux mois, durant lesquels la vitesse d'absorption de l'énergie spirituelle était multipliée par plusieurs. C'était le désir ultime de tout disciple n'ayant pas encore atteint le septième niveau de Condensation de Qi.
+La foule hurlait ses offres. Il était évident que la pilule de Bonne Fortune était un objet d'une importance capitale. Wang Lin avait déjà entendu parler de cette pilule par l'intermédiaire de Wang Hao: une fois consommée, ses effets persistaient dans le corps pendant deux mois, durant lesquels la vitesse d'absorption de l'énergie spirituelle était multipliée par plusieurs. C'était le désir ultime de nombreux disciples internes, impatients de franchir le palier suivant de leur Condensation de Qi.
 
 Cette pilule était extrêmement précieuse, même au sein de la secte. Normalement, un disciple n'avait que deux occasions d'en obtenir une: lors de sa promotion au rang de tissu noir, il en recevait une, et lors de sa promotion au rang de tissu violet, il en recevait deux.

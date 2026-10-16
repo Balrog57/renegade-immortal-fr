@@ -6,15 +6,15 @@ bookTitle: The Mediocre Youth
 en: Chapter 64 - Secte Scatters
 slug: dispersion-de-la-secte
 ---
-Le dragon rugit contre Pun Nanzi et l'attaqua.
+Le dragon rugit contre Pu Nanzi et l'attaqua.
 
-Pun Nanzi ricana. D'un revers d'épée, il lança: « Bête, maîtrise-toi! »
+Pu Nanzi ricana. D'un revers d'épée, il lança: « Bête, maîtrise-toi! »
 
 Le corps du dragon trembla et perdit instantanément toute volonté. Il retourna à contrecœur dans l'épée, laquelle cessa de briller.
 
 Liu Wenju et la vieille femme se regardèrent et poussèrent un soupir. Elle déclara: « Très bien. Disciples de la Secte Heng Yue, écoutez mes ordres: suivez-moi hors de la montagne. » Sur ces mots, elle jeta un dernier regard circulaire, soupira une fois de plus, puis s'éleva dans les airs.
 
-Pun Nanzi plissa les yeux et dit: « Ma Secte Xuan Dao va recruter davantage de disciples. Si quiconque souhaite nous rejoindre, il peut rester ici. »
+Pu Nanzi plissa les yeux et dit: « Ma Secte Xuan Dao va recruter davantage de disciples. Si quiconque souhaite nous rejoindre, il peut rester ici. »
 
 Les visages des dix anciens de l'Établissement des Fondations se décomposèrent. Hormis les deux qui se tenaient aux côtés de la vieille femme, les huit autres ne la suivirent pas.
 
@@ -28,25 +28,27 @@ Parmi les douzaines de disciples intérieurs, seule une dizaine s'envola aux cô
 
 La jeune femme nommée Zhou hésita un instant, puis renonça également. Quant à celle nommée Xu, voyant que Wang Zhuo ne bougeait pas, elle fit marche arrière.
 
-Wang Hao, qui pouvait déjà marcher, esquissa un sourire amer et dit à Wang Lin: « Frère Tie Zhu, je ne vais nulle part. Je compte rentrer chez moi pour aider mon père. Ne t'inquiète pas, frère Tie Zhu, je prendrai soin de ta famille. »
+Wang Hao, très affaibli, esquissa un sourire amer et dit à Wang Lin: « Frère Tie Zhu, je ne vais nulle part. Je compte rentrer chez moi pour aider mon père. Ne t'inquiète pas, frère Tie Zhu, je prendrai soin de ta famille. »
+
+Wang Lin remarqua alors que Wang Hao n'avait plus aucune trace de cultivation. « Wang Hao, où est passé ton niveau de culture? » demanda-t-il. Wang Hao eut un rire amer et secoua la tête: « Ne me pose pas la question, c'est une longue histoire. »
 
 Wang Lin hésita. Il portait trop de secrets et, s'il rejoignait la Secte Xuan Dao, les dangers seraient trop imprévisibles. Après une réflexion, il se mit en mouvement.
 
-À cet instant, les yeux de Pun Nanzi s'illuminèrent en fixant Wang Lin. Il lança soudainement: « Wang Lin, toi, tu restes! »
+À cet instant, les yeux de Pu Nanzi s'illuminèrent en fixant Wang Lin. Il lança soudainement: « Wang Lin, toi, tu restes! »
 
-Wang Lin fut stupéfait et répondit respectueusement: « Senior Pun Nanzi, pourquoi souhaitez-vous que ce junior reste? »
+Wang Lin fut stupéfait et répondit respectueusement: « Senior Pu Nanzi, pourquoi souhaitez-vous que ce junior reste? »
 
-Pun Nanzi leva la tête et trancha: « Si je te dis de rester, tu restes. Pourquoi tant de questions?! »
+Pu Nanzi leva la tête et trancha: « Si je te dis de rester, tu restes. Pourquoi tant de questions?! »
 
-Liu Wenju hésita un moment avant de dire soudainement: « Senior Pun Nanzi, ce Wang Lin est le disciple principal de ma Secte Heng Yue. Je vous demande donc de ne pas lui rendre la tâche trop difficile et de le laisser partir avec nous. » Il avait entendu parler de Wang Lin et l'avait observé; il n'était vraiment pas disposé à abandonner ce futur disciple de l'Établissement des Fondations.
+Liu Wenju hésita un moment avant de dire soudainement: « Senior Pu Nanzi, ce Wang Lin est le disciple principal de ma Secte Heng Yue. Je vous demande donc de ne pas lui rendre la tâche trop difficile et de le laisser partir avec nous. » Il avait entendu parler de Wang Lin et l'avait observé; il n'était vraiment pas disposé à abandonner ce futur disciple de l'Établissement des Fondations.
 
-Pun Nanzi grogna et dit à Wang Lin: « La Secte Heng Yue n'existe plus que de nom. Vas-tu les suivre alors qu'ils errent à la dérive dans le monde? Si tu rejoins ma Secte Xuan Dao, ton avenir sera bien plus radieux. Décide par toi-même. Tu ne voudrais pas que des rumeurs se propagent, n'est-ce pas? Des rumeurs disant que ma Secte Xuan Dao non seulement a volé la montagne, mais aussi ses disciples. »
+Pu Nanzi grogna et dit à Wang Lin: « La Secte Heng Yue n'existe plus que de nom. Vas-tu les suivre alors qu'ils errent à la dérive dans le monde? Si tu rejoins ma Secte Xuan Dao, ton avenir sera bien plus radieux. Décide par toi-même. Tu ne voudrais pas que des rumeurs se propagent, n'est-ce pas? Des rumeurs disant que ma Secte Xuan Dao non seulement a volé la montagne, mais aussi ses disciples. »
 
-Pun Nanzi était certain que, à moins que Wang Lin ne soit stupide, il ne suivrait pas la Secte Heng Yue.
+Pu Nanzi était certain que, à moins que Wang Lin ne soit stupide, il ne suivrait pas la Secte Heng Yue.
 
 Wang Lin réfléchit un instant. Sans un mot, il joignit les mains, s'éleva dans les airs et vint se placer aux côtés de Huang Long.
 
-Les yeux de Pun Nanzi brillèrent de satisfaction. « Sale petit ingrat! » lança-t-il.
+Les yeux de Pu Nanzi brillèrent de satisfaction. « Sale petit ingrat! » lança-t-il.
 
 Liu Wenju et la vieille femme lancèrent des regards pensifs à Wang Lin. Ils attendirent encore un moment, mais en voyant tous les disciples de la Secte Heng Yue la tête basse, la vieille femme soupira: « Très bien, partons. »
 

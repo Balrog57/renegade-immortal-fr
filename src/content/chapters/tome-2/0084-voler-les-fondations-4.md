@@ -12,19 +12,19 @@ Quant à Wang Lin, puisqu'il se trouvait loin et que le zombie ciblait principal
 
 Son regard perça la brume jaunâtre pour se fixer sur Teng Li.
 
-Les ondes de choc provoquées par l'explosion commençaient à faiblir, mais presque toutes les défenses de Teng Li avaient été brisées. Lorsque la dernière couche s'effondra, Teng Li pointa un doigt vers le zombie, ordonnant à sa grande épée d'interrompre son assaut. Simultanément, il recula brusquement de cinquante mètres.
+Les ondes de choc provoquées par l'explosion commençaient à faiblir, mais presque toutes les défenses de Teng Li avaient été brisées. Lorsque la dernière couche s'effondra, Teng Li pointa un doigt vers le zombie, ordonnant à sa grande épée d'interrompre son assaut. Simultanément, il recula brusquement de cent soixante-cinq mètres.
 
 Il éprouvait désormais une peur profonde envers ce zombie. Sans ses nombreux trésors, il serait déjà mort.
 
-Il faut dire que, bien que l'explosion du noyau vert du zombie ne fût pas aussi puissante que celle d'un noyau ordinaire, elle avait tout de même nécessité la culture au stade avancé de l'Établissement des Fondations de Teng Li et une multitude de trésors pour être tout juste contenue.
+Il faut dire que, bien que l'explosion du noyau vert du zombie ne fût pas aussi puissante que celle d'un noyau ordinaire, elle avait tout de même conservé la moitié de sa force et nécessité la culture au stade avancé de l'Établissement des Fondations de Teng Li et une multitude de trésors pour être tout juste contenue.
 
 Il était terrifié à l'idée que le zombie puisse projeter un autre noyau vert de la sorte. Il avait déjà perdu toute intention meurtrière envers Wang Lin; son seul désir était de s'enfuir.
 
-Wang Lin n'avait jamais quitté Teng Li du regard. Un léger sourire étira ses lèvres tandis qu'une lueur froide traversait ses yeux. Il leva sa main droite, joignit deux doigts, puis poussa doucement vers l'avant.
+Wang Lin n'avait jamais quitté Teng Li du regard. Un léger sourire étira ses lèvres tandis qu'une lueur froide traversait ses yeux. Il leva sa main droite, joignit deux doigts, puis les balaya vers l'avant.
 
 Soudain, une lumière verte jaillit et Teng Li sentit une douleur fulgurante lui frapper le dos alors qu'il reculait. Paniqué, il continua de battre en retraite sans même regarder derrière lui.
 
-Wang Lin fronça les sourcils. L'armure presque brisée de Teng Li parvint à empêcher l'épée de lui transpercer la chair. Les yeux de Wang Lin s'illuminèrent. Il mordit le bout de sa langue et cracha un filet de sang. La petite épée verte apparut au milieu du sang, émit un puissant bourdonnement métallique, puis fonça vers Teng Li.
+Wang Lin fronça les sourcils. L'armure presque brisée de Teng Li parvint à empêcher l'épée de lui transpercer la chair. Il mordit le bout de sa langue et cracha un filet de sang. La petite épée verte apparut au milieu du sang, émit un puissant bourdonnement métallique, puis fonça vers Teng Li.
 
 En plein vol, l'épée verte se téléporta soudainement pour frapper le dos de Teng Li. Ce dernier tourna brusquement la tête, les yeux injectés de sang et révélant un regard venimeux. Quelques fragments de jade jaillirent rapidement de son sac de rangement pour former des barrières défensives.
 
@@ -34,9 +34,9 @@ Il jouait sa chance: misait-il sur le fait que l'épée volante de Wang Lin le p
 
 Situ Nan hurla: « Fou! Tu es complètement fou! » Sans attendre Wang Lin, Situ Nan décida de les téléporter. Au moment même où la lueur bleue apparaissait, Wang Lin cria: « Ce n'est pas encore le moment de se téléporter! Arrête! »
 
-Un regard féroce s'empara de son visage. Sans accorder un regard à la grande épée, il contrôla sa petite épée pour contourner les couches défensives et apparut devant Teng Li.
+Un regard féroce s'empara de son visage. Sans accorder un regard à la grande épée, il contrôla sa petite épée pour contourner les couches défensives et la fit surgir devant Teng Li.
 
-Teng Li paniqua. Sa grande épée se trouvait déjà à un demi-mètre au-dessus de la tête de Wang Lin. Un filet de sang coula du front de ce dernier. Wang Lin ne cilla même pas; il esquissa un sourire et lâcha: « Meurs! »
+Teng Li paniqua. Sa grande épée se trouvait déjà à moins de dix centimètres au-dessus de la tête de Wang Lin. Un filet de sang coula du front de ce dernier. Wang Lin ne cilla même pas; il eut un rictus féroce et lâcha: « Meurs! »
 
 L'épée verte fulgura. Elle perça l'armure et le corps de Teng Li, laissant derrière elle une traînée de sang.
 
@@ -44,7 +44,7 @@ Au même instant, Situ Nan utilisa la téléportation. Une lueur bleue jaillit a
 
 La grande épée s'abattit violemment, creusant une profonde faille dans le sol.
 
-Ignorant le sang qui coulait de son front, Wang Lin s'agenouilla et posa sa main sur le corps de Teng Li. Situ Nan comprit immédiatement ses intentions. La perle transcendante s'illumina soudainement et un flux d'énergie jaillit de la perle pour pénétrer le corps de Teng Li. Ce dernier se figea instantanément, transformé en une sculpture de glace arborant une expression de terreur pure.
+Ignorant le sang qui coulait de son front, Wang Lin s'agenouilla et posa sa main sur le corps de Teng Li. Situ Nan comprit immédiatement ses intentions. La Perle Défiant le Ciel s'illumina soudainement et un flux d'énergie jaillit de la perle pour pénétrer le corps de Teng Li. Ce dernier se figea instantanément, transformé en une sculpture de glace arborant une expression de terreur pure.
 
 Tout cela s'était produit en un éclair, si rapidement que le zombie n'avait même pas réalisé ce qui venait de se passer. Lorsqu'il comprit que Teng Li avait été figé, il scruta prudemment Wang Lin.
 
@@ -52,7 +52,7 @@ Toutes les boules de foudre qui fonçaient vers le zombie se dissipèrent. Même
 
 Wang Lin saisit la sculpture de glace et recula lentement, tout en pointant l'épée volante verte vers le zombie.
 
-Le zombie fixa Wang Lin et poussa un cri. Il s'apprêtait à charger quand son regard fut attiré par la faille au sol. Profitant de cet instant d'hésitation, Wang Lin s'était déjà éloigné de plus de trois cents mètres et avait disparu via une téléportation.
+Le zombie fixa Wang Lin et poussa un cri. Il s'apprêtait à charger quand son regard fut attiré par la faille au sol. Profitant de cet instant d'hésitation, Wang Lin s'était déjà éloigné de près d'un kilomètre et avait disparu via une téléportation.
 
 Le zombie poussa un rugissement et lança un regard de frustration vers la direction de Wang Lin. Il sauta dans la faille, récupéra l'épée de Teng Li avec un air d'excitation et l'avala.
 
@@ -64,7 +64,7 @@ La forêt était silencieuse. Après un long moment, Wang Lin ouvrit les yeux al
 
 Wang Lin répondit d'un ton profond: « C'était ma seule chance de tuer Teng Li. S'il avait récupéré son énergie spirituelle, il n'y aurait jamais eu de seconde chance. De plus, cet homme me traque depuis plusieurs jours. Si je l'avais laissé vivre, il serait un fléau pour moi à l'avenir; j'ai donc décidé de prendre le risque. Enfin, la vitesse de sa grande épée dépendait de l'énergie spirituelle qu'il lui restait. À ce moment-là, il était presque épuisé, il ne pouvait donc pas être plus rapide que mon épée. »
 
-Situ Nan resta silencieux. Il eut l'impression de découvrir la véritable nature de Wang Lin. Après un long silence, il dit: « Tu es désormais digne. Avec une telle détermination, tu pourras fonder ta propre secte dans ce monde de culture. » La voix de Situ Nan n'était plus empreinte d'arrogance, mais d'un certain respect. S'il s'était trouvé à la place de Wang Lin, il n'aurait jamais osé un tel pari.
+Situ Nan resta silencieux. Il eut l'impression de découvrir la véritable nature de Wang Lin. Après un long silence, il dit: « Tu es désormais digne. Avec une telle détermination, tu pourras te faire une place dans ce monde de culture. » La voix de Situ Nan n'était plus empreinte d'arrogance, mais d'un certain respect. S'il s'était trouvé à la place de Wang Lin, il n'aurait jamais osé un tel pari.
 
 Wang Lin ne répondit pas, mais fixa Teng Li, prisonnier de la glace. Ses yeux brillèrent: « Est-il possible de lui voler ses fondations? »
 
@@ -86,7 +86,7 @@ Aussitôt, il tendit sa main droite pour saisir le corps de Teng Li. Sans même 
 
 Les yeux de Wang Lin brillèrent alors qu'il dirigeait sa main vers la brume d'énergie spirituelle. La brume s'engouffra dans le corps de Teng Li. Ce dernier trembla soudainement, son visage se tordant de douleur, bien que ses yeux fussent restés clos. Bientôt, toute la brume fut absorbée par lui.
 
-Wang Lin prit une profonde inspiration, l'air grave. Il mordit le bout de sa langue, puis traça un étrange symbole de sang avec son doigt. D'un geste de la main droite, il fit atterrir le symbole sur la poitrine de Teng Li.
+Wang Lin prit une profonde inspiration, l'air grave. Il se mordit le bout de l'index droit, puis traça dans les airs un étrange symbole de sang. D'un geste de la main droite, il fit atterrir le symbole sur la poitrine de Teng Li.
 
 Le corps de Teng Li fut secoué par des convulsions violentes; ses membres se crispèrent et du sang commença à s'écouler de tous ses orifices. Cependant, ce sang ne coulait pas au sol, mais convergeait vers un point central.
 

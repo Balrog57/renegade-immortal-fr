@@ -8,7 +8,7 @@ slug: le-fourreau-depee
 ---
 Le vieil homme fut pétrifié par les paroles de Wang Lin. En se retournant, il ne vit que des rangées d'éclairs rouges; ce furent les dernières choses qu'il contempla avant de mourir.
 
-Le Domaine de Ji jaillit et déchira instantanément le corps du vieil homme. Alors que son Âme Naissante s'apprêtait à s'échapper, la paume de Wang Lin frappa sa poitrine. Une vague d'énergie spirituelle s'engouffra dans le corps du vieil homme, piégeant l'Âme Naissante à l'intérieur. Ce dernier ne put que regarder, impuissant, Wang Lin saisir son Âme Naissante pour la dévorer.
+Le Royaume Ji jaillit et déchira instantanément le corps du vieil homme. Alors que son Âme Naissante s'apprêtait à s'échapper, la paume de Wang Lin frappa sa poitrine. Une vague d'énergie spirituelle s'engouffra dans le corps du vieil homme, brisa son dantian et piégea l'Âme Naissante à l'intérieur. Ce dernier ne put que regarder, impuissant, Wang Lin saisir son Âme Naissante pour la dévorer.
 
 Aux yeux des quatre individus cachés dans la cuvette, Wang Lin était désormais un démon. Tuer quelqu'un pour son Âme Naissante puis la dévorer directement allait à l'encontre de toutes leurs convictions.
 
@@ -16,9 +16,9 @@ Il faut dire que tous ces gens étaient des cultivateurs démoniaques. Ils avaie
 
 Les quatre qui s'apprêtaient à tendre une embuscade à Wang Lin furent ébranlés. Ils quittèrent précipitamment la cuvette et s'enfuirent dans des directions opposées.
 
-Mais ces quatre-là avaient eu le tort de chercher à importuner Wang Lin. Sans même que celui-ci ne bouge, son Domaine de Ji les rattrapa instantanément et les acheva.
+Mais ces quatre-là avaient eu le tort de chercher à importuner Wang Lin. Sans même que celui-ci ne bouge, son Royaume Ji les rattrapa instantanément et les acheva.
 
-Wang Lin avait consommé une grande quantité d'Énergie Naissante pour permettre à son Domaine de Ji de tuer cinq personnes d'affilée. Il s'empara rapidement des Âmes Naissantes des quatre cultivateurs et les dévora. La tactique divine de l'Ancien Dieu absorba promptement ces âmes. Wang Lin put ainsi reconstituer toute l'Énergie Naissante consommée et augmenta même légèrement son niveau de culture.
+Wang Lin avait consommé une grande quantité d'Énergie Naissante pour permettre à son Royaume Ji de tuer cinq personnes d'affilée. Il s'empara rapidement des Âmes Naissantes des quatre cultivateurs et les dévora. La tactique divine de l'Ancien Dieu absorba promptement ces âmes. Wang Lin put ainsi reconstituer toute l'Énergie Naissante consommée et augmenta même légèrement son niveau de culture.
 
 Après cela, Wang Lin rassembla tous leurs sacs de rangement et les ouvrit un par un. Il vérifia d'abord que la tablette de jade contenant la carte était intacte et poussa un soupir de soulagement. Bien que les autres sacs contenaient quelques trésors magiques, une seule chose attira l'attention de Wang Lin.
 
@@ -39,13 +39,13 @@ Lorsqu'elle fut enfoncée aux trois cinquièmes de sa longueur, il sentit une pr
 
 L'expression de Wang Lin changea brusquement lorsqu'il ressentit une intention meurtrière titanesque émanant du fourreau. Presque sans hésiter, il lâcha l'épée et le fourreau. L'épée fut expulsée et vola en éclats. Aussitôt après, une immense vague d'intention meurtrière jaillit du fourreau.
 
-À cet instant précis, le ciel s'obscurcit soudainement et une profonde faille de plusieurs centaines de mètres s'ouvrit dans la cuvette sous les pieds de Wang Lin.
+À cet instant précis, le ciel s'obscurcit soudainement. La cuvette sous les pieds de Wang Lin fut entièrement anéantie, comme broyée par une immense meule, et une profonde faille de plusieurs centaines de mètres s'ouvrit.
 
 Le cuir chevelu de Wang Lin en fut engourdi. Il regarda le fourreau et prit une grande inspiration. Puis, il rangea soigneusement l'objet dans son sac de rangement, n'osant plus y toucher.
 
 Avec son niveau de culture actuel, il pouvait aisément comprendre qu'une quantité phénoménale d'intention meurtrière était scellée dans ce fourreau. En forçant l'épée à entrer, il n'en avait libéré qu'une infime partie, et pourtant cette fraction était déjà si puissante que Wang Lin ne pouvait même imaginer la force que contenait réellement l'objet.
 
-Par conséquent, il était d'autant plus certain que ce fourreau n'était pas celui de jadis. Le précédent avait la capacité d'augmenter la puissance d'une épée volante, mais la différence de gain de puissance entre un enfoncement aux un cinquième et aux trois cinquièmes était abyssale.
+Par conséquent, il était d'autant plus certain que ce fourreau n'était pas celui de jadis. Le précédent avait la capacité d'augmenter la puissance d'une épée volante, mais la différence de gain de puissance entre un enfoncement au cinquième et un enfoncement aux trois cinquièmes était abyssale.
 
 Après une longue réflexion, la curiosité de Wang Lin fut piquée. Il pressentait qu'il existait plus de deux exemplaires de ces fourreaux.
 
@@ -55,7 +55,7 @@ Après une longue réflexion, la curiosité de Wang Lin fut piquée. Il pressent
 
 On trouvait en son sein de nombreuses pièces, grandes et petites, et chaque pièce abritait un cultivateur. Ces individus étaient les survivants de la destruction du pays de Huo Fen.
 
-À l'époque, Huo Fen avait été attaquée par Xuanwu ainsi que par plusieurs autres nations. Les quatre grands secteurs avaient été expulsés, et c'est aussi à ce moment que Li Muwan fut contrainte de quitter son foyer.
+À l'époque, Huo Fen avait été attaquée par Xuanwu ainsi que par plusieurs autres nations. Les quatre grandes sectes avaient été chassées du pays, et c'est aussi à ce moment que Li Muwan fut contrainte de quitter son foyer.
 
 Sous ce volcan se trouvait un édifice complet: le Temple du Dieu de la Guerre. Il avait fallu plusieurs cultivateurs de l'Âme Naissante pour déplacer cette structure lors de l'attaque. Le temple renfermait les restes d'innombrables ancêtres du culte et de nombreuses techniques sacrées.
 

@@ -38,7 +38,7 @@ Wang Lin afficha un visage perplexe et répondit rapidement: « Ancien, je ne vo
 
 Sans lui laisser finir, l'Ancien Sun laissa échapper un rire colérique: « Tu oses encore jouer l'innocent avec moi? Je te questionnais sur la gourde! Elle semble avoir été récemment détachée de sa vigne. Wang Lin, je te donne une dernière chance de me dire où tu as obtenu cet objet, ou je t'expulse de la Secte Heng Yue dès aujourd'hui! »
 
-Le visage de Wang Lin se mua en une expression de colère. Animé par un élan de révolte, il s'écria: « Et alors si je suis expulsé? Ici, à la Secte Heng Yue, tout ce que j'ai fait, c'est puiser l'eau pour remplir ces dix cuves. Souvent, je passais plus d'une semaine sans pouvoir manger! Si ce n'était pas pour les patates douces que ma mère m'a données, je serais déjà mort de faim. Ce n'est pas de la culture, c'est de la torture! »
+Le visage de Wang Lin se mua en une expression de colère. Animé par un élan de révolte, il s'écria: « Et alors si je suis expulsé? Ici, à la Secte Heng Yue, tout ce que j'ai fait, c'est puiser l'eau pour remplir ces dix cuves. Souvent, je passais une semaine entière sans pouvoir manger! Si ce n'était pas pour les patates douces que ma mère m'a données, je serais déjà mort de faim. Ce n'est pas de la culture, c'est de la torture! »
 
 « J'ai dû redoubler d'efforts pour sortir cette gourde de la rivière. Si elle vous intéresse, prenez-la, tout simplement! Pourquoi dire que je mens? Et quel est le rapport avec la vigne? Quelqu'un a pu la détacher et la jeter à l'eau. Vous me questionnez, mais à qui dois-je poser la question, moi? »
 

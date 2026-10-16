@@ -20,9 +20,9 @@ Wang Lin survola le mont Heng Yue et s'éloigna à toute allure. Les montagnes, 
 
 En un clin d'œil, le village où il était né apparut dans son champ de vision. Wang Lin réfléchit un instant, puis survola le village sans même tourner la tête.
 
-Le mont Heng Yue était situé à la frontière nord du pays de Zhao. C'était une région très reculée, où la plupart des gens vivaient dans de petits villages. La destination de Wang Lin se trouvait à dix mille kilomètres de là. Cette ville s'appelait Tian Shui et c'était la plus grande cité de la partie septentrionale de Zhao.
+Le mont Heng Yue était situé à la frontière nord du pays de Zhao. C'était une région très reculée, où la plupart des gens vivaient dans de petits villages. La destination de Wang Lin se trouvait à plus de cinq mille kilomètres de là. Cette ville s'appelait Tian Shui et c'était la plus grande cité de la partie septentrionale de Zhao.
 
-Wang Lin n'en avait entendu parler que par ouï-dire. Son maître lui avait dit qu'une armée de cent mille hommes y était stationnée. Depuis son enfance, Wang Lin avait toujours rêvé d'y aller.
+Wang Lin n'en avait entendu parler que par ouï-dire. Son instituteur lui avait dit qu'une armée de plusieurs centaines de milliers d'hommes y était stationnée. Depuis son enfance, Wang Lin avait toujours rêvé d'y aller.
 
 Avant d'entrer dans le monde de la culture, son plus grand rêve était de se faire un nom aux examens impériaux, de devenir un haut fonctionnaire dans la capitale et d'y installer ses parents.
 
@@ -38,19 +38,19 @@ Situ Nan rit: « Il y a beaucoup de forêts sur cette route, ainsi il y a une ch
 
 Wang Lin s'apprêtait à répliquer, mais s'interrompit soudainement. Il aperçut un convoi de chariots sur la route en contrebas.
 
-Il s'agissait de Liu San, le chef du service d'escorte Mighty à Tian Shui. Bien que sa carrure ne fût pas imposante, il était très puissant. Il avait maîtrisé la Paume qui fend les montagnes à un haut niveau et pouvait être considéré comme l'un des experts de la cité de Tian Shui. Normalement, il n'acceptait pas de missions ordinaires.
+Il s'agissait de Liu San, le chef du service d'escorte Puissante à Tian Shui. Bien que sa carrure ne fût pas imposante, il était très puissant. Il avait maîtrisé la Paume qui fend les montagnes à un haut niveau et pouvait être considéré comme l'un des experts de la cité de Tian Shui. Normalement, il n'acceptait pas de missions ordinaires.
 
-Mais cette fois, le chargement était trop important et attirait trop l'attention. C'est pourquoi la famille North l'avait sollicité.
+Mais cette fois, le chargement était trop important et attirait trop l'attention. C'est pourquoi leur employeur l'avait sollicité.
 
-Liu San était un homme facile à vivre qui aimait se faire des amis. Tous les membres de l'équipe d'escorte lui témoignaient un grand respect. Il montait actuellement fièrement sur son cheval. Le chargement avait déjà été acheminé et, bien qu'il y eût eu de nombreux voleurs en chemin, ils avaient tous été intimidés et n'avaient posé aucun danger. La crise la plus périlleuse fut l'attaque des bandits de Greenwood; mais lorsqu'ils virent que Liu San était présent, ils lui laissèrent sa dignité et n'attaquèrent pas, ce qui le rendait très fier.
+Liu San était un homme facile à vivre qui aimait se faire des amis. Tous les membres de l'équipe d'escorte lui témoignaient un grand respect. Il montait actuellement fièrement sur son cheval. Le chargement avait déjà été acheminé et, bien qu'il y eût eu de nombreux voleurs en chemin, ils avaient tous été intimidés et n'avaient posé aucun danger. La crise la plus périlleuse fut l'attaque des bandits de la Ligue Lülin; mais lorsqu'ils virent que Liu San était présent, ils lui laissèrent sa dignité et n'attaquèrent pas, ce qui le rendait très fier.
 
-Il ferma les yeux et se détendit un peu. La cité de Tian Shui était toute proche; cette mission confiée par la famille North pouvait donc être considérée comme accomplie.
+Il ferma les yeux et se détendit un peu. La cité de Tian Shui était toute proche; cette mission confiée par leur employeur pouvait donc être considérée comme accomplie.
 
-Sur un cheval à la droite de Liu San siégeait un jeune homme vigoureux. Il rit et demanda: « Chef, une fois que nous aurons terminé cette livraison de grande envergure, quelle part du profit pensez-vous que la famille North nous accordera? »
+Sur un cheval à la droite de Liu San siégeait un jeune homme vigoureux. Il rit et demanda: « Chef, une fois que nous aurons terminé cette livraison de grande envergure, quelle part du profit pensez-vous que notre employeur nous accordera? »
 
 Un homme au visage sombre ajouta: « Chef, ce chargement est si crucial que nous devrions pouvoir obtenir une part décente des bénéfices, n'est-ce pas? »
 
-Liu San les dévisagea et répondit: « La famille North nous a-t-elle déjà jamais trompés? Attendez et voyez. Nul besoin de s'inquiéter. »
+Liu San les dévisagea et répondit: « Notre employeur nous a-t-il déjà jamais trompés? Attendez et voyez. Nul besoin de s'inquiéter. »
 
 Le jeune homme n'était pas effrayé. Il tapota son cheval et dit: « Très bien, avec vos paroles, Chef, je suis rassuré. »
 
@@ -68,7 +68,7 @@ La personne qui se tenait au carrefour était Wang Lin. Il vit quelqu'un surgir 
 
 Yang Sen était assez près pour voir à quoi ressemblait l'étranger. Bien que le jeune homme fût très jeune, il restait extrêmement calme. Il admira ce jeune homme qui ne semblait nullement effrayé par sa vitesse. Il fit faire un détour à son cheval et passa sur le côté de Wang Lin.
 
-Après avoir chargé devant lui, il recula de quelques pas, joignit les mains et dit: « Je suis Yang Sen, de l'escorte Mighty de la cité de Tian Shui. L'ami a-t-il besoin d'aide? »
+Après avoir chargé devant lui, il recula de quelques pas, joignit les mains et dit: « Je suis Yang Sen, de l'escorte Puissante de la cité de Tian Shui. L'ami a-t-il besoin d'aide? »
 
 Le regard de Wang Lin balaya Yang Sen. Il joignit les mains en retour et dit: « Je cherche le chemin de la cité de Tian Shui. Je vous prie de m'excuser si je vous ai dérangé. »
 

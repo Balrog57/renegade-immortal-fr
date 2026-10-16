@@ -18,7 +18,7 @@ Les personnes aux alentours restèrent pétrifiées. Ce qu'elles venaient de voi
 
 Wang Lin fronça les sourcils. Alors qu'il s'apprêtait à intervenir, Zhang Hu fit un pas en avant et lança les boules de feu. Cependant, sa cible n'était pas le groupe de Liu San, mais celui des hommes en noir.
 
-Aux yeux du monde, la vie de ces mortels n'était que poussière. Sans aucune capacité de défense, les hommes en noir, y compris Song Hang, furent frappés par les flammes. Le plus étrange était que leurs corps ne furent pas réduits en cendres; au lieu de cela, plusieurs gouttes de sang doré se formèrent et furent aussitôt englouties par Zhang Hu.
+Aux yeux du monde, la vie de ces mortels n'était que poussière. Sans aucune capacité de défense, les hommes en noir, y compris Song Xing, furent frappés par les flammes. Le plus étrange était que leurs corps ne furent pas réduits en cendres; au lieu de cela, plusieurs gouttes de sang doré se formèrent et furent aussitôt englouties par Zhang Hu.
 
 Le groupe de Liu San fut brûlé par la chaleur intense au point que leurs cheveux s'enroulèrent et leur peau craquela, mais aucun d'eux n'osa le moindre mouvement.
 
@@ -52,7 +52,7 @@ Wang Lin prit la patate douce. Il eut l'impression de remonter dix ans en arriè
 
 « Avant, je ne voulais pas dire que je te connaissais parce qu'il rôdait dans les parages, mais heureusement, tu l'as tué. Cela a dissipé le poison dans mon corps et je suis enfin libre. » Zhang Hu prit une bouchée de patate douce tout en expliquant rapidement ce qui s'était passé durant ces dix dernières années.
 
-Wang Lin ressentit un profond regret. Bien que le récit de Zhang Hu fût bref, l'expression de son compagnon trahissait la dureté de ces dix années de souffrance.
+Wang Lin fut profondément ému. Bien que le récit de Zhang Hu fût bref, l'expression de son compagnon trahissait la dureté de ces dix années de souffrance.
 
 Un regard d'envie passa sur le visage de Zhang Hu lorsqu'il dit: « Wang Lin, nous ne nous sommes pas vus depuis dix ans. En voyant que tu as pu tuer mon maître, tu dois avoir atteint l'Établissement des Fondations. L'épée volante de mon maître est extrêmement puissante. Il disait n'en utiliser que les deux cinquièmes, et pourtant, personne en dessous de l'Établissement des Fondations ne pouvait rivaliser avec lui. »
 
@@ -62,7 +62,7 @@ Zhang Hu parut surpris, mais n'insista pas. Après une réflexion attentive, il 
 
 Wang Lin s'assit sur un rocher. Après un moment de réflexion, il demanda: « Parle-moi du vieux Jimo, afin que nous puissions au moins nous prémunir contre lui. »
 
-Zhang Hu avala sa bouchée et répondit: « Le vieux Jimo est un cultivateur indépendant. On dit qu'il a déjà atteint la Formation du Noyau. Il tient énormément à sa réputation; il ne tardera pas à nous traquer dès qu'il apprendra la mort de Bai Zhan. Tu ferais mieux de retourner à la Secte Heng Yue. Quant à moi, je peux me réfugier dans la Cité de la Famille Teng. Même le vieux Jimo n'osera s'y montrer arrogant. Tant que je reste dans la cité, je devrais être en sécurité. »
+Zhang Hu avala sa bouchée et répondit: « Le vieux Jimo est un cultivateur indépendant. On dit qu'il a déjà atteint la Formation du Noyau. Il protège farouchement les siens; il ne tardera pas à nous traquer dès qu'il apprendra la mort de Bai Zhan. Tu ferais mieux de retourner à la Secte Heng Yue. Quant à moi, je peux me réfugier dans la Cité de la Famille Teng. Même le vieux Jimo n'osera s'y montrer arrogant. Tant que je reste dans la cité, je devrais être en sécurité. »
 
 Wang Lin eut un sourire amer. « La Secte Heng Yue n'existe plus que de nom désormais. »
 

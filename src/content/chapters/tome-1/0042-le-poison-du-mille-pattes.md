@@ -40,7 +40,7 @@ Wang Zhuo lança un sourire glacial à Wang Lin, puis cessa de l'importuner. Bie
 
 La jeune femme nommée Zhou fronça les sourcils. Elle discuta encore un moment avec Wang Lin, puis s'en alla.
 
-Observant la zone désormais déserte, Wang Lin se leva et marcha vers le mille-pattes. Il s'arrêta à dix pieds de la créature et examina attentivement la bête spirituelle.
+Observant la zone désormais déserte, Wang Lin se leva et marcha vers le mille-pattes. Il s'arrêta à trente-trois mètres de la créature et examina attentivement la bête spirituelle.
 
 En y regardant de plus près, ce mille-pattes de mille pieds était un monstre colossal. Son corps était composé de multiples segments, et entre chaque section se trouvaient des anneaux hérissés d'épines pointant vers l'extérieur comme autant d'épées. De faibles taches noires parsemaient son corps, et sa tête arborait deux énormes pinces menaçantes.
 
@@ -56,7 +56,7 @@ Tout en réfléchissant, il se dirigea d'un pas vif vers les montagnes. En utili
 
 En chemin, Wang Lin croisa certains disciples de la Secte Xuan Dao escortés par des disciples aînés. Lorsqu'ils aperçurent Wang Lin tenant les petites bêtes dans ses mains, ils éclatèrent de rire, attirant l'attention des membres de la Secte Xuan Dao.
 
-Une des jeunes femmes de la Secte Xuan Dao, d'une grande beauté avec un visage si délicat qu'il semblait pouvoir se briser au contact d'une goutte d'eau, rit: « Junior frère, tous ces petits animaux ne suffiront pas à nourrir le mille-pattes. Tu devrais plutôt chercher de gros vers; ce sont ses préférés. »
+Une des jeunes femmes de la Secte Xuan Dao, d'une grande beauté avec un visage si délicat qu'il semblait pouvoir se briser au contact d'une goutte d'eau, rit: « Junior frère, tous ces petits animaux ne suffiront pas à nourrir le mille-pattes. Tu devrais plutôt chercher un gros serpent; c'est son mets préféré. »
 
 Un disciple de la secte intérieure profita de l'occasion pour s'attirer ses faveurs et lança: « Junior sœur Ouyang, ne parle pas à ce gamin, c'est un muet. Tu l'ignores peut-être, mais il n'est pas apte à la culture. Il a échoué à tous les tests d'entrée et a dû tenter de se suicider, ce qui a contraint les Anciens à l'accepter comme disciple honorifique. »
 

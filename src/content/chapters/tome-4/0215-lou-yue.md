@@ -136,7 +136,7 @@ Le temps s'écoula lentement. En un clin d'œil, plusieurs mois passèrent.
 
 L'entraînement en isolement de Zhou Lin n'était toujours pas terminé. Les compétences de Wang Lin en alchimie s'étaient considérablement améliorées, bien qu'il sentît qu'il manquait de talent inné pour cet art. Ce n'est qu'après avoir échoué 93 fois avec le fourneau de Li Muwan qu'il parvint enfin à maîtriser le contrôle du feu.
 
-Il commença alors à raffiner des pilules en utilisant les informations contenues dans le jade laissé par Zhou Ling. En utilisant les herbes de son jardin, il tentait d'affiner ses techniques, mais le taux de réussite était dérisoire. Sur dix tentatives, il n'obtenait parfois qu'un seul succès, et parfois aucun.
+Il commença alors à raffiner des pilules en utilisant les informations contenues dans le jade laissé par Zhou Lin. En utilisant les herbes de son jardin, il tentait d'affiner ses techniques, mais le taux de réussite était dérisoire. Sur dix tentatives, il n'obtenait parfois qu'un seul succès, et parfois aucun.
 
 S'il continuait ainsi, les ressources du jardin s'épuiseraient sans aucun résultat. Finalement, faute d'une herbe spécifique, Wang Lin décida, après réflexion, d'utiliser le liquide spirituel. À sa grande surprise, le raffinage fut un succès.
 
@@ -178,7 +178,7 @@ La Perle Défiant le Ciel était toujours incomplète. Wang Lin avait tenté de 
 
 Parmi les éléments, seul l'eau était facile à obtenir, et le bois n'était pas trop difficile. Bien que l'élément bois fût incomplet, sept feuilles étaient apparues sur la Perle Défiant le Ciel. Les éléments métal et terre ne montraient aucun signe d'évolution malgré ses tentatives.
 
-Wang Lin comprenait désormais mieux les propriétés du liquide de la perle. La différence de qualité était immense depuis que l'élément eau avait été intégré. Et après la complétion de l'élément feu, la qualité du liquide spirituel avait décuplé.
+Wang Lin comprenait désormais mieux les propriétés du liquide de la perle. La différence de qualité était immense depuis que l'élément eau avait été intégré. Et après la complétion de l'élément feu, la qualité du liquide spirituel avait doublé.
 
 Ainsi, tant que les cinq éléments seraient réunis, indépendamment des autres effets de la Perle Défiant le Ciel, le liquide spirituel lui-même suffirait à transformer la fabrication des pilules de haut rang.
 

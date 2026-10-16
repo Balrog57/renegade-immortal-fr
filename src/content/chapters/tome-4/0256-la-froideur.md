@@ -28,7 +28,7 @@ Ce froid n'était de rien qu'un feu ou une technique ne pourraient dissiper. Cet
 
 Pour devenir un immortel, il faut d'abord devenir mortel.
 
-Bien qu'il fût facile de redevenir mortel, comment cela pouvait-il être si simple? En cet instant, Wang Lin faisait l'expérience de la solitude. Il savait qu'il devait continuer à l'endurer.
+Redevenir mortel semble facile à dire, mais en réalité, est-ce si simple? En cet instant, Wang Lin faisait l'expérience de la solitude. Il savait qu'il devait continuer à l'endurer.
 
 Cette solitude n'était rien comparée à ce qui l'attendait des années plus tard, quand tous ceux qu'il connaît mourraient les uns après les autres jusqu'à ce qu'il soit le dernier survivant. C'était cela, la véritable solitude.
 
@@ -82,7 +82,7 @@ Le père de Da Niu entra dans la boutique. Il observa les sculptures et laissa p
 
 À cet instant, Da Niu, assis près du feu, aperçut les sculptures des parents de Wang Lin et s'exclama: « Oncle Wang, pourquoi n'ai-je jamais vu ces sculptures auparavant? Les avez-vous faites récemment? »
 
-Wang Lin referma la porte. Il se rassoit et répondit: « Je les ai faites il y a quelque temps déjà. »
+Wang Lin referma la porte. Il se rassit et répondit: « Je les ai faites il y a quelque temps déjà. »
 
 Da Niu examina attentivement les figurines et demanda: « Oncle Wang, qui sont ces personnes? »
 

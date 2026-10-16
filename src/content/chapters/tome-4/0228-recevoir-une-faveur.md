@@ -6,9 +6,9 @@ bookTitle: Clean Sweep
 en: Capturing a Spirit Pet
 slug: recevoir-une-faveur
 ---
-Wang Lin regarda Qiu Siping. Il esquissa un léger sourire et dit: « Ces deux juniors sont issus du Palais de l'Enchantement Magique. Frère Qiu devrait redoubler de prudence dorénavant. »
+Wang Lin regarda Qiu Siping. Il esquissa un léger sourire et dit: « Ces deux juniors sont issus du Palais Enchanté. Frère Qiu devrait redoubler de prudence dorénavant. »
 
-Qiu Siping eut un sourire amer. La jeune fille était sans danger, mais l'homme était un disciple central du Palais de l'Enchantement Magique. S'il les laissait réellement s'échapper, cela ne serait pas une simple nuisance; il ne pourrait probablement plus mettre le pied dans aucune ville sous leur contrôle.
+Qiu Siping eut un sourire amer. La jeune fille était sans danger, mais l'homme était un disciple central du Palais Enchanté. S'il les laissait réellement s'échapper, cela ne serait pas une simple nuisance; il ne pourrait probablement plus mettre le pied dans aucune ville sous leur contrôle.
 
 Mais ce n'était pas le moment de songer à ces deux-là. Actuellement, la personne devant lui dégageait une pression intimidante qui l'obligeait à une extrême vigilance. La puissance actuelle de Wang Lin lui donnait la chair de poule.
 
@@ -48,11 +48,11 @@ Wang Lin ne croyait pas que cette carte soit exempte de mensonges, mais il n'ava
 
 D'après ses connaissances sur la Mer des Démons, la Cité de l'Encre Répétée se trouvait à environ dix jours de marche au nord de sa position actuelle. La Cité de l'Encre Répétée était l'une des 99 cités majeures de la Mer des Démons; les petites villes de la mer extérieure ne faisaient pas le poids.
 
-Une autre raison pour laquelle Wang Lin avait décidé de se rendre à la Cité de l'Encre Répétée était que, selon la carte de Qiu Siping, un réseau de transfert ancien se trouvait à 300 000 milles de la cité.
+Une autre raison pour laquelle Wang Lin avait décidé de se rendre à la Cité de l'Encre Répétée était que, selon la carte de Qiu Siping, un réseau de transfert ancien se trouvait à 150 000 kilomètres de la cité.
 
 Durant son voyage vers la ville, Wang Lin collecta le noyau de chaque bête qu'il croisait. Cependant, s'il rencontrait une bête spirituelle de haute qualité, il préférait l'éviter.
 
-Sept jours plus tard, Wang Lin fut de plus en plus alarmé en observant de ses propres yeux la situation dans la Mer des Démons. Il n'imaginait pas qu'en seulement quelques années, les bêtes sauvages seraient devenues aussi rampantes. Sur le chemin du retour, il avait déjà croisé deux bêtes spirituelles de haute qualité dont la puissance égalait celle de cultivateurs au stade de la Séparation Spirituelle.
+Sept jours plus tard, Wang Lin fut de plus en plus alarmé en observant de ses propres yeux la situation dans la Mer des Démons. Il n'imaginait pas qu'en seulement quelques années, les bêtes sauvages seraient devenues aussi rampantes. Sur le chemin du retour, il avait déjà croisé deux bêtes spirituelles de haute qualité dont la puissance égalait celle de cultivateurs au stade de la Formation de l'Âme.
 
 Heureusement, ces deux bêtes cultivaient dans leurs propres territoires. À moins que Wang Lin ne les importunât délibérément, elles ne le poursuivraient pas.
 

@@ -10,23 +10,23 @@ En réfléchissant aux trois techniques, l'esprit de Wang Lin s'enflamma d'excit
 
 Il se heurta, encore et encore, à l'échec. Il ne parvint à produire qu'une unique étincelle en tout ce temps.
 
-Wang Lin eut un rire amer. « Le talent... c'est toujours une question de talent! » Il tenta ensuite la technique de la Fracture de la Terre sur un rocher voisin. Bien que le résultat fût supérieur à celui de la Boule de Feu, la fissure n'avait pas plus de la taille de son petit doigt. Ce genre de technique pouvait bien tromper des mortels, mais dans une véritable bataille, elle était inutile.
+Wang Lin eut un rire amer. « Le talent... c'est toujours une question de talent! » Il tenta ensuite la technique de la Fissure de la Terre sur un rocher voisin. Bien que le résultat fût supérieur à celui de la Boule de Feu, la fissure n'avait pas plus de la taille de son petit doigt. Ce genre de technique pouvait bien tromper des mortels, mais dans une véritable bataille, elle était inutile.
 
 Enfin, il s'exerça à la Technique de la Force d'Attraction. Il n'en était pas encore satisfait.
 
 Mais considérant que le taux de réussite de cette dernière était le plus élevé, Wang Lin consacra tous ses efforts à sa pratique. Pour dire les choses simplement, la Force d'Attraction consistait essentiellement à contrôler des objets à distance.
 
-Si l'on maîtrisait parfaitement la Force d'Attraction et que l'on atteignait le second niveau de Condensation de Qi, on pouvait alors pratiquer la Technique de Répulsion. Une fois le troisième niveau franchi pour entrer dans le quatrième, il était possible de se rendre à la Maison de l'Esprit de l'Épée afin de choisir une épée volante.
+Si l'on maîtrisait parfaitement la Force d'Attraction et que l'on atteignait le second niveau de Condensation de Qi, on pouvait alors pratiquer la technique de propulsion. Une fois le troisième niveau franchi pour entrer dans le quatrième, il était possible de se rendre à la Maison de l'Esprit de l'Épée afin de choisir une épée volante.
 
-Après de longues heures de pratique, Wang Lin commença à regagner son domicile avant que la nuit ne tombe. Désormais qu'il avait atteint le premier niveau de Condensation de Qi, sa vue et son ouïe s'étaient grandement affinées. En franchissant la porte est, il perçut des voix familières en passant devant la maison des tâches subalternes.
+Après de longues heures de pratique, Wang Lin commença à regagner son domicile avant que la nuit ne tombe. Maintenant qu'il avait atteint le premier niveau de Condensation de Qi, sa vue et son ouïe s'étaient grandement affinées. En franchissant la porte est, il perçut des voix familières en passant devant la maison des tâches subalternes.
 
 « Frère Liu, quand tu m'as chargé pour la première fois de ramasser du bois, tu avais dit que 100 livres suffiraient pour accomplir la tâche. Pourquoi est-ce 1 000 livres maintenant? Je ne suis pas nouveau, moi, Zhang Hu, et au cours de ces dernières années, j'ai fait bien des efforts pour te plaire. Veux-tu vraiment me forcer à quitter la secte? »
 
 « Zhang Hu, ne dis pas que je te rends la vie difficile. L'année touche à sa fin, et même moi, ton frère, je ne passe pas un moment facile. Mais toi, au lieu de travailler, tu viens ici pour me conter tes malheurs. Quand j'ai apporté le bois que tu avais ramassé à la maison des pilules, je me suis fait réprimander. Je l'ai repris et je l'ai vérifié. Espèce de petit bâtard, tu es vraiment trop malin. Dans tes 100 livres de bois, il y avait au moins 30 livres d'eau! »
 
-Zhang Hu était furieux. Il cria: « C'est impossible! Tu m'accuses à tort. N'est-ce pas parce qu'il y a quelques jours, j'ai vu Zhao FuGui te donner un talisman immortel pour que tu puisses lui choisir des tâches plus faciles? Et alors? Parmi les disciples honoraires, qui ne sait comment tu agis? Quant à essayer de me chasser de la secte Heng Yue, tu as vraiment merdé, espèce de saloperie. Je n'en ferai plus une miette. Je vais aller en parler aux Anciens! »
+Zhang Hu était furieux. Il cria: « C'est impossible! Tu m'accuses à tort. N'est-ce pas parce qu'il y a quelques jours, j'ai vu Zhao Fugui te donner un talisman immortel pour que tu puisses lui choisir des tâches plus faciles? Et alors? Parmi les disciples honoraires, qui ne sait comment tu agis? Quant à essayer de me chasser de la secte Heng Yue, tu as vraiment merdé, espèce de saloperie. Je n'en ferai plus une miette. Je vais aller en parler aux Anciens! »
 
-« Zhang Hu, c'est toi qui m'as forcé à agir ainsi. Si tu veux accuser quelqu'un, ne blâme que ta propre malchance d'avoir vu ce que tu n'aurais pas dû voir. Zhang Hu, reste ici. Si les Anciens l'apprennent, toute ta famille pourrait mourir avec toi! »
+« Zhang Hu, c'est toi qui m'as forcé à agir ainsi. Si tu veux accuser quelqu'un, ne blâme que ta propre malchance d'avoir vu ce que tu n'aurais pas dû voir. Zhang Hu, reste ici. Si les Anciens l'apprennent, je ferai exterminer toute ta famille! »
 
 La voix glaciale du disciple Liu jaillit de la pièce et Zhang Hu laissa échapper un cri. Surpris par ce hurlement, Wang Lin enfonça la porte d'un coup de pied.
 
@@ -54,7 +54,7 @@ La hachette tomba des mains de Zhang Hu. Il contemplait le cadavre ensanglanté 
 
 Wang Lin était pétrifié. C'était la première fois qu'il assistait à une scène aussi sanglante. Après un long silence, il demanda d'une voix amère: « Zhang Hu, tu... »
 
-Zhang Hu leva les yeux vers lui. Son visage, déformé par une expression sombre et sinistre, répondit mot pour mot: « Wang Lin, tu l'as vu aussi. Je ne voulais pas le tuer. Si tu n'étais pas intervenu, il m'aurait tué. Il m'a forcé à faire ça, il m'a forcé! »
+Zhang Hu leva les yeux vers lui. Son visage, déformé par une expression sombre et sinistre, dit en détachant chaque mot: « Wang Lin, tu l'as vu aussi. Je ne voulais pas le tuer. Si tu n'étais pas intervenu, il m'aurait tué. Il m'a forcé à faire ça, il m'a forcé! »
 
 Wang Lin resta silencieux. Il ne s'était jamais attendu à une telle issue.
 

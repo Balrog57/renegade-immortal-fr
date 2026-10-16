@@ -6,13 +6,13 @@ bookTitle: Clean Sweep
 en: Chapter 258 - Trashing Sects
 slug: demanteler-les-sectes
 ---
-Wang Lin esquissa un léger sourire et dit: « Aîné, nous ne nous sommes pas vus depuis sept ans, et vous êtes toujours le même. »
+Wang Lin esquissa un léger sourire et dit: « Aîné, nous ne nous sommes pas vus depuis six ans, et vous êtes toujours le même. »
 
 L'expression étrange sur le visage du vieil homme devint encore plus singulière. Il fixa Wang Lin longuement avant de laisser échapper un soupir. Une pointe d'admiration brilla dans ses yeux lorsqu'il déclara: « Tu es devenu un mortel... tu es vraiment devenu un mortel! »
 
 Wang Lin prit la cruche sur le poêle, versa une coupe, la but et répondit: « Ce junior ne fait que lutter au sein du monde mortel. Comment pourrais-je être aussi détendu que l'Aîné, qui se plaît à jouer dans ce monde? »
 
-Le vieil homme prit une profonde inspiration. Il saisit la cruche de vin, versa une coupe et dit: « J'ai vu beaucoup de cultivateurs au stade de la Formation Spirituelle, mais tu es le premier capable de se fondre parmi les mortels en seulement six ans. »
+Le vieil homme prit une profonde inspiration. Il saisit la cruche de vin, versa une coupe et dit: « J'ai vu beaucoup de cultivateurs au stade de la Formation de l'Âme, mais tu es le premier capable de se fondre parmi les mortels en seulement six ans. »
 
 Wang Lin ne répondit pas. Son cœur ne vacilla point; il se contenta d'afficher un sourire discret tout en observant la scène.
 
@@ -34,7 +34,7 @@ Le vieil homme apparut mystérieusement derrière Wang Lin et entra dans la bout
 
 Wang Lin n'était nullement étonné par l'attitude du vieil homme. Il s'assit et continua de boire son vin tout en l'observant.
 
-« Dragon, Araignée des Flammes, Bête du Bruit Céleste, Zhong Gu, Bête à Huit Griffes, Ti Lun... tsk tsk. Pas mal, jeune homme. Tu as réussi à ramener la plupart des bêtes de la Mer des Démons ici. » Plus le vieil homme regardait, plus son étonnement grandissait. Finalement, son regard se posa sur une boîte en bois dans un coin de la pièce. D'un geste de la main, il fit jaillir l'une après l'autre toutes les sculptures contenues dans la boîte.
+« Dragon, Araignée des Flammes, Bête du Bruit Céleste, Zhong Gu, Bête à Huit Griffes, Ti Lun... tss, tss. Pas mal, jeune homme. Tu as réussi à ramener la plupart des bêtes de la Mer des Démons ici. » Plus le vieil homme regardait, plus son étonnement grandissait. Finalement, son regard se posa sur une boîte en bois dans un coin de la pièce. D'un geste de la main, il fit jaillir l'une après l'autre toutes les sculptures contenues dans la boîte.
 
 Ces sculptures étaient toutes des œuvres inachevées.
 
@@ -96,15 +96,15 @@ Le vieil homme était plongé dans ses fantasmes. Il imaginait déjà que la pro
 
 Il songea particulièrement à toutes ces belles femmes tenant une effigie de lui. Ces images le transportaient d'excitation. Plus il regardait Wang Lin, plus il était satisfait. Il tendit la main vers le jeune homme et, en un clin d'œil, tous deux disparurent de la boutique.
 
-Lorsqu'ils réapparurent, ils se trouvaient déjà dans les nuages, à plus de 100 000 kilomètres de la capitale.
+Lorsqu'ils réapparurent, ils se trouvaient déjà dans les nuages, à plus de 50 000 kilomètres de la capitale.
 
-Wang Lin déploya son Sens Divin et fut terrifié intérieurement. Il estima qu'ils avaient parcouru 100 000 kilomètres. Une telle puissance était effroyable; cela lui fit dresser les poils sur la peau.
+Wang Lin déploya son Sens Divin et fut terrifié intérieurement. Il estima qu'ils avaient parcouru 50 000 kilomètres. Une telle puissance était effroyable; cela lui fit dresser les poils sur la peau.
 
-Il fallait savoir que les cultivateurs au stade avancé de l'Âme Naissante ne pouvaient se téléporter que sur 1 000 kilomètres. Bien qu'il ignorât la distance maximale pour un cultivateur de la Formation de l'Âme, il était impensable d'atteindre 100 000 kilomètres.
+Il fallait savoir que les cultivateurs au stade avancé de l'Âme Naissante ne pouvaient se téléporter que sur 500 kilomètres. Bien qu'il ignorât la distance maximale pour un cultivateur de la Formation de l'Âme, il était impensable d'atteindre 50 000 kilomètres.
 
 Selon les analyses de Wang Lin, même des cultivateurs de la Transformation de l'Âme ne pourraient aisément parcourir une telle distance. Plus important encore, ce vieil homme l'avait emporté avec lui. En conséquence, Wang Lin éprouvait une crainte accrue envers cet homme.
 
-Le vieil homme était actuellement essoufflé. Même pour lui, parcourir 100 000 kilomètres n'était pas une mince affaire. Cependant, en voyant le visage stupéfait de Wang Lin, il leva fièrement le menton, feignant le regret: « Hélas, je suis vieux et mon corps n'est plus ce qu'il était. Cette téléportation ne nous a déplacés que de misérables 100 000 kilomètres. J'en suis mortifié. » Bien qu'il dise cela, même un mortel de passage aurait pu lire l'orgueil intense sur son visage.
+Le vieil homme était actuellement essoufflé. Même pour lui, parcourir 50 000 kilomètres n'était pas une mince affaire. Cependant, en voyant le visage stupéfait de Wang Lin, il leva fièrement le menton, feignant le regret: « Hélas, je suis vieux et mon corps n'est plus ce qu'il était. Cette téléportation ne nous a déplacés que de misérables 50 000 kilomètres. J'en suis mortifié. » Bien qu'il dise cela, même un mortel de passage aurait pu lire l'orgueil intense sur son visage.
 
 Wang Lin resta silencieux, pensif.
 
@@ -116,4 +116,4 @@ Wang Lin répondit calmement: « Jamais. »
 
 Wang Lin regarda le vieil homme avec une expression étrange et dit: « Le niveau de culture de l'Aîné est une chose que ce junior n'a jamais vue auparavant. Je vous admire! »
 
-Le vieil homme renifla et se vanta: « Si l'occasion se présente, je te donnerai la chance de vivre une téléportation d'un million de kilomètres. » Sur ce, il pointa l'horizon du doigt et déclara: « Voilà la Secte des Nuages Blancs. Allons-y, ce vieux peut t'emmener démanteler cette secte! »
+Le vieil homme renifla et se vanta: « Si l'occasion se présente, je te donnerai la chance de vivre une téléportation de 500 000 kilomètres. » Sur ce, il pointa l'horizon du doigt et déclara: « Voilà la Secte Ciel Nuageux. Allons-y, ce vieux peut t'emmener démanteler cette secte! »

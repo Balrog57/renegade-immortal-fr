@@ -90,7 +90,7 @@ Wang Lin dit simplement: « Si un problème survient, dites-le-moi. »
 
 « Monsieur Wang, son Altesse est en danger! » Après avoir entendu les paroles frénétiques de Xu Tao, Wang Lin comprit peu à peu la situation. Son Altesse avait, d'une manière ou d'une autre, offensé un cultivateur extrêmement puissant. Dès l'apparition de ce dernier, tous les cultivateurs aux alentours s'étaient retirés, refusant de s'impliquer.
 
-Aujourd'hui, son Altesse se terrrait dans le palais. Le cultivateur estimant qu'il serait trop fastidieux d'y pénétrer, il déversait toute sa rage sur les partisans du prince.
+Aujourd'hui, son Altesse se terrait dans le palais. Le cultivateur estimant qu'il serait trop fastidieux d'y pénétrer, il déversait toute sa rage sur les partisans du prince.
 
 Xu Tao était perspicace. Lorsqu'il avait senti le danger, il s'était enfui immédiatement, mais il avait tout de même été frappé par le cultivateur, ce qui l'avait plongé dans la panique. À cet instant, Wang Lin était son seul recours.
 

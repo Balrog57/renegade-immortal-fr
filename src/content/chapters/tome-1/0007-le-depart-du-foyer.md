@@ -20,7 +20,7 @@ Wang Zhuo ricana en entendant cela et lança d'un ton méprisant: « Tie Zhu, je
 
 Wang Lin leva lentement la tête. Il scruta son entourage, lançant des regards noirs à tous ses proches. Lorsqu'il posa enfin les yeux sur Wang Zhuo, il dit: « Wang Zhuo, retiens bien mes paroles. Moi, Wang Lin, j'intégrerai un jour une école immortelle. Et je n'oublierai jamais la façon dont toi et ton père avez insulté ma famille. »
 
-Wang Zhuo éclata de rire face aux paroles de Tie Zhu, mais avant qu'il ne puisse répliquer, l'oncle quatrième hurla à l'adresse du garçon: « Espèce de petit morveux bavard! Je vais te faire regretter tes paroles sur-le-champ! Voyons si les immortels te veulent encore après ça! »
+Wang Zhuo éclata de rire face aux paroles de Tie Zhu, mais avant qu'il ne puisse répliquer, l'oncle quatrième hurla à l'adresse de Wang Zhuo: « Espèce de petit morveux bavard! Je vais te briser sur-le-champ et faire de toi un idiot! Voyons si les immortels te veulent encore après ça! »
 
 Le père de Wang Zhuo pâlit soudainement. Il se précipita devant son fils: « Quatrième frère, tu n'oserais pas! »
 
@@ -58,11 +58,11 @@ Après une semaine, il pénétra dans les terres profondes des montagnes. Fort h
 
 Tie Zhu était totalement épuisé à ce stade. Il sortit un peu de nourriture séchée et en prit quelques bouchées tout en fixant l'entrée de la Secte Heng Yue. Soudain, les poils de la nuque de Wang Lin se hérissèrent lorsqu'il entendit le souffle d'une bête sauvage derrière lui. Il se retourna et toute couleur disparut instantanément de son visage.
 
-Un immense tigre blanc aux yeux rouge sang rendait l'air presque irrespirable. Des gouttes de salive s'échappaient des coins de sa gueule, tombant au sol dans un bruitlement sinistre.
+Un immense tigre blanc aux yeux rouge sang dardait un regard glacial. Des gouttes de salive s'échappaient des coins de sa gueule, tombant au sol dans un bruit sinistre.
 
 Le tigre blanc rugit et bondit. Un sourire amer apparut sur les lèvres de Wang Lin qui, sans hésiter, sauta du bord d'une falaise. Il sentit le vent fouetter son visage alors qu'il plongeait dans le vide. Il ne put s'empêcher de repenser aux regards de ses parents et à la moquerie de ses proches.
 
-« Père, Mère, votre fils n'a pas écouté vos conseils. Adieu. »
+« Père, Mère, votre fils est indigne de vous. Adieu pour toujours. »
 
 La paroi de la falaise était couverte d'une multitude de branches. Le corps de Tie Zhu fut lacéré par celles-ci dans sa chute vertigineuse. Quelques instants plus tard, en plein milieu de sa descente, il sentit une force immense le happer.
 

@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Chapter 5 - The Return
 slug: le-retour
 ---
-En fin de compte, aucun des onze jeunes n'avait réussi l'épreuve. Seule une jeune fille avait progressé autant que Wang Lin.
+En fin de compte, aucun des onze jeunes n'avait réussi l'épreuve. Seule une jeune fille avait progressé presque autant que Wang Lin.
 
 Ce jour-là, tous les jeunes ayant échoué au test furent renvoyés au pied de la montagne. Les disciples de la Secte Heng Yue les raccompagnèrent chez eux un par un. Celui qui vint chercher Wang Lin était le même jeune homme qui l'avait aidé à monter plus tôt. Derrière lui se trouvaient Wang Zhuo et Wang Hao.
 
@@ -14,11 +14,11 @@ Le jeune homme joignit les mains et dit: « Frère Wang Zhuo, félicitations pou
 
 Le visage de Wang Zhuo affichait une expression d'arrogance. Il déclara avec fierté: « C'est tout naturel. Maître a dit qu'une fois que j'aurai réglé les affaires mondaines de la maison, il m'enseignera les techniques de culture à mon retour. »
 
-Wang Hao leva la tête et ajouta sur le côté: « J'ai toujours méprisé ton arrogance. Et alors si tu as un maître? Moi, je serai capable d'apprendre à fabriquer des pilules immortelles. »
+Wang Hao leva la tête et ajouta sur le côté: « J'ai toujours méprisé ton arrogance. Et alors si tu as un maître? Moi, je sais aussi fabriquer des pilules immortelles. »
 
 Wang Zhuo lança un regard noir à Wang Hao, puis tourna ses yeux vers Wang Lin, qui se tenait là en silence. Il sourit et dit: « Tie Zhu, qu'en est-il? Je t'avais pourtant prévenu que tu n'en avais pas les capacités, mais ni toi ni ton père ne vouliez me croire. Maintenant, nous en connaissons le résultat. »
 
-Tie Zhu leva la tête, jeta un bref regard à Wang Zhuo et répondit: « Monsieur, mes parents m'attendent à la maison. Veuillez me ramener dès que possible. »
+Tie Zhu leva la tête, jeta un bref regard à Wang Zhuo et répondit: « Immortel, mes parents m'attendent à la maison. Veuillez me ramener dès que possible. »
 
 Voyant que Wang Lin osait l'ignorer, Wang Zhuo ricana: « Petit paysan, tu ferais mieux de devenir charpentier dans un petit village pour le reste de ta vie, tout comme ton père. »
 
@@ -60,9 +60,9 @@ Le disciple de la Secte Heng Yue balaya l'assemblée du regard et soupira intér
 
 « Les pratiquants immortels ne doivent avoir aucun désir terrestre. Occupez-vous de ce que vous avez à faire, je reviendrai vous chercher dans trois jours. » Sa voix résonna encore au loin.
 
-Lorsque le père de Wang Zhuo vit l'immortel partir, il se précipita vers son fils et demanda: « L'Immortel Hui Bing t'a-t-il pris comme disciple? »
+Lorsque le père de Wang Zhuo vit l'immortel partir, il se précipita vers son fils et demanda: « L'Immortel Dao Xu t'a-t-il pris comme disciple? »
 
-Wang Zhuo répondit, le visage empreint d'une fierté arrogante: « Bien sûr. Maître a dit que dans dix ans, je pourrai devenir le chef des disciples de la Secte Heng Yue. »
+Wang Zhuo répondit, le visage empreint d'une fierté arrogante: « Bien sûr. Maître a dit que dans dix ans, je pourrai devenir le meilleur des disciples de la Secte Heng Yue. »
 
 Le père de Wang Zhuo était transporté de joie. Il tapota lourdement les épaules de son fils et éclata de rire: « Magnifique, Wang Zhuo! Tu seras un immortel dans le futur! Notre famille Wang aura un immortel! »
 

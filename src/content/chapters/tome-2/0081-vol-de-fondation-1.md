@@ -8,7 +8,7 @@ slug: vol-de-fondation-1
 ---
 C'était une épée extrêmement ancienne. Une aura maléfique s'en dégageait, au point qu'on ne pouvait s'empêcher de la contempler. Après un long moment, Wang Lin s'éveilla lentement. Ses yeux s'illuminèrent alors qu'il en saisissait le sens.
 
-Trois jours plus tard, toute la ville de la Famille Teng était parée de fleurs tandis que des milliers de cultivateurs déambulaient dans les rues. Zhang Hu et Wang Lin étaient partis tôt le matin pour errer dans la cité.
+Trois jours plus tard, toute la ville de la Famille Teng était parée de fleurs tandis que de nombreux cultivateurs déambulaient dans les rues. Zhang Hu et Wang Lin étaient partis tôt le matin pour errer dans la cité.
 
 Comme Zhang Hu devait vendre le ginseng, il s'en alla après avoir discuté un moment avec Wang Lin.
 
@@ -32,11 +32,11 @@ Normalement, à cette heure de la journée, l'auberge était très animée, mais
 
 Wang Lin déploya son sens divin et son visage changea soudainement. Une force mystérieuse entourait l'auberge, empêchant le sens divin de Wang Lin de pénétrer à l'intérieur.
 
-Sans dire un mot, le corps de Wang Lin recula brusquement. Il enveloppa son être de la technique d'attraction et son corps s'élança en arrière sur des dizaines de mètres, tel une épée.
+Sans dire un mot, le corps de Wang Lin recula brusquement. Il enveloppa son être de la technique d'attraction et son corps s'élança en arrière sur une centaine de mètres, tel une épée.
 
 « Qu'est-ce que c'est? Ta réaction a été plutôt rapide. » Une voix légèrement surprise retentit soudainement alors qu'un homme sortait de l'auberge. Ce dernier avait vingt-cinq ou vingt-six ans et portait une robe blanche ornée de motifs de vignes noires sur les poignets.
 
-Il regarda Wang Lin, qui s'éloignait rapidement. Il ricana et ordonna: « Teng Jia, Teng Yi, attendez ce gamin, Zhang Hu. Détruisez sa culture, puis jetez-le en prison pendant que je capture ce petit vaurien agile. »
+Il regarda Wang Lin, qui s'éloignait rapidement. Il ricana et ordonna: « Teng Jia, Teng Yi, attendez le retour de Zhang Hu. Détruisez sa culture, puis jetez-le en prison pendant que je capture ce petit vaurien agile. »
 
 À l'instant où il prononça ces mots, deux ombres jaillirent à ses côtés. Il s'agissait de deux vieillards au visage ridé. L'un d'eux dit: « Monseigneur, ces deux personnes sont dans la ville de la Famille Teng. Cela va à l'encontre des règles. Si le chef demande... »
 
@@ -46,7 +46,7 @@ Sur ces mots, il agita ses manches et son corps s'envola dans les airs pour pour
 
 Les deux vieillards jetèrent un regard au jeune homme avant de disparaître sans laisser de trace.
 
-Wang Lin déchaîna toute sa puissance et se poussa à ses limites pour fuir. Alors qu'il apercevait les murs de la ville, quelques ombres surgirent soudainement en criant: « La ville de la Famille Feng impose une restriction sur le vol! Camarade cultivateur, arrêtez-vous, je vous prie! »
+Wang Lin déchaîna toute sa puissance et se poussa à ses limites pour fuir. Alors qu'il apercevait les murs de la ville, quelques ombres surgirent soudainement en criant: « La ville de la Famille Teng impose une restriction sur le vol! Camarade cultivateur, arrêtez-vous, je vous prie! »
 
 Sans perdre un instant, Wang Lin sortit une gourde. Il n'avait pas le temps de se soucier de révéler le secret de l'eau spirituelle et prit une grande gorgée. L'énergie spirituelle emplit son corps, sa vitesse explosa et il fonça en avant.
 
@@ -64,14 +64,14 @@ Une épée volante gigantesque, presque irréelle, apparut et s'abattit sur lui.
 
 Le cuir chevelu de Wang Lin devint engourdi alors que Situ Nan criait: « C'est un trésor de niveau Âme Naissante! Wang Lin, rétracte immédiatement ton sens divin. Je vais te téléporter! »
 
-Un éclat bleu se propagea rapidement depuis le cristal que Wang Lin tenait dans sa main pour envelopper son corps. À l'instant précis où cela se produisit, l'épée géante s'écrasa. Le fracas du sol qui se brisait résonna tandis que les sphères de foudre tombaient, créant des ondes électriques dévastatrices.
+Un éclat bleu se propagea rapidement depuis la poitrine de Wang Lin pour envelopper tout son corps. À l'instant précis où cela se produisit, l'épée géante s'écrasa. Le fracas du sol qui se brisait résonna tandis que les sphères de foudre tombaient, créant des ondes électriques dévastatrices.
 
-Le corps de Wang Lin disparut à l'impact de l'épée et réapparut trois cents mètres plus loin, avant de s'enfuir aussitôt.
+Le corps de Wang Lin disparut à l'impact de l'épée et réapparut près d'un kilomètre plus loin, avant de s'enfuir aussitôt.
 
-La voix de Situ Nan sonnait affaiblie alors qu'il réprimandait Wang Lin: « Ce petit bâtard a déjà atteint le stade de l'Établissement des Fondations à un âge si précoce. Si tu étais au stade de l'Établissement des Fondations, je pourrais emprunter ton corps et utiliser certaines techniques. Mais actuellement, avec ton seul niveau de Condensation de Qi, peu importe mon aide, je ne peux espérer qu'éliminer un cultivateur de milieu de l'Établissement des Fondations. »
+La voix de Situ Nan sonnait affaiblie alors qu'il réprimandait Wang Lin: « Ce petit bâtard a déjà atteint le stade tardif de l'Établissement des Fondations à un âge si précoce. Si tu étais au stade de l'Établissement des Fondations, je pourrais emprunter ton corps et utiliser certaines techniques. Mais actuellement, avec ton seul niveau de Condensation de Qi, peu importe mon aide, je ne peux espérer qu'éliminer un cultivateur de milieu de l'Établissement des Fondations. »
 
-Teng Li fronça les sourcils, puis sourit aussitôt. « Tu es le premier individu en dessous du stade de la Formation du Noyau à échapper à une attaque de ma part. Si ce n'était pas pour la demande de mon frère Jimo, je n'aurais vraiment pas voulu te tuer. »
+Teng Li fronça les sourcils, puis sourit aussitôt. « Tu es le premier individu en dessous du stade de la Formation du Noyau à échapper à une attaque de ma part. »
 
-Wang Lin ne da même pas un regard en arrière alors qu'il s'échappait avec précipitation. Sa consommation d'énergie spirituelle était trop importante. Sans hésiter, il sortit une gourde et prit une longue gorgée pour relancer sa vitesse.
+Wang Lin ne daigna même pas un regard en arrière alors qu'il s'échappait avec précipitation. Sa consommation d'énergie spirituelle était trop importante. Sans hésiter, il sortit une gourde et prit une longue gorgée pour relancer sa vitesse.
 
 Le regard de Teng Li devint glacial: « Je veux voir combien de fois tu pourras te téléporter! » Sur ces mots, il pointa son doigt vers Wang Lin. Le ciel s'assombrit et l'épée géante réapparut.

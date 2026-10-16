@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 94 - Corpse Yin Secte (3)
 slug: secte-des-cadavres-3
 ---
-Wu Yu afficha une expression suppliante et dit rapidement: « Je ne peux pas quitter cet endroit, mais j'aimerais vous demander d'aller à la Secte des Cadavres pour demander à mon frère de discipline, Ye Zi, de venir me sauver. »
+Wu Yu afficha une expression suppliante et dit rapidement: « Je ne peux pas quitter cet endroit, mais j'aimerais vous demander d'aller à la Secte des Cadavres pour demander à mon frère de discipline, Ye Zizai, de venir me sauver. »
 
 L'expression de Wang Lin demeura imperturbable. « Avez-vous un moyen pour que je puisse partir sans être remarqué par la marionnette cadavérique? » demanda-t-il.
 
@@ -14,7 +14,7 @@ Wu Yu hocha vivement la tête et dit sincèrement: « Je peux utiliser le reste 
 
 Wang Lin fixa Wu Yu. Il esquissa un mince sourire et dit: « Si vous avez la capacité d'ouvrir une telle formation, pourquoi ne pas y retourner vous-même? »
 
-Wu Yu soupira et répondit: « La marionnette cadavérique ne peut s'éloigner de moi de plus de cent kilomètres, et je ne peux pas m'éloigner d'elle de cent kilomètres non plus. Si la marionnette sortait de ce périmètre, elle mourrait instantanément. Si j'avais encore mon corps, mon âme en subirait de lourdes blessures, mais je ne suis plus qu'une Âme Naissante. Je n'ai vraiment pas envie de mourir avec cette marionnette. »
+Wu Yu soupira et répondit: « La marionnette cadavérique ne peut s'éloigner de moi de plus de cinquante kilomètres, et je ne peux pas m'éloigner d'elle de cinquante kilomètres non plus. Si la marionnette sortait de ce périmètre, elle mourrait instantanément. Si j'avais encore mon corps, mon âme en subirait de lourdes blessures, mais je ne suis plus qu'une Âme Naissante. Je n'ai vraiment pas envie de mourir avec cette marionnette. »
 
 La fréquence des tremblements de la statue augmentait. Voyant que l'expression de Wang Lin n'avait toujours pas changé, Wu Yu serra la mâchoire et déclara: « Moi, Wu Yu, je jure sur mon Âme Naissante que je ne vous veux aucun mal, alors je vous en prie, aidez-moi, jeune ami. Je peux même vous offrir Adai. Les neuf talismans étaient déjà sur lui lorsque je l'ai trouvé, et ils possèdent une puissance inimaginable. »
 

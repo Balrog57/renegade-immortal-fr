@@ -48,7 +48,7 @@ Wang Lin acquiesça. En entrant dans sa chambre, il remarqua une table dressée 
 
 Le corps de Sun Dazhu apparut tel un spectre. Son visage s'assombrit alors qu'il pensait: « Ce vieux respecte les règles de la secte, je n'empoisonnerai donc pas ta nourriture; mais je peux y mêler des substances qui entraveront ton absorption d'énergie spirituelle. Avec tes capacités médiocres et mes drogues, tu ne dépasseras jamais le troisième niveau de la Condensation de Qi. Tu resteras à jamais sous mon contrôle. »
 
-Une heure plus tard, Wang Lin se réveilla. Il ajusta ses vêtements et retourna vers la source pour reprendre sa culture. Il cultiva jusqu'à la tombée de la nuit avant de se lever et, sans dire un mot, de s'enfoncer dans la jungle de la montagne.
+Deux heures plus tard, Wang Lin se réveilla. Il ajusta ses vêtements et retourna vers la source pour reprendre sa culture. Il cultiva jusqu'à la tombée de la nuit avant de se lever et, sans dire un mot, de s'enfoncer dans la jungle de la montagne.
 
 Sun Dazhu, posté sur un arbre voisin, suivit silencieusement Wang Lin.
 

@@ -28,7 +28,7 @@ Tant qu'ils portaient le nom des Teng, ils devaient mourir!
 
 Teng Xiu Xiu s'avança précipitamment pour l'intercepter, ses larmes coulant sans fin.
 
-Wang Zhuo se ravit de cœur. D'un geste brusque, il repoussa Teng Xiu Xiu sur le côté et tonna: « Pars! Désormais, tu et moi n'avons plus rien en commun! »
+Wang Zhuo endurcit son cœur. D'un geste brusque, il repoussa Teng Xiu Xiu sur le côté et tonna: « Pars! Désormais, tu et moi n'avons plus rien en commun! »
 
 Le regard de Teng Xiu Xiu ne reflétait que le désespoir. Elle ne réalisa même pas qu'elle mordait sa lèvre si fort qu'elle en saignait. En pleurs, elle tenta de s'agripper à lui. Mais Wang Zhuo esquiva à nouveau et lâcha froidement: « Tu refuses de partir? Alors je m'en vais! » Sur ces mots, il prit son envol dans la direction opposée.
 
@@ -44,13 +44,13 @@ Puis, il accéléra instantanément et disparut, ne laissant derrière lui qu'un
 
 Du sang s'écoula de nouveau de la bouche de Teng Xiu Xiu alors qu'elle fixait l'endroit où Wang Zhuo avait disparu. Elle esquissa un sourire amer, les yeux emplis de confusion. Bien que le monde fût vaste, elle ne savait plus où aller. Des deux hommes qui comptaient le plus pour elle, l'un était peut-être mort et l'autre l'avait abandonnée. Pour une femme, ce n'était rien de moins que l'effondrement du ciel.
 
-Wang Zhuo vola durant plus de dix kilomètres. Ses mains saignaient à force d'avoir serré les poings. Les visions de la mort de ses proches assaillirent son esprit, mais l'image de la tristesse et du désespoir de Teng Xiu Xiu finit par les occulter.
+Wang Zhuo vola durant plus de cinq kilomètres. Ses mains saignaient à force d'avoir serré les poings. Les visions de la mort de ses proches assaillirent son esprit, mais l'image de la tristesse et du désespoir de Teng Xiu Xiu finit par les occulter.
 
 Après un long moment, Wang Zhuo atterrit au sol. Il s'agenouilla face à sa terre natale, effectua des kowtows vigoureux et déclara: « Père, mère, votre fils est... ingrat! »
 
 Une fois ses paroles achevées, il ferma les yeux et deux larmes coulèrent sur ses joues. Puis, il se redressa et partit à la hâte rejoindre Teng Xiu Xiu.
 
-En se retournant, il eut l'impression de voir les membres de sa famille, et particulièrement ses parents, le foudroyer du regard. Ils le pointaient tous du doigt, le traitant de traître et de bâtard de la famille Wang.
+En se retournant, il eut l'impression de voir les membres de sa famille, et particulièrement ses parents, le foudroyer du regard. Ils le pointaient tous du doigt, le traitant de traître et de fils indigne de la famille Wang.
 
 Le cœur de Wang Zhuo était brisé alors qu'il poursuivait Teng Xiu Xiu. Bientôt, il aperçut la silhouette confuse de la jeune femme en plein vol. En sentant sa présence, elle se retourna, affichant un sourire empreint de douceur.
 

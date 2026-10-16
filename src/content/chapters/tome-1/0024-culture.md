@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: The Training
 slug: culture
 ---
-Après avoir récolté une grande quantité d'eau de source dans la montagne, Wang Lin commença à préparer de l'eau de source enrichie en énergie spirituelle. Lorsqu'il fut dix heures du soir, il verrouilla sa porte. Par mesure de précaution, il attacha une extrémité d'une corde à la porte et l'autre à son bras, afin de savoir instantanément si quelqu'un tentait de l'ouvrir.
+Après avoir récolté une grande quantité d'eau de source dans la montagne, Wang Lin commença à préparer de l'eau de source enrichie en énergie spirituelle. À la tombée de la nuit, il verrouilla sa porte. Par mesure de précaution, il attacha une extrémité d'une corde à la porte et l'autre à son bras, afin de savoir instantanément si quelqu'un tentait de l'ouvrir.
 
 Après avoir bu plusieurs grandes gorgées d'eau de source, il sentit son corps s'échauffer. Il fixa ensuite la perle pour entrer dans le rêve.
 
@@ -70,7 +70,7 @@ Il était convaincu que les trois gourdes précédentes n'avaient pu entrer dans
 
 Désormais, il remplissait ces courges fraîchement cueillies avec de l'eau de source enrichie. Il pourrait ainsi tromper la perle pour les faire pénétrer dans le rêve.
 
-Cinq heures plus tard, Wang Lin entra dans l'espace du rêve, quatre courdes sur l'épaule. À sa grande surprise, il constata qu'elles étaient toutes avec lui.
+Cinq heures plus tard, Wang Lin entra dans l'espace du rêve, quatre courges sur l'épaule. À sa grande surprise, il constata qu'elles étaient toutes avec lui.
 
 Il les ouvrit et vit que l'eau était toujours à l'intérieur. Il en but une gorgée et s'aperçut qu'elle était encore chargée d'énergie spirituelle. Sans dire un mot, Wang Lin prit plusieurs grandes gorgées et commença sa culture.
 

@@ -1,14 +1,14 @@
 ---
 n: 243
-title: Teng One
+title: Teng Yi
 book: 4
 bookTitle: Clean Sweep
-en: Chapter 243 - Teng One
+en: Chapter 243 - Teng Yi
 slug: teng-one
 ---
-Teng One ne chercha ni à esquiver ni à bloquer. Il se contenta de subir les attaques. Cependant, même Wang Lin ne pouvait tenir longtemps en déchaînant de tels assauts, particulièrement le Domaine de Ji, qui endommageait sa propre Âme Naissante à chaque utilisation.
+Teng Yi ne chercha ni à esquiver ni à bloquer. Il se contenta de subir les attaques. Cependant, même Wang Lin ne pouvait tenir longtemps en déchaînant de tels assauts, particulièrement le Domaine de Ji, qui endommageait sa propre Âme Naissante à chaque utilisation.
 
-Le corps de Wang Lin disparut pour réapparaître cent mètres plus loin. Il sortit une fiole de jade et en vida tout le contenu dans sa bouche afin de restaurer son énergie spirituelle.
+Le corps de Wang Lin disparut pour réapparaître cinquante kilomètres plus loin. Il sortit une fiole de jade et en vida tout le contenu dans sa bouche afin de restaurer son énergie spirituelle.
 
 Mais au même instant, l'homme chétif leva la tête et s'élança de nouveau.
 
@@ -16,7 +16,7 @@ Un sentiment de danger retentit dans l'esprit de Wang Lin, qui esquiva précipit
 
 Le front couvert de sueur, il digéra rapidement les pilules qu'il venait d'ingérer pour reconstituer l'énergie spirituelle de son corps. Il frappa sa sacoche de rangement et en sortit le fourreau d'une épée antique. Il en tira ensuite une épée volante qu'il glissa dans le fourreau.
 
-Soudain, l'énergie de l'épée jaillit du fourreau, formant une lame gigantesque qui s'abattit sur Teng One.
+Soudain, l'énergie de l'épée jaillit du fourreau, formant une lame gigantesque qui s'abattit sur Teng Yi.
 
 L'homme chétif resta de nouveau stupéfait, laissant l'énergie de l'épée percuter son corps. Ce dernier ne put finalement plus résister à l'accumulation des dégâts et commença à s'effondrer.
 
@@ -30,35 +30,35 @@ Les yeux de l'homme chétif s'illuminèrent tandis qu'il dévorait Wang Lin du r
 
 Le regard de Wang Lin s'intensifia et il recula immédiatement. Mais il réalisa vite que toute l'énergie spirituelle environnante semblait avoir été aspirée par une force mystérieuse. Cela créait même un pouvoir d'emprisonnement; Wang Lin sentit rapidement sa vitesse chuter drastiquement sous cette pression.
 
-À cet instant, le cœur de Wang Lin se calma promptement. Il sortit précipitamment le miroir de bronze et le pointa vers Teng One, mais la lumière verte émise par l'objet n'eut aucun effet sur lui. Le poing de Teng One percuta le miroir de bronze. L'artefact se fissura et projeta des éclats de lumière.
+À cet instant, le cœur de Wang Lin se calma promptement. Il sortit précipitamment le miroir de bronze et le pointa vers Teng Yi, mais la lumière verte émise par l'objet n'eut aucun effet sur lui. Le poing de Teng Yi percuta le miroir de bronze. L'artefact se fissura et projeta des éclats de lumière.
 
 Grâce à cette lueur, l'emprisonnement qui l'entourait faiblit et il s'échappa rapidement de la zone. Simultanément, son cœur se serra alors qu'il hurlait: « Explose! »
 
 De nombreuses fissures apparurent soudainement sur l'Ancien Miroir de Bronze, puis celui-ci explosa.
 
-Cette explosion créa une immense bourrasque qui balaya la région. Une fois le vent passé, Teng One cracha une bouchée de sang doré. Dès que ce sang sortit de sa bouche, son corps parut bien plus affaibli. Une expression de panique envahit son visage alors qu'il tentait de rattraper le sang pour l'avaler.
+Cette explosion créa une immense bourrasque qui balaya la région. Une fois le vent passé, Teng Yi cracha une bouchée de sang doré. Dès que ce sang sortit de sa bouche, son corps parut bien plus affaibli. Une expression de panique envahit son visage alors qu'il tentait de rattraper le sang pour l'avaler.
 
 Les yeux de Wang Lin s'illuminèrent. Sans la moindre hésitation, il chargea au lieu de reculer. Il y avait quelque chose d'étrange dans ce sang.
 
-Voyant Wang Lin se précipiter vers lui, Teng One vola encore plus vite et tendit les mains. Wang Lin fit de même. Sous la force opposée des deux combattants, le sang doré se scinda en deux, chaque moitié flottant vers l'un d'eux.
+Voyant Wang Lin se précipiter vers lui, Teng Yi vola encore plus vite et tendit les mains. Wang Lin fit de même. Sous la force opposée des deux combattants, le sang doré se scinda en deux, chaque moitié flottant vers l'un d'eux.
 
-Après avoir saisi le sang doré, Teng One l'avala prestement. Puis, il fixa Wang Lin et chargea à nouveau contre lui.
+Après avoir saisi le sang doré, Teng Yi l'avala prestement. Puis, il fixa Wang Lin et chargea à nouveau contre lui.
 
-Wang Lin s'emparera du sang doré et s'enfuit sans un mot.
+Wang Lin s'empara du sang doré et s'enfuit sans un mot.
 
-Les deux volèrent très vite, l'un à la suite de l'autre. Wang Lin ne filait pas en ligne droite, mais décrivait des cercles autour du bassin de boue. Il avait toujours trouvé Teng One très étrange, et en voyant ce sang doré, il comprit enfin.
+Les deux volèrent très vite, l'un à la suite de l'autre. Wang Lin ne filait pas en ligne droite, mais décrivait des cercles autour du bassin de boue. Il avait toujours trouvé Teng Yi très étrange, et en voyant ce sang doré, il comprit enfin.
 
 Bien qu'il ignorât la nature exacte de ce sang, les souvenirs du Dieu Ancien contenaient quelque chose de similaire.
 
 En vérité, ce sang doré n'avait rien d'exceptionnel en soi; il était simplement semblable au sang d'un Dieu Ancien, ou plus précisément, il contenait une trace du sang d'un Dieu Ancien.
 
-Hormis le moment où il avait reformé son corps, aucune des attaques de Teng One ne dégageait la moindre fluctuation d'énergie spirituelle. Ses coups étaient purement physiques.
+Hormis le moment où il avait reformé son corps, aucune des attaques de Teng Yi ne dégageait la moindre fluctuation d'énergie spirituelle. Ses coups étaient purement physiques.
 
 Cette méthode n'appartenait plus à un cultivateur. Cet homme était comme une marionnette qui ne connaissait que la force brute.
 
-Teng One était également perplexe face aux techniques de Wang Lin, mais au milieu de cette confusion, une lueur de compréhension semblait poindre. Cet homme devait avoir cultivé une technique extrêmement singulière pour devenir ainsi sous son influence.
+Teng Yi était également perplexe face aux techniques de Wang Lin, mais au milieu de cette confusion, une lueur de compréhension semblait poindre. Cet homme devait avoir cultivé une technique extrêmement singulière pour devenir ainsi sous son influence.
 
-Il existait trop de méthodes dans le monde de la culture pour que Wang Lin les connaisse toutes, mais ses suppositions étaient très justes. La méthode que Teng One pratiquait ressemblait énormément à la façon dont les Dieux Anciens entraînaient leurs corps.
+Il existait trop de méthodes dans le monde de la culture pour que Wang Lin les connaisse toutes, mais ses suppositions étaient très justes. La méthode que Teng Yi pratiquait ressemblait énormément à la façon dont les Dieux Anciens entraînaient leurs corps.
 
 Cette méthode n'appartenait pas à Zhao, mais au messager de la Tour Céleste.
 
@@ -66,13 +66,13 @@ En cultivant cette voie, le sens divin et l'âme fusionnent avec le corps, ce qu
 
 Wang Lin fixa le sang doré dans sa main, les yeux brillants. La méthode de culture de cet homme n'était pas celle d'une marionnette, mais une imitation de celle des Dieux Anciens.
 
-Une lueur froide traversa le regard de Wang Lin alors qu'il frappait sa sacoche pour invoquer un brouillard sombre. Ce dernier se transforma en deux marionnettes: deux marionnettes de l'Âme Naissante obtenues auprès du vieil homme Ji Mo.
+Une lueur froide traversa le regard de Wang Lin alors qu'il frappait sa sacoche pour invoquer un brouillard sombre. Ce dernier se transforma en deux marionnettes: deux marionnettes de l'Âme Naissante obtenues auprès d'un membre principal de la famille Teng.
 
-Wang Lin fit glisser son doigt droit et deux gouttes de sang tombèrent sur les marionnettes. Soudain, leurs yeux brillèrent d'un rouge éclatant alors qu'elles chargeaient Teng One.
+Wang Lin fit glisser son doigt droit et deux gouttes de sang tombèrent sur les marionnettes. Soudain, leurs yeux brillèrent d'un rouge éclatant alors qu'elles chargeaient Teng Yi.
 
-Les marionnettes attaquèrent de leurs mains et de leurs pieds, tentant de contenir Teng One.
+Les marionnettes attaquèrent de leurs mains et de leurs pieds, tentant de contenir Teng Yi.
 
-Les yeux de Teng One émettent une lueur spectrale. Il forma un poing et frappa l'une des marionnettes, qui trembla avant de voler en éclats.
+Les yeux de Teng Yi émettent une lueur spectrale. Il forma un poing et frappa l'une des marionnettes, qui trembla avant de voler en éclats.
 
 Bien que sa compagne ait été détruite, la marionnette restante ne faiblit pas et continua l'assaut.
 
@@ -94,13 +94,13 @@ Une quantité colossale d'énergie spirituelle s'assembla.
 
 Les deux cinquièmes restants perdirent également leur énergie progressivement, mais la quantité de sang utilisée était trop infime pour que le géant puisse prendre une forme physique; il resta dans un état illusoire.
 
-Le front de Wang Lin était trempé de sueur. L'usage de cette technique pesait lourdement sur son corps, et l'étoile violette sur son front scintillait frénétiquement. En même temps, Wang Lin lutta pour pointer sa main droite vers Teng One qui, sentant le danger, tentait de s'enfuir.
+Le front de Wang Lin était trempé de sueur. L'usage de cette technique pesait lourdement sur son corps, et l'étoile violette sur son front scintillait frénétiquement. En même temps, Wang Lin lutta pour pointer sa main droite vers Teng Yi qui, sentant le danger, tentait de s'enfuir.
 
-Soudain, la figure hocha la tête et balaya d'un revers de main Teng One en pleine fuite. La main géante percuta l'homme. Sans même avoir le temps de réagir, Teng One disparut mystérieusement.
+Soudain, la figure hocha la tête et balaya d'un revers de main Teng Yi en pleine fuite. La main géante percuta l'homme. Sans même avoir le temps de réagir, Teng Yi disparut mystérieusement.
 
-Dans le sens divin de Wang Lin, la lueur représentant Teng One s'éteignit.
+Dans le sens divin de Wang Lin, la lueur représentant Teng Yi s'éteignit.
 
-Peu après, une goutte de sang doré apparut là où Teng One avait disparu. Wang Lin tendit la main et la goutte vola vers lui.
+Peu après, une goutte de sang doré apparut là où Teng Yi avait disparu. Wang Lin tendit la main et la goutte vola vers lui.
 
 Simultanément, l'immense figure s'inclina devant Wang Lin, s'avança vers le soleil couchant et disparut. Le symbole étrange formé par le sang doré s'évanouit également.
 
@@ -116,7 +116,7 @@ Quant à Wang Lin, il rangea soigneusement la goutte de sang doré dans sa sacoc
 
 Un jour plus tard, Wang Lin ouvrit les yeux et prit une profonde inspiration. Sans toutes ces pilules, l'usage de la technique du Dieu Ancien lui aurait coûté au moins une quinzaine de jours de récupération.
 
-Il se leva et observa la marionnette qui avait subi quelques dommages. Selon les informations du jade, elle serait capable de s'auto-réparer; Wang Lin traça alors un sceau qu'il pressa sur le front de la marionnette, laquelle se mua en fumée pour retourner dans sa sacoche. Wang Lin regarda vers l'endroit où Teng One avait péri avec une expression complexe. La famille Teng était bien plus puissante qu'il ne l'avait imaginé. S'il ne parvenait pas à utiliser la technique du Dieu Ancien comme prévu, il devrait recourir à son ultime recours.
+Il se leva et observa la marionnette qui avait subi quelques dommages. Selon les informations du jade, elle serait capable de s'auto-réparer; Wang Lin traça alors un sceau qu'il pressa sur le front de la marionnette, laquelle se mua en fumée pour retourner dans sa sacoche. Wang Lin regarda vers l'endroit où Teng Yi avait péri avec une expression complexe. La famille Teng était bien plus puissante qu'il ne l'avait imaginé. S'il ne parvenait pas à utiliser la technique du Dieu Ancien comme prévu, il devrait recourir à son ultime recours.
 
 La foudre de rétribution divine était une chose qu'il ne voulait absolument pas utiliser, car si il s'en servait maintenant, il y avait de fortes chances que sa vengeance soit interrompue prématurément.
 

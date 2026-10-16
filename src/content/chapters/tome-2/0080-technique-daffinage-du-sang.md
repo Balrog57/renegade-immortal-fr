@@ -17,7 +17,7 @@ La nuit passa et la lutte de l'épée sembla enfin s'apaiser légèrement. Le vi
 La lumière du matin inonda la pièce alors que Wang Lin continuait d'affiner l'arme. L'épée volante ne se débattait plus. Elle flottait dans les airs tandis que des filaments d'énergie spirituelle de Wang Lin s'y engouffraient.
 
 Soudain, l'expression de Wang Lin changea alors qu'il entendait un coup à la porte, suivi par la voix de Zhang Hu:
-« Wang Lin, veux-tu m'accompagner au magasin d'armes? »
+« Wang Lin, veux-tu m'accompagner à la boutique d'équipement? »
 
 Wang Lin prit une profonde inspiration et répondit: « Zhang Hu, je suis à un point critique de mon affinage, je ne peux pas y aller. »
 
@@ -31,7 +31,7 @@ Situ Nan déclara d'une voix lente: « Gamin, tu as enfin compris qu'il fallait 
 
 Wang Lin fronça les sourcils: « Aussi longtemps? »
 
-Situ Nan poursuivit calmement: « Évidemment. C'est un trésor de Formation du Noyau, et un trésor de très haut rang pour cela. Un cultivateur fou de la Formation du Noyau a dû le créer alors qu'il affrontait des cultivateurs de l'Âme Naissante; en risquant sa propre chance d'atteindre l'Âme Naissante, il a profité de l'instant de sa percée pour affiner ce trésor. Cet homme était un véritable dément. J'ai moi aussi voulu tenter l'expérience, mais après y avoir longuement réfléchi, j'ai renoncé. Bien que ne pas atteindre l'Âme Naissante ne soit pas une tragédie absolue, la percée vers ce stade est un moment extrêmement périlleux. Un seul faux pas et ton âme disparaîtrait à jamais. »
+Situ Nan poursuivit calmement: « Évidemment. C'est un trésor de Formation du Noyau, et un trésor de très haut rang pour cela. Un cultivateur fou de la Formation du Noyau a dû le créer au moment même où il tentait d'atteindre l'Âme Naissante; en risquant sa propre chance, il a profité de l'instant de sa percée pour affiner ce trésor. Cet homme était un véritable dément. J'ai moi aussi voulu tenter l'expérience, mais après y avoir longuement réfléchi, j'ai renoncé. Bien que ne pas atteindre l'Âme Naissante ne soit pas une tragédie absolue, la percée vers ce stade est un moment extrêmement périlleux. Un seul faux pas et ton âme disparaîtrait à jamais. »
 
 « Ce Bai Zhan a sans doute aussi reçu l'aide du créateur pour en faire son arme personnelle. Si j'avais encore mon corps, l'affinage serait aisé, mais maintenant, même moi je ne peux pas faire grand-chose... cependant... »
 
@@ -64,7 +64,7 @@ Stupéfait, Zhang Hu demanda: « C'est... c'est l'épée volante de mon maître?
 
 Wang Lin hocha la tête. D'un revers de la main droite, il fit revenir l'épée à ses côtés avant qu'elle ne rentre de nouveau dans sa bouche. Wang Lin était lui aussi très irrité par cette odeur persistante. Situ Nan ne lui avait précisé qu'à la fin que tous les trésors affinés par la technique du sang dégagent une odeur de sang et que, puisqu'ils tueront des gens à l'avenir, cette odeur ne fera que s'intensifier.
 
-Zhang Hu resta bouche bée devant l'épée. Après un long moment, il prit une grande inspiration et dit: « Wang Lin, je suis impressionné. Avec cette épée volante, les personnes de même niveau ne seront plus une menace pour toi. Sa capacité spéciale est la téléportation. La distance varie selon la puissance spirituelle de l'utilisateur, mais lorsqu'elle est utilisée de manière inattendue, c'est un atout magistral. »
+Zhang Hu resta bouche bée devant l'épée. Après un long moment, il prit une grande inspiration et dit: « Wang Lin, je suis impressionné. Avec cette épée volante, les personnes de même niveau ne seront plus une menace pour toi. Sa capacité spéciale est la téléportation. La distance varie selon la puissance spirituelle de l'utilisateur, mais lorsqu'elle est utilisée de manière inattendue, c'est une arme redoutable pour tuer. »
 
 Les deux échangèrent quelques mots. Au moment de partir, Zhang Hu rappela à Wang Lin que la foire d'échange mensuelle aurait lieu dans trois jours et qu'il devait s'y préparer.
 

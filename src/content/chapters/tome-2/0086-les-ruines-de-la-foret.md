@@ -6,27 +6,27 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 86 - Forest Ruins
 slug: les-ruines-de-la-forêt
 ---
-Wang Lin réfléchit un instant. Il pointa l'esprit de Teng Li et commença à l'absorber. L'esprit de Teng Li se mit à gonfler et à bouillonner.
+Wang Lin réfléchit un instant. Il pointa la brume spirituelle de Teng Li et commença à l'absorber. La brume se mit à gonfler et à bouillonner.
 
-Puis, la sphère de sang jaillit rapidement pour se fondre dans l'esprit. Graduellement, l'esprit commença à rétrécir, tandis que la masse de chair et d'os se dissolvait également dans la brume spirituelle.
+Puis, la sphère de sang jaillit rapidement pour se fondre dans la brume. Graduellement, la brume commença à rétrécir, tandis que la masse de chair et d'os se dissolvait également dans la brume spirituelle.
 
-L'esprit avait considérablement changé; il n'était plus qu'un anneau étroit flottant dans les airs, émettant une douce lueur.
+La brume avait considérablement changé; elle n'était plus qu'un anneau étroit flottant dans les airs, émettant une douce lueur.
 
 Wang Lin prit une profonde inspiration. Il savait qu'il atteignait l'ultime étape. Sa concentration s'intensifia lorsqu'il plaça l'âme dans l'anneau.
 
 Après un long moment, l'anneau projeta soudain un éclat éblouissant. Les yeux de Wang Lin s'illuminèrent; il mordit vivement le bout de sa langue et cracha un jet de sang. Dès que le sang toucha l'anneau, un sifflement retentit et le liquide disparut instantanément.
 
-Une fois fusionné avec le sang, l'anneau se mit à trembler. Il commença à émettre une pression puissante, et toutes les créatures vivantes dans un rayon d'un kilomètre autour de Wang Lin ressentirent ce changement.
+Une fois fusionné avec le sang, l'anneau se mit à trembler. Il commença à émettre une pression puissante, et toutes les créatures vivantes dans un rayon de cinquante kilomètres autour de Wang Lin ressentirent ce changement.
 
 Plusieurs auras puissantes apparurent et chargèrent prestement vers lui.
 
-Wang Lin ne cilla même pas. D'un revers de la main, il fit fusionner l'anneau dans sa poitrine. Une puissante vague de puissance spirituelle traversa soudain son corps, faisant rougir son visage.
+Wang Lin ne cilla même pas. D'un geste de la main, il fit fusionner l'anneau dans sa poitrine. Une puissante vague de puissance spirituelle traversa soudain son corps, faisant rougir son visage.
 
 Prenant une profonde inspiration, son corps s'élança comme une flèche et disparut rapidement dans la forêt.
 
-Peu après son départ, un python géant redressa brusquement la tête. Après avoir reniflé l'air, il afficha une expression confuse. Après avoir secoué la tête, il fit volte-face et s'en alla.
+Peu après son départ, un serpent géant redressa brusquement la tête. Après avoir reniflé l'air, il afficha une expression confuse. Après avoir secoué la tête, il fit volte-face et s'en alla.
 
-Aussitôt après, un singe de trois mètres de haut arriva aussi vite que l'éclair. Il se rua dans le creux de l'arbre et fouilla un moment avant de repartir, frustré.
+Aussitôt après, un singe de plus de trois mètres de haut arriva aussi vite que l'éclair. Il se rua dans le creux de l'arbre et fouilla un moment avant de repartir, frustré.
 
 Plusieurs autres bêtes puissantes vinrent inspecter les lieux, mais elles repartirent toutes, perplexe.
 
@@ -42,7 +42,7 @@ Assis en tailleur sous terre, Wang Lin concentra son attention pour organiser l'
 
 Profitant du silence de l'obscurité et de l'absence de toute distraction, Wang Lin entama sa troisième séance de culture en méditation.
 
-Le temps s'écoula et, en un clin d'œil, deux années passèrent.
+Le temps s'écoula et, en un clin d'œil, trois années passèrent.
 
 La terre au-dessus de l'endroit où Wang Lin pratiquait était désormais recouverte de couches de feuilles en décomposition où grouillaient des insectes venimeux.
 
@@ -54,9 +54,9 @@ Dès l'apparition de la silhouette, tous les insectes poussèrent des cris de te
 
 Le regard de Wang Lin était électrique et tout son corps débordait d'une puissante énergie spirituelle. Il ouvrit la bouche et cracha une lumière verte qui se mua en son épée volante.
 
-Ses yeux brillèrent. Il leva la main et le fourreau s'envola vers lui tandis qu'il murmurait: « Après deux ans de raffinage, ce fourreau m'appartient presque entièrement. Utilisé avec l'épée volante, son effet doit être redoutable. »
+Ses yeux brillèrent. Il leva la main et le fourreau s'envola vers lui tandis qu'il murmurait: « Après trois ans de raffinage, ce fourreau m'appartient presque entièrement. Utilisé avec l'épée volante, son effet doit être redoutable. »
 
-Après avoir rangé l'épée et son fourreau, il réfléchit un instant. Puis, touchant la perle sur sa poitrine, il songea: « Situ Nan a épuisé trop d'essence d'Âme Naissante il y a deux ans pour m'aider à échapper à Teng Li. Il a également lancé un sort pour empêcher Teng Huayuan de me trouver. Il dort depuis plus d'un an et j'ignore quand il s'éveillera. Heureusement, j'ai déjà mémorisé la Méthode d'Ascension des Enfers. Il ne me reste plus qu'à trouver un lieu imprégné d'une forte énergie Yin pour la pratiquer. »
+Après avoir rangé l'épée et son fourreau, il réfléchit un instant. Puis, touchant la perle sur sa poitrine, il songea: « Situ Nan a épuisé trop d'essence d'Âme Naissante il y a trois ans pour m'aider à échapper à Teng Li. Il a également lancé un sort pour empêcher Teng Huayuan de me trouver. Il dort depuis plus de deux ans et j'ignore quand il s'éveillera. Heureusement, j'ai déjà mémorisé la Méthode d'Ascension des Enfers. Il ne me reste plus qu'à trouver un lieu imprégné d'une forte énergie Yin pour la pratiquer. »
 
 Ayant pris sa décision, Wang Lin prit une profonde inspiration et déploya son Sens Divin. Il se dirigea soudainement vers le nord jusqu'à atteindre une rivière, où il se débarrassa de toute la terre noire qui recouvrait son corps. Une fois propre, il se sentit revigoré.
 
@@ -90,7 +90,7 @@ Elle secoua joyeusement son corps avant de quitter la zone de lumière et de dis
 
 Le pilier de lumière continuait de briller. Wang Lin l'observait, interdit.
 
-Soudain, le pilier se dissipa en d'innombrables particules argentées. Wang Lin resta vigilant. Une demi-heure plus tard, le pilier réapparut.
+Soudain, le pilier se dissipa en d'innombrables particules argentées. Wang Lin resta vigilant. Une heure plus tard, le pilier réapparut.
 
 Ce cycle se répéta plusieurs fois. Après une journée entière d'observation, Wang Lin parvint enfin à comprendre le phénomène.
 
@@ -104,11 +104,11 @@ Tandis qu'il explorait du bout des doigts ce courant d'air, les yeux de Wang Lin
 
 Après réflexion, il se dirigea à travers les ruines jusqu'à une immense tour.
 
-Il s'agissait des vestiges d'une gigantesque tour cylindrique. De l'extérieur, on voyait clairement qu'une partie de l'édifice s'était effondrée. Pourtant, même en ruine, sa splendeur passée était évidente. Deux statues géantes tenant des épées se dressaient, surmontées d'une tour d'environ trente mètres de haut.
+Il s'agissait des vestiges d'une gigantesque tour cylindrique. De l'extérieur, on voyait clairement qu'une partie de l'édifice s'était effondrée. Pourtant, même en ruine, sa splendeur passée était évidente. Deux statues géantes tenant des épées se dressaient, surmontées d'une tour d'environ cent mètres de long.
 
 Wang Lin contempla les décombres, imaginant le moment tragique où cette tour glorieuse s'était brisée, s'abattant en partie sur les deux statues.
 
-Le pilier de lumière provenait d'une sphère de pierre d'environ deux mètres de diamètre située au sommet de la structure.
+Le pilier de lumière provenait d'une sphère de pierre d'environ six mètres et demi de diamètre située au sommet de la structure.
 
 Près de la sphère, Wang Lin hésita. L'objet était trop massif pour être déplacé aisément. De plus, il ignorait le mécanisme exact de la guérison et craignait que son retrait n'annule l'effet du trésor.
 

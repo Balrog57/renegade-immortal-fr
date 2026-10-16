@@ -64,7 +64,7 @@ Après un court instant de réflexion, sans dire un mot, Wang Lin vola vers l'ou
 
 Wang Lin savait qu'il manquait de liquide spirituel et que Situ Nan ne pouvait plus se téléporter; s'il restait en l'air, il serait capturé à coup sûr.
 
-Il valait mieux renoncer au vol et voyager à pied dans la forêt. Bien qu'il ignorât pourquoi ce bois était enveloppé de brume, il constata que lorsqu'il déployait son Sens Divin, ses perceptions devenaient troubles et ne lui permettaient de ressentir que les environs immédiats, dans un rayon d'une douzaine de mètres.
+Il valait mieux renoncer au vol et voyager à pied dans la forêt. Bien qu'il ignorât pourquoi ce bois était enveloppé de brume, il constata que lorsqu'il déployait son Sens Divin, ses perceptions devenaient troubles et ne lui permettaient de ressentir que les environs immédiats, dans un rayon d'une centaine à deux centaines de mètres.
 
 Peu après l'entrée de Wang Lin dans la forêt, un éclat arc-en-ciel apparut à la lisière des arbres. Après avoir patrouillé dans les airs au-dessus de la canopée, Teng Li s'arrêta à l'entrée. Il avait épuisé trop d'énergie spirituelle à force de poursuivre Wang Lin ces trois derniers jours. Sans ses pilules de récupération, il aurait déjà renoncé.
 
@@ -82,7 +82,7 @@ Teng Li se tenait à l'extérieur de la forêt. Ses yeux étaient glacials, mais
 
 Après une courte réflexion, Teng Li prit sa décision. Les trésors de Wang Lin étaient tels qu'il était déterminé à les faire siens.
 
-De nombreux arbres séculaires s'élançaient vers le ciel, chargés de feuillage. Le sol était recouvert d'une couche de feuilles mortes d'un demi-mètre d'épaisseur. D'innombrables insectes venimeux rampaient sur la terre et des serpents glissaient rapidement entre les débris végétaux. Des arbres millénaires parsemaient le paysage. Une multitude de fleurs couvraient le sol et diverses espèces de bêtes habitaient la région. L'odeur de la décomposition des feuilles et des carcasses créait une puanteur capable d'étouffer un homme.
+De nombreux arbres séculaires s'élançaient vers le ciel, chargés de feuillage. Le sol était recouvert d'une couche de feuilles mortes. D'innombrables insectes venimeux rampaient sur la terre et des serpents glissaient rapidement entre les débris végétaux. Des arbres millénaires parsemaient le paysage. Une multitude de fleurs couvraient le sol et diverses espèces de bêtes habitaient la région. L'odeur de la décomposition des feuilles et des carcasses créait une puanteur capable d'étouffer un homme.
 
 Cet endroit était plongé dans la brume toute l'année. Des arbres étranges croissaient jusqu'à atteindre les cieux, et des bêtes aussi puissantes que des cultivateurs de niveau Âme Naissante y résidaient. Le moindre manque de prudence pouvait y coûter la vie.
 
@@ -90,17 +90,17 @@ Wang Lin déploya son Sens Divin tout en se déplaçant rapidement à travers la
 
 Le corps de Wang Lin s'immobilisa instantanément.
 
-Situ Nan prit une profonde inspiration et dit lentement: « Quel genre d'endroit est-ce là, pour que des Lianes Bleues s'y trouvent encore? Ces lianes sont des vecteurs de désastre. Un pays de rang 2 a été anéanti par elles autrefois. »
+Situ Nan prit une profonde inspiration et dit lentement: « Quel genre d'endroit est-ce là, pour que des Lianes Bleues s'y trouvent encore? Ces lianes sont des vecteurs de désastre. Plusieurs pays de rang 2 ont été anéantis par elles autrefois. »
 
 « Des Lianes Bleues? » Wang Lin fut surpris.
 
-Situ Nan reprit d'un ton sérieux: « Devant toi se trouve une vigne, et sur elle court une ligne bleue... Qu'est-ce que c'est? Attends, ce n'est pas une Liane Bleue. Étrange... Wang Lin, ce n'est qu'une jeune pousse de Liane Bleue. Mieux vaut l'éviter, car une Liane Bleue adulte est un cauchemar pour les cultivateurs en dessous du stade de la Formation du Noyau. Cette chose est extrêmement sensible au sang et, chaque fois qu'elle dévore quelqu'un, elle évolue. Si elle parvient à atteindre le stade intermédiaire, même des cultivateurs de niveau Formation Spirituelle ne pourront lui résister. De plus, elle réagit violemment aux fluctuations d'énergie spirituelle; n'utilise donc aucune technique pour l'attaquer. »
+Situ Nan reprit d'un ton sérieux: « Devant toi se trouve une vigne, et sur elle court une ligne bleue... Qu'est-ce que c'est? Attends, ce n'est pas une Liane Bleue. Étrange... Wang Lin, ce n'est qu'une jeune pousse de Liane Bleue. Mieux vaut l'éviter, car une Liane Bleue adulte est un cauchemar pour les cultivateurs en dessous du stade de la Formation du Noyau. Cette chose est extrêmement sensible au sang et, chaque fois qu'elle dévore quelqu'un, elle évolue. Si elle parvient à son stade ultime, même les cultivateurs de Transformation de l'Âme ne pourront lui résister. De plus, elle réagit violemment aux fluctuations d'énergie spirituelle; n'utilise donc aucune technique pour l'attaquer. »
 
 Wang Lin observa les alentours avec gravité, son regard se posant sur une vigne au loin.
 
 Cette vigne semblait tout à fait ordinaire, si l'on excepte la fine ligne bleue qui la parcourait. Pour le reste, elle ressemblait à n'importe quelle autre plante.
 
-Wang Lin réfléchit un instant. N'écoutant pas l'avertissement de Situ Nan, il s'avança sans émettre la moindre énergie spirituelle. Il saisit délicatement la vigne et la tira lentement. Après l'avoir extraite sur trois mètres, il lâcha prise et recula. Il se coupa le doigt et fit jaillir une goutte de sang sur la plante.
+Wang Lin réfléchit un instant. N'écoutant pas l'avertissement de Situ Nan, il s'avança sans émettre la moindre énergie spirituelle. Il saisit délicatement la vigne et la tira lentement. Après l'avoir extraite sur une dizaine de mètres, il lâcha prise et recula. Il se coupa le doigt et fit jaillir une goutte de sang sur la plante.
 
 Dès que le sang toucha la vigne, celle-ci se mit à s'agiter frénétiquement tandis que plusieurs autres Lianes Bleues surgissaient des racines pour se rassembler. Après un certain tumulte, elles finirent par se calmer.
 

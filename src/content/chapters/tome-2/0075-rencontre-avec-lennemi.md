@@ -10,7 +10,7 @@ Liu San et son groupe étaient stupéfaits. Ils n'avaient jamais vu cet homme d'
 
 L'expression de Wang Lin demeurait calme. Il fixa l'homme d'âge mûr sans dire un mot, tandis que la voix paresseuse de Situ Nan flottait à ses oreilles.
 
-« Ce petit nouveau est plutôt intéressant. Sa technique de divination est assez douée. Face à des gens ordinaires, il parvient à percevoir les signes de leur avenir, mais lorsqu'il tente de sonder l'avenir de nous, les cultivateurs, c'est comme s'il se débattait dans l'eau. Je lui ai projeté quelques souvenirs de moi anéantissant une secte, et il n'a plus les moyens de gérer ça. »
+« Ce petit nouveau est plutôt intéressant. Sa technique de divination est assez douée. Face à des gens ordinaires, il parvient à percevoir les signes de leur avenir, mais lorsqu'il tente de sonder l'avenir de nous, les cultivateurs, c'est comme s'il se débattait dans l'eau. Je lui ai projeté quelques souvenirs de moi exterminant des familles entières, et il n'a plus les moyens de gérer ça. »
 
 En un instant, le lettré d'âge mûr fut couvert de sueur. Son regard vers Wang Lin n'était plus neutre, mais empreint de terreur. En entendant les paroles de Liu San, il s'empressa de répondre: « Cela n'a rien à voir avec ce petit... petit frère. Mes capacités sont insuffisantes. Je ne peux pas voir clair, je ne peux pas voir clair! » Sur ces mots, il s'inclina à plusieurs reprises, le visage marqué par l'amertume.
 
@@ -20,7 +20,7 @@ Liu San fronça les sourcils et s'apprêtait à prendre la parole quand un cri d
 
 Le visage de Liu San changea radicalement. Il se redressa brusquement, réalisant que cette tête appartenait à l'un de leurs patrouilleurs.
 
-Yang San saisit la tête. Il serra le poing et tonna: « Er Gou, ton frère va te venger! »
+Yang Sen saisit la tête. Il serra le poing et tonna: « Er Gou, ton frère va te venger! »
 
 Tous les gardes dégainèrent leurs armes, leur intention meurtrière se propageant dans les environs.
 
@@ -52,7 +52,7 @@ Une voix glaciale résonna soudainement de toutes parts: « Sortez le ginseng, o
 
 À cet instant, tout le groupe de l'escorte fut pétrifié. Certains en perdirent même la force de tenir leurs armes, qui tombèrent au sol.
 
-Les yeux de Yang San trahissaient une terreur pure. « Quelle... quelle est cette arme? » hurla-t-il.
+Les yeux de Yang Sen trahissaient une terreur pure. « Quelle... quelle est cette arme? » hurla-t-il.
 
 La chaleur irradiait autour du brasier, faisant prendre conscience aux gardes de l'escorte de l'intensité effroyable du feu.
 
@@ -68,9 +68,9 @@ Liu San afficha une expression amère. Il allait prendre la parole quand trois a
 
 Les yeux de Wang Lin s'illuminèrent, soudain intrigué. À en juger par l'aspect des boules de feu, celui qui les lançait ne pouvait pas avoir dépassé le troisième niveau de culture. Il se toucha le menton et projeta son Sens Divin. Il localisa rapidement l'individu, perché sur un grand arbre non loin de là.
 
-« Qu'est-ce que c'est? » marmonna Wang Lin, stupéfait. L'individu avait environ vingt ans et se situait au sommet du deuxième niveau, frôlant le troisième. Le visage du jeune homme était sombre et couvert de cicatrices; à première vue, il paraissait très féroce, mais plus Wang Lin l'observait, plus son visage lui semblait familier.
+« Qu'est-ce que c'est? » marmonna Wang Lin, stupéfait. L'individu avait environ vingt-huit ou vingt-neuf ans et se situait au sommet du deuxième niveau, frôlant le troisième. Le visage du jeune homme était sombre et couvert de cicatrices; à première vue, il paraissait très féroce, mais plus Wang Lin l'observait, plus son visage lui semblait familier.
 
-Le lettré d'âge mûr soupira: « Lao Liu, donne-le-leur. Même si la famille du Nord l'apprend, ils ne nous en voudront pas. L'ennemi est un immortel. Comment des mortels comme nous pourrions-nous nous défendre? »
+Le lettré d'âge mûr soupira: « Lao Liu, donne-le-leur. Même si notre employeur l'apprend, il ne nous en voudra pas. L'ennemi est un immortel. Comment des mortels comme nous pourrions-nous nous défendre? »
 
 Liu San hésita un instant, puis, impuissant, sortit une petite boîte qu'il posa au sol.
 

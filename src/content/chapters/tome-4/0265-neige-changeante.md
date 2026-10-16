@@ -42,7 +42,7 @@ Une fois que le prince devint roi, ses tributs ne diminuèrent pas, ils augment�
 
 Au fil des ans, Wang Lin commença à éprouver une véritable admiration pour le prince. Après tout, c'était un souverain dans le monde mortel; être capable de baisser ainsi la tête demandait une immense détermination.
 
-Peut-être était-ce parce qu'il avait tant vécu qu'il avait réalisé qu'il existait des êtres capables de le tuer d'un simple geste du doigt sans que personne n'en souffre. L'une des raisons pour lesquelles il témoignait un tel respect à Wang Lin était de vouloir l'attirer à ses côtés afin de s'assurer une vie paisible.
+Peut-être était-ce parce qu'il avait tant vécu qu'il avait réalisé qu'il existait des êtres capables de le tuer d'un simple geste du doigt sans que personne ne s'en soucie. L'une des raisons pour lesquelles il témoignait un tel respect à Wang Lin était de vouloir l'attirer à ses côtés afin de s'assurer une vie paisible.
 
 Cet hiver-là, la neige tomba avec une intensité rare. En plus de trente ans de présence ici, Wang Lin n'avait jamais vu une telle tempête. La neige recouvrait toute la capitale; sur les toits et les arbres, elle s'accumulait jusqu'à atteindre la hauteur d'un enfant de quatre ou cinq ans.
 
@@ -64,21 +64,21 @@ Peu après, en plus de la neige, d'innombrables fragments de jade jaillirent des
 
 L'un de ces fragments vola vers Wang Lin. D'un revers de main, il le rattrapa, même si l'objet avait déjà dépassé sa position.
 
-Wang Lin tint le jade et, en y projetant son esprit, il entendit une voix sinistre: « Tous les cultivateurs de l'Alliance des Quatre Sectes, préparez-vous à la guerre! Les quatre sectes — la Secte de l'Encre d'Eau, la Secte des Nuages Blancs, la Secte du Bois Vert et la Secte de l'Âme Noire — appellent tous les cultivateurs errants à se rassembler. Que ceux qui s'absentent en assument les conséquences! »
+Wang Lin tint le jade et, en y projetant son esprit, il entendit une voix sinistre: « Tous les cultivateurs de l'Alliance des Quatre Sectes, préparez-vous à la guerre! Les quatre sectes — la Secte de l'Encre d'Eau, la Secte des Nuages Blancs, la Secte du Bois Vert et la Secte de l'Âme Noire — appellent tous les cultivateurs errants, démoniaques et ascètes à se rassembler. Que ceux qui s'absentent en assument les conséquences! »
 
 Wang Lin réfléchit un instant avant de broyer le jade dans sa paume. Il disparut de sa boutique et, lorsqu'il réapparut, il planait déjà dans le ciel au-dessus de la capitale.
 
-Soudain, son corps s'élança pour continuer son ascension. À plus de dix mille kilomètres d'altitude, il finit par trouver la source de la neige.
+Soudain, son corps s'élança pour continuer son ascension. À plus de cinq mille kilomètres d'altitude, il finit par trouver la source de la neige.
 
 Wang Lin fixa le ciel un long moment. Il parvint finalement à percer le mystère: il distinguait de faibles ondulations de restrictions dans la zone, lesquelles semblaient dissimuler l'origine de la chute des neiges.
 
-S'il s'était agi d'une autre technique, Wang Lin aurait peut-être eu du mal à la briser, mais face à une restriction, il n'éprouvait aucune crainte. Sa main droite balaya ses yeux, faisant jaillir une lumière étrange. Il scruta l'éther pendant un long moment avant que ses mains ne s'activent. Après une demi-heure, d'innombrables restrictions apparurent autour de lui.
+S'il s'était agi d'une autre technique, Wang Lin aurait peut-être eu du mal à la briser, mais face à une restriction, il n'éprouvait aucune crainte. Sa main droite balaya ses yeux, faisant jaillir une lumière étrange. Il scruta l'éther pendant un long moment avant que ses mains ne s'activent. Après un quart d'heure, d'innombrables restrictions apparurent autour de lui.
 
 Des cercles illusoires se déposèrent dans les airs et une fumée blanche s'en échappa, comme si la glace fondait. Peu à peu, le ciel vide fut envahi par cette brume blanche. Une fois celle-ci dissipée, la vérité fut révélée.
 
 Wang Lin l'examina attentivement et son expression changea instantanément.
 
-Il vit une immense faille de mille pieds de large s'ouvrir dans le ciel au-dessus de la capitale, d'où s'écoulait une neige infinie.
+Il vit une immense faille longue d'environ 330 mètres s'ouvrir dans le ciel au-dessus de la capitale, d'où s'écoulait une neige infinie.
 
 Wang Lin balaya la zone avec son Sens Divin et découvrit qu'il existait au moins cent de ces restrictions dans un rayon de 10 000 kilomètres. Et cela n'était que pour cette zone! D'après ses calculs, il devait exister d'innombrables failles de ce genre sur l'ensemble du territoire de l'Alliance des Quatre Sectes.
 

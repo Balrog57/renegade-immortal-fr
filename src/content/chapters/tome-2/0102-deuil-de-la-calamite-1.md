@@ -10,11 +10,11 @@ Wang Lin gardait un œil sur l'individu qui tenait le jade contenant une partie 
 
 Au moment où la lumière verte apparut, la température de la zone chuta brusquement. L'épée volante que Wang Lin avait raffinée avec son propre sang avait également changé depuis qu'il avait commencé à cultiver la Méthode d'Ascension des Enfers. Une énergie Yin s'était infiltrée dans l'arme.
 
-L'énergie Yin de l'épée était d'une tyrannie absolue. Toutes les plantes environnantes se figèrent soudainement. Même les cultivateurs au premier stade de l'Établissement des Fondations sentirent leur corps s'engourdir alors que le givre commençait à se former sur leurs vêtements.
+L'énergie Yin de l'épée était d'une tyrannie absolue. Toutes les plantes environnantes se figèrent soudainement. Même les cultivateurs au premier stade de l'Établissement des Fondations sentirent leur corps s'engourdir alors que leur peau se couvrait de cristaux de glace.
 
 Le cultivateur qui tenait le jade contenant l'étincelle d'âme de Wang Lin fut frappé de stupeur. Il n'eut pas le temps de broyer le jade; il ne put que reculer précipitamment. Mais même dans ses rêves les plus fous, il ne s'attendait pas à ce que l'épée volante se mette à bourdonner avant de disparaître soudainement de sa vue. Il lança rapidement des trésors magiques pour se défendre, mais il était déjà trop tard.
 
-L'épée volante réapparut à un mètre du cultivateur et lui transperça la gorge. Le sang jaillit de la blessure. Il pressa ses deux mains contre son cou et s'effondra, le visage figé par l'incrédulité.
+L'épée volante réapparut à environ trois mètres du cultivateur et lui transperça la gorge. Le sang jaillit de la blessure. Il pressa ses deux mains contre son cou et s'effondra, le visage figé par l'incrédulité.
 
 Wang Lin bondit. Il saisit le jade et le projeta dans son sac de rangement.
 
@@ -82,11 +82,11 @@ Wang Lin haussa les sourcils et agita ses manches; une technique d'attraction fo
 
 Wang Lin lança un regard froid au jeune homme. Grâce à son Sens Divin, il nota que les trois individus cachés dans la jungle accéléraient pour converger vers eux. Ne voulant pas perdre de temps avec eux, il entreprit de s'éloigner rapidement.
 
-Le jeune homme entra dans une rage folle. Bien que leurs niveaux de culture fussent tous deux au début du stade de l'Établissement des Fondations, il était soutenu par trois compagnons, dont l'un atteignait le milieu de l'Établissement des Fondations. Ces quatre-là ne faisaient pas partie des membres de la Secte Tian Dao et avaient décidé d'en profiter pour dépouiller les passants.
+Le jeune homme s'irrita. Bien que leurs niveaux de culture fussent tous deux au début du stade de l'Établissement des Fondations, il était soutenu par trois compagnons, dont l'un atteignait le milieu de l'Établissement des Fondations. Ces quatre-là appartenaient à la Secte Tian Dao sans suivre les autres disciples et avaient décidé d'en profiter pour dépouiller les passants.
 
 Il faut dire que lors de cette compétition, toutes les sectes avaient distribué de nombreux trésors magiques afin d'accroître la puissance de leurs disciples au stade de l'Établissement des Fondations.
 
-En voyant que Wang Lin était seul, le jeune homme fut pris d'une pulsion meurtrière. Voyant maintenant sa proie tenter de fuir, il frappa son sac de rangement et une règle de huit pouces s'en échappa.
+En voyant que Wang Lin était seul, le jeune homme fut pris d'une pulsion meurtrière. Voyant maintenant sa proie tenter de fuir, il frappa son sac de rangement et une règle d'environ vingt-six centimètres s'en échappa.
 
 Cette règle était d'un vert éclatant et dégageait un parfum puissant dès son apparition. Le jeune homme prit une profonde inspiration et, sans un mot, pointa l'objet vers l'avant. La règle trembla et un énorme champignon noir en jaillit, se détachant pour flotter dans les airs.
 

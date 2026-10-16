@@ -12,7 +12,7 @@ Sur le mur derrière lui se trouvait un trou noir de la taille d'un poing. Il ne
 
 Cette aspiration devait être spontanée. Au moment où il était apparu devant la cavité durant sa chute, le trou mystérieux l'avait happé, lui sauvant ainsi la vie. Tie Zhu, endurant l'agonie de son bras droit, était sur le point de sortir de la grotte lorsque les ossements au sol commencèrent soudainement à glisser vers l'orifice. Sans perdre un instant, il se roula dans un coin de la cavité, sentant le souffle du vent passer derrière lui.
 
-Une force d'aspiration inimaginable jaillit soudain du petit trou. Tous les os s'entrechoquèrent en volant vers l'ouverture. Certains des plus gros ossements restèrent coincés contre la paroi, obstruant partiellement le passage.
+Une force d'aspiration inimaginable jaillit soudain du petit trou. Tous les os s'entrechoquèrent en volant vers l'ouverture. Certains des plus gros ossements restèrent coincés contre la paroi, bouchant le petit trou.
 
 À cet instant, un oiseau qui passait près de l'entrée fut aspiré. Il fendit l'air dans un sifflement avant de s'écraser violemment contre la paroi de la grotte.
 
@@ -20,7 +20,7 @@ Environ une heure plus tard, l'aspiration cessa. Wang Lin fixa avec horreur le c
 
 Trente minutes plus tard, l'aspiration reprit. Le phénomène se répéta plusieurs fois. Wang Lin avait désormais saisi le rythme de ce trou étrange: il aspirait toutes les trente minutes, pendant une durée de soixante minutes chacune.
 
-Profitant des intervalles entre deux aspirations, Wang Lin rampa péniblement vers l'entrée de la grotte. En regardant en bas, il ne put s'empêcher d'esquisser un sourire amer. Sous lui s'étendait une jungle, et le sol, à peine visible, était parsemé de rochers. La falaise était si abrupte qu'il n'avait aucune chance de descendre avec son bras brisé. La distance entre la paroi et le fond dépassait largement les quelques dizaines de mètres; s'il tentait de sauter, ce serait assurément sa fin.
+Profitant des intervalles entre deux aspirations, Wang Lin rampa péniblement vers l'entrée de la grotte. En regardant en bas, il ne put s'empêcher d'esquisser un sourire amer. Sous lui s'étendait une jungle, et le sol, à peine visible, était parsemé de rochers. La falaise était si abrupte qu'il n'avait aucune chance de descendre avec son bras brisé. La distance entre la paroi et le fond dépassait largement la centaine de mètres; s'il tentait de sauter, ce serait assurément sa fin.
 
 Son sac de provisions était resté au sommet de la montagne, hors de portée. Pour l'instant, la faim était son problème le plus pressant. Alors qu'il réfléchissait, il se souvint soudain du cycle d'aspiration et se précipita dans le coin de la grotte.
 
@@ -32,19 +32,19 @@ Il mastiquait à peine, préférant avaler les morceaux presque tout entiers. Ti
 
 Il jeta les restes de l'oiseau sur le côté et s'assit contre la paroi. Son esprit vagabondait: un instant il pensait à ses parents, l'instant suivant à son quatrième oncle, puis aux visages moqueurs de ses proches, et parfois même au regard glacial de l'homme d'âge mûr vêtu de noir de la Secte Heng Yue.
 
-En plein état second, Wang Lin fixa le cadavre d'oiseau à moitié consommé. Sans une pensée, il ramassa la carcasse pour l'examiner de plus près. Il découvrit qu'à l'intérieur se trouvait une perle rouge de la taille d'un petit doigt. Il fut stupéfait en l'extirpant du corps.
+En plein état second, Wang Lin fixa le cadavre d'oiseau à moitié consommé. Sans une pensée, il ramassa la carcasse pour l'examiner de plus près. Il découvrit qu'à l'intérieur se trouvait une perle rouge de la taille du poing d'un nourrisson. Il fut stupéfait en l'extirpant du corps.
 
-Pourquoi y avait-il une perle dans le corps de cet oiseau? Le cœur de Wang Lin battait la chamade tandis qu'il se remémorait un livre que le maître de son village lui avait montré autrefois. Certains animaux vivent très longtemps et finissent par développer en leur sein ce qu'on appelle un dantian.
+Pourquoi y avait-il une perle dans le corps de cet oiseau? Le cœur de Wang Lin battait la chamade tandis qu'il se remémorait un recueil de mythes intitulé « Shanhaijing » que le maître de son village lui avait montré autrefois. Certains animaux vivent très longtemps et finissent par développer en leur sein ce qu'on appelle un élixir intérieur.
 
-Si l'on consommait un dantian, sa vie serait prolongée et sa force décuplée. Même des membres tranchés pourraient repousser.
+Si l'on consommait un élixir intérieur, sa vie serait prolongée et sa force décuplée. Même des membres tranchés pourraient repousser.
 
 Lorsqu'il avait lu cette description, il n'y avait pas cru et s'en était moqué secrètement; mais désormais, après avoir rencontré des immortels, il ne pouvait s'empêcher de prêter un peu de crédit aux mythes et légendes.
 
-Le cœur de Wang Lin cognait si fort qu'il semblait vouloir s'échapper de sa poitrine. Si cette perle était réellement le dantian décrit dans l'ouvrage, la manger non seulement guérirait rapidement ses blessures, mais lui permettrait aussi de quitter les lieux facilement. Il pourrait même réussir les épreuves pour rejoindre la Secte Heng Yue; du moins, il passerait sans problème l'épreuve de persévérance.
+Le cœur de Wang Lin cognait si fort qu'il semblait vouloir s'échapper de sa poitrine. Si cette perle était réellement l'élixir intérieur décrit dans l'ouvrage, la manger non seulement guérirait rapidement ses blessures, mais lui permettrait aussi de quitter les lieux facilement. Il pourrait même réussir les épreuves pour rejoindre la Secte Heng Yue; du moins, il passerait sans problème l'épreuve de persévérance.
 
 Cependant, la perle était très dure et ne semblait pas comestible. Il utilisa un morceau de son tissu déchiré pour l'essuyer, lui rendant sa couleur originelle.
 
-Une perle grise, ornée de cinq nuages gravés, apparut. Elle paraissait très ancienne. Wang Lin fut déçu, mais refusant d'abandonner, il tenta de mordre la perle avant de rire silencieusement de lui-même: « Tie Zhu, tu es trop délirant. Comment un simple oiseau de passage pourrait-il posséder un dantian? »
+Une perle grise, ornée de cinq nuages gravés, apparut. Elle paraissait très ancienne. Wang Lin fut déçu, mais refusant d'abandonner, il tenta de mordre la perle avant de rire silencieusement de lui-même: « Tie Zhu, tu es trop délirant. Comment un simple oiseau de passage pourrait-il posséder un élixir intérieur? »
 
 Wang Lin soupira. La nuit était tombée. Épuisé, il s'endormit, la perle à ses côtés et les ossements d'animaux recouvrant le sol.
 

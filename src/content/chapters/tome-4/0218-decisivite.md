@@ -86,7 +86,7 @@ L'expression de l'homme d'âge moyen changea brusquement. Il déploya son Sens D
 
 Li Muwan ne daigna même pas le regarder. Elle ferma les yeux pour tenter de retrouver son calme et dit: « Wan Er ne demande rien d'autre que de te voir une fois. Durant ces deux cents ans, Wan Er a survécu grâce à ce flacon de liquide spirituel pour maintenir sa vitalité. Si tu refuses de sortir, alors Wan Er se donnera la mort ici même pour me libérer de cette obsession. » Sa voix était basse, mais empreinte d'une détermination inébranlable.
 
-Les yeux de l'homme d'âge moyen s'illuminèrent tandis qu'il inspectait attentivement les environs.
+Les yeux de l'homme d'âge moyen vacillèrent tandis qu'il inspectait attentivement les environs.
 
 À cet instant, une présence se manifesta dans le vide. Presque immédiatement, une silhouette sombre surgit de nulle part: c'était Wang Lin. Dès son apparition, le visage de l'homme d'âge moyen devint livide. Cependant, il n'osa pas agir avec précipitation et glissa lentement sa main vers son sac de rangement.
 
@@ -106,7 +106,7 @@ Wang Lin la contempla longuement. Il resta silencieux un instant avant de répon
 
 Le corps de Li Muwan trembla. Ses yeux se remplirent de tristesse. Elle s'efforça de garder contenance et murmura: « Puisque tu l'as jeté... soit. Ce n'était rien de précieux. » Bien que ses mots fussent empreints de détachement, elle ressentit une douleur fulgurante dans sa poitrine, comme un déluge prêt à noyer son cœur.
 
-Ce jade de dragon était le fruit de tous ses efforts, et elle y avait même sacrifié une part de sa force vitale pour le créer. Si elle n'avait pas tant sacrifié à l'époque, elle aurait atteint le sommet de la Formation du Noyau, voire le stade de l'Âme Naissante, avec toutes les pilules qu'elle avait consommées.
+Ce jade de dragon était le fruit de tous ses efforts, et elle y avait même sacrifié une part de sa force vitale pour le créer. Si elle n'avait pas tant sacrifié à l'époque, elle aurait au moins atteint le sommet de la Formation du Noyau, avec toutes les pilules qu'elle avait consommées.
 
 Comment pouvait-elle être restée bloquée au stade précoce de la Formation du Noyau?
 
@@ -130,6 +130,6 @@ L'homme d'âge moyen poussa un soupir de soulagement et dit doucement: « Sœur 
 
 Li Muwan se mordit la lèvre inférieure, ignora l'homme et retourna dans sa demeure.
 
-Le visage de l'homme restait empreint de douceur, mais il affichait un sourire glacial intérieurement. Il songea: « Si ce n'était pas pour tes deux cents ans de Yuan Yin, je n'aurais jamais demandé à l'Ancien d'accepter notre union. Avec ton Yuan Yin et toutes les pilules que j'ai amassées, atteindre le stade de l'Âme Naissante n'est qu'une question de temps. Si tu avais accepté plus tôt, je t'aurais traitée avec égard, mais maintenant, j'ai décidé qu'une fois l'Âme Naissante atteinte, je te ferai payer d'avoir si souvent rejeté mes avances! »
+Le visage de l'homme restait empreint de douceur, mais il affichait un sourire glacial intérieurement. Il songea: « Si ce n'était pas pour tes deux cents ans de Yuan Yin, je n'aurais jamais demandé à l'Ancien d'accepter notre union. Avec ton Yuan Yin et toutes les pilules que j'ai amassées, atteindre le stade de l'Âme Naissante n'est qu'une question de temps. Si tu avais accepté plus tôt, je t'aurais traitée avec égard, mais maintenant, j'ai décidé qu'une fois l'Âme Naissante atteinte, je te ferai subir toutes sortes d'outrages pour avoir si souvent rejeté mes avances! »
 
 Wang Lin quitta le patio sud. Bien qu'il fût un homme cruel, il éprouvait un profond regret envers Li Muwan. Ce n'était pas qu'il était incapable de l'accepter, mais le chemin qu'il devait parcourir ne permettait pas d'avoir une femme à ses côtés.

@@ -30,7 +30,7 @@ La prétendue Condensation de Qi consistait à absorber l'énergie spirituelle d
 
 C'était également un test de talent naturel. Plus l'individu était doué, plus il pouvait absorber rapidement l'énergie spirituelle en lui. Naturellement, sa vitesse de culture serait fulgurante; cependant, si le talent d'un homme était médiocre, il se pourrait qu'il n'atteigne jamais la troisième étape de sa vie. Certains ne parviennent même pas à franchir la première.
 
-Le livret des « Trois étapes de Condensation de Qi » devint le trésor de Wang Lin. Il mémorisa immédiatement la méthode des trois premières couches. Assis en tailleur, les yeux clos, il commença à respirer selon la technique de « une longue inspiration pour trois courtes » décrite dans l'ouvrage. Une longue inspiration consistait à prendre une grande bouffée d'air, tandis que les trois courtes étaient des inspirations ne représentant qu'un tiers de la durée d'une respiration normale. Cette méthode de respiration inhabituelle permettait d'absorber rapidement l'énergie spirituelle dans le corps.
+Le livret des « Trois étapes de Condensation de Qi » devint le trésor de Wang Lin. Il mémorisa immédiatement la méthode des trois premières couches. Assis en tailleur, les yeux clos, il commença à respirer selon la technique de « une longue inspiration pour trois courtes » décrite dans l'ouvrage. Une longue inspiration consistait à prendre une grande bouffée d'air, tandis que les trois courtes étaient des expirations ne durant qu'un tiers de la durée de l'inspiration. Cette méthode de respiration inhabituelle permettait d'absorber rapidement l'énergie spirituelle dans le corps.
 
 Le livret indiquait que lors de la première pratique de cette technique, on aurait la sensation de fourmis rampant à l'intérieur de son corps. Cela était dû à l'entrée de l'énergie spirituelle. Il était conseillé de ne pas s'alarmer, mais de se détendre et d'imaginer que l'on devenait néant, pour enfin ne faire qu'un avec le ciel et la terre.
 
@@ -46,7 +46,7 @@ Dehors, une brise légère portait des effluves médicinales. Il prit quelques i
 
 Mais ce n'était pas le moment d'agir avec précipitation. Il était très confiant quant à l'endroit où il avait caché la perle de pierre et les gourdes. Il avait parcouru la moitié de la montagne pour trouver un lieu isolé; même s'ils tombaient sur cet endroit, ils ne trouveraient pas son trésor.
 
-Il déambula dans le jardin d'herbes médicinales jusqu'à ce qu'il trouve un rocher. Wang Lin s'y assit et commença à cultiver. Après un moment, il eut l'impression que des fourmis rampaient dans son corps. Il fut stupéfait. Juste au moment où il allait poursuivre, son maître hurla: « Wang Lin, que fais-tu? Sors de là immédiatement! Je te préviens: ne cultive jamais dans le jardin d'herbes! »
+Il déambula dans le jardin d'herbes médicinales jusqu'à trouver un endroit dégagé. Wang Lin s'y assit et commença à cultiver. Après un moment, il eut l'impression que des fourmis rampaient dans son corps. Il fut stupéfait. Juste au moment où il allait poursuivre, son maître hurla: « Wang Lin, que fais-tu? Sors de là immédiatement! Je te préviens: ne cultive jamais dans le jardin d'herbes! »
 
 Wang Lin ouvrit les yeux et vit Sun Dazhu le fixer d'un air renfrogné. Il se leva silencieusement et quitta le jardin.
 

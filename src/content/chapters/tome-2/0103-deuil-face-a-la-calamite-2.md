@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 103 - Calamity Mourning (2)
 slug: deuil-face-a-la-calamite-2
 ---
-Teng Huayuan afficha un sourire sinistre alors qu'il dégageait une immense aura meurtrière. Il pensa intérieurement: « Li Er, grand-père va te venger! » En songeant à Teng Li, Teng Huayuan ne put s'empêcher de ressentir une profonde affliction au plus profond de son cœur. Le disciple de quatrième génération le plus éminent de la famille Teng venait d'être brutalement assassiné.
+Teng Huayuan afficha un sourire sinistre alors qu'il dégageait une immense aura meurtrière. Il pensa intérieurement: « Li Er, arrière-grand-père va te venger! » En songeant à Teng Li, Teng Huayuan ne put s'empêcher de ressentir une profonde affliction au plus profond de son cœur. Le disciple de quatrième génération le plus éminent de la famille Teng venait d'être brutalement assassiné.
 
 Après la mort de Teng Li, Teng Huayuan avait mené l'enquête pour découvrir la vérité. Outre Wang Lin, tous ceux qui avaient été impliqués furent inscrits sur sa liste noire.
 
@@ -34,7 +34,7 @@ Teng Huayuan eut un sourire carnassier et le suivit.
 
 Une fois les deux hommes entrés, le miroir rétrécit jusqu'à disparaître sans laisser de trace.
 
-À cent kilomètres de là se trouvait une petite ville. La famille Wang pouvait être considérée comme une lignée prestigieuse dans la région. On disait que certains membres des générations plus jeunes de la famille avaient rejoint des sectes de culture. Ce genre de nouvelles se propageait rapidement dans ces contrées isolées.
+À cinquante kilomètres de là se trouvait une petite ville. La famille Wang pouvait être considérée comme une lignée prestigieuse dans la région. On disait que certains membres des générations plus jeunes de la famille avaient rejoint des sectes de culture. Ce genre de nouvelles se propageait rapidement dans ces contrées isolées.
 
 À l'origine, les Wang étaient une famille de charpentiers possédant divers commerces en ville. Du point de vue d'un étranger, ils formaient la plus puissante lignée du secteur.
 
@@ -50,7 +50,7 @@ Le garde se retourna et vit la jeune fille. Un sourire éclaira son visage tandi
 
 La jeune fille prit le ventilateur pour aider son frère tout en souriant: « Ne t'inquiète pas, grand frère. Le jeune maître ne m'a pas vue. J'ai profité de l'instant où il avait le dos tourné. De toute façon, le jeune maître Hao est une personne exemplaire; même s'il m'avait vue, cela n'aurait posé aucun problème. »
 
-Le garde savourait la brise que lui procurait sa sœur. Il acquiesça: « C'est vrai. Le jeune maître Hao est un immortel, il ne se soucierait guère de nous. Petite sœur, tu devrais te mettre davantage en avant. Si tu captes l'attention du jeune maître Hao et que tu deviens sa concubine, ton frère n'aura plus qu'à s'occuper de tâches domestiques pour vivre sereinement. »
+Le garde savourait la brise que lui procurait sa sœur. Il acquiesça: « C'est vrai. Le jeune maître Hao est un immortel, il ne se soucierait guère de nous. Petite sœur, tu devrais te mettre davantage en avant. Si tu captes l'attention du jeune maître Hao et que tu deviens sa concubine, ton frère se contentera d'un poste d'intendant. »
 
 Les joues de la jeune fille rougirent. Elle leva les yeux au ciel et répliqua: « Grand frère, tu travailles pour la famille Wang depuis bien plus longtemps que moi. J'ai entendu dire qu'il y avait trois jeunes maîtres choisis par des immortels, mais cela fait trois ans que je suis ici et, à part le jeune maître Hao, je n'ai vu le jeune maître Zhuo qu'une seule fois. Où est le troisième? »
 
@@ -98,7 +98,7 @@ Une pression écrasante descendit du ciel.
 
 Les visages de Wang Zhuo et Wang Hao changèrent radicalement. Ils n'osaient plus respirer. Wang Zhuo joignit rapidement les mains et s'exclama: « Ce disciple est Wang Zhuo, de la Secte Xuan Dao. Salutations, messieurs les Seniors. »
 
-L'immortel parut surpris et demanda: « Le Secte Xuan Dao? En as-tu la preuve? »
+L'immortel parut surpris et demanda: « La Secte Xuan Dao? En as-tu la preuve? »
 
 Le cœur de Wang Zhuo rata un battement. Pressentant un danger imminent, il sortit précipitamment son jade d'identité. Le cultivateur saisit le jade, l'examina, puis tourna son regard vers Wang Hao: « Et toi aussi? »
 
@@ -112,6 +112,6 @@ D'une voix sinistre, Teng Huayuan déclara: « Aujourd'hui, personne ne sera ép
 
 Quant à Wang Lin, il traversait la vallée de Jue Ming à toute allure. Derrière lui, deux cultivateurs et une cultivatrice le traquaient, portés par une intention meurtrière implacable.
 
-Alors qu'il courait, une douleur fulgurante lui transperça le cœur, comme si un pieu y avait été planté. Cette souffrance ne venait d'aucune blessure physique, mais d'un ressenti profond.
+Alors qu'il courait, une douleur fulgurante lui transperça le cœur, comme si un poinçon y avait été enfoncé. Cette souffrance ne venait d'aucune blessure physique, mais d'une douleur venue de son âme.
 
 Un sentiment inconnu de panique et de frustration envahit son âme.

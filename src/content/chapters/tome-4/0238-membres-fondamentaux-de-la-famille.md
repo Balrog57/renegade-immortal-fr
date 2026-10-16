@@ -18,7 +18,7 @@ L'homme sourit amèrement et s'exclama: « Senior, junior avait autrefois un fr�
 
 Le cœur de Wang Lin chancela. Il se souvint enfin de l'identité de cet homme. Après une courte réflexion, il agita ses manches et disparut de la Secte He Huan, emportant l'homme d'âge moyen avec lui.
 
-Sur une falaise située à des centaines de kilomètres de là, Wang Lin et l'homme apparurent soudainement. Wang Lin le déposa au sol et l'étudia avec attention.
+Sur une falaise située à une cinquantaine de kilomètres de là, Wang Lin et l'homme apparurent soudainement. Wang Lin le déposa au sol et l'étudia avec attention.
 
 L'homme regarda autour de lui, affichant une expression complexe, et murmura doucement: « Vous... »
 

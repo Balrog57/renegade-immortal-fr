@@ -20,27 +20,27 @@ Au même instant, la silhouette de Wang Lin devint floue au cœur de la lumière
 
 Après un long moment, le réseau retrouva son état normal.
 
-Dans les terres désolées de la Mer des Diables, un grondement sourd émana du sol. Les vibrations se dissipèrent alors que Wang Lin sortait, le regard froid.
+Dans les terres désolées de la Mer des Démons, un grondement sourd émana du sol. Les vibrations se dissipèrent alors que Wang Lin sortait, le regard froid.
 
 Il observa la scène familière qui s'offrait à lui et poussa un soupir. Il s'éleva dans les airs et, après une brève pause, s'élança rapidement vers l'est.
 
 L'objectif de Wang Lin était de trouver une carte des anciens réseaux de transfert ainsi qu'une carte de la planète Suzaku. Il avait rassemblé de nombreuses cartes à Chu, mais n'avait pas réussi à remettre la main sur Zhao.
 
-Après avoir analysé les cartes, Wang Lin en déduisit que Zhao devait se trouver de l'autre côté de la Mer des Diables.
+Après avoir analysé les cartes, Wang Lin en déduisit que Zhao devait se trouver de l'autre côté de la Mer des Démons.
 
 Alors qu'il volait, son expression changea soudainement et un sourire étira ses lèvres. En utilisant son Sens Divin, semblable à celui de la Formation de l'Âme, il parvint à débusquer un vieil ami.
 
-Depuis l'apparition de la rétribution divine dans la Mer des Diables, le brouillard qui la recouvrait avait totalement disparu. Après plusieurs années de pluie noire, la Mer des Diables était désormais exposée aux yeux de tous. Le voile protecteur originel s'était évanoui.
+Depuis l'apparition de la rétribution divine dans la Mer des Démons, le brouillard qui la recouvrait avait totalement disparu. Après plusieurs années de pluie noire, la Mer des Démons était désormais exposée aux yeux de tous. Le voile protecteur originel s'était évanoui.
 
-Dans les 999 cités et les vastes étendues sauvages de la Mer des Diables vivaient de nombreux individus odieux. Beaucoup d'entre eux, recherchés par différents pays, cherchaient refuge dans cette région.
+Dans les 999 cités et les vastes étendues sauvages de la Mer des Démons vivaient de nombreux individus odieux. Beaucoup d'entre eux, recherchés par différents pays, cherchaient refuge dans cette région.
 
-La disparition du brouillard déclencha une série d'événements. D'abord, de nombreux pays ambitieux de rang 4 jetèrent leur dévolu sur la Mer des Diables.
+La disparition du brouillard déclencha une série d'événements. D'abord, de nombreux pays ambitieux de rang 4 jetèrent leur dévolu sur la Mer des Démons.
 
-Peu après, diverses sectes et familles de culture envoyèrent des groupes de disciples dans la zone. Une tempête était sur le point de déferler sur ce pays.
+Peu après, diverses sectes et familles de culture envoyèrent des groupes de disciples dans la zone. Une tempête était sur le point de déferler sur cette région.
 
-Quant à la pluie noire, elle fut éliminée par quelques cultivateurs extrêmement puissants, sans quoi la Mer des Diables serait devenue inhabitable. Cette eau contenait un poison qui semblait inoffensif en petites quantités, mais qui provoquait des maladies après une exposition prolongée. Normalement, les cultivateurs n'étaient pas affectés par les maux terrestres, mais cette pluie avait tué de nombreux cultivateurs de bas niveau au cours de ces dernières années.
+Quant à la pluie noire, elle fut éliminée par quelques cultivateurs extrêmement puissants, sans quoi la Mer des Démons serait devenue inhabitable. Cette eau contenait un poison qui semblait inoffensif en petites quantités, mais qui provoquait des maladies après une exposition prolongée. Normalement, les cultivateurs n'étaient pas affectés par les maux terrestres, mais cette pluie avait tué de nombreux cultivateurs de bas niveau au cours de ces dernières années.
 
-Finalement, plusieurs puissants experts firent front commun pour chasser la pluie noire de la Mer des Diables. Cependant, cette vague de maladies avait gravement affaibli la jeune génération de la région.
+Finalement, plusieurs puissants experts firent front commun pour chasser la pluie noire de la Mer des Démons. Cependant, cette vague de maladies avait gravement affaibli la région.
 
 Si la pluie noire était aussi dangereuse que des bêtes sauvages pour les cultivateurs, elle s'avérait très nutritive pour la faune locale. La force de toutes les bêtes sauvages avait considérablement augmenté grâce à cette pluie, menant même à l'apparition de certaines bêtes désolées.
 
@@ -48,7 +48,7 @@ Bien que le chaos causé par la pluie noire se fût dissipé, celui provoqué pa
 
 Parallèlement, une nouvelle activité spécialisée dans la chasse et la vente de cœurs de bêtes apparut. Ces cultivateurs se déplaçaient en petits groupes et possédaient tous un certain niveau de culture. Ils chassaient les monstres et vendaient leurs cœurs pour subsister.
 
-Ce jour-là, dans la partie intérieure de la Mer des Diables, aux abords de la ville de Xuan De, un cultivateur vêtu de blanc contemplait l'horizon. C'était un homme d'âge moyen, très beau, au regard empreint de sagesse.
+Ce jour-là, dans la partie intérieure de la Mer des Démons, aux abords de la ville de Xuan Di, un cultivateur vêtu de blanc contemplait l'horizon. C'était un homme d'âge moyen, très beau, au regard empreint de sagesse.
 
 Après un long moment, il fronça les sourcils. D'un revers de manche, il descendit lentement le long des remparts de la ville.
 
@@ -104,7 +104,7 @@ Qiu Siping ricana intérieurement. Avec sa culture au début du stade de l'Âme 
 
 Il les suivit tranquillement tandis que les cris de la jeune fille résonnaient au loin et que des éclats de lumière provenant de trésors magiques déchiraient l'air.
 
-La Bête aux Huit Griffes n'était, en fin de compte, qu'un calmar géant de la Mer des Diables. Sa culture n'était pas négligeable et, grâce à la pluie noire, elle avait acquis une certaine intelligence, atteignant le niveau d'une bête spirituelle de faible qualité.
+La Bête aux Huit Griffes n'était, en fin de compte, qu'un calmar géant de la Mer des Démons. Sa culture n'était pas négligeable et, grâce à la pluie noire, elle avait acquis une certaine intelligence, atteignant le niveau d'une bête spirituelle de faible qualité.
 
 Cependant, cette créature était singulière. Même des cultivateurs au stade de l'Âme Naissante pouvaient s'arracher les cheveux face à elle. Si un expert de ce stade pouvait aisément se défendre, la peau de la Bête aux Huit Griffes était aussi dure que celle d'une bête spirituelle de qualité moyenne. À moins d'atteindre le stade avancé de l'Âme Naissante, il était impossible de la blesser.
 
@@ -126,7 +126,7 @@ L'homme nommé Li fit quelques pas en arrière. Il rangea son trésor et adopta 
 
 Qiu Siping fut stupéfait. Il demanda: « L'Aîné me connaît? »
 
-Au même moment, un jeune homme aux cheveux blancs s'approcha lentement. Bien que sa démarche fût lente, en un clin d'œil, il apparut à dix pieds de l'assemblée.
+Au même moment, un jeune homme aux cheveux blancs s'approcha lentement. Bien que sa démarche fût lente, en un clin d'œil, il apparut à une trentaine de mètres de l'assemblée.
 
 Qiu Siping le fixa, bouche bée. Il prit une grande inspiration et s'exclama: « C’est vous! »
 

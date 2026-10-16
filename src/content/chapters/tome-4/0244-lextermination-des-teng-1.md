@@ -30,7 +30,7 @@ Par conséquent, les trésors magiques devenaient cruciaux. Il ne voulait pas pl
 
 Fixant les trois sacs de rangement, Wang Lin prit une profonde inspiration. Il agita le drapeau de restriction qui enveloppa la zone d'une fumée noire. Puis, il pointa sa tempe et les deux démons sortirent pour assurer sa garde.
 
-Après avoir hésité un instant, il ne fit pas appel à la marionnette. Celle-ci avait subi des dommages lors de l'affrontement contre Teng One et n'était plus apte à servir de garde.
+Après avoir hésité un instant, il ne fit pas appel à la marionnette. Celle-ci avait subi des dommages lors de l'affrontement contre Teng Yi et n'était plus apte à servir de garde.
 
 Une fois ces préparatifs terminés, Wang Lin prit un air sérieux et saisit un sac de rangement. Ce sac appartenait à l'Empereur Ancien.
 
@@ -42,7 +42,7 @@ Au moment où sa main toucha le sac, une force puissante lui opposa une résista
 
 Il prit une profonde inspiration et pressa sa main sur le sac. À chaque pression, un fragment du sens divin de l'Empereur Ancien était extrait, mais la progression était extrêmement lente et, parallèlement, la contre-attaque que Wang Lin ressentait augmentait.
 
-Après une demi-heure, le front de Wang Lin était couvert de sueur. Il prit une profonde inspiration et consomma quelques pilules pour stabiliser son corps. Serrant les dents, il activa son Domaine du Ji dans sa main droite et pressa le sac avec toute son énergie spirituelle.
+Après un quart d'heure, le front de Wang Lin était couvert de sueur. Il prit une profonde inspiration et consomma quelques pilules pour stabiliser son corps. Serrant les dents, il activa son Domaine du Ji dans sa main droite et pressa le sac avec toute son énergie spirituelle.
 
 Cette fois, la vitesse augmenta considérablement, mais la consommation d'énergie spirituelle de Wang Lin s'intensifia également. Après avoir englouti plusieurs flacons de pilules, une lumière blanche jaillit soudainement du sac de rangement avant de se dissiper.
 
@@ -60,7 +60,7 @@ Il les observa encore un moment avant de les ranger. Il frappa ensuite le sac de
 
 Wang Lin soupira. Après avoir déployé tant d'efforts pour ouvrir ce sac, n'y trouver qu'une telle chose le laissait perplexe: ne savait-il pas s'il devait s'en réjouir ou se sentir impuissant?
 
-Il hésita, puis reporta son attention sur les deux autres sacs de rangement. L'un appartenait au mystérieux momie du temple de bataille de Huo Fen.
+Il hésita, puis reporta son attention sur les deux autres sacs de rangement. L'un appartenait à la mystérieuse momie du temple de bataille de Huo Fen.
 
 L'autre contenait plus d'une dizaine de trésors magiques appartenant aux anciens cultivateurs de la terre des Dieux Anciens. Cependant, ils étaient trop puissants. Wang Lin avait tenté tout ce qu'il pouvait, mais il n'était parvenu qu'à prendre le contrôle du miroir de bronze.
 
@@ -94,7 +94,7 @@ Teng Huayuan, voyant ses proches rassemblés, devint encore plus sombre. Il sava
 
 La Cité de la Famille Teng était plongée dans la panique. Dès leur arrivée, les membres de la famille comprirent pourquoi l'Ancêtre Teng ne s'était pas déplacé pour traquer le tueur.
 
-Ce n'était pas par manque de volonté, mais parce que la zone de 10 000 kilomètres entourant la cité était verrouillée par une restriction qui permettait d'entrer, mais interdisait toute sortie.
+Ce n'était pas par manque de volonté, mais parce que la zone de 5 000 kilomètres entourant la cité était verrouillée par une restriction qui permettait d'entrer, mais interdisait toute sortie.
 
 La panique se propagea dans toute la ville, tandis que les rumeurs sur le tueur mystérieux circulaient parmi les Teng.
 
@@ -118,6 +118,6 @@ Ce fut également le jour où tout le pays de Zhao entendit le nom de « Wang Li
 
 Simultanément, le nom de Wang Lin remplaça celui de Punnan Zi comme le premier cultivateur de Zhao, marquant la chute de l'ancienne génération.
 
-Tôt le matin, à des dizaines de milliers de kilomètres de la Cité de la Famille Teng, Wang Lin volait sur sa bête-moustique. Bien que les cadavres derrière lui commençaient à pourrir, sous l'effet de sa technique, les têtes demeuraient en parfait état.
+Tôt le matin, à cinq mille kilomètres de la Cité de la Famille Teng, Wang Lin volait sur sa bête-moustique. Bien que les cadavres derrière lui commençaient à pourrir, sous l'effet de sa technique, les têtes demeuraient en parfait état.
 
 Car Wang Lin avait fait une promesse: construire une tour faite des têtes des membres de la famille Teng.

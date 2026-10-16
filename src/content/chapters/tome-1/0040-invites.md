@@ -26,7 +26,7 @@ Une fois le mille-pattes posé, il resta immobile. Des dizaines de personnes sau
 
 La Secte Xuan Dao comptait des disciples masculins et féminins. Il semblait qu'ils se moquaient de la Secte Heng Yue en sachant que celle-ci ne disposait que de peu de disciples vêtus de pourpre; ainsi, chacun d'eux arborait une tenue violette. Une autre chose surprit les disciples de la Secte Heng Yue: chaque membre de la Secte Xuan Dao était d'une grande beauté. Les hommes étaient très séduisants et les femmes d'une grande élégance.
 
-En particulier le couple de disciples en tête de cortège. L'homme était extraordinairement beau, empreint d'une virilité éclatante. Ses longues manches et ses cheveux flottaient au gré du vent, tandis qu'une épée volante portée dans son dos lui conférait une prestance héroïque. Son apparence ensorçela immédiatement plusieurs disciples internes féminines.
+En particulier le couple de disciples en tête de cortège. L'homme était extraordinairement beau, empreint d'une virilité éclatante. Ses longues manches et ses cheveux flottaient au gré du vent, tandis qu'une épée volante portée dans son dos lui conférait une prestance héroïque. Son apparence ensorcela immédiatement plusieurs disciples internes féminins.
 
 La disciple, quant à elle, était vêtue de violet de la tête aux pieds, ses cheveux longs retombant comme une cascade. Ses lèvres d'un rouge vif et ses yeux magnifiques auraient pu ébranler le cœur de n'importe qui. Même Wang Lin sentit son cœur s'emballer en la voyant. Surpris par cette réaction, il l'observa attentivement avant de redevenir promptement vigilant.
 
@@ -60,11 +60,11 @@ Wang Lin écouta longuement, commençant à se forger une vision globale du mond
 
 Wang Lin hocha discrètement la tête et se mit intérieurement sur ses gardes. Il ne croyait pas posséder un tel charme pour attirer l'attention parmi tous les disciples présents.
 
-Liu Mei, chef des disciples internes de la Secte Xuan Dao, avait une confiance absolue en son charme inné. Au sein de sa propre secte, presque aucun garçon de son âge ne pouvait lui résister. Mais ce jeune homme à l'apparence ordinaire fut le premier à reprendre ses esprits, ce qui la surprit. Elle ne put s'empêcher de le dévisager à nouveau, mais peu importe l'intensité de son regard, Wang Lin n'était qu'au 3ème niveau et n'avait rien d'extraordinaire.
+Liu Mei, la plus brillante des disciples internes de la Secte Xuan Dao, avait une confiance absolue en son charme inné. Au sein de sa propre secte, presque aucun garçon de son âge ne pouvait lui résister. Mais ce jeune homme à l'apparence ordinaire fut le premier à reprendre ses esprits, ce qui la surprit. Elle ne put s'empêcher de le dévisager à nouveau, mais peu importe l'intensité de son regard, Wang Lin n'était qu'au 3ème niveau et n'avait rien d'extraordinaire.
 
 Tandis que les Anciens discutaient, les disciples des deux sectes commencèrent également à échanger pour se préparer à la compétition imminente. Tous les membres de la Secte Xuan Dao semblaient enveloppés d'un brouillard mystérieux dissimulant leur niveau de culture.
 
-Wang Lin fut lui aussi surpris par l'intérêt qu'il portait à la Secte Xuan Dao. Cette technique semblait similaire à une pilule de camouflage, mais à un degré supérieur.
+Wang Lin fut lui aussi surpris par l'intérêt qu'il portait à la Secte Xuan Dao. Cette technique semblait similaire à une technique de dissimulation, mais d'un degré supérieur.
 
 Les disciples de la Secte Heng Yue semblaient tous captivés par ce couple, chacun étant perdu dans ses propres pensées; pourtant, Wang Lin remarqua un phénomène étrange: d'après l'expression de leurs regards, tous les disciples de la Secte Xuan Dao témoignaient d'un profond respect envers un homme d'âge mûr situé à l'arrière.
 

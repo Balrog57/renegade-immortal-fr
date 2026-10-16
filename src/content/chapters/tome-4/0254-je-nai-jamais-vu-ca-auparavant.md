@@ -56,7 +56,7 @@ Après un instant, une voix nonchalante s'éleva de l'édifice: « Xu Tao, n'ét
 
 Xu Tao percevait vaguement des voix charmantes et tentatrices émanant du palais. Il hésita. Normalement, il n'était guère opportun de déranger le Prince à un tel moment, mais il était extrêmement confiant quant à l'objet qu'il portait. Serrant les dents, il déclara: « Prince, j'ai vraiment une affaire urgente. Sur le chemin du retour, j'ai trouvé une sculpture sur bois. Si le Roi la voyait, il en serait certainement ravi. »
 
-Un silence s'installa dans le bâtiment. Puis, une voix mécontente retentit de l'intérieur: « Entre, alors. Mais si cet objet n'est pas à la hauteur de tes paroles, tu perdras ton salaire de ce mois. »
+Un silence s'installa dans le bâtiment. Puis, une voix mécontente retentit de l'intérieur: « Entre, alors. Mais si cet objet n'est pas à la hauteur de tes paroles, tu perdras ta récompense de ce mois. »
 
 Xu Tao entra rapidement dans le palais et découvrit un lit gigantesque recouvert d'un voile. Un jeune homme au teint légèrement pâle était assis au bord du lit, le regard sombre.
 
@@ -90,7 +90,7 @@ Le cultivateur en noir gardait les yeux clos; la musique et la danse ne l'intér
 
 Au-dessus de la grande salle siégeait un homme d'âge moyen très beau. Il dégageait une majesté souveraine.
 
-Lorsque le jeune homme entra, l'homme d'âge moyen rit: « Pourquoi ne t'amuses-tu pas au Palais Rose? Pourquoi es-tu venu voir ton vieux père? »
+Lorsque le jeune homme entra, l'homme d'âge moyen rit: « Pourquoi ne t'amuses-tu pas dans tes appartements? Pourquoi es-tu venu voir ton vieux père? »
 
 Le jeune homme salua respectueusement les deux cultivateurs, puis s'adressa à l'homme d'âge moyen: « Père, je t'en prie, regarde ceci. » Il sortit la sculpture du dragon et la posa au sol.
 

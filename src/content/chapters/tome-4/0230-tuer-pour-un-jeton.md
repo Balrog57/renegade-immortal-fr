@@ -30,7 +30,7 @@ Huit jours plus tard, Wang Lin arriva enfin à la ville.
 
 De grands et petits édifices couvraient la cité, abritant d'innombrables cultivateurs. Autour des rares réseaux de transfert de la ville, la foule était encore plus dense.
 
-Il faut dire qu'il y avait énormément de bêtes dans la Mer des Diables en ce moment. Seuls ceux ayant atteint un certain niveau de culture ou voyageant en petits groupes de trois à cinq osaient sortir des murs de la ville.
+Il faut dire qu'il y avait énormément de bêtes dans la Mer des Démons en ce moment. Seuls ceux ayant atteint un certain niveau de culture ou voyageant en petits groupes de trois à cinq osaient sortir des murs de la ville.
 
 La plupart des cultivateurs préféraient dépenser quelques pierres spirituelles pour utiliser les réseaux de transfert, garantissant ainsi une relative sécurité.
 
@@ -40,7 +40,7 @@ Wang Lin resta debout sur la bête et ne marqua aucun arrêt en pénétrant dans
 
 Wang Lin fronça les sourcils et disparut soudainement. Lorsqu'il réapparut, il était déjà à l'intérieur de la ville et la bête-moustique se trouvait dans son sac de stockage.
 
-Quant à sa culture, il la déguisa délibérément en un stade intermédiaire de l'Établissement des Fondations. Avec la puissance de son âme, à moins d'être au stade de la Découpe de l'Esprit, personne ne pourrait percer son apparence.
+Quant à sa culture, il la déguisa délibérément en un stade intermédiaire de l'Établissement des Fondations. Avec la puissance de son âme, à moins d'être au stade de la Formation de l'Âme, personne ne pourrait percer son apparence.
 
 Au moment de sa disparition, trois silhouettes apparurent dans le ciel. Elles étaient habillées de façon identique, seule la couleur de leurs vêtements changeait: noir, blanc et rouge.
 
@@ -60,7 +60,7 @@ Alors qu'il marchait, ses yeux s'illuminèrent soudain en apercevant une boutiqu
 
 Cette puissance était très légère. Seules les personnes ayant atteint le stade de l'Âme Naissante pouvaient la percevoir. Quiconque était en dessous ne s'en rendrait absolument pas compte.
 
-Fort de son expérience dans la Mer des Diables, Wang Lin avait appris qu'outre les commerces publics, il existait également des échanges secrets au sein des grandes cités.
+Fort de son expérience dans la Mer des Démons, Wang Lin avait appris qu'outre les commerces publics, il existait également des échanges secrets au sein des grandes cités.
 
 Ces échanges exigeaient souvent un niveau de culture minimum pour y accéder.
 
@@ -146,7 +146,7 @@ Mais plus il cherchait, plus il s'enfonçait dans le doute. Malgré ses multiple
 
 Par pure frustration, il avait lancé ce message divin; pour lui, le tueur devait avoir utilisé une technique secrète, et ce cri n'était qu'un exutoire à sa colère.
 
-Cependant, il ne s'attendait pas à ce que, presque au moment même où il envoyait son message, un jeune homme apparaisse à dix pieds de lui. Ce dernier avait les cheveux blancs et une beauté frappante. Il correspondait exactement à la description du tueur.
+Cependant, il ne s'attendait pas à ce que, presque au moment même où il envoyait son message, un jeune homme apparaisse à une trentaine de mètres de lui. Ce dernier avait les cheveux blancs et une beauté frappante. Il correspondait exactement à la description du tueur.
 
 Les pupilles du chauve se rétractèrent instantanément. Il recula et réprima aussitôt sa colère. Malgré son aspect brutal, c'était un homme extrêmement prudent; il n'aurait pas atteint son rang actuel sans cette prudence.
 
@@ -204,7 +204,7 @@ Après avoir inspecté les sacs avec son sens divin, il en sortit un jeton porta
 
 Nombreux furent ceux qui virent le combat, y compris des cultivateurs de l'Âme Naissante venus pour l'échange. La manière dont Wang Lin avait éliminé le chauve avec une telle efficacité laissa une empreinte indélébile dans leurs esprits, particulièrement le drapeau de restriction et la bête ayant dévoré l'Âme Naissante. Même avec leur expérience, ils ne purent identifier la créature.
 
-Même les trois gardiens n'osèrent pas confronter Wang Lin. Dans la Mer des Diables, la force était la seule loi. Ils devaient également rapporter l'incident au duc de la ville de Lian Mo.
+Même les trois gardiens n'osèrent pas confronter Wang Lin. Dans la Mer des Démons, la force était la seule loi. Ils devaient également rapporter l'incident au duc de la ville de Lian Mo.
 
 Cependant, le duc étant presque toujours en méditation fermée, l'affaire risquait d'être classée ainsi. Après tout, la puissance du jeune homme semblait égaler celle d'un stade intermédiaire ou avancé de l'Âme Naissante.
 

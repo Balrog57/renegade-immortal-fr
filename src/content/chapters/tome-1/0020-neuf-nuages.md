@@ -12,25 +12,25 @@ Au sein de la Secte Heng Yue, il n'y avait que deux experts au stade de la Forma
 
 Hormis ces quelques individus, tous les autres étaient bloqués au stade de la Condensation de Qi. Même Sun Dazhu n'était qu'au cinquième niveau de la Condensation de Qi.
 
-La culture était non seulement extrêmement ardue, mais elle exigeait également un temps considérable. Si l'on manquait de talent, on ne disposerait pas d'assez d'années de vie pour espérer progresser. L'Établissement des Fondations était encore plus difficile que la Condensation de Qi, car il ne suffisait pas de posséder une énergie spirituelle abondante; il fallait également faire preuve de chance et de perception pour réussir.
+La culture était non seulement extrêmement ardue, mais elle exigeait également un temps considérable. Si l'on manquait de talent, on ne disposerait pas d'assez d'années de vie pour espérer progresser. L'Établissement des Fondations était encore plus difficile que la Condensation de Qi, car il ne suffisait pas de posséder une énergie spirituelle abondante; il fallait également faire preuve de chance et de compréhension pour réussir.
 
 Wang Lin connaissait l'importance de l'énergie spirituelle. Il voulait récupérer le plus vite possible la perle de pierre.
 
 Bien qu'il n'eût encore aucune énergie spirituelle en lui, il était convaincu que tant qu'il continuerait à boire l'eau enrichie par la perle, le processus s'accélérerait. La prétendue Condensation de Qi n'était rien d'autre que la collecte d'énergie spirituelle.
 
-À en juger par la réaction de Sun Dazhu, l'eau dans laquelle la perle de pierre avait trempé devait contenir une quantité massive d'énergie spirituelle. En y pensant, Wang Lin fut pris d'une vive excitation, au point d'en oublier la source d'eau où il avait caché la perle. Il restait trois gourdes remplies de rosée; elles devaient en contenir encore davantage.
+À en juger par la réaction de Sun Dazhu, l'eau dans laquelle la perle de pierre avait trempé devait contenir une quantité massive d'énergie spirituelle. En y pensant, Wang Lin fut pris d'une vive excitation, au point de ne plus accorder d'importance à l'eau de source. Là où il avait caché la perle, il restait aussi trois gourdes remplies de rosée; elles devaient en contenir encore davantage.
 
-S'il les buvait, cela ne serait pas moins efficace que tout le mois de médicaments qu'il avait pris, et sans doute même meilleur. C'est pour cette raison qu'il ne regrettait pas d'avoir été chassé. En réalité, il éprouvait une immense impatience.
+S'il les buvait, cela ne serait pas moins efficace que tout le mois de médicaments qu'il avait pris, et sans doute même meilleur. C'est pour cette raison qu'il ne regrettait pas d'avoir été chassé. Il était même ravi de ne plus être surveillé par Sun Dazhu.
 
 En tant que disciple interne, il n'était pas obligé de loger dans la cour principale; il pouvait s'installer dans l'une des cinq autres cours. Il choisit une demeure isolée, proche de la porte est de la cour.
 
 Les disciples internes recevaient un traitement différent selon la couleur de leurs vêtements. Il avait appris auprès de Sun Dazhu au cours du mois écoulé que, le 10 de chaque mois, chaque disciple interne pouvait venir chercher un fragment de pierre spirituelle de bas grade ainsi qu'une Pilule de Rassemblement de Qi.
 
-En économisant dix fragments de pierre spirituelle, on pouvait s'adresser à n'importe quel Ancien pour les échanger contre une pierre spirituelle entière de faible qualité.
+En économisant dix fragments de pierre spirituelle, on pouvait s'adresser à son propre maître pour les échanger contre une pierre spirituelle entière de faible qualité.
 
 Une fois sa maison nettoyée, Wang Lin ne partit pas immédiatement à la recherche de la perle de pierre. Il craignait que Sun Dazhu ne l'espionne encore. Il poursuivit donc sa routine habituelle: cultiver à la source pendant la journée et s'exercer chez lui la nuit.
 
-En vérité, Sun Dazhu n'était pas prêt à abandonner. Il continua de l'espionner pendant dix jours supplémentaires avant de finir par renoncer.
+En vérité, Sun Dazhu n'était pas prêt à abandonner. Il continua de l'espionner pendant plus de dix jours avant de finir par renoncer.
 
 Un mois plus tard, Wang Lin se faufila dehors en pleine nuit. Après avoir effectué de nombreux détours sinueux dans la montagne, il récupéra la perle de pierre et les gourdes sans que personne ne s'en aperçoive.
 
@@ -66,7 +66,7 @@ L'un des hommes était très beau et soigné. Il semblait extrêmement embarrass
 
 L'une des jeunes filles sur le côté intervint:
 — Wang Lin? Ah, c'est donc toi qui es devenu disciple honoraire en tentant de te suicider, puis disciple interne en faisant la cour à l'Ancien Sun!
-Ses cheveux noirs et brillants étaient attachés en queue de cheval. Elle avait des sourcils épais et de grands yeux noirs; elle était très jolie.
+Ses cheveux noirs et brillants étaient tressés en une longue natte. Elle avait des sourcils épais et de grands yeux noirs; elle était très jolie.
 
 Les deux autres affichaient un visage empreint de choc, leurs regards rivés sur Wang Lin. L'une des filles avait de grands yeux enfantins, soulignés par de magnifiques cils. Ses yeux ressemblaient à deux boules de cristal et brillaient d'un air curieux.
 

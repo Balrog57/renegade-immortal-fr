@@ -47,7 +47,7 @@ Da Niu hocha la tête avec hésitation. Durant l'année écoulée, il avait vu t
 
 Wang Lin reprit son couteau et commença à tracer les traits de la créature, trait après trait. Cette bête à l'apparence de tortue était en fait une bête spirituelle rare de qualité moyenne dans cette Mer des Démons. Si elle entrait dans une rage folle, des cultivateurs ordinaires ne pourraient absolument pas résister à sa force.
 
-Mais Wang Lin avait tué de nombreux spécimens de ce genre et en avait consommé de nombreux cœurs. Ainsi, l'image était parfaitement gravée dans son esprit et sa main ne marquait aucune pause.
+Mais Wang Lin avait tué de nombreux spécimens de ce genre et en avait avalé de nombreux noyaux. Ainsi, l'image était parfaitement gravée dans son esprit et sa main ne marquait aucune pause.
 
 Une demi-heure plus tard, Wang Lin pressa fermement le couteau là où devaient se trouver les yeux. À cet instant précis, la sculpture sembla s'animer.
 
@@ -104,7 +104,7 @@ Les yeux du jeune homme brillaient alors qu'il s'approchait pour saisir une scul
 
 Le corps du dragon était enroulé, sa tête pointait vers les cieux, et chaque écaille était taillée avec une expertise magistrale. Ce qui choqua le plus le jeune homme Xu fut la sensation de vie qui émanait de l'objet dès qu'il le toucha. Pris d'un effroi soudain, sa main droite se desserra et la sculpture tomba au sol.
 
-Da Niu connaissait déjà cette réaction; il savait que lorsquiconque touchait une sculpture ressentait un sentiment mystérieux, c'est pourquoi il se contentait généralement de regarder sans jamais oser toucher.
+Da Niu connaissait déjà cette réaction; il savait que lorsque quiconque touchait une sculpture ressentait un sentiment mystérieux, c'est pourquoi il se contentait généralement de regarder sans jamais oser toucher.
 
 La sculpture heurta le sol avec un bruit sourd. Heureusement, comme elle était en bois, une chute occasionnelle ne risquait pas de la briser.
 

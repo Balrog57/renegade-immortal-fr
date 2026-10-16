@@ -20,13 +20,13 @@ Si des cultivateurs puissants avaient été présents, ils auraient été stupé
 
 Loin des mortels, même la plupart des cultivateurs ne pourraient percevoir cette brume rouge. C’était l'aura meurtrière que Wang Lin avait acquise au cours de ses quatre cents ans de massacres. Après avoir fait partie de lui pendant si longtemps, elle s'était progressivement transformée en une aura d'hostilité. Finalement, à force de tuer et de subir des changements profonds, elle était devenue une aura maléfique capable de faire frissonner la peau du plus résistant des cultivateurs.
 
-Lorsqu'on peut maîtriser cette aura maléfique, elle peut être utilisée telle une technique puissante. De plus, en l'incorporant lors du raffinage d'un trésor magique, on lui conférerait une puissance décuplée.
+Lorsqu'on peut maîtriser cette aura maléfique, elle peut être utilisée telle une technique puissante, capable de faire plier l'ennemi sans combattre. De plus, en l'incorporant lors du raffinage d'un trésor magique, on en augmenterait grandement la puissance.
 
 Une brise printanière souffla sur Wang Lin, qui prit inconsciemment une profonde inspiration. Ses yeux rayonnèrent d'une lumière imperceptible. Il sentait clairement que son énergie spirituelle subissait une mutation. Bien que ce changement fût infime, il recelait un pouvoir des plus mystérieux.
 
 L'aura maléfique autour de Wang Lin se détendit légèrement. Un mince filet de cette substance pénétra son corps pour fusionner avec son énergie spirituelle.
 
-Alors que le carrosse progressait lentement, l'énergie spirituelle s'accumula de plus en plus autour de Wang Lin. Sous cette densité d'énergie, tous les chevaux devinrent soudainement très vifs.
+Alors que le carrosse progressait lentement, l'énergie spirituelle s'accumula de plus en plus autour de Wang Lin. Sous cette densité d'énergie, tous les chevaux se mirent soudain à hennir.
 
 Même les yeux des artistes martiaux mortels s'illuminèrent. Ils ignoraient pourquoi, mais ils ressentaient une chaleur et un confort inexpliqués dans leur corps.
 
@@ -48,7 +48,7 @@ La substance rouge se dissipait lentement sous l'effet de sa paix intérieure. I
 
 Wang Lin avait déjà remarqué cette substance par le passé, mais c’était la première fois qu’il la voyait aussi distinctement. Il savait qu'elle était le fruit de ses quatre cents ans de carnage. Bien qu'il sût que laisser cette brume se dissiper l'aiderait à atteindre le stade de la Séparation Spirituelle, il estimait que ce serait un certain gaspillage.
 
-Wang Lin réfléchit un instant. Après mûre réflexion, il commença à faire bouillir la substance rouge pour tenter de la condenser lentement. Cependant, après l'avoir réduite au dixième de sa taille originale, Wang Lin ne parvint plus à la comprimer davantage, quels que soient ses efforts.
+Wang Lin réfléchit un instant. Après mûre réflexion, il commença à faire bouillir la substance rouge pour tenter de la condenser lentement. Cependant, après l'avoir réduite d'un dixième, Wang Lin ne parvint plus à la comprimer davantage, quels que soient ses efforts.
 
 Wang Lin prit une profonde inspiration. Alors qu'il s'apprêtait à réessayer, il leva les yeux vers les servantes et vit une jeune fille vêtue de rouge s'approcher de lui, portant de la viande fumée et du vin.
 
@@ -66,7 +66,7 @@ La jeune fille ouvrit la bouche pour dire quelque chose, mais fut interrompue pa
 
 En tant que cultivateur, Wang Lin n'avait nul besoin de se nourrir; la nourriture des mortels ne l'attirait guère. Il laissa la viande fumée là où elle était, mais ce vin lui rappelant des souvenirs, il continua à boire jusqu'à épuisement de la cruche.
 
-Au milieu de la nuit, les artistes martiaux allumèrent des feux de camp. Des éclats de rire s'élevèrent des hommes regroupés autour des flammes. En écoutant leurs rires, Wang Lin ne put s'empêcher d'esquisser un léger sourire.
+Dans la nuit, les artistes martiaux allumèrent des feux de camp. Des éclats de rire s'élevèrent des hommes regroupés autour des flammes. En écoutant leurs rires, Wang Lin ne put s'empêcher d'esquisser un léger sourire.
 
 Certains artistes martiaux, rendus audacieux par l'alcool, tentaient de courtiser les servantes pour s'offrir quelques instants d'intimité.
 
@@ -86,15 +86,15 @@ Lu Xing regarda la cruche vide au sol, puis celle, presque vide, que tenait Wang
 
 Wang Lin voulut instinctivement refuser, mais après réflexion, il acquiesça d'un signe de tête.
 
-Il suivit Lu Xing jusqu'au foyer. De nombreux artistes martiaux s'y trouvaient, riant et racontant des anecdotes amusantes. Lu Xing s'approcha et donna une tape amicale à l'homme qui parlait en le réprimandant sur un ton moqueur: « Wang Laowu, j'ai entendu parler de la petite pêche de Qing Fen Lao maintes fois. J'imagine qu'elle t'a bien servi. À notre retour, je vérifierai si tu ne vantes pas tes mérites! »
+Il suivit Lu Xing jusqu'au foyer. De nombreux artistes martiaux s'y trouvaient, riant et racontant des anecdotes amusantes. Lu Xing s'approcha et donna une tape amicale à l'homme qui parlait en le réprimandant sur un ton moqueur: « Wang Laowu, j'ai entendu parler de Xiao Taohong, de Qing Fen Lou, maintes fois. J'imagine qu'elle t'a bien servi. À notre retour, je vérifierai si tu ne vantes pas tes mérites! »
 
-L'homme nommé Wang s'écarta pour faire de la place à Lu Xing et Wang Lin en répondant: « Puisque tu règles tes affaires si vite, c'est moi qui paierai l'addition. J'aurai bien le temps de te rattraper! »
+L'homme nommé Wang s'écarta pour faire de la place à Lu Xing et Wang Lin en répondant: « Vas-y, de toute façon tu fais vite! Quand tu auras fini, j'aurai bien le temps d'y aller aussi! »
 
-À ces mots, l'assistance éclata de rire. Lu Xing répliqua par une petite remontrance jokingly avant de s'asseoir avec Wang Lin. Ce dernier observa distraitement les mortels qui l'entouraient, envahi par un sentiment de regret. Bien que la vie de ces gens fût éphémère et qu'un simple souffle de sa part suffît à les anéantir, leur bonheur était une chose dont il avait été privé.
+À ces mots, l'assistance éclata de rire. Lu Xing répliqua par une petite remontrance en plaisantant avant de s'asseoir avec Wang Lin. Ce dernier observa distraitement les mortels qui l'entouraient, envahi par un sentiment de regret. Bien que la vie de ces gens fût éphémère et qu'un simple souffle de sa part suffît à les anéantir, leur bonheur était une chose dont il avait été privé.
 
 Ce soir-là, Wang Lin but beaucoup de vin. Bien qu'il fût peu loquace, les autres finirent par s'habituer à sa présence, riant et buvant avec lui. Plus tard, quelques servantes audacieuses se joignirent au groupe, y compris celle qui lui avait apporté à manger. Elle choisit toutefois de s'asseoir près de Wang Lin. Son regard brillant se posait souvent sur lui, mais nul ne pouvait deviner ses pensées.
 
-Ce ne fut qu'à minuit que l'ivresse finit par emporter tout le monde, et que les servantes retournèrent dormir dans les carrosses.
+Ce ne fut qu'au petit matin que l'ivresse finit par emporter tout le monde, et que les servantes retournèrent dormir dans les carrosses.
 
 Hormis quelques sentinelles postées au loin, tout le monde dormait. Le camp était plongé dans un silence profond, seulement troublé par le crépitement du feu. Ce bruit n'importunait personne; il semblait même favoriser le sommeil.
 

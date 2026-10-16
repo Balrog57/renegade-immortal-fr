@@ -50,7 +50,7 @@ Le corps de Wang Hao fut secoué de spasmes alors qu'il recrachait davantage de 
 
 L'expression de Teng Huayuan s'assombrit. D'un geste de la main, sous l'éclat de la lumière violette, toutes les maisons se changèrent en poussière. Une quarantaine de personnes gisaient désormais au sol; tous étaient des membres de la famille Wang.
 
-Les femmes se mirent à pleurer, terrassées par l'effroi. Parmi les survivants, il ne restait que des cadavres décapités.
+Les femmes se mirent à pleurer, terrassées par l'effroi. Hormis les survivants, le sol ne portait plus que des cadavres décapités.
 
 Teng Huayuan sourit en saisissant une personne: le troisième oncle du père de Wang Lin, qui était l'aîné de la famille.
 
@@ -76,7 +76,7 @@ Parmi les survivants, le père de Wang Zhuo tomba à genoux et demanda: « Immor
 
 Un éclat glacial traversa les yeux de Teng Huayuan tandis qu'il pensait secrètement: « Wang Lin... donc c'est ainsi qu'il s'appelle! » Il fixa le père de Wang Zhuo, tendit la main pour le saisir et l'étudia de près. Il plongea son regard dans le sien et exigea mot pour mot: « Dis-moi tout sur ce Wang Lin! »
 
-Le père de Wang Zhuo livra promptement toutes les informations sur Wang Lin, y compris le lieu de résidence de ses parents. Dans son esprit, il fulminait: « Mourrez tous, mourez! Même si cet homme n'a pas été tué par vous, la famille Wang est condamnée, alors vos parents doivent périr également! »
+Le père de Wang Zhuo livra promptement toutes les informations sur Wang Lin, y compris le lieu de résidence de ses parents. Dans son esprit, il fulminait: « Mourrez tous, mourez! Même si ce n'est pas lui qui l'a tué, la famille Wang est condamnée, alors vos parents doivent périr également! »
 
 Une fois ses informations recueillies, Teng Huayuan éclata d'un rire. Il referma le poing et, lorsqu'il l'ouvrit, une sphère de foudre apparut. Il la projeta négligemment, libérant une onde de choc circulaire.
 
@@ -114,7 +114,7 @@ Quinze minutes plus tard, Teng Huayuan sortit de la maison. D'un geste de sa mai
 
 Teng Huayuan sourit et pointa l'image du doigt.
 
-Quant à Wang Lin, sous l'effet d'une sensation d'horreur inexplicable, il dirigeait ses trois poursuivants vers le lieu de rassemblement de la Secte des Cadavres.
+Quant à Wang Lin, sous l'effet d'une sensation d'horreur inexplicable, il dirigeait ses trois poursuivants vers le lieu de rassemblement de la Secte des Cadavres. Soudain, il trébucha, tomba à demi à genoux et cracha un jet de sang.
 
 La douleur! Une douleur inimaginable! Une douleur indescriptible!
 
@@ -122,6 +122,6 @@ Cette souffrance submergeait Wang Lin comme un déluge. Les cultivateurs étant 
 
 Peu après, Wang Lin fut témoin d'une scène dont il se souviendrait pour le reste de sa vie.
 
-« Non! » Deux filets de sang jaillirent de ses yeux. Son expression était suppliciée, son corps tremblait et des filaments d'énergie spirituelle Yin s'agitaient violemment en lui, totalement hors de contrôle. Chaque plante dans un rayon de dix mètres autour de lui fut instantanément gelée. Cette aura glaciale ne cessait de gagner en puissance.
+« Non! » Deux filets de sang jaillirent de ses yeux. Son expression était suppliciée, son corps tremblait et des filaments d'énergie spirituelle Yin s'agitaient violemment en lui, totalement hors de contrôle. Chaque plante dans un rayon de trente-trois mètres autour de lui fut instantanément gelée. Cette aura glaciale ne cessait de gagner en puissance.
 
 C'est à cet instant précis que le « Ji » à l'intérieur de Wang Lin grimpa sans fin, atteignant le Royaume du Ji!

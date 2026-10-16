@@ -114,7 +114,7 @@ Wang Lin prit une profonde inspiration et demanda: « Qu'est-ce que l'Herbe de D
 
 « L'Herbe de Dispersion de l'Énergie Spirituelle sert à annihiler toute ta culture. Quant à toi, je n'en ai parlé à personne. Je ne voulais pas que d'autres me volent tes gourdes. Après cela, les choses ont changé trop brusquement; en parler maintenant ne ferait que me nuire, alors j'ai décidé d'agir. »
 
-« Quant à l'Herbe Nématode à Trois Fils, je ne l'avais pas auparavant. Je l'ai obtenue d'un autre cultivateur lors de mon voyage hors de la montagne l'année dernière. Ce cultivateur a affirmé que si elle est utilisée sur un cultivateur inférieur à l'Établissement des Fondations, elle a 90 % de chances de réussir. À l'origine, je voulais l'utiliser sur Lun Yunjie pour lui extorquer des pilules. »
+« Quant à l'Herbe Nématode à Trois Fils, je ne l'avais pas auparavant. Je l'ai obtenue d'un autre cultivateur lors de mon voyage hors de la montagne l'année dernière. Ce cultivateur a affirmé que si elle est utilisée sur un cultivateur inférieur à l'Établissement des Fondations, elle a 100 % de chances de réussir. À l'origine, je voulais l'utiliser sur Lu Yunjie pour lui extorquer des pilules. »
 
 Wang Lin devint furieux et ricana: « N'aviez-vous pas peur que je m'en aperçoive? »
 

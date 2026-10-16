@@ -26,7 +26,7 @@ Voyant qu'il avait presque convaincu la foule, Li Shan pressa le pas pour conclu
 
 Parmi les disciples séduits par ses paroles, l'un demanda: « Cet article est-il vraiment aussi incroyable que vous le prétendez? Sortez-en quelques-uns et laissez-moi en tester une au hasard. Si c'est aussi efficace, j'en achèterai plusieurs pour m'amuser. »
 
-Li Shan sortit une douzaine de bombes fétides de son sac de rangement et les déposa délicatement au sol, comme s'il craignait qu'elles n'explosent, et dit: « Vous devez garder à l'esprit qu'il faut être prudent avec ce trésor. Manipulez-le avec douceur. Pour l'utiliser, contentez-vous de le lancer. Dès qu'il rencontrera la moindre résistance, il explosera. »
+Li Shan sortit plusieurs dizaines de bombes fétides de son sac de rangement et les déposa délicatement au sol, comme s'il craignait qu'elles n'explosent, et dit: « Vous devez garder à l'esprit qu'il faut être prudent avec ce trésor. Manipulez-le avec douceur. Pour l'utiliser, contentez-vous de le lancer. Dès qu'il rencontrera la moindre résistance, il explosera. »
 
 Le disciple de la secte intérieure qui avait pris la parole était Sun Hao. Ce dernier s'avança, ramassa prudemment l'une des bombes au hasard et l'examina dans sa main.
 

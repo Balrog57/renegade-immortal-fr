@@ -18,7 +18,7 @@ Wang Lin sourit amèrement et dit: « La Transformation de l'Âme est un stade b
 
 « J'ai étudié cette perle pendant de nombreuses années. Elle doit avoir un propriétaire pour que ses effets s'activent pleinement et que je puisse être libéré. »
 
-« Lorsque j'ai obtenu cette perle, j'étais pourchassé, mais j'ai eu le temps de l'étudier. Elle doit absorber l'essence des cinq éléments — métal, bois, eau, feu et terre — avant d'identifier un maître. Mais même ainsi, ce propriétaire devra avoir atteint la Transformation de l'Âme pour me sortir de là. Ah, petit, fais preuve de compassion et cultive plus vite! Ensuite, aide-moi à trouver un corps digne de ce nom. Moi, Situ Nan, je me souviendrai de ta gratitude, et sous ma protection, tu mèneras une vie sûre et confortable! »
+« Lorsque j'ai obtenu cette perle, j'étais pourchassé, mais je n'ai pas eu le temps de l'étudier. Elle doit absorber l'essence des cinq éléments — métal, bois, eau, feu et terre — avant d'identifier un maître. Mais même ainsi, ce propriétaire devra avoir atteint la Transformation de l'Âme pour me sortir de là. Ah, petit, fais preuve de compassion et cultive plus vite! Ensuite, aide-moi à trouver un corps digne de ce nom. Moi, Situ Nan, je me souviendrai de ta gratitude, et sous ma protection, tu mèneras une vie sûre et confortable! »
 
 À la fin, le ton de Situ Nan n'était plus aussi agressif qu'auparavant, mais empreint de regret.
 
@@ -28,11 +28,11 @@ Wang Lin réfléchit un instant. Juste au moment où il s'apprêtait à parler, 
 
 Soudain, une sensation de déchirure surgit. Le corps de Wang Lin trembla et il ouvrit les yeux.
 
-Il projeta son Sens Divin et découvrit deux disciples, un homme et une femme, marchant discrètement vers lui. À environ trente mètres, les deux s'arrêtèrent pour s'embrasser et flirter. Bientôt, ils se dévêtirent tous deux, leurs gémissements résonnant dans les environs.
+Il projeta son Sens Divin et découvrit deux disciples, un homme et une femme, marchant discrètement vers lui. À environ trente-trois mètres, les deux s'arrêtèrent pour s'embrasser et flirter. Bientôt, ils se dévêtirent tous deux, leurs gémissements résonnant dans les environs.
 
-Wang Lin connaissait bien ces deux disciples; ils appartenaient tous deux à la montagne arriére. Il les observa avec curiosité un moment, particulièrement la disciple féminine, avant de s'éloigner avec réticence.
+Wang Lin connaissait bien ces deux disciples; tous deux avaient participé à l'entraînement collectif avec lui. Il les observa avec curiosité un moment, particulièrement la disciple féminine, avant de s'éloigner avec réticence.
 
-De retour chez lui, Wang Lin songea aux paroles de Situ Nan. Bien qu'il ne les croît pas totalement, il avait énormément appris sur le fonctionnement du monde de la culture. Il ne pensait pas que l'homme mentirait sur de tels faits.
+De retour chez lui, Wang Lin songea aux paroles de Situ Nan. Bien qu'il ne les croie pas totalement, il avait énormément appris sur le fonctionnement du monde de la culture. Il ne pensait pas que l'homme mentirait sur de tels faits.
 
 Trois jours plus tard, l'échange entre la Secte Heng Yue et la Secte Xuan Dao commença officiellement.
 
@@ -50,7 +50,7 @@ Dès l'arrivée, une aura majestueuse émana des piliers de jade et se transform
 
 Derrière lui, tous les disciples de la Secte Xuan Dao furent frappés de stupeur. À cet instant, l'intention meurtrière leur donna l'impression d'être sur un champ de bataille. Ils se sentirent presque écrasés par cette pression, jusqu'à ce que l'Ancien Ouyang la disperse.
 
-« Camarade cultivateur Ouyang, il s'agit d'un trésor créé personnellement par notre fondateur. Dans un rayon de cent mètres autour des piliers de jade blanc, tout disciple n'appartenant pas à la Secte Heng Yue sera soumis à une intention meurtrière. Je présume que l'Ancien Ouyang comprend cela, alors veuillez nous excuser », dit Huang Long d'un visage calme. Sa main traça un sceau et une douce lumière jaillit des piliers de jade blanc. Telles de grandes mains invisibles, ces lumières écartèrent les nuages qui couvraient le sommet. L'intention meurtrière disparut également.
+« Camarade cultivateur Ouyang, il s'agit d'un trésor créé personnellement par notre fondateur. Dans un rayon de trois cent trente mètres autour des piliers de jade blanc, tout disciple n'appartenant pas à la Secte Heng Yue sera soumis à une intention meurtrière. Je présume que l'Ancien Ouyang comprend cela, alors veuillez nous excuser », dit Huang Long d'un visage calme. Sa main traça un sceau et une douce lumière jaillit des piliers de jade blanc. Telles de grandes mains invisibles, ces lumières écartèrent les nuages qui couvraient le sommet. L'intention meurtrière disparut également.
 
 Devant lui, tous les disciples internes se préparèrent au combat en faisant craquer leurs articulations.
 

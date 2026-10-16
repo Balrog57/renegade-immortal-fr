@@ -42,7 +42,7 @@ L'homme étrange finit par réagir, ses yeux empreints d'anxiété. Il fixa Wang
 
 Wang Lin était stupéfait. C'est alors qu'une voix très rauque émana de la sphère de lumière.
 
-« Jeune ami, je t'en prie, ne sois pas impulsif. Je ne te veux aucun mal. Je suis le maître de la personne qui se trouve dehors... » Au même moment, d'innombrables rayons de lumière convergèrent de toutes les directions vers la sphère. Lentement, celle-ci prit la forme d'un petit être d'un pied de haut.
+« Jeune ami, je t'en prie, ne sois pas impulsif. Je ne te veux aucun mal. Je suis le maître de la personne qui se trouve dehors... » Au même moment, d'innombrables rayons de lumière convergèrent de toutes les directions vers la sphère. Lentement, celle-ci prit la forme d'un petit être d'une trentaine de centimètres de haut.
 
 Ce petit personnage semblait très faible. Son visage était pâle et il avait l'apparence d'un enfant. Il esquivait sans cesse l'épée verte tout en fixant Wang Lin d'un visage livide.
 
@@ -66,11 +66,11 @@ Les yeux de la statue brillèrent d'une lueur pourpre et elle reprit sa descente
 
 Le jeune homme laissa échapper un reniflement méprisant. Il tendit la main vers le vide et la statue trembla de nouveau. Sa chute ralentit. Simultanément, il lança de nombreux sceaux qui firent frémir la structure, mais celle-ci tint bon.
 
-Le petit être à l'intérieur de la statue eut l'air soulagé, bien qu'il parût encore plus épuisé. Il dit à Wang Lin: « Cette statue peut résister aux attaques d'Amu pendant une demi-heure, ce qui est amplement suffisant pour que je te raconte l'histoire derrière tout cela. »
+Le petit être à l'intérieur de la statue eut l'air soulagé, bien qu'il parût encore plus épuisé. Il dit à Wang Lin: « Cette statue peut résister aux attaques d'Amu pendant une heure, ce qui est amplement suffisant pour que je te raconte l'histoire derrière tout cela. »
 
 Wang Lin ne dit mot et fixa le petit être.
 
-Ce dernier soupira et déclara: « Mon nom est Wu Yu. Jeune ami, as-tu déjà entendu parler de la Secte du Cadavre? »
+Ce dernier soupira et déclara: « Mon nom est Wu Yu. Jeune ami, as-tu déjà entendu parler de la Secte des Cadavres? »
 
 L'expression de Wang Lin resta impassible tandis qu'il secouait la tête, l'épée toujours à ses côtés.
 
@@ -78,7 +78,7 @@ Wu Yu eut un sourire amer et dit: « Jeune ami, nul besoin d'être sur tes garde
 
 Les yeux de Wang Lin s'illuminèrent. Après un court instant de réflexion, il demanda: « Qui est cette personne à l'extérieur? Êtes-vous son maître? »
 
-Les yeux de Wu Yu exprimèrent une profonde impuissance. Il répondit: « C'est ma marionnette cadavreuse. Hélas, j'étais l'un des ancêtres de la Secte du Cadavre. Cette secte avait pour règle que chaque disciple qui la rejoignait devait trouver un cadavre afin de créer sa propre marionnette. »
+Les yeux de Wu Yu exprimèrent une profonde impuissance. Il répondit: « C'est ma marionnette cadavreuse. Hélas, j'étais l'un des ancêtres de la Secte des Cadavres. Cette secte avait pour règle que chaque disciple qui la rejoignait devait trouver un cadavre afin de créer sa propre marionnette. »
 
 « À mesure que notre niveau de culture augmentait, la marionnette cadavreuse progressait également. »
 
@@ -92,7 +92,7 @@ Wu Yu eut un sourire désabusé. Il acquiesça: « C'est exact. À l'origine, gr
 
 Wang Lin eut un sourire froid: « Quelles fadaises. Si cette marionnette est vraiment ce que vous prétendez, pourquoi ne s'est-elle pas enfuie au lieu de continuer à vous traquer? »
 
-Wu Yu eut un sourire amer. Il hésita un instant avant de dire: « Peu importe. Jeune ami, tu l'ignores peut-être, mais cela touche aux secrets de la Secte du Cadavre. Bien que cette marionnette soit hors de mon contrôle, je l'ai affinée pendant des centaines d'années. Elle est liée à mon âme; si elle s'éloigne de plus de cent kilomètres de moi, elle mourra. »
+Wu Yu eut un sourire amer. Il hésita un instant avant de dire: « Peu importe. Jeune ami, tu l'ignores peut-être, mais cela touche aux secrets de la Secte des Cadavres. Bien que cette marionnette soit hors de mon contrôle, je l'ai affinée pendant des centaines d'années. Elle est liée à mon âme; si elle s'éloigne de plus de cinquante kilomètres de moi, elle mourra. »
 
 « La seule façon de résoudre ce problème est qu'elle absorbe mon Âme Naissante et la scelle en elle. Ce n'est qu'ainsi qu'elle échappera véritablement à mon contrôle. »
 

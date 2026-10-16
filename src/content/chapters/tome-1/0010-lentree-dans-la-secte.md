@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Chapter 10 - Entering the Secte
 slug: lentree-dans-la-secte
 ---
-Le vieil homme au visage rubicond fronça les sourcils de mécontentement et déclara: « Ancien Li, notre Secte Heng Yue va-t-elle vraiment sombrer à ce point? Faire une exception pour la vie ou la mort d'un simple mortel? »
+Le vieil homme au visage rubicond fronça les sourcils de mécontentement et déclara: « Ancien Li, notre Secte Heng Yue va-t-elle vraiment sombrer à ce point? Regardez les sectes du pays de Zhao: laquelle se conduirait aussi indignement que nous? Faire une exception pour la vie ou la mort d'un simple mortel? »
 
 L'Ancien Li ouvrit les yeux et répondit d'une voix glaciale: « Ancien Ma, le patriarche m'a chargé de régler cette affaire. Si elle n'est pas traitée avec discernement, et que ce déchet tente de se suicider une seconde fois avant que ses parents ne répandent la rumeur que nous avons poussé leur enfant au suicide, cela ne serait-il pas plus embarrassant? Si vous êtes prêt à en assumer la responsabilité, alors je vous laisserai faire. »
 
@@ -14,7 +14,7 @@ L'homme d'âge moyen tenta rapidement d'apaiser les tensions: « Il n'est pas n�
 
 Le vieillard en robe répliqua: « Et si les autres jeunes suivent son exemple, que ferons-nous? »
 
-L'homme d'âge moyen eut un petit rire: « C'est une tâche facile. Nous en tirerons une leçon. À l'avenir, lorsque nous refuserons des candidats, nous leur inculquerons l'idée de ne pas se suicider, et le problème sera résolu. Quant à ce Wang Lin, puisque l'affaire est déjà si importante, autant l'accepter comme disciple. Un disciple de plus ne changera rien. »
+L'homme d'âge moyen eut un petit rire: « C'est une tâche facile. Nous en tirerons une leçon. À l'avenir, lorsque nous refuserons des candidats, nous leur inculquerons, par une technique de Formation de l'Âme, l'idée de ne pas se suicider, et le problème sera résolu. Quant à ce Wang Lin, puisque l'affaire est déjà si importante, autant l'accepter comme disciple. Un disciple de plus ne changera rien. »
 
 Hormis l'Ancien Li, deux autres anciens regardèrent l'homme d'âge moyen d'un air pensif, sans dire un mot.
 
@@ -26,7 +26,7 @@ Un simple morceau de métal changea le destin de Wang Lin. Lorsque la nouvelle l
 
 Deux jours plus tard, il fit ses adieux à ses parents devant la Secte Heng Yue. En voyant la joie sur leurs visages, il décida de se consacrer sérieusement à sa culture.
 
-Cependant, sa perspective changea après le départ de ses parents. Il fut secrètement convoqué dans l'endroit où les disciples recevaient leurs affectations et y croisa un jeune homme au regard fuyant. Le visage de ce dernier était empreint de mépris. Il le dévisagea et ricana: « Alors, c'est toi Wang Lin, le gamin qui est devenu disciple en tentant de se suicider? »
+Cependant, sa perspective changea après le départ de ses parents. Il fut convoqué dans l'endroit où les disciples recevaient leurs affectations et y croisa un jeune homme au regard fuyant. Le visage de ce dernier était empreint de mépris. Il le dévisagea et ricana: « Alors, c'est toi Wang Lin, le gamin qui est devenu disciple en tentant de se suicider? »
 
 Wang Lin regarda silencieusement le jeune homme qui le défiait. Ce dernier renchérit avec un ricanement: « Petit, à partir de demain matin, tu viendras me voir pour le travail. Ta tâche consiste à puiser de l'eau, et pas moins de dix jarres par jour. Si tu ne termines pas ton travail, tu n'auras pas de nourriture, et si cela dure sept jours, j'irai dire aux anciens de t'expulser de la secte. Voici tes vêtements. Souviens-toi, les disciples honoraires ne portent que du gris. Une fois que tu seras un véritable disciple, on t'attribuera d'autres couleurs. » Sur ces mots, il lança les vêtements à Wang Lin et ferma les yeux.
 
@@ -62,4 +62,4 @@ Wang Lin indiqua son nom. Le jeune homme éclata soudain de rire et dit: « Alor
 
 Wang Lin eut un rire amer. Il ne chercha pas à se justifier et lui tendit encore quelques morceaux de patate douce.
 
-Zhang Hu les accepta promptement, en prit quelques bouchées, puis dit: « Wang Lin, tu ferais mieux d'en garder pour toi. Tu es nouveau ici. Qui sait quelles besognes ce renard jaune essaiera de te faire subir. Bon sang, il ne nous traite même pas comme des êtres humains. »
+Zhang Hu les accepta promptement, en prit quelques bouchées, puis dit: « Wang Lin, tu ferais mieux d'en garder pour toi. Tu es nouveau ici. Qui sait quelles besognes cette belette jaune essaiera de te faire subir. Bon sang, il ne nous traite même pas comme des êtres humains. »

@@ -14,7 +14,7 @@ En plus des fleurs, la calèche était parée de multiples points lumineux. Lors
 
 Malgré la force mentale de Wang Lin, il ne put s'empêcher d'être stupéfait un instant. Tous ces objets étincelants n'étaient que des pierres spirituelles de basse qualité.
 
-Ce n'était pas que les pierres spirituelles étaient si précieuses ou qu'il y en avait une telle quantité. Si Wang Lin avait exposé toutes les pierres spirituelles qu'il possédait, il aurait pu décorer des centaines de ces calèches.
+Ce n'était pas que les pierres spirituelles étaient si précieuses ou qu'il y en avait une telle quantité. Si Wang Lin avait exposé toutes les pierres spirituelles qu'il possédait, il aurait pu décorer près d'une centaine de ces calèches.
 
 Cependant, malgré la longévité de Wang Lin et l'étendue de son expérience, c'était la première fois qu'il rencontrait quelqu'un d'aussi extravagant...
 
@@ -22,7 +22,7 @@ Les jeunes garçons et filles entourant la calèche étaient tous très beaux. B
 
 À mesure que la calèche approchait, le regard de Wang Lin se fit plus calme tandis qu'il l'observait.
 
-« L'Immortal Ji Mo est là, faites place! » cria l'un des jeunes d'une voix aiguë en fixant Wang Lin, ignorant totalement les corps flottants derrière lui.
+« L'Immortel Ji Mo est là, faites place! » cria l'un des jeunes d'une voix aiguë en fixant Wang Lin, ignorant totalement les corps flottants derrière lui.
 
 « Ji Mo... » Wang Lin réfléchit un instant. Ce nom lui semblait très familier. Après une mûre réflexion, ses yeux s'illuminèrent soudain: « Le vieux Ji Mo? »
 
@@ -58,7 +58,7 @@ Le regard de Wang Lin devint glacial alors qu'il demandait: « Savez-vous pourqu
 
 Le corps de Ji Mo trembla. Il eut le pressentiment que le pire allait arriver et lâcha: « Je ne veux pas savoir. Camarade cultivateur, adieu! » Il commença à s'enfuir sans hésiter, abandonnant même les jeunes qui l'escortaient.
 
-Wang Lin ne l'arrêta pas, mais frappa son sac de rangement pour en sortir le drapeau de restriction. D'un geste, le drapeau couvrit instantanément une zone de 1000 kilomètres.
+Wang Lin ne l'arrêta pas, mais frappa son sac de rangement pour en sortir le drapeau de restriction. D'un geste, le drapeau couvrit instantanément une zone de 500 kilomètres.
 
 L'expression de Ji Mo s'assombrit brusquement. Il fixa Wang Lin et aboya: « Quel est le sens de tout cela? Je n'ai pas interféré avec vous ni avec la famille Teng! Votre niveau de culture est le même que le mien, ne croyez pas que je vous crains! »
 
@@ -72,7 +72,7 @@ Les traits gras du visage de Ji Mo se contractèrent tandis qu'il feignait un so
 
 Pourtant, sa main était déjà sur son sac de rangement. Quatre volutes de fumée noire émergèrent à ses côtés. Entre les brumes, on pouvait distinguer des marionnettes momifiées. Normalement, Ji Mo n'utilisait jamais cette technique lors d'un combat; cela prouvait à quel point il redoutait Wang Lin.
 
-Chacune de ces marionnettes possédait un niveau de culture proche du début du stade de l'Âme Naissante, mais Wang Lin ne lui accorda aucune attention: « Après cela, Zhang Hu et moi avons été pourchassés par Teng Lu. Je pense que vous devriez vous souvenir de ce qui s'est passé à l'époque. »
+Chacune de ces marionnettes possédait un niveau de culture proche du début du stade de l'Âme Naissante, mais Wang Lin ne lui accorda aucune attention: « Après cela, Zhang Hu et moi avons été pourchassés par Teng Li. Je pense que vous devriez vous souvenir de ce qui s'est passé à l'époque. »
 
 Ji Mo était troublé. Après un moment, il soupira: « En réalité, je... » Alors qu'il parlait, ses yeux s'illuminèrent et son corps gras bondit hors de la calèche. Tout en s'élevant en arrière, il projeta quatre gouttes de sang qui frappèrent les marionnettes.
 
@@ -88,11 +88,11 @@ Ji Mo serra les dents et cessa de fuir. Sa main forma un sceau et son corps trem
 
 Finalement, l'homme face à Wang Lin était un homme d'âge moyen à l'allure imposante et très beau. Ses sourcils étaient épais, ses yeux larges, et il dégageait une aura puissante. Son niveau de culture bondit au sommet du stade intermédiaire de l'Âme Naissante, n'étant plus qu'à un pas du stade avancé.
 
-Il fixa Wang Lin et dit d'une voix basse: « Vous devriez vous sentir honoré. Vous êtes le premier à voir ma véritable forme depuis que j'ai atteint l'Âme Naissante. Il y a trop peu d'experts dans les parages, je suis donc réticent à vous tuer. Si vous aviez eu 80 ou 100 ans de plus, vous auriez peut-être eu le temps de croître. Faisons un marché: si vous me sacrifiez un bras, je vous laisserai la vie sauve pour un siècle. J'espère que dans cent ans, vous serez assez puissant pour m'affronter. J'ai hâte! »
+Il fixa Wang Lin et dit d'une voix basse: « Vous devriez vous sentir honoré. Vous êtes le premier à voir ma véritable forme depuis que j'ai atteint l'Âme Naissante. Il y a trop peu d'experts dans les parages, je suis donc réticent à vous tuer. Si vous aviez eu 100 ou 180 ans de plus, vous auriez peut-être eu le temps de croître. Faisons un marché: si vous me sacrifiez un bras, je vous laisserai la vie sauve pour un siècle. J'espère que dans cent ans, vous serez assez puissant pour m'affronter. J'ai hâte! »
 
 Une fois son discours terminé, le visage de Ji Mo était empreint de fierté. Les mains derrière le dos et la tête haute vers le ciel, sa silhouette dégageait l'assurance d'un être invincible, teintée d'une pointe de solitude.
 
-Après un soupir, il jeta un dernier regard à Wang Lin, puis s'éloigna lentement. À cent mètres de distance, il accéléra soudainement et disparut sans même se retourner.
+Après un soupir, il jeta un dernier regard à Wang Lin, puis s'éloigna lentement. À environ 330 mètres de distance, il accéléra soudainement et disparut sans même se retourner.
 
 Wang Lin afficha une expression étrange. Ses yeux brillèrent d'un rouge éclatant tandis que le Royaume Ji s'anima brusquement, projetant des séries d'éclairs rouges depuis ses pupilles.
 
@@ -116,7 +116,7 @@ Le vieux Ying Yang laissa échapper un léger grognement: « Le Mont Jaune de la
 
 La femme en jaune se tut, les sourcils encore plus contractés.
 
-L'homme d'âge moyen qui s'était tu finit par dire: « Grand frère aîné, et si nous expulsions tous les membres de la famille Teng du secte? Ainsi, ce cultivateur n'aurait plus aucune raison de venir nous défier. »
+L'homme d'âge moyen qui s'était tu finit par dire: « Grand frère aîné, et si nous expulsions tous les membres de la famille Teng de la secte? Ainsi, ce cultivateur n'aurait plus aucune raison de venir nous défier. »
 
 Ying Yang se frotta les tempes: « Cela reviendrait à nous faire un ennemi de la famille Teng. Bien que Teng Huayuan et moi soyons au stade avancé de l'Âme Naissante, je sais que je ne serais pas son égal en combat. »
 
@@ -128,19 +128,19 @@ Les yeux d'Ying Yang brillèrent d'un éclat malicieux: « Ne sous-estime pas Pu
 
 L'homme fut stupéfait, avant d'acquiescer d'un regard comprenant la situation.
 
-À ce moment-là, un homme d'âge moyen, épuisé, sortit d'une pièce en toussant, une pile de vêtements à la main. Bien qu'il ne fût pas vieux, ses cheveux étaient entièrement blancs et sa démarche chancelante. Le son des cloches résonnait dans tout le secte: neuf coups signifiaient que tous les disciples devaient se rassembler sous trente minutes, faute de quoi ils seraient punis.
+À ce moment-là, un homme d'âge moyen, épuisé, sortit d'une pièce en toussant, une pile de vêtements à la main. Bien qu'il ne fût pas vieux, ses cheveux étaient entièrement blancs et sa démarche chancelante. Le son des cloches résonnait dans toute la secte: neuf coups signifiaient que tous les disciples devaient se rassembler dans un quart d'heure, faute de quoi ils seraient punis.
 
 Il n'avait pas prêté attention aux premiers coups, mais au neuvième, il fut saisi d'effroi et regarda vers la salle principale. Il était dans la Secte He Huan depuis longtemps et n'avait jamais entendu la cloche sonner neuf fois.
 
-Il courut vers la salle principale, mais sa faiblesse l'accabla rapidement. Lorsqu'il atteignit enfin la place devant la salle principale, il vit que tous les membres du secte étaient déjà assis en tailleur sur le parvis. La place était bondée de disciples; même les cours environnants étaient saturés. Sous chaque disciple, un faible anneau de lumière brillait.
+Il courut vers la salle principale, mais sa faiblesse l'accabla rapidement. Lorsqu'il atteignit enfin la place devant la salle principale, il vit que tous les membres de la secte étaient déjà assis en tailleur sur le parvis. La place était bondée de disciples; même les cours environnants étaient saturés. Sous chaque disciple, un faible anneau de lumière brillait.
 
 L'homme trouva rapidement un anneau pour s'asseoir. Après une profonde inspiration, il entendit ses compagnons crier et leva les yeux. Il fut pétrifié.
 
-Dans le ciel au-dessus de la Secte He Huan, une bête extrêmement féroce était apparue. Elle possédait une trompe remarquable qui retenait une corde, laquelle était attachée à une bannière sur laquelle étaient ligés d'innombrables corps. Au sommet de la tête de la bête se tenait un homme aux cheveux blancs. Bien que son apparence fût ordinaire, il dégageait une intention meurtrière terrifiante.
+Dans le ciel au-dessus de la Secte He Huan, une bête extrêmement féroce était apparue. Elle possédait une trompe remarquable qui retenait une corde, laquelle était attachée à une bannière sur laquelle étaient liés d'innombrables corps. Au sommet de la tête de la bête se tenait un homme aux cheveux blancs. Bien que son apparence fût ordinaire, il dégageait une intention meurtrière terrifiante.
 
 L'homme d'âge moyen fronça les sourcils; il avait l'impression d'avoir déjà vu ce visage, sans pouvoir s'en souvenir.
 
-Wang Lin contemplait la Secte He Huan en contrebas. Il sentait que la formation défensive était infiniment plus puissante que celles de la vallée de Wu Feng ou de la Secte Tian Dao. À moins d'atteindre le stade de la Formation de l'Âme, il serait presque impossible de la briser rapidement. La clé de cette défense résidait dans le fait que tant que les disciples restaient assis sur leurs anneaux, ils alimentaient automatiquement la formation en énergie. Le Secte He Huan comptant des milliers de disciples, percer cette barrière revenait à combattre une armée entière.
+Wang Lin contemplait la Secte He Huan en contrebas. Il sentait que la formation défensive était infiniment plus puissante que celles de la vallée de Wu Feng ou de la Secte Tian Dao. À moins d'atteindre le stade de la Formation de l'Âme, il serait presque impossible de la briser rapidement. La clé de cette défense résidait dans le fait que tant que les disciples restaient assis sur leurs anneaux, ils alimentaient automatiquement la formation en énergie. La Secte He Huan comptant des milliers de disciples, percer cette barrière revenait à combattre une armée entière.
 
 Les membres de la famille Teng se trouvaient dans la salle principale; il était clair que la Secte He Huan comptait se battre jusqu'au bout. Le regard de Wang Lin balaya calmement le sol et s'arrêta sur un vieil homme. Il lui lança: « Si vous n'ouvrez pas cette formation, une rivière de sang coulera ici. »
 
@@ -178,7 +178,7 @@ Ying Yang essuya la sueur froide qui perlait sur son front. Une fois la formatio
 
 Wang Lin ne lui adressa même pas un regard et pénétra dans le bâtiment. Aucun bruit ne sortit de la salle, mais une odeur de sang s'en échappa lentement.
 
-Une demi-heure plus tard, Wang Lin en sortit calmement. D'un geste de la main, il fit voler le drapeau du dragon tenu par la bête moustique vers l'intérieur pour en extraire plusieurs centaines de corps. Les visages de ces défunts étaient figés par la terreur et la haine.
+Un quart d'heure plus tard, Wang Lin en sortit calmement. D'un geste de la main, il fit voler le drapeau du dragon tenu par la bête moustique vers l'intérieur pour en extraire plusieurs centaines de corps. Les visages de ces défunts étaient figés par la terreur et la haine.
 
 Tous ces êtres étaient très jeunes. Sans l'existence de Wang Lin, certains auraient sans doute atteint le stade de la Formation du Noyau, voire de l'Âme Naissante. Mais ils n'auraient pas dû porter le nom de Teng!
 

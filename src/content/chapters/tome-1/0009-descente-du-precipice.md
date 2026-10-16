@@ -8,15 +8,15 @@ slug: descente-du-precipice
 ---
 Pendant les jours suivants, Wang Lin se nourrissait des oiseaux aspirés dans la grotte qui s'écrasaient contre les parois. Il passait la majeure partie de son temps à observer attentivement la perle de pierre. Chaque fois que la rosée apparaissait, il l'appliquait sur son bras, et ce jusqu'à ce que sa blessure soit complètement guérie. Sachant que cette rosée était d'une valeur inestimable, il en recueillit une partie dans le crâne d'un oiseau.
 
-Ce jour-là, il aspergea la rosée accumulée ces derniers jours sur un morceau de tissu et enveloppa soigneusement la perle à l'intérieur. Après s'être assuré qu'elle ne risquait pas de tomber, il se rendit à l'entrée de la grotte au moment précis où la force d'aspiration cessait. Il utilisa ses dents pour déchirer ses vêtements afin de les lier entre eux; il attacha une extrémité à un rocher et l'autre autour de sa taille, puis commença lentement sa descente.
+Ce jour-là, il aspergea la rosée accumulée ces derniers jours sur un morceau de tissu et enveloppa soigneusement la perle à l'intérieur. Après s'être assuré qu'elle ne risquait pas de tomber, il se rendit à l'entrée de la grotte au moment précis où la force d'aspiration cessait. Il déchira la plupart de ses vêtements pour les lier entre eux; il attacha une extrémité à un rocher et l'autre autour de sa taille, puis commença lentement sa descente.
 
-Wang Lin avait descendu environ cinq ou six mètres lorsqu'il glissa. Son corps tomba brusquement, mais heureusement, la résistance de ses vêtements lui permit de se balancer vers la paroi et de s'agripper à une branche avant que le tissu ne se déchire.
+Wang Lin avait descendu environ dix-sept à vingt mètres lorsqu'il glissa. Son corps tomba brusquement, mais heureusement, la résistance de ses vêtements lui permit de se balancer vers la paroi et de s'agripper à une branche avant que le tissu ne se déchire.
 
-Une sueur froide perlait sur le front de Wang Lin. En regardant en bas, il estima qu'il se trouvait encore à vingt mètres de hauteur. D'une main, il agrippa une branche et, de l'autre, il saisit le tissu pour l'attacher fermement à la branche. Ce n'est qu'alors qu'il put enfin souffler.
+Une sueur froide perlait sur le front de Wang Lin. En regardant en bas, il estima qu'il se trouvait encore à soixante-six mètres de hauteur. D'une main, il agrippa une branche et, de l'autre, il saisit le tissu pour l'attacher fermement à la branche. Ce n'est qu'alors qu'il put enfin souffler.
 
 Il recula prudemment vers le bord du précipice, puis reprit sa descente. Lorsqu'il fut à dix mètres du sol, le tissu atteignit sa limite d'étirement; Wang Lin sauta sans l'ombre d'une hésitation.
 
-Ses vêtements ne purent supporter son poids et commencèrent à se déchirer, mais ils aidèrent tout de même à amortir la chute. Wang Lin sentit le vent caresser son visage tandis qu'il descendait, et les branches qui se brisaient sous lui ralentissaient sa chute. Il positionna son corps avec précision pour l'atterrissage, les orteils pointés vers le bas, et roula en boule dès qu'il toucha le sol.
+Ses vêtements ne purent supporter son poids et commencèrent à se déchirer, mais ils aidèrent tout de même à amortir la chute. Wang Lin sentit le vent cingler son visage tandis qu'il descendait, et les branches qui se brisaient sous lui ralentissaient sa chute. Il positionna son corps avec précision pour l'atterrissage, les orteils pointés vers le bas, et roula en boule dès qu'il toucha le sol.
 
 Le sol fut comme une lame de pierre perçant son corps, lui infligeant de multiples coupures profondes, notamment une sur sa jambe, si profonde que l'on pouvait y voir l'os.
 
@@ -46,7 +46,7 @@ Dans la pièce, lorsque la mère de Wang Lin vit son fils, elle éclata en sangl
 
 Lorsqu'il s'était enfui de la maison, ses parents étaient retournés chez la famille Wang pour chercher son quatrième oncle. Tous trois craignant pour sa sécurité, ils étaient allés chercher le père de Wang Zhuo. Sous la pression de son quatrième oncle, le père de Wang Zhuo avait accepté à contrecœur d'implorer l'aide de la Secte Heng Yue.
 
-C'était la première fois que la Secte Heng Yue était confrontée à une telle situation et elle avait d'abord opté pour l'indifférence. Cependant, la raison pour laquelle Wang Lin s'était enfui était son refus d'être admis au sein de la secte. Bien que la Secte Heng Yue ne se soucie guère de la vie ou de la mort des mortels, si le garçon venait réellement à mourir et que la nouvelle se répandait dans les villages voisins, les parents n'oseraient plus envoyer leurs enfants tenter d'entrer dans la secte. Inquiets pour l'avenir, ils avaient envoyé quelques disciples fouiller la région. Le père de Wang Lin, toujours tourmenté par l'inquiétude, les avait suivis.
+C'était la première fois que la Secte Heng Yue était confrontée à une telle situation et elle avait d'abord opté pour l'indifférence. Cependant, la raison pour laquelle Wang Lin s'était enfui était d'avoir été rejeté par la secte. Bien que la Secte Heng Yue ne se soucie guère de la vie ou de la mort des mortels, si le garçon venait réellement à mourir et que la nouvelle se répandait dans les villages voisins, les parents n'oseraient plus envoyer leurs enfants tenter d'entrer dans la secte. Inquiets pour l'avenir, ils avaient envoyé quelques disciples fouiller la région. Le père de Wang Lin, toujours tourmenté par l'inquiétude, les avait suivis.
 
 C'est ce qui avait conduit à la scène qu'il venait de vivre.
 
@@ -58,6 +58,6 @@ Les parents de Wang Lin ne cessaient de lui adresser des paroles de réconfort. 
 
 À ses côtés, un homme d'âge moyen au visage froid répliqua: « Ce que l'Ancien Ma dit est juste. De toutes les sectes du royaume de Zhao, seule notre Secte Heng Yue agit ainsi. Mais si cet enfant mourait réellement dans nos montagnes, les parents craindraient que tous leurs enfants ne tentent de se suicider en cas de rejet. Dès lors, qui oserait nous confier ses enfants? »
 
-Un vieil homme en robe prit une gorgée de thé et dit lentement: « En réalité, n'est-ce pas parce que notre Secte Heng Yue est en déclin que nous devons désormais sélectionner des disciples aptes à la culture parmi les mortels? S'il y a cinq cents ans, qui se serait soucié de l'opinion des mortels? »
+Un vieil homme en robe prit une gorgée de thé et dit lentement: « En réalité, n'est-ce pas parce que notre Secte Heng Yue est en déclin que nous devons désormais sélectionner des disciples aptes à la culture parmi les mortels? S'il y a cinq cents ans, qui se serait soucié de la vie ou de la mort des mortels? »
 
-Enfin, un vieillard couvert de rides soupira et conclut: « Si ce jeune homme a tenté de se suicider une fois, il pourrait recommencer. Bah, pour éviter que ce problème ne persiste, faisons une exception et acceptons-le comme disciple. » Après avoir parlé, il lança un regard discret à l'homme d'âge moyen.
+Enfin, un vieillard couvert de rides soupira et conclut: « Si ce jeune homme a tenté de se suicider une fois, il pourrait recommencer. Bah, pour éviter que ce problème ne persiste, faisons une exception et acceptons-le comme disciple honoraire. » Après avoir parlé, il lança un regard discret à l'homme d'âge moyen.

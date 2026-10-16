@@ -84,6 +84,6 @@ Peu à peu, la boutique de Wang Lin se remplit de sculptures, dont la majorité 
 
 D'immenses quantités d'énergie spirituelle étaient concentrées dans chaque œuvre. Les mortels ne pouvaient les percevoir, mais si un cultivateur passait par là, il serait terrifié.
 
-Car la puissance de l'énergie spirituelle contenue dans ces sculptures n'était pas inférieure à celle de n'importe quel trésor magique de bas grade. Certaines d'entre elles égalaient même la puissance de trésors magiques de qualité moyenne.
+Car la puissance de l'énergie spirituelle contenue dans ces sculptures n'était pas inférieure à celle de certains trésors magiques de bas grade. Certaines d'entre elles égalaient même la puissance de trésors magiques de qualité moyenne.
 
 Comment pouvait-on encore parler de simples sculptures sur bois? Il s'agissait manifestement de trésors magiques façonnés dans du bois mort.

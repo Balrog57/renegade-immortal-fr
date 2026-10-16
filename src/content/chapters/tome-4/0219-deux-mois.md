@@ -14,13 +14,13 @@ Il soupira. Son humeur vacillait et il ne parvenait pas à se calmer. Il quitta 
 
 Calculant qu'il restait moins de la moitié des quinze minutes imparties, il savait qu'il devait agir avec célérité. Son corps se déplaça soudainement comme un éclair et il atteignit rapidement la cour ouest.
 
-À son arrivée, Wang Lin ne pénétra pas immédiatement les lieux. Au lieu de cela, il fit prestement le tour de la cour pour y placer des restrictions, avant d'y entrer à son tour. Grâce à son puissant Sens Divin, aucun des disciples en patrouille ne put le détecter. Tous les grues s'étaient posées et refusaient de décoller, peu importaient les incitations des jeunes filles qui chevauchaient leurs dos.
+À son arrivée, Wang Lin ne pénétra pas immédiatement les lieux. Au lieu de cela, il fit prestement le tour de la cour pour y placer des restrictions, avant d'y entrer à son tour. Grâce à son puissant Sens Divin, aucun des disciples en patrouille ne put le détecter. Toutes les grues s'étaient posées et refusaient de décoller, peu importaient les incitations des jeunes filles qui chevauchaient leurs dos.
 
 La silhouette de Wang Lin fendit rapidement la brume pour pénétrer dans la cour ouest.
 
 De l'extérieur, cet endroit ressemblait à un royaume féerique, et l'intérieur en était encore plus saisissant. Le raffinement des bâtiments ici surpassait de loin celui des édifices extérieurs.
 
-Un rayon de lumière arc-en-ciel émanait des profondeurs de la cour, agissant comme un pont tandis que les jeunes filles de la cour ouest flottaient en passant. Mais malheureusement, tous les grues étaient cloués au sol, tremblants; cette scène de grâce était donc gâchée.
+Un rayon de lumière arc-en-ciel émanait des profondeurs de la cour, agissant comme un pont tandis que les jeunes filles de la cour ouest flottaient en passant. Mais malheureusement, toutes les grues étaient clouées au sol, tremblants; cette scène de grâce était donc gâchée.
 
 Suivant le chemin décrit par Cheng Xian, Wang Lin traversa rapidement la cour et parvint à la chambre de Gongsun Tong, située dans la partie ouest. Il déploya son Sens Divin et découvrit une scène fort étrange.
 
@@ -34,7 +34,7 @@ Après un long moment, une voix langoureuse et tendre s'éleva de derrière le p
 
 « Mais... et qu'en est-il de Lu Song? » La jeune fille appelée Ling Er était Cheng Ling.
 
-« Fais-moi confiance. Quand Lu Song viendra demain, je m'occuperai de lui. Je te promets qu'il n'y aura aucun problème. Ce Lu Song... au plus, je le laisserai goûter un peu à la vie. Ling Er, ta grande sœur t'a bien servie. Maintenant, c'est ton tour. »
+« Fais-moi confiance. Quand Lu Song viendra demain, je m'occuperai de lui. Je te promets qu'il n'y aura aucun problème. Ce Lu Song... au pire, je lui donnerai quelques douceurs. Ling Er, ta grande sœur t'a bien servie. Maintenant, c'est ton tour. »
 
 Wang Lin ne pénétra pas dans la pièce, mais pointa son front. Xu Liguo en sortit, le regard exalté en fixant le paravent.
 
@@ -74,7 +74,7 @@ Tandis qu'il orchestrait ce chaos, Wang Lin ne marqua aucun temps d'arrêt et s'
 
 Wang Lin quitta la cour ouest sans plus d'entraves, tout en sachant que les cultivateurs du stade intermédiaire de l'Âme Naissante de la Secte Ciel Nuageux arriveraient bientôt.
 
-C'est alors qu'un Sens Divin extrêmement puissant émana du lointain. En dépassant Wang Lin, ce sentiment divin laissa échapper un ricanement méprisant. Wang Lin resta impassible. Si n'importe qui d'autre avait été ainsi frappé, son âme en aurait été endommagée, mais celle de Wang Lin était d'une ampleur prodigieuse. Si son âme sortait de son corps, elle ne serait pas moins puissante que l'âme des cultivateurs du stade de la Tranchée Spirituelle. Bien qu'elle soit actuellement confinée dans son enveloppe charnelle, comment pourrait-elle être affectée par un simple cultivateur de l'Âme Naissante?
+C'est alors qu'un Sens Divin extrêmement puissant émana du lointain. En dépassant Wang Lin, ce sentiment divin laissa échapper un ricanement méprisant. Wang Lin resta impassible. Si n'importe qui d'autre avait été ainsi frappé, son âme en aurait été endommagée, mais celle de Wang Lin était d'une ampleur prodigieuse. Si son âme sortait de son corps, elle ne serait pas moins puissante que l'âme des cultivateurs du stade de la Formation de l'Âme. Bien qu'elle soit actuellement confinée dans son enveloppe charnelle, comment pourrait-elle être affectée par un simple cultivateur de l'Âme Naissante?
 
 Il poursuivit sa course sans ralentir.
 
@@ -90,7 +90,7 @@ Pendant ce temps, dans la cour où résidait Wang Lin, son avatar émergea d'un 
 
 L'affaire fut classée. Au cours des quinze jours suivants, le récit de l'acte du corps principal de Wang Lin se répandit dans toute la secte, décliné en de multiples versions. Il faut dire que la Secte Ciel Nuageux n'avait pas connu un tel incident depuis longtemps: un individu s'était introduit en plein jour, avait commis un meurtre et s'était volatilisé sous leurs yeux. C'était une véritable insulte faite à l'honneur de la secte.
 
-Cela alerta même les quelques ancêtres de l'Âme Naissante qui se préparaient au stade de la Tranchée Spirituelle. En venant enquêter, ils découvrirent que les deux victimes étaient Gongsun Tong et Cheng Ling.
+Cela alerta même les quelques ancêtres de l'Âme Naissante qui se préparaient au stade de la Formation de l'Âme. En venant enquêter, ils découvrirent que les deux victimes étaient Gongsun Tong et Cheng Ling.
 
 Tous les proches des défunts, tels que Cheng Xian et Lu Song, furent interrogés. Même Wang Lin fut soumis à un examen. Finalement, un cultivateur de l'Âme Naissante utilisa son Sens Divin pour vérifier si Wang Lin mentait. Cependant, comme l'âme de Wang Lin était bien plus vaste que la sienne, il ne put rien déceler. Pour une raison inconnue, l'affaire fut abandonnée.
 
@@ -98,7 +98,7 @@ Quant à Li Muwan, elle ne fut impliquée dans rien. Tout cela était l'œuvre d
 
 La vie de Wang Lin retrouva son calme, mais dans son esprit, le sourire triste de Li Muwan ne cessait de ressurgir. Chaque fois qu'elle lui apparaissait ainsi, il avait l'impression que son cœur était transpercé.
 
-Ce sentiment atteignit son paroxysme lorsque la Secte Ciel Nuageux annonça à tout le pays de Chu que l'une des trois alchimistes de rang 5, Li Muwan, formerait un couple de culture avec Sun Zhanwei, le fils de l'Ancien de la secte extérieure, dans deux mois.
+Ce sentiment atteignit son paroxysme lorsque la Secte Ciel Nuageux annonça à tout le pays de Chu que l'une des trois alchimistes de rang 5, Li Muwan, formerait un couple de culture avec Sun Zhenwei, le fils de l'Ancien de la secte extérieure, dans deux mois.
 
 Wang Lin restait assis tranquillement dans sa chambre. Après une journée et une nuit de réflexion, il poussa un soupir et son regard se fit déterminé. Une lueur froide traversa ses yeux alors qu'il se levait pour marcher vers la cour sud.
 
@@ -120,4 +120,4 @@ Wang Lin regarda Li Muwan et soupira. Il posa la main sur son sac de rangement e
 
 À l'instant où le jade apparut, les forces de Li Muwan l'abandonnèrent. Après avoir saisi le précieux objet, elle s'appuya contre le mur tandis que des larmes de joie inondaient son visage.
 
-« Tuer Sun Zhanwei est une tâche facile, mais cela devra attendre que mon niveau de culture soit assez élevé pour garantir que personne dans la Secte Ciel Nuageux n'ose réagir. Lorsque j'atteindrai le stade de l'Âme Naissante, je pourrai t'emmener n'importe où dans le pays de Chu et nul n'osera se dresser sur notre chemin. » La voix de Wang Lin était monocorde, mais ses paroles étaient empreintes d'une arrogance absolue.
+« Tuer Sun Zhenwei est une tâche facile, mais cela devra attendre que mon niveau de culture soit assez élevé pour garantir que personne dans la Secte Ciel Nuageux n'ose réagir. Lorsque j'atteindrai le stade de l'Âme Naissante, je pourrai t'emmener n'importe où dans le pays de Chu et nul n'osera se dresser sur notre chemin. » La voix de Wang Lin était monocorde, mais ses paroles étaient empreintes d'une arrogance absolue.

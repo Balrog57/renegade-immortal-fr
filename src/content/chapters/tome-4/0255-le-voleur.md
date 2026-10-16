@@ -42,7 +42,7 @@ Heureusement, il l'avait lâchée à temps et la pression spirituelle de la scul
 
 Alors que la sculpture tombait, elle fut rattrapée par une main invisible géante qui la déposa dans la main de Wang Lin. Ce dernier sortit de la pièce arrière. Il replaça nonchalamment la sculpture sur une étagère, prit une gorgée de vin et déclara:
 
-— Cela fait un total de 4 520 pièces d'or. Payez.
+— Cela fait un total de 4 500 pièces d'or. Payez.
 
 À l'apparition de Wang Lin, les deux hommes s'immobilisèrent net, le fixant avec des expressions horrifiées.
 
@@ -55,10 +55,10 @@ Pourtant, ce mortel venait d'apparaître silencieusement devant eux. C'était co
 Ajouté à la présence des trésors magiques, même pour des sots, il était devenu évident que l'homme face à eux était un senior avec lequel il ne fallait pas chercher querelle.
 
 Ils se regardèrent et s'inclinèrent respectueusement: 
-— Salutations, Senior. Ces juniors sont des disciples de la Secte Nuage Blanc. Nous avons été impolis et espérons que le Senior nous pardonnera.
+— Salutations, Senior. Ces juniors sont des disciples de la Secte Ciel Nuageux. Nous avons été impolis et espérons que le Senior nous pardonnera.
 
 Wang Lin demanda simplement: 
-— Avez-vous 4 520 pièces d'or?
+— Avez-vous 4 500 pièces d'or?
 
 Ils se regardèrent, perplexes. En tant que cultivateurs, ils possédaient des pierres spirituelles, mais ils ne disposaient pas de beaucoup de l'or utilisé par les mortels. Bien sûr, avec du temps, ils auraient pu en réunir 4 000, voire 40 000.
 
@@ -74,7 +74,7 @@ Sur ces mots, Wang Lin renvoya le sac de rangement vers le cultivateur d'un gest
 
 Au moment où ils allaient heurter la porte, celle-ci s'ouvrit et ils furent expulsés de la boutique.
 
-Cette poussée les propulsa sur plus de dix kilomètres avant qu'ils ne parviennent à se stabiliser. Leurs regards trahissaient un choc et une horreur indicibles. À leurs yeux, la culture de ce jeune homme était bien trop puissante pour être mesurée.
+Cette poussée les propulsa sur plus de cinq kilomètres avant qu'ils ne parviennent à se stabiliser. Leurs regards trahissaient un choc et une horreur indicibles. À leurs yeux, la culture de ce jeune homme était bien trop puissante pour être mesurée.
 
 Après avoir réfléchi un instant, ils se considérèrent comme extrêmement chanceux et s'éclipsèrent rapidement. Ces deux cultivateurs étaient ceux du palais.
 

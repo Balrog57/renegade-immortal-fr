@@ -8,7 +8,7 @@ slug: ancetre
 ---
 Après être retourné dans sa chambre, Wang Lin s'assit en tailleur sur son lit. Il déploya son sens divin et laissa une trace de celui-ci autour de sa pièce afin de détecter toute personne tentant de l'explorer avec son propre sens divin.
 
-Par la suite, il sortit le mystérieux joyau et commença à réfléchir. Il y a environ trois jours, toutes les images nuageuses sur le joyau avaient disparu, remplacées par l'image d'une feuille.
+Par la suite, il sortit le mystérieux joyau et commença à réfléchir. Il y a environ trois jours, tous les symboles gravés sur le joyau avaient disparu, remplacées par l'image d'une feuille.
 
 À ce sujet, Situ Nan avait déclaré que le Joyau Défiant le Ciel contenait suffisamment d'élément eau et qu'il avait désormais besoin de l'élément bois. Pour cette raison, il avait exhorté Wang Lin à plusieurs reprises à quitter la Secte Heng Yue pour se procurer des matériaux dotés de l'élément bois afin de remplir rapidement le joyau.
 
@@ -16,7 +16,7 @@ Wang Lin avait pris conscience de sa puissance actuelle. Il se trouvait au 14èm
 
 Tout en tenant le joyau, il entra dans l'espace de rêve. Au moment où il s'apprêtait à y pénétrer, il rangea rapidement l'objet.
 
-Dès qu'il entra dans l'espace de rêve, Situ Nan dit avec mécontentement: « Pourquoi n'as-tu pas tué ces gens lors de la compétition plus tôt? Si c'était moi, j'aurais tué tous les mâles et aspiré toute l'essence des femelles, puis j'aurais utilisé cette centipède pour faire du vin. Ce serait très nutritif. Mais une chose que tu as faite et qui a plu à mes goûts, c'est d'avoir tué ce Sun Dazhu. Pas mal. Tout comme moi dans ma jeunesse. Wang Lin, souviens-toi que le monde de la culture est un endroit cruel. Les forts dévorent les faibles. Si tu persistes dans ta naïveté, je crains que tu ne vives pas longtemps. »
+Dès qu'il entra dans l'espace de rêve, Situ Nan dit avec mécontentement: « Pourquoi n'as-tu pas tué ces gens lors de la compétition plus tôt? Si c'était moi, j'aurais tué tous les mâles et aspiré toute l'essence des femelles, puis j'aurais utilisé ce centipède pour faire du vin. Ce serait très nutritif. Mais une chose que tu as faite et qui a plu à mes goûts, c'est d'avoir tué ce Sun Dazhu. Pas mal. Tout comme moi dans ma jeunesse. Wang Lin, souviens-toi que le monde de la culture est un endroit cruel. Les forts dévorent les faibles. Si tu persistes dans ta naïveté, je crains que tu ne vives pas longtemps. »
 
 Wang Lin réfléchit longuement. « Aîné, la prochaine étape doit-elle être la préparation à l'Établissement des Fondations? Junior ne connaît aucun chant pour accéder à l'Établissement des Fondations. »
 
