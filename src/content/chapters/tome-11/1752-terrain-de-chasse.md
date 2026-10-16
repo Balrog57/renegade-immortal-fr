@@ -8,7 +8,7 @@ slug: terrain-de-chasse
 ---
 Chapitre 1752 - Terrain de chasse!
 
-Au moment où la troisième âme apparut, tous les regards, à l'exception de ceux du Maître Maître du Dao Rêve Bleu et de la troisième concubine, se fixèrent sur la main droite de Wang Lin. En particulier, les yeux du Taoïste aux Sept Couleurs, du Vieux Fantôme Zhan et des quatre généraux étaient empreints d'une cupidité et d'un désir, qu'ils soient manifestes ou dissimulés.
+Au moment où la troisième âme apparut, tous les regards, à l'exception de ceux du Maître du Dao Rêve Bleu et de la troisième concubine, se fixèrent sur la main droite de Wang Lin. En particulier, les yeux du Taoïste aux Sept Couleurs, du Vieux Fantôme Zhan et des quatre généraux étaient empreints d'une cupidité et d'un désir, qu'ils soient manifestes ou dissimulés.
 
 « Ceci est une chasse! Vous pouvez être le chasseur, ou je peux l'être... Vous pourriez me tuer pour obtenir la troisième âme, mais quiconque s'aventure ici doit être prêt à être tué par moi...
 
@@ -56,7 +56,7 @@ Peu après suivit le Vieux Fantôme Zhan. Il ne permettrait jamais au Taoïste a
 
 La troisième personne à entrer fut le Souverain. Il se mua en une ombre et fonça vers la porte. Il hésita un instant, puis serra les dents et entra à son tour.
 
-Après ces trois-là vint le Maître Maître du Dao Rêve Bleu. Depuis le début, il était resté calme. Il arriva lentement devant la porte, poussa un soupir et s'engouffra à l'intérieur.
+Après ces trois-là vint le Maître du Dao Rêve Bleu. Depuis le début, il était resté calme. Il arriva lentement devant la porte, poussa un soupir et s'engouffra à l'intérieur.
 
 Après un bref silence, tous les autres finirent par prendre leur décision et entrèrent, chacun poursuivant des desseins différents. Cependant, la plupart ne pensaient pas que Wang Lin puisse conserver la troisième âme. Il était fort probable qu'un nouveau Souverain aux Sept Couleurs émerge de ce duel entre le Taoïste aux Sept Couleurs et le Vieux Fantôme Zhan!
 
@@ -70,7 +70,7 @@ Ce n'est qu'une fois tout le monde disparu que Xuan Luo émergea du vide. Il obs
 
 Le monde de la grotte était toujours enveloppé de brume, mais les grondements qui l'avaient ébranlé finirent par s'apaiser jusqu'au silence total. À Luotian, la porte du cœur du monde de la grotte restait ouverte, comme si elle attendait tous ceux qui étaient dignes d'y entrer.
 
-Cependant, le cœur de la grotte n'était accessible qu'aux êtres possédant le lignage du Continent Astral Immortel. Pour les autres, la seule option était d'emprunter une âme, à l'instar du Maître Maître du Dao Rêve Bleu!
+Cependant, le cœur de la grotte n'était accessible qu'aux êtres possédant le lignage du Continent Astral Immortel. Pour les autres, la seule option était d'emprunter une âme, à l'instar du Maître du Dao Rêve Bleu!
 
 Tous les cultivateurs ayant remarqué ce changement attendaient silencieusement que la première personne sorte de la porte. La situation était identique dans les Royaumes Intérieur et Extérieur. Quelques rares individus connaissant le secret de ce lieu, tels que Qing Shui et Situ, observaient la scène depuis le Royaume Céleste.
 

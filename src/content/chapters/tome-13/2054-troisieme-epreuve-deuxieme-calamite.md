@@ -94,7 +94,7 @@ La femme fut surprise.
 
 « Ton parrain? » s'étonna-t-elle.
 
-« Parrain, j'ai pris une descendante de Seigneur Song pour épouse. Elle sera la future impératrice de l'Ancient Shi. Aujourd'hui, je l'ai amenée ici pour lui rendre hommage! » Ji Du parlait avec un respect profond, venant du plus profond de son cœur.
+« Parrain, j'ai pris une descendante du Seigneur Song pour épouse. Elle sera la future impératrice de l'Ancient Shi. Aujourd'hui, je l'ai amenée ici pour lui rendre hommage! » Ji Du parlait avec un respect profond, venant du plus profond de son cœur.
 
 Il se souviendrait à jamais que tout ce qu'il possédait lui avait été accordé par Wang Lin. Il n'oublierait jamais que sans lui, il n'aurait jamais eu la moindre chance de devenir empereur. Même la femme à ses côtés ne serait pas sa femme; elle appartiendrait à Chi Man.
 

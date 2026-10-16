@@ -74,13 +74,13 @@ Wang Lin connaissait bien ce soupir. En l'entendant, son cœur sombra. Il tourna
 
 « Laissez-les revenir », dit lentement l'homme d'âge mûr en fixant Wang Lin.
 
-« Maître Maître du Dao Rêve Bleu! » Les pupilles du Maître South Cloud, occupé à réparer la Formation de Scellement du Royaume, se rétractèrent. Le Maître Maître du Dao Rêve Bleu avait déjà atteint le sommet du stade du Vide Arcanique; il n'était donc pas son égal!
+« Maître du Dao Rêve Bleu! » Les pupilles du Maître South Cloud, occupé à réparer la Formation de Scellement du Royaume, se rétractèrent. Le Maître du Dao Rêve Bleu avait déjà atteint le sommet du stade du Vide Arcanique; il n'était donc pas son égal!
 
-La puissance d'un cultivateur au sommet du Vide Arcanique était terrifiante au-delà de l'imagination! Parmi les cinq maîtres, ni le Maître Démon Neuf Cieux ni le Maître Dao Miao Yin ne pouvaient rivaliser avec le Maître Maître du Dao Rêve Bleu. Il n'y avait qu'une infime différence dans leurs niveaux de culture, mais cette mince marge était un gouffre!
+La puissance d'un cultivateur au sommet du Vide Arcanique était terrifiante au-delà de l'imagination! Parmi les cinq maîtres, ni le Maître Démon Neuf Cieux ni le Maître Dao Miao Yin ne pouvaient rivaliser avec le Maître du Dao Rêve Bleu. Il n'y avait qu'une infime différence dans leurs niveaux de culture, mais cette mince marge était un gouffre!
 
 Presque personne ne pouvait contraindre le Souverain à changer d'avis. Miao Yin ne le pouvait pas, Neuf Cieux non plus, mais Rêve Bleu le pouvait!
 
-Le Maître Hong Shan, qui combattait le jeune homme au regard froid, devint lui aussi grave. Le nom du Maître Maître du Dao Rêve Bleu était trop célèbre pour être ignoré!
+Le Maître Hong Shan, qui combattait le jeune homme au regard froid, devint lui aussi grave. Le nom du Maître du Dao Rêve Bleu était trop célèbre pour être ignoré!
 
 La main droite de Wang Lin marqua un temps d'arrêt tandis qu'il observait l'homme d'âge mûr. Le fracas du massacre résonnait encore à ses oreilles. Après un long moment, il secoua la tête.
 
@@ -94,7 +94,7 @@ Wang Lin réfléchit en silence face à l'homme d'âge mûr, puis, un instant pl
 
 Dès que cette structure apparut, l'ombrelle se déploya lentement et le Parapluie Brûleur de Royaume surgit soudainement!
 
-Le Maître Maître du Dao Rêve Bleu observa Wang Lin intensément et secoua la tête dans un soupir.
+Le Maître du Dao Rêve Bleu observa Wang Lin intensément et secoua la tête dans un soupir.
 
 « Par égard pour ma fille, je t'ai transmis des sorts et une technique du Dao pour éviter l'attaque de la concubine impériale céleste. C'était la première fois! »
 
@@ -102,11 +102,11 @@ Le Maître Maître du Dao Rêve Bleu observa Wang Lin intensément et secoua la 
 
 « Aujourd'hui est la troisième fois! »
 
-« Cependant, Wang Lin, souviens-toi qu'il n'y aura pas de quatrième fois. À la quatrième, j'attaquerai... » Le Maître Maître du Dao Rêve Bleu détourna le regard et se retourna. Il fit fi de tout et disparut dans un éclat de lumière bleue!
+« Cependant, Wang Lin, souviens-toi qu'il n'y aura pas de quatrième fois. À la quatrième, j'attaquerai... » Le Maître du Dao Rêve Bleu détourna le regard et se retourna. Il fit fi de tout et disparut dans un éclat de lumière bleue!
 
 À l'instant même de sa disparition, le Parapluie Brûleur de Royaume se manifesta pleinement. L'ombrelle n'était pas encore totalement ouverte, mais un feu éternel et destructeur s'en dégageait déjà!
 
-En regardant là où le Maître Maître du Dao Rêve Bleu avait disparu, l'ombre ténue d'une femme apparut devant lui. La femme secouait la tête avec un léger sourire. Ces paroles prononcées des centaines d'années plus tôt résonnèrent dans son esprit:
+En regardant là où le Maître du Dao Rêve Bleu avait disparu, l'ombre ténue d'une femme apparut devant lui. La femme secouait la tête avec un léger sourire. Ces paroles prononcées des centaines d'années plus tôt résonnèrent dans son esprit:
 
 « Oublions-nous... » La perte de vitalité fit pâlir l'ombre de la femme. Toute la vitalité du corps de Wang Lin se précipita vers le Parapluie Brûleur de Royaume, se transformant en une force capable de soutenir l'ouverture de cette arme!
 

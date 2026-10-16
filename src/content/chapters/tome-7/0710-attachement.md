@@ -64,7 +64,7 @@ Peu après, Qian Kuizi laissa échapper un soupir. Les paroles de l'ancêtre de 
 
 Le regard de Wang Lin resta serein alors qu'il répondit lentement: « Parlez. »
 
-Qian Kuizi fixa Wang Lin et dit: « Je souhaiterais voir le jeton du Temple Céleste du Tonnerre de Seigneur Messager! » Son regard se fit étroit. Si cet homme ne pouvait produire de jeton, il était un imposteur; mais s'il en possédait un... Qian Kuizi prendrait alors sa décision.
+Qian Kuizi fixa Wang Lin et dit: « Je souhaiterais voir le jeton du Temple Céleste du Tonnerre du Seigneur Messager! » Son regard se fit étroit. Si cet homme ne pouvait produire de jeton, il était un imposteur; mais s'il en possédait un... Qian Kuizi prendrait alors sa décision.
 
 Wang Lin lança un regard froid à Qian Kuizi. Sans perdre un instant, il frappa son sac de rangement et le jade du Daoïste du Tonnerre en sortit. Des éclats de foudre jaillirent immédiatement du jade, et une puissance tonnante se propagea dans l'air.
 

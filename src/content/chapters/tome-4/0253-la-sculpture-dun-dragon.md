@@ -93,7 +93,7 @@ Puis, il se retourna brusquement et lança d'une voix forte:
 
 Wang Lin sourit. Da Niu avait manifestement remarqué que Wang Lin manquait de clients cette année; alors, dès qu'un homme fortuné passait par là, il l'attirait de toutes ses forces vers la boutique.
 
-Le jeune homme nommé Xu inspecta l'échoppe, le regard de plus en plus vif. Il était bien différent de Da Niu. Ayant beaucoup voyagé et étant devenu le confident du fils de Seigneur Nan, il pouvait déceler d'un seul coup d'œil que la qualité de ces œuvres surpassait de loin celle du célèbre charpentier Zhou.
+Le jeune homme nommé Xu inspecta l'échoppe, le regard de plus en plus vif. Il était bien différent de Da Niu. Ayant beaucoup voyagé et étant devenu le confident du fils du Seigneur Nan, il pouvait déceler d'un seul coup d'œil que la qualité de ces œuvres surpassait de loin celle du célèbre charpentier Zhou.
 
 Bien que les sculptures de Zhou fussent très réalistes, elles manquaient de quelque chose. Après réflexion, il comprit enfin: ce qui manquait aux œuvres de Zhou, c'était « la vie »!
 

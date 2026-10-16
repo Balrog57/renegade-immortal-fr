@@ -112,9 +112,9 @@ C'était là que se trouvait le temple ancestral.
 
 Le prince héritier et Chi Man étaient livides et semblaient sur le point de parler. L'empereur de l'Ancient Shi parut comprendre la situation et, après un soupir, prit la parole pour la première fois:
 
-« Le fait que mon enfant ait un parrain tel que Seigneur Wang est sa chance et une gloire pour notre Ancient Shi. Je ne suis pas l'Empereur du Dao Antique, je ne forcerai donc pas Seigneur Wang à partir, car cela causerait un désastre pour les nôtres...
+« Le fait que mon enfant ait un parrain tel que le Seigneur Wang est sa chance et une gloire pour notre Ancient Shi. Je ne suis pas l'Empereur du Dao Antique, je ne forcerai donc pas Seigneur Wang à partir, car cela causerait un désastre pour les nôtres...
 
-« Je demande à Seigneur Wang de rester parmi nous dans l'Ancient Shi. Si vous avez la moindre requête, je ferai tout mon possible pour y satisfaire! » Le vieil homme en robe royale joignit les mains et s'inclina devant Wang Lin.
+« Je demande au Seigneur Wang de rester parmi nous dans l'Ancient Shi. Si vous avez la moindre requête, je ferai tout mon possible pour y satisfaire! » Le vieil homme en robe royale joignit les mains et s'inclina devant Wang Lin.
 
 À ce moment-là, Song Tian sourit et dit à Wang Lin: « Si le Frère Wang n'a nulle part où aller, pourquoi ne pas rester ici pour assister au couronnement de Ji Du dans cent ans? »
 

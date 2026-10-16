@@ -24,11 +24,11 @@ Cette aura n'était pas étrangère à Wang Lin. Lorsque la statue du démon anc
 
 Dans la Mer de Nuages, lors du combat contre le Daoïste de l'Eau, le dernier sort utilisé par ce dernier contenait également cette aura...
 
-La conversation avec le Seigneur du Royaume Scellé et le Maître Maître du Dao Rêve Bleu pointait tous vers la clé pour devenir un cultivateur de la troisième étape: les Flammes de Joss!
+La conversation avec le Seigneur du Royaume Scellé et le Maître du Dao Rêve Bleu pointait tous vers la clé pour devenir un cultivateur de la troisième étape: les Flammes de Joss!
 
 Wang Lin ne comprenait pas ce que sont les Flammes de Joss ni comment elles étaient créées. Cependant, en fusionnant le Monde du Vent et de la Pluie avec le Sceau Céleste, cette scène s'était déployée, ce qui ne fit qu'accroître sa confusion.
 
-Ces âmes de guerriers étaient toutes des personnes qu'il avait tuées, mais elles étaient devenues des disciples lui fournissant des Flammes de Joss. C'était la fortune de Wang Lin, l'héritage du Seigneur du Royaume Scellé et une mutation presque impossible à reproduire. Même le Maître Maître du Dao Rêve Bleu n'aurait jamais imaginé que l'enseignement du sort de fusion à Wang Lin engendrerait un tel changement.
+Ces âmes de guerriers étaient toutes des personnes qu'il avait tuées, mais elles étaient devenues des disciples lui fournissant des Flammes de Joss. C'était la fortune de Wang Lin, l'héritage du Seigneur du Royaume Scellé et une mutation presque impossible à reproduire. Même le Maître du Dao Rêve Bleu n'aurait jamais imaginé que l'enseignement du sort de fusion à Wang Lin engendrerait un tel changement.
 
 Le Sceau Céleste était formé d'un fragment du Royaume Céleste du Tonnerre. Ce dernier avait été créé il y a des éons par le Seigneur du Royaume Scellé afin d'empêcher la Formation de Scellement du Royaume d'absorber les Flammes de Joss du Royaume Intérieur, permettant ainsi à ces dernières d'apparaître dans le Royaume Intérieur.
 
@@ -40,7 +40,7 @@ Wang Lin avait involontairement utilisé cet objet pour son Arsenal Magique. En 
 
 Cependant, sans une opportunité de l'activer, ce pouvoir se serait lentement dissipé. Wang Lin n'aurait jamais remarqué d'anomalie, car ces âmes de guerriers étaient simplement entourées du pouvoir créateur des Flammes de Joss sans jamais le libérer.
 
-Cette opportunité survint lorsque le Maître Maître du Dao Rêve Bleu fusionna l'Appel du Vent et la Convocation de la Pluie en un monde! C'était comme donner des racines à une plante dépourvue de racines!
+Cette opportunité survint lorsque le Maître du Dao Rêve Bleu fusionna l'Appel du Vent et la Convocation de la Pluie en un monde! C'était comme donner des racines à une plante dépourvue de racines!
 
 Puis, Wang Lin tenta de fusionner l'Arsenal Magique et le Monde du Vent et de la Pluie. Cela permit à ce changement, à cette opportunité, d'éclore!
 
@@ -108,6 +108,6 @@ Au moment même de sa mort, l'âme du vieil homme apparut sur un continent à l'
 
 « Ce vieil homme n'avait jamais vu le Souverain de sa vie. Il savait seulement qu'il y a fort longtemps, le Souverain avait fui le Royaume Intérieur gravement blessé et s'était réfugié dans un lieu mystérieux pour guérir! »
 
-« Conjugué aux paroles du Maître Maître du Dao Rêve Bleu, l'idée que le Souverain ait été blessé par le rugissement de quelque chose dans le Royaume Intérieur avant de fuir en panique est crédible! Le Souverain est en culture fermée à cause de ses blessures... Je ne sais simplement pas à quel point il s'est rétabli... » Les yeux de Wang Lin devinrent froids alors qu'il levait les yeux vers le ciel.
+« Conjugué aux paroles du Maître du Dao Rêve Bleu, l'idée que le Souverain ait été blessé par le rugissement de quelque chose dans le Royaume Intérieur avant de fuir en panique est crédible! Le Souverain est en culture fermée à cause de ses blessures... Je ne sais simplement pas à quel point il s'est rétabli... » Les yeux de Wang Lin devinrent froids alors qu'il levait les yeux vers le ciel.
 
 « Il est temps de partir... Cette femme en blanc doit encore m'attendre là-bas... »

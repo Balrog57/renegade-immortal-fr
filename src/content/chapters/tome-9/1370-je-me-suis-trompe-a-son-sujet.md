@@ -42,21 +42,21 @@ Fixant cette scène avec stupéfaction, le visage de Maître Simo pâlit instant
 
 « Comment est-ce possible?! Personne ne peut achever son essence sans utiliser de Flammes Joss. Personne ne peut déclencher le Portail du Vide sans utiliser de Flammes Joss! » Maître Simo dissimula progressivement la terreur dans ses yeux pour la remplacer par un calme et une sérénité de façade. Il fit ensuite un pas en avant et se déplaça à une vitesse plusieurs fois supérieure à celle de son arrivée, poursuivant anxieusement Wang Lin sur sa trace.
 
-Au moment où l'essence du tonnerre de Wang Lin atteignit son apogée et invoqua le Portail du Vide, au sein du Clan de la Soie Bleue, les mains du Maître Maître du Dao Rêve Bleu tremblèrent soudainement sur la cithare. Il leva la tête, agita ses manches et sortit précipitamment de la pièce.
+Au moment où l'essence du tonnerre de Wang Lin atteignit son apogée et invoqua le Portail du Vide, au sein du Clan de la Soie Bleue, les mains du Maître du Dao Rêve Bleu tremblèrent soudainement sur la cithare. Il leva la tête, agita ses manches et sortit précipitamment de la pièce.
 
 Li Qianmei était assise sur une chaise en observant son père, sans dire un mot. Pourtant, la confusion dans ses yeux avait disparu, remplacée par une clarté limpide. Il semblait qu'elle s'était remémoré beaucoup de choses. Elle se leva alors avec douceur et sortit à son tour.
 
-Dès que le Maître Maître du Dao Rêve Bleu franchit le seuil de la pièce, il agita sa main droite. Une lumière bleue infinie envahit le ciel et se condensa rapidement en images animées!
+Dès que le Maître du Dao Rêve Bleu franchit le seuil de la pièce, il agita sa main droite. Une lumière bleue infinie envahit le ciel et se condensa rapidement en images animées!
 
 Ces images retranscrissaient les trois tentatives de Wang Lin pour briser le Portail du Vide!
 
-Le Maître Maître du Dao Rêve Bleu fixa ces visions et les examina minutieusement. Son expression devint progressivement plus solennelle jusqu'à ce qu'il soit saisi par le choc. C'était une réaction très rare de voir sur le visage du Maître Maître du Dao Rêve Bleu.
+Le Maître du Dao Rêve Bleu fixa ces visions et les examina minutieusement. Son expression devint progressivement plus solennelle jusqu'à ce qu'il soit saisi par le choc. C'était une réaction très rare de voir sur le visage du Maître du Dao Rêve Bleu.
 
-« Ton père... a sous-estimé un homme... C'est la première fois que je me trompe... » Après un long moment, le Maître Maître du Dao Rêve Bleu poussa un soupir, l'incrédulité brillant toujours dans ses yeux.
+« Ton père... a sous-estimé un homme... C'est la première fois que je me trompe... » Après un long moment, le Maître du Dao Rêve Bleu poussa un soupir, l'incrédulité brillant toujours dans ses yeux.
 
 « Vous continuerez à vous tromper. Personne ne peut percer son avenir. Même si vous étiez l'un des Cinq Maîtres du Système Stellaire Antique, vous n'y parviendriez pas. » Li Qianmei regarda l'homme tentant de briser le vide sur les images et sourit doucement.
 
-« Tu... tu blâmes ton père...? » Le Maître Maître du Dao Rêve Bleu regarda sa fille avec une expression complexe.
+« Tu... tu blâmes ton père...? » Le Maître du Dao Rêve Bleu regarda sa fille avec une expression complexe.
 
 Li Qianmei secoua la tête et dit doucement: « Je n'ai pas retrouvé tous mes souvenirs, seulement quelques fragments. Si je l'avais vraiment oublié, il aurait été préférable que nous ne nous rencontrions plus jamais. Mais puisque je me souviens de certaines choses, je ne lâcherai pas prise... Quand ma mémoire sera restaurée, j'irai le retrouver. »
 

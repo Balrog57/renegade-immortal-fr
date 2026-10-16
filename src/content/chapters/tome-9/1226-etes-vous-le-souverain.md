@@ -118,4 +118,4 @@ Même cette existence mystérieuse, restée imperturbable durant d'innombrables 
 
 « Êtes-vous le Souverain du Domaine Extérieur? » Wang Lin s'élança dans les airs pour charger l'annulaire.
 
-« Ce vieil homme est issu du Clan de la Soie Bleue de l'Ancien Haut, le Maître Dao du Rêve Bleu! »
+« Ce vieil homme est issu du Clan de la Soie Bleue de l'Ancien Haut, le Maître du Dao Rêve Bleu! »

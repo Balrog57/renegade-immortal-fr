@@ -46,7 +46,7 @@ Au moment où sa main pressa le front de Wang Lin, une infime fluctuation émana
 
 Après un long moment, la main se retira et une voix rauque s'éleva de la bouche du vieil homme en vert.
 
-« Vous pouvez partir. Une fois que Seigneur Démon Vert sera ressuscité, vous recevrez ce qui vous a été promis! »
+« Vous pouvez partir. Une fois que le Seigneur Démon Vert sera ressuscité, vous recevrez ce qui vous a été promis! »
 
 À l'extérieur du bâtiment du scorpion, les yeux du maître de la Secte Dao Démoniaque brillèrent d'une lueur étrange. Il jeta un dernier regard au temple avant de disparaître.
 
@@ -94,11 +94,11 @@ Cette ondulation verte avait été générée par le sang frais que Ji Si avait 
 
 Ce n'est qu'à ce moment que le vieil homme en robe verte se détendit complètement et éclata d'un rire sonore. Cependant, dans son hilarité, il commença à tousser violemment.
 
-« Il n'y a plus de problème désormais. Ce corps ne possède plus de conscience ni d'esprit, mais... il est encore trop faible... Il doit encore être cultivé un peu avant de pouvoir supporter la descente de Seigneur Démon Vert... »
+« Il n'y a plus de problème désormais. Ce corps ne possède plus de conscience ni d'esprit, mais... il est encore trop faible... Il doit encore être cultivé un peu avant de pouvoir supporter la descente du Seigneur Démon Vert... »
 
-« Bien qu'il possède huit essences, il lui manque la terre... L'essence de Seigneur Démon Vert est la terre... Je dois l'ajouter... »
+« Bien qu'il possède huit essences, il lui manque la terre... L'essence du Seigneur Démon Vert est la terre... Je dois l'ajouter... »
 
-« Ce corps a huit essences, et avec l'essence de la terre, il en aura neuf... Neuf essences réunies feront de lui un Corps d'Essence. Une correspondance parfaite pour l'arrivée de Seigneur Démon Vert. Une fois qu'il aura ressuscité et possédé ce corps, j'aurai accompli la mission de ma famille. Je pourrai alors retourner dans le Continent Central et apporter la fortune à mon lignage... »
+« Ce corps a huit essences, et avec l'essence de la terre, il en aura neuf... Neuf essences réunies feront de lui un Corps d'Essence. Une correspondance parfaite pour l'arrivée du Seigneur Démon Vert. Une fois qu'il aura ressuscité et possédé ce corps, j'aurai accompli la mission de ma famille. Je pourrai alors retourner dans le Continent Central et apporter la fortune à mon lignage... »
 
 « Cette affaire est trop cruciale, je dois encore me préparer davantage... »
 

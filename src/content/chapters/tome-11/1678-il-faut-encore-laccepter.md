@@ -28,7 +28,7 @@ D'innombrables âmes de flammes de Joss mortes flottaient parmi les étoiles, te
 
 Après quelques coups d'œil, Wang Lin put ressentir la férocité de la bataille. Il ne vit pas l'autre arbre, mais il vit Rêve Bleu pénétrer dans le cercle de la formation pour arriver devant lui.
 
-Le Maître Maître du Dao Rêve Bleu paraissait épuisé. Il semblait que même pour lui, affronter les trois d'entre eux n'était pas une mince affaire.
+Le Maître du Dao Rêve Bleu paraissait épuisé. Il semblait que même pour lui, affronter les trois d'entre eux n'était pas une mince affaire.
 
 « Miao Yin est gravement blessé, au point qu'il ne pourra pas retrouver son niveau de culture maximal avant cent ans. Son niveau a chuté au stade Vide Spirituel; la prochaine fois que vous le croiserez, vous pourrez le tuer! »
 
@@ -42,7 +42,7 @@ Wang Lin réfléchit silencieusement et, après un long moment, prit la parole d
 
 « J'ai déjà une femme pour toute une vie... »
 
-Le Maître Maître du Dao Rêve Bleu ouvrit les yeux et fixa Wang Lin, le visage assombri.
+Le Maître du Dao Rêve Bleu ouvrit les yeux et fixa Wang Lin, le visage assombri.
 
 « Même avec mon aide, tu ne changeras pas d'avis... Ce vieux ne te demande pas d'abandonner ta femme, mais de faire une promesse à ma fille! »
 
@@ -62,19 +62,19 @@ Tout ce qu'il avait accompli, il le disait vrai: tout était pour sa fille.
 
 Li Qianmei versa des larmes. Elle comprenait enfin ce que son père avait fait pour elle, tout ce qu'il avait sacrifié...
 
-Wang Lin afficha un regard tourmenté. Il se leva et joignit les mains en signe de respect devant le Maître Maître du Dao Rêve Bleu.
+Wang Lin afficha un regard tourmenté. Il se leva et joignit les mains en signe de respect devant le Maître du Dao Rêve Bleu.
 
 « Ce junior ne doute pas de ce que le Senior a accompli... »
 
-« Ne dis rien de plus, tu... » Le Maître Maître du Dao Rêve Bleu vit les larmes de Li Qianmei et son cœur s'adoucit. Il fixa Wang Lin et avala ses paroles.
+« Ne dis rien de plus, tu... » Le Maître du Dao Rêve Bleu vit les larmes de Li Qianmei et son cœur s'adoucit. Il fixa Wang Lin et avala ses paroles.
 
-« Ce vieux peut faire un pas en arrière. Je veux que tu me fasses une promesse. Si ta femme ressuscite, alors toi et ma fille deviendrez frère et sœur; mais si ta femme ne peut finalement pas être ressuscitée, tu deviendras le partenaire de culture de ma fille! C'est ma limite. Wang Lin, choisis sagement! » L'expression du Maître Maître du Dao Rêve Bleu était glaciale.
+« Ce vieux peut faire un pas en arrière. Je veux que tu me fasses une promesse. Si ta femme ressuscite, alors toi et ma fille deviendrez frère et sœur; mais si ta femme ne peut finalement pas être ressuscitée, tu deviendras le partenaire de culture de ma fille! C'est ma limite. Wang Lin, choisis sagement! » L'expression du Maître du Dao Rêve Bleu était glaciale.
 
 Wang Lin songea en silence. Il se leva et regarda au loin. Après un long moment, ses yeux étaient empreints de confusion alors que son regard dérivait vers Li Qianmei. Il vit ses larmes et la façon dont elle baissait la tête pour fuir son regard.
 
-« Tu... Laisse tomber, ce vieux ne veut pas de réponse immédiate. Réfléchis-y et reviens me trouver au sein du clan Soie Bleue! » Le Maître Maître du Dao Rêve Bleu se leva, décidant de ne plus cultiver ici. En voyant la tristesse dans le regard de sa fille, il ressentit un pincement au cœur. Il était venu avec l'espoir que tout s'arrangerait et que Wang Lin accepterait, mais cela se terminait ainsi.
+« Tu... Laisse tomber, ce vieux ne veut pas de réponse immédiate. Réfléchis-y et reviens me trouver au sein du clan Soie Bleue! » Le Maître du Dao Rêve Bleu se leva, décidant de ne plus cultiver ici. En voyant la tristesse dans le regard de sa fille, il ressentit un pincement au cœur. Il était venu avec l'espoir que tout s'arrangerait et que Wang Lin accepterait, mais cela se terminait ainsi.
 
-« Papa, partons... » Li Qianmei essuya ses larmes et se leva doucement pour rejoindre le Maître Maître du Dao Rêve Bleu.
+« Papa, partons... » Li Qianmei essuya ses larmes et se leva doucement pour rejoindre le Maître du Dao Rêve Bleu.
 
 « Papa, avant, Meng Er ne comprenait pas, mais maintenant je comprends. Rentrons à la maison... Une fois rentrés, ne repartons plus jamais... » Li Qianmei prit la main de son père et sentit sa chaleur. Elle regarda Wang Lin et sourit.
 
@@ -98,7 +98,7 @@ Ce rouleau contenait le tableau de paysages « S'oublier dans ce monde ». Wang 
 
 Il ne pouvait plus offrir ce présent avec la même sérénité qu'autrefois à la femme qui se tenait devant lui.
 
-Le Maître Maître du Dao Rêve Bleu observa la scène, et la colère dans ses yeux fit place à la tristesse. Il regarda Li Qianmei et comprit que le cœur de sa fille était mort.
+Le Maître du Dao Rêve Bleu observa la scène, et la colère dans ses yeux fit place à la tristesse. Il regarda Li Qianmei et comprit que le cœur de sa fille était mort.
 
 Son cœur était brisé.
 

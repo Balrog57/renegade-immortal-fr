@@ -90,7 +90,7 @@ Sous cette violence, des craquements sinistres retentirent devant le Maître Dé
 
 « Je suis bien venu pour t'envoyer à la réincarnation, et non pour te tuer! » Les paroles calmes de Wang Lin résonnèrent. Ce fut le dernier son que Neuf Cieux entendit. Lorsque la paume de Wang Lin percuta sa cible, son âme fut scellée et emportée par Wang Lin.
 
-Wang Lin avait aisément scellé le Maître Démon Neuf Cieux, pourtant affaibli par le Maître Maître du Dao Rêve Bleu. Entre son arrivée et le sceau final, il ne s'était écoulé que quelques respirations. Les yeux de Wang Lin devinrent froids alors qu'il tournait son regard vers l'ouest.
+Wang Lin avait aisément scellé le Maître Démon Neuf Cieux, pourtant affaibli par le Maître du Dao Rêve Bleu. Entre son arrivée et le sceau final, il ne s'était écoulé que quelques respirations. Les yeux de Wang Lin devinrent froids alors qu'il tournait son regard vers l'ouest.
 
 Il sentait que c'était là que Miao Yin se soignait.
 

@@ -64,7 +64,7 @@ Plus il spéculait, plus son cœur se glaçait. Mais son regard ne parvenait pas
 
 « Ce ne sont que des suppositions... Peut-être n'est-ce pas ce que je pense... Cependant, cela signifierait que la Formation du Royaume Scellé n'est pas ce que le Seigneur du Royaume Scellé avait affirmé. Elle n'a pas été placée là simplement pour piéger les habitants du Royaume Intérieur... »
 
-« De plus, la femme en argent a dit que les Flammes Joss étaient toxiques et une escroquerie... Si l'on joint cela aux paroles du Maître Maître du Dao Rêve Bleu sur le Souverain, gravement blessé par quelqu'un du Royaume Intérieur avant de s'enfuir dans la panique avec un rugissement... Tout cela est-il lié? Quel genre de secret enveloppe les Royaumes Intérieur et Extérieur? »
+« De plus, la femme en argent a dit que les Flammes Joss étaient toxiques et une escroquerie... Si l'on joint cela aux paroles du Maître du Dao Rêve Bleu sur le Souverain, gravement blessé par quelqu'un du Royaume Intérieur avant de s'enfuir dans la panique avec un rugissement... Tout cela est-il lié? Quel genre de secret enveloppe les Royaumes Intérieur et Extérieur? »
 
 « Et quel rôle l'Ancien Royaume Céleste a-t-il joué dans tout cela... » Plus Wang Lin réfléchissait, plus il ressentait de la terreur. Un frisson rare secoua son esprit.
 

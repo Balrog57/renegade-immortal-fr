@@ -22,7 +22,7 @@ Lorsqu'elle s'en approcha, la branche explosa en une poudre noire qui enveloppa 
 
 Ensuite, la poudre fusionna avec la chair et le sang de Wang Lin. Elle s'enfonça profondément en lui, tandis que des bruits de craquements résonnaient dans tout son être. Son corps dégageait désormais une étrange sensation de robustesse, dépassant celle d'un corps du Dao Ancien. Non seulement il était extrêmement fort, mais il était aussi devenu résilient, le rendant très difficile à détruire.
 
-« Le regard de cette personne n'est pas assez tranchant pour subjuguer autrui. Bien que ce corps soit puissant, il manque de l'aura nécessaire pour dominer le monde. Je vais utiliser les fragments de l'épée céleste que Seigneur Démon Vert a brisés lors de son combat contre l'Ancêtre Céleste afin de créer cette aura de majesté pour ce corps! » Les yeux du vieil homme étaient empreints de folie. D'un revers de la main gauche, il envoya un morceau de métal de la taille d'une paume vers Wang Lin.
+« Le regard de cette personne n'est pas assez tranchant pour subjuguer autrui. Bien que ce corps soit puissant, il manque de l'aura nécessaire pour dominer le monde. Je vais utiliser les fragments de l'épée céleste que le Seigneur Démon Vert a brisés lors de son combat contre l'Ancêtre Céleste afin de créer cette aura de majesté pour ce corps! » Les yeux du vieil homme étaient empreints de folie. D'un revers de la main gauche, il envoya un morceau de métal de la taille d'une paume vers Wang Lin.
 
 Ce fragment était fait d'un matériau inconnu, un alliage entre le métal et le bois. De nombreuses lignes y dessinaient des caractères sombres. Dès son apparition, il emplit l'espace verdoyant d'une énergie d'épée infinie.
 
@@ -34,7 +34,7 @@ Le morceau de métal se rapprocha instantanément et pénétra dans le corps de 
 
 L'expression des deux Messagers du Scorpion Vert changea radicalement. Ils fixèrent le corps de Wang Lin avec une extrême gravité.
 
-« Bien que le corps de cette personne soit celui d'un clan ancien, le corps de Seigneur Démon Vert est plus puissant que celui du clan ancien, et sa culture surpasse celle du clan Céleste. Le corps de cet homme n'est encore pas assez fort... »
+« Bien que le corps de cette personne soit celui d'un clan ancien, le corps du Seigneur Démon Vert est plus puissant que celui du clan ancien, et sa culture surpasse celle du clan Céleste. Le corps de cet homme n'est encore pas assez fort... »
 
 « Bien que je ne puisse pas fusionner ses pouvoirs anciens et célestes — car plus sa lignée est pure, plus son pouvoir céleste sera rejeté — je dois créer une veine séparée afin d'éviter ce rejet. Ainsi, lorsque Seigneur Démon Vert descendra, il pourra atteindre le sommet de sa culture! » marmonna l'homme en robe verte. La folie dans ses yeux s'intensifia. D'un geste de sa manche, il projeta vers Wang Lin quatre feuilles, six pilules exhalant une odeur de sang, une ligne de sang rouge et trois pierres grises.
 
@@ -46,7 +46,7 @@ Si l'âme originelle de Wang Lin sortait de la Perle Défiant le Ciel, il pourra
 
 Malgré sa propre détermination, Wang Lin fut stupéfait par celle du vieil homme en robe verte. Cependant, ce n'était pas encore la fin; l'homme ne pouvait pas s'être contenté de ces quelques objets.
 
-« Une fois que Seigneur Démon Vert aura été ressuscité, il aura besoin d'un trésor tranchant capable de fendre le monde. Il ne serait pas opportun qu'il soit externe; il doit être un trésor interne pour véritablement impressionner Seigneur Démon Vert. »
+« Une fois que le Seigneur Démon Vert aura été ressuscité, il aura besoin d'un trésor tranchant capable de fendre le monde. Il ne serait pas opportun qu'il soit externe; il doit être un trésor interne pour véritablement impressionner Seigneur Démon Vert. »
 
 « Au fil des âges, mon clan a parcouru le monde pour rassembler plus de 90 000 types de matériaux Yin différents. Nous avons également payé n'importe quel prix pour obtenir un fragment d'âme provenant de vingt âmes supprimées du Continent de l'Est, afin de les raffiner ensemble et de forger cette lame Yin! »
 

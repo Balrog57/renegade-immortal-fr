@@ -56,7 +56,7 @@ L'opportunité d'obtenir une épée céleste qui ne serait pas détruite, même 
 
 Désormais, cette épée céleste appartiendrait éternellement à Wang Lin. Même Xu Liguo ne serait que le premier esprit d'épée de cette arme!
 
-Dans le Royaume Céleste, seuls ceux atteignant le rang de Seigneur Céleste pouvaient espérer une telle chance!
+Dans le Royaume Céleste, seuls ceux atteignant le rang du Seigneur Céleste pouvaient espérer une telle chance!
 
 Zhou Yi laissa échapper un soupir. Puis son corps devint flou et il pénétra dans l'épée céleste.
 

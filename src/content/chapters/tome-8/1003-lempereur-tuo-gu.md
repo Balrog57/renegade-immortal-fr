@@ -30,7 +30,7 @@ L'existence de la pierre noire pouvait tromper bien des gens, mais elle ne pouva
 
 Wang Lin regarda au loin et dit calmement: « D'accord! »
 
-L'homme d'âge moyen se leva, joignit ses mains et déclara: « Frère Wang, j'ai accompli la tâche que Seigneur Bei Lou m'a confiée. À présent, j'aimerais solliciter votre aide pour une affaire personnelle.
+L'homme d'âge moyen se leva, joignit ses mains et déclara: « Frère Wang, j'ai accompli la tâche que le Seigneur Bei Lou m'a confiée. À présent, j'aimerais solliciter votre aide pour une affaire personnelle.
 
 « L'esprit de mon Épée Impériale est la fille d'un bon ami. Cependant, en raison de certaines difficultés, elle ne pouvait échapper à la mort qu'en devenant l'esprit de mon épée. Elle est piégée ici depuis d'innombrables années et n'a jamais quitté la Terre des Esprits Démoniaques.
 

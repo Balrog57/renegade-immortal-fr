@@ -14,7 +14,7 @@ Le corps de Wang Lin trembla violemment. Même avec son corps de Dieu Ancien, il
 
 L'annulaire vacilla sous l'impact du coup de Wang Lin. Cependant, il ne cessa pas pour autant de charger vers lui!
 
-Des grondements tonitruants résonnèrent et l'expression de Wang Lin devint féroce. Il avait déjà utilisé ses sorts, ses trésors et sa Loi, mais il se trouvait toujours au creux de la paume. Il semblait que peu importait ses efforts, il ne pouvait échapper à la paume du Maître Dao du Rêve Bleu!
+Des grondements tonitruants résonnèrent et l'expression de Wang Lin devint féroce. Il avait déjà utilisé ses sorts, ses trésors et sa Loi, mais il se trouvait toujours au creux de la paume. Il semblait que peu importait ses efforts, il ne pouvait échapper à la paume du Maître du Dao Rêve Bleu!
 
 Toutefois, cela ne suffisait pas à le faire plier! Les yeux de Wang Lin étaient empreints de folie. Alors que l'annulaire descendait, Wang Lin se lança et l'attaqua avec acharnement.
 
@@ -100,9 +100,9 @@ Après le départ de Wang Lin, la paume du Royaume aux Sept Couleurs s'effondra 
 
 Une simple chaumière se trouvait au sommet de la montagne, oscillant doucement sous la brise. La porte s'ouvrit et un homme d'âge moyen au visage fatigué en sortit. Il leva les yeux vers le ciel et sa vue se troubla, comme si des larmes menaçaient de couler. Ses cheveux étaient bleus... Il contemplait l'azur, rempli de mélancolie.
 
-Si un habitant du Système Stellaire Antique avait vu cela, il en aurait été stupéfait. L'un des cinq maîtres du Système Stellaire Antique, le Maître Dao du Rêve Bleu, pouvait avoir un instant où il perdait le contrôle de ses émotions.
+Si un habitant du Système Stellaire Antique avait vu cela, il en aurait été stupéfait. L'un des cinq maîtres du Système Stellaire Antique, le Maître du Dao Rêve Bleu, pouvait avoir un instant où il perdait le contrôle de ses émotions.
 
-Le Maître Dao du Rêve Bleu était une légende dans le Système Stellaire Antique. Le Clan de la Soie Bleue n'était qu'une petite famille, mais grâce à cet homme qui avait balayé le système, le clan était devenu un géant que nul n'osait provoquer!
+Le Maître du Dao Rêve Bleu était une légende dans le Système Stellaire Antique. Le Clan de la Soie Bleue n'était qu'une petite famille, mais grâce à cet homme qui avait balayé le système, le clan était devenu un géant que nul n'osait provoquer!
 
 « Meng Er, notre fille est née de nouveau... Elle portait ton bracelet avant d'entrer dans le cycle des réincarnations, et il porte la bénédiction de ton Clan du Rêve des Nuages qu'elle a héritée de toi. Si elle ne l'avait pas donné personnellement, même si quelqu'un d'autre avait reçu le bracelet, sa bénédiction n'aurait pas surgi », murmura l'homme pour lui-même, plongé dans ses souvenirs.
 

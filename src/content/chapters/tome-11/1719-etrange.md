@@ -12,7 +12,7 @@ Chapitre 1719 - Étrange!
 
 Qing Lin regarda l'endroit où Wang Lin avait disparu, l'inquiétude se lisant sur son visage.
 
-« Ne t'en fais pas. Cet Omniscient ne vivra pas longtemps après avoir osé comploter contre mon gendre. » Les yeux du Maître Maître du Dao Rêve Bleu trahissaient une intention meurtrière. Il était partial: à ses yeux, Wang Lin était désormais comme son propre enfant. Bien qu'il parlât calmement, il était extrêmement en colère. D'un revers de manche, la lumière bleue l'enveloppa avant qu'il ne disparaisse de la montagne enneigée.
+« Ne t'en fais pas. Cet Omniscient ne vivra pas longtemps après avoir osé comploter contre mon gendre. » Les yeux du Maître du Dao Rêve Bleu trahissaient une intention meurtrière. Il était partial: à ses yeux, Wang Lin était désormais comme son propre enfant. Bien qu'il parlât calmement, il était extrêmement en colère. D'un revers de manche, la lumière bleue l'enveloppa avant qu'il ne disparaisse de la montagne enneigée.
 
 Les yeux de Qing Lin brillèrent d'un éclat vif et il s'élança à son tour vers le ciel. Avant de partir, son Sens Divin se propagea à travers tout le Royaume Céleste.
 
@@ -22,7 +22,7 @@ L'aura du Maître Hong Shan explosa depuis le centre du Royaume Céleste. Il s'e
 
 Derrière lui, le Maître South Cloud réfléchit un instant et choisit de rester. Après tout, les cultivateurs de la troisième étape étaient rares dans le Royaume Céleste; si tous partaient, ils se retrouveraient en position de faiblesse.
 
-Wang Lin jaillit de la rivière argentée entourant le Royaume Céleste pour se fondre dans le monde. Lorsqu'il réapparut, il se trouvait déjà dans la Rivière des Invocations. Bien qu'il parût calme, ses yeux étaient empreints d'une intention meurtrière. Beaucoup de choses restaient encore obscures, mais les paroles du Maître Maître du Dao Rêve Bleu lui avaient fait comprendre une chose essentielle.
+Wang Lin jaillit de la rivière argentée entourant le Royaume Céleste pour se fondre dans le monde. Lorsqu'il réapparut, il se trouvait déjà dans la Rivière des Invocations. Bien qu'il parût calme, ses yeux étaient empreints d'une intention meurtrière. Beaucoup de choses restaient encore obscures, mais les paroles du Maître du Dao Rêve Bleu lui avaient fait comprendre une chose essentielle.
 
 L'Omniscient complotait contre lui depuis longtemps, que ce soit sur la planète Suzaku ou dans la Terre des Esprits Démoniaques!
 
@@ -50,7 +50,7 @@ L'expression de l'Omniscient restait calme, exemptée de toute panique. Tandis q
 
 L'immense mer de feu se métamorphosa instantanément en un Oiseau Vermillon de feu. L'oiseau poussa un cri strident, battit des ailes et fonça sur Wang Lin.
 
-Wang Lin ne fut pas surpris. En entendant les paroles du Maître Maître du Dao Rêve Bleu, il s'y était préparé. En voyant l'Omniscient manipuler son essence de feu, l'intention meurtrière dans son cœur ne fit que croître!
+Wang Lin ne fut pas surpris. En entendant les paroles du Maître du Dao Rêve Bleu, il s'y était préparé. En voyant l'Omniscient manipuler son essence de feu, l'intention meurtrière dans son cœur ne fit que croître!
 
 Alors que l'Oiseau Vermillon se rapprochait, des flammes ravagèrent également l'œil gauche de Wang Lin. Un second Oiseau Vermillon géant apparut devant lui et chargea en avant.
 

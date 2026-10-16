@@ -18,7 +18,7 @@ Xuan Luo regarda l'Empereur du Dao Antique et dit calmement: « Ye Dao, en tant 
 
 « Puisque cette femme possède l'âme de l'épouse de Wang Lin, pourquoi vouloir la garder? Rends-la-lui simplement. Un être aussi puissant a décidé de rester dans mon Dao Antique; si tu agis ainsi, son cœur se refroidira. »
 
-« Son cœur se refroidira? Et alors, s'il devient froid? Tu es vieux, ne dis pas de futilités! Et Seigneur Xuan... Ceci est une affaire privée de la famille impériale. Vous êtes le gardien du Dao Antique. Auriez-vous oublié l'accord conclu avec le Grand Empereur Gu Dao? Cet individu s'est introduit dans le palais et a manqué de respect au pouvoir impérial. J'exige maintenant que Seigneur Xuan tue cet homme et remplisse son devoir! » dit froidement l'Empereur du Dao Antique, ignorant totalement la requête de Xuan Luo.
+« Son cœur se refroidira? Et alors, s'il devient froid? Tu es vieux, ne dis pas de futilités! Et Seigneur Xuan... Ceci est une affaire privée de la famille impériale. Vous êtes le gardien du Dao Antique. Auriez-vous oublié l'accord conclu avec le Grand Empereur Gu Dao? Cet individu s'est introduit dans le palais et a manqué de respect au pouvoir impérial. J'exige maintenant que le Seigneur Xuan tue cet homme et remplisse son devoir! » dit froidement l'Empereur du Dao Antique, ignorant totalement la requête de Xuan Luo.
 
 Il agissait ainsi car il était convaincu que personne n'oserait tuer Wang Lin, surtout pas lui.
 

@@ -98,6 +98,6 @@ De part et d'autre de l'engin, les visages du Daoïste aux Sept Couleurs et du V
 
 Le troisième à entrer fut le Souverain. Juste au moment où il allait franchir les ruines, son expression changea et il s'arrêta net. Ses yeux brillèrent et ses mains formèrent un sceau; il devint invisible pour se dissimuler.
 
-Derrière lui, le Maître Maître du Dao Rêve Bleu arriva. Ses yeux se plissèrent en observant les ruines en contrebas. Il esquissa soudain un sourire et avança jusqu'à entrer dans le fourneau, sans que les ruines sous ses pieds ne réagissent le moindrement.
+Derrière lui, le Maître du Dao Rêve Bleu arriva. Ses yeux se plissèrent en observant les ruines en contrebas. Il esquissa soudain un sourire et avança jusqu'à entrer dans le fourneau, sans que les ruines sous ses pieds ne réagissent le moindrement.
 
 Le Souverain, caché sur le côté, ne put s'empêcher de froncer les sourcils.

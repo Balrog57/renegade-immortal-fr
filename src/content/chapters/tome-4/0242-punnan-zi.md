@@ -30,7 +30,7 @@ Pu Nanzi se trouvait à la limite du stade de la Formation de l'Âme. Pour lui, 
 
 Pu Nanzi fixa les points lumineux sur la paroi. Après un long moment, il soupira et dit: « Teng Huayuan, qui as-tu offensé pour attirer une telle calamité sur toi? »
 
-« S'il n'était pas vrai que Seigneur Shi voulait spécifiquement utiliser la famille Teng comme cobaye, ce vieil homme ne voudrait vraiment pas s'encombrer des affaires de votre clan! » Le visage de Pu Nanzi devint lugubre. Même lui ignorait ce qui, dans la famille Teng, avait poussé Seigneur Shi à les choisir.
+« S'il n'était pas vrai que le Seigneur Shi voulait spécifiquement utiliser la famille Teng comme cobaye, ce vieil homme ne voudrait vraiment pas s'encombrer des affaires de votre clan! » Le visage de Pu Nanzi devint lugubre. Même lui ignorait ce qui, dans la famille Teng, avait poussé Seigneur Shi à les choisir.
 
 Sans cela, avec les seules ressources de la famille Teng, il n'y aurait eu aucun moyen qu'ils acquièrent soudainement quelques cultivateurs de l'Âme Naissante, et que Teng Huayuan devienne presque aussi puissant que Pu Nanzi en seulement quatre cents ans.
 

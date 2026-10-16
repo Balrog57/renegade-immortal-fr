@@ -52,7 +52,7 @@ Le Prince Ji Du parut impuissant et parla avec un sourire amer.
 
 « Le fils ignore ce qu'il a pu faire pour provoquer Seigneur Song. Généralement, lorsque je vais le voir, il ne me reçoit pas, et même quand je le rencontre au palais, il est très froid.
 
-« Mon frère cadet, Chi Man, est très proche de Seigneur Song. Il vit sur la Montagne de l'Origine et la rumeur dit qu'il a été accepté comme disciple de Seigneur Song.
+« Mon frère cadet, Chi Man, est très proche du Seigneur Song. Il vit sur la Montagne de l'Origine et la rumeur dit qu'il a été accepté comme disciple du Seigneur Song.
 
 « Mon père semble aussi porter beaucoup d'intérêt à Chi Man. L'ensemble du clan Ancient Shi penche en sa faveur pour le prochain trône, » dit amèrement Ji Du.
 

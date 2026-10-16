@@ -40,7 +40,7 @@ Jusqu'au neuvième jour, au quinzième, au trentième... et après deux mois, le
 
 « Deux mois et personne n'est sorti du temple ancestral. À moins que... à moins que... »
 
-« À moins qu'une seule personne ne soit en train de traverser la calamité. Qui est cet individu pour que Seigneur Song le garde ainsi? »
+« À moins qu'une seule personne ne soit en train de traverser la calamité. Qui est cet individu pour que le Seigneur Song le garde ainsi? »
 
 « Deux mois... Il a réellement tenu deux mois. On dirait qu'il a choisi de subir une division massive de son âme. »
 
@@ -56,7 +56,7 @@ Car il ne restait plus que quatre mois avant d'atteindre le record d'un an, la p
 
 « Huit mois... Cet homme est véritablement fou de supporter une telle douleur. »
 
-« Les rumeurs disent que Seigneur Song avait tenu onze mois autrefois! »
+« Les rumeurs disent que le Seigneur Song avait tenu onze mois autrefois! »
 
 Tandis que le peuple Ancient Shi débattait, Wang Lin restait assis, immobile. Pourtant, l'ombre autour de lui n'était plus qu'un amas de fragments. Les jambes de l'ombre avaient disparu, ne laissant subsister que la moitié de la silhouette.
 
@@ -76,7 +76,7 @@ Song Tian était assis devant le temple ancestral, montant la garde pour le onzi
 
 Lorsque le douzième mois passa, suivi de deux autres, toute la cité Ancient Shi fut en émoi. Tous fixaient la statue de l'Ancêtre Ancient, se demandant qui était cet individu et jusqu'où il pourrait tenir!
 
-« Quatorze mois... Vraiment digne de Seigneur Wang! » Dans le palais, le vieil empereur poussa un soupir.
+« Quatorze mois... Vraiment digne du Seigneur Wang! » Dans le palais, le vieil empereur poussa un soupir.
 
 Ce jour-là, au quatorzième mois, il ne restait plus qu'une tête sur l'ombre. Elle était saturée de fissures et, dans une explosion de lumière soudaine, elle s'effondra.
 

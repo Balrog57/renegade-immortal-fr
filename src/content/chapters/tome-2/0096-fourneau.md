@@ -92,9 +92,9 @@ Ye Zizai fronça les sourcils. Il agita la main droite et cracha une bouffée de
 
 Ye Zizai dit froidement: « Luo Sha, cet homme est le disciple personnel de mon frère cadet. Tu ne peux pas lui faire de mal. »
 
-La figure laissa échapper un rire. Flottant dans les airs, les bras croisés sur ses épaules, elle dit d'une voix aiguë: « Ye Zizai, toi et ton frère cadet n'êtes que des fourneaux pour nous. Ton frère est parti trop tôt, avant que Seigneur Zi ne puisse s'éveiller, et maintenant il te lance un appel à l'aide. Il se jette vraiment dans la gueule du loup. Ye Zizai, puisque tu connais déjà sa position, pourquoi n'irais-tu pas aider Seigneur Zi à dévorer Wu Yu? »
+La figure laissa échapper un rire. Flottant dans les airs, les bras croisés sur ses épaules, elle dit d'une voix aiguë: « Ye Zizai, toi et ton frère cadet n'êtes que des fourneaux pour nous. Ton frère est parti trop tôt, avant que le Seigneur Zi ne puisse s'éveiller, et maintenant il te lance un appel à l'aide. Il se jette vraiment dans la gueule du loup. Ye Zizai, puisque tu connais déjà sa position, pourquoi n'irais-tu pas aider Seigneur Zi à dévorer Wu Yu? »
 
-Le visage de Ye Zizai était sombre. Il fixa la figure et ricana: « Avant de me dévorer complètement, ne crois pas que j'écouterai tes ordres. Quant à Seigneur Zi, je n'irai aider ni lui, ni mon frère cadet. Que Seigneur Zi parvienne ou non à dévorer mon frère dépendra uniquement de lui-même. »
+Le visage de Ye Zizai était sombre. Il fixa la figure et ricana: « Avant de me dévorer complètement, ne crois pas que j'écouterai tes ordres. Quant au Seigneur Zi, je n'irai aider ni lui, ni mon frère cadet. Que Seigneur Zi parvienne ou non à dévorer mon frère dépendra uniquement de lui-même. »
 
 La figure poussa un rire sinistre. Cela semblait l'indifférer: « Si tu refuses d'y aller, je ne te forcerai pas. Mais la prochaine vague de corps a été préparée par un pays de rang 5. Cette fois, il y en aura dix. Choisis ton fourneau avec soin. N'oublie pas que tu n'es qu'un disciple extérieur de la Secte des Cadavres. Et qu'as-tu prévu de faire de ce gamin d'Adai? »
 

@@ -110,4 +110,4 @@ Une voix étouffée sortit du vortex, et même tout le Système Stellaire Antiqu
 
 Au sein du Clan de la Soie Bleue sur le Mont Bleu, Li Qianmei regarda calmement vers l'horizon. De la confusion et une lutte intérieure brillaient dans ses yeux. C'était comme si... un souvenir qu'elle ne pouvait ni rompre ni oublier s'éveillait lentement.
 
-À ses côtés, le Maître Maître du Dao Rêve Bleu poussa un soupir et cessa de jouer de la cithare. Il était sur le point de parler quand son expression changea soudainement. Il se précipita hors de la demeure, le regard froid, fixant l'immensité du ciel étoilé!
+À ses côtés, le Maître du Dao Rêve Bleu poussa un soupir et cessa de jouer de la cithare. Il était sur le point de parler quand son expression changea soudainement. Il se précipita hors de la demeure, le regard froid, fixant l'immensité du ciel étoilé!

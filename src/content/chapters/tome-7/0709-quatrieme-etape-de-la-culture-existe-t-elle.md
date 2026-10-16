@@ -85,7 +85,7 @@ Wang Lin ne s'expliqua naturellement pas et répondit: « Il est inutile de parl
 
 Les yeux de Wang Lin se plissèrent alors qu'il fixait Huan Fengshen. La Bête du Tonnerre sous lui commença à grogner.
 
-Huan Fengshen laissa échapper un soupir et afficha un regard résolu. Il hocha la tête et dit: « Peu importe, la famille Huan renoncera à l'opportunité d'entrer dans le Royaume Céleste du Tonnerre dans cent ans et remettra tous les Fruits d'Ascension Céleste collectés à Seigneur Messager. »
+Huan Fengshen laissa échapper un soupir et afficha un regard résolu. Il hocha la tête et dit: « Peu importe, la famille Huan renoncera à l'opportunité d'entrer dans le Royaume Céleste du Tonnerre dans cent ans et remettra tous les Fruits d'Ascension Céleste collectés au Seigneur Messager. »
 
 L'expression de Wang Lin resta neutre, mais il commença à réfléchir. Les paroles de Huan Fengshen contenaient des indices. Les Fruits d'Ascension Céleste avaient-ils un lien avec le Royaume Céleste du Tonnerre...?
 

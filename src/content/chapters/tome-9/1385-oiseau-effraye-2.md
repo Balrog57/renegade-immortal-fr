@@ -95,7 +95,7 @@ Sa fuite fut aussi soudaine qu'imprévisible, tel un oiseau effrayé. Il n'eut m
 « Quel genre de sort Seigneur Cupidité utilise-t-il? »
 « Il est incroyablement rapide, il a disparu en un instant... Serait-ce une préparation avant d'utiliser un trésor puissant? »
 « Son cri... on aurait dit que quelque chose avait mal tourné. Comme s'il avait rencontré quelque chose de terrifiant... »
-« Pourquoi ai-je l'impression que Seigneur Cupidité est en train de fuir...? »
+« Pourquoi ai-je l'impression que le Seigneur Cupidité est en train de fuir...? »
 « Cupidité?! »
 
 « Cupidité! » La silhouette de Wang Lin émergea du monde, lui aussi surpris.

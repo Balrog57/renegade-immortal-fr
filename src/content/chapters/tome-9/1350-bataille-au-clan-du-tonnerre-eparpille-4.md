@@ -88,7 +88,7 @@ Plus important encore, une lumière émanait du talisman des 7 Millions de Monde
 
 De loin, il était impossible de distinguer Wang Lin; on ne percevait que cette gigantesque silhouette de lumière absorbant toute la clarté environnante!
 
-Le sort de défense le plus puissant du Maître Maître du Dao Rêve Bleu: le Bouclier d'Ombre Lumineuse!
+Le sort de défense le plus puissant du Maître du Dao Rêve Bleu: le Bouclier d'Ombre Lumineuse!
 
 Dès que la silhouette apparut, la seconde onde de choc percuta le bouclier. La silhouette lumineuse trembla violemment et l'éclat devint encore plus intense, illuminant le monde entier!
 
@@ -104,7 +104,7 @@ L'Ancien, en reculant, agita la main pour résister à la puissance des ondes. C
 
 L'apparition de la silhouette lumineuse fut un coup terrible pour son esprit.
 
-« Ceci... C'est le Bouclier d'Ombre Lumineuse du Maître Maître du Dao Rêve Bleu!!! Serait-ce le Maître Maître du Dao Rêve Bleu qui cherche à me tuer?! »
+« Ceci... C'est le Bouclier d'Ombre Lumineuse du Maître du Dao Rêve Bleu!!! Serait-ce le Maître du Dao Rêve Bleu qui cherche à me tuer?! »
 
 Les ondes réfléchies se précipitèrent vers lui, fusionnant avec l'onde de choc qui le frappait déjà. C'était comme si l'Ancien devait désormais encaisser toute la force de l'effondrement.
 

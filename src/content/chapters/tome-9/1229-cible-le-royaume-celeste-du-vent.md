@@ -24,7 +24,7 @@ Il avait combattu Maître Pin Cendré et avait été frappé par le clou aux sep
 
 Il avait obtenu la Restriction Temporelle ainsi que les deux épées plantées dans les restes du cerf mystérieux. Tout cela exaltait Wang Lin. Cent ans s'étaient écoulés rapidement, et le changement produit par cette période était aussi vaste que le ciel et la terre!
 
-« Les choses changent souvent, et il y a toujours des gains et des pertes... Lors de la bataille contre Maître Pin Cendré, l'épée de fer qui m'accompagnait depuis de nombreuses années s'est brisée. Lors du combat contre le Maître Dao du Rêve Bleu, l'épée de cristal, la haché de guerre et même mon ancien fourneau divin se sont brisés... Plus important encore, ma sixième étoile, encore floue, a volé en éclats. »
+« Les choses changent souvent, et il y a toujours des gains et des pertes... Lors de la bataille contre Maître Pin Cendré, l'épée de fer qui m'accompagnait depuis de nombreuses années s'est brisée. Lors du combat contre le Maître du Dao Rêve Bleu, l'épée de cristal, la haché de guerre et même mon ancien fourneau divin se sont brisés... Plus important encore, ma sixième étoile, encore floue, a volé en éclats. »
 
 Wang Lin poussa un soupir et murmura: « Heureusement, l'étoile faite de loi est toujours là... Bien que la sixième étoile soit brisée, tant que mon corps subit le second essai, elle pourra être restaurée, ou par une autre opportunité. Après tout, j'ai déjà atteint ce niveau auparavant; la récupérer sera bien plus facile que de gravir à nouveau les échelons. »
 
@@ -46,7 +46,7 @@ Le temps passa lentement. Après trois jours, Wang Lin ouvrit les yeux. Son rega
 
 Il se redressa. Bien que ses blessures physiques ne fussent pas totalement guéries, elles ne l'empêcheraient pas de combattre; il leur suffisait de quelque temps. En revanche, les blessures infligées à son âme originelle étaient très graves et la récupération s'annonçait difficile à court terme.
 
-Wang Lin réfléchit un instant. La douleur dans son âme originelle persistait. Rien qu'à repenser à la paume du Maître Dao du Rêve Bleu, il en ressentait encore le choc.
+Wang Lin réfléchit un instant. La douleur dans son âme originelle persistait. Rien qu'à repenser à la paume du Maître du Dao Rêve Bleu, il en ressentait encore le choc.
 
 « Voilà la puissance de la troisième étape... » Les yeux de Wang Lin brillèrent d'une lueur intense.
 
