@@ -54,7 +54,7 @@ Lorsqu'il et Liu Jinbiao atterrirent, deux rayons de lumière jaillirent du loin
 
 Ces deux cultivateurs étaient très jeunes. L'homme était fort beau et manifesta rapidement son respect. La femme à ses côtés était magnifique et observa Wang Lin avec un regard curieux.
 
-« Aîné, ce cadet est venu sur ordre de l'Ancêtre pour inviter Aîné au Temple Dong Lin », sourit le jeune homme en joignant les mains. Ses paroles étaient empreintes d'un profond respect, tout comme son expression.
+« Senior, ce junior est venu sur ordre de l'Ancêtre pour inviter Senior au Temple Dong Lin », sourit le jeune homme en joignant les mains. Ses paroles étaient empreintes d'un profond respect, tout comme son expression.
 
 La femme à ses côtés joignit également ses mains, son regard balayant Wang Lin.
 
@@ -76,9 +76,9 @@ Lorsqu'ils approchèrent du Temple Dong Lin au centre, deux rayons de lumière c
 
 Ils étaient tous deux des Exaltés Dorés, des êtres extraordinaires. Le rire franc du vieil homme résonna alors qu'il saluait Wang Lin.
 
-« Je m'appelle Xu Tiannian, le Grand Ancien de la Secte Dong Lin. Je suis chargé par l'Ancêtre d'inviter Aîné au Temple Dong Lin. »
+« Je m'appelle Xu Tiannian, le Grand Ancien de la Secte Dong Lin. Je suis chargé par l'Ancêtre d'inviter Senior au Temple Dong Lin. »
 
-« Ce cadet est He Dao, le Maître de la Secte Dong Lin. Salutations, Aîné », dit l'homme d'âge moyen avec une grande politesse.
+« Ce junior est He Dao, le Maître de la Secte Dong Lin. Salutations, Senior », dit l'homme d'âge moyen avec une grande politesse.
 
 En les regardant, les yeux de Wang Lin se remplirent de tristesse. Quelle solitude pouvait bien pousser quelqu'un à créer un rêve pour ne plus être seul...
 
@@ -86,7 +86,7 @@ Wang Lin soupira et leur dit: « Allons-y. »
 
 Les deux Exaltés Dorés accompagnèrent Wang Lin en lui témoignant le respect dû à son rang. Ils atteignirent le cœur de la Secte Dong Lin, sa terre sainte: le Temple Dong Lin!
 
-Le vieil homme joignit les mains et dit respectueusement: « L'Ancêtre est à l'intérieur. Nous n'avons pas de mandat de convocation et ne pouvons donc pas entrer. Aîné, je vous prie de procéder seul. »
+Le vieil homme joignit les mains et dit respectueusement: « L'Ancêtre est à l'intérieur. Nous n'avons pas de mandat de convocation et ne pouvons donc pas entrer. Senior, je vous prie de procéder seul. »
 
 Wang Lin hocha la tête et regarda l'entrée du temple. En vérité, après avoir percé le mystère du rêve, il aurait pu venir ici par ses propres moyens et traverser les ruines pour atteindre ce temple empreint de chagrin.
 

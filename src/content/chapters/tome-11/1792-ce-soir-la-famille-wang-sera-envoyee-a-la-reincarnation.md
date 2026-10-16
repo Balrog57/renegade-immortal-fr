@@ -32,11 +32,11 @@ De l'autre côté de la porte, seuls Wang Lin et Xuan Luo restèrent.
 
 Xuan Luo regarda Wang Lin et dit d'une voix lente: « Ils sont tous passés de l'autre côté. Ce vieux va activer ses sorts pour résister aux lois du Continent Astral Immortel. Quand comptes-tu entrer? »
 
-Les yeux de Wang Lin s'illuminèrent. Il fixa la porte et demanda soudainement: « Aîné pourrait-il envoyer quelques personnes supplémentaires pour se réincarner sur le Continent Astral Immortel? »
+Les yeux de Wang Lin s'illuminèrent. Il fixa la porte et demanda soudainement: « Senior pourrait-il envoyer quelques personnes supplémentaires pour se réincarner sur le Continent Astral Immortel? »
 
 « Aucun problème. Je pensais qu'il y en aurait des centaines, voire des milliers. Puisqu'ils sont moins de vingt, ce n'est pas une charge trop lourde pour moi. Tant que tu n'en amènes pas trop, cela ne posera aucun souci. » Xuan Luo sourit.
 
-« Je demanderai à l'Aîné de m'attendre encore cinq jours. J'amènerai d'autres personnes pour la réincarnation! » Les yeux de Wang Lin devinrent froids et sa voix se fit calme.
+« Je demanderai à Senior de m'attendre encore cinq jours. J'amènerai d'autres personnes pour la réincarnation! » Les yeux de Wang Lin devinrent froids et sa voix se fit calme.
 
 Il y avait quelques individus que Wang Lin n'avait pas encore amenés pour ne pas trop solliciter Xuan Luo. Il n'existait aucune haine directe entre eux, mais pour la paix du monde des grottes, ils se trouvaient dans une situation où « les tuer ou les laisser vivre » était une option constante. Après avoir entendu les paroles de Xuan Luo, Wang Lin changea d'avis.
 

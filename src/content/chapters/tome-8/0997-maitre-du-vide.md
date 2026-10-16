@@ -22,7 +22,7 @@ Ling Tianhou et l'homme en violet s'immobilisèrent aussitôt. L'homme en violet
 
 Bien que Sun Shan fût un ancien, il ne faisait pas partie du groupe des Anciens de l'Alliance. À cet instant, son respect venait du plus profond de son cœur; il témoignait une immense déférence envers le vieillard qui venait d'apparaître.
 
-« Ce cadet salue le Grand Ancien. » Ling Tianhou afficha également une expression respectueuse. Avec sa personnalité, peu de gens méritaient son estime sincère.
+« Junior salue le Grand Ancien. » Ling Tianhou afficha également une expression respectueuse. Avec sa personnalité, peu de gens méritaient son estime sincère.
 
 Les pupilles de Wang Lin se rétractèrent. Le vieil homme s'était fusionné avec le monde pour parvenir jusqu'ici. Il dégageait également une aura qui bouleversa Wang Lin.
 
@@ -36,7 +36,7 @@ Le vieil homme portait une robe dorée et ses cheveux étaient mi-noirs, mi-blan
 
 « Combien de temps s'est-il écoulé depuis notre dernière rencontre? »
 
-Ling Tianhou se remémora le passé et répondit respectueusement: « Ce cadet ne s'en souvient pas, cela fait bien trop longtemps. »
+Ling Tianhou se remémora le passé et répondit respectueusement: « Junior ne s'en souvient pas, cela fait bien trop longtemps. »
 
 Le vieil homme en robe dorée poussa un soupir et dit lentement: « Lorsque toi et l'Omniscient étiez déjà de taille, je vous ai personnellement introduits dans la Terre Sainte du Vide Brillant. Des dizaines de milliers d'années ont passé désormais. L'un de vous est devenu un ancien de l'alliance que même moi je redoute, et la culture de l'autre a également atteint un tel niveau. »
 

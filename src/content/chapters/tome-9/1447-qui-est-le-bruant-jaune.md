@@ -74,7 +74,7 @@ L'Estimé Ling Dong dit d'un ton sévère: « Si tu poses le pied à terre, ce v
 
 « Le plan de l'Estimé Ling Dong était impeccable et parfaitement dissimulé. Ce cadet vous admire! » Wang Lin cessa tout mouvement, le visage empreint d'amertume, tout en réprimant la panique qui montait en lui.
 
-« Ce vieil homme connaissait déjà les ambitions de Xiao Jing. Un simple cadet pensant pouvoir me tromper... quelle ridicule idée! Bien que ce vieil homme ne soit pas un expert en restrictions, puisque vous deux excellez dans ce domaine et m'en avez ouvert le passage, cela ne me demandera aucun effort! » ricana l'Estimé Ling Dong. Les agissements subtils de Wang Lin ne faisaient que confirmer ses soupçons. Il ajouta: « Sors d'ici et attends sur le côté! »
+« Ce vieil homme connaissait déjà les ambitions de Xiao Jing. Un simple junior pensant pouvoir me tromper... quelle ridicule idée! Bien que ce vieil homme ne soit pas un expert en restrictions, puisque vous deux excellez dans ce domaine et m'en avez ouvert le passage, cela ne me demandera aucun effort! » ricana l'Estimé Ling Dong. Les agissements subtils de Wang Lin ne faisaient que confirmer ses soupçons. Il ajouta: « Sors d'ici et attends sur le côté! »
 
 Un esprit dao de naissance doit être offert avec une âme complète, n'ayant subi aucune fouille d'âme. Pour l'Estimé Ling Dong, Wang Lin ne pouvait ni semer la zizanie, ni échapper à sa poigne. Il comptait laisser Wang Lin en vie pour l'utiliser comme offrande au profit de l'esprit dao.
 

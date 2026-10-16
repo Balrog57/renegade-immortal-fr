@@ -18,11 +18,11 @@ Son maître, un cultivateur au stade de la Formation du Noyau, se tenait à ses 
 
 L'un des anciens de la famille Sun était un vieil homme au visage rubicond. Il entrouvrit les yeux et demanda d'une voix feutrée: « Cette personne a-t-elle vraiment dit cela? »
 
-Le vieil homme au stade avancé de l'Âme Naissante, qui avait tenté d'intercepter Wang Lin, hocha rapidement la tête: « Ce cadet n'a certainement pas mal entendu. Cette personne a clairement dit: "juste cette fois!" »
+Le vieil homme au stade avancé de l'Âme Naissante, qui avait tenté d'intercepter Wang Lin, hocha rapidement la tête: « Junior n'a certainement pas mal entendu. Cette personne a clairement dit: "juste cette fois!" »
 
 Un reniflement glacial émana d'un vieil homme en robe verte; ses yeux devinrent glaciaux tandis qu'il déclarait: « Il semble que quelqu'un cherche à provoquer notre famille Sun. Cet individu peut faire s'effondrer le noyau d'un cultivateur de la Formation du Noyau d'un simple regard, et a fait reculer trois cultivateurs de l'Âme Naissante d'un seul pas. Je crains qu'il ne soit au stade de la Transformation de l'Âme! »
 
-Le dernier ancien déclara calmement: « Et alors, s'il est un cultivateur de la Transformation de l'Âme? L'ancêtre de notre famille Sun est toujours présent, et il y a aussi cet aîné qui nous protégera durant un siècle. Même la famille Huan de la planète Mille Illusions n'oserait provoquer cet aîné. Avec lui à nos côtés, notre famille Sun ne s'effondrera pas! »
+Le dernier ancien déclara calmement: « Et alors, s'il est un cultivateur de la Transformation de l'Âme? L'ancêtre de notre famille Sun est toujours présent, et il y a aussi ce senior qui nous protégera durant un siècle. Même la famille Huan de la planète Mille Illusions n'oserait provoquer ce senior. Avec lui à nos côtés, notre famille Sun ne s'effondrera pas! »
 
 L'ancien au visage rouge reprit: « Quel est le nom de famille de cette personne? »
 
@@ -32,11 +32,11 @@ Le regard de l'ancien au visage rouge se posa sur Qing Yi.
 
 « Le sais-tu? »
 
-Le corps de Qing Yi trembla. Après avoir hésité un instant, elle secoua la tête: « Ce cadet ne sait pas... »
+Le corps de Qing Yi trembla. Après avoir hésité un instant, elle secoua la tête: « Junior ne sait pas... »
 
 « Quel culot! » Les yeux du vieil homme au visage rouge se plissèrent. Fort de son expérience, il comprit d'un seul regard que la jeune fille mentait.
 
-Qing Yi baissa amèrement la tête et murmura: « Ce cadet ne sait vraiment pas. »
+Qing Yi baissa amèrement la tête et murmura: « Junior ne sait vraiment pas. »
 
 L'ancien au visage rouge laissa échapper un reniflement méprisant, puis se leva: « Laissons cette affaire de côté pour l'instant. J'ai déjà informé le clan, et ils enverront un cultivateur de la Transformation de l'Âme pour régler cela. Quant à ce membre extérieur, puisqu'elle a quelqu'un d'autre dans son cœur, chassez-la de la famille Sun! »
 

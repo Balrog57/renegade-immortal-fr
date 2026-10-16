@@ -132,4 +132,4 @@ Avec une vitesse bien supérieure à celle de son entrée, Wang Lin s'élança v
 
 Le regard de Yunque Zi s'illumina et il disparut instantanément. Lorsqu'il réapparut, il bloquait déjà le passage, faisant face à Wang Lin. Il dit d'un ton sombre: « Pourquoi fuis-tu ainsi?! »
 
-Les yeux de Wang Lin s'éclairèrent; il recula de quelques pas et fixa Yunque Zi. D'un geste de la main droite, il fit apparaître le drapeau des âmes d'un milliard, puis déclara calmement: « Le cadet ne souhaite pas encore mourir. »
+Les yeux de Wang Lin s'éclairèrent; il recula de quelques pas et fixa Yunque Zi. D'un geste de la main droite, il fit apparaître le drapeau des âmes d'un milliard, puis déclara calmement: « Le junior ne souhaite pas encore mourir. »

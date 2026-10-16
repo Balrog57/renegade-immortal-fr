@@ -98,7 +98,7 @@ Wang Lin demanda précipitamment: « Que voulez-vous dire par "portez le nom de 
 
 « Si le destin le permet, vous le découvrirez... » La voix de la femme en blanc était faible alors qu'elle sombrait lentement dans les ténèbres.
 
-Wang Lin regarda vers l'obscurité et lança rapidement: « Avec votre pouvoir, Aîné, pourquoi ne venez-vous pas avec moi? »
+Wang Lin regarda vers l'obscurité et lança rapidement: « Avec votre pouvoir, Senior, pourquoi ne venez-vous pas avec moi? »
 
 La femme en blanc, qui s'était déjà à moitié enfoncée dans le noir, s'arrêta brusquement. Son dos était tourné vers Wang Lin lorsqu'elle laissa échapper une expression amère et murmura: « Je ne peux pas partir... »
 

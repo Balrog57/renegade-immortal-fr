@@ -20,7 +20,7 @@ C'était la première fois que Wang Lin voyait un autre véritable corps d'essen
 
 L'identité de ce vieil homme était désormais évidente!
 
-« Ce cadet salue l'Illustre Taureau Vert. » Wang Lin resta calme et joignit les mains en signe de respect.
+« Ce junior salue l'Illustre Taureau Vert. » Wang Lin resta calme et joignit les mains en signe de respect.
 
 Le véritable corps d'essence de l'Illustre Taureau Vert fixa Wang Lin et dit lentement: « Révèle ton propre corps d'essence, laisse ce vieil homme le voir. »
 
@@ -40,7 +40,7 @@ Wang Lin répondit calmement: « C'est bien moi! »
 
 « Ceux qui sortent du monde des grottes... ne sont en effet pas simples... » Le corps d'essence de l'Illustre Taureau Vert laissa échapper un soupir.
 
-Les yeux de Wang Lin s'illuminèrent et il demanda: « Je me demande, quelle essence a formé le véritable corps d'essence d'Aîné? »
+Les yeux de Wang Lin s'illuminèrent et il demanda: « Je me demande, quelle essence a formé le véritable corps d'essence de Senior? »
 
 Le corps d'essence de l'Illustre Taureau Vert sourit. Loin d'être irrité par la question, il répondit avec un sourire: « Le véritable corps d'essence de ce vieil homme est formé de l'essence du froid... C'est le froid, et non l'eau... Comprends-tu? »
 

@@ -94,7 +94,7 @@ Il ressentit une douleur fulgurante dans son esprit alors que sa connexion avec 
 
 Toutefois, comparée à sa propre vie, cette pierre de jade n'était rien. Les yeux de Liu Jinbiao se remplirent de terreur tandis qu'il s'agenouillait et commençait à hurler:
 
-« Aîné, pardonnez-moi! Aîné, pardonnez-moi! Ce cadet n'a jamais tué personne, je ne fais que tricher ou effrayer les gens occasionnellement. Au pire, j'ai accaparé quelques biens, mais je n'ai jamais versé le sang. Mon péché ne mérite pas la mort, mon péché ne mérite pas la mort, Aîné! Je vous en supplie, laissez-moi partir! Ce cadet ne trichera plus jamais et deviendra un homme de bien. Je ne tricherai plus jamais... »
+« Aîné, pardonnez-moi! Aîné, pardonnez-moi! Ce junior n'a jamais tué personne, je ne fais que tricher ou effrayer les gens occasionnellement. Au pire, j'ai accaparé quelques biens, mais je n'ai jamais versé le sang. Mon péché ne mérite pas la mort, mon péché ne mérite pas la mort, Aîné! Je vous en supplie, laissez-moi partir! Ce junior ne trichera plus jamais et deviendra un homme de bien. Je ne tricherai plus jamais... »
 
 Liu Jinbiao continuait de se prosterner, terrifié par Wang Lin, implorant sa grâce.
 

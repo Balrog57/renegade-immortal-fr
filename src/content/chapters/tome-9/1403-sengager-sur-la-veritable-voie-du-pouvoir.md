@@ -58,13 +58,13 @@ Le vieil homme fut stupéfait.
 
 « L'eau possède la ténacité et la souplesse, et une fois le lac formé, elle contient également une force de réaction... Plus la puissance contenue dans ma paume est grande, plus la force de réaction sera puissante! La force de réaction qui surgit à l'instant même où je lance mon coup n'est pas plus faible que l'impact lui-même! »
 
-« Par conséquent, c'est comme si deux types de forces se croisaient soudainement pour créer une collision dévastatrice. Lorsque la paume de l'Aîné a frappé l'eau, les gouttelettes ont subi d'innombrables chocs, provoquant la désintégration d'une partie du lac! »
+« Par conséquent, c'est comme si deux types de forces se croisaient soudainement pour créer une collision dévastatrice. Lorsque la paume du Senior a frappé l'eau, les gouttelettes ont subi d'innombrables chocs, provoquant la désintégration d'une partie du lac! »
 
 « Cette désintégration était un changement d'état permettant de transformer directement l'eau en vapeur! Bien que cela paraisse simple, cela contenait une force capable de secouer les cieux! »
 
 « Le pouvoir de modifier l'état des êtres vivants! » Tandis que Wang Lin parlait, son regard devint plus vif et son esprit s'éclaircit. Les idées affluaient en lui tandis qu'il rejouait mentalement le geste du vieil homme des dizaines de milliers de fois.
 
-« C'est donc cela. La paume de l'Aîné contenait cette loi. Un seul coup pourrait même provoquer l'effondrement d'une planète cultivée. Bien qu'il y aurait une force de réaction, celle-ci n'apparaîtrait qu'une fois la planète déjà détruite. »
+« C'est donc cela. La paume du Senior contenait cette loi. Un seul coup pourrait même provoquer l'effondrement d'une planète cultivée. Bien qu'il y aurait une force de réaction, celle-ci n'apparaîtrait qu'une fois la planète déjà détruite. »
 
 « Cependant, l'eau est différente. On ne peut sous-estimer la ténacité de l'eau. Une fois accumulée en quantité suffisante, la puissance qu'elle peut supporter est phénoménale. Si le même coup frappait la mer, la force de réaction suffirait à faire imploser une personne! »
 
@@ -74,7 +74,7 @@ Le vieux Oiseau Vermillon fixait Wang Lin, les yeux écarquillés. La crainte qu
 
 À cet instant, il ignorait qu'une fois que Wang Lin aurait appris la Restriction de l'Âme Ancienne, il aurait la possibilité d'atteindre le sommet des restrictions, d'accéder au Royaume du Vide et d'obtenir l'essence du vide! Certes, cette chance était infime, mais elle existait.
 
-« Ce que l'Aîné tente d'enseigner au cadet est la manière d'utiliser cette force de réaction. Ainsi, lorsque je frappe, je peux emprunter cette force pour terrasser mon ennemi, car ma puissance s'en trouverait décuplée! Cela peut même modifier l'état des objets. Bien que ce ne soit pas un sortilège au sens strict, cette méthode peut être considérée comme tel! L'Aîné souhaite que le cadet apprenne cela? » Les yeux de Wang Lin brillaient d'une joie intense. Un combat normal entre cultivateurs n'implique pas de coups de poing ou de pied, mais pour un Dieu Ancien comme lui, cela s'apparentait à un sortilège!
+« Ce que le Senior tente d'enseigner au Junior est la manière d'utiliser cette force de réaction. Ainsi, lorsque je frappe, je peux emprunter cette force pour terrasser mon ennemi, car ma puissance s'en trouverait décuplée! Cela peut même modifier l'état des objets. Bien que ce ne soit pas un sortilège au sens strict, cette méthode peut être considérée comme tel! Le Senior souhaite que le Junior apprenne cela? » Les yeux de Wang Lin brillaient d'une joie intense. Un combat normal entre cultivateurs n'implique pas de coups de poing ou de pied, mais pour un Dieu Ancien comme lui, cela s'apparentait à un sortilège!
 
 Dans les souvenirs divins de Wang Lin, une telle méthode d'utilisation de la force n'existait pas. Cette leçon du deuxième Oiseau Vermillon représentait énormément pour lui!
 

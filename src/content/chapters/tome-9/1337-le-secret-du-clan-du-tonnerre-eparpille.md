@@ -34,7 +34,7 @@ Wang Lin hocha la tête avant de joindre les mains et de s'en aller.
 
 Après avoir quitté la porte est, il entendit de nombreuses conversations où le nom « Yu Fei » était constamment mentionné. Wang Lin passa devant eux comme à son habitude et commença à réfléchir.
 
-« Six types de tonnerre... Bien que le contrôle du tonnerre par le Clan du Tonnerre Éparpillé soit plus faible que le mien, leur étude du sujet a atteint un sommet... Ce cadet Corporel Yang veut que je choisisse la mission du Tonnerre Spirituel. Tonnerre Spirituel... Tonnerre Spirituel... Quel genre de tonnerre est-ce là... » Tandis qu'il méditait, ses yeux s'illuminèrent. Toujours audacieux, il changea simplement sa direction, délaissant la porte sud pour se diriger vers la porte ouest!
+« Six types de tonnerre... Bien que le contrôle du tonnerre par le Clan du Tonnerre Éparpillé soit plus faible que le mien, leur étude du sujet a atteint un sommet... Ce junior Corporel Yang veut que je choisisse la mission du Tonnerre Spirituel. Tonnerre Spirituel... Tonnerre Spirituel... Quel genre de tonnerre est-ce là... » Tandis qu'il méditait, ses yeux s'illuminèrent. Toujours audacieux, il changea simplement sa direction, délaissant la porte sud pour se diriger vers la porte ouest!
 
 Il y avait très peu de cultivateurs à la porte ouest du Temple des Cristaux de Tonnerre. Seules quelques personnes en sortaient occasionnellement et, bien que leurs expressions semblaient normales, Wang Lin pouvait y lire de la frustration. Il semblait qu'ils n'étaient soit pas autorisés à accepter une tâche, soit qu'ils n'en avaient pas trouvé de satisfaisante.
 
@@ -104,6 +104,6 @@ Ce dernier saisit l'objet et lança un regard glacial à Wang Lin avant de ne pr
 
 « Dégage! » Son expression était indifférente, mais une pression écrasante se propagea, sans même afficher de dédain explicite. C'était là sa fierté en tant que cultivateur au stade Scruteur du Nirvana, un niveau qui le plaçait au-dessus de millions d'individus. Pour lui, Wang Lin n'était qu'une fourmi qu'il pourrait écraser des centaines de fois d'un simple geste du doigt.
 
-Un cadet osant rivaliser avec lui pour une mission revenait à chercher la mort!
+Un junior osant rivaliser avec lui pour une mission revenait à chercher la mort!
 
 Le visage de Wang Lin se figea dans une froideur extrême et un éclat meurtrier passa dans ses yeux. C'était le signe qu'il allait tuer!

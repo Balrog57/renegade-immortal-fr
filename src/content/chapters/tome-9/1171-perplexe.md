@@ -86,7 +86,7 @@ Un instant plus tard, on fraqua à la porte.
 
 « Il est enfin venu... » Wang Lin esquissa un sourire et fit un signe de la main droite. La porte s'ouvrit sur un homme d'âge mûr, robuste, à l'allure héroïque.
 
-Ce dernier ne pénétra pas dans la pièce, mais joignit les mains: « Aîné, mon maître, Ouyang Long, vous invite. »
+Ce dernier ne pénétra pas dans la pièce, mais joignit les mains: « Senior, mon maître, Ouyang Long, vous invite. »
 
 Wang Lin se leva et marcha vers la porte. L'homme le guida respectueusement. Après avoir quitté l'auberge, ils s'envolèrent hors de la ville. Bien que ce fût la nuit, la cité était plus animée que jamais; le brouhaha des conversations résonnait à leurs oreilles.
 
@@ -96,7 +96,7 @@ Sous la direction de l'homme, ils se dirigèrent vers la porte est. De nombreux 
 
 Wang Lin remarqua que lorsque l'homme sortit son jeton, les cultivateurs environnants devinrent immédiatement respectueux. Ils n'examinèrent même pas Wang Lin et les laissèrent passer.
 
-Sitôt entrés dans la cité, ils atteignirent le centre. L'homme s'arrêta devant un pavillon raffiné et dit respectueusement à Wang Lin: « Aîné, je vous en prie, entrez. Compte tenu de mon statut de cadet, je ne peux pas pénétrer. »
+Sitôt entrés dans la cité, ils atteignirent le centre. L'homme s'arrêta devant un pavillon raffiné et dit respectueusement à Wang Lin: « Senior, je vous en prie, entrez. Compte tenu de mon statut de cadet, je ne peux pas pénétrer. »
 
 Wang Lin hocha la tête et projeta son Sens Divin vers l'avant avant d'entrer. À peine eut-il franchi le seuil qu'un rire sonore retentit. C'était Ouyang Long qui descendait les marches en joignant les mains devant Wang Lin.
 

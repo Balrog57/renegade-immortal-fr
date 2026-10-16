@@ -58,7 +58,7 @@ L'esprit de Lie Yunzi était encore en plein chaos, et ces paroles le firent cra
 
 « Je peux témoigner que Lie Yunzi a été le premier à se montrer déraisonnable en réclamant l'Empereur Divin Oiseau Vermillon! Mes paroles représentent le pays de Chu Yun! »
 
-Les yeux de la belle femme de la Secte des Cadavres s'illuminèrent et elle sourit. « Puisque ce petit fait aussi partie de l'histoire, je peux également attester que la requête d'Aîné Lie Yunzi était véritablement absurde. »
+Les yeux de la belle femme de la Secte des Cadavres s'illuminèrent et elle sourit. « Puisque ce petit fait aussi partie de l'histoire, je peux également attester que la requête de Senior Lie Yunzi était véritablement absurde. »
 
 Lie Yunzi n'eut pas le temps de reprendre son souffle avant d'entendre les paroles de Mo Zhi et de la femme de la Secte des Cadavres. Il cracha davantage de sang, puis redressa brusquement la tête pour fixer Wang Lin.
 

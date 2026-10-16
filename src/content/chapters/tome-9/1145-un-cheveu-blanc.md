@@ -64,7 +64,7 @@ Le silence tomba sur les environs, et la respiration de chacun devint pesante. L
 
 « Lui... Qui est-il?! »
 
-« Pourquoi cet aîné a-t-il aidé la Secte de l'Origine? »
+« Pourquoi ce senior a-t-il aidé la Secte de l'Origine? »
 
 « Pour tuer instantanément Song Wude... Quel est son niveau de culture? »
 
@@ -78,13 +78,13 @@ Après un bref silence, les disciples directs des anciens éclatèrent en acclam
 
 « La Secte Dao Pourpre ne restera pas sans rien faire lorsqu'ils apprendront la mort de Song Wude et de Lu Di... » Tandis que les quatre anciens avançaient, l'un d'eux réprima son choc et projeta ses pensées vers les trois autres.
 
-« Avant la mort du Maître, il a mentionné "le nord" et "les cheveux blancs". Cet aîné a les cheveux blancs; il est peut-être l'homme dont le Maître parlait. Peut-être que notre Secte de l'Origine n'est pas encore à son déclin! »
+« Avant la mort du Maître, il a mentionné "le nord" et "les cheveux blancs". Ce senior a les cheveux blancs; il est peut-être l'homme dont le Maître parlait. Peut-être que notre Secte de l'Origine n'est pas encore à son déclin! »
 
-« Cependant, qui est cet aîné? Fait-il partie de notre Secte? J'ai scruté les 31 mortels, mais je n'ai rien trouvé. »
+« Cependant, qui est ce senior? Fait-il partie de notre Secte? J'ai scruté les 31 mortels, mais je n'ai rien trouvé. »
 
 « S'il a été disposé à nous aider une fois, il le sera une seconde fois! » Le sens divin de Lu Yanfei était résolu, ce qui poussa les trois autres à la réflexion.
 
-« Chercher est inutile. Puisque cet aîné ne souhaite pas être découvert, laissons les choses suivre leur cours naturel. » Les yeux de Lu Yanfei étaient brillants et elle sourit de nouveau. Sa main droite effleura sa sacoche de rangement pour y envoyer une force destinée à détruire une vieille peinture.
+« Chercher est inutile. Puisque ce senior ne souhaite pas être découvert, laissons les choses suivre leur cours naturel. » Les yeux de Lu Yanfei étaient brillants et elle sourit de nouveau. Sa main droite effleura sa sacoche de rangement pour y envoyer une force destinée à détruire une vieille peinture.
 
 Peu de temps après, les membres de la Secte de l'Origine furent de retour au sein de leur secte. Ils se dispersèrent, animés par l'excitation. Lu Yanfei ne retourna pas à son pavillon de la montagne sud, mais se rendit dans la cour des herbes avec Xu Yun.
 

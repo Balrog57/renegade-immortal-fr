@@ -114,7 +114,7 @@ L'homme masqué poussa un soupir. Il regarda calmement Zhuque Zi et dit: « Zhuq
 
 Yunque Zi fixa l'inconnu et murmura pour lui-même: « Ye Wuyou? »
 
-« Il n'est pas le premier Suzaku. Ne lance pas de suppositions au hasard! » Zhuque Zi coupa rapidement la parole à Yunque Zi. Il regarda l'homme masqué et dit respectueusement: « Ce cadet salue le Messager de l'Alliance. Concernant cette affaire, ce cadet reconnaît ses torts. »
+« Il n'est pas le premier Suzaku. Ne lance pas de suppositions au hasard! » Zhuque Zi coupa rapidement la parole à Yunque Zi. Il regarda l'homme masqué et dit respectueusement: « Ce junior salue le Messager de l'Alliance. Concernant cette affaire, ce junior reconnaît ses torts. »
 
 « Le Messager de l'Alliance... le Messager de l'Alliance de Culture! » Yunque Zi prit une inspiration glacée.
 

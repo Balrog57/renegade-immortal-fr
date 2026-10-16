@@ -46,7 +46,7 @@ Le Prince Ji Du sourit et joignit les mains devant Wang Lin. « Je ne connais to
 
 Wang Lin regarda le Prince et déclara lentement: « Wang Lin. »
 
-« Ainsi, c'est bien l'Aîné Wang. Aîné, ce n'est pas un lieu propice aux discussions. Ce cadet possède un palais dans le Pays Sombre. Si l'Aîné n'y voit pas d'inconvénient, nous pourrions nous y rendre afin de discuter en détail de la manière dont je compenserai mon comportement irréfléchi de tout à l'heure. » Le Prince semblait sincère et s'inclina respectueusement.
+« Ainsi, c'est bien le Senior Wang. Aîné, ce n'est pas un lieu propice aux discussions. Ce Junior possède un palais dans le Pays Sombre. Si l'Aîné n'y voit pas d'inconvénient, nous pourrions nous y rendre afin de discuter en détail de la manière dont je compenserai mon comportement irréfléchi de tout à l'heure. » Le Prince semblait sincère et s'inclina respectueusement.
 
 En observant le respect affiché par le Prince, si contrastant avec son indifférence passée, les yeux de Wang Lin brillèrent d'une lueur imperceptible.
 
@@ -86,7 +86,7 @@ Wang Lin acquiesça. Son regard balaya une nouvelle fois la créature avant de s
 
 Le Prince Ji Du remarqua son attention. Après une brève hésitation, il serra les dents et déclara:
 
-« Si l'Aîné Wang apprécie ce démon ancien, alors ce cadet est prêt à le lui offrir. »
+« Si l'Aîné Wang apprécie ce démon ancien, alors ce Junior est prêt à le lui offrir. »
 
 « Oh? » Wang Lin tourna les yeux vers Ji Du.
 
@@ -98,7 +98,7 @@ Wang Lin dit lentement: « Est-ce là la compensation dont vous parliez? »
 
 Le palais était luxueux, mais dégageait une aura écrasante. Dès que Wang Lin eut franchi le seuil de la salle, le Prince s'avança promptement devant lui. Il joignit les mains avec une gravité extrême et s'inclina brusquement.
 
-« Le cadet du clan Shi Antique, le Prince Ji Du, salue l'Ascendant Empyréen aux cheveux blancs! » À ces mots, un cri de stupeur retentit de la part de la femme derrière lui. Déconcertée, elle recula de plusieurs pas, totalement bouleversée par les propos de son frère.
+« Le Junior du clan Shi Antique, le Prince Ji Du, salue l'Ascendant Empyréen aux cheveux blancs! » À ces mots, un cri de stupeur retentit de la part de la femme derrière lui. Déconcertée, elle recula de plusieurs pas, totalement bouleversée par les propos de son frère.
 
 L'Ascendant Empyréen aux cheveux blancs!!
 
@@ -106,9 +106,9 @@ Les clans Anciens espionnaient sans relâche les mouvements du clan céleste, pa
 
 Une lueur de surprise traversa les yeux de Wang Lin, et son regard envers le Prince Ji Du se fit progressivement glacial.
 
-« Ce cadet ne cherche pas à tester l'Aîné. Vous êtes apparu à Pierre Noire, près de la mer qui nous sépare du clan céleste. Vous possédez également le pouvoir d'effrayer un démon ancien d'un simple regard, et vous n'avez pas cherché à dissimuler votre identité en me donnant votre nom. »
+« Ce Junior ne cherche pas à tester l'Aîné. Vous êtes apparu à Pierre Noire, près de la mer qui nous sépare du clan céleste. Vous possédez également le pouvoir d'effrayer un démon ancien d'un simple regard, et vous n'avez pas cherché à dissimuler votre identité en me donnant votre nom. »
 
-« De plus, ce cadet possède une liste de portraits des membres puissants du clan céleste, et le vôtre y figure. Cependant, seuls les trois familles impériales ont accès à ces portraits; un étranger ne pourrait donc pas vous reconnaître. » Le Prince était couvert d'une sueur froide sous la pression du regard de Wang Lin. Néanmoins, il serra les dents pour rester immobile. Il sortit un morceau de jade et le tendit respectueusement à Wang Lin.
+« De plus, ce Junior possède une liste de portraits des membres puissants du clan céleste, et le vôtre y figure. Cependant, seuls les trois familles impériales ont accès à ces portraits; un étranger ne pourrait donc pas vous reconnaître. » Le Prince était couvert d'une sueur froide sous la pression du regard de Wang Lin. Néanmoins, il serra les dents pour rester immobile. Il sortit un morceau de jade et le tendit respectueusement à Wang Lin.
 
 L'expression de Wang Lin resta impavide alors qu'il saisissait le jade. Son Sens Divin parcourut l'objet, et il vit immédiatement les portraits des cinq Grands Empyréens ainsi que de tous les Ascendant Empyréens. De nombreux Exaltés Empyréens y figuraient également.
 

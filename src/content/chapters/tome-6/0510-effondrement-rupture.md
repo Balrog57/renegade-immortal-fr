@@ -10,7 +10,7 @@ Les deux anciens de la Secte de l'Épée Da Lou se regardèrent, puis le plus pe
 
 Au moment même où il basculait dans l'abîme, un son strident capable de percer les cieux résonna au fond de la vallée. En un clin d'œil, une multitude de points rouges jaillirent des feuilles mortes qui recouvraient le sol et commencèrent à s'agglutiner. De loin, ce spectacle était terrifiant.
 
-« Frère aîné! » Qian Qin se retourna brusquement. Elle fixa les membres de la Secte de l'Épée Da Lou et hurla: « Que signifie cela, Aîné?! »
+« Frère aîné! » Qian Qin se retourna brusquement. Elle fixa les membres de la Secte de l'Épée Da Lou et hurla: « Que signifie cela, Senior?! »
 
 À peine avait-elle fini sa phrase que les innombrables points rouges s'animèrent. Ils fusionnèrent pour former un immense nuage écarlate qui se mit à émettre un bourdonnement assourdissant avant de fondre sur le jeune homme en robe blanche.
 

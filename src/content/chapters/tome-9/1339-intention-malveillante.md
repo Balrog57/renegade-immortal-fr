@@ -34,7 +34,7 @@ La différence abyssale de niveaux de culture faisait qu'il ne pouvait même pas
 
 Une fois capturé par Wang Lin, le Maître Zhou Tian commença à supplier pour sa vie.
 
-« Ancien, Ancien, pardonnez-moi! Ce cadet n'avait aucune intention de vous offenser. Ancien, pardonnez... » Alors qu'il parlait, ses yeux s'écarquillèrent soudainement, remplis d'incrédulité. À une telle proximité, et grâce à la lumière du passage qui rendait le corps de Wang Lin translucide, il put clairement voir une âme scellée à l'intérieur de lui.
+« Ancien, Ancien, pardonnez-moi! Ce junior n'avait aucune intention de vous offenser. Ancien, pardonnez... » Alors qu'il parlait, ses yeux s'écarquillèrent soudainement, remplis d'incrédulité. À une telle proximité, et grâce à la lumière du passage qui rendait le corps de Wang Lin translucide, il put clairement voir une âme scellée à l'intérieur de lui.
 
 « Vous... vous n'êtes pas... » Avant qu'il ne puisse finir sa phrase, Wang Lin serra froidement sa main droite et le Maître Zhou Tian fut anéanti!
 

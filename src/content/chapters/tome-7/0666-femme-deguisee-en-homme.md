@@ -30,7 +30,7 @@ Voyant l'expression de Wang Lin, le ton du jeune homme s'adoucit. Le mépris dan
 
 Wang Lin se frotta le nez. Depuis qu'il était devenu cultivateur, tous ceux qu'il avait rencontrés étaient rusés et égoïstes. Personne n'aurait pris la peine de lui adresser de tels mots. Et depuis qu'il était devenu puissant, en raison de ses nombreux meurtres, personne n'osait rien lui dire.
 
-Même l'aîné Dun Tian n'avait pas passé beaucoup de temps avec Wang Lin avant de mourir.
+Même le senior Dun Tian n'avait pas passé beaucoup de temps avec Wang Lin avant de mourir.
 
 À cet instant, se faisant soudainement réprimander par cet inconnu, il ressentit une pointe de mélancolie et acquiesça rapidement.
 
@@ -70,21 +70,21 @@ Wang Lin agita sa main droite pour lever la restriction sur la demeure. Le vieil
 
 Wang Lin répondit calmement: « Xu Mu. »
 
-« Aîné Xu, les deux cents mille jades célestes ont été préparés par la famille. Je vous prie de bien vouloir les vérifier. » Le vieil homme sortit précipitamment un sac de rangement. Il ne put s'empêcher de soupirer intérieurement. Que l'Ancien Ancestral offre ainsi deux cents mille jades prouvait à quel point cet individu était hors du commun.
+« Senior Xu, les deux cents mille jades célestes ont été préparés par la famille. Je vous prie de bien vouloir les vérifier. » Le vieil homme sortit précipitamment un sac de rangement. Il ne put s'empêcher de soupirer intérieurement. Que l'Ancien Ancestral offre ainsi deux cents mille jades prouvait à quel point cet individu était hors du commun.
 
 Après avoir pris le sac, Wang Lin ne prit pas la peine de le vérifier. Il était convaincu que ce cultivateur Ascendant de la famille Sun n'oserait pas tenter de le tromper sur ce point.
 
-Une fois le sac remis, le vieil homme ajouta rapidement: « Soyez rassuré, Aîné; j'ai déjà donné l'ordre de veiller à ce que les événements d'hier ne s'ébruitent pas. Personne n'est même au courant de ma venue aujourd'hui, ainsi personne ne viendra perturber votre culture. De plus, si vous souhaitez entrer en culture isolée, il existe de meilleurs endroits dans la ville. »
+Une fois le sac remis, le vieil homme ajouta rapidement: « Soyez rassuré, Senior; j'ai déjà donné l'ordre de veiller à ce que les événements d'hier ne s'ébruitent pas. Personne n'est même au courant de ma venue aujourd'hui, ainsi personne ne viendra perturber votre culture. De plus, si vous souhaitez entrer en culture isolée, il existe de meilleurs endroits dans la ville. »
 
 Wang Lin dit d'un ton neutre: « Ce n'est pas nécessaire. Vous pouvez partir. »
 
-Le vieil homme recula avec respect. Après une courte hésitation, il tenta: « Aîné, dans sept jours, le Pavillon des Trésors de la famille Ran organisera une vente aux enchères. Elle comprendra une pilule fausse divine de rang 8... »
+Le vieil homme recula avec respect. Après une courte hésitation, il tenta: « Senior, dans sept jours, le Pavillon des Trésors de la famille Ran organisera une vente aux enchères. Elle comprendra une pilule fausse divine de rang 8... »
 
 Le regard glacial de Wang Lin balaya l'homme. Ce dernier trembla instantanément et étouffa la fin de sa phrase.
 
 Un silence de mort s'installa dans la pièce. Pour le vieil homme, chaque seconde semblait durer une éternité.
 
-Cette absence de bruit créait une pression invisible qui le faisait frémir. Il n'en avait pas envie, mais la famille lui avait ordonné de tester la culture de cet homme; il devait donc prendre son courage à deux mains et poser la question. Pourtant, au fond de lui, il espérait que ce silence ne soit pas dû au fait que l'Aîné Xu Mu avait percé à jour ses intentions, mais qu'il avait été simplement tenté par la pilule fausse divine de rang 8.
+Cette absence de bruit créait une pression invisible qui le faisait frémir. Il n'en avait pas envie, mais la famille lui avait ordonné de tester la culture de cet homme; il devait donc prendre son courage à deux mains et poser la question. Pourtant, au fond de lui, il espérait que ce silence ne soit pas dû au fait que le Senior Xu Mu avait percé à jour ses intentions, mais qu'il avait été simplement tenté par la pilule fausse divine de rang 8.
 
 Peu après, Wang Lin ouvrit lentement la bouche: « Apportez-la moi! »
 
@@ -112,6 +112,6 @@ Lorsqu'il avait formé son Âme Naissante, il avait consommé une pilule de rang
 
 « Pour être plus précis, les pilules de rang 9 constituent la limite. Si l'on atteint le second niveau, les pilules deviennent inefficaces à moins d'obtenir de véritables pilules célestes ou divines. Cependant, avec mon niveau de culture actuel, une pilule de rang 8 reste efficace. » Les yeux de Wang Lin s'illuminèrent et il prit sa décision.
 
-« Ce cadet en robe noire n'aurait pas osé tester ma culture avec une pilule. Il devait s'agir du cultivateur Ascendant de la famille Sun. Ne pouvant percer ma culture, il a utilisé cette méthode subtile pour m'éprouver. »
+« Ce junior en robe noire n'aurait pas osé tester ma culture avec une pilule. Il devait s'agir du cultivateur Ascendant de la famille Sun. Ne pouvant percer ma culture, il a utilisé cette méthode subtile pour m'éprouver. »
 
 « Si je n'avais pas montré d'intérêt, cela aurait signifié que j'ai déjà franchi la première étape de la culture. » Wang Lin toucha le sac contenant les deux cents mille jades célestes, puis relégua cette affaire au second plan de ses pensées.

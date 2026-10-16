@@ -88,7 +88,7 @@ L'environnement était plongé dans un silence absolu. Cette compétition de la 
 
 Lu Yuncong réfléchit un instant avant de se tourner vers le Maître et les Anciens de la Secte Éternelle. Il joignit les mains et sa voix, bien que claire, fit vibrer l'air, trahissant son niveau de culture de Purificateur du Nirvana.
 
-« Aînés de la secte principale, ce disciple ne souhaite pas affronter la Secte Origine. Cette situation est injuste! »
+« Seniors de la secte principale, ce disciple ne souhaite pas affronter la Secte Origine. Cette situation est injuste! »
 
 Sur la plateforme où siégeait Mu Bingmei, le vieil homme en blanc fronça les sourcils. Feng Hai, qui dirigeait la compétition, eut une expression sévère et tonna: « Qu'est-ce qui est injuste?! Lu Yuncong, que veux-tu dire par là? »
 

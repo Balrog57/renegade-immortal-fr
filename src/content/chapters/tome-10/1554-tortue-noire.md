@@ -20,9 +20,9 @@ Wang Lin ignorait tout de la vendetta opposant Maître Yan Leizi à Maître Zhon
 
 « Je ne peux pas vous aider dans cette affaire... » Wang Lin laissa échapper un soupir. Il connaissait le pouvoir de la haine; elle suffisait à rendre un homme fou.
 
-Maître Yan Leizi réfléchit en silence et, après un long moment, détourna les yeux. Puis, il joignit les mains et murmura: « Les affaires entre cadet et Maître Zhong Xuan sont privées, le Seigneur du Royaume Scellé n'a donc pas à s'en préoccuper. La situation globale est plus importante, cadet le comprend bien... Si, au terme de cette guerre, cadet meurt, alors cette affaire prendra fin, tout comme si c'était lui qui mourait... »
+Maître Yan Leizi réfléchit en silence et, après un long moment, détourna les yeux. Puis, il joignit les mains et murmura: « Les affaires entre Junior et Maître Zhong Xuan sont privées, le Seigneur du Royaume Scellé n'a donc pas à s'en préoccuper. La situation globale est plus importante, Junior le comprend bien... Si, au terme de cette guerre, Junior meurt, alors cette affaire prendra fin, tout comme si c'était lui qui mourait... »
 
-« Cependant, si à la fin nous sommes tous deux encore en vie, alors il sera temps pour cadet de se venger! » Maître Yan Leizi dissimula la haine dans son regard. Il avait enduré cela pendant d'innombrables années et ne craindrait pas d'attendre un peu plus longtemps.
+« Cependant, si à la fin nous sommes tous deux encore en vie, alors il sera temps pour Junior de se venger! » Maître Yan Leizi dissimula la haine dans son regard. Il avait enduré cela pendant d'innombrables années et ne craindrait pas d'attendre un peu plus longtemps.
 
 Il ne pourrait jamais oublier ce qui s'était passé autrefois. À l'origine, il était le meilleur ami de Maître Zhong Xuan. C'est aussi grâce à lui que lui et son partenaire de Dao avaient rejoint l'Alliance.
 

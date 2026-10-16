@@ -62,7 +62,7 @@ Alors qu'il fermait les yeux, il demanda lentement: « Comprenez-vous? »
 
 Il venait d'être soudainement éclairé, comme si un voile venait de se déchirer. À cet instant, Shengong Hu fut illuminé! Il se tourna brusquement vers Zhan Konglie, les yeux étincelants, et lança: « Reprenons le combat! »
 
-À ce moment-là, le cuir chevelu de Zhan Konglie était engourdi; ses spéculations sur Wang Lin avaient atteint leur paroxysme. Il ne doutait plus de cette idée absurde. Il recula de quelques pas, s'inclina devant Wang Lin et dit respectueusement: « Ce disciple est Zhan Konglie. J'ignorais qu'Aîné cultivait ici. Je vous ai offensé plus tôt et j'espère qu'Aîné pourra me pardonner. Ce disciple s'en va immédiatement! »
+À ce moment-là, le cuir chevelu de Zhan Konglie était engourdi; ses spéculations sur Wang Lin avaient atteint leur paroxysme. Il ne doutait plus de cette idée absurde. Il recula de quelques pas, s'inclina devant Wang Lin et dit respectueusement: « Ce disciple est Zhan Konglie. J'ignorais que Senior cultivait ici. Je vous ai offensé plus tôt et j'espère que Senior pourra me pardonner. Ce disciple s'en va immédiatement! »
 
 Il jeta un regard envieux à Shengong Hu. Il comprenait enfin pourquoi un homme aussi arrogant que lui pouvait se soumettre à un autre.
 

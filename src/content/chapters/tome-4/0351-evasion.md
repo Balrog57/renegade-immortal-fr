@@ -62,7 +62,7 @@ Simultanément, une technique semblable au Sens Divin d'un cultivateur balaya le
 
 Le vieil homme afficha alors un visage médusé.
 
-« Ce cadet étranger possède un certain talent pour échapper à mon regard. » Le vieil homme réfléchit un instant, puis disparut à son tour.
+« Ce junior étranger possède un certain talent pour échapper à mon regard. » Le vieil homme réfléchit un instant, puis disparut à son tour.
 
 Un demi-mois passa en un éclair.
 

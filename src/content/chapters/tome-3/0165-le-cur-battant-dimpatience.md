@@ -8,11 +8,11 @@ slug: le-cur-battant-dimpatience
 ---
 Le vieil homme grommela: « C’est vraiment ennuyeux! » Il leva froidement les yeux vers Zhao Chuanliang et lança: « Je n’ai pas envie de tuer pour le moment, alors dégage! » Le vieil homme ne mentait pas; la mystérieuse Secte des Cadavres était bien plus effrayante pour lui que les pays de culture de rang 4 ou 5.
 
-À moins d'y être contraint, il n'avait aucune envie de se battre avec eux. Ce qui l'irritait le plus, c'était que ce combat n'était même pas pour lui, mais pour un cadet avec lequel il n'avait aucun lien, si ce n'est qu'il avait besoin d'utiliser ce gamin.
+À moins d'y être contraint, il n'avait aucune envie de se battre avec eux. Ce qui l'irritait le plus, c'était que ce combat n'était même pas pour lui, mais pour un junior avec lequel il n'avait aucun lien, si ce n'est qu'il avait besoin d'utiliser ce gamin.
 
 Les pupilles de Zhao Chuanliang se rétractèrent alors qu'il fixait le vieil homme. Ce simple revers de main du vieillard avait suffi à détruire son attaque. Cela le choqua secrètement. Il avait déjà entendu parler de cet homme par Huo Fen. La raison pour laquelle il avait amené tous les cultivateurs de l'Âme Naissante de la secte était précisément d'empêcher cette personne d'agir.
 
-Mais il semblait désormais que le niveau de culture de cet individu était bien plus élevé qu'il ne l'avait anticipé. Zhao Chuanliang réfléchit un instant, puis dit: « Aîné, cet individu est lié à une affaire cruciale de ma Secte des Cadavres. Je me dois de l'emmener avec moi aujourd'hui. »
+Mais il semblait désormais que le niveau de culture de cet individu était bien plus élevé qu'il ne l'avait anticipé. Zhao Chuanliang réfléchit un instant, puis dit: « Senior, cet individu est lié à une affaire cruciale de ma Secte des Cadavres. Je me dois de l'emmener avec moi aujourd'hui. »
 
 Le vieil homme soupira intérieurement. Il se demandait pourquoi ce gamin était si problématique. De toutes les personnes qu'il aurait pu offenser, pourquoi fallait-il qu'il s'en prenne à la Secte des Cadavres? S'il en avait le choix, il partirait simplement et ne s'impliquerait plus dans cette affaire.
 
@@ -30,7 +30,7 @@ Les yeux de Zhao Chuanliang brillèrent comme des éclairs alors qu'il fixait Wa
 
 Wang Lin leva les yeux au ciel et répliqua: « Je l'ignore toujours. » Sur ce, il ne daigna même plus regarder Zhao Chuanliang; il ferma les yeux et commença à cultiver. Cependant, dans son cœur, il était prêt à s'enfuir dans la Mer des Démons grâce à sa technique d'évasion terrestre si le vieil homme décidait de ne pas l'aider.
 
-Zhao Chuanliang ricana. Il se tourna vers le vieil homme et dit: « Aîné, non seulement cet individu a tué des disciples de ma Secte des Cadavres, mais il a également capturé l'âme d'un disciple de Tian Gang, Xu Liguo, pour qu'il puisse posséder un corps. J'ai déployé de grands efforts et j'ai même voyagé jusqu'à un pays de culture de rang 5 pour acheter cette information auprès du vieil homme Tian Di. Cela ne peut pas être une erreur. »
+Zhao Chuanliang ricana. Il se tourna vers le vieil homme et dit: « Senior, non seulement cet individu a tué des disciples de ma Secte des Cadavres, mais il a également capturé l'âme d'un disciple de Tian Gang, Xu Liguo, pour qu'il puisse posséder un corps. J'ai déployé de grands efforts et j'ai même voyagé jusqu'à un pays de culture de rang 5 pour acheter cette information auprès du vieil homme Tian Di. Cela ne peut pas être une erreur. »
 
 Le visage du vieil homme s'assombrit alors qu'il marmonnait: « Le vieil homme Tian Di... »
 
@@ -50,7 +50,7 @@ Sur ces mots, il leva la main et forma une main gigantesque. Telle un jouet d'en
 
 Hormis cinq cultivateurs de l'Âme Naissante au visage livide qui réussirent à l'esquiver, tous les cultivateurs de la Formation du Noyau furent réduits en poussière par cette onde de choc, ainsi que les cercueils qui les accompagnaient.
 
-Le corps de Zhao Chuanliang trembla alors qu'il fixait le vieil homme et dit amèrement: « La culture de cet aîné est très élevée, mais se faire l'ennemi de la Secte des Cadavres n'est pas une sage décision! Avec votre niveau, vous devriez connaître notre Secte, mais ce que vous en savez n'est que la partie émergée de l'iceberg. Je conseille à nouveau à l'aîné de ne pas s'allier à la Secte des Cadavres. Même si vous étiez le seigneur de l'une des Sept Cités de la Fleur de Prunier, il vous serait difficile d'échapper à la mort! »
+Le corps de Zhao Chuanliang trembla alors qu'il fixait le vieil homme et dit amèrement: « La culture de ce senior est très élevée, mais se faire l'ennemi de la Secte des Cadavres n'est pas une sage décision! Avec votre niveau, vous devriez connaître notre Secte, mais ce que vous en savez n'est que la partie émergée de l'iceberg. Je conseille à nouveau au senior de ne pas s'allier à la Secte des Cadavres. Même si vous étiez le seigneur de l'une des Sept Cités de la Fleur de Prunier, il vous serait difficile d'échapper à la mort! »
 
 Le Huitième Seigneur Démon Extrême ne souhaitant pas offenser la Secte des Cadavres, il épargna ces cinq hommes. Quant aux cultivateurs de la Formation du Noyau, il les scruta de son Sens Divin pour s'assurer qu'aucun d'entre eux n'était possédé; il ne les acheva qu'après en avoir eu la certitude.
 

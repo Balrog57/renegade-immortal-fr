@@ -122,7 +122,7 @@ Il renonça à entrer. Après tout, il devait encore présider la guerre entre L
 
 Lorsque Wang Lin attrapa le fragment céleste qui rétrécissait, il sentit immédiatement l'aura d'une Bête de Tonnerre. En plus de la puissante âme primaire scellée à l'intérieur, la Bête de Tonnerre était là!
 
-« Merci, Aîné! » À peine eut-il prononcé ces mots que son corps disparut, s'engouffrant dans le Serpent aux yeux de lune.
+« Merci, Senior! » À peine eut-il prononcé ces mots que son corps disparut, s'engouffrant dans le Serpent aux yeux de lune.
 
 À cet instant précis, le Serpent aux yeux de lune sombra complètement dans le vortex. Cependant, sa masse était telle qu'il agrandit considérablement le vortex, provoquant un effondrement encore plus vaste.
 

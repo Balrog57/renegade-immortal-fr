@@ -114,7 +114,7 @@ Après un long moment, les yeux de l'homme s'illuminèrent. Il s'arrêta, fixa l
 
 L'homme lança un regard froid vers l'horizon avant de s'éloigner.
 
-« Le cadet assis au centre de la boussole semblait reconnaître ce cristal. Il semble posséder une certaine connaissance... »
+« Le junior assis au centre de la boussole semblait reconnaître ce cristal. Il semble posséder une certaine connaissance... »
 
 Chi Hu, assis en position de lotus sur la boussole, demanda: « Frère Ceng, qu'était ce cristal en forme de diamant? Pourquoi ne m'as-tu pas laissé combattre? Bien que cet homme fût au stade avancé de la Formation de l'Âme, mon Clan des Démons Géants est spécial. Je ne pouvais peut-être pas le vaincre, mais je n'avais pas peur! »
 

@@ -106,7 +106,7 @@ Le vieil homme hocha légèrement la tête, puis d'un mouvement de sa main droit
 
 Une fois cela fait, le regard du vieil homme se posa sur Wang Lin et il sourit: « En réalité, tu m'as rencontré il y a bien longtemps! »
 
-Wang Lin agita la main droite pour faire revenir le piège à bêtes à son poignet. Il leva les yeux vers le vieil homme, son aura dominante s'étant dissipée, et joignit ses mains: « Le cadet Wang Lin salue l'aîné l'Omniscient. »
+Wang Lin agita la main droite pour faire revenir le piège à bêtes à son poignet. Il leva les yeux vers le vieil homme, son aura dominante s'étant dissipée, et joignit ses mains: « Le junior Wang Lin salue le senior l'Omniscient. »
 
 Le vieil homme observa le Pavillon de la Forêt Violette qui avait été largement détruit lors du grand combat. La seule partie encore relativement intacte était l'enseigne portant les trois mots: « Pavillon de la Forêt Violette ».
 

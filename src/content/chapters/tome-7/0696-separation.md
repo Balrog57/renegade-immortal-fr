@@ -18,7 +18,7 @@ L'Ancien en vert trembla et se tut immédiatement.
 
 Sun Qiming reprit d'un ton solennel: « La famille Sun est puissante et occupe la première place sur la planète Ran Yun. Cependant, tout cela a été acquis au prix de sacrifices amers. Si vous persistez dans cette voie, vous finirez par attirer un ennemi redoutable sur la famille Sun! »
 
-« Grand-père Sun, votre famille bénéficie de la protection de cet Aîné. Même si l'ennemi est puissant, je crains qu'il n'ose pas vous provoquer. » La personne qui prit la parole n'était pas un membre de la famille Sun, mais le jeune homme en robe violette qui s'était affronté avec Wang Ping.
+« Grand-père Sun, votre famille bénéficie de la protection de ce Senior. Même si l'ennemi est puissant, je crains qu'il n'ose pas vous provoquer. » La personne qui prit la parole n'était pas un membre de la famille Sun, mais le jeune homme en robe violette qui s'était affronté avec Wang Ping.
 
 Les yeux de Sun Qiming se posèrent sur le jeune homme et il dit calmement: « Jeune homme de la famille Yun, cette affaire a commencé à cause de vous. Préparez-vous, car elle pourrait ne pas être aussi facile à régler! »
 
@@ -48,7 +48,7 @@ L'Ancien au visage rouge était au stade de la Formation de l'Âme. D'un seul pa
 
 L'expression de Sun Qiming changea radicalement. À cet instant, il avait ressenti l'aura d'un cultivateur Ascendant. Ce qui le bouleversa le plus, c'est qu'il connaissait parfaitement cette aura.
 
-Sans la moindre hésitation, Sun Qiming saisit l'Ancien au visage rouge et le projeta en arrière. Il joignit respectueusement ses mains et dit: « Je vous prie d'excuser notre dérangement de la culture de l'Aîné. Ce subordonné s'en va immédiatement. »
+Sans la moindre hésitation, Sun Qiming saisit l'Ancien au visage rouge et le projeta en arrière. Il joignit respectueusement ses mains et dit: « Je vous prie d'excuser notre dérangement de la culture du Senior. Ce subordonné s'en va immédiatement. »
 
 Sur ces mots, il agita ses manches et disparut soudainement avec tous les membres de la famille Sun. Lorsqu'ils réapparurent, ils se trouvaient dans le hall principal de la branche de la famille Sun à Ville des Vastes Eaux.
 
@@ -58,7 +58,7 @@ Sur ces mots, il agita ses manches et disparut soudainement avec tous les membre
 
 Les membres de la famille Sun n'avaient jamais vu Sun Qiming dans un tel état. De plus, il les avait emmenés si rapidement qu'ils en étaient tous terrifiés. L'Ancien en robe verte regarda l'homme au visage rouge dont l'expression était livide et dont l'Âme Naissante était sur le point de s'effondrer. Tremblant, l'Ancien en vert demanda: « Chef de famille, qui... qui est-ce? »
 
-Sun Qiming renifla froidement et dit: « Vous avez un sacré culot pour l'avoir provoqué. Vous devriez tous connaître cet Aîné. Même l'Ancêtre Suprême devrait lui témoigner du respect. C'est grâce à cet homme que la famille Sun possède ce qu'elle a aujourd'hui! »
+Sun Qiming renifla froidement et dit: « Vous avez un sacré culot pour l'avoir provoqué. Vous devriez tous connaître ce Senior. Même l'Ancêtre Suprême devrait lui témoigner du respect. C'est grâce à cet homme que la famille Sun possède ce qu'elle a aujourd'hui! »
 
 « Se pourrait-il que... cette personne soit... » Le cœur de l'Ancien en vert trembla en pensant à un nom.
 
@@ -86,7 +86,7 @@ Qing Yi ne répondit rien, ses yeux demeurant glacials. Mais l'instant d'après,
 
 Yun Wufeng sursauta. Au moment où il tentait de se retourner, sa vision s'obscurcit et il s'effondra au sol.
 
-Qing Yi se redressa précipitamment et dit respectueusement: « Aîné... »
+Qing Yi se redressa précipitamment et dit respectueusement: « Senior... »
 
 Wang Lin sortit de l'ombre et s'assit. Il tenait une cruche de vin, en prit une gorgée, puis dit lentement: « Ton talent est plutôt bon. Passe une vie entière aux côtés de Wang Ping, et je t'offrirai une culture au stade de l'Âme Naissante. »
 

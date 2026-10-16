@@ -24,7 +24,7 @@ En entendant cela, le prince Ji Du se détendit légèrement. Son geste précéd
 
 « Cependant, même alors, mon père et le Grand Empyréen Song Tian n'étaient pas certains que l'Exalté Empyréen aux cheveux blancs du clan céleste, Wang Lin, fût la même personne que le disciple du Grand Empyréen Xuan Luo.
 
-« Moi-même, je ne m'en suis rendu compte qu'après avoir vu Aîné à Ville de la Pierre Noire. Il s'avère qu'Aîné est bel et bien le disciple du Grand Empyréen Xuan Luo! » Ji Du transpirait de plus belle en parlant avec précipitation. Devant Wang Lin, il ressentait une pression immense, plus écrasante encore que celle qu'il éprouvait face à son père; elle était comparable à celle du Grand Empyréen Song Tian.
+« Moi-même, je ne m'en suis rendu compte qu'après avoir vu Senior à Ville de la Pierre Noire. Il s'avère que Senior est bel et bien le disciple du Grand Empyréen Xuan Luo! » Ji Du transpirait de plus belle en parlant avec précipitation. Devant Wang Lin, il ressentait une pression immense, plus écrasante encore que celle qu'il éprouvait face à son père; elle était comparable à celle du Grand Empyréen Song Tian.
 
 La femme derrière lui pâlit en entendant ces révélations. Ses yeux étaient empreints d'incrédulité. Toutefois, si elle était autorisée à rester, c'était qu'elle jouissait manifestement de la confiance de Ji Du.
 
@@ -34,19 +34,19 @@ Le regard de Wang Lin balaya la femme. Elle ressemblait beaucoup au prince.
 
 Wang Lin reprit lentement: « Puisque vous connaissez mon identité, que vous savez que je suis le disciple de Xuan Luo et que vous m'avez vu demander la carte de l'Ancienne Voie, vous savez où je me rends. Alors, pourquoi vous inclinez-vous devant moi? »
 
-« Aîné, l'Ancienne Voie n'est pas un lieu propice... Même si vous êtes le disciple du Grand Empyréen Xuan Luo, l'Empereur de l'Ancienne Voie est d'une étroitesse d'esprit extrême. Si vous y allez, vous serez inévitablement opprimé... » Avant que le prince Ji Du n'ait pu achever sa phrase, une lueur glaciale traversa les yeux de Wang Lin et il laissa échapper un reniflement méprisant.
+« Senior, l'Ancienne Voie n'est pas un lieu propice... Même si vous êtes le disciple du Grand Empyréen Xuan Luo, l'Empereur de l'Ancienne Voie est d'une étroitesse d'esprit extrême. Si vous y allez, vous serez inévitablement opprimé... » Avant que le prince Ji Du n'ait pu achever sa phrase, une lueur glaciale traversa les yeux de Wang Lin et il laissa échapper un reniflement méprisant.
 
 D'un revers de manche, il se tourna pour quitter le palais.
 
-« Aîné! » Le prince Ji Du serra les dents et s'agenouilla brusquement! En tant que prince, il ne s'inclinait que devant ses parents et jamais devant quiconque, mais aujourd'hui, il fléchissait les genoux devant Wang Lin.
+« Senior! » Le prince Ji Du serra les dents et s'agenouilla brusquement! En tant que prince, il ne s'inclinait que devant ses parents et jamais devant quiconque, mais aujourd'hui, il fléchissait les genoux devant Wang Lin.
 
 Si cela s'était produit au sein du clan céleste, l'acte n'aurait pas eu un tel impact, mais dans le Clan Ancien, où la puissance impériale régnait en maître, le geste de Ji Du suffisait à stupéfier l'assistance!
 
 La princesse fut saisie d'effroi et, après une brève hésitation, elle s'agenouilla également.
 
-« Aîné, je suis prêt à devenir votre fils adoptif et vous à devenir mon parrain! Une fois que je serai devenu l'Empereur Shi de l'Ancienne Voie, vous serez mon père impérial!
+« Senior, je suis prêt à devenir votre fils adoptif et vous à devenir mon parrain! Une fois que je serai devenu l'Empereur Shi de l'Ancienne Voie, vous serez mon père impérial!
 
-« Je supplie Aîné de m'aider! Mon père a sept fils, et je suis le cinquième. Si Aîné accepte de m'épauler, je me plierai à toutes vos exigences! » s'écria le prince Ji Du. Sa voix était empreinte d'une sincérité mêlée d'ambition.
+« Je supplie Senior de m'aider! Mon père a sept fils, et je suis le cinquième. Si Senior accepte de m'épauler, je me plierai à toutes vos exigences! » s'écria le prince Ji Du. Sa voix était empreinte d'une sincérité mêlée d'ambition.
 
 Wang Lin s'arrêta et se retourna pour contempler le prince. Ses yeux révélèrent progressivement une lueur spectrale.
 

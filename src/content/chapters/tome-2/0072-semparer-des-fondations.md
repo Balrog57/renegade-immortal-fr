@@ -26,9 +26,9 @@ Le visage de la jeune fille nommée Xu, qui se tenait aux côtés de l'homme, de
 
 L'épée volante de l'homme d'âge moyen faillit elle aussi lâcher prise, et il dut user de toute sa force pour maintenir son vol. Il fit un pas en avant, rattrapa les deux personnes en chute libre, puis se posa au sol. Ce simple mouvement l'avait laissé trempé de sueur.
 
-Une fois au sol, il joignit rapidement les mains et dit: « Ce cadet est Li Hai, disciple de la Secte Xuan Dao. J'ignorais qu'un Aîné cultivait ici. Veuillez nous pardonner. »
+Une fois au sol, il joignit rapidement les mains et dit: « Ce junior est Li Hai, disciple de la Secte Xuan Dao. J'ignorais qu'un Senior cultivait ici. Veuillez nous pardonner. »
 
-La jeune fille nommée Xu remarqua également ce Sens Divin qui l'avait fait perdre le contrôle de son épée. Elle répondit respectueusement: « Ce cadet est Xu Fei, disciple de la Secte Xuan Dao. »
+La jeune fille nommée Xu remarqua également ce Sens Divin qui l'avait fait perdre le contrôle de son épée. Elle répondit respectueusement: « Ce junior est Xu Fei, disciple de la Secte Xuan Dao. »
 
 Le jeune homme était si terrifié qu'il avait perdu toute trace de couleur sur le visage. Il restait là, agrippant les vêtements de la jeune fille, sans oser prononcer un mot.
 
@@ -36,11 +36,11 @@ Les bêtes elles aussi ressentirent un frisson lorsque le Sens Divin se propagea
 
 « Secte Xuan Dao... » Une voix très ancienne résonna dans les environs. Il était difficile de dire si elle exprimait la joie ou la colère.
 
-L'homme d'âge moyen gémit intérieurement. S'il avait été seul, il se serait simplement enfui dès qu'il aurait senti que quelque chose n'allait pas, mais avec une sœur et un frère juniors ici, s'il partait, leurs maîtres le tiendraient certainement pour responsable. Il ne pouvait qu'espérer que la proximité de la Secte Xuan Dao et le fait qu'ils n'aient encore rien fait pour offenser cet Aîné lui permettraient d'être épargnés.
+L'homme d'âge moyen gémit intérieurement. S'il avait été seul, il se serait simplement enfui dès qu'il aurait senti que quelque chose n'allait pas, mais avec une sœur et un frère juniors ici, s'il partait, leurs maîtres le tiendraient certainement pour responsable. Il ne pouvait qu'espérer que la proximité de la Secte Xuan Dao et le fait qu'ils n'aient encore rien fait pour offenser ce Senior lui permettraient d'être épargnés.
 
-Après avoir entendu ces mots, il se mit à réfléchir. L'homme serra les dents, décidant que sa vie était prioritaire: si l'Aîné manifestait une intention de tuer, il s'enfuirait d'abord.
+Après avoir entendu ces mots, il se mit à réfléchir. L'homme serra les dents, décidant que sa vie était prioritaire: si le Senior manifestait une intention de tuer, il s'enfuirait d'abord.
 
-Le front de Xu Fei était couvert de perles de sueur. Elle fut prise de panique en voyant son troisième frère aîné, d'ordinaire si calme, pâlir de peur. Elle hésita un instant, puis dit: « Aîné, ce cadet ne vous a rien fait pour vous offenser. Vous... »
+Le front de Xu Fei était couvert de perles de sueur. Elle fut prise de panique en voyant son troisième frère aîné, d'ordinaire si calme, pâlir de peur. Elle hésita un instant, puis dit: « Senior, ce junior ne vous a rien fait pour vous offenser. Vous... »
 
 Avant qu'elle n'ait pu terminer, la vieille voix laissa échapper un son de surprise: « Tu as dit que ton nom est Xu? »
 
@@ -48,9 +48,9 @@ La jeune fille fut stupéfaite. Elle répondit respectueusement: « La disciple 
 
 Le silence retomba. Après un long moment, la voix soupira: « Vous pouvez partir. » Sur ces mots, le ciel changea soudainement, comme si une main invisible agitait l'air. Les trois furent projetés au loin par un vent irrésistible.
 
-L'homme d'âge moyen fut plus terrifié encore. À cet instant précis, il eut l'impression que son corps entier était emprisonné; si cet Aîné décidait de le tuer, il ne pourrait même pas réagir.
+L'homme d'âge moyen fut plus terrifié encore. À cet instant précis, il eut l'impression que son corps entier était emprisonné; si ce Senior décidait de le tuer, il ne pourrait même pas réagir.
 
-Poussé par la peur, dès que la force restrictive disparut, il attrapa immédiatement ses frères et sœurs juniors et s'enfuit le plus vite possible sans dire un mot. Craignant que l'Aîné ne change d'avis, il utilisa toute sa force pour s'éloigner.
+Poussé par la peur, dès que la force restrictive disparut, il attrapa immédiatement ses frères et sœurs juniors et s'enfuit le plus vite possible sans dire un mot. Craignant que le Senior ne change d'avis, il utilisa toute sa force pour s'éloigner.
 
 Une fois les trois disparus, la falaise végétalisée commença à trembler jusqu'à ce que toute la végétation tombe, révélant une grotte sombre.
 

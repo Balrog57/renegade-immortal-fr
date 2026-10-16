@@ -16,7 +16,7 @@ Grâce à sa sagesse, Wang Lin avait naturellement percé à jour le plan du cul
 
 « Quel est ton nom? » Wang Lin atterrit au sol avec la légèreté d'une feuille de saule flottant dans le vent, se tenant désormais au centre de la place de la Secte du Tonnerre Céleste.
 
-« Pour répondre: mon nom est Zhong Grand Rouge. Zhong comme le petit Zhong, et Rouge comme le petit rouge. Ce cadet n'a toujours respecté qu'une seule personne. Laissez-moi ouvrir la voie, laissez-moi... » Le cultivateur allait poursuivre, mais Wang Lin l'interrompit.
+« Pour répondre: mon nom est Zhong Grand Rouge. Zhong comme le petit Zhong, et Rouge comme le petit rouge. Ce junior n'a toujours respecté qu'une seule personne. Laissez-moi ouvrir la voie, laissez-moi... » Le cultivateur allait poursuivre, mais Wang Lin l'interrompit.
 
 « Assez. Remets-moi tout ce que tu as rassemblé et qui peut être échangé contre des cristaux de tonnerre. »
 
@@ -32,13 +32,13 @@ Du point de vue de Grand Rouge, parmi tous ses sorts, cet art invincible était 
 
 À l'ordre de Wang Lin, il forma rapidement un sceau et frappa la marque entre ses sourcils. Dans un éclair, une multitude d'objets échangeables contre des cristaux de tonnerre jaillirent jusqu'à former une petite montagne.
 
-« Aîné, voici tout ce que le cadet a rassemblé au fil des années. Bien qu'il n'y ait rien d'extrêmement précieux, la quantité est importante. Le cadet estime que cela devrait valoir environ 50 000 cristaux de tonnerre. » Après avoir parlé, il observa attentivement l'expression de Wang Lin. En voyant celui-ci froncer les sourcils, il fut saisi d'effroi, contracta les mâchoires et reprit précipitamment:
+« Aîné, voici tout ce que le junior a rassemblé au fil des années. Bien qu'il n'y ait rien d'extrêmement précieux, la quantité est importante. Le junior estime que cela devrait valoir environ 50 000 cristaux de tonnerre. » Après avoir parlé, il observa attentivement l'expression de Wang Lin. En voyant celui-ci froncer les sourcils, il fut saisi d'effroi, contracta les mâchoires et reprit précipitamment:
 
-« Aîné, le cadet possède également quelques trésors à offrir à l'Aîné! » Tout en parlant, sa main droite frappa de nouveau sa marque et trois autres objets volèrent hors de lui.
+« Aîné, le junior possède également quelques trésors à offrir à l'Aîné! » Tout en parlant, sa main droite frappa de nouveau sa marque et trois autres objets volèrent hors de lui.
 
 Le premier était une branche aussi épaisse qu'un bras, parcourue d'éclairs tonitruants. Le deuxième était une pilule émettant une lueur verte. Le troisième était un miroir antique.
 
-« Ces trois objets sont des choses que le cadet a spécialement préparées pour l'Aîné. Ces trois seuls peuvent être échangés contre 10 000 cristaux de tonnerre. »
+« Ces trois objets sont des choses que le junior a spécialement préparées pour l'Aîné. Ces trois seuls peuvent être échangés contre 10 000 cristaux de tonnerre. »
 
 Wang Lin regarda Grand Rouge avec un sourire qui n'en était pas un. Son regard fit frissonner Grand Rouge jusqu'à la moelle et, juste au moment où celui-ci allait parler, Wang Lin agita ses manches, faisant disparaître tout le butin destiné aux cristaux de tonnerre.
 
@@ -68,7 +68,7 @@ Sur ces mots, Wang Lin envoya un message mental à Xu Liguo lui signifiant son o
 
 « Personne n'est meilleur que votre Grand-pè... Erreur, Petit Xu! Maître, soyez tranquille, un simple milliard de cristaux de tonnerre, laissez cela à moi! »
 
-Le mauvais pressentiment de Grand Rouge s'intensifia. Il fit rapidement quelques pas en avant, fixa Wang Lin avec respect et dit: « Aîné, le cadet n'a pas fini de parler. Le cadet possède encore un trésor pouvant être échangé contre 10 000 cristaux de tonnerre! Seul un être tel que l'Aîné peut posséder une telle merveille! » Après avoir parlé, il frappa à nouveau sa marque et, dans un éclair, une épée volante jaillit, dégageant une aura glaciale.
+Le mauvais pressentiment de Grand Rouge s'intensifia. Il fit rapidement quelques pas en avant, fixa Wang Lin avec respect et dit: « Aîné, le junior n'a pas fini de parler. Le junior possède encore un trésor pouvant être échangé contre 10 000 cristaux de tonnerre! Seul un être tel que l'Aîné peut posséder une telle merveille! » Après avoir parlé, il frappa à nouveau sa marque et, dans un éclair, une épée volante jaillit, dégageant une aura glaciale.
 
 Wang Lin esquissa un sourire, hocha légèrement la tête et rangea l'épée volante.
 
@@ -90,7 +90,7 @@ Les yeux de Wang Lin s'illuminèrent et il fit un geste de la main. La pilule at
 
 « Je te donne cette pilule. Désormais, tu m'aideras à collecter des objets pour les échanger contre des cristaux de tonnerre! » dit doucement Wang Lin. Il n'avait pas l'intention d'échanger ses propres pilules, car cela renforcerait le Clan de la Foudre Dispersée. Au lieu de cela, il allait utiliser Grand Rouge pour soutirer les trésors des membres du clan afin de les convertir en cristaux!
 
-Grand Rouge prit une profonde inspiration, serra la pilule et déclara immédiatement: « Aîné, soyez assuré que le cadet fera de son mieux! »
+Grand Rouge prit une profonde inspiration, serra la pilule et déclara immédiatement: « Aîné, soyez assuré que le junior fera de son mieux! »
 
 Xu Liguo fixa Grand Rouge avec hostilité. Bien qu'il ne se soucie guère de la pilule, ce Grand Rouge lui était insupportable à regarder, et son regard devint venimeux.
 

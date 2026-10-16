@@ -66,7 +66,7 @@ Au même moment, d'innombrables membres de la famille Wang, vêtus de soie, fixa
 
 L'homme d'âge moyen lança impitoyablement la dalle d'encre et hurla: « Quel genre d'individu ose commettre un meurtre dans ma Grande Dynastie Wang?! Avez-vous découvert de quelle secte il est issu? »
 
-Un silence total régna. Après un moment, un cultivateur aux cheveux blancs hésita avant de s'avancer et de déclarer: « Ces trois individus sont très puissants; ce sont probablement des aînés ayant un haut niveau de culture. Quant à leurs sectes, nous menons encore les recherches. »
+Un silence total régna. Après un moment, un cultivateur aux cheveux blancs hésita avant de s'avancer et de déclarer: « Ces trois individus sont très puissants; ce sont probablement des seniors ayant un haut niveau de culture. Quant à leurs sectes, nous menons encore les recherches. »
 
 L'expression de l'homme d'âge moyen devint lugubre et il ricana: « Il semble que ma famille Wang ait été trop tranquille sur la planète Suzaku. Même un inconnu sans nom ose nous intimider! Où est le Professeur National?! »
 

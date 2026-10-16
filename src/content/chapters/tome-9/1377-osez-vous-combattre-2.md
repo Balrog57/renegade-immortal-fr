@@ -22,7 +22,7 @@ Cette pilule contenait quatre auras. Ces quatre auras étaient extrêmement chao
 
 Le jeune maître du Clan du Dragon Blindé réfléchit un instant, puis ses yeux s'illuminèrent et il hocha la tête.
 
-« Très bien. Je me demande combien de Pilules d'Effondrement du Dragon l'Aîné souhaite échanger? »
+« Très bien. Je me demande combien de Pilules d'Effondrement du Dragon le Senior souhaite échanger? »
 
 « 10 000. »
 
@@ -40,15 +40,15 @@ L'expression de Wang Lin resta calme. Il marchait lentement dans la cité du Cla
 
 « Vous me suivez depuis tout à l'heure. Cherchez-vous la mort? »
 
-La voix de Wang Lin était glaciale. Lorsque ses mots résonnèrent, des ondulations apparurent à cent pieds derrière lui. Un vieil homme du Clan de l'Hirondelle de Feu en sortit. Il paraissait extrêmement respectueux et joignit les mains: « Aîné, ne soyez pas en colère. Ce cadet vous suit pour conclure un marché. »
+La voix de Wang Lin était glaciale. Lorsque ses mots résonnèrent, des ondulations apparurent à cent pieds derrière lui. Un vieil homme du Clan de l'Hirondelle de Feu en sortit. Il paraissait extrêmement respectueux et joignit les mains: « Senior, ne soyez pas en colère. Ce junior vous suit pour conclure un marché. »
 
 Wang Lin ne répondit rien, se contentant de fixer froidement le vieil homme.
 
-La sueur perla sur le front du vieil homme qui s'empressa de dire: « Ce cadet possède une grande quantité de Cristaux de Mutation de la Flamme Ardente. Si l'Aîné le souhaite, il peut tous les échanger. Ce cadet ne veut que ces pilules. »
+La sueur perla sur le front du vieil homme qui s'empressa de dire: « Ce junior possède une grande quantité de Cristaux de Mutation de la Flamme Ardente. Si le Senior le souhaite, il peut tous les échanger. Ce junior ne veut que ces pilules. »
 
 Wang Lin demanda nonchalamment: « Combien de Cristaux de Mutation de la Flamme Ardente possédez-vous? »
 
-« J'en ai 100 de la même taille que celle que l'Aîné a vue précédemment! » L'esprit du vieil homme était secoué par l'audace de Wang Lin. En quelques phrases seulement, ses vêtements étaient déjà trempés de sueur.
+« J'en ai 100 de la même taille que celle que le Senior a vue précédemment! » L'esprit du vieil homme était secoué par l'audace de Wang Lin. En quelques phrases seulement, ses vêtements étaient déjà trempés de sueur.
 
 Wang Lin dit calmement: « Apportez-les. »
 
@@ -124,7 +124,7 @@ Simultanément, dans la terre sainte du Clan du Dragon Blindé, le Patriarche et
 
 « Père, j'ai déjà remis les 10 000 Pilules d'Effondrement du Dragon, comme vous l'aviez ordonné. »
 
-L'expression du Patriarche était sombre alors qu'il regardait Maître Simo et déclarait: « Cet individu a volé 10 000 de nos pilules. Je demande à Maître Simo de m'aider à le capturer. Je récompenserai grandement l'Aîné une fois l'individu appréhendé! »
+L'expression du Patriarche était sombre alors qu'il regardait Maître Simo et déclarait: « Cet individu a volé 10 000 de nos pilules. Je demande à Maître Simo de m'aider à le capturer. Je récompenserai grandement le Senior une fois l'individu appréhendé! »
 
 Maître Simo esquissa un sourire. Mais juste au moment où il s'apprêtait à parler, un rire déchira le ciel!
 

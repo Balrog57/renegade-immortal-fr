@@ -74,7 +74,7 @@ Elle portait une robe rose en forme de papillon. Elle ne paraissait pas très â
 
 Sa peau de jade et ses cheveux comme des nuages la rendaient irrésistible.
 
-« Frère Aîné Wang, êtes-vous là? C'est Song Ying. » Le visage de la femme était rouge et sa voix ressemblait au chant d'un oiseau. Elle était magnifique et regarda à l'intérieur de la pièce en parlant.
+« Senior Frère Wang, êtes-vous là? C'est Song Ying. » Le visage de la femme était rouge et sa voix ressemblait au chant d'un oiseau. Elle était magnifique et regarda à l'intérieur de la pièce en parlant.
 
 Un homme était assis dans la salle d'alchimie. Il avait une chevelure rousse et une expression très froide. Il semblait avoir une trentaine d'années, et l'aura glaciale qu'il dégageait donnait l'impression que l'hiver l'accompagnait partout où il allait!
 
@@ -94,7 +94,7 @@ Elle avait le sentiment que Wang Lin cachait de nombreux secrets et qu'il était
 
 Quant à la froideur de Wang Lin, loin de l'effrayer, elle ne faisait qu'accroître son désir de découvrir qui il était vraiment. Elle pensait sans cesse à sa silhouette austère.
 
-Le visage de Song Ying rougit pendant sa culture, mais cette fois, son rythme cardiaque s'accéléra et elle ne parvint pas à se concentrer. Touchant un objet dans ses vêtements, elle hésita, mordit sa lèvre et murmura vers la pièce: « Frère Aîné Wang, je... »
+Le visage de Song Ying rougit pendant sa culture, mais cette fois, son rythme cardiaque s'accéléra et elle ne parvint pas à se concentrer. Touchant un objet dans ses vêtements, elle hésita, mordit sa lèvre et murmura vers la pièce: « Senior Frère Wang, je... »
 
 Cependant, avant qu'elle n'ait fini, la porte s'ouvrit brusquement et Wang Lin sortit. Au moment où il apparut, une immense quantité d'énergie froide se propagea.
 
@@ -102,7 +102,7 @@ Cette aura glaciale n'était pas réelle; c'était simplement l'énergie spiritu
 
 Heureusement, comme il s'agissait d'une salle d'alchimie déjà riche en essence spirituelle, cela ne paraissait pas suspect.
 
-L'apparition du corps originel de Wang Lin coupa l'élan de Song Ying. Alors qu'elle rassemblait son courage pour continuer, elle vit le Frère Aîné Wang qu'elle admirait tant faire un pas, s'élancer vers le ciel et disparaître.
+L'apparition du corps originel de Wang Lin coupa l'élan de Song Ying. Alors qu'elle rassemblait son courage pour continuer, elle vit le Senior Frère Wang qu'elle admirait tant faire un pas, s'élancer vers le ciel et disparaître.
 
 Le visage de Song Ying s'assombrit alors qu'elle sortait une bourse brodée remplie d'herbes spirituelles qu'elle avait elle-même cueillies. Cet objet servait à apaiser l'esprit.
 

@@ -18,7 +18,7 @@ Wang Lin, qui avait cultivé pendant des milliers d'années, était extrêmement
 
 Lie Yunzi hocha la tête et répondit: « Une fois cette bataille terminée, n'oublie pas de venir me voir pour consulter les Tableaux de Bataille restants! »
 
-Avec une expression respectueuse, Wang Lin dit: « Ce cadet le sait. »
+Avec une expression respectueuse, Wang Lin dit: « Junior le sait. »
 
 L'ancêtre de la famille Shengong était resté silencieux jusqu'alors, quand il déclara soudainement: « Xu Mu, sors le Dao de Shengong Hu! »
 

@@ -130,7 +130,7 @@ Le retour de Wang Lin ne suscita pas trop d'attention au sein de la Secte Origin
 
 Xu Yun regarda l'amas d'herbes devant elle et eut le souffle coupé. Grâce à sa clairvoyance, elle comprit que beaucoup de ces plantes étaient extrêmement rares, et que leur valeur dépassait de loin celle des herbes que Wang Lin avait consommées.
 
-Elle resta stupéfaite un long moment avant de reprendre ses esprits et de pousser un soupir de soulagement. Après le départ de Wang Lin, elle subissait les réprimandes quotidiennes de son maître et était très inquiète. Son maître lui avait dit que si l'Aîné Ceng Niu ne revenait pas, ce serait elle qui apporterait la ruine à la secte lors de l'arrivée de la Secte du Dao Pourpre.
+Elle resta stupéfaite un long moment avant de reprendre ses esprits et de pousser un soupir de soulagement. Après le départ de Wang Lin, elle subissait les réprimandes quotidiennes de son maître et était très inquiète. Son maître lui avait dit que si le Senior Ceng Niu ne revenait pas, ce serait elle qui apporterait la ruine à la secte lors de l'arrivée de la Secte du Dao Pourpre.
 
 À l'intérieur de la maison, Wang Lin s'assit, le regard grave, et pressa sa poitrine de la main droite. Son visage était toujours pâle alors qu'il entamait sa culture. Bientôt, des éclairs de lignes blanches commencèrent à être expulsés de son corps.
 

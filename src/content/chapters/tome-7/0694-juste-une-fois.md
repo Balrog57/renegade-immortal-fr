@@ -24,7 +24,7 @@ Cependant, quelle que soit son identité, cela n'importait guère à Wang Lin. S
 
 La scène qui se déroulait devant lui fit haleter Wang Ping alors qu'il regardait son père. À cet instant, il réalisa soudainement que son père n'était pas un cultivateur ordinaire. Un simple regard de sa part avait suffi à plonger ce vieil homme dans un tel état.
 
-Qing Yi fixa le père et le fils. Après avoir hésité un instant, elle s'avança et dit respectueusement: « Aîné, c'est nous qui avons été imprudents... »
+Qing Yi fixa le père et le fils. Après avoir hésité un instant, elle s'avança et dit respectueusement: « Senior, c'est nous qui avons été imprudents... »
 
 Wang Lin saisit la cruche de vin, en prit une gorgée et ne la regarda même pas.
 

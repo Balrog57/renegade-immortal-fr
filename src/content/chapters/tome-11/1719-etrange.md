@@ -14,7 +14,7 @@ Qing Lin regarda l'endroit où Wang Lin avait disparu, l'inquiétude se lisant s
 
 Les yeux de Qing Lin brillèrent d'un éclat vif et il s'élança à son tour vers le ciel. Avant de partir, son Sens Divin se propagea à travers tout le Royaume Céleste.
 
-« Aîné Hong Shan, Aîné Nan Yunzi, Wang Lin a été victime d'un complot orchestré par un certain Omniscient. Je m'en vais, voulez-vous m'accompagner? »
+« Senior Hong Shan, Senior Nan Yunzi, Wang Lin a été victime d'un complot orchestré par un certain Omniscient. Je m'en vais, voulez-vous m'accompagner? »
 
 L'aura du Maître Hong Shan explosa depuis le centre du Royaume Céleste. Il s'envola dans les cieux sans la moindre hésitation.
 

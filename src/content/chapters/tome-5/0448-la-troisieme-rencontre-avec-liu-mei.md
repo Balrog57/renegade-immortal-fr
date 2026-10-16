@@ -104,7 +104,7 @@ Bien que le paon fût toujours magnifique, ses couleurs s'étaient ternies. Le v
 
 Alors qu'il rejetait sa lance, Wang Lin recula promptement et tendit la main; soudain, une bannière de dix mètres de haut apparut dans sa paume.
 
-À l'instant où la bannière se manifesta, la froideur dans le regard de Liu Mei s'intensifia. Elle fixa la bannière d'âme et murmura: « Je ne m'attendais pas à ce que l'Aîné Du Tian vous remette réellement la Bannière d'Âme du Milliard d'Âmes. Cependant, Wang Lin, je savais déjà que tu la possédais, sans quoi je n'aurais pas choisi de t'attendre sur cet autel. »
+À l'instant où la bannière se manifesta, la froideur dans le regard de Liu Mei s'intensifia. Elle fixa la bannière d'âme et murmura: « Je ne m'attendais pas à ce que le Senior Du Tian vous remette réellement la Bannière d'Âme du Milliard d'Âmes. Cependant, Wang Lin, je savais déjà que tu la possédais, sans quoi je n'aurais pas choisi de t'attendre sur cet autel. »
 
 « J'ai été la deuxième personne à entrer dans la Tombe de Suzaku, et voici le champ de bataille que j'ai choisi pour nous deux. Si tu décides d'utiliser la bannière d'âme, je détruirai l'autel. Il faudra plusieurs jours pour qu'il se reforme, ce qui te retardera considérablement. »
 

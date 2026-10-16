@@ -26,7 +26,7 @@ Le corps de Tong Yun trembla et se figea. Il eut le pressentiment que s'il tenta
 
 « Tu ne souhaites donc pas récupérer le cadavre de ton frère de discipline? » Wang Lin s'accroupit sans pour autant se retourner.
 
-Le visage de Tong Yun se contracta et il répondit précipitamment: « Si Aîné le désire, alors je vous en prie, prenez-le. Je n'en ferai aucun cas. Mon frère de discipline a eu une vie difficile; s'il peut servir quelqu'un comme Aîné après sa mort, ce sera sa bénédiction. Je suis convaincu que même s'il était encore en vie, s'il savait qu'Aîné était intéressé, il se donnerait la mort sans la moindre hésitation. Mon frère était une personne d'une telle bienveillance. »
+Le visage de Tong Yun se contracta et il répondit précipitamment: « Si Senior le désire, alors je vous en prie, prenez-le. Je n'en ferai aucun cas. Mon frère de discipline a eu une vie difficile; s'il peut servir quelqu'un comme Senior après sa mort, ce sera sa bénédiction. Je suis convaincu que même s'il était encore en vie, s'il savait que Senior était intéressé, il se donnerait la mort sans la moindre hésitation. Mon frère était une personne d'une telle bienveillance. »
 
 Terrifié, il déversait un flot de mensonges.
 
@@ -44,11 +44,11 @@ Wang Lin prit une profonde inspiration et saisit cette lumière. Il la porta à 
 
 Puis, d'un coup de pied, il projeta le corps de Zi Shu vers Tong Yun. Il dit: « Voici le corps de votre frère de discipline! Donnez-lui une sépulture digne. »
 
-Le visage de Tong Yun était d'une pâleur extrême. Encore sous le choc d'avoir échappé au désastre, il rattrapa précipitamment le cadavre et s'exclama: « Oui, merci Aîné! Merci, Aîné! » Il partit rapidement, le corps serré contre lui.
+Le visage de Tong Yun était d'une pâleur extrême. Encore sous le choc d'avoir échappé au désastre, il rattrapa précipitamment le cadavre et s'exclama: « Oui, merci Senior! Merci, Senior! » Il partit rapidement, le corps serré contre lui.
 
 Ce n'est que lorsqu'il fut à des dizaines de kilomètres de là qu'il poussa un soupir de soulagement, découvrant qu'il était trempé de sueur froide. Une haine profonde l'envahit tandis qu'il regardait le cadavre décapité; il le jeta brutalement sur le côté. D'un geste de la main droite, il fit apparaître un immense nuage noir qui enveloppa la dépouille et, en un clin d'œil, dévora entièrement le corps, jusqu'aux os.
 
-« C'est la faute de ce cadavre! J'ai failli y laisser ma vie! Bien que le niveau de culture de cet Aîné soit élevé, son esprit est quelque peu lent. Il a vraiment cru que cet homme était mon frère de discipline! » Tong Yun cracha au sol, encore secoué par la peur en repensant à ce qui venait de se passer. Il jeta un dernier regard en arrière avant de quitter précipitamment les lieux.
+« C'est la faute de ce cadavre! J'ai failli y laisser ma vie! Bien que le niveau de culture de ce Senior soit élevé, son esprit est quelque peu lent. Il a vraiment cru que cet homme était mon frère de discipline! » Tong Yun cracha au sol, encore secoué par la peur en repensant à ce qui venait de se passer. Il jeta un dernier regard en arrière avant de quitter précipitamment les lieux.
 
 Il ignorait quel sort l'aurait frappé si Wang Lin avait réellement cru qu'il était le frère aîné de Zi Shu.
 

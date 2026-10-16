@@ -6,7 +6,7 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 431 - The dove took over the magpies nest
 slug: la-colombe-a-pris-possession-du-nid-de-la-pie
 ---
-« Frère Wang, ce jade contient des informations sur le domaine de Liu Mei. Je sais que cet aîné a ses propres raisons pour cela, alors libre à vous de les consulter ou non. »
+« Frère Wang, ce jade contient des informations sur le domaine de Liu Mei. Je sais que ce senior a ses propres raisons pour cela, alors libre à vous de les consulter ou non. »
 
 Zhou Wutai partit avec la boute de vin à moitié vide et laissa le jade derrière lui.
 

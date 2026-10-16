@@ -10,11 +10,11 @@ Wang Lin s'arrêta et tourna son regard vers l'origine de la voix. Au loin, il a
 
 Wang Lin eut le sentiment que cette personne lui était très familière. D'un pas, il se retrouva devant l'homme d'âge moyen. Il s'agenouilla et demanda: « Qu'avez-vous dit à l'instant? »
 
-L'homme hésita un instant. Il esquissa un sourire amer et dit: « Aîné, ce cadet vous a confondu avec quelqu'un d'autre. Veuillez ne pas m'en tenir rigueur, Aîné. »
+L'homme hésita un instant. Il esquissa un sourire amer et dit: « Senior, junior vous a confondu avec quelqu'un d'autre. Veuillez ne pas m'en tenir rigueur, Senior. »
 
 Wang Lin l'observa attentivement et répliqua: « Ah bon? Pour qui m'avez-vous pris? »
 
-L'homme sourit amèrement et s'exclama: « Aîné, ce cadet avait autrefois un frère instructeur cadet. C'est moi qui l'avais amené au sein de la secte... »
+L'homme sourit amèrement et s'exclama: « Senior, junior avait autrefois un frère instructeur junior. C'est moi qui l'avais amené au sein de la secte... »
 
 Le cœur de Wang Lin chancela. Il se souvint enfin de l'identité de cet homme. Après une courte réflexion, il agita ses manches et disparut de la Secte He Huan, emportant l'homme d'âge moyen avec lui.
 
@@ -22,7 +22,7 @@ Sur une falaise située à une cinquantaine de kilomètres de là, Wang Lin et l
 
 L'homme regarda autour de lui, affichant une expression complexe, et murmura doucement: « Vous... »
 
-Wang Lin soupira discrètement et dit: « frère aîné instructeur Zhang, si vous m'aviez reconnu, pourquoi ne pas l'avoir simplement dit? »
+Wang Lin soupira discrètement et dit: « Senior frère instructeur Zhang, si vous m'aviez reconnu, pourquoi ne pas l'avoir simplement dit? »
 
 Le corps de l'homme tressaillit. Après un moment de réflexion, il eut un sourire amer et répondit: « Je... eh bien... »
 
@@ -34,7 +34,7 @@ L'homme murmura: « Je n'y suis pas retourné depuis de nombreuses années... »
 
 L'homme sourit amèrement et expliqua: « Après votre départ et votre absence prolongée, les ancêtres ont concentré tous leurs efforts sur moi. Ils se sont investis pour élever mon niveau de culture jusqu'à la Formation du Noyau. Je suis ensuite parti de la Secte Heng Yue avec l'intention de parcourir le monde et d'affronter les épreuves, dans l'espoir d'atteindre un jour le stade de l'Âme Naissante afin de restaurer la secte. Mais je ne m'attendais pas à rencontrer une femme. C'était une disciple de la Secte He Huan... Hélas, toute ma culture a été perdue. Cependant, cette traînée ne m'a pas tué par égard pour notre passé et utilise mon corps pour raffiner une Pilule He Huan. Bien que je sois devenu un moins que rien, je resterai en vie jusqu'à ce que la pilule soit achevée. Si cela n'avait pas été le cas, je ne serais déjà plus qu'un tas d'os. »
 
-Wang Lin réfléchit un instant. Il tapota sa sacoche de rangement et en sortit une petite bouteille de jade blanc. Il la tendit à l'homme et dit: « Il y a sept pilules dans cette bouteille. Vous devez en prendre une par mois. Après sept mois, vous devriez être capable de recouvrer au moins la moitié de votre culture. frère aîné instructeur Zhang, j'ai encore des affaires impérieuses à régler. J'espère qu'après ces adieux, nous aurons l'occasion de nous revoir. »
+Wang Lin réfléchit un instant. Il tapota sa sacoche de rangement et en sortit une petite bouteille de jade blanc. Il la tendit à l'homme et dit: « Il y a sept pilules dans cette bouteille. Vous devez en prendre une par mois. Après sept mois, vous devriez être capable de recouvrer au moins la moitié de votre culture. Senior frère instructeur Zhang, j'ai encore des affaires impérieuses à régler. J'espère qu'après ces adieux, nous aurons l'occasion de nous revoir. »
 
 Sur ces mots, Wang Lin posa un regard profond sur l'homme, puis son corps s'anima et disparut. Lorsqu'il réapparut, il était déjà en plein ciel, debout sur la bête moustique qui transportait les cadavres derrière elle.
 

@@ -116,15 +116,15 @@ Le vieil homme fut surpris. Après une hésitation, il sortit un jade et le tend
 
 Après avoir pris le jade, Wang Lin y jeta un œil et descendit de la tête du diable ancien, prêt à partir. Quant au prince, Wang Lin ne le jugeait pas digne de son attention.
 
-« Aîné, veuillez attendre! » s'exclama immédiatement le prince en apparaissant devant lui. Il fit une révérence profonde, l'air très sincère.
+« Senior, veuillez attendre! » s'exclama immédiatement le prince en apparaissant devant lui. Il fit une révérence profonde, l'air très sincère.
 
-« Le jeune Ji Du a offensé l'Aîné plus tôt. J'espère que vous ne lui en tiendrez pas rigueur. Veuillez accorder au cadet une chance de se racheter. »
+« Le jeune Ji Du a offensé le Senior plus tôt. J'espère que vous ne lui en tiendrez pas rigueur. Veuillez accorder au cadet une chance de se racheter. »
 
 « Oh? Et comment comptez-vous vous racheter? » Wang Lin esquissa un sourire qui n'en était pas un.
 
 Voyant Wang Lin s'exprimer, le prince retrouva de l'entrain et joignit rapidement les mains.
 
-« Je demande à l'Aîné de bien vouloir patienter un instant. Une fois que j'aurai fait partir les ambassadeurs de l'Dao Antique, je saurai certainement me montrer à la hauteur de vos attentes. » Après que Wang Lin eut acquiescé, le prince envoya immédiatement un message à l'homme massif en armure dorée situé plus bas:
+« Je demande au Senior de bien vouloir patienter un instant. Une fois que j'aurai fait partir les ambassadeurs de l'Dao Antique, je saurai certainement me montrer à la hauteur de vos attentes. » Après que Wang Lin eut acquiescé, le prince envoya immédiatement un message à l'homme massif en armure dorée situé plus bas:
 
 « Veuillez inviter Lady Song Zhi à accompagner les ambassadeurs de l'Dao Antique. »
 

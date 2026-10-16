@@ -50,7 +50,7 @@ Zhou Yi fronça les sourcils.
 
 Chi Hu sourit amèrement intérieurement. Il ne voulait absolument pas de ce cadavre. Si les anciens de son clan l'apprenaient, cela aurait des conséquences trop lourdes pour lui. Mais en cet instant, il s'agissait de la requête d'un cultivateur Ascendant mourant. Personne n'oserait refuser.
 
-Chi Hu prit une profonde inspiration et dit: «... Le cadet est disposé! »
+Chi Hu prit une profonde inspiration et dit: «... Le junior est disposé! »
 
 Zhou Yi secoua la tête et dit: « Tu es le jeune maître du Clan des Démons Géants, il est naturel que tu craignes de suivre mes traces. Laisse tomber! »
 

@@ -76,11 +76,11 @@ Quant à Zhao Xingsha, son corps trembla; il n'en croyait pas ses oreilles. Il r
 
 « Ce Wang Lin a réellement atteint le stade du Scruteur du Nirvana. Bien qu'il y ait encore un fossé entre lui et nous, il est désormais quelqu'un qui a accompli tant de choses qu'on ne peut plus le traiter comme un simple cadet. » Le vieil homme sur la gourde sourit et dit: « Wang Lin, je veux te demander: pourquoi as-tu fui à travers le vortex avant nous à l'époque? As-tu fait quelque chose que tu ne voulais pas que nous sachions? »
 
-L'expression de Wang Lin resta neutre lorsqu'il répondit calmement: « Ce cadet a effectivement causé une calamité dans la Terre des Esprits Démoniaques, j'ai donc dû partir. »
+L'expression de Wang Lin resta neutre lorsqu'il répondit calmement: « Ce junior a effectivement causé une calamité dans la Terre des Esprits Démoniaques, j'ai donc dû partir. »
 
 Les yeux du vieillard maigre brillèrent et il demanda froidement: « Quelle calamité? »
 
-Wang Lin répliqua avec calme: « Pour me défendre, ce cadet a dû piéger la fille de l'Ancêtre Sanguin! Lorsque les anciens sont arrivés avec l'Ancêtre Sanguin, ce cadet avait naturellement le choix de s'échapper! »
+Wang Lin répliqua avec calme: « Pour me défendre, ce junior a dû piéger la fille de l'Ancêtre Sanguin! Lorsque les anciens sont arrivés avec l'Ancêtre Sanguin, ce junior avait naturellement le choix de s'échapper! »
 
 Après ces paroles, le vieil homme au corps de montagne de chair se redressa et demanda: « Le jeton de la grotte céleste est-il entre tes mains? »
 

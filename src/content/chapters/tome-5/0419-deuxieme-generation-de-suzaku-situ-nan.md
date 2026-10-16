@@ -108,7 +108,7 @@ Le regard de Du Tian se fit glacial alors qu'il fixait la formation Suzaku et hu
 
 Deux respirations plus tard, une silhouette apparut derrière l'écran de lumière verte. Cet individu avait les cheveux longs, portait une robe blanche et était très beau, bien qu'il dégageât une pointe de malveillance. Dans l'ensemble, il exhalait un charme mystérieux.
 
-L'homme esquissa un sourire et dit: « Aîné, ne vous emportez pas. Puisque vous demandez à ce cadet de sortir, ce cadet s'exécute. »
+L'homme esquissa un sourire et dit: « Aîné, ne vous emportez pas. Puisque vous demandez à ce junior de sortir, ce junior s'exécute. »
 
 Du Tian ordonna froidement: « Ouvre la formation! »
 

@@ -62,7 +62,7 @@ Alors que Wang Lin avançait, des ondulations résonnèrent et il se fondit dans
 
 Ce n'est qu'une fois Wang Lin parti que le vieil homme se détendit. Des ombres émergèrent de la terre et plus d'une douzaine de personnes fixèrent l'endroit où Wang Lin s'était volatilisé.
 
-« L'Aîné Gauche est décisif. Cet homme n'est pas quelqu'un que nous pouvons provoquer. Sa poupée est très puissante et sa bête est très étrange. Lui-même est extrêmement fort! Un tel être ne peut pas être sans secte! »
+« Le Senior Gauche est décisif. Cet homme n'est pas quelqu'un que nous pouvons provoquer. Sa poupée est très puissante et sa bête est très étrange. Lui-même est extrêmement fort! Un tel être ne peut pas être sans secte! »
 
 « Oui, cet homme est très tranchant, il a même tué les quatre membres du Dao de la Montagne Noire. Il est véritablement féroce et, à en juger par son apparence, c'est clairement un cultivateur démoniaque! »
 

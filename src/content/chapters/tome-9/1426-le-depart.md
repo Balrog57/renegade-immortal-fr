@@ -64,7 +64,7 @@ Au moment où l'ancêtre emmenait Liu Jinbiao, Wang Lin, qui était assis près 
 
 De plus en plus de restrictions apparurent jusqu'à former une formation complète autour de lui. Cette formation avait la capacité de téléporter Wang Lin par une méthode spéciale.
 
-Au crépuscule, Wang Lin ouvrit les yeux et dit calmement: « Ancêtre, le cadet possède un serviteur dans les Terres Déchues nommé Zhong Grand Rouge. J'espère que vous pourrez prendre soin de lui en mon nom. »
+Au crépuscule, Wang Lin ouvrit les yeux et dit calmement: « Ancêtre, le Junior possède un serviteur dans les Terres Déchues nommé Zhong Grand Rouge. J'espère que vous pourrez prendre soin de lui en mon nom. »
 
 Le Vieux Oiseau Vermillon était assis au bord du lac, une canne à pêche à la main et une cruche de vin posée à ses côtés. En entendant Wang Lin, il se retourna avec bienveillance dans les yeux.
 
@@ -80,7 +80,7 @@ Wang Lin réfléchit en silence et regarda le vieil homme. Bien qu'il ne le conn
 
 Voyant Wang Lin plongé dans ses pensées, la bienveillance du vieil homme s'intensifia et il sourit. « Si le destin le veut, nous nous reverrons. Ne pars pas avec l'hésitation d'un enfant. J'espère que tu sauras me surprendre à nouveau lors de notre prochaine rencontre. »
 
-Wang Lin fixa le Vieux Oiseau Vermillon avant de prendre une profonde inspiration et de dire: « Ancêtre, le cadet souhaite obtenir la méthode de culture de la Restriction de l'Âme Ancienne de l'arène! »
+Wang Lin fixa le Vieux Oiseau Vermillon avant de prendre une profonde inspiration et de dire: « Ancêtre, le Junior souhaite obtenir la méthode de culture de la Restriction de l'Âme Ancienne de l'arène! »
 
 « Tu veux cette Restriction de l'Âme Ancienne? » Le Vieux Oiseau Vermillon réfléchit un instant puis dit lentement: « La Restriction de l'Âme Ancienne est un trésor que le premier ancêtre a dérobé. Même moi, je ne possède pas la méthode de culture... Peu importe, je te la donnerai pour que tu puisses te protéger. Si tu en as le temps, étudie-la; peut-être qu'avec ta compréhension, tu parviendras à en saisir l'essence. »
 
@@ -96,9 +96,9 @@ D'un geste de la main, le Vieux Oiseau Vermillon projeta la carapace vers Wang L
 
 Wang Lin la réceptionna et la rangea après l'avoir examinée. Il joignit les mains en signe de respect devant l'Ancien, mais il fut interrompu avant de pouvoir parler.
 
-« Nul besoin de me remercier; comment un Ancien pourrait-il exiger des remerciements de la part d'un cadet pour un présent? Si tu es vraiment reconnaissant, aide ce vieil homme en retour... » Le vieil homme laissa échapper une toux sèche.
+« Nul besoin de me remercier; comment un Ancien pourrait-il exiger des remerciements de la part d'un Junior pour un présent? Si tu es vraiment reconnaissant, aide ce vieil homme en retour... » Le vieil homme laissa échapper une toux sèche.
 
-« Veuillez parler, Ancêtre. Tant que le cadet en est capable, je m'exécuterai! » La voix de Wang Lin n'était pas forte, mais elle était empreinte d'une détermination inébranlable.
+« Veuillez parler, Ancêtre. Tant que le Junior en est capable, je m'exécuterai! » La voix de Wang Lin n'était pas forte, mais elle était empreinte d'une détermination inébranlable.
 
 Le visage du Vieux Oiseau Vermillon s'empourpra tandis qu'il posait sa canne et se frottait les mains. « Ton Oiseau Vermillon s'est éveillé quatre fois, et tu es déjà qualifié pour transmettre la marque du Oiseau Vermillon. Ce vieil homme espère que lorsque tu choisiras le septième Oiseau Vermillon... ceci... »
 
@@ -106,7 +106,7 @@ Wang Lin regarda l'Ancien, attendant la suite.
 
 « Ceci... Tu devras choisir un bon candidat... Euh... Tu ne peux pas en choisir un qui manque de retenue, comprends-tu? » Le Vieux Oiseau Vermillon lui adressa un clin d'œil.
 
-Wang Lin fronça les sourcils, perplexe. Après réflexion, il hocha la tête: « Ancêtre, soyez sans crainte. Lorsque le cadet choisira le septième Oiseau Vermillon, je veillerai scrupuleusement à ce que l'incident avec le troisième ne se reproduise pas! »
+Wang Lin fronça les sourcils, perplexe. Après réflexion, il hocha la tête: « Ancêtre, soyez sans crainte. Lorsque le Junior choisira le septième Oiseau Vermillon, je veillerai scrupuleusement à ce que l'incident avec le troisième ne se reproduise pas! »
 
 « Ce vieil homme ne voulait pas dire ça... » L'Ancien se frotta les mains en serrant les dents. « Je veux dire que lorsque tu choisiras le septième, il ne doit pas être un individu trop volage. Hélas, pourquoi ne comprends-tu rien? Ta compréhension n'est-elle pas censée être élevée? Dois-je vraiment tout te dire explicitement... Très bien, choisis plutôt un enfant pour le septième Oiseau Vermillon, afin d'éviter que son Yang de l'âme originelle ne soit brisé, ce qui l'empêcherait de pratiquer la méthode de culture de ce vieil homme! Voilà, choisis un enfant, et la prochaine fois que tu viendras, amène-le ici! »
 

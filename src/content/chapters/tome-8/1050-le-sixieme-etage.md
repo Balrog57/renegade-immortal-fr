@@ -66,7 +66,7 @@ Ses yeux s'illuminèrent; il s'accroupit pour observer attentivement et sentit u
 
 Cette énergie était si ordinaire que, même si d'autres l'avaient ressentie, ils n'y auraient vu que les résidus de quelqu'un ayant tenté de briser les chandeliers par la force. Pourtant, pour Wang Lin, la signification était capitale.
 
-« L'énergie d'épée de l'Aîné Zhou Yi... S'il a laissé cette trace ici, cela signifie qu'il est déjà au troisième étage. Mais pourquoi l'a-t-il laissée ainsi... Se pourrait-il que... » Les yeux de Wang Lin se plissèrent. Il avait récupéré une partie de son énergie originelle en chemin. Il agita alors la main, et les neuf chandeliers s'allumèrent instantanément.
+« L'énergie d'épée du Senior Zhou Yi... S'il a laissé cette trace ici, cela signifie qu'il est déjà au troisième étage. Mais pourquoi l'a-t-il laissée ainsi... Se pourrait-il que... » Les yeux de Wang Lin se plissèrent. Il avait récupéré une partie de son énergie originelle en chemin. Il agita alors la main, et les neuf chandeliers s'allumèrent instantanément.
 
 Dès que les bougies prirent feu, la lueur des flammes enveloppa Wang Lin, et il disparut pour rejoindre le troisième étage.
 

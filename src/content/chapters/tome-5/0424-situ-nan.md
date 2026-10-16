@@ -105,7 +105,7 @@ Ye Wuyou était le véritable nom de la première génération de Suzaku!
 
 En observant l'aura bleue entourant le corps de Wang Lin, Zhuque Zi remonta l'histoire des anciens Suzakus jusqu'à ce qu'il identifie une personnalité.
 
-À cet instant, la terreur dans ses yeux devint encore plus intense. Il joignit respectueusement les mains devant Wang Lin sans la moindre hésitation et dit: « Salutations, Ancêtre. Ce cadet s'en va immédiatement! »
+À cet instant, la terreur dans ses yeux devint encore plus intense. Il joignit respectueusement les mains devant Wang Lin sans la moindre hésitation et dit: « Salutations, Ancêtre. Ce junior s'en va immédiatement! »
 
 Sur ces mots, il se retira à toute vitesse.
 
@@ -125,7 +125,7 @@ Zhuque Zi joignit les mains et s'apprêta à partir.
 
 Mais une lueur d'arrogance brilla dans les yeux de Wang Lin: « Puisque tu as deviné l'identité de ce vieil homme, tu dois connaître mes règles. Comptes-tu partir ainsi sans rien laisser? »
 
-Zhuque Zi réfléchit un instant et leva sa main droite. D'un geste rapide de la main gauche, il se coupa deux doigts de la main droite. « C'est la faute de ce cadet. Est-ce que deux doigts suffisent? »
+Zhuque Zi réfléchit un instant et leva sa main droite. D'un geste rapide de la main gauche, il se coupa deux doigts de la main droite. « C'est la faute de ce junior. Est-ce que deux doigts suffisent? »
 
 Wang Lin secoua la tête et déclara avec arrogance: « Laisse-en un autre! »
 

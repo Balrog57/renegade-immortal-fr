@@ -28,7 +28,7 @@ Wang Lin ne croyait tout simplement pas qu'ils ne puissent sceller le Souverain 
 
 La terre transformée en puits reflétait les silhouettes de Wang Lin et de ses alliés. Soudain, un éclat de lumière bleue jaillit. Cette lueur se propagea à travers le puits et dans le ciel. Au loin, le Maître Dao Bleu Rêve fit son apparition.
 
-Les yeux de Wang Lin brillèrent. À l'arrivée du Maître Dao Bleu Rêve, il envoya un message divin: « Aîné Bleu Rêve, pouvez-vous sceller le Souverain pendant trois respirations? »
+Les yeux de Wang Lin brillèrent. À l'arrivée du Maître Dao Bleu Rêve, il envoya un message divin: « Senior Bleu Rêve, pouvez-vous sceller le Souverain pendant trois respirations? »
 
 Bleu Rêve s'approcha et hocha la tête. D'un revers de manche, il fit trembler la terre devenue puits. Le sol s'effondra et le puits se brisa!
 

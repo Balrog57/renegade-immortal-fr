@@ -10,7 +10,7 @@ Le vieil homme en robe rouge était l'ancêtre de la famille Zhan de Luotian: Li
 
 Les yeux de Lie Yunzi s'illuminèrent lorsqu'il les ouvrit. Il lança un regard froid à la belle femme et déclara calmement: « Je suis Lie Yunzi. »
 
-La belle femme sourit et prit une gorgée. Elle reposa ensuite sa tasse en souriant de nouveau. « L'Aîné Lie Yunzi est très célèbre à Luotian. Le fait qu'Luotian envoie un tel Aîné pour féliciter le nouvel Empereur Divin de l'Oiseau Vermillon suggère qu'Luotian a l'intention de nouer des relations amicales avec lui. »
+La belle femme sourit et prit une gorgée. Elle reposa ensuite sa tasse en souriant de nouveau. « Le Senior Lie Yunzi est très célèbre à Luotian. Le fait qu'Luotian envoie un tel Senior pour féliciter le nouvel Empereur Divin de l'Oiseau Vermillon suggère qu'Luotian a l'intention de nouer des relations amicales avec lui. »
 
 « Vous êtes une disciple centrale de la Secte des Cadavres, et vous avez déjà atteint le stade de la Purification du Nirvana à un si jeune âge. La rumeur prétend que vous possédez quatre marionnettes cadavériques, dont trois ne sont pas moins puissantes que des cultivateurs au stade Briseur du Nirvana. Si la Secte des Cadavres vous envoie, c'est qu'il accorde également une grande importance au nouvel Empereur Divin de l'Oiseau Vermillon. » La voix de Lie Yunzi était calme, mais lorsqu'elle parvint aux oreilles de la femme, ses pupilles se rétractèrent imperceptiblement.
 
@@ -22,9 +22,9 @@ L'homme chauve répondit d'un ton serein: « Pays de Zhu Yun, Mo Zhi! »
 
 Cependant, les yeux de Lie Yunzi se plissèrent soudainement et il se tourna vers l'homme chauve. Après l'avoir observé attentivement, il dit lentement: « Ainsi, c'est toi, Mo Zhi! »
 
-L'homme chauve sourit et joignit les mains en signe de respect envers Lie Yunzi. « Mo Zhi salue l'Aîné. »
+L'homme chauve sourit et joignit les mains en signe de respect envers Lie Yunzi. « Mo Zhi salue le Senior. »
 
-La belle femme réfléchit un instant, puis demanda: « Cultivateur Mo, Aîné Lie Yunzi, savez-vous qui est le nouvel Empereur Divin de l'Oiseau Vermillon? »
+La belle femme réfléchit un instant, puis demanda: « Cultivateur Mo, Senior Lie Yunzi, savez-vous qui est le nouvel Empereur Divin de l'Oiseau Vermillon? »
 
 « Je sais seulement que cette personne est extrêmement arrogante et qu'elle n'a rencontré aucun des autres émissaires. Les Quatre Sectes Divins gardent également son nom secret. » Lie Yunzi prit sa tasse, y jeta un coup d'œil, puis la reposa.
 
@@ -46,7 +46,7 @@ En plus d'accomplir la tâche confiée par Luotian, il avait un objectif personn
 
 Il pensait que la Secte Divin de l'Oiseau Vermillon avait ses raisons d'avoir pris Wang Lin. Trois ans étaient suffisants pour épuiser la valeur de ce dernier. Désormais, Wang Lin était probablement devenu inutile pour eux; il ne devrait donc pas être difficile de le récupérer.
 
-La belle femme regarda Lie Yunzi et demanda: « Oh? La rumeur dit que ses sorts étaient capables de tuer Maître du Vide. Il a également tué deux personnes et blessé gravement l'un des avatars de l'Omniscient. Pourquoi l'Aîné Lie Yunzi pense-t-il qu'il n'est pas qualifié? À l'époque, la Secte Divin de l'Oiseau Vermillon avait déployé une force massive, menée par l'Esprit Véritable de l'Oiseau Vermillon lui-même. »
+La belle femme regarda Lie Yunzi et demanda: « Oh? La rumeur dit que ses sorts étaient capables de tuer Maître du Vide. Il a également tué deux personnes et blessé gravement l'un des avatars de l'Omniscient. Pourquoi le Senior Lie Yunzi pense-t-il qu'il n'est pas qualifié? À l'époque, la Secte Divin de l'Oiseau Vermillon avait déployé une force massive, menée par l'Esprit Véritable de l'Oiseau Vermillon lui-même. »
 
 Lie Yunzi répondit calmement: « Cette personne m'a parlé juste avant de se rendre dans la grotte de Qing Lin. Je connais parfaitement son niveau de culture! » Il ne croyait pas que le niveau de Wang Lin ait pu changer à ce point. À ses yeux, tout cela n'était que des rumeurs infondées.
 

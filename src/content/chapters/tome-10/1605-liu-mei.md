@@ -80,7 +80,7 @@ Un son léger émana des rayons de lumière. Il provenait d'une femme magnifique
 
 Elle s'arrêta en plein vol et observa Wang Lin qui s'éloignait. Ses sourcils se froncèrent et ses yeux se remplirent de confusion.
 
-« Qu'y a-t-il, Sœur Cadette Liu? » s'étonna un cultivateur à ses côtés.
+« Qu'y a-t-il, Sœur Junior Liu? » s'étonna un cultivateur à ses côtés.
 
 « Rien. Retournez d'abord à la secte. J'ai quelques affaires personnelles à régler », dit doucement la belle femme. Elle ne leur prêta plus attention et redescendit vers le sol.
 
@@ -96,11 +96,11 @@ Cependant, Wang Lin ne fut pas ébloui. Il avait percé les mystères et poursui
 
 La femme observa le vieux Wang Lin, ses cheveux blancs, son visage ridé et ses yeux brillants. Après un long moment, elle fit une légère révérence.
 
-« Aîné, je vous ai vu il y a des décennies. Puisque nous nous rencontrons pour la seconde fois, vous souvenez-vous de moi? »
+« Senior, je vous ai vu il y a des décennies. Puisque nous nous rencontrons pour la seconde fois, vous souvenez-vous de moi? »
 
 Wang Lin contempla la femme devant lui et se mit à réfléchir. Après un long silence, il sourit et secoua la tête en disant d'une voix rauque: « J'ai oublié. »
 
-« Puisqu'il est oublié, alors qu'il le reste. Aîné, je ne sais pourquoi, mais j'ai toujours eu l'impression que nous nous étions déjà rencontrés. Pas seulement cette fois, mais la fois précédente également. Je souhaite savoir... quel est votre nom? » demanda doucement la femme avec un sourire.
+« Puisqu'il est oublié, alors qu'il le reste. Senior, je ne sais pourquoi, mais j'ai toujours eu l'impression que nous nous étions déjà rencontrés. Pas seulement cette fois, mais la fois précédente également. Je souhaite savoir... quel est votre nom? » demanda doucement la femme avec un sourire.
 
 Wang Lin resta calme et répondit lentement: « Ce vieil homme s'appelle Wang Lin. »
 

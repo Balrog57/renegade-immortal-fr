@@ -24,7 +24,7 @@ Zhan Konglie fut également stupéfait. Il ne s'attendait pas à ce que l'intent
 
 « La première fois que je l'ai vu, il était au sommet du stade avancé de l'Ascendant. La deuxième fois, il était au stade Yang Corporel. Et maintenant, la troisième fois... il a atteint le début du Scruteur du Nirvana!! Ne cachait-il donc pas sa culture... » Zhan Konglie était perdu.
 
-« Aîné! » À côté de Zhan Konglie, Zhan Yun se leva brusquement, surprise. Elle s'élança rapidement vers Wang Lin et se tint respectueusement à une centaine de mètres de lui.
+« Senior! » À côté de Zhan Konglie, Zhan Yun se leva brusquement, surprise. Elle s'élança rapidement vers Wang Lin et se tint respectueusement à une centaine de mètres de lui.
 
 Elle n'était pas la seule; d'autres personnes présentes avaient également été sauvées par Wang Lin. En proie à une vive émotion, elles volèrent vers lui pour s'incliner devant lui.
 
@@ -38,17 +38,17 @@ En voyant ces gens, Wang Lin hocha la tête.
 
 L'expression de Wang Lin resta glaciale tandis qu'il contemplait le vieil homme.
 
-Au même instant, un homme d'âge moyen se tenait à environ 330 mètres de Wang Lin. C'était l'un des hommes que Wang Lin avait sauvés du Royaume Céleste du Tonnerre. Après une brève réflexion, il serra les dents, se tourna vers l'Ancien de la famille Tang et déclara: « La famille Chen du Système Stellaire Tout-Ciel, dans le Domaine Sud, recommande Aîné Xu Mu pour participer! Je ne sais pas si ma famille Chen en a les qualifications! »
+Au même instant, un homme d'âge moyen se tenait à environ 330 mètres de Wang Lin. C'était l'un des hommes que Wang Lin avait sauvés du Royaume Céleste du Tonnerre. Après une brève réflexion, il serra les dents, se tourna vers l'Ancien de la famille Tang et déclara: « La famille Chen du Système Stellaire Tout-Ciel, dans le Domaine Sud, recommande Senior Xu Mu pour participer! Je ne sais pas si ma famille Chen en a les qualifications! »
 
 Les yeux du vieil homme nommé Tang s'illuminèrent. Il ne regarda pas l'homme d'âge moyen, mais plutôt l'ancêtre de la famille Chen qui venait de s'exprimer.
 
-Puis un autre cultivateur se leva. C'était un homme âgé qui, après s'être redressé, fixa l'Ancien Tang. Il dit: « La famille Zhao du Système Stellaire Tout-Ciel, dans le Domaine Sud, recommande Aîné Xu Mu pour participer. Je me demande si ma famille Zhao est qualifiée aux yeux d'Aîné Tang! »
+Puis un autre cultivateur se leva. C'était un homme âgé qui, après s'être redressé, fixa l'Ancien Tang. Il dit: « La famille Zhao du Système Stellaire Tout-Ciel, dans le Domaine Sud, recommande Senior Xu Mu pour participer. Je me demande si ma famille Zhao est qualifiée aux yeux de Senior Tang! »
 
-« La famille Li du Système Stellaire Tout-Ciel, dans le Domaine Sud, propose qu'Aîné Xu Mu rejoigne la bataille. J'ignore si ma famille Li en a les qualifications! » Un homme d'âge moyen vêtu de bleu foncé fit un pas en avant et fixa l'Ancien Tang.
+« La famille Li du Système Stellaire Tout-Ciel, dans le Domaine Sud, propose que Senior Xu Mu rejoigne la bataille. J'ignore si ma famille Li en a les qualifications! » Un homme d'âge moyen vêtu de bleu foncé fit un pas en avant et fixa l'Ancien Tang.
 
-« La famille Zheng recommande également Aîné Xu Mu. Je me demande si ma famille Zheng est qualifiée! » Après l'homme d'âge moyen, une femme portant une robe colorée s'avança à son tour. Bien que sa voix fût douce, elle était ferme.
+« La famille Zheng recommande également Senior Xu Mu. Je me demande si ma famille Zheng est qualifiée! » Après l'homme d'âge moyen, une femme portant une robe colorée s'avança à son tour. Bien que sa voix fût douce, elle était ferme.
 
-« Je suis une descendante directe de la famille Miao et je recommande Aîné Xu Mu. Ma famille Miao compte parmi les lignées des trois planètes principales. Aîné Tang, ma famille Miao a-t-elle les qualifications? » Un jeune homme vêtu de noir s'avança lentement.
+« Je suis une descendante directe de la famille Miao et je recommande Senior Xu Mu. Ma famille Miao compte parmi les lignées des trois planètes principales. Senior Tang, ma famille Miao a-t-elle les qualifications? » Un jeune homme vêtu de noir s'avança lentement.
 
 Ces quatre personnes avaient toutes été sauvées par Wang Lin dans le Temple Céleste du Tonnerre. Elles lui étaient reconnaissantes, mais en raison de leurs familles respectives, elles n'avaient pu l'aider lorsque la famille Yao le traquait. Ce sentiment de culpabilité les habitait, et à présent, elles se tenaient aux côtés de Wang Lin sans la moindre hésitation.
 
@@ -56,15 +56,15 @@ Cette scène fit changer radicalement l'expression du vieil homme nommé Tang. M
 
 Non seulement lui, mais tous les chefs des familles soutenant Wang Lin fermèrent les yeux, feignant l'indifférence. Toutefois, si quiconque osait remettre en question les qualifications de leurs lignées, ils exigeraient des explications!
 
-« La famille Meng de la Planète Flamme de Terre recommande Aîné Xu Mu. J'ignore si ma famille Meng en a les qualifications! » Un autre cultivateur s'avança et fixa l'Ancien de la famille Tang sans aucune crainte.
+« La famille Meng de la Planète Flamme de Terre recommande Senior Xu Mu. J'ignore si ma famille Meng en a les qualifications! » Un autre cultivateur s'avança et fixa l'Ancien de la famille Tang sans aucune crainte.
 
-« La famille Baili de la Planète Nuage de Tonnerre recommande Aîné Xu Mu... »
+« La famille Baili de la Planète Nuage de Tonnerre recommande Senior Xu Mu... »
 
-« La famille Si Kong de la Planète Eau Noire recommande Aîné Xu Mu... »
+« La famille Si Kong de la Planète Eau Noire recommande Senior Xu Mu... »
 
-« La famille Zhou de la Planète Flamme de Terre recommande Aîné Xu Mu... »
+« La famille Zhou de la Planète Flamme de Terre recommande Senior Xu Mu... »
 
-« La famille Ning de la Planète Ciel Bleu recommande également Aîné Xu Mu. Je ne sais pas si ma famille Ning, en tant que l'une des lignées des planètes principales, a les qualifications! »
+« La famille Ning de la Planète Ciel Bleu recommande également Senior Xu Mu. Je ne sais pas si ma famille Ning, en tant que l'une des lignées des planètes principales, a les qualifications! »
 
 Après l'intervention de ces personnes, d'autres s'alignèrent aux côtés de Wang Lin pour fixer l'Ancien de la famille Tang. Tous étaient des survivants du Royaume Céleste du Tonnerre ayant réussi à s'échapper sous le commandement de Wang Lin!
 
@@ -82,11 +82,11 @@ Seule une famille comme la famille Tang, qui ne se situait qu'un cran en dessous
 
 L'Ancien était l'une des quatre personnes de la famille Tang au second niveau, et il était le plus faible d'entre eux!
 
-Zhan Konglie réfléchit un instant avant de lever la tête pour fixer l'Ancien de la famille Tang. « Zhan Konglie, représentant la famille Zhan, recommande Aîné Xu Mu! Aîné Tang, n'ai-je donc pas les qualifications?! »
+Zhan Konglie réfléchit un instant avant de lever la tête pour fixer l'Ancien de la famille Tang. « Zhan Konglie, représentant la famille Zhan, recommande Senior Xu Mu! Senior Tang, n'ai-je donc pas les qualifications?! »
 
 L'expression du vieil homme devint encore plus sombre.
 
-« Shengong Hu recommande Aîné Xu Mu et affirme qu'il possède les qualifications pour participer! » Shengong Hu ne disait pas grand-chose, mais lorsqu'il prit la parole, ses yeux brillaient de détermination!
+« Shengong Hu recommande Senior Xu Mu et affirme qu'il possède les qualifications pour participer! » Shengong Hu ne disait pas grand-chose, mais lorsqu'il prit la parole, ses yeux brillaient de détermination!
 
 L'Ancien de la famille Tang commença à ricaner. Juste au moment où il allait parler, une voix calme émanant de l'Ancien aux robes violettes du Temple Céleste du Tonnerre retentit:
 
@@ -130,8 +130,8 @@ Cet individu était vêtu de noir et paraissait avoir une quarantaine d'années.
 
 Même lorsque l'intention de combat de Wang Lin atteignit son périmètre, il ne réagit nullement, continuant sa culture en silence. Ce n'est que lorsque Wang Lin révéla sa culture au début du stade Scruteur du Nirvana qu'il leva la tête, laissant transparaître une intention de combat presque imperceptible.
 
-« Zhan Konglie défie Aîné Xu Mu! » Une voix abrupte retentit soudainement. Zhan Konglie prit une profonde inspiration. Ses yeux étaient empreints de confusion et d'une émotion complexe. Cependant, une volonté de combat brillait aussi en lui alors qu'il saluait respectueusement Wang Lin en joignant les mains.
+« Zhan Konglie défie Senior Xu Mu! » Une voix abrupte retentit soudainement. Zhan Konglie prit une profonde inspiration. Ses yeux étaient empreints de confusion et d'une émotion complexe. Cependant, une volonté de combat brillait aussi en lui alors qu'il saluait respectueusement Wang Lin en joignant les mains.
 
-« Si Aîné peut me convaincre, je serai prêt à vous offrir mon idéal Dao et à vous nommer mon Seigneur. Ensemble, nous combattrons l'Alliance! »
+« Si Senior peut me convaincre, je serai prêt à vous offrir mon idéal Dao et à vous nommer mon Seigneur. Ensemble, nous combattrons l'Alliance! »
 
 À peine eut-il prononcé ces mots qu'une immense onde de choc fut immédiatement déclenchée dans la zone!

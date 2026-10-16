@@ -14,7 +14,7 @@ slug: un-mot-et-le-tonnerre-deferle-comme-une-mer
 
 L'expression du Maître Céleste Dieu du Vide était sombre alors qu'il battait en retraite. Fixant Wang Lin, sur le point de briser la Porte du Vide, il ricana.
 
-« Si la Porte du Vide était si facile à ouvrir, le monde serait plongé dans le chaos. Une porte déclenchée par six essences est d'une difficulté dépassant l'imagination. Un simple cadet, même s'il avait eu la chance de récolter six essences, à quoi cela lui servirait-il? Je veux voir comment il compte s'y prendre. Peut-être n'aurai-je même pas besoin d'agir et la Porte du Vide se chargera de l'exécuter! »
+« Si la Porte du Vide était si facile à ouvrir, le monde serait plongé dans le chaos. Une porte déclenchée par six essences est d'une difficulté dépassant l'imagination. Un simple junior, même s'il avait eu la chance de récolter six essences, à quoi cela lui servirait-il? Je veux voir comment il compte s'y prendre. Peut-être n'aurai-je même pas besoin d'agir et la Porte du Vide se chargera de l'exécuter! »
 
 Ils ne croyaient pas que Wang Lin puisse briser la Porte du Vide, ou ils refusaient simplement d'y croire.
 

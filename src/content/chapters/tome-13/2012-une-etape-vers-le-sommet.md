@@ -62,7 +62,7 @@ Une voix indifférente émana de la tour céleste et résonna à travers le mond
 
 Au sommet de la tour siégeait une silhouette enveloppée de brume, et devant elle se tenait Xuan Luo.
 
-« Aîné Gu Dao... » Xuan Luo devint anxieux.
+« Senior Gu Dao... » Xuan Luo devint anxieux.
 
 « Je ne reconnais pas ton disciple! » Une voix indifférente provint de l'ombre dissimulée par la brume.
 

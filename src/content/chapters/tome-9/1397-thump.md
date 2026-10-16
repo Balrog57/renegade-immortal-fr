@@ -44,7 +44,7 @@ Le Patriarche du Clan du Scorpion Obscur murmura: « C'est l'Ancien en chef du C
 
 Le Patriarche du Clan de l'Évasion Nuageuse se tenait naturellement aux côtés de Wang Lin. Lorsqu'il entendit les paroles de l'Ancien en chef du Clan du Serpent de l'Âme, il resta calme et garda la tête baissée, silencieux.
 
-L'Ancien en chef du Clan du Serpent de l'Âme sourit et dit lentement: « La rumeur prétend que le Clan de l'Évasion Nuageuse a invité Cupidité en tant qu'Ancien honorifique. Avec Cupidité, je présume que le Clan de l'Évasion Nuageuse est assuré d'obtenir un siège d'Ancien Déchu! Cependant, comment se fait-il que je ne voie pas l'Aîné Cupidité? »
+L'Ancien en chef du Clan du Serpent de l'Âme sourit et dit lentement: « La rumeur prétend que le Clan de l'Évasion Nuageuse a invité Cupidité en tant qu'Ancien honorifique. Avec Cupidité, je présume que le Clan de l'Évasion Nuageuse est assuré d'obtenir un siège d'Ancien Déchu! Cependant, comment se fait-il que je ne voie pas le Senior Cupidité? »
 
 Sa voix n'était pas forte, mais elle était imprégnée de sa puissance de culture, ce qui la fit résonner.
 
@@ -58,7 +58,7 @@ Le nom de Cupidité était extrêmement célèbre. Le fait qu'il aide le Clan de
 
 Trois arcs marquaient son front, semblables à des ondes de l'eau.
 
-Le Patriarche du Clan de l'Évasion Nuageuse leva la tête et regarda Wang Lin. Puis il déclara d'une voix froide: « L'Aîné Cupidité a dû partir pour une affaire urgente et ne viendra pas. Nul besoin de deviner! » avant de baisser la tête.
+Le Patriarche du Clan de l'Évasion Nuageuse leva la tête et regarda Wang Lin. Puis il déclara d'une voix froide: « Le Senior Cupidité a dû partir pour une affaire urgente et ne viendra pas. Nul besoin de deviner! » avant de baisser la tête.
 
 Le vieil homme qui venait de parler vit cette scène, et ses pupilles se contractèrent.
 
@@ -98,13 +98,13 @@ Les anciens et les patriarches étaient de vieux renards; ils devinaient plus ou
 
 « Qualifications... » Wang Lin sourit.
 
-« Qui ose prétendre que l'Aîné n'a pas les qualifications?! » Un rugissement retentit soudainement au loin. Dans un fracas de tonnerre, plus de mille rayons de lumière se précipitèrent vers eux.
+« Qui ose prétendre que le Senior n'a pas les qualifications?! » Un rugissement retentit soudainement au loin. Dans un fracas de tonnerre, plus de mille rayons de lumière se précipitèrent vers eux.
 
 À leur tête se trouvait un jeune homme, accompagné d'anciens ayant atteint le stade de la Fléau Céleste. Ils arrivèrent avec un élan puissant et se placèrent aux côtés du groupe de Wang Lin.
 
-Le jeune homme s'avança rapidement vers Wang Lin et joignit les mains dans un geste de respect extrême: « Le Patriarche du Dragon Blindé salue l'Aîné! »
+Le jeune homme s'avança rapidement vers Wang Lin et joignit les mains dans un geste de respect extrême: « Le Patriarche du Dragon Blindé salue le Senior! »
 
-Derrière lui, plus de mille cultivateurs du Clan du Dragon Blindé regardèrent tous Wang Lin avec respect et une pointe de crainte. Ils joignirent les mains en chœur: « Salutations, Aîné! »
+Derrière lui, plus de mille cultivateurs du Clan du Dragon Blindé regardèrent tous Wang Lin avec respect et une pointe de crainte. Ils joignirent les mains en chœur: « Salutations, Senior! »
 
 Cette scène provoqua un choc immense chez tous les cultivateurs présents.
 

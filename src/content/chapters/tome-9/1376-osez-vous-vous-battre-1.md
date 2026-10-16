@@ -56,7 +56,7 @@ Wang Lin retira son regard et dit lentement: « Vous ne pouvez pas vous présent
 
 Un silence de mort régna dans les environs. La femme charmante prit une profonde inspiration, son regard vers Wang Lin empreint d'un respect mêlé d'une profonde révérence.
 
-« Oh... Ce cadet a été imprudent. Je prie l'Aîné de bien vouloir me pardonner. Le cadet reconnaît son erreur. » Le vieil homme du Clan des Hirondelles de Feu était couvert de sueur, une tempête intérieure faisant rage en lui. Il savait parfaitement que si cet homme avait voulu le tuer, cela aurait été d'une facilité déconcertante.
+« Oh... Ce junior a été imprudent. Je prie le Senior de bien vouloir me pardonner. Le junior reconnaît son erreur. » Le vieil homme du Clan des Hirondelles de Feu était couvert de sueur, une tempête intérieure faisant rage en lui. Il savait parfaitement que si cet homme avait voulu le tuer, cela aurait été d'une facilité déconcertante.
 
 Toute l'arrogance qu'il affichait en entrant avait disparu; il se tenait désormais respectueusement sur le côté, n'osant plus chercher de siège. C'était comme si personne n'était digne de s'asseoir devant ce jeune homme.
 
@@ -66,9 +66,9 @@ La femme charmante s'inclina respectueusement, puis sortit un morceau de jade qu
 
 Le mur commença immédiatement à onduler avant de devenir transparent, révélant clairement l'intérieur. Derrière la paroi, trois pierres blanches de la taille d'un poing tournaient lentement sur elles-mêmes.
 
-La femme baissa la tête et murmura: « Aîné, mon Clan du Dragon Blindé ne dispose pas de beaucoup de Cristaux de Mutation de Feu Ardant à vendre; il ne reste que ces trois pièces... À l'origine, le Compagnon de Culture Hu était venu les échanger en premier. Puisque l'Aîné les convoite également, cela complique la tâche de ce cadet. »
+La femme baissa la tête et murmura: « Senior, mon Clan du Dragon Blindé ne dispose pas de beaucoup de Cristaux de Mutation de Feu Ardant à vendre; il ne reste que ces trois pièces... À l'origine, le Compagnon de Culture Hu était venu les échanger en premier. Puisque le Senior les convoite également, cela complique la tâche de ce junior. »
 
-Le vieil homme du Clan des Hirondelles de Feu regarda les trois pierres blanches et soupira intérieurement. Il joignit les mains: « Puisque l'Aîné les désire, comment ce cadet oserait-il rivaliser? »
+Le vieil homme du Clan des Hirondelles de Feu regarda les trois pierres blanches et soupira intérieurement. Il joignit les mains: « Puisque le Senior les désire, comment ce junior oserait-il rivaliser? »
 
 Le regard de Wang Lin balaya le mur. Il n'y avait aucun cristal à l'intérieur; ce n'était qu'une image projetée par un sort pour les observateurs.
 
@@ -100,9 +100,9 @@ Wang Lin n'était pas pressé. Un instant plus tard, des pas résonnèrent et la
 
 Dès l'apparition de l'homme, le Patriarche du Scorpion Noir, resté derrière Wang Lin, s'approcha de lui et murmura: « Le jeune maître du Clan du Dragon Blindé. Étrange, il jouit d'un statut très élevé et se montre rarement ici. »
 
-Une fois arrivé au deuxième étage, l'homme rit. Sans même accorder un regard au vieil homme du Clan des Hirondelles de Feu, il joignit les mains devant Wang Lin: « J'accepte les pilules de l'Aîné. Voici les trois Cristaux de Mutation de Feu Ardant. »
+Une fois arrivé au deuxième étage, l'homme rit. Sans même accorder un regard au vieil homme du Clan des Hirondelles de Feu, il joignit les mains devant Wang Lin: « J'accepte les pilules du Senior. Voici les trois Cristaux de Mutation de Feu Ardant. »
 
-Il agita la main et les trois pierres blanches apparurent dans sa paume avant de flotter vers Wang Lin. Voyant que Wang Lin les rangeait, ses yeux s'illuminèrent et il rit: « L'Aîné en possède-t-il d'autres? Y a-t-il autre chose que vous souhaiteriez échanger? »
+Il agita la main et les trois pierres blanches apparurent dans sa paume avant de flotter vers Wang Lin. Voyant que Wang Lin les rangeait, ses yeux s'illuminèrent et il rit: « Le Senior en possède-t-il d'autres? Y a-t-il autre chose que vous souhaiteriez échanger? »
 
 « J'ai beaucoup de pilules. Je ne sais simplement pas ce que vous pouvez offrir en retour », répondit Wang Lin avec un sourire en fixant l'homme.
 

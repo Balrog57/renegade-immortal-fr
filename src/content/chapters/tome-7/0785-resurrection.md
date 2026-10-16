@@ -64,11 +64,11 @@ Zhan Konglie eut un léger sourire en se tenant aux côtés de Shengong Hu. Son 
 
 « Je l'ignore! » L'expression de Shengong Hu resta neutre; il n'accordait aucun intérêt aux propos de Zhan Konglie. Il se contentait d'observer la plaine, plongé dans ses pensées.
 
-Zhan Konglie connaissait le tempérament de Shengong Hu. Il déclara alors: « C'était Aîné! »
+Zhan Konglie connaissait le tempérament de Shengong Hu. Il déclara alors: « C'était Senior! »
 
 Les yeux de Shengong Hu s'illuminèrent et il se tourna vers Zhan Konglie: « Vraiment? »
 
-Zhan Konglie sourit: « Absolument certain. Aîné a dit qu'il viendrait ici s'il en trouvait le temps! »
+Zhan Konglie sourit: « Absolument certain. Senior a dit qu'il viendrait ici s'il en trouvait le temps! »
 
 Une lueur de joie passa dans le regard de Shengong Hu. Zhan Konglie lui semblait soudain beaucoup plus sympathique. Il ajouta en souriant: « Vu la personnalité étrange de mon seigneur, il devrait trouver cet endroit intéressant. »
 

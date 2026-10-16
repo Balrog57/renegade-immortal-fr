@@ -60,11 +60,11 @@ Dans l'espace, au-delà de la planète du Clan du Dragon Blindé, Maître Simo d
 
 Maître Simo sourit, les yeux brillants, tandis qu'il regardait au loin. Une silhouette apparut, accompagnée d'un rire sonore. C'était un vieil homme aux cheveux blancs, vêtu d'une robe bleue, qui s'élevait de la planète du Clan du Dragon Blindé.
 
-« Aîné Simo, cela fait bien des années que nous ne nous sommes pas vus, et vous avez toujours autant de prestance! » rit le vieil homme tandis que l'énergie originelle enveloppait son corps. Il dégageait l'aura d'un cultivateur au cinquième niveau de la Fléau Céleste.
+« Senior Simo, cela fait bien des années que nous ne nous sommes pas vus, et vous avez toujours autant de prestance! » rit le vieil homme tandis que l'énergie originelle enveloppait son corps. Il dégageait l'aura d'un cultivateur au cinquième niveau de la Fléau Céleste.
 
 Maître Simo rit à son tour et joignit les mains: « Camarade cultivateur Sun, cela fait quelques siècles que nous ne nous sommes pas croisés. Je viens vous importuner de nouveau. »
 
-« Comment la venue d'un aîné pourrait-elle être une nuisance? Nous nous connaissons depuis longtemps. Sans vos conseils, Aîné Simo, je serais déjà mort face au troisième niveau de la Fléau Céleste. Aîné Simo, veuillez me suivre dans ma grotte! » rit le vieil homme. Il était le neuvième Ancien Déchu et, d'ordinaire, ne se souciait guère des affaires mondaines. Il était en culture fermée lorsqu'il reçut le message de Maître Simo et sortit immédiatement.
+« Comment la venue d'un aîné pourrait-elle être une nuisance? Nous nous connaissons depuis longtemps. Sans vos conseils, Senior Simo, je serais déjà mort face au troisième niveau de la Fléau Céleste. Senior Simo, veuillez me suivre dans ma grotte! » rit le vieil homme. Il était le neuvième Ancien Déchu et, d'ordinaire, ne se souciait guère des affaires mondaines. Il était en culture fermée lorsqu'il reçut le message de Maître Simo et sortit immédiatement.
 
 Les deux discutèrent tout en s'approchant de la planète, leurs silhouettes s'estompant peu à peu.
 

@@ -114,4 +114,4 @@ C'est alors qu'un rayon de lumière perça l'horizon. Ce rayon était noir et se
 
 L'énergie démoniaque exhalait une intention de tuer et une arrogance sans fard.
 
-« Ce cadet en face de moi, laisse l'objet que tu tiens et déguerpis d'ici! Si tu désobéis, meurs! »
+« Junior en face de moi, laisse l'objet que tu tiens et déguerpis d'ici! Si tu désobéis, meurs! »

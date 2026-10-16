@@ -6,13 +6,13 @@ bookTitle: Clean Sweep
 en: Chapter 260 - Ancestral Spirit Token
 slug: jeton-de-lesprit-ancestral
 ---
-La personne que le vieil homme désignait était une femme âgée. Ses yeux étaient légèrement voilés alors qu'elle fixait le vieil homme et dit: « Bien que le niveau de culture de l'aîné soit immense, cela ne signifie pas pour autant que vous puissiez donner des ordres à ma Secte Nuage Blanc! »
+La personne que le vieil homme désignait était une femme âgée. Ses yeux étaient légèrement voilés alors qu'elle fixait le vieil homme et dit: « Bien que le niveau de culture du senior soit immense, cela ne signifie pas pour autant que vous puissiez donner des ordres à ma Secte Nuage Blanc! »
 
 Le vieil homme marmonna quelques mots. Il sortit impatiemment un sac de rangement usé et sale. Après avoir fouillé longuement dans le sac, il en tira finalement un jeton de bois noir. Des traces de graisse et des feuilles de légumes s'y accrochaient encore lorsqu'il le jeta négligemment dans la main de la vieille femme.
 
 Dès que celle-ci vit le jeton, son expression changea et elle s'exclama: « Le Jeton de l'Esprit Ancestral! »
 
-L'homme d'âge moyen tendit immédiatement la main pour saisir le jeton. Il forma quelques sceaux et les appliqua sur l'objet. Soudain, le jeton émit une lumière arc-en-ciel persistante. L'homme d'âge moyen esquissa un sourire amer et dit respectueusement au vieil homme: « Puisque l'aîné possède le Jeton de l'Esprit Ancestral, nous devons obéir. Mais êtes-vous certain de vouloir utiliser ce jeton pour demander à tous les cultivateurs de la Formation de l'Âme de la Secte Nuage Blanc d'aider votre disciple à expérimenter des domaines? »
+L'homme d'âge moyen tendit immédiatement la main pour saisir le jeton. Il forma quelques sceaux et les appliqua sur l'objet. Soudain, le jeton émit une lumière arc-en-ciel persistante. L'homme d'âge moyen esquissa un sourire amer et dit respectueusement au vieil homme: « Puisque le senior possède le Jeton de l'Esprit Ancestral, nous devons obéir. Mais êtes-vous certain de vouloir utiliser ce jeton pour demander à tous les cultivateurs de la Formation de l'Âme de la Secte Nuage Blanc d'aider votre disciple à expérimenter des domaines? »
 
 Le vieil homme sourit avec fierté à Wang Lin et renifla avec mépris vers l'homme d'âge moyen. Il tonna: « Bien sûr! Maintenant, cessez vos bêtises. Toi, sors! » Sur ce, il désigna la vieille femme.
 
@@ -62,7 +62,7 @@ Wang Lin fut soudain victime d'une profonde illusion. C'était comme si ce vieil
 
 À leur retour, le vieil homme respirait lourdement et son visage était pâle, mais il restait empreint de fierté. Il regarda Wang Lin, attendant d'être loué.
 
-Lui, à cet instant, n'avait plus rien d'un expert. Wang Lin, se sentant impuissant, rangea le chapeau de paille dans son sac et dit: « La technique d'aîné est absolument prodigieuse. C'est une chose que cadet n'a jamais vue auparavant. Je l'admire vraiment. »
+Lui, à cet instant, n'avait plus rien d'un expert. Wang Lin, se sentant impuissant, rangea le chapeau de paille dans son sac et dit: « La technique de senior est absolument prodigieuse. C'est une chose que junior n'a jamais vue auparavant. Je l'admire vraiment. »
 
 Le vieil homme leva les yeux au ciel et répondit avec désapprobation: « Tu ne connais que cette unique réplique? »
 

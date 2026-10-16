@@ -94,7 +94,7 @@ Wang Lin fendait l'atmosphère, suivant le disciple de la Secte Éternel alors q
 
 En pénétrant sur la planète de culture scellée, le disciple sortit immédiatement un jade. Après avoir localisé la Secte d'Origine, il reprit la direction.
 
-Il ne fallut pas longtemps pour que les deux arrivent à la cour de la Secte d'Origine. Le disciple dit respectueusement à Wang Lin: « Aîné, voici l'endroit où séjourne la Secte d'Origine. Si vous n'avez pas d'autres instructions, ce cadet prend congé. »
+Il ne fallut pas longtemps pour que les deux arrivent à la cour de la Secte d'Origine. Le disciple dit respectueusement à Wang Lin: « Aîné, voici l'endroit où séjourne la Secte d'Origine. Si vous n'avez pas d'autres instructions, ce junior prend congé. »
 
 Wang Lin hocha la tête, et le disciple se retira respectueusement pour s'envoler au loin.
 

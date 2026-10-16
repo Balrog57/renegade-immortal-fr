@@ -84,7 +84,7 @@ Le vieil homme renifla: « Même si tu me connais, cela ne sert à rien. L'espri
 
 Puis, l'homme joignit les mains vers les cultivateurs environnants et déclara: « Je crois que certains d'entre vous me connaissent. Aujourd'hui, la bataille entre les juniors de la Division Violette a gâché l'ambiance. J'espère que vous ne m'en tiendrez pas rigueur! »
 
-Jiang Tianzun regarda Chi Lie et répondit avec respect: « Aîné est trop modeste. Comment notre humeur pourrait-elle être gâchée par cela? En réalité, ce duel entre juniors nous a tous soulagés, car la Division Violette aura de puissants successeurs! »
+Jiang Tianzun regarda Chi Lie et répondit avec respect: « Senior est trop modeste. Comment notre humeur pourrait-elle être gâchée par cela? En réalité, ce duel entre juniors nous a tous soulagés, car la Division Violette aura de puissants successeurs! »
 
 À peine eut-il fini de parler que d'autres s'empressèrent de l'imiter. Bientôt, presque tous les cultivateurs présents exprimèrent la même opinion.
 

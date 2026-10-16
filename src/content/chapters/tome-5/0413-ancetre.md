@@ -28,7 +28,7 @@ En un seul pas, le membre du Clan Immortel Abandonné atteignit le sommet du Mon
 
 Mais la lumière de la sculpture devint soudainement si aveuglante qu'elle illumina toute la zone; pourtant, le mépris dans les yeux de l'homme demeurait intact. Il avança sa main et pressa la sculpture en bois.
 
-« Même si votre propriétaire venait en personne, je m'en saisirais quand bon me semblerait! » L'homme ramassa la sculpture, l'examina et sourit. « C'est véritablement un trésor. Si l'occasion se présente à l'avenir, je voudrais voir le cadet qui a laissé cette œuvre. »
+« Même si votre propriétaire venait en personne, je m'en saisirais quand bon me semblerait! » L'homme ramassa la sculpture, l'examina et sourit. « C'est véritablement un trésor. Si l'occasion se présente à l'avenir, je voudrais voir le junior qui a laissé cette œuvre. »
 
 Tout le Mont Heng Yue fut plongé dans le silence. Les cultivateurs restèrent pensifs. Leur symbole d'espoir venait d'être si facilement dérobé. Il semblait que la destruction de Zhao était inévitable.
 

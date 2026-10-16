@@ -100,7 +100,7 @@ La porte s'ouvrit silencieusement. Qing Lin apparut, vêtu d'une chemise bleue, 
 
 Bien que Qing Lin ait mentionné vouloir faire de Wang Lin son disciple, ce sujet n'avait plus jamais été abordé avec le temps. Le niveau de culture et le statut actuel de Wang Lin avaient naturellement poussé Qing Lin à changer sa façon de s'adresser à lui, témoignant ainsi du respect dû à un égal.
 
-« J'ai entendu dire que vous étiez réputé pour votre divination, Aîné Qing Lin. Je sollicite votre aide pour une divination! » Wang Lin joignit les mains avec une expression solennelle.
+« J'ai entendu dire que vous étiez réputé pour votre divination, Senior Qing Lin. Je sollicite votre aide pour une divination! » Wang Lin joignit les mains avec une expression solennelle.
 
 Voyant le sérieux de son interlocuteur, Qing Lin cessa immédiatement de sourire. Il répondit d'un ton grave: « Très bien, je ferai de mon mieux! Dites-moi ce qu'il en est. »
 

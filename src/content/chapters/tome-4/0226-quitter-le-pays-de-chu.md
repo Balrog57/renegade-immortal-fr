@@ -242,7 +242,7 @@ Song Qing regarda Wang Lin et répondit rapidement: « Il est en train de raffin
 
 Li Muwan eut un petit rire: « Le frère Ouyang Zi est un alchimiste de rang 5 comme moi. S'il en veut, il peut en avoir. Ce ne sont que des pilules de rang 5. »
 
-Puis, elle s'adressa à Wang Lin pour expliquer: « Parmi les trois alchimistes de rang 5 de la Secte Ciel Nuageux, outre Wan Er et Ouyang Zi, le troisième est l'aîné Yun Tianzi. »
+Puis, elle s'adressa à Wang Lin pour expliquer: « Parmi les trois alchimistes de rang 5 de la Secte Ciel Nuageux, outre Wan Er et Ouyang Zi, le troisième est le senior Yun Tianzi. »
 
 Wang Lin acquiesça, observant silencieusement Li Muwan gérer la situation.
 

@@ -64,7 +64,7 @@ Seul Wang Lin resta d'un calme imperturbable; il esquissa un léger signe de tê
 
 Le rayon d'énergie s'arrêta à soixante-six mètres de Wang Lin. La lumière se dissipa pour révéler un homme d'environ trente ans. Son visage était pâle, sans aucune pilosité, et il possédait une certaine beauté. Cependant, ses yeux de phénix jetaient un doute sur l'ensemble de son apparence, car ils dégageaient une grâce presque féminine.
 
-Vêtu d'une robe pourpre et dorée, il se tenait droit. Il joignit les mains en signe de salut devant Wang Lin avec une attitude extrêmement respectueuse: « Le cadet Zhan Konglie salue l'Aîné! »
+Vêtu d'une robe pourpre et dorée, il se tenait droit. Il joignit les mains en signe de salut devant Wang Lin avec une attitude extrêmement respectueuse: « Le junior Zhan Konglie salue le Senior! »
 
 Dès qu'il eut parlé, tous ceux qui l'entendirent furent stupéfaits et leurs regards convergèrent vers Wang Lin.
 
@@ -72,13 +72,13 @@ Dès qu'il eut parlé, tous ceux qui l'entendirent furent stupéfaits et leurs r
 
 Zhan Konglie était très célèbre, et certains cultivants environnants le reconnurent naturellement, même ceux qui ne percevaient pas la puissante énergie originelle émanant de lui. Puis, en entendant ses paroles, ils l'identifièrent aussitôt comme étant Zhan Konglie, venu du domaine Sud.
 
-« Qui est cet homme? Son niveau de culture semble similaire à celui de Zhan Konglie. Comment le célèbre Zhan Konglie du domaine Sud peut-il l'appeler "Aîné"?! »
+« Qui est cet homme? Son niveau de culture semble similaire à celui de Zhan Konglie. Comment le célèbre Zhan Konglie du domaine Sud peut-il l'appeler "Senior"?! »
 
 « J'ai entendu dire que Zhan Konglie est déjà devenu un messager du Temple Céleste du Tonnerre. S'il appelle quelqu'un ainsi, cet homme pourrait-il être un Ancien du Temple Céleste du Tonnerre? »
 
 Diverses pensées traversèrent l'esprit des cultivateurs alentour.
 
-En particulier, les dix personnes accompagnant Zhan Konglie fixaient Wang Lin avec des regards incrédules. Chacun d'eux était le prodige de sa propre famille, et lorsque Zhan Konglie avait brusquement changé de direction, il ne leur avait rien expliqué. En l'entendant traiter cet inconnu de « Aîné », leur curiosité fut piquée au vif.
+En particulier, les dix personnes accompagnant Zhan Konglie fixaient Wang Lin avec des regards incrédules. Chacun d'eux était le prodige de sa propre famille, et lorsque Zhan Konglie avait brusquement changé de direction, il ne leur avait rien expliqué. En l'entendant traiter cet inconnu de « Senior », leur curiosité fut piquée au vif.
 
 Il faut dire que Zhan Konglie possédait l'un des niveaux de culture les plus élevés parmi eux. Ils savaient également qu'il était d'une arrogance extrême. Ce n'était pas une simple façade, mais un trait de caractère profondément ancré en lui.
 
@@ -86,7 +86,7 @@ Même les Anciens de sa propre lignée ne recevaient souvent pas son respect. Il
 
 Le respect de Zhan Konglie était sincère et venait du plus profond de son être. En voyant Wang Lin, il perçut naturellement sa culture au stade Corporel Yang et ressentit une pointe de mélancolie.
 
-« Il est véritablement digne d'être appelé Aîné. À l'époque où il avait réprimé sa culture au stade Ascendant, je n'avais absolument pas décelé qu'il cachait son véritable niveau. Aujourd'hui, bien qu'il ait réduit sa puissance au stade Corporel Yang, je ne parviens toujours pas à percevoir la moindre trace de sa force réelle. » Le respect dans les yeux de Zhan Konglie s'intensifia.
+« Il est véritablement digne d'être appelé Senior. À l'époque où il avait réprimé sa culture au stade Ascendant, je n'avais absolument pas décelé qu'il cachait son véritable niveau. Aujourd'hui, bien qu'il ait réduit sa puissance au stade Corporel Yang, je ne parviens toujours pas à percevoir la moindre trace de sa force réelle. » Le respect dans les yeux de Zhan Konglie s'intensifia.
 
 Lorsqu'il était reparti autrefois, il était resté mélancolique et éprouvait une immense envie envers Shengong Hu. Après son retour chez lui, il avait hésité, se demandant s'il n'aurait pas dû faire comme Shengong Hu et saisir cette chance inouïe.
 
@@ -102,20 +102,20 @@ Pourtant, voir Zhan Konglie appeler ainsi cet homme laissa Li Yuan sans voix.
 
 Wang Lin fronça les sourcils vers Zhan Konglie et demanda: « Où cours-tu avec une telle hâte? »
 
-En voyant ce froncement de sourcils, le cœur de Zhan Konglie trembla. Il se fit encore plus respectueux et répondit promptement: « Quatre fragments du Royaume Céleste du Tonnerre émettent de puissantes fluctuations d'énergie spirituelle céleste. Cependant, leurs emplacements sont protégés par des restrictions qui ne peuvent être levées en peu de temps. Il est manifeste que dès que ces barrières tomberont, de grands trésors apparaîtront. Dès que le cadet a eu vent de cela, j'ai décidé d'aller vérifier par moi-même. »
+En voyant ce froncement de sourcils, le cœur de Zhan Konglie trembla. Il se fit encore plus respectueux et répondit promptement: « Quatre fragments du Royaume Céleste du Tonnerre émettent de puissantes fluctuations d'énergie spirituelle céleste. Cependant, leurs emplacements sont protégés par des restrictions qui ne peuvent être levées en peu de temps. Il est manifeste que dès que ces barrières tomberont, de grands trésors apparaîtront. Dès que le junior a eu vent de cela, j'ai décidé d'aller vérifier par moi-même. »
 
 Wang Lin observa les environs. Il était évident que les autres cultivateurs avaient également découvert la nouvelle par divers moyens; c'était ce qui provoquait ce mouvement de masse.
 
 « Protégés par des restrictions... » Les yeux de Wang Lin se plissèrent et, après un moment d'hésitation, il fit un geste de la main. « Si tel est le cas, j'espère que vous ferez de bonnes récoltes! »
 
-Zhan Konglie hésita, puis dit avec déférence: « Le cadet n'est pas certain de réussir. J'ignore si l'Aîné aura le temps... De plus, le cadet et le frère Shengong Hu avons convenu de nous rejoindre sur le fragment de gauche pour unir nos forces et s'emparer du trésor! »
+Zhan Konglie hésita, puis dit avec déférence: « Le junior n'est pas certain de réussir. J'ignore si le Senior aura le temps... De plus, le junior et le frère Shengong Hu avons convenu de nous rejoindre sur le fragment de gauche pour unir nos forces et s'emparer du trésor! »
 
 Wang Lin fronça les sourcils plus profondément: « J'ai d'autres affaires importantes à régler! Si j'ai le temps, je viendrai voir. »
 
 Zhan Konglie hocha immédiatement la tête, un air d'excitation sur le visage. Hormis Wang Lin, seule une poignée de membres de sa famille et du Temple Céleste du Tonnerre pouvaient provoquer une telle réaction chez lui.
 
-Zhan Konglie pensa: « Puisque l'Aîné a dit cela, alors je suis certain de pouvoir obtenir le trésor cette fois! » Il adressa ses respects respectueusement avant de rejoindre son groupe pour s'envoler en tête.
+Zhan Konglie pensa: « Puisque le Senior a dit cela, alors je suis certain de pouvoir obtenir le trésor cette fois! » Il adressa ses respects respectueusement avant de rejoindre son groupe pour s'envoler en tête.
 
 Ses compagnons le regardèrent avec perplexité et le suivirent. Ce n'est que lorsqu'ils furent loin qu'une femme vêtue de blanc ne put s'empêcher de demander doucement: « Grand frère Zhan, qui était cette personne? »
 
-Zhan Konglie esquissa un léger sourire. Ses yeux étaient toujours empreints de respect lorsqu'il répondit: « C'était un puissant Aîné. Pouvoir le rencontrer est ma chance! »
+Zhan Konglie esquissa un léger sourire. Ses yeux étaient toujours empreints de respect lorsqu'il répondit: « C'était un puissant Senior. Pouvoir le rencontrer est ma chance! »

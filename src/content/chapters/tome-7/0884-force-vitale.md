@@ -14,7 +14,7 @@ Cette onde était d'une puissance phénoménale. Lorsqu'elle atteignit la surfac
 
 Une lueur rouge clignota dans l'œil droit de Qing Shui. Il baissa le regard vers la terre devant lui, mais son expression resta imperturbable.
 
-Le vieil homme Xiang dit respectueusement: « La bataille entre le système stellaire Luotian et le système stellaire de l'Alliance a commencé. Cet individu a remporté le premier rang lors de la compétition des titres célestes et a obtenu une promesse de notre famille Xiang. Cependant, ce qu'il réclame est une chose que ce cadet ne peut accomplir. J'espérais qu'Aîné accepterait d'utiliser le sort Qi Xi! »
+Le vieil homme Xiang dit respectueusement: « La bataille entre le système stellaire Luotian et le système stellaire de l'Alliance a commencé. Cet individu a remporté le premier rang lors de la compétition des titres célestes et a obtenu une promesse de notre famille Xiang. Cependant, ce qu'il réclame est une chose que ce junior ne peut accomplir. J'espérais que Senior accepterait d'utiliser le sort Qi Xi! »
 
 À peine Xiang Yundong eut-il fini de parler que Wang Lin sentit immédiatement un Sens Divin inimaginable se verrouiller sur lui. Horrifié, il se força à ne pas reculer et tenta de retrouver son calme autant que possible.
 
@@ -76,7 +76,7 @@ Au cœur de la tempête, au centre de cette mer de crânes, se trouvait une plat
 
 « Quel est ton nom? » Une voix antique émana du cercueil et fit écho dans toute la zone.
 
-Wang Lin prit une grande inspiration pour réprimer le choc de son esprit et l'aura suffocante. Il dit respectueusement: « Cadet Xu Mu salue Aîné! »
+Wang Lin prit une grande inspiration pour réprimer le choc de son esprit et l'aura suffocante. Il dit respectueusement: « Junior Xu Mu salue Senior! »
 
 « C'est toi qui souhaites que ce vieil homme utilise le sort Qi Xi? » Il était impossible de dire si la voix était empreinte de colère ou de joie, mais une pression écrasante enveloppait les environs.
 

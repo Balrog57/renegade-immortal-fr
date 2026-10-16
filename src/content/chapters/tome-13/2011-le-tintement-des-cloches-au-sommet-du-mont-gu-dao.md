@@ -68,9 +68,9 @@ Au bas de la montagne, Xuan Luo marchait devant et jeta un regard bienveillant �
 
 « Même ton Maître ignore quel est le véritable niveau de culture du Grand Empereur Gu Dao, mais face à lui, j'ai ressenti comme si j'étais un mortel... » Xuan Luo secoua la tête dans un soupir.
 
-« Hormis les Grands Empereurs, l'Aîné Gu Dao ne convoque personne au hasard. Ce n'est que lorsqu'un nouvel empereur ancien est sélectionné qu'ils sont appelés ici. » Xuan Luo monta silencieusement les marches, une pointe d'inquiétude dans le cœur.
+« Hormis les Grands Empereurs, le Senior Gu Dao ne convoque personne au hasard. Ce n'est que lorsqu'un nouvel empereur ancien est sélectionné qu'ils sont appelés ici. » Xuan Luo monta silencieusement les marches, une pointe d'inquiétude dans le cœur.
 
-« Je me demande si le Grand Empereur Gu Dao rencontrera Wang Lin maintenant que je l'ai amené ici. J'avais signalé à l'Aîné Gu Dao que Wang Lin avait obtenu dix gouttes de sang ancestral, et que la dixième était une goutte de sang de l'âme. Le Grand Empereur Gu Dao devrait donc rencontrer mon disciple. » Xuan Luo restait silencieux en montant. Plus il approchait du sommet, plus son malaise grandissait.
+« Je me demande si le Grand Empereur Gu Dao rencontrera Wang Lin maintenant que je l'ai amené ici. J'avais signalé au Senior Gu Dao que Wang Lin avait obtenu dix gouttes de sang ancestral, et que la dixième était une goutte de sang de l'âme. Le Grand Empereur Gu Dao devrait donc rencontrer mon disciple. » Xuan Luo restait silencieux en montant. Plus il approchait du sommet, plus son malaise grandissait.
 
 « Si le Grand Empereur Gu Dao convoque Wang Lin, alors la question de sa position de gardien de l'Ancien Dao sera réglée. Avec la reconnaissance de Gu Dao, le statut de Wang Lin au sein de l'Ancien Dao s'élèvera. Peu importe à quel point Ye Dao le déteste, il n'oserait plus rien dire. »
 
@@ -100,7 +100,7 @@ Même l'arrivée de Xuan Luo ne les incita pas à ouvrir les yeux.
 
 Le visage pâle de Wang Lin balaya les quatre silhouettes. Il fut stupéfait: ils ressemblaient à des mortels ne possédant aucune puissance ancienne.
 
-« Le cadet Xuan Luo sollicite une audience auprès du Grand Empereur Gu Dao. » Xuan Luo joignit les mains et s'inclina devant la tour.
+« Le junior Xuan Luo sollicite une audience auprès du Grand Empereur Gu Dao. » Xuan Luo joignit les mains et s'inclina devant la tour.
 
 Wang Lin fit de même, s'inclinant derrière son maître.
 

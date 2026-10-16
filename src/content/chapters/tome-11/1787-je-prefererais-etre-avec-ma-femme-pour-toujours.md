@@ -38,7 +38,7 @@ L'expression de Wang Lin était singulière alors qu'il hochait de nouveau la t�
 
 Wang Lin réfléchit un instant avant de prendre la parole: « L'un des neuf soleils du Continent Astral Immortel, le Grand Empereur Dao Antique! » Lorsqu'il avait découvert cela via l'âme de l'avatar, une immense vague de choc avait déferlé dans son cœur. Cependant, il l'avait parfaitement dissimulée, si bien que personne n'avait rien remarqué.
 
-Wang Lin regarda Xuan Luo et poursuivit lentement: « La raison pour laquelle les cultivateurs de la Planète des Cinq Éléments ont renoncé à la lutte pour la troisième âme est due à vous, Aîné. Ils sont même venus en aide grâce à vous. Ce cadet vous en est reconnaissant. »
+Wang Lin regarda Xuan Luo et poursuivit lentement: « La raison pour laquelle les cultivateurs de la Planète des Cinq Éléments ont renoncé à la lutte pour la troisième âme est due à vous, Senior. Ils sont même venus en aide grâce à vous. Ce Junior vous en est reconnaissant. »
 
 Plus Xuan Luo observait Wang Lin, plus il était satisfait. Il l'appréciait énormément tout au long de ce parcours et, en entendant les paroles humbles du jeune homme, il éclata de rire.
 
@@ -62,7 +62,7 @@ S'il n'avait pas été pour le fait que l'âme du Souverain Céleste aux Sept Co
 
 « Cette loi du Continent Astral Immortel est irrésistible! Je comprends tes pensées: tu ne veux pas partir seul. Tu souhaites que tous les autres puissent aussi partir et découvrir le Continent Astral Immortel! » soupira Xuan Luo.
 
-Wang Lin réfléchit un instant et dit doucement: « Si ils ne veulent pas partir, ce cadet ne les forcera pas; mais s'ils le souhaitent, alors ce cadet a effectivement cette intention en tête. »
+Wang Lin réfléchit un instant et dit doucement: « Si ils ne veulent pas partir, ce Junior ne les forcera pas; mais s'ils le souhaitent, alors ce Junior a effectivement cette intention en tête. »
 
 « C'est impossible! Oublie toi-même, mais la femme nommée Wan Er de ton Dao des Rêves ne pourra jamais aller sur le Continent Astral Immortel! » À ces mots, Wang Lin leva brusquement la tête.
 

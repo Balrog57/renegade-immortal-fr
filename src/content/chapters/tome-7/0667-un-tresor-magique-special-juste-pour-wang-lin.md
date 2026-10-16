@@ -69,15 +69,15 @@ Wang Lin l'observa attentivement et dit: « Tu n'es pas son égale. »
 
 La jeune fille fronça à nouveau les sourcils. Elle leva le jade et rétorqua: « Ne t'en fais pas pour ça! Si tu insistes pour sortir, alors je ne t'aiderai plus! »
 
-Wang Lin fut stupéfait. Il fit deux pas en arrière et retourna à l'intérieur de la formation. La jeune fille accourut immédiatement auprès de lui. Elle se tourna vers l'homme en violet et lança d'une voix forte: « Aîné, ceci est une zone résidentielle de ma famille Sun. Je me demande ce qui amène un Aîné ici. »
+Wang Lin fut stupéfait. Il fit deux pas en arrière et retourna à l'intérieur de la formation. La jeune fille accourut immédiatement auprès de lui. Elle se tourna vers l'homme en violet et lança d'une voix forte: « Senior, ceci est une zone résidentielle de ma famille Sun. Je me demande ce qui amène un Senior ici. »
 
 L'homme en violet fut également surpris, et son intention de combat disparut totalement. Ses yeux pétillèrent d'intérêt alors qu'il examinait attentivement la jeune fille avant de sourire: « Quel est ton nom? »
 
-L'expression de la jeune fille se figea un instant: « Le nom de cette cadette est Sun Ling. »
+L'expression de la jeune fille se figea un instant: « Le nom de cette junior est Sun Ling. »
 
 L'homme en violet hocha la tête et dit: « Tu es très dévouée à ton devoir, c'est bien! Tu peux partir. La personne que je cherche est celle qui se tient derrière toi. »
 
-Le visage de la jeune fille changea radicalement: « Aîné, s'il quitte cette zone, alors cette cadette n'interviendra pas. Cependant, tant qu'il reste dans le secteur résidentiel, c'est ma responsabilité. »
+Le visage de la jeune fille changea radicalement: « Senior, s'il quitte cette zone, alors cette junior n'interviendra pas. Cependant, tant qu'il reste dans le secteur résidentiel, c'est ma responsabilité. »
 
 L'homme en violet fronça les sourcils et lui lança un regard glacial. Puis son regard dépassa la jeune fille pour se poser sur Wang Lin.
 
@@ -85,7 +85,7 @@ Ce seul regard fit trembler Sun Ling. Elle eut soudain l'impression que l'homme 
 
 L'expression de Wang Lin demeurait sereine. Il était parfaitement indifférent au regard de l'homme. Bien que l'âme originelle de la jeune fille tremblât, elle resta devant lui. Wang Lin observa le dos de la jeune femme et commença à réfléchir.
 
-Sun Ling prit une grande inspiration et serra les dents. « Aîné, tant qu'il ne franchit pas la limite, je suis responsable de sa sécurité... De plus, il n'est qu'un cultivateur au stade de la Formation du Noyau. Aîné... »
+Sun Ling prit une grande inspiration et serra les dents. « Senior, tant qu'il ne franchit pas la limite, je suis responsable de sa sécurité... De plus, il n'est qu'un cultivateur au stade de la Formation du Noyau. Senior... »
 
 L'homme en violet fronça les sourcils. Être contredit ainsi sur son statut fit naître un sentiment d'irritation dans son cœur.
 
@@ -125,7 +125,7 @@ Wang Lin le regarda froidement et passa devant lui. L'homme en violet laissa éc
 
 Lorsque la brume bleue se dissipa, il ne restait aucune trace de l'affrontement. Sun Ling n'avait rien perçu à l'intérieur du brouillard. Elle poussa un soupir et reprit sa position de lotus sous le rocher.
 
-« Il lui sera très difficile de survivre après avoir été emmené par cet Aîné... » La jeune fille resta un moment dans l'inquiétude avant de fermer les yeux pour reprendre sa culture. Elle avait accompli son devoir.
+« Il lui sera très difficile de survivre après avoir été emmené par ce Senior... » La jeune fille resta un moment dans l'inquiétude avant de fermer les yeux pour reprendre sa culture. Elle avait accompli son devoir.
 
 Après avoir atteint la partie nord de la ville, Wang Lin se dirigea tranquillement vers le Pavillon des Trésors Entiers sur le côté est. L'homme en violet afficha un sourire amer et dit: « Camarade cultivateur Xu, mon nom est Sun Xi. Je n'avais aucune intention malveillante tout à l'heure. » En raison de son rang, il ne s'adresserait normalement jamais ainsi à quelqu'un de même niveau de culture. Cependant, lorsqu'il avait testé cet homme, la culture de ce Xu Mu était trop mystérieuse et il n'avait pu déceler aucun indice.
 

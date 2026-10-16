@@ -74,7 +74,7 @@ Après s'être servi une coupe, Wang Lin posa la cruche au centre de la table. I
 
 Le jeune homme fut tout aussi stupéfait par l'apparition de cette cruche. Après un long silence, il prit une profonde inspiration et hocha la tête.
 
-« Aîné est... un immortel? »
+« Senior est... un immortel? »
 
 Wang Lin tint sa coupe et murmura pour lui-même: « Tu as grandi dans un village de montagne. Ton père est Wang Tianhsui, le second fils de la famille, un charpentier... Ta mère est Zhou Yingsu, une femme de la famille Zhou ayant étudié quelques années dans une école privée. Quand tu étais enfant, elle t'a appris à lire et à écrire... »
 

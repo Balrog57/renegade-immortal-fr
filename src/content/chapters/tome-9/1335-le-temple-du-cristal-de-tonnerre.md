@@ -78,19 +78,19 @@ Un rire résonna dans le vide, et les nuages se rétractèrent pour ne former qu
 
 Dès l'apparition du vieil homme, la stupeur saisit les cultivateurs à l'extérieur du passage. Sans un mot, ils joignirent leurs mains pour le saluer avec déférence.
 
-« Salutations, Aîné Zhou Tian... »
+« Salutations, Senior Zhou Tian... »
 
-Même les deux gardiens en rouge devinrent respectueux. Ils s'inclinèrent et dirent: « Ce cadet salue l'Aîné Zhou Tian. L'Aîné est certainement venu viser une place dans le top 10 du Classement du Tonnerre Dispersé. »
+Même les deux gardiens en rouge devinrent respectueux. Ils s'inclinèrent et dirent: « Ce junior salue le Senior Zhou Tian. Le Senior est certainement venu viser une place dans le top 10 du Classement du Tonnerre Dispersé. »
 
 Le vieil homme rit en joignant les mains. « Je ne peux pas atteindre le top 10, mais je me contenterai avec plaisir du top 30. » Sur ces mots, il lança deux pilules dans les mains des gardiens avant de pénétrer dans le passage. Tandis qu'il avançait, la foule s'écartait sur son passage. Les deux gardiens, ravies par les pilules reçues, saluèrent respectueusement l'homme de dos.
 
 Sans trahir ses pensées, Wang Lin observa le vieil homme s'éloigner. Une fois celui-ci passé, les murmures reprirent:
 
-« Les cultivateurs de la seconde étape viennent généralement le dernier jour. Je ne m'attendais pas à ce que l'Aîné Zhou Tian vienne dès le premier jour. »
+« Les cultivateurs de la seconde étape viennent généralement le dernier jour. Je ne m'attendais pas à ce que le Senior Zhou Tian vienne dès le premier jour. »
 
 « Hélas... je me demande quand j'éveillerai ma marque de clan pour obtenir une puissance telle que la sienne. C'est peut-être impossible pour moi. »
 
-« Ce n'est pas impossible. Les rumeurs disent que l'Aîné Zhou Tian a fait une rencontre chanceuse dans sa jeunesse. La vie est faite de hauts et de bas; peut-être aurons-nous notre tour un jour. »
+« Ce n'est pas impossible. Les rumeurs disent que le Senior Zhou Tian a fait une rencontre chanceuse dans sa jeunesse. La vie est faite de hauts et de bas; peut-être aurons-nous notre tour un jour. »
 
 Tandis qu'ils murmuraient, Wang Lin et Grand Rouge entrèrent dans le passage. Les deux gardiens les regardèrent sans rien remarquer de spécial et les laissèrent passer, ne voyant en eux que des êtres insignifiants.
 

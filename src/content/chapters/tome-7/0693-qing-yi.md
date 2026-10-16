@@ -56,7 +56,7 @@ Wang Lin, lui, saisit la cruche et prit une gorgée. Son regard sembla balayer m
 
 La femme fronça les sourcils et demanda doucement: « Est-ce si amusant? »
 
-Le jeune homme rit: « Sœur de discipline cadet Qing Yi, pourquoi ne le serait-il pas? »
+Le jeune homme rit: « Sœur de discipline junior Qing Yi, pourquoi ne le serait-il pas? »
 
 Une trace d'agacement apparut sur le visage de la femme, qui détourna la tête.
 

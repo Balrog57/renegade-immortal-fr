@@ -34,7 +34,7 @@ Devant l'expression terrifiée de la jeune fille, le cœur de Wang Lin trembla. 
 
 La petite bête, désormais guérie, bondit hors des bras de la jeune fille. Après avoir atterri sur une branche, elle leur jeta un dernier regard avant de disparaître.
 
-La jeune fille prit une grande inspiration et se tapota la poitrine pour se calmer. Elle observa Wang Lin avec curiosité et dit doucement: « La cadet Li Muwan salue l'Aîné. De quel pic l'Aîné vient-il pour chercher mon maître? »
+La jeune fille prit une grande inspiration et se tapota la poitrine pour se calmer. Elle observa Wang Lin avec curiosité et dit doucement: « La junior Li Muwan salue l'Aîné. De quel pic l'Aîné vient-il pour chercher mon maître? »
 
 Wang Lin secoua la tête. Son regard devint plus tendre encore lorsqu'il répondit: « Je ne suis pas venu chercher ton maître, je vis ici. »
 
@@ -50,7 +50,7 @@ Les yeux de Li Muwan s'écarquillèrent devant la demeure, et il lui fallut un l
 
 Se retrouver seule ici, transportée soudainement par Wang Lin, la rendait naturellement nerveuse. Bien que l'homme ne paraisse pas malveillant, le cœur de Li Muwan battait la chamade.
 
-« La cadet... La cadet est venue ici sur ordre de son Maître pour cueillir des herbes. Je suis partie depuis longtemps... Mon Maître pourrait s'inquiéter et venir me chercher. La cadet doit partir maintenant. » Li Muwan continuait de reculer, soulignant que son maître pouvait surgir à tout moment.
+« La junior... La junior est venue ici sur ordre de son Maître pour cueillir des herbes. Je suis partie depuis longtemps... Mon Maître pourrait s'inquiéter et venir me chercher. La junior doit partir maintenant. » Li Muwan continuait de reculer, soulignant que son maître pouvait surgir à tout moment.
 
 Wang Lin sourit. Il n'avait jamais vu une telle expression sur le visage de Li Muwan. Il hocha la tête.
 

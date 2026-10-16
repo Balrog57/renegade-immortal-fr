@@ -56,7 +56,7 @@ Wang Lin agita la main pour saisir Wang Zhuo, puis ils disparurent.
 
 Le vieil homme prit une profonde inspiration, puis s'inclina profondément vers l'endroit où Wang Lin avait disparu. Ce salut était empreint d'une sincérité absolue.
 
-Un homme robuste d'âge moyen demanda prudemment sur le côté: « Oncle martial, qui était cet aîné? »
+Un homme robuste d'âge moyen demanda prudemment sur le côté: « Oncle martial, qui était ce senior? »
 
 Les yeux du vieil homme étaient voilés de nostalgie lorsqu'il répondit: « Il est l'unique cultivateur de la Formation de l'Âme de notre pays, Zhao… »
 

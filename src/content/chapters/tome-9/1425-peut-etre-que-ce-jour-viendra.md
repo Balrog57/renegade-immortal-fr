@@ -78,7 +78,7 @@ En quittant le village, il se retourna et sortit la soie blanche. Une voix aussi
 
 Le jeune homme se mordit la lèvre jusqu'au sang, laissant quelques gouttes tomber sur la soie blanche. En s'étendant, elles formèrent une tache semblable à une fleur de prunier... « Le Gang des Chevaux... » Une haine monstrueuse brilla dans ses yeux alors qu'il s'éloignait vers l'horizon... « Grand frère, je t'attendrai... »
 
-Le temps passa, et en un éclair, des décennies s'écoulèrent... Le talent du jeune homme dépassait tout ce qu'il avait pu imaginer. Bien qu'il ne fût pas le plus exceptionnel, il était néanmoins stupéfiant. Il avait rejoint la Secte Bris-Ciel et, porté par une détermination hors du commun, il devint le chef de la génération cadet!
+Le temps passa, et en un éclair, des décennies s'écoulèrent... Le talent du jeune homme dépassait tout ce qu'il avait pu imaginer. Bien qu'il ne fût pas le plus exceptionnel, il était néanmoins stupéfiant. Il avait rejoint la Secte Bris-Ciel et, porté par une détermination hors du commun, il devint le chef de la génération junior!
 
 Dans le fief du Gang des Chevaux, mille quatre cents membres furent massacrés en une seule nuit pluvieuse; aucun ne fut épargné... Même les chevaux furent abattus. Environ sept ou huit anciens membres subirent les supplices les plus atroces avant de mourir. Leur douleur n'était pas celle d'une mort ordinaire; ils hurlèrent pendant près de quinze jours avant de rendre l'âme.
 

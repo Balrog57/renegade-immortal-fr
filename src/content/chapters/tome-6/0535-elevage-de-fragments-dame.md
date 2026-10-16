@@ -37,9 +37,9 @@ Lorsque le sens divin de Wang Lin observa la scène, il ne fut nullement surpris
 
 Aux yeux de Wang Lin, cette soupe n'avait rien d'extraordinaire; elle était bien inférieure à un sort d'enchantement. Si une personne possédant une culture en buvait, cela n'aurait pratiquement aucun effet.
 
-Ouyang Hua se précipita vers Wang Lin. Encore à distance, il s'inclina respectueusement: « Le cadet Ouyang Hua souhaite saluer le Suprême Céleste. »
+Ouyang Hua se précipita vers Wang Lin. Encore à distance, il s'inclina respectueusement: « Le junior Ouyang Hua souhaite saluer le Suprême Céleste. »
 
-Après avoir reçu l'approbation de Wang Lin, Ouyang Hua pénétra rapidement dans les profondeurs de la vallée. De loin, il aperçut Wang Lin assis en position du lotus. Arrivé devant lui, il sortit un objet et déclara avec déférence: « Suprême Céleste, le cadet a trouvé le cristal démoniaque de la tribu ennemie pour vous l'offrir! »
+Après avoir reçu l'approbation de Wang Lin, Ouyang Hua pénétra rapidement dans les profondeurs de la vallée. De loin, il aperçut Wang Lin assis en position du lotus. Arrivé devant lui, il sortit un objet et déclara avec déférence: « Suprême Céleste, le junior a trouvé le cristal démoniaque de la tribu ennemie pour vous l'offrir! »
 
 Les yeux de Wang Lin s'illuminèrent. D'un geste de la main, il fit voler le cristal de la main d'Ouyang Hua vers la sienne. Il examina attentivement ce roc noir qui ne semblait pas avoir grand-chose de spécial et paraissait plutôt brut. Wang Lin serra son poing droit, et le roc se brisa instantanément, révélant un cristal démoniaque de la taille de son pouce.
 

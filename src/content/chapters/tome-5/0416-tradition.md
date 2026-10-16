@@ -86,7 +86,7 @@ Le visage du vieil homme à la robe violette se renfrogna et il grommela: « Vou
 
 Du Tian rit: « C'est exact. Il ne me reste que deux ans, alors je ne crains plus la mort. Donnez-moi les jades et je partirai. Si vous refusez, je ne me battrai pas, mais je m'efforcerai d'anéantir tous les insectes venimeux de ce marais. »
 
-Le vieil homme à la robe violette eut un rire colérique et s'apprêta à répliquer quand la vieille femme l'interrompit par une quinte de toux: « Vieux fantôme, pourquoi agir ainsi? Non seulement nous deux pouvons anéantir votre Secte du Raffinement des Âmes, mais ce cadet à vos côtés mourra à coup sûr. »
+Le vieil homme à la robe violette eut un rire colérique et s'apprêta à répliquer quand la vieille femme l'interrompit par une quinte de toux: « Vieux fantôme, pourquoi agir ainsi? Non seulement nous deux pouvons anéantir votre Secte du Raffinement des Âmes, mais ce junior à vos côtés mourra à coup sûr. »
 
 Wang Lin esquissa un léger sourire et, d'un geste de la main droite, fit jaillir son épée céleste. Il y injecta une parcelle d'énergie spirituelle céleste. Bien qu'il n'ait pas encore atteint le stade de la Transformation de l'Âme, il pouvait déjà manipuler un peu de cette essence.
 

@@ -12,11 +12,11 @@ Zhou Zihong se mordit la lèvre inférieure. Elle voulut arrêter Wang Lin, mais
 
 Lin Tao bougea aussi vite qu'il le put, non pas pour s'enfuir, mais pour esquiver de gauche à droite dans la zone, tentant désespérément de rester à distance de l'âme errante. Il savait que même s'il parvenait à courir, vu l'immensité du champ de bataille étranger, il ne pourrait jamais atteindre un réseau de transfert vivant.
 
-Pensant à cela, il s'exclama précipitamment: « Aîné, je n'ai aucun lien avec Mai Liang! Nous nous parlons à peine. Je vous en prie, épargnez-moi... Aîné, je... je suis prêt à devenir votre esclave! »
+Pensant à cela, il s'exclama précipitamment: « Senior, je n'ai aucun lien avec Mai Liang! Nous nous parlons à peine. Je vous en prie, épargnez-moi... Senior, je... je suis prêt à devenir votre esclave! »
 
 Lin Tao s'exprima avec angoisse alors que l'âme errante se rapprochait de lui. Wang Lin esquissa un léger sourire. D'un geste de la main, il fit s'arrêter immédiatement l'âme errante.
 
-Le front de Lin Tao était couvert de sueur froide, mais il n'osa pas l'essuyer. Il dit respectueusement: « Aîné, vous... vous devez être un expert issu d'un pays de culture supérieure. C'est un honneur pour moi de devenir votre esclave. Je n'ai aucune autre intention. » Sur ces mots, ses mains formèrent un sceau qu'il pressa contre son front. Une goutte de sang doré s'en échappa et flotta vers Wang Lin.
+Le front de Lin Tao était couvert de sueur froide, mais il n'osa pas l'essuyer. Il dit respectueusement: « Senior, vous... vous devez être un expert issu d'un pays de culture supérieure. C'est un honneur pour moi de devenir votre esclave. Je n'ai aucune autre intention. » Sur ces mots, ses mains formèrent un sceau qu'il pressa contre son front. Une goutte de sang doré s'en échappa et flotta vers Wang Lin.
 
 Une fois la goutte de sang dorée apparue, le corps de Lin Tao parut bien plus affaibli. Il regarda nerveusement Wang Lin.
 
@@ -38,7 +38,7 @@ Il n'avait pas été plus lent que Lin Tao pour spéculer sur le fait que les co
 
 Après avoir offert sa goutte de sang, il regarda sa sœur cadette Zhou Zihong d'un air complexe et dit: « Sœur cadette, tu... »
 
-Zhou Zihong lui fit signe de se taire. Elle fixa Wang Lin en se mordant la lèvre inférieure et demanda: « Aîné... quand vous avez possédé ce corps, Mai Liang était-il mort ou vivant? » Son regard devint soudainement calme alors qu'elle soutenait celui de Wang Lin.
+Zhou Zihong lui fit signe de se taire. Elle fixa Wang Lin en se mordant la lèvre inférieure et demanda: « Senior... quand vous avez possédé ce corps, Mai Liang était-il mort ou vivant? » Son regard devint soudainement calme alors qu'elle soutenait celui de Wang Lin.
 
 Elle avait voulu poser cette question dès qu'elle avait remarqué que quelque chose n'allait pas chez lui.
 

@@ -44,23 +44,23 @@ Sa rudesse ne s'adoucissait que face à la jeune fille devant elle. Elle esquiss
 
 Ses yeux magnifiques passèrent sur eux avant qu'elle ne se lève et ne dise respectueusement: « La disciple Zhao Xue salue le Maître et ses estimés oncles. »
 
-Le second des frères Chen, Maître Yi Long, sourit en regardant Wang Lin: « Frère Wang, voici ma disciple, Zhao Xue. » Puis, se tournant vers la femme en violet, il ajouta: « Zhao Xue, pourquoi n'as-tu pas encore salué l'Aîné Wang? »
+Le second des frères Chen, Maître Yi Long, sourit en regardant Wang Lin: « Frère Wang, voici ma disciple, Zhao Xue. » Puis, se tournant vers la femme en violet, il ajouta: « Zhao Xue, pourquoi n'as-tu pas encore salué le Senior Wang? »
 
-Le regard de la femme en violet se posa sur Wang Lin, puis elle s'inclina respectueusement: « Salutations, Aîné. »
+Le regard de la femme en violet se posa sur Wang Lin, puis elle s'inclina respectueusement: « Salutations, Senior. »
 
-La jeune fille sur la grue avait déjà remarqué Wang Lin et les autres. À cet instant, ses grands yeux clignotèrent et elle sourit: « L'Aîné Wang se souvient-il encore de Ling Er? »
+La jeune fille sur la grue avait déjà remarqué Wang Lin et les autres. À cet instant, ses grands yeux clignotèrent et elle sourit: « Le Senior Wang se souvient-il encore de Ling Er? »
 
 Sa voix était très féminine, empreinte du charme naturel d'une jeune fille dotée d'une racine spirituelle aquatique. Sa voix fit sourire Wang Lin, qui hocha la tête: « Bien sûr que je me souviens. Ne t'ai-je pas offert mon chapeau de paille et mes clochettes? »
 
 La jeune fille sourit, s'apprêtant à répondre, quand soudain un souvenir lui revint en mémoire. Son visage s'empourpra et son regard glissa vers la femme en violet.
 
-La surprise se lut dans les yeux de la femme en violet. Elle connaissait trop bien sa cadette. Depuis le retour de la jeune fille il y a quelques jours, celle-ci ne cessait de parler de ce qui lui était arrivé. Elle mentionnait sans cesse un certain Aîné Wang et, chaque fois qu'elle l'évoquait, elle s'en trouvait transportée d'excitation.
+La surprise se lut dans les yeux de la femme en violet. Elle connaissait trop bien sa cadette. Depuis le retour de la jeune fille il y a quelques jours, celle-ci ne cessait de parler de ce qui lui était arrivé. Elle mentionnait sans cesse un certain Senior Wang et, chaque fois qu'elle l'évoquait, elle s'en trouvait transportée d'excitation.
 
-Elle aimait énormément cette paire de clochettes; elle les portait constamment à son poignet pour jouer avec elles. Ces derniers jours, tout son discours tournait autour de cet Aîné Wang. Même Zhao Xue n'avait pu s'empêcher d'être intriguée.
+Elle aimait énormément cette paire de clochettes; elle les portait constamment à son poignet pour jouer avec elles. Ces derniers jours, tout son discours tournait autour de ce Senior Wang. Même Zhao Xue n'avait pu s'empêcher d'être intriguée.
 
 À cet instant, Zhao Xue lança quelques regards furtifs vers Wang Lin, mais ne remarqua rien de particulier.
 
-Maître Yi Chen sourit en observant la scène. En regardant Wang Lin, une idée germa dans son esprit. Il sourit: « Ling Er, l'Aîné Wang va rester quelque temps. Ne le dérange pas. » Sur ces mots, il entraîna Wang Lin vers l'intérieur.
+Maître Yi Chen sourit en observant la scène. En regardant Wang Lin, une idée germa dans son esprit. Il sourit: « Ling Er, le Senior Wang va rester quelque temps. Ne le dérange pas. » Sur ces mots, il entraîna Wang Lin vers l'intérieur.
 
 Wang Lin adressa un signe de tête à Ling Er et s'avança. Da Tou et Ta Shan le suivirent. Maître Fu Fengzi jeta un regard aux deux femmes et poussa un soupir avant de les suivre à son tour.
 

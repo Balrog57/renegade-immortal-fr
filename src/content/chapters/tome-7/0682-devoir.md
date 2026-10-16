@@ -90,7 +90,7 @@ Wang Lin s'assit en position du lotus au sein de ce rayon de lumière. Pendant q
 
 Sur la planète Mille Illusions, l'ancêtre de la famille Huan avait déjà ordonné à tous les membres directs de se rassembler dans la partie sud de la planète, interdisant tout départ. De plus, il avait déployé la formation de protection de la famille Huan, couvrant le sud du monde d'un écran de lumière protecteur.
 
-Toutefois, les membres de la famille étaient trop nombreux pour être tous rappelés en si peu de temps. L'ancêtre, inquiet, avait envoyé une légion de cultivateurs aînés pour ramener les troupes au siège familial.
+Toutefois, les membres de la famille étaient trop nombreux pour être tous rappelés en si peu de temps. L'ancêtre, inquiet, avait envoyé une légion de cultivateurs seniors pour ramener les troupes au siège familial.
 
 Il existait trois grandes familles de culture sur la planète Mille Illusions: Qian, Huan et Xu. Parmi elles, la famille Qian était la plus puissante, suivie par la famille Huan, la famille Xu arrivant en troisième position.
 

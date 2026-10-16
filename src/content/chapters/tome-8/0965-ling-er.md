@@ -28,13 +28,13 @@ Lorsqu'elle remarqua le regard de Wang Lin, ses joues s'empourprèrent et elle b
 
 Wang Lin esquissa un léger sourire. Avec sa ruse naturelle, il avait immédiatement perçu leurs intentions. Bien que le malentendu entre eux ne fût pas profond, tout pouvait arriver dans le monde de la culture. Ils craignaient que Wang Lin ne se méfie si les trois d'entre eux l'avaient invité seuls; ils auraient alors craint de ne pouvoir discuter librement. Ils avaient donc décidé de faire venir cette jeune femme, une parente, comme un moyen indirect de prouver qu'ils n'avaient aucune malveillance.
 
-Autrement, ils n'auraient pas amené une cadette de niveau Âme Naissante ici.
+Autrement, ils n'auraient pas amené une junior de niveau Âme Naissante ici.
 
 Une fois tout le monde installé, Maître Yi Chen appela la jeune fille. Il sourit en la présentant à Wang Lin: « Frère Wang, voici une descendante de ma famille. Cette enfant manque de maturité, mais elle a insisté pour venir. Je vous prie de bien vouloir veiller sur elle à l'avenir. »
 
-Tout en parlant, il tourna un regard sérieux vers la jeune fille: « Ling Er, voici Aîné Wang, un puissant cultivateur. Même ce vieil homme doit lui témoigner le plus grand respect. C'est une chance inouïe pour toi de le rencontrer. »
+Tout en parlant, il tourna un regard sérieux vers la jeune fille: « Ling Er, voici Senior Wang, un puissant cultivateur. Même ce vieil homme doit lui témoigner le plus grand respect. C'est une chance inouïe pour toi de le rencontrer. »
 
-La jeune fille cligna des yeux et s'inclina devant Wang Lin: « Ling Er salue Aîné. » Sa voix était ravissante, semblable au chant d'un oiseau, capable de pénétrer jusqu'au plus profond de l'âme.
+La jeune fille cligna des yeux et s'inclina devant Wang Lin: « Ling Er salue Senior. » Sa voix était ravissante, semblable au chant d'un oiseau, capable de pénétrer jusqu'au plus profond de l'âme.
 
 Wang Lin l'observa attentivement et fut surpris.
 
@@ -64,13 +64,13 @@ Maître Yi Chen hésita un instant avant d'acquiescer en signe de gratitude.
 
 En regardant la jeune fille, le regard de Wang Lin se fit légèrement plus doux. Il frappa sa sacoche et en sortit trois clochettes. Il sourit: « Je vous offre ceci également. »
 
-La joie brilla dans les yeux de la jeune fille alors qu'elle saisissait les clochettes. En entendant leur tintement cristallin, elle éclata de rire. Plus elle les contemplait, plus elle les aimait. Elle se tourna vers Wang Lin: « Ling Er remercie Aîné. »
+La joie brilla dans les yeux de la jeune fille alors qu'elle saisissait les clochettes. En entendant leur tintement cristallin, elle éclata de rire. Plus elle les contemplait, plus elle les aimait. Elle se tourna vers Wang Lin: « Ling Er remercie Senior. »
 
 Sa voix était encore plus mélodieuse qu'auparavant, mais cela n'eut aucun effet sur Wang Lin.
 
 Lorsque Maître Yi Chen vit les clochettes, sa perspicacité lui permit de comprendre immédiatement qu'elles n'étaient pas ordinaires. Il soupira, se leva et joignit les mains devant Wang Lin: « Cher cultivateur Wang, ce vieil homme vous remercie infiniment. »
 
-Il se sentait profondément embarrassé. C'était à eux trois d'avoir commis une maladresse, et pourtant, leur cadet recevait maintenant de magnifiques présents de la part de l'autre partie. Après s'être rassis, il réfléchit un instant, puis sortit une pierre noire: « Cher cultivateur Wang, veuillez accepter cette Pierre du Ciel Obscur. Lorsque les cultivateurs atteignent notre niveau, nous avons besoin de ces pierres pour y confier notre âme d'origine afin de créer des avatars ou pour préserver des sorts puissants. Si vous refusez, ce vieil homme en éprouvera une grande honte. »
+Il se sentait profondément embarrassé. C'était à eux trois d'avoir commis une maladresse, et pourtant, leur junior recevait maintenant de magnifiques présents de la part de l'autre partie. Après s'être rassis, il réfléchit un instant, puis sortit une pierre noire: « Cher cultivateur Wang, veuillez accepter cette Pierre du Ciel Obscur. Lorsque les cultivateurs atteignent notre niveau, nous avons besoin de ces pierres pour y confier notre âme d'origine afin de créer des avatars ou pour préserver des sorts puissants. Si vous refusez, ce vieil homme en éprouvera une grande honte. »
 
 Wang Lin sourit en prenant la pierre et la parcourut de son Sens Divin. Bien que son expression restât neutre, il fut intérieurement impressionné. Cette pierre noire était très étrange, parsemée de minuscules orifices dégageant une force d'aspiration. Non seulement elle pouvait stocker et préserver le Sens Divin, mais elle permettait aussi de préparer un sort à l'avance. Elle était similaire aux talismans du Clan des Immortels Délaissés. De plus, on pouvait créer un avatar illusoire par la simple pensée. C'était un trésor fort pratique.
 

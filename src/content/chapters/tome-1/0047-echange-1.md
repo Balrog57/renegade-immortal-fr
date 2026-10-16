@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Chapter 47 - Exchange (1)
 slug: echange-1
 ---
-Wang Lin sourit amèrement et dit: « La Transformation de l'Âme est un stade bien trop lointain pour un cadet. »
+Wang Lin sourit amèrement et dit: « La Transformation de l'Âme est un stade bien trop lointain pour un junior. »
 
 « Foutaises! Avec moi, qui viens d'un pays de rang 6, pour t'aider, qu'est-ce que la phase de Transformation de l'Âme? Bien que je ne puisse pas sortir, j'ai utilisé mon Essence d'Âme Naissante pour favoriser ta culture ces trente dernières années; sans quoi, avec ton manque de talent, comment aurais-tu pu atteindre ce stade en seulement trente ans? »
 

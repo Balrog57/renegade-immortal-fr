@@ -82,7 +82,7 @@ Toutefois, contrairement à l'arrogance de Xu Liguo, Grand Rouge se montrait bie
 
 Pensant ainsi, Grand Rouge gagna en assurance et en enthousiasme, tout en restant secrètement sur ses gardes face à Xu Liguo. Il sentait que ce dernier était son rival juré!
 
-« Malédiction, si Aîné n'avait eu que moi à ses côtés, ce serait une bénédiction. Je ne m'attendais pas à croiser ce Xu Liguo qui pratique lui aussi l'art invincible. Son niveau est supérieur au mien et il est d'une impudence sans nom. Il a forcément utilisé l'art invincible pour atteindre un tel stade! »
+« Malédiction, si Senior n'avait eu que moi à ses côtés, ce serait une bénédiction. Je ne m'attendais pas à croiser ce Xu Liguo qui pratique lui aussi l'art invincible. Son niveau est supérieur au mien et il est d'une impudence sans nom. Il a forcément utilisé l'art invincible pour atteindre un tel stade! »
 
 « Cependant, moi, Grand Rouge, je ne reculerai pas. Bien que mon niveau de culture soit inférieur, j'ai étudié secrètement l'art invincible pendant des centaines d'années et je n'avais pas pu en déployer toute la puissance auparavant. Maintenant que Xu Liguo est là, je dois utiliser 120 % de mes capacités pour l'affronter! Le vainqueur n'est pas encore décidé! »
 

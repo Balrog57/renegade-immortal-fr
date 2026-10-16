@@ -38,7 +38,7 @@ Toutefois, le processus était d'une douleur telle qu'il aurait pu rendre n'impo
 
 L'expression de Wang Lin demeura neutre et sa voix retrouva son calme lorsqu'il demanda: « Li Yuan, l'endroit dont vous parliez se trouve-t-il sur ce fragment? »
 
-Un éclair indéchiffrable traversa le regard de Li Yuan. Il s'inclina respectueusement et répondit: « Aîné, pour l'instant, cadet n'en est pas certain. Je dois me rendre au centre du fragment pour observer la situation. »
+Un éclair indéchiffrable traversa le regard de Li Yuan. Il s'inclina respectueusement et répondit: « Senior, pour l'instant, Junior n'en est pas certain. Je dois me rendre au centre du fragment pour observer la situation. »
 
 Wang Lin lui jeta un regard et hocha la tête.
 

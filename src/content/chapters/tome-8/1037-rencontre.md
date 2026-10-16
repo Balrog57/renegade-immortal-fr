@@ -46,7 +46,7 @@ Bien qu'elle eût perdu la mémoire, elle ressentit un instinct de confiance env
 
 « La vérité et le mensonge n'ont plus d'importance. Nous n'aurons plus jamais de contact avec lui... Il n'est pas quelqu'un que nous pouvons provoquer... » Tandis qu'il parlait, l'Ancêtre de Sang scruta l'horizon. Wang Lin lui était désormais invisible.
 
-« Il n'est plus ce cadet à qui je pouvais ne même pas accorder d'attention. En seulement quelques centaines d'années, il a déjà atteint un tel degré de puissance... »
+« Il n'est plus ce junior à qui je pouvais ne même pas accorder d'attention. En seulement quelques centaines d'années, il a déjà atteint un tel degré de puissance... »
 
 L'expression de Wang Lin restait calme alors qu'il avançait lentement. Sa manière de traiter le karma concernant Yao Xixue pouvait sembler étrange aux yeux d'autrui. Cependant, tant qu'il estimait que c'était la voie à suivre, il n'en changerait rien.
 

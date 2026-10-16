@@ -42,7 +42,7 @@ Un cri monta des disciples environnants, puis un disciple court et gras bondit d
 
 « Stade avancé de l'Établissement des Fondations... » Wang Lin secoua la tête. Pour cette compétition, il avait verrouillé son niveau de culture au stade intermédiaire de la Formation du Noyau. Il fit un geste de la main et sauta hors de l'arène.
 
-À l'instant où il quitta la scène, le corps du disciple court et gras trembla. Toutes les flammes s'éteignirent et le disciple s'évanouit. Wang Lin ne l'avait pas tué; tuer un cadet au stade de l'Établissement des Fondations était tout simplement indigne.
+À l'instant où il quitta la scène, le corps du disciple court et gras trembla. Toutes les flammes s'éteignirent et le disciple s'évanouit. Wang Lin ne l'avait pas tué; tuer un junior au stade de l'Établissement des Fondations était tout simplement indigne.
 
 Le temps passa, et de nombreux disciples de la secte extérieure périrent. Après sept jours, outre les cent survivants, 50 % des disciples avaient déjà trouvé la mort. Les autres avaient soit abandonné préventivement, soit survécu après des combats où les deux parties furent grièvement blessées.
 

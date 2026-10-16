@@ -132,7 +132,7 @@ Tenant les deux bracelets, l'Empereur Antique hésita un instant avant de franch
 
 Les yeux du Seigneur Démon des Six Désirs se plissèrent; il saisit le jeune homme et sauta à son tour. Wang Qingyue lécha ses lèvres et suivit.
 
-Duanmu Ji et le bossu Meng étaient les derniers. Après un bref échange de regards, ils se tournèrent vers Wang Lin. Sans dire un mot, Wang Lin s'élança dans les airs et s'arrêta devant le cercle de lumière. Il tendit la main à Duanmu Ji: « Puisque je suis arrivé ici, j'espère qu'Aîné tiendra sa promesse. »
+Duanmu Ji et le bossu Meng étaient les derniers. Après un bref échange de regards, ils se tournèrent vers Wang Lin. Sans dire un mot, Wang Lin s'élança dans les airs et s'arrêta devant le cercle de lumière. Il tendit la main à Duanmu Ji: « Puisque je suis arrivé ici, j'espère que Senior tiendra sa promesse. »
 
 Duanmu Ji rit: « Il n'y a pas d'urgence. Une fois le troisième essai franchi, je te la donnerai naturellement. »
 

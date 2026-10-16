@@ -56,13 +56,13 @@ Les disciples de la Secte Heng Yue comprirent qu'ils devaient absolument flatter
 
 « Comment la Secte Xuan Dao peut-elle envoyer une telle personne?! C'est absolument honteux! »
 
-Le sourire de Huang Long s'élargit. Plus il regardait Wang Lin, plus il l'appréciait. Il se tourna vers Sun Dazhu et dit: « frère cadet Dazhu, ce disciple est excellent! »
+Le sourire de Huang Long s'élargit. Plus il regardait Wang Lin, plus il l'appréciait. Il se tourna vers Sun Dazhu et dit: « Junior frère Dazhu, ce disciple est excellent! »
 
 Le corps de Sun Dazhu trembla; il eut l'impression de perdre soudainement plusieurs livres. Depuis quand le chef de la secte l'appelait-il avec une telle intimité? Il répondit fièrement: « C'est vrai. J'avais les yeux sur Wang Lin dès son entrée dans la secte! Hehe, heureusement que personne ne s'est battu pour l'obtenir. Hmph, quand je l'ai pris comme disciple, beaucoup se sont même moqués de moi! »
 
 Les visages de Dao Xu et des autres anciens au teint rouge s'empourprèrent, et ils s'apprêtèrent à répliquer.
 
-Cependant, Huang Long les fixa d'un regard sévère et trancha: « frère cadet Dazhu, tu as rendu un immense service à la Secte Heng Yue! Ne t'inquiète pas, ton frère aîné réglera cette affaire pour toi! »
+Cependant, Huang Long les fixa d'un regard sévère et trancha: « Junior frère Dazhu, tu as rendu un immense service à la Secte Heng Yue! Ne t'inquiète pas, ton frère aîné réglera cette affaire pour toi! »
 
 Bien que Sun Dazhu parlât avec arrogance, il était intérieurement bouleversé et son regard laissait poindre une lueur froide.
 

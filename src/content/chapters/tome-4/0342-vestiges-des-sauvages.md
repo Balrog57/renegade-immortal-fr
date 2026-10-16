@@ -26,7 +26,7 @@ Wang Lin eut un léger sourire. « Cette question n'est pas urgente. Nous pourro
 
 Le vieil homme Hu pensa secrètement que bien que Wang Lin ne cultivât pas depuis longtemps, il était un vieux renard capable de détourner la conversation avec aisance. Après avoir entendu Wang Lin, il rit et dit: « C'est vrai. Alors, lorsque ce vieil homme sera sur le point d'atteindre le stade de la Transformation de l'Âme, je devrai revenir vous en demander. Quant au Cimetière des Immortels, vous devrez demander à la cultivatrice Zi Xin de vous l'expliquer. »
 
-La femme au voile blanc regarda Wang Lin et dit: « Aîné, il y a un Arbre de Réincarnation à l'intérieur du Cimetière des Immortels. Cette cadet possède une carte qui peut nous y conduire. »
+La femme au voile blanc regarda Wang Lin et dit: « Aîné, il y a un Arbre de Réincarnation à l'intérieur du Cimetière des Immortels. Cette junior possède une carte qui peut nous y conduire. »
 
 Wang Lin prit calmement une gorgée de thé.
 

@@ -40,13 +40,13 @@ Wang Lin observa calmement l'horizon. Il y aurait probablement d'autres défis d
 
 « Cet homme a fait preuve d'une grande détermination en renonçant si vite... Malheureusement, je n'ai pas pu saisir cette opportunité pour jauger l'étendue de sa culture. Cependant, peu importe sa puissance, un cultivateur au stade initial de la Transformation de l'Âme n'est pas grand-chose. »
 
-En un instant, son regard s'éclaircit, ses sourcils se relevèrent et le sourire revint sur son visage. Sans se retourner, il dit doucement: « Troisième frère apprenti cadet, je ne t'ai pas vu depuis de nombreux jours. Ton voyage s'est-il bien déroulé? »
+En un instant, son regard s'éclaircit, ses sourcils se relevèrent et le sourire revint sur son visage. Sans se retourner, il dit doucement: « Troisième frère apprenti junior, je ne t'ai pas vu depuis de nombreux jours. Ton voyage s'est-il bien déroulé? »
 
 « Puisque mon frère aîné pense à moi, mon voyage fut, bien sûr, sans encombre, » répondit une voix doucereuse au loin.
 
 Au même moment, un jeune homme vêtu de blanc s'avança. Après quelques pas, il arriva sous l'arbre Bodhi. Cette personne n'était autre que le jeune homme que Wang Lin avait rencontré sur la planète commerciale: Bai Wei!
 
-L'homme au visage doux se retourna vers Bai Wei et sourit. « Troisième frère apprenti cadet, as-tu trouvé le cadeau pour l'anniversaire du Maître? »
+L'homme au visage doux se retourna vers Bai Wei et sourit. « Troisième frère apprenti junior, as-tu trouvé le cadeau pour l'anniversaire du Maître? »
 
 Bai Wei lança un regard nonchalant vers le vide au loin et sourit. « Le cadeau que j'ai préparé n'est qu'un modeste jouet qui ne peut rivaliser avec ce que mon frère aîné a préparé... Qu'est-ce que c'est? »
 
@@ -104,7 +104,7 @@ Tout au long du vol, Zhao Xingsha parlait sans relâche, fournissant des descrip
 
 Cet homme était empreint d'humour et doté d'une grande éloquence. Il savait transmettre ses propos avec aisance, ce qui permit à Wang Lin d'acquérir une compréhension rudimentaire de la secte.
 
-Wang Lin demanda: « Frère Aîné Zhao, combien de disciples l'Aîné Omniscient possède-t-il? »
+Wang Lin demanda: « Frère Aîné Zhao, combien de disciples le Senior Omniscient possède-t-il? »
 
 Zhao Xingsha sourit doucement, puis sa main droite forma un sceau qu'il pointa devant lui. Les nuages qui les obstruaient se brisèrent soudainement, ouvrant un passage. Tandis qu'il s'avançait dans l'ouverture, il rit: « Jeune frère apprenti, Maître a accepté au total sept disciples. Nous sommes répartis en rouge, orange, jaune, vert, cyan, bleu et pourpre. Nous appartenons tous deux à la division pourpre. »
 

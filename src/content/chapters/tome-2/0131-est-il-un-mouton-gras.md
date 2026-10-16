@@ -38,7 +38,7 @@ Cet homme était vêtu de noir intégral. Même l'épée volante sous ses pieds 
 
 Wang Lin l'observa et nota que le niveau de culture de cet homme était supérieur à celui de Sun Youcai. Cet individu avait déjà atteint le stade pseudo Formation du Noyau et pouvait rivaliser avec Li Qiqing.
 
-Le visage de Sun Youcai s'illumina soudainement comme une fleur. Sa voix sonnait comme celle d'un courtisan cherchant à plaire: « frère aîné martial, c'est bien lui. J'ai remarqué que cette fille, Li Muwan, et son frère Li Qiqing, ont une bonne impression de lui. Si nous le transformons en marionnette pour les approcher, nous aurons de meilleures chances. »
+Le visage de Sun Youcai s'illumina soudainement comme une fleur. Sa voix sonnait comme celle d'un courtisan cherchant à plaire: « Senior frère martial, c'est bien lui. J'ai remarqué que cette fille, Li Muwan, et son frère Li Qiqing, ont une bonne impression de lui. Si nous le transformons en marionnette pour les approcher, nous aurons de meilleures chances. »
 
 L'homme vêtu de noir tourna la tête vers Wang Lin. Il fut surpris de voir que ce dernier ne s'enfuyait pas. Wang Lin n'étant qu'un cultivateur de stade intermédiaire de l'Établissement des Fondations, il ne le considérait nullement comme une menace et déclara froidement: « Morveux, tu peux mourir maintenant. » Sur ces mots, l'épée volante sous ses pieds fonça vers la poitrine de Wang Lin.
 

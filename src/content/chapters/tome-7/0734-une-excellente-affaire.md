@@ -28,7 +28,7 @@ Le vieil homme fixa l'aura noire devant lui et commença à réfléchir. Il leva
 
 Wang Lin réfléchit un instant. À l'époque, ce qui importait le plus à Situ Nan était le Doigt des Enfers.
 
-Le vieil homme fut soudainement pris d'un doute et son cœur se remplit d'incrédulité. Même si le sort présentait des défauts, ce n'était pas quelque chose que Wang Lin pouvait utiliser comme monnaie d'échange. Les yeux de Wang Lin s'illuminèrent alors qu'il levait sa main droite et disait lentement: « Ce dernier sort est une technique que j'ai apprise d'un aîné briseur de Nirvana. Si cela ne vous intéresse toujours pas, alors oubliez cette affaire! »
+Le vieil homme fut soudainement pris d'un doute et son cœur se remplit d'incrédulité. Même si le sort présentait des défauts, ce n'était pas quelque chose que Wang Lin pouvait utiliser comme monnaie d'échange. Les yeux de Wang Lin s'illuminèrent alors qu'il levait sa main droite et disait lentement: « Ce dernier sort est une technique que j'ai apprise d'un senior briseur de Nirvana. Si cela ne vous intéresse toujours pas, alors oubliez cette affaire! »
 
 Wang Lin envoya une commande mentale, et la garde céleste derrière lui se transforma en un rayon de lumière dorée qui fonça vers la planète de culture.
 
@@ -54,9 +54,9 @@ Avec son niveau de culture, il put presque immédiatement percer les secrets de 
 
 Bien qu'il ne fût pas d'une puissance absolue, ce sort pouvait être utilisé de multiples fois et stocké.
 
-« Ce sceau de vie est formé par l'Art du Massacre Céleste! Il consiste à s'appuyer sur le massacre pour rassembler la vitalité et à s'entourer de cette vitalité pour créer des sceaux de vie. Plus il y a de sceaux, plus la défense sera puissante! Autrefois, l'aîné qui m'a enseigné ce sort disait que si l'on possédait un trillion de sceaux de vie pour se protéger, on resterait sain et sauf même si la planète de culture s'effondrait! » Wang Lin ne mentait pas; c'était exactement ce que l'Omniscient en robe grise lui avait confié.
+« Ce sceau de vie est formé par l'Art du Massacre Céleste! Il consiste à s'appuyer sur le massacre pour rassembler la vitalité et à s'entourer de cette vitalité pour créer des sceaux de vie. Plus il y a de sceaux, plus la défense sera puissante! Autrefois, le senior qui m'a enseigné ce sort disait que si l'on possédait un trillion de sceaux de vie pour se protéger, on resterait sain et sauf même si la planète de culture s'effondrait! » Wang Lin ne mentait pas; c'était exactement ce que l'Omniscient en robe grise lui avait confié.
 
-Pour la première fois, une hésitation apparut sur le visage du vieil homme. Il était évident que cet Art du Massacre Céleste l'avait conquis. Grâce à sa clairvoyance, il pouvait naturellement voir la puissance de cette technique et comprendre qu'elle n'était pas à la portée de n'importe quel cultivateur ordinaire. La crédibilité de l'apprentissage auprès d'un aîné briseur de Nirvana était indéniable.
+Pour la première fois, une hésitation apparut sur le visage du vieil homme. Il était évident que cet Art du Massacre Céleste l'avait conquis. Grâce à sa clairvoyance, il pouvait naturellement voir la puissance de cette technique et comprendre qu'elle n'était pas à la portée de n'importe quel cultivateur ordinaire. La crédibilité de l'apprentissage auprès d'un senior briseur de Nirvana était indéniable.
 
 Cependant, ce sort du troisième œil était un héritage familial; il ne pouvait donc pas être enseigné ainsi à des étrangers. L'origine de la technique était inconnue, semblant provenir d'une acquisition fortuite de ses ancêtres.
 
@@ -94,7 +94,7 @@ L'erreur laissée par le vieil homme ne lui importait guère. Tant qu'il disposa
 
 La Bête du Tonnerre fendait les étoiles à une vitesse prodigieuse. Sa cible était la planète de culture de Wang Lin: Qing Lin!
 
-Les cultivateurs de Qing Lin se réjouissaient que l'aîné excentrique aux penchants particuliers soit enfin parti. Cependant, quelques mois plus tard, l'atmosphère devint de nouveau oppressante avec le retour de ce même aîné.
+Les cultivateurs de Qing Lin se réjouissaient que le senior excentrique aux penchants particuliers soit enfin parti. Cependant, quelques mois plus tard, l'atmosphère devint de nouveau oppressante avec le retour de ce même senior.
 
 La zone de 5 000 kilomètres autour du Pic Heng Yun redevint une zone interdite; personne n'osait plus y faire un seul pas.
 

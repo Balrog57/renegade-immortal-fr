@@ -33,13 +33,13 @@ Il ne pouvait que fuir. Tous ses trésors étaient inutiles face au vieil homme,
 
 Le regard de Wang Lin s'anima et il contrôla la boussole stellaire pour poursuivre sa course. Ayant décidé de s'engager dans cette lutte d'endurance, il commença à user de chaque pilule avec une prudence extrême; il ne voulait gaspiller aucune once de l'énergie spirituelle qu'elles contenaient.
 
-Le vieil homme poursuivait sa traque. Plus il avançait, plus il était stupéfait de voir que ce cadet pouvait maintenir une telle vitesse pendant si longtemps. Bien que Wang Lin utilisât un trésor, celui-ci consommait tout de même de l'énergie spirituelle. Un cadet capable de maîtriser un tel objet aussi longtemps, tout en portant la graine du tatouage en lui, était d'une rareté absolue.
+Le vieil homme poursuivait sa traque. Plus il avançait, plus il était stupéfait de voir que ce junior pouvait maintenir une telle vitesse pendant si longtemps. Bien que Wang Lin utilisât un trésor, celui-ci consommait tout de même de l'énergie spirituelle. Un junior capable de maîtriser un tel objet aussi longtemps, tout en portant la graine du tatouage en lui, était d'une rareté absolue.
 
 « Ce garçon doit être le disciple d'une grande secte là-haut, peut-être même un disciple de Suzaku! Je dois le raffiner pour en faire ma marionnette de tatouage; une fois renvoyé là-haut, son utilité sera immense! »
 
 Le Clan des Immortels Délaissés ne pouvait franchir le premier étage en raison d'un sceau imposé par Suzaku. Les seuls capables de sortir étaient les marionnettes de tatouage. Celui que Wang Lin avait rencontré auparavant n'était qu'une marionnette de rang inférieur. C'était la raison pour laquelle le Clan des Immortels Délaissés s'emparait des corps de cultivateurs décédés. Autrement, la Mer des Démons et tous les pays environnants auraient été anéantis par eux, et les membres du clan n'auraient pas eu à se battre entre eux pour l'obtention de bêtes.
 
-Les yeux du vieil homme projetèrent une lueur mystérieuse tandis qu'il continuait sa poursuite. Il eut un ricanement méprisant: « Ce cadet doit posséder de nombreuses pilules, mais peu importe leur nombre, il finira par en manquer. Et lorsqu'il sera à bout, je le raffinerai en marionnette! »
+Les yeux du vieil homme projetèrent une lueur mystérieuse tandis qu'il continuait sa poursuite. Il eut un ricanement méprisant: « Ce junior doit posséder de nombreuses pilules, mais peu importe leur nombre, il finira par en manquer. Et lorsqu'il sera à bout, je le raffinerai en marionnette! »
 
 Le vide était d'une immensité extrême. Wang Lin volait en ligne droite depuis plus d'un mois sans voir la fin du voyage. Pour l'instant, tout semblait identique à l'endroit où il était entré: une obscurité totale, dépourvue de toute vie ou matière.
 
@@ -87,7 +87,7 @@ Wang Lin fixa la Perle Défiant le Ciel, le visage crispé par l'effort. Soudain
 
 À l'instant où la feuille disparut, la clarté revint dans ses yeux. Excité, Wang Lin fit rapidement disparaître la Perle Défiant le Ciel pour consacrer toute son attention au contrôle de la boussole stellaire afin de fuir. Il savait que chaque seconde comptait et qu'il n'avait pas le temps d'attendre que la perle absorbe davantage. Maintenant qu'il savait qu'elle pouvait absorber le tatouage, il ne s'en souciait plus dans l'immédiat et se focalisa sur sa fuite.
 
-Le vieil homme apparut juste après la disparition de Wang Lin. Son visage était sombre alors qu'il fixait l'horizon, les sourcils froncés. « Pourquoi ce cadet possède-t-il autant de trésors différents? Il a même un objet capable d'extraire la graine du tatouage! »
+Le vieil homme apparut juste après la disparition de Wang Lin. Son visage était sombre alors qu'il fixait l'horizon, les sourcils froncés. « Pourquoi ce junior possède-t-il autant de trésors différents? Il a même un objet capable d'extraire la graine du tatouage! »
 
 Lorsque la feuille fut absorbée par la Perle Défiant le Ciel, le vieillard l'avait détecté et en avait été profondément choqué. « Je dois absolument raffiner ce garçon pour en faire ma marionnette de tatouage! » Ses yeux redevinrent glacials et il reprit sa poursuite.
 

@@ -96,7 +96,7 @@ Wang Lin s'arrêta à mille pieds du vortex. L'homme devant lui était l'ancêtr
 
 L'expression de Maître Lu Fu devint sombre et une hésitation perla dans ses yeux.
 
-« Maître Lu Fu!! Seul cadet peut vous emmener dans cet endroit... » Le visage de Dieu de Sang était livide, empreint de désespoir. Mais alors qu'il parlait, Maître Lu Fu l'interrompit.
+« Maître Lu Fu!! Seul Junior peut vous emmener dans cet endroit... » Le visage de Dieu de Sang était livide, empreint de désespoir. Mais alors qu'il parlait, Maître Lu Fu l'interrompit.
 
 « Ce vieil homme prendra sa propre décision! »
 

@@ -10,7 +10,7 @@ L'expression de l'Omniscient s'assombrit et il dit calmement: « Tant qu'il n'a 
 
 « Votre Secte du Destin Céleste veut protéger votre disciple? Est-ce que les disciples de ma Secte de l'Épée Da Lou sont morts pour rien?! Chen Long était le seul survivant parmi les 12 Épées, les autres ont tous été tués par Wang Lin! Ce vieil homme ne s'en prend pas aux faibles; tant que Wang Lin peut résister à trois rayons d'énergie d'épée, cette affaire sera oubliée! Si vous osez me barrer la route, Omniscient, je risquerai tout pour entrer en guerre contre vous! » Le visage de Ling Tianhou était empreint d'une intention meurtrière. Bien qu'il s'adressât à l'Omniscient, son regard restait verrouillé sur Wang Lin.
 
-« Cet aîné affirme que je n'ai pas la qualification pour détenir le jeton. Puis-je demander à l'Aîné combien de rayons d'énergie d'épée du Saint de l'Épée Ling Tianhou il pourrait supporter? » Wang Lin regarda le vieil homme qui ressemblait à une montagne de chair.
+« Ce senior affirme que je n'ai pas la qualification pour détenir le jeton. Puis-je demander à Senior combien de rayons d'énergie d'épée du Saint de l'Épée Ling Tianhou il pourrait supporter? » Wang Lin regarda le vieil homme qui ressemblait à une montagne de chair.
 
 Le vieil homme au corps semblable à une montagne de chair était extrêmement sombre. Il laissa échapper un reniflement froid et resta silencieux, mais une lueur d'intention meurtrière traversa ses yeux.
 
@@ -128,7 +128,7 @@ Il y avait aussi la quatrième sœur, qui était restée abattue tout ce temps. 
 
 Non seulement eux, mais presque tous ceux qui connaissaient Wang Lin étaient plongés dans une sorte de transe. À leurs yeux, la silhouette du Wang Lin d'autrefois fusionnait progressivement avec la figure vêtue de blanc qu'ils contemplaient maintenant.
 
-Wang Lin ne rangea pas ses 45 épées volantes; son regard balaya l'assistance avant de se poser sur le vieil homme à la stature de montagne de chair, et il dit calmement: « Aîné, suis-je qualifié? »
+Wang Lin ne rangea pas ses 45 épées volantes; son regard balaya l'assistance avant de se poser sur le vieil homme à la stature de montagne de chair, et il dit calmement: « Senior, suis-je qualifié? »
 
 Le vieil homme réfléchit silencieusement avant de laisser échapper un reniflement froid et de dire à l'Omniscient: « Camarade cultivateur Omniscient, j'ai encore une série de pilules à raffiner, je ne vous dérangerai donc plus. »
 

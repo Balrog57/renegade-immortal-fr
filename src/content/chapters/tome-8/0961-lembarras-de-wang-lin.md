@@ -33,7 +33,7 @@ La femme en violet ouvrit la bouche comme pour parler, mais finit par garder le 
 
 « Puisque la Quatrième Sœur n'a rien à dire, je ne vous raccompagnerai pas. » Sur ces mots, Wang Lin agita sa manche. Une brise légère surgit, faisant trembler le corps de la femme et la poussant rapidement vers la porte. Au moment où elle atteignit le seuil, son regard devint résolu et elle murmura: « Wang Lin, maintenant que tu as atteint la deuxième étape, n'as-tu pas peur de la crise qui pourrait s'abattre sur toi au sein de la Secte du Destin Céleste? »
 
-Les yeux de Wang Lin s'illuminèrent et sa main droite se tendit. Il tira la femme en violet vers lui et dit calmement: « Que veut dire Sœur Aînée par là? »
+Les yeux de Wang Lin s'illuminèrent et sa main droite se tendit. Il tira la femme en violet vers lui et dit calmement: « Que veut dire Senior Sœur par là? »
 
 La femme en violet serra les dents, leva les yeux vers lui et dit doucement: « Si tu n'avais pas fui à l'époque, il est probable que tu aurais disparu mystérieusement au cours des derniers siècles! »
 
@@ -87,27 +87,27 @@ Zhao Xinmeng fut surprise et, un instant plus tard, elle perçut également quel
 
 Wang Lin fronça les sourcils. À cet instant, des pas légers résonnèrent à l'extérieur.
 
-« Septième Frère Cadet, Bai Wei demande à vous voir. » La voix féminine de Bai Wei flotta doucement dans la pièce.
+« Septième Junior Frère, Bai Wei demande à vous voir. » La voix féminine de Bai Wei flotta doucement dans la pièce.
 
 Wang Lin n'éprouvait aucune animosité envers Bai Wei. Sans les avertissements secrets qu'elle lui avait adressés autrefois, il n'aurait pas une compréhension aussi profonde de l'Omniscient.
 
-« Frère Aîné Bai, je vous en prie, entrez. » La voix de Wang Lin était calme. Pourtant, un léger parfum corporel pénétra ses narines, le mettant mal à l'aise.
+« Senior Frère Bai, je vous en prie, entrez. » La voix de Wang Lin était calme. Pourtant, un léger parfum corporel pénétra ses narines, le mettant mal à l'aise.
 
 La porte s'ouvrit. Bai Wei conservait sa beauté légendaire, mais paraissait désormais un peu frêle. À l'intérieur de la pièce, elle regarda Wang Lin et soupira: « Toujours pareil. Septième Frère, tu n'as pas changé du tout depuis l'époque. »
 
 « Le Frère Bai est identique. Nous ne nous sommes pas vus depuis des centaines d'années, et pourtant c'est comme si je t'avais vue hier. » Wang Lin sourit.
 
-Les yeux de Bai Wei étaient limpides comme l'eau lorsqu'elle le regarda et dit doucement: « Le Septième Frère utilise les mauvais termes. Je ne suis plus le Frère Aîné Bai, mais la Sœur Cadette Bai... »
+Les yeux de Bai Wei étaient limpides comme l'eau lorsqu'elle le regarda et dit doucement: « Le Septième Frère utilise les mauvais termes. Je ne suis plus le Senior Frère Bai, mais la Junior Sœur Bai... »
 
 L'expression de Wang Lin devint étrange et il ne put s'empêcher d'esquisser un sourire amer.
 
-Voyant sa réaction, Bai Wei sourit. Ses yeux brillèrent d'un éclat incomparable, révélant une beauté sans pareille: « Pourquoi est-il si difficile de m'appeler Sœur Cadette Bai? J'ai toujours été une femme. »
+Voyant sa réaction, Bai Wei sourit. Ses yeux brillèrent d'un éclat incomparable, révélant une beauté sans pareille: « Pourquoi est-il si difficile de m'appeler Junior Sœur Bai? J'ai toujours été une femme. »
 
-Wang Lin se sentit très embarrassé. Malgré mille ans de culture et d'expérience de vie, il ne savait toujours pas comment réagir. Il ne put que tousser sèchement: « Je me demande quel est l'objet de votre visite, Frère Aîné Bai. »
+Wang Lin se sentit très embarrassé. Malgré mille ans de culture et d'expérience de vie, il ne savait toujours pas comment réagir. Il ne put que tousser sèchement: « Je me demande quel est l'objet de votre visite, Senior Frère Bai. »
 
 Bai Wei haussa les sourcils et le fixa de son regard aquatique.
 
-Malgré sa culture au stade initial du Scruteur du Nirvana et son corps de Dieu Antique, Wang Lin fut presque incapable de soutenir ce regard. Il sourit amèrement: « Bai... Sœur Cadette Bai, que me voulez-vous? »
+Malgré sa culture au stade initial du Scruteur du Nirvana et son corps de Dieu Antique, Wang Lin fut presque incapable de soutenir ce regard. Il sourit amèrement: « Bai... Junior Sœur Bai, que me voulez-vous? »
 
 L'expression de Bai Wei se détendit et elle murmura: « Wang Lin, tu n'aurais pas dû revenir! C'est difficile à dire ici, mais es-tu libre? Sur la planète Tian Yun, il existe un marché appelé l'Œil Fantôme. Si tu es disponible, j'ai quelque chose à t'informer en chemin. »
 

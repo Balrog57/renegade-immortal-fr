@@ -6,11 +6,11 @@ bookTitle: The Mediocre Youth
 en: Chapter 58 - Finished
 slug: termine
 ---
-L'Ancien Ouyang lança un regard méprisant à Wang Lin. Il déclara: « Tu n'es qu'un simple cadet. De quel droit prétends-tu commercer avec moi? Si tu sors le trésor laissé par le fondateur de la Secte Heng Yue, je pourrais peut-être accepter d'échanger une seule goutte de ce poison contre lui! »
+L'Ancien Ouyang lança un regard méprisant à Wang Lin. Il déclara: « Tu n'es qu'un simple junior. De quel droit prétends-tu commercer avec moi? Si tu sors le trésor laissé par le fondateur de la Secte Heng Yue, je pourrais peut-être accepter d'échanger une seule goutte de ce poison contre lui! »
 
 Wang Lin fronça les sourcils et ricana intérieurement. Puis, il activa sa technique d'attraction de toutes ses forces et tendit la main.
 
-Le visage de l'Ancien Ouyang changea instantanément. « cadet, oses-tu! » Sur ces mots, il agita sa manche et une épée volante à l'aspect antique apparut. Dès qu'elle fut libérée, le vent commença à tourbillonner, formant une lame gigantesque dans les airs qui s'abattit avec puissance.
+Le visage de l'Ancien Ouyang changea instantanément. « Junior, oses-tu! » Sur ces mots, il agita sa manche et une épée volante à l'aspect antique apparut. Dès qu'elle fut libérée, le vent commença à tourbillonner, formant une lame gigantesque dans les airs qui s'abattit avec puissance.
 
 À l'instant où l'épée apparut, une pointe d'intention meurtrière brilla dans les yeux de l'Ancien Ouyang. Ce disciple était devenu bien trop puissant et représenterait, à l'avenir, une menace pour sa Secte Xuan Dao. Il voulait saisir cette occasion pour détruire sa culture.
 

@@ -98,7 +98,7 @@ L'estimé Xuan Bao portait du blanc et était d'une silhouette légèrement minc
 
 Il avait l'apparence d'un véritable Ancien. Il tenait un fouet à la main lorsqu'il apparut aux côtés de la femme en robe bleue.
 
-La femme en robe bleue dit doucement: « Ce cadet salue son Oncle-Maître. »
+La femme en robe bleue dit doucement: « Junior salue son Oncle-Maître. »
 
 L'estimé Xuan Bao observa le champ de bataille au loin et rit: « Petite fille, ton maître t'a laissé présider cette bataille et a ordonné que tous t'obéissent. Il a même délibérément choisi ce lieu pour l'affrontement. Une telle fortune ne se présente pas souvent. »
 

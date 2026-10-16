@@ -26,9 +26,9 @@ Qian Kuizi et quelques cultivateurs de la famille sortirent rapidement pour accu
 
 Bien que le niveau de culture de Qian Kuizi fût supérieur à celui de Wang Lin, le statut d'un messager du Temple Céleste du Tonnerre était aussi élevé que les cieux; ils n'osaient donc point l'offenser.
 
-Sur la Bête du Tonnerre, le regard de Wang Lin restait calme alors qu'il observait les cultivateurs de la famille Qian. Finalement, ses yeux se posèrent sur Qian Kuizi et il dit: « Aîné Qian Kuizi, cela fait longtemps. »
+Sur la Bête du Tonnerre, le regard de Wang Lin restait calme alors qu'il observait les cultivateurs de la famille Qian. Finalement, ses yeux se posèrent sur Qian Kuizi et il dit: « Senior Qian Kuizi, cela fait longtemps. »
 
-Qian Kuizi rit et répondit: « Je n'ose vous appeler "Aîné". Le statut du Seigneur Messager est noble, tandis que mon niveau de culture n'est que légèrement supérieur. Discutons en tant qu'égaux. »
+Qian Kuizi rit et répondit: « Je n'ose vous appeler "Senior". Le statut du Seigneur Messager est noble, tandis que mon niveau de culture n'est que légèrement supérieur. Discutons en tant qu'égaux. »
 
 Bien que Qian Kuizi parlât avec calme, son cœur était bouleversé. D'après ce qu'il pouvait percevoir, cet homme était passé du début du stade d'Ascendant à la fin du stade d'Ascendant en moins d'un siècle. Bien qu'il n'en fût qu'au premier niveau, une telle vitesse était stupéfiante.
 

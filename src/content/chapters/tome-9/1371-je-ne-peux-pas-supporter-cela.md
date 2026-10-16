@@ -116,7 +116,7 @@ L'homme portait du noir et paraissait âgé d'une quarantaine d'années. Son exp
 
 Ce scorpion semblait si réaliste qu'il paraissait presque vivant; sa queue oscillait légèrement, dégageant une sensation démoniaque.
 
-Zhong Grand Rouge prit une profonde inspiration et s'inclina rapidement. Il sortit la pilule donnée par Wang Lin et dit respectueusement: « Ce cadet souhaite échanger cette pilule contre une marionnette. »
+Zhong Grand Rouge prit une profonde inspiration et s'inclina rapidement. Il sortit la pilule donnée par Wang Lin et dit respectueusement: « Ce junior souhaite échanger cette pilule contre une marionnette. »
 
 L'expression de l'homme d'âge moyen ne changea pas alors qu'il tendait la main. La pilule vola vers lui et il l'examina avec désinvolture. Cependant, son regard changea brusquement; il ignora totalement Zhong Grand Rouge et le vieillard pour renifler la pilule. Ses pupilles se rétractèrent tandis que son sens divin se déployait.
 

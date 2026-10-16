@@ -28,7 +28,7 @@ Wang Lin regarda la pilule dans sa main avec un certain regret. La fusion d'une 
 
 D'un revers de la main droite, Wang Lin lança la pilule vers Xu Yun. Alors qu'il s'apprêtait à parler, il fut interrompu par un cri.
 
-Les yeux de Xu Yun s'écarquillèrent en fixant la pilule, incapable de contenir plus longtemps la colère qui lui déchirait le cœur. À cet instant, toutes les pensées de silhouette blanche, de doigt gracieux ou de puissant aîné furent balayées. Durant ces trois jours, elle avait regardé impuissante les herbes qu'elle avait mis tant de temps à cultiver — des herbes qu'elle n'aurait même pas osé utiliser elle-même — être arrachées une à une.
+Les yeux de Xu Yun s'écarquillèrent en fixant la pilule, incapable de contenir plus longtemps la colère qui lui déchirait le cœur. À cet instant, toutes les pensées de silhouette blanche, de doigt gracieux ou de puissant senior furent balayées. Durant ces trois jours, elle avait regardé impuissante les herbes qu'elle avait mis tant de temps à cultiver — des herbes qu'elle n'aurait même pas osé utiliser elle-même — être arrachées une à une.
 
 Au final, il n'avait raffiné qu'une pilule de rang 3. Une pilule de rang 3 était précieuse et nécessaire à un cultivateur du Corps Yang, mais toutes les herbes de son jardin auraient dû suffire à raffiner une pilule de rang 4. Si l'Oncle-Maître Li avait été là, il y aurait même eu une chance de produire une pilule de rang 5.
 

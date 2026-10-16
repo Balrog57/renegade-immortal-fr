@@ -48,7 +48,7 @@ Un rayon de lumière dorée jaillit soudainement du vortex au moment même de so
 
 La chambre secrète de la famille Huan explosa sous la pression de l'énergie de l'épée, créant une onde de choc massive. Cette onde dévasta les bâtiments sur son passage et souleva un immense nuage de poussière. L'ancêtre de la famille Huan émergea des décombres, stupéfait et dans un état pitoyable, tandis qu'il s'enfuyait en emportant Liu Mei.
 
-« Maudit soit-il! Comment ce cadet qui connaît Liu Mei peut-il posséder une telle énergie d'épée!?! Quel genre d'aîné du Purificateur du Nirvana fou donnerait une telle puissance à un cadet au premier stade? C'est une véritable oppression! » jura l'ancêtre de la famille Huan en pensée. Ce n'était pas qu'il ne pouvait y résister, mais son état affaibli et sa chute de culture le faisaient craindre que ses fondations ne deviennent encore plus instables s'il tentait de contrer cette attaque.
+« Maudit soit-il! Comment ce junior qui connaît Liu Mei peut-il posséder une telle énergie d'épée!?! Quel genre de senior du Purificateur du Nirvana fou donnerait une telle puissance à un junior au premier stade? C'est une véritable oppression! » jura l'ancêtre de la famille Huan en pensée. Ce n'était pas qu'il ne pouvait y résister, mais son état affaibli et sa chute de culture le faisaient craindre que ses fondations ne deviennent encore plus instables s'il tentait de contrer cette attaque.
 
 Après l'effondrement de la chambre secrète, l'énergie de l'épée se précipita droit sur l'ancêtre de la famille Huan. Elle charriait le domaine tyrannique de Ling Tianhou. À cet instant, c'était comme si les cieux et la terre tout entiers étaient saturés de cette aura impérieuse.
 
@@ -70,7 +70,7 @@ La lumière blanche brilla intensément sur son doigt alors que son intention Da
 
 Le jaillissement de lumière blanche percutat l'énergie de l'épée de Ling Tianhou. Une explosion assourdissante se propagea sur toute la planète Mille Illusions. La lumière blanche se dissipa, laissant passer l'énergie de l'épée qui, telle un éclair, s'engouffra dans le corps de l'ancêtre de la famille Huan par son doigt.
 
-Le corps de l'ancêtre trembla et son visage devint instantanément livide. L'horreur dans ses yeux s'intensifia, et il repensa alors aux paroles du cadet:
+Le corps de l'ancêtre trembla et son visage devint instantanément livide. L'horreur dans ses yeux s'intensifia, et il repensa alors aux paroles du junior:
 
 « Tu la sauves, et la famille Huan sera anéantie! »
 
@@ -78,7 +78,7 @@ Auparavant, il avait totalement ignoré ces menaces, mais elles retentissaient d
 
 Ce qui l'effrayait davantage encore était de songer au nombre de tels éclairs que ce personnage pouvait encore déchaîner.
 
-« Si cet homme possède plus de six rayons de cette énergie, alors à moins de recouvrer ma culture de Scruteur du Nirvana, je mourrai sans aucun doute! Mais le plus terrifiant n'est pas là; ce qui est véritablement effrayant, c'est le maître de cette épée... Être capable d'offrir une telle puissance à un cadet signifie qu'ils sont très proches. Peut-être même un descendant direct... » Le cuir chevelu de l'ancêtre de la famille Huan s'engourdit. Malgré sa force mentale, il ne pouvait s'empêcher de succomber à la peur.
+« Si cet homme possède plus de six rayons de cette énergie, alors à moins de recouvrer ma culture de Scruteur du Nirvana, je mourrai sans aucun doute! Mais le plus terrifiant n'est pas là; ce qui est véritablement effrayant, c'est le maître de cette épée... Être capable d'offrir une telle puissance à un junior signifie qu'ils sont très proches. Peut-être même un descendant direct... » Le cuir chevelu de l'ancêtre de la famille Huan s'engourdit. Malgré sa force mentale, il ne pouvait s'empêcher de succomber à la peur.
 
 Bien qu'il fût l'ancêtre de la famille Huan et que sa culture ait atteint le stade Scruteur du Nirvana, cela signifiait simplement qu'il était d'autant plus conscient de la terreur qu'inspirait un Purificateur du Nirvana. La deuxième étape de la culture différait radicalement de la première.
 

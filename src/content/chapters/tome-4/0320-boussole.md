@@ -10,7 +10,7 @@ slug: boussole
 
 Wang Lin laissa échapper un rire et continua d'avancer. « Vous finirez par découvrir ce sens caché par vous-même. Si, à la fin, vous ne le comprenez toujours pas, alors ce sera la fin de votre vie! »
 
-Sun Tai continuait de reculer. Cette fois, il se déplaça encore plus vite et s'éloigna rapidement. « Je ne me rabaisserai pas à traiter avec un cadet comme vous. Si vous osez détruire ma troisième âme, vous verrez comment je me vengerai! »
+Sun Tai continuait de reculer. Cette fois, il se déplaça encore plus vite et s'éloigna rapidement. « Je ne me rabaisserai pas à traiter avec un junior comme vous. Si vous osez détruire ma troisième âme, vous verrez comment je me vengerai! »
 
 Sur ce, il s'envola rapidement au loin et cessa de parler de piéger Wang Lin.
 
@@ -30,13 +30,13 @@ Wang Lin retourna rapidement vers la boussole stellaire.
 
 Tout au long de leur voyage, Wang Lin avait fait preuve autant d'esprit que de détermination. Sa culture était également impressionnante, ce qui donnait envie à Chi Hu de devenir l'ami de Wang Lin.
 
-Wang Lin sourit et dit: « Nul besoin de s'inquiéter. Si l'aîné Zhou Yi ne m'avait pas dit qu'il serait très utile de le garder en vie, je l'aurais déjà tué pour utiliser cette pagode afin de sceller sa quatrième âme. Il n'aurait alors eu aucun moyen d'échapper à son destin. » Wang Lin disait tout cela avec une expression très calme. Il savait que même si Sun Tai était parti, il utiliserait son sens divin pour les espionner.
+Wang Lin sourit et dit: « Nul besoin de s'inquiéter. Si le senior Zhou Yi ne m'avait pas dit qu'il serait très utile de le garder en vie, je l'aurais déjà tué pour utiliser cette pagode afin de sceller sa quatrième âme. Il n'aurait alors eu aucun moyen d'échapper à son destin. » Wang Lin disait tout cela avec une expression très calme. Il savait que même si Sun Tai était parti, il utiliserait son sens divin pour les espionner.
 
 Chi Hu fut surpris. Il ne posa plus de questions et se concentra sur le contrôle de la boussole stellaire, qui disparut ensuite dans le vide.
 
 Peu de temps après leur départ, Sun Tai apparut. Il fixa la direction où Wang Lin avait disparu avec une expression troublante.
 
-« Bien que je ne puisse croire tout ce que dit ce cadet, 80 % de ses paroles doivent être vraies. Comment un cultivateur au stade initial de la Formation de l'Âme pourrait-il être aussi calme face à moi? Humph, je me demandais pourquoi il n'était pas disposé à détruire ma troisième âme. Il semble que Zhou Yi lui ait déjà transmis un message. Maintenant, je n'ai plus qu'à découvrir ce qu'ils ont l'intention de faire de moi... »
+« Bien que je ne puisse croire tout ce que dit ce junior, 80 % de ses paroles doivent être vraies. Comment un cultivateur au stade initial de la Formation de l'Âme pourrait-il être aussi calme face à moi? Humph, je me demandais pourquoi il n'était pas disposé à détruire ma troisième âme. Il semble que Zhou Yi lui ait déjà transmis un message. Maintenant, je n'ai plus qu'à découvrir ce qu'ils ont l'intention de faire de moi... »
 
 Sun Tai réfléchit un moment avant de s'élancer vers l'avant.
 

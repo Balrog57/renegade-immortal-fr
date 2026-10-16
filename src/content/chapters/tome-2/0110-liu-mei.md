@@ -50,7 +50,7 @@ Cet homme était le frère de Liu Mei, Liu Feng. Wang Lin l'examina de son Sens 
 
 Wang Lin les fixa et soupira: « Secte Xuan Dao... peu importe. Remettez-moi votre jeton et je ne vous compliquerai pas la tâche. »
 
-L'un des dix disciples, un vieil homme, se leva en soupirant: « Quel cadet arrogant, exigeant de nous remettre notre jeton sur-le-champ. Liu Feng, le connais-tu? »
+L'un des dix disciples, un vieil homme, se leva en soupirant: « Quel junior arrogant, exigeant de nous remettre notre jeton sur-le-champ. Liu Feng, le connais-tu? »
 
 Liu Feng sourit amèrement et répondit: « Frère aîné Ma, il... c'est Wang Lin. »
 

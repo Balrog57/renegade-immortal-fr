@@ -188,7 +188,7 @@ En s'inclinant, une trace d'amertume traversa le visage de Yang Xiong tandis qu'
 
 Mais il venait de comprendre à quel point son idée était stupide. S'il avait agi ainsi, il aurait été le premier à mourir.
 
-Cet aîné qui occupait le corps de Mai Liang devait être un cultivateur d'un pays de haut rang. Comment cet Aîné, n'étant qu'au stade de l'Établissement des Fondations, pouvait-il posséder un Sens Divin capable de faire trembler son cœur?
+Ce senior qui occupait le corps de Mai Liang devait être un cultivateur d'un pays de haut rang. Comment ce Senior, n'étant qu'au stade de l'Établissement des Fondations, pouvait-il posséder un Sens Divin capable de faire trembler son cœur?
 
 Yang Xiong soupira intérieurement et renonça à toute idée de résistance. Il prit une profonde inspiration et frappa rapidement son sac de rangement de la main gauche. Il en sortit un jade et dit respectueusement à Wang Lin: « Maître, j'ai obtenu ce que vous m'avez demandé il y a trois jours. Voici le jade de l'atelier de raffinage. »
 
@@ -202,7 +202,7 @@ Wang Lin le regarda, hocha la tête et dit d'un ton neutre: « Si tu réussis vr
 
 Le corps de Yang Xiong trembla et son visage pâlit instantanément. En voyant Wang Lin, et particulièrement le regard qu'il lui lançait, il ressentit une terreur profonde. Il s'agenouilla au sol et tendit le jade qu'il serrait dans sa main droite, le visage extrêmement tendu.
 
-Wang Lin ne le regarda plus et se tourna vers Zhou Zihong. Cette dernière serra les dents, leva son joli visage et dit: « Aîné, ce Chemin Divin est très étrange. Bien que je l'aie vu il y a six mois, je n'ai rien pu retenir par la suite, je ne peux donc pas faire de copie du jade contenant la technique. En réalité, Aîné n'a pas besoin de passer par un tel détour. Grâce aux contributions de Mai Liang sur le champ de bataille étranger, une fois revenu à la secte, vous aurez naturellement le droit de l'étudier. »
+Wang Lin ne le regarda plus et se tourna vers Zhou Zihong. Cette dernière serra les dents, leva son joli visage et dit: « Senior, ce Chemin Divin est très étrange. Bien que je l'aie vu il y a six mois, je n'ai rien pu retenir par la suite, je ne peux donc pas faire de copie du jade contenant la technique. En réalité, Senior n'a pas besoin de passer par un tel détour. Grâce aux contributions de Mai Liang sur le champ de bataille étranger, une fois revenu à la secte, vous aurez naturellement le droit de l'étudier. »
 
 Le Chemin Divin était ce qui intéressait le plus Wang Lin dans les souvenirs de Mai Liang. Mai Liang rêvait de l'étudier. Pour une raison obscure, le Sanctuaire du Dieu de la Guerre était très strict concernant l'étude du Chemin Divin par ses propres disciples, tandis que les personnes extérieures n'avaient qu'à payer des pierres spirituelles à intervalles réguliers pour y accéder.
 

@@ -12,11 +12,11 @@ En plus de toutes ces épées, un pilier de cristal trônait au centre de la pi�
 
 Alors que Wang Lin observait les trois épées centrales, un employé s'approcha. Il avait environ vingt ans et l'air très vif. Il examina attentivement Wang Lin. Il était tout à fait normal que les clients se cachent le visage, car de nombreux cultivateurs ne souhaitaient pas être reconnus. Quant au niveau de culture de Wang Lin, l'employé disposait d'une technique spéciale propre au Pavillon du Raffinage des Trésors pour le vérifier. Plus il l'examinait, plus il était perplexe, car le niveau de culture de Wang Lin oscillait constamment entre la Formation du Noyau et le sommet du stade avancé de l'Établissement des Fondations.
 
-Bien que cet employé fût surpris, il ne le montra pas. Il demanda respectueusement: « Aîné a-t-il des vues sur ces épées volantes? »
+Bien que cet employé fût surpris, il ne le montra pas. Il demanda respectueusement: « Senior a-t-il des vues sur ces épées volantes? »
 
 Wang Lin détourna le regard et fixa l'employé. Il fut instantanément capable de percevoir que celui-ci se situait au 8e ou 9e niveau de la Condensation de Qi, et demanda calmement: « Le Pavillon du Raffinage des Trésors vend-il des fours à pilules? »
 
-L'employé hocha la tête en souriant. « Aîné, je crains que vous ne trouviez des fours à pilules que dans notre pavillon, car ce ne sont pas des objets que les gens ordinaires peuvent acquérir. Si aîné est intéressé, je vous prie de me suivre au deuxième étage. »
+L'employé hocha la tête en souriant. « Senior, je crains que vous ne trouviez des fours à pilules que dans notre pavillon, car ce ne sont pas des objets que les gens ordinaires peuvent acquérir. Si senior est intéressé, je vous prie de me suivre au deuxième étage. »
 
 Wang Lin marcha calmement vers l'escalier. L'employé le suivit rapidement pour lui ouvrir la voie. Juste avant de monter, il se retourna pour regarder un cultivateur qui marchandait avec un autre employé. Il réfléchit un instant avant d'entamer l'ascension.
 

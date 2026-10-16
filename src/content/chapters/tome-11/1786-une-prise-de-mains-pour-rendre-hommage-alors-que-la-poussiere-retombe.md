@@ -136,7 +136,7 @@ Wang Lin ne répondit pas. Le regard de Tang Shan s'obscurcit alors qu'elle éta
 
 Il n'y avait rien, rien ne semblait anormal. Aucune ondulation, aucun signe, mais les paroles de Wang Lin résonnèrent solennellement:
 
-« Aîné Xuan Luo, vous m'avez suivi tout au long de mon chemin. Vous êtes allé sur la Planète des Cinq Éléments, dans le Royaume Céleste, et vous êtes venu jusqu'au cœur de cette caverne. Maintenant que vous m'avez vu ouvrir la porte, avez-vous assez vu? Pouvez-vous enfin vous montrer? »
+« Senior Xuan Luo, vous m'avez suivi tout au long de mon chemin. Vous êtes allé sur la Planète des Cinq Éléments, dans le Royaume Céleste, et vous êtes venu jusqu'au cœur de cette caverne. Maintenant que vous m'avez vu ouvrir la porte, avez-vous assez vu? Pouvez-vous enfin vous montrer? »
 
 Le vide commença à se distordre sous l'effet de ses paroles, et une silhouette cachée apparut. Ces mots soudains et ce changement brusque choquèrent tout le monde, et tous les regards se tournèrent vers la figure.
 

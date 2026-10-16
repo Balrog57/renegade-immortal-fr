@@ -62,7 +62,7 @@ Un regard de désespoir envahit l'Esprit de la Terre alors que le jeune homme le
 
 Wang Lin n'eut pas le temps de vérifier l'état de sa capture une fois l'esprit absorbé dans la perle défiant le ciel. Il rétracta le sceau noir et d'un geste de la main, rangea le drapeau de restriction dans son sac de rangement.
 
-Tout cela s'était déroulé avec une rapidité extrême. Ensuite, sans hésiter, il cria: « Ce cadet est un disciple de la Secte des Nuages Blancs. Mon maître est Qing Song! » Sur ces mots, son sens divin pénétra dans son sac de rangement pour manipuler la sculpture de l'ancien afin de libérer une infime portion du domaine du passage du temps, avant de faire demi-tour et de s'enfuir.
+Tout cela s'était déroulé avec une rapidité extrême. Ensuite, sans hésiter, il cria: « Ce junior est un disciple de la Secte des Nuages Blancs. Mon maître est Qing Song! » Sur ces mots, son sens divin pénétra dans son sac de rangement pour manipuler la sculpture de l'ancien afin de libérer une infime portion du domaine du passage du temps, avant de faire demi-tour et de s'enfuir.
 
 Le jeune homme fixa Wang Lin d'un regard glacial, mais sa main ne bougea pas. Après un moment, il se détourna et partit à son tour.
 

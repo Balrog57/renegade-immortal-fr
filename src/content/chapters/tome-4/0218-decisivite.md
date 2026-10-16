@@ -44,7 +44,7 @@ Wang Lin portait un masque et son aura, tout comme sa culture, étaient totaleme
 
 Wang Lin jeta un coup d'œil à Cheng Xian, fit un geste de la main, et une restriction apparut aussitôt pour sceller la pièce.
 
-Les pupilles de Cheng Xian se rétractèrent. Il esquissa un sourire amer: « Ils ont même envoyé un Ancien du patio extérieur pour s'occuper d'un cadet comme moi... Allez-y! Si je cligne des yeux, mon nom n'est plus Cheng Xian! »
+Les pupilles de Cheng Xian se rétractèrent. Il esquissa un sourire amer: « Ils ont même envoyé un Ancien du patio extérieur pour s'occuper d'un junior comme moi... Allez-y! Si je cligne des yeux, mon nom n'est plus Cheng Xian! »
 
 Une fois la restriction établie, Wang Lin dit froidement: « On m'a en effet demandé de venir, mais pour t'aider, non pour te tuer. Dis-moi ce qui s'est passé. Plus il y aura de détails, mieux ce sera. »
 

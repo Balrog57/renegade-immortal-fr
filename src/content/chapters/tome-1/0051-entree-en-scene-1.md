@@ -54,7 +54,7 @@ Huang Long soupira. Wang Lin n'était qu'au 3e niveau et passait normalement ina
 
 Voyant que Wang Lin ne répondait pas, Zhou Peng ricana: « Sur les quatre combats, il n'en reste plus qu'un. La Secte Heng Yue est une si grande institution et pourtant personne n'ose se lever. Je suis profondément déçu! Aucun de vos disciples internes n'a le courage d'affronter l'adversité? »
 
-L'Ancien Xu, debout aux côtés de Huang Long, déclara: « Pardonne-moi, frère cadet Sun. Wang Lin, monte! »
+L'Ancien Xu, debout aux côtés de Huang Long, déclara: « Pardonne-moi, junior frère Sun. Wang Lin, monte! »
 
 Sun Dazhu fut stupéfait et comprit immédiatement la situation. Il s'exclama avec colère: « Dao Xu, bien que tu sois mon frère aîné, tu ne peux pas m'humilier ainsi! Mon disciple n'est qu'au 3e niveau! Le faire monter ne fera que me faire perdre la face! Ne crois pas que j'ignore tes intentions! Leur disciple principal est trop fort, et vous avez tous peur que vos propres disciples soient vaincus, humiliés et blessés; alors vous envoyez mon disciple en bouc émissaire. Mon disciple a toujours été considéré comme un moins que rien à l'école, ainsi, même s'il perd, vous pourrez trouver une excuse. Je refuse de cautionner une telle ignominie! »
 
@@ -62,7 +62,7 @@ Dao Xu fronça les sourcils. Il avait effectivement cette intention, mais Sun Da
 
 Il ricana et lança un regard chargé de messages silencieux à l'attention du chef de secte, Huang Long.
 
-Huang Long soupira: « frère cadet Sun, ne dis plus rien. Wang Lin, monte! »
+Huang Long soupira: « Junior frère Sun, ne dis plus rien. Wang Lin, monte! »
 
 Sun Dazhu rejeta ses manches avec colère et leva les yeux au ciel avec un sourire moqueur.
 

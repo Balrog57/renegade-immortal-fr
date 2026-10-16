@@ -34,7 +34,7 @@ Les ondulations sous les pieds de Wang Lin se multipliaient tandis qu'il tentait
 
 Cependant, à cet instant précis, un rayon de lumière violette apparut derrière Bord-des-Nuages. Tang Jia regarda Wang Lin avec une expression complexe avant de s'élancer à toute allure. Elle fonça vers Bord-des-Nuages comme pour le dépasser.
 
-« Aîné Bord-des-Nuages, je vais vous aider! La seule récompense que je convoite est l'armure élémentaire du feu! » Sa voix douce résonna. Sans attendre de réponse, Tang Jia se retrouva à moins de trois cents mètres d'Bord-des-Nuages.
+« Senior Bord-des-Nuages, je vais vous aider! La seule récompense que je convoite est l'armure élémentaire du feu! » Sa voix douce résonna. Sans attendre de réponse, Tang Jia se retrouva à moins de trois cents mètres d'Bord-des-Nuages.
 
 Bord-des-Nuages fronça les sourcils sans mot dire, mais Wang Lin s'interrompit brusquement. Il vit clairement Tang Jia se rapprocher et comprit qu'une anomalie se produisait lorsqu'elle se trouva à moins de trente mètres d'Bord-des-Nuages.
 

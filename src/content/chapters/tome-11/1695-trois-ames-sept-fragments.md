@@ -70,7 +70,7 @@ Les faits étaient peut-être légèrement différents, mais c'était là la vé
 
 « Et il y a aussi les sept fragments... Dans le Royaume des Sept Couleurs du Vide Brillant, j'avais remarqué que le Daoïste des Sept Couleurs regardait Qing Shui comme s'il se regardait lui-même. Je l'avais trouvé étrange à l'époque, sans pouvoir trouver de réponse. Mais maintenant, la réponse semble évidente!
 
-« Le Frère Aîné Qing Shui est l'un des sept fragments du Souverain Céleste aux Sept Couleurs!! Pas étonnant que sa vie soit si misérable, pas étonnant qu'il ait pu obtenir l'essence de la boucherie... Pas étonnant qu'il fût si puissant dès qu'il atteignit le troisième stade!
+« Le Frère Senior Qing Shui est l'un des sept fragments du Souverain Céleste aux Sept Couleurs!! Pas étonnant que sa vie soit si misérable, pas étonnant qu'il ait pu obtenir l'essence de la boucherie... Pas étonnant qu'il fût si puissant dès qu'il atteignit le troisième stade!
 
 « Parmi les sept, le seul que je connaisse est Qing Shui. Quant aux six autres, qui sont-ils... Je... Suis-je moi aussi, Wang Lin, l'un d'eux... » Wang Lin médita en silence, une froideur s'installant dans son regard.
 

@@ -12,7 +12,7 @@ Son expression était particulièrement laide alors qu'il marmonnait pour lui-m�
 
 Il jeta la cuisse de poulet qu'il tenait et ses yeux brillèrent de rage.
 
-« Cependant, je me demande quelles sont les chances que ce cadet Wang Lin transforme cette petite fille Liu Mei en son propre fourneau de culture... Frère apprenti aîné, voyons si ton disciple est meilleur ou si mon candidat choisi est supérieur. Ce sera fort divertissant! »
+« Cependant, je me demande quelles sont les chances que ce junior Wang Lin transforme cette petite fille Liu Mei en son propre fourneau de culture... Frère apprenti aîné, voyons si ton disciple est meilleur ou si mon candidat choisi est supérieur. Ce sera fort divertissant! »
 
 Wang Lin cultivait, les yeux fermés, assis sur la bête moustique. Après un long moment, il ouvrit les yeux et soupira.
 
@@ -130,7 +130,7 @@ Il devait gagner du temps jusqu'à l'arrivée de Sun Tai. C'était sa seule issu
 
 Cependant, l'usage du drapeau de restriction avait épuisé toute son énergie spirituelle. Il ne lui restait plus rien en réserve.
 
-L'homme d'âge moyen s'apprêtait à pointer à nouveau son doigt quand l'un des hommes en noir aux côtés de l'Ancien s'avança et dit respectueusement: « Ancêtre, permettez que ce cadet tue cet individu pour venger mon honneur! »
+L'homme d'âge moyen s'apprêtait à pointer à nouveau son doigt quand l'un des hommes en noir aux côtés de l'Ancien s'avança et dit respectueusement: « Ancêtre, permettez que ce junior tue cet individu pour venger mon honneur! »
 
 L'homme d'âge moyen baissa la main et tourna son regard vers l'Ancien du Clan des Démons Géants.
 

@@ -28,7 +28,7 @@ Au moment où le sort « Arrête » frappa Ji Xiantian, le corps de Wang Lin tre
 
 L'énergie originelle en lui faillit s'effondrer. L'écart entre sa culture et celle de Ji Xiantian était trop immense. Sous l'effet de la force, des craquements résonnèrent dans tout son corps et un épais brouillard de sang jaillit de lui.
 
-Wang Lin poussa un cri de douleur alors qu'il se retirait. « Aîné Maître Yan Leizi, ce cadet a fait de son mieux! » S'il agissait ainsi, c'était pour magnifier sa propre prouesse devant l'assistance! Cela créerait une dette immense envers Maître Yan Leizi!
+Wang Lin poussa un cri de douleur alors qu'il se retirait. « Senior Maître Yan Leizi, ce junior a fait de son mieux! » S'il agissait ainsi, c'était pour magnifier sa propre prouesse devant l'assistance! Cela créerait une dette immense envers Maître Yan Leizi!
 
 C'était aussi un moyen puissant de s'assurer la protection totale de Luotian!
 
@@ -104,7 +104,7 @@ Quant aux dizaines de milliers de cultivateurs gravitant autour du bois géant, 
 
 À cet instant précis, la femme en robe bleue déclara calmement:
 
-« Salutations, Aîné Wudo Chan! »
+« Salutations, Senior Wudo Chan! »
 
 À peine eut-elle parlé qu'un rire long et sonore retentit au loin, et un nuage noir s'élança dans la même direction.
 

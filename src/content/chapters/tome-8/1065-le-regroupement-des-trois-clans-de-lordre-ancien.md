@@ -64,13 +64,13 @@ Cependant, s'il ne l'avait pas fait, il aurait été impossible pour Wang Wei ou
 
 À cet instant précis, Hu Juan saisit Wang Lin et Wang Wei pour s'élancer vers le haut. Elle dévora également la seule pilule verte dont elle disposait. Une fois ses forces retrouvées, elle progressa rapidement à travers le magma avec les deux hommes.
 
-Le magma continuait de pénétrer le corps de Wang Lin, ébranlant son esprit. Il envoya rapidement un message: « Aînés, allez-y d'abord! J'ai trouvé un esprit de feu ici auparavant, je pourrais peut-être l'utiliser pour ralentir le démon ancestral! »
+Le magma continuait de pénétrer le corps de Wang Lin, ébranlant son esprit. Il envoya rapidement un message: « Seniors, allez-y d'abord! J'ai trouvé un esprit de feu ici auparavant, je pourrais peut-être l'utiliser pour ralentir le démon ancestral! »
 
 Hu Juan hésita. Si cela avait été le passé, peu importait l'admiration qu'elle et Wang Wei portaient à Wang Lin, elle n'aurait pas hésité. Mais Wang Lin venait de la sauver, elle et son mari, et cela était primordial pour elle. Elle ignorait même que Wang Lin avait sauvé Wang Wei de l'attaque sournoise du Maître du Vide. Une telle bonté devait être récompensée.
 
 « Toi... » Hu Juan regarda Wang Wei, qui l'avait aidée à bloquer l'énergie de la lame avant d'être gravement blessé par le rugissement du démon ancestral. Un conflit intérieur se lisait dans ses yeux. En cet instant, Wang Wei avait besoin de soins urgents et elle ne pouvait pas attendre.
 
-« Aîné peut être rassuré! » lança Wang Lin en quittant Hu Juan pour charger dans les profondeurs du magma au septième étage. Hu Juan serra les dents, prit Wang Wei avec elle et disparut.
+« Senior peut être rassuré! » lança Wang Lin en quittant Hu Juan pour charger dans les profondeurs du magma au septième étage. Hu Juan serra les dents, prit Wang Wei avec elle et disparut.
 
 Une fois seule, les yeux de Wang Lin s'illuminèrent. Il était déterminé à ce que Wang Wei et Hu Juan lui soient redevables. Tant qu'ils seraient reconnaissants, même si Qing Lin ne se réveillait jamais, ils l'aideraient pour l'affaire de Situ Nan. De plus, leur traitement envers Zhou Yi serait radicalement différent grâce à sa bienveillance.
 

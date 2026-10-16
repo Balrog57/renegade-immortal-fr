@@ -20,7 +20,7 @@ Le Patriarche du Clan du Dragon Blindé répondit d'un ton lugubre: « Bien sûr
 
 « Sinon, pourquoi un cultivateur du troisième pas comme le Maître Simo viendrait-il ici? Si sa culture n'était pas si puissante, comment ton père pourrait-il l'aider? Après tout, celui qui a détruit le Clan du Tonnerre Dispersé n'est pas un cultivateur du troisième pas, sinon pourquoi aiderais-je le Maître Simo? »
 
-Le jeune maître du Clan du Dragon Blindé réfléchit un instant, puis dit doucement: « Si l'Aîné Simo réussit, tout ira bien, mais si... »
+Le jeune maître du Clan du Dragon Blindé réfléchit un instant, puis dit doucement: « Si le Senior Simo réussit, tout ira bien, mais si... »
 
 « Il n'y a aucune possibilité! Même s'il ne meurt pas, il sera gravement blessé. Il fera tout son possible pour s'enfuir et guérir, et il ne pourra guère nous affronter. Et même s'il venait chercher des ennuis, je ferai en sorte qu'il ne reparte jamais! »
 

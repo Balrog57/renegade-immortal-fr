@@ -26,15 +26,15 @@ Les cultivateurs de l'auberge étaient pétrifiés. Ils brûlaient de partir, ma
 
 Le vieil homme réfléchit un instant. Il ouvrit les yeux et fixa le cultivateur au stade initial de la Formation du Noyau: « Toi, approche. »
 
-Le corps du cultivateur trembla alors qu'il se levait prestement pour se tenir à trois mètres du vieil homme. D'une voix chevrotante, il dit respectueusement: « Le cadet Xu Mu salue l'Aîné. Tout ce que l'Aîné désire, je l'exécuterai. Je jure sur mon propre Noyau Doré que tout ce que je dis est la vérité; je vous en prie, faites preuve de clémence. »
+Le corps du cultivateur trembla alors qu'il se levait prestement pour se tenir à trois mètres du vieil homme. D'une voix chevrotante, il dit respectueusement: « Le junior Xu Mu salue le Senior. Tout ce que le Senior désire, je l'exécuterai. Je jure sur mon propre Noyau Doré que tout ce que je dis est la vérité; je vous en prie, faites preuve de clémence. »
 
 Le vieil homme se versa une coupe de vin. Après avoir bu, il déclara: « Depuis que je suis entré dans cette auberge, chaque fois que cette personne est mentionnée, l'énergie spirituelle de ton corps s'emballe. Je suppose que tu l'as vue en personne. »
 
-Xu Mu prit une profonde inspiration. La peur persistait dans ses yeux lorsqu'il murmura: « Le cadet a effectivement vu ce démon en personne. »
+Xu Mu prit une profonde inspiration. La peur persistait dans ses yeux lorsqu'il murmura: « Le junior a effectivement vu ce démon en personne. »
 
 « Quel est son niveau de culture? » Une lueur mystérieuse brilla dans les yeux du vieil homme. C'était la question qui l'importait le plus, et c'est aussi pour cela qu'il avait tué le jeune homme: celui-ci avait débité beaucoup de futilités sans jamais préciser le niveau de culture de l'individu en question.
 
-« Stade initial de la Formation du Noyau! » Xu Mu, se sentant mal à l'aise, ajouta précipitamment: « Aîné, cette personne semble n'être qu'au stade initial de la Formation du Noyau, mais elle possède deux trésors... »
+« Stade initial de la Formation du Noyau! » Xu Mu, se sentant mal à l'aise, ajouta précipitamment: « Senior, cette personne semble n'être qu'au stade initial de la Formation du Noyau, mais elle possède deux trésors... »
 
 À l'évocation de ces « deux trésors », bien que l'expression du vieil homme soit restée imperturbable, il se montra plus vigilant.
 
@@ -42,7 +42,7 @@ Xu Mu prit une profonde inspiration. La peur persistait dans ses yeux lorsqu'il 
 
 Le vieil homme laissa paraître une pointe de déception en se versant une autre coupe de vin.
 
-Xu Mu observa attentivement le vieil homme et reprit nerveusement: « Il y a un autre trésor. C'est... le cadet ne comprend pas non plus ce que c'est. Je ne vois qu'une lumière rouge, avec quelque chose à l'intérieur. Cependant, quiconque est touché par cette lumière meurt et son corps se transforme en squelette. »
+Xu Mu observa attentivement le vieil homme et reprit nerveusement: « Il y a un autre trésor. C'est... le junior ne comprend pas non plus ce que c'est. Je ne vois qu'une lumière rouge, avec quelque chose à l'intérieur. Cependant, quiconque est touché par cette lumière meurt et son corps se transforme en squelette. »
 
 Le vieil homme réfléchit un instant, puis se leva. Il laissa échapper une pierre spirituelle de faible qualité et saisit Xu Mu. Instantanément, tous deux parcoururent plus de 500 kilomètres.
 

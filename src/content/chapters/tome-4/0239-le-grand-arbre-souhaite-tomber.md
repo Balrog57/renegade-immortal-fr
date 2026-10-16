@@ -28,7 +28,7 @@ Les yeux de Teng Nine furent envahis par la terreur, car cette foudre rouge lui 
 
 Mais avant qu'il ne puisse se réjouir, des centaines de traînées de foudre rouge apparurent soudainement tout autour de lui, bloquant totalement son échappatoire.
 
-Le corps de Teng Nine se raidit; il n'osait plus continuer sa fuite. Il se tourna lentement vers Wang Lin et dit: « Aîné, ce cadet est prêt à vous servir et ne vous trahira jamais. Je suis prêt à vous donner mon sang d'âme pour prouver ma loyauté! »
+Le corps de Teng Nine se raidit; il n'osait plus continuer sa fuite. Il se tourna lentement vers Wang Lin et dit: « Senior, ce junior est prêt à vous servir et ne vous trahira jamais. Je suis prêt à vous donner mon sang d'âme pour prouver ma loyauté! »
 
 Wang Lin fixa Teng Nine et secoua lentement la tête. Sans dire un mot, il utilisa son sens divin pour faire rétrécir lentement la cage de foudre rouge qui entourait le jeune homme.
 

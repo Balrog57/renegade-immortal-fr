@@ -112,7 +112,7 @@ Des rayons de lumière capables de percer les cieux jaillirent à travers les nu
 
 « Hein… » La confusion se lut dans ses yeux.
 
-Un jeune homme élégant sortit d'un autre rayon de lumière et demanda doucement: « Qu'y a-t-il, Sœur Cadette Liu? »
+Un jeune homme élégant sortit d'un autre rayon de lumière et demanda doucement: « Qu'y a-t-il, Sœur junior Liu? »
 
 « Rien, j'ai l'impression d'avoir déjà vu cet érudit quelque part… » La femme secoua la tête et s'envola au loin.
 

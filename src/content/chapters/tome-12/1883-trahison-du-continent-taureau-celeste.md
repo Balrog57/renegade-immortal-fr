@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1883 - Betraying the Heavenly Bull Continent!"
 slug: trahison-du-continent-taureau-celeste
 ---
-« Ce cadet ne comprend pas pourquoi tout le monde a reçu deux récompenses alors que je n'ai obtenu qu'une armure d'élément feu! » Wang Lin ne faisait preuve d'aucune politesse. Il n'était plus un simple disciple, il était désormais un Ancien du Grand Secte de l'Âme.
+« Ce junior ne comprend pas pourquoi tout le monde a reçu deux récompenses alors que je n'ai obtenu qu'une armure d'élément feu! » Wang Lin ne faisait preuve d'aucune politesse. Il n'était plus un simple disciple, il était désormais un Ancien du Grand Secte de l'Âme.
 
 Par conséquent, il ne pouvait rester sans réagir. Même si l'interlocuteur était le Maître de la Secte Gui Yi, il comptait bien les remettre en question.
 

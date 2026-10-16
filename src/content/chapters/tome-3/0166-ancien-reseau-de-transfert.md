@@ -18,7 +18,7 @@ Les pupilles de Wang Lin se contractèrent. Il n'était pas capable de percer le
 
 Le Seigneur Démon des Huit Extrêmes, Duanmu Ji, renifla et lança le bateau terrestre vers lui. Il répliqua: « Aussi utile qu'un pet! Tu considères cet objet brisé comme un trésor? Je ne le voudrais même pas si tu me l'offrais gratuitement. »
 
-L'érudit en robe grise rattrapa le bateau de sa main droite et le rangea. Son regard se posa sur Wang Lin tandis qu'il demandait calmement: « Pourquoi y a-t-il un cadet au stade de la Formation du Noyau ici? »
+L'érudit en robe grise rattrapa le bateau de sa main droite et le rangea. Son regard se posa sur Wang Lin tandis qu'il demandait calmement: « Pourquoi y a-t-il un junior au stade de la Formation du Noyau ici? »
 
 Duanmu Ji leva les yeux au ciel et dit: « Il m'est évidemment utile. Allons-y, cet endroit est sur le point de s'ouvrir. » Sur ces mots, il lança la calebasse qui se dilata instantanément. D'un bond, il sauta dessus.
 

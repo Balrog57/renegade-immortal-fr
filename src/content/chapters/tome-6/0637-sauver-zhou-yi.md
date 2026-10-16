@@ -20,7 +20,7 @@ Son cœur mourut et son énergie d'épée perdit toute vitalité. Utilisant son 
 
 Wang Lin avait été témoin de la cruauté du monde de la culture tout au long de sa vie. Presque chacun cachait des desseins obscurs dans son cœur. Seules quelques personnes méritaient qu'il se souvienne d'elles... Situ Nan, Dun Tian [1. Chef de la Secte du Affinement de l'Âme], Chi Hu [2. Membre du Clan du Démon Géant qui s'était lié d'amitié avec Wang Lin dans le royaume céleste], Zhou Yi...
 
-À l'époque, il n'était qu'au stade de la Formation de l'Âme. Devant Zhou Yi, il n'était qu'un humble cadet, mais aujourd'hui, Wang Lin atteignait le stade Ascendant!
+À l'époque, il n'était qu'au stade de la Formation de l'Âme. Devant Zhou Yi, il n'était qu'un humble junior, mais aujourd'hui, Wang Lin atteignait le stade Ascendant!
 
 Il poussa un profond soupir et s'élança dans la brèche!
 

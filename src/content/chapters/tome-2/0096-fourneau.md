@@ -8,7 +8,7 @@ slug: fourneau
 ---
 Au moment où cette voix puissante retentit, le son se mua en un vent violent qui fit vaciller les boules de feu environnantes. Des échos tonnèrent dans la grotte, dégageant une sensation de châtiment divin.
 
-Wang Lin prit une profonde inspiration. Il joignit les mains et dit respectueusement: « Salutations, Aîné Ye. »
+Wang Lin prit une profonde inspiration. Il joignit les mains et dit respectueusement: « Salutations, Senior Ye. »
 
 La silhouette se solidifia lentement pour prendre l'apparence d'un homme d'une quarantaine d'années. C'était un homme très beau; ses yeux étincelaient comme des étoiles et sa peau était aussi lisse que le jade. Il regarda Wang Lin d'un visage impassible et dit: « Mu Rong, tu peux disposer. »
 

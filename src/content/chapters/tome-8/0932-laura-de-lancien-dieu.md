@@ -130,7 +130,7 @@ Cette scène fit changer d'expression l'Estimé Xuan Bao qui s'approchait!
 
 Le Maître Yan Leizi ricana en observant la scène:
 
-« Aîné a dit que le but d'envoyer ce Serpent aux yeux de lune dans l'Alliance était de l'enrager. Plus sa rage est grande, plus les dégâts causés par cette bête seront immenses! »
+« Senior a dit que le but d'envoyer ce Serpent aux yeux de lune dans l'Alliance était de l'enrager. Plus sa rage est grande, plus les dégâts causés par cette bête seront immenses! »
 
 La colère du Serpent aux yeux de lune atteignit son apogée; il utilisa la puissance de l'étoile brisée pour expulser la flèche. Sous l'effet d'une douleur atroce, il avait presque perdu la raison. Ses yeux étaient rouges, et sa seule pensée était: tuer, tuer, tuer, tuer!
 

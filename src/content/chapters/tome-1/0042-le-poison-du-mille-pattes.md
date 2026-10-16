@@ -10,21 +10,21 @@ Certains des compagnons de Wang Zhuo acquiescèrent, et l'un d'eux déclara: « 
 
 Tous les disciples de la Secte Xuan Dao hésitèrent. Le disciple nommé Liu voulait invoquer l'autorité des Anciens comme excuse, mais à ce moment précis, l'homme d'âge mûr à l'arrière toussa légèrement. Le visage du disciple Liu se crispa. Il hocha la tête et dit: « Si tel est le cas, alors nous allons encombrer la Secte Heng Yue. »
 
-Wang Zhuo sourit. Il se tourna vers Wang Lin et cria d'une voix forte: « frère cadet Wang Lin, la tâche de nourrir le mille-pattes te revient. Sois prudent. »
+Wang Zhuo sourit. Il se tourna vers Wang Lin et cria d'une voix forte: « Junior frère Wang Lin, la tâche de nourrir le mille-pattes te revient. Sois prudent. »
 
 À ces mots, tous les disciples de la Secte Xuan Dao tournèrent la tête vers Wang Lin. Leurs visages étaient empreints d'expressions étranges. Comment ne pouvaient-ils pas encore comprendre le sous-entendu? Ce Wang Lin avait manifestement offensé Wang Zhuo.
 
-Parmi les disciples de la Secte Heng Yue, l'un d'eux s'esclaffa: « Je me demandais bien de qui le frère Wang Zhuo parlait. Comme je m'y attendais, c'est le frère cadet Wang Lin. »
+Parmi les disciples de la Secte Heng Yue, l'un d'eux s'esclaffa: « Je me demandais bien de qui le frère Wang Zhuo parlait. Comme je m'y attendais, c'est le junior frère Wang Lin. »
 
 Un autre poursuivit: « Ce travail lui sied à merveille. Avec son manque de talent, ce n'est qu'une perte de temps pour lui de pratiquer la culture. Il n'aura jamais la moindre chance lors des échanges. »
 
-« Il n'y a vraiment personne de plus apte que lui pour ces corvées. frère cadet Wang Lin, accomplis bien ta tâche et ne fais pas honte à la Secte Heng Yue. »
+« Il n'y a vraiment personne de plus apte que lui pour ces corvées. Junior frère Wang Lin, accomplis bien ta tâche et ne fais pas honte à la Secte Heng Yue. »
 
 En entendant ces rires, les disciples de la Secte Xuan Dao comprirent que non seulement Wang Lin avait offensé Wang Zhuo, mais qu'en raison de sa médiocrité, il était également devenu la cible des moqueries de ses pairs.
 
 Ce genre de comportement existait dans chaque secte, ce n'était donc pas un incident majeur. En conséquence, tous les disciples de la Secte Xuan Dao classèrent Wang Lin parmi les rebuts.
 
-La jeune femme nommée Zhou, assise aux côtés de Wang Lin, fronça les sourcils. Elle lança un regard dégoûté à Wang Zhuo, puis murmura à l'oreille de Wang Lin: « frère cadet Wang Lin, si je n'étais pas venue, il ne t'aurait pas pris pour cible. Je... »
+La jeune femme nommée Zhou, assise aux côtés de Wang Lin, fronça les sourcils. Elle lança un regard dégoûté à Wang Zhuo, puis murmura à l'oreille de Wang Lin: « Junior frère Wang Lin, si je n'étais pas venue, il ne t'aurait pas pris pour cible. Je... »
 
 Wang Lin secoua la tête. Wang Zhuo ne s'en prenait pas à lui depuis seulement quelques jours. Dès le premier jour de leur rencontre, Wang Zhuo s'était efforcé de le ridiculiser. Le reste de la secte le méprisait car il avait été accepté après une tentative de suicide, avant de devenir disciple intérieur grâce à l'Ancien Sun.
 
@@ -56,9 +56,9 @@ Tout en réfléchissant, il se dirigea d'un pas vif vers les montagnes. En utili
 
 En chemin, Wang Lin croisa certains disciples de la Secte Xuan Dao escortés par des disciples aînés. Lorsqu'ils aperçurent Wang Lin tenant les petites bêtes dans ses mains, ils éclatèrent de rire, attirant l'attention des membres de la Secte Xuan Dao.
 
-Une des jeunes femmes de la Secte Xuan Dao, d'une grande beauté avec un visage si délicat qu'il semblait pouvoir se briser au contact d'une goutte d'eau, rit: « frère cadet, tous ces petits animaux ne suffiront pas à nourrir le mille-pattes. Tu devrais plutôt chercher un gros serpent; c'est son mets préféré. »
+Une des jeunes femmes de la Secte Xuan Dao, d'une grande beauté avec un visage si délicat qu'il semblait pouvoir se briser au contact d'une goutte d'eau, rit: « Junior frère, tous ces petits animaux ne suffiront pas à nourrir le mille-pattes. Tu devrais plutôt chercher un gros serpent; c'est son mets préféré. »
 
-Un disciple de la secte intérieure profita de l'occasion pour s'attirer ses faveurs et lança: « sœur cadette Ouyang, ne parle pas à ce gamin, c'est un muet. Tu l'ignores peut-être, mais il n'est pas apte à la culture. Il a échoué à tous les tests d'entrée et a dû tenter de se suicider, ce qui a contraint les Anciens à l'accepter comme disciple honorifique. »
+Un disciple de la secte intérieure profita de l'occasion pour s'attirer ses faveurs et lança: « Junior sœur Ouyang, ne parle pas à ce gamin, c'est un muet. Tu l'ignores peut-être, mais il n'est pas apte à la culture. Il a échoué à tous les tests d'entrée et a dû tenter de se suicider, ce qui a contraint les Anciens à l'accepter comme disciple honorifique. »
 
 Wang Lin reconnut immédiatement l'interlocuteur: c'était Sun Hao, celui-là même qui s'était moqué de lui durant la période d'entraînement.
 

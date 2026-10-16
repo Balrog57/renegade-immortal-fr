@@ -58,7 +58,7 @@ Ouyang Hua hésita un instant. Il regarda Wang Lin, puis le jade posé au sol. S
 
 Wang Lin dit d'une voix lente: « Regarde-le. Tu as déjà atteint le troisième stade. Si tu réussis à en fabriquer un, ta puissance augmentera considérablement lorsque tu utiliseras ton énergie spirituelle démoniaque pour sceller un fragment d'âme. »
 
-Ouyang Hua ramassa rapidement le jade et le pressa contre son front. Peu après, il prit une profonde inspiration et dit respectueusement: « Ce cadet partira chercher les matériaux nécessaires à sa fabrication. »
+Ouyang Hua ramassa rapidement le jade et le pressa contre son front. Peu après, il prit une profonde inspiration et dit respectueusement: « Ce junior partira chercher les matériaux nécessaires à sa fabrication. »
 
 Puis, après une courte réflexion, il ajouta: « Suprême Céleste, une fois que Treize et moi aurons réussi à fabriquer nos drapeaux d'âmes, je prévois d'attaquer une grotte située à 500 kilomètres d'ici. Une autre tribu s'y trouve, composée de plusieurs dizaines de personnes. »
 

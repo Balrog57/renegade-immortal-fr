@@ -104,7 +104,7 @@ Wang Lin lança un dernier regard au fou avant de se détourner et de s'éloigne
 
 Il pouvait donc être serein. Il chargea alors droit vers le siège de l'Alliance de Culture!
 
-« Frère Aîné Qing Shui, Wang Lin arrive! »
+« Senior Frère Qing Shui, Wang Lin arrive! »
 
 Après le départ de Wang Lin, le fou et Xu Liguo se regardèrent. Après un long silence, ils parlèrent presque de concert.
 

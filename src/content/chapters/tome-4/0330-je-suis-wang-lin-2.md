@@ -24,7 +24,7 @@ Le silence régna sur la Secte du Ciel Nuageux. Après un moment, une voix faibl
 
 Zhan Bai afficha une expression moqueuse et dit: « Oh? Je suppose que c'est toi, la Maîtresse de la Secte du Ciel Nuageux. »
 
-« Cette cadet est la Maîtresse de la Secte du Ciel Nuageux. Aîné, je vous prie de ne pas accabler une petite secte comme la nôtre... » La voix de Li Muwan continua. Elle était toujours aussi séduisante qu'autrefois, empreinte d'une infinie douceur.
+« Cette junior est la Maîtresse de la Secte du Ciel Nuageux. Aîné, je vous prie de ne pas accabler une petite secte comme la nôtre... » La voix de Li Muwan continua. Elle était toujours aussi séduisante qu'autrefois, empreinte d'une infinie douceur.
 
 Zhan Bai renifla et déclara: « Je veux voir quel genre de beauté se cache derrière cette Maîtresse de Secte. » Sur ce, il tendit la main vers les nuages blancs dans un geste de saisie.
 

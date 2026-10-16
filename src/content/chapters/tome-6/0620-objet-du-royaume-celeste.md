@@ -23,7 +23,7 @@ Quant aux autres cultivateurs, ils fixaient avec incrédulité l'homme d'âge mo
 
 Seul Sun Yunshan sentit son excitation atteindre son apogée. Il laissa échapper un immense soupir de soulagement, comme s'il voulait libérer toute l'oppression qu'il avait subie jusqu'alors.
 
-L'homme en or tremblait et balbutia rapidement: « Se... Aîné... Malentendu. Tout ceci est un malentendu... Nous ne sommes ici que pour représenter l'Union de Culture afin de vous inviter à nous rejoindre... »
+L'homme en or tremblait et balbutia rapidement: « Se... Senior... Malentendu. Tout ceci est un malentendu... Nous ne sommes ici que pour représenter l'Union de Culture afin de vous inviter à nous rejoindre... »
 
 Sun Yunshan ricana tandis qu'il s'éloignait brusquement du groupe de plus de trente mètres et s'écria: « Frère Wang, leur but était de vous capturer vivant! »
 

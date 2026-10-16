@@ -136,7 +136,7 @@ Alors que la masse de jades s'éparpillait, les yeux de Wang Lin s'illuminèrent
 
 C'était un cristal rouge de la taille d'un ongle. Dès l'apparition de ce cristal, même l'énergie spirituelle céleste environnante sembla suspendre son cours. C'était comme si le temps s'était arrêté un instant; ce cristal dégageait une légère sensation de puissance des cieux.
 
-« Cristal d'Ascendant! Cela m'a été offert par l'Aîné Zhou Yi. Si je réussis à atteindre le stade de l'Ascendant aujourd'hui, je n'oublierai jamais ma dette envers mon Aîné de toute ma vie! » Wang Lin prit une profonde inspiration, puis avala le cristal qu'il tenait dans sa main!
+« Cristal d'Ascendant! Cela m'a été offert par le Senior Zhou Yi. Si je réussis à atteindre le stade de l'Ascendant aujourd'hui, je n'oublierai jamais ma dette envers mon Senior de toute ma vie! » Wang Lin prit une profonde inspiration, puis avala le cristal qu'il tenait dans sa main!
 
 Après cela, il ferma les yeux et s'immergea dans le processus d'ascension, tandis que son domaine et son énergie spirituelle céleste fusionnaient!
 

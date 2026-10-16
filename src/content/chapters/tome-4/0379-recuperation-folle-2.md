@@ -28,7 +28,7 @@ Un sourire moqueur apparut dans les yeux de Wang Lin. Il frappa son sac de range
 
 L'énergie spirituelle s'effondra instantanément.
 
-« Tu cherches la mort! » ricana l'homme d'âge moyen en crachant une épée de dix centimètres de long. Il saisit l'arme et chargea vers le gaz de restriction. Dans son esprit, ce cadet au stade avancé de l'Établissement des Fondations ne pourrait pas résister à la puissance de cette épée volante, affinée par son propre noyau doré.
+« Tu cherches la mort! » ricana l'homme d'âge moyen en crachant une épée de dix centimètres de long. Il saisit l'arme et chargea vers le gaz de restriction. Dans son esprit, ce junior au stade avancé de l'Établissement des Fondations ne pourrait pas résister à la puissance de cette épée volante, affinée par son propre noyau doré.
 
 Mais son sourire se figea. Au moment où l'épée volante toucha le gaz de restriction, un craquement retentit. L'épée se brisa net en deux.
 

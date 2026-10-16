@@ -30,7 +30,7 @@ Cependant, il ne pouvait s'empêcher d'être prudent. Il savait que Wang Lin ét
 
 « Cet individu est venu avec un clone, il n'a donc naturellement pas peur que je le tue. Une fois qu'il sera mort, son vrai corps attaquera immédiatement Xixue! La Pilule de l'Âme Sanguine n'est pas sans défauts... »
 
-Wang Lin essuya le sang sur sa bouche, réajusta ses vêtements et dit lentement: « Aîné Ancêtre Sanguin, Yao Xixue est en sécurité. Durant ces centaines d'années, ce cadet n'a même pas touché un seul de ses cheveux. Je peux vous la rendre et vous permettre de retrouver votre fille. Cependant, l'Aîné doit laisser le cadet partir et promettre de ne plus le troubler à l'avenir! »
+Wang Lin essuya le sang sur sa bouche, réajusta ses vêtements et dit lentement: « Senior Ancêtre Sanguin, Yao Xixue est en sécurité. Durant ces centaines d'années, ce junior n'a même pas touché un seul de ses cheveux. Je peux vous la rendre et vous permettre de retrouver votre fille. Cependant, le Senior doit laisser le junior partir et promettre de ne plus le troubler à l'avenir! »
 
 L'Ancêtre Sanguin détourna son regard du ciel pour fixer Wang Lin. Ses yeux ne montraient aucune colère, mais il répondit calmement: « Très bien! Ce vieil homme jure sur son Dao que si tu me rends ma fille, je ne te tuerai pas. »
 

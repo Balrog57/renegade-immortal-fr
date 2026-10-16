@@ -48,7 +48,7 @@ Le jeune homme sur le bateau, stupéfait, marmonna: « Mort... Comment cela a-t-
 
 Mais il baissa rapidement la tête, faisant mine que de rien n'était.
 
-Sur la place, le Commandant Céleste était le plus proche de Wang Lin. À cet instant, en le regardant, il ressentit l'esprit rebelle du jeune homme. Il afficha l'expression d'un Ancien admirant le talent d'un cadet. Il eut l'impression de revoir son propre passé, une autre vie s'il n'avait pas renoncé à l'époque!
+Sur la place, le Commandant Céleste était le plus proche de Wang Lin. À cet instant, en le regardant, il ressentit l'esprit rebelle du jeune homme. Il afficha l'expression d'un Ancien admirant le talent d'un junior. Il eut l'impression de revoir son propre passé, une autre vie s'il n'avait pas renoncé à l'époque!
 
 Les sept autres commandants observaient Wang Lin avec des sentiments très complexes. Leur attention ne portait pas sur la culture de Wang Lin, mais sur le fait qu'il ait frappé le tambour quinze fois!
 

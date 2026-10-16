@@ -148,7 +148,7 @@ Li Muwan fronça légèrement les sourcils et ouvrit la porte. Elle vit un beau 
 
 En voyant Li Muwan, il afficha une affection non dissimulée et dit doucement: « Jeune sœur, il y a quelques mois, j'ai appris que vous aviez besoin d'un Long Yan Zhi. J'ai parcouru tout le pays de Chu et je l'ai enfin trouvé. » Il sortit alors une boîte en jade contenant un zhi violet complet, de la taille d'un bras.
 
-Le visage de Li Muwan resta impassible. Elle ne daigna même pas regarder la boîte et répondit: « Je vous remercie pour votre gentillesse, Frère Aîné Sun, mais j'ai déjà trouvé un remplaçant et fabriqué la pilule. Le frère Sun n'a qu'à le garder. »
+Le visage de Li Muwan resta impassible. Elle ne daigna même pas regarder la boîte et répondit: « Je vous remercie pour votre gentillesse, Senior Frère Sun, mais j'ai déjà trouvé un remplaçant et fabriqué la pilule. Le frère Sun n'a qu'à le garder. »
 
 L'homme sourit chaleureusement. Il mit la boîte de côté et dit avec douceur: « Jeune sœur, les Ancêtres sont bienveillants. Après tout, vous n'êtes pas une disciple directe de la Secte Ciel Nuageux. Si vous souhaitez acquérir de meilleures techniques d'alchimie, vous devrez choisir un disciple direct pour former un couple de culture. Nous nous connaissons depuis longtemps; je suis sûr que vous comprenez mes sentiments. »
 
@@ -166,7 +166,7 @@ Wang Lin quitta la cour sud le cœur lourd. En traversant le pont, il vit Cheng 
 
 Wang Lin le regarda et dit: « Allons-y. »
 
-Cheng Xian attendait cette réponse avec impatience. Il sourit et dit rapidement: « Aîné, la journée touche à sa fin, nous devons nous dépêcher. Attendez un instant, je vais faire venir deux montures. » Sur ce, il porta deux doigts à sa bouche et un sifflement aigu fendit l'air.
+Cheng Xian attendait cette réponse avec impatience. Il sourit et dit rapidement: « Senior, la journée touche à sa fin, nous devons nous dépêcher. Attendez un instant, je vais faire venir deux montures. » Sur ce, il porta deux doigts à sa bouche et un sifflement aigu fendit l'air.
 
 Peu après, des rugissements de bêtes résonnèrent au loin. Wang Lin leva les yeux et vit deux ombres, une grande et une petite, se précipiter vers eux.
 

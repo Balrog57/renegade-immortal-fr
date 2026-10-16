@@ -11,7 +11,7 @@ Il faut dire que la plupart des personnes qui se rendaient ici entraient par la 
 
 Quant à ceux qui entraient par la porte est, il s'agissait soit de leur première visite en ville, soit de clients de grande importance!
 
-Le jeune homme dit rapidement: « Aîné, ce cadet se nomme Li Dannan. J'ai grandi dans la ville de Ming Mei. Si l'Aîné le souhaite, ce cadet peut vous servir de guide afin de vous éviter bien des ennuis. Cela ne vous coûtera que dix pierres d'esprit de haute qualité... »
+Le jeune homme dit rapidement: « Aîné, Junior se nomme Li Dannan. J'ai grandi dans la ville de Ming Mei. Si l'Aîné le souhaite, Junior peut vous servir de guide afin de vous éviter bien des ennuis. Cela ne vous coûtera que dix pierres d'esprit de haute qualité... »
 
 Wang Lin regarda le jeune homme, réfléchit un instant, puis hocha la tête. Dix pierres d'esprit de haute qualité, c'était un peu onéreux; avec une telle somme, on pouvait acquérir certains trésors ou pilules de faible qualité. Cependant, juste avant de se rendre à la Tombe du Suzaku, Wang Lin avait dérobé de nombreuses pierres d'esprit au Clan des Immortels Délaissés, il était donc extrêmement riche en ce moment.
 
@@ -49,11 +49,11 @@ Tout en marchant, Li Dannan expliqua à Wang Lin les règles du marché libre. N
 
 Wang Lin observait chaque personne que Li Dannan désignait.
 
-Peu après, ils arrivèrent devant un large stand. Li Dannan joignit les mains et dit: « Aîné Zhang, vous souvenez-vous de moi? »
+Peu après, ils arrivèrent devant un large stand. Li Dannan joignit les mains et dit: « Senior Zhang, vous souvenez-vous de moi? »
 
 Le propriétaire du stand était un homme au visage rubicond. Il regarda Li Dannan en souriant: « Petit garnement, quel trésor de mon étal a attiré ton attention? » Alors qu'il parlait, son regard balaya nonchalamment Wang Lin, mais ses yeux se figèrent instantanément et ses pupilles se rétractèrent.
 
-Grâce à sa culture, il comprit d'un seul coup d'œil que Wang Lin n'était pas un individu ordinaire. Il devint immédiatement respectueux: « Aîné, ce cadet est Zhang Hualin. Je me demande ce que l'Aîné recherche. »
+Grâce à sa culture, il comprit d'un seul coup d'œil que Wang Lin n'était pas un individu ordinaire. Il devint immédiatement respectueux: « Aîné, junior est Zhang Hualin. Je me demande ce que l'Aîné recherche. »
 
 Wang Lin fixa le vieil homme au visage rouge et dit: « La pierre de bois du vide! »
 
@@ -91,7 +91,7 @@ Quant à Wang Lin, après avoir quitté le stand, il jeta un regard distrait der
 
 Wang Lin dit d'un ton plat: « Li Dannan! »
 
-Li Dannan s'approcha rapidement et répondit respectueusement: « Aîné, ce cadet est là! » Il était encore plus déférent qu'auparavant; la démonstration de force de Wang Lin lors de l'achat de la pierre l'avait profondément marqué.
+Li Dannan s'approcha rapidement et répondit respectueusement: « Aîné, Junior est là! » Il était encore plus déférent qu'auparavant; la démonstration de force de Wang Lin lors de l'achat de la pierre l'avait profondément marqué.
 
 Wang Lin demanda: « Si des trésors aussi importants sont échangés ici, il y a naturellement d'autres cultivateurs qui rôdent. Pourquoi tant de gens acceptent-ils encore de commercer dans un tel endroit? »
 
@@ -105,7 +105,7 @@ Wang Lin sourit. Il se sentait étranger dans ce lieu, mais n'est-ce pas ainsi q
 
 Wang Lin leva les yeux vers le ciel et demanda: « Y a-t-il de l'encre de neige ici? »
 
-« De l'encre de neige... » Li Dannan réfléchit longuement mais ne trouva rien. Il sourit amèrement: « Aîné, ce cadet ne sait pas ce que c'est. »
+« De l'encre de neige... » Li Dannan réfléchit longuement mais ne trouva rien. Il sourit amèrement: « Aîné, Junior ne sait pas ce que c'est. »
 
 Soudain, les yeux de Li Dannan s'illuminèrent: « Aîné, bien que je ne sache pas ce que c'est, la boutique du clan Shang collecte d'innombrables matériaux. Peut-être ont-ils ce dont vous avez besoin. »
 

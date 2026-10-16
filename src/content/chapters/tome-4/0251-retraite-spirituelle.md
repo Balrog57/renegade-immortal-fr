@@ -68,7 +68,7 @@ Lu Xing afficha un air d'envie et murmura: « Ce sont les piliers immortels. Cet
 
 S'il avait su que Wang Lin, avec qui il avait passé les sept derniers jours, était des milliers de fois plus puissant que les immortels que son ancêtre avait vus, quel effet cela aurait-il eu sur lui?
 
-Il faut dire que si le cultivateur aperçu par son ancêtre était présent, celui-ci devrait respectueusement appeler Wang Lin « Aîné ».
+Il faut dire que si le cultivateur aperçu par son ancêtre était présent, celui-ci devrait respectueusement appeler Wang Lin « Senior ».
 
 Wang Lin détourna le regard. Il sourit, mais resta silencieux.
 
@@ -188,7 +188,7 @@ Mais les trois autres, y compris l'homme en robe violette, n'avaient aucune inte
 
 Plus Wang Lin observait, plus il était choqué. Le vieillard semblait posséder une compréhension profonde de la manière de franchir le prochain royaume de culture. Il lui suffisait de lancer quelques phrases pour leur donner une forme d'illumination.
 
-Par conséquent, aucun d'eux ne le soupçonnait d'être un escroc. Au contraire, ils avaient l'impression d'avoir rencontré un Aîné et se montraient extrêmement respectueux.
+Par conséquent, aucun d'eux ne le soupçonnait d'être un escroc. Au contraire, ils avaient l'impression d'avoir rencontré un Senior et se montraient extrêmement respectueux.
 
 Après un moment, Wang Lin commença à réfléchir. Il retira son Sens Divin et cessa de suivre le vieil homme. Ce dernier était trop mystérieux, et Wang Lin sentit qu'il valait mieux ne pas trop creuser.
 

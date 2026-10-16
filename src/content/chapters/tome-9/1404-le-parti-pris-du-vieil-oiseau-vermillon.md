@@ -20,7 +20,7 @@ Le troisième venait du bel homme qui mangeait une pêche. Ses yeux brillaient e
 
 L'expression de Wang Lin resta calme alors que son regard balayait le père et la fille enveloppés de lumière bleue. Une lueur de complication passa dans ses yeux, mais elle se dissipa rapidement.
 
-Wang Lin joignit les mains et dit respectueusement: « Ce cadet salue l'Aîné Maître du Dao Rêve Bleu. »
+Wang Lin joignit les mains et dit respectueusement: « Ce junior salue le Senior Maître du Dao Rêve Bleu. »
 
 Maître du Dao Rêve Bleu sourit, hocha la tête et répondit: « Je t'ai vraiment sous-estimé auparavant. »
 
@@ -30,9 +30,9 @@ Le vieil Oiseau Vermillon fut surpris d'apprendre que Wang Lin connaissait Maît
 
 Le visage de Maître Simo changea. Il savait que ce vieil homme était le premier Jeune Empereur des Terres Tombées. C'était un être situé juste en dessous du Grand Empereur, et sa renommée était immense. Le Conseil Souverain menait encore des recherches sur lui; ce vieux fou n'était pas facile à gérer.
 
-L'intention meurtrière dans les yeux de Maître Simo s'évanouit. Il joignit les mains et dit doucement: « La culture de l'Aîné est transcendante. Le cadet... le cadet n'est pas de taille. »
+L'intention meurtrière dans les yeux de Maître Simo s'évanouit. Il joignit les mains et dit doucement: « La culture du Senior est transcendante. Le junior... le junior n'est pas de taille. »
 
-« Humph, tu n'oserais pas affronter ce vieil homme, mais tu veux provoquer mon cadet? Tu mérites une correction! » Peu importe la façon dont l'Oiseau Vermillon regardait Maître Simo, il le trouvait insupportable. Il laissa échapper un reniflement froid et agita sa main droite.
+« Humph, tu n'oserais pas affronter ce vieil homme, mais tu veux provoquer mon junior? Tu mérites une correction! » Peu importe la façon dont l'Oiseau Vermillon regardait Maître Simo, il le trouvait insupportable. Il laissa échapper un reniflement froid et agita sa main droite.
 
 Aucun sort ne sembla jaillir de ce geste, mais l'expression de Grand Maître Yun Luo changea radicalement et elle recula sans hésiter. Les pupilles de Maître Simo se rétractèrent également; il laissa échapper un rugissement en commençant à former des sceaux de mains. Cependant, avant qu'il ne puisse les achever, un grondement tonitruant retentit.
 
@@ -40,17 +40,17 @@ Maître Simo recula précipitamment devant ce fracas. Sa main tremblait et son v
 
 Après ces trois éclats, le corps de Maître Simo trembla violemment et il cracha du sang. Ses yeux étaient pétris de terreur.
 
-« Aîné, vous intimidez un cadet devant tout le monde! Qu'est-ce que cela signifie?! » La colère se lut sur le visage de Maître Simo, mais cette rage sembla alimenter le feu éthéré qui l'entourait, le rendant plus puissant encore.
+« Senior, vous intimidez un junior devant tout le monde! Qu'est-ce que cela signifie?! » La colère se lut sur le visage de Maître Simo, mais cette rage sembla alimenter le feu éthéré qui l'entourait, le rendant plus puissant encore.
 
 Maître Simo cracha du sang une fois de plus. À ce moment, Grand Maître Yun Luo s'avança et posa sa main sur son dos. Elle utilisa un sort secret pour tenter d'améliorer l'aspect de Maître Simo, mais celui-ci restait d'une pâleur mortelle.
 
-« Le fort opprimant le faible? Parbleu, tu sais même ce que cela signifie? Après avoir utilisé ta culture de la troisième étape pour forcer un combat contre mon cadet, tu oses dire que j'opprime les faibles? Et alors, si c'est le cas?! » L'Oiseau Vermillon cultivait depuis de nombreuses années et, bien qu'il parût bienveillant envers Wang Lin, il possédait en réalité un tempérament explosif dès qu'il était célèbre. En entendant les paroles de Maître Simo, ses yeux s'écarquillèrent et il fit un pas en avant.
+« Le fort opprimant le faible? Parbleu, tu sais même ce que cela signifie? Après avoir utilisé ta culture de la troisième étape pour forcer un combat contre mon junior, tu oses dire que j'opprime les faibles? Et alors, si c'est le cas?! » L'Oiseau Vermillon cultivait depuis de nombreuses années et, bien qu'il parût bienveillant envers Wang Lin, il possédait en réalité un tempérament explosif dès qu'il était célèbre. En entendant les paroles de Maître Simo, ses yeux s'écarquillèrent et il fit un pas en avant.
 
 Il fut si rapide que l'œil nu ou même le Sens Divin ne purent le suivre. Il surgit devant Maître Simo et lui asséna une gifle directe.
 
 Sous la force de l'impact, Maître Simo laissa échapper un gémissement étouffé et fut projeté en arrière de plusieurs dizaines de pieds. Son visage gonfla, prenant une teinte violacée.
 
-Le visage de Grand Maître Yun Luo pâlit alors qu'elle reculait: « Aîné, arrêtez, le Conseil Souverain... »
+Le visage de Grand Maître Yun Luo pâlit alors qu'elle reculait: « Senior, arrêtez, le Conseil Souverain... »
 
 Avant qu'elle ne puisse achever sa phrase, l'Oiseau Vermillon lui lança un regard féroce. « Petite fille, tais-toi! Si tu ne te tais pas, je te giflerai aussi! Ce vieil homme va opprimer les faibles aujourd'hui! »
 
@@ -58,13 +58,13 @@ Cela força Grand Maître Yun Luo à se mordre la lèvre et à se taire.
 
 Maître Simo venait à peine de stabiliser sa posture que sa vision se troubla.
 
-« Qui es-tu pour oser traiter mon cadet de "petit bâtard"? Tu es un bâtard, et toute ta famille est composée de bâtards! » Tandis qu'il parlait, l'Oiseau Vermillon se rapprocha à nouveau et envoya une gifle de la main gauche.
+« Qui es-tu pour oser traiter mon junior de "petit bâtard"? Tu es un bâtard, et toute ta famille est composée de bâtards! » Tandis qu'il parlait, l'Oiseau Vermillon se rapprocha à nouveau et envoya une gifle de la main gauche.
 
 Maître Simo poussa un râle étouffé et cracha du sang. Repoussé, la colère monta en lui, mais cette rage ne fit qu'accroître la puissance du feu dans son corps. Il poussa un cri misérable et tenta de réprimer sa rage.
 
-« Si mon cadet est un bâtard, cela ne fait-il pas de moi un bâtard aussi? Bon sang, tu oses insulter ce vieil homme? » Le vieil homme fixa Maître Simo et le poursuivit.
+« Si mon junior est un bâtard, cela ne fait-il pas de moi un bâtard aussi? Bon sang, tu oses insulter ce vieil homme? » Le vieil homme fixa Maître Simo et le poursuivit.
 
-« Le cadet n'a pas... » L'esprit de Maître Simo trembla; il allait tenter de s'expliquer, mais ses paroles ne furent évidemment pas aussi rapides que l'Oiseau Vermillon. Ce dernier surgit soudainement et lui asséna une gifle de la main droite.
+« Le junior n'a pas... » L'esprit de Maître Simo trembla; il allait tenter de s'expliquer, mais ses paroles ne furent évidemment pas aussi rapides que l'Oiseau Vermillon. Ce dernier surgit soudainement et lui asséna une gifle de la main droite.
 
 Le visage de Maître Simo, déjà tuméfié, gonfla davantage et il cracha du sang ainsi que quelques dents. Son corps fut projeté au loin.
 
@@ -98,7 +98,7 @@ Le bel homme rit et hocha la tête vers Wang Lin.
 
 Les yeux du vieillard s'illuminèrent et il laissa échapper un grognement froid. Ses lèvres ne bougèrent pas, mais une voix émana de son corps:
 
-« Vieux oiseau, ce vieil homme n'est pas venu pour témoigner, je suis ici pour te défier! Cependant, ton cadet n'est pas mauvais, alors je t'offre ceci en guise de protection! » Le vieillard leva la main droite et fit un mouvement sec. Un morceau d'ongle de son index se détacha et vola vers Wang Lin.
+« Vieux oiseau, ce vieil homme n'est pas venu pour témoigner, je suis ici pour te défier! Cependant, ton junior n'est pas mauvais, alors je t'offre ceci en guise de protection! » Le vieillard leva la main droite et fit un mouvement sec. Un morceau d'ongle de son index se détacha et vola vers Wang Lin.
 
 Dans un éclat de lumière, le fragment d'ongle flotta devant Wang Lin.
 

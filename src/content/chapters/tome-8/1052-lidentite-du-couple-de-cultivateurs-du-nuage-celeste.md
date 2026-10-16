@@ -20,7 +20,7 @@ Wang Lin eut un sourire amer et expliqua simplement la situation à Zhou Yi. Il 
 
 « Tu es probablement venu pour les pilules ici, bien que la plupart aient déjà été prises par le couple de cultivateurs du Nuage Céleste. Les seules qui restent sont celles qui sont utiles aux corps spirituels. Ils ne les ont pas prises car leur méthode de stockage est très complexe. » Alors que Zhou Yi parlait, il changea soudainement de sujet: « Mais ne t'inquiète pas, je trouverai un moyen de t'obtenir ces pilules! »
 
-Une fois son discours terminé, Zhou Yi se transforma en un rayon d'énergie d'épée et s'élança hors des restrictions de la salle d'alchimie. Il apparut dans les airs et joignit ses mains: « Aînés du Nuage Céleste, cet homme est un vieil ami. Veuillez m'offrir quelques pilules! »
+Une fois son discours terminé, Zhou Yi se transforma en un rayon d'énergie d'épée et s'élança hors des restrictions de la salle d'alchimie. Il apparut dans les airs et joignit ses mains: « Seniors du Nuage Céleste, cet homme est un vieil ami. Veuillez m'offrir quelques pilules! »
 
 Un rire parvint de loin. Une lueur jaillit de la forêt pourpre voisine, et Wang Wei et Hu Juan en sortirent. Les deux marchèrent lentement, mais étrangement, il ne leur fallut que trois pas pour atteindre la salle d'alchimie.
 
@@ -36,7 +36,7 @@ Hu Juan observa attentivement Wang Lin et demanda soudainement: « Es-tu l'héri
 
 Wang Lin resta calme face à Hu Juan et répondit sereinement: « Je n'en suis pas l'héritier, j'en connais seulement une partie. »
 
-Lorsque Zhou Yi vit que Wang Wei ne donnait que six bouteilles de pilules Célestes Rassembleuses à Wang Lin, il ne put s'empêcher de froncer les sourcils. Après avoir réfléchi un instant, il regarda Wang Wei et dit: « Aîné Wang Wei, non seulement cet homme est mon vieil ami, mais il est aussi mon bienfaiteur. Il y a une chose que je n'ai pas dite auparavant: j'étais scellé ici et il m'a sauvé. Sans lui, je n'aurais jamais eu la chance de rencontrer l'Aîné. »
+Lorsque Zhou Yi vit que Wang Wei ne donnait que six bouteilles de pilules Célestes Rassembleuses à Wang Lin, il ne put s'empêcher de froncer les sourcils. Après avoir réfléchi un instant, il regarda Wang Wei et dit: « Senior Wang Wei, non seulement cet homme est mon vieil ami, mais il est aussi mon bienfaiteur. Il y a une chose que je n'ai pas dite auparavant: j'étais scellé ici et il m'a sauvé. Sans lui, je n'aurais jamais eu la chance de rencontrer l'Aîné. »
 
 Wang Wei lança un regard significatif à Zhou Yi avant de tendre à nouveau sa main droite vers la fissure. Cette fois, cinq bouteilles de jade aux cinq couleurs en sortirent. Il les lança à Wang Lin.
 
@@ -44,13 +44,13 @@ Wang Wei lança un regard significatif à Zhou Yi avant de tendre à nouveau sa 
 
 Wang Lin prit les bouteilles et les scruta avec son sens divin. L'énergie spirituelle céleste à l'intérieur de ces flacons était monstrueuse, bien supérieure aux six bouteilles de pilules Célestes Rassembleuses obtenues précédemment.
 
-Zhou Yi fronça à nouveau les sourcils, apparemment toujours insatisfait, et cessa de joindre les mains. « Puisque l'Aîné connaît l'Esprit d'Épée Céleste de la Pluie, je présume que vous connaissez également la Seigneur Céleste de la Pluie, Qing Shuang! »
+Zhou Yi fronça à nouveau les sourcils, apparemment toujours insatisfait, et cessa de joindre les mains. « Puisque le Senior connaît l'Esprit d'Épée Céleste de la Pluie, je présume que vous connaissez également la Seigneur Céleste de la Pluie, Qing Shuang! »
 
 Les yeux de Wang Wei se rétrécirent soudainement. Sans poser de question, il sortit trois autres bouteilles de la fissure. Il ne les présenta pas et les jeta directement à Wang Lin.
 
 Wang Lin les attrapa et, après les avoir scannées, son expression changea. L'énergie spirituelle céleste dans ces trois bouteilles était encore plus puissante que celle des flacons aux cinq couleurs. Celles-ci étaient manifestement supérieures.
 
-« Le cadet s'est autrefois épris d'un cadavre féminin dans le Royaume Céleste de la Pluie. J'ai construit une pagode de jade céleste pour conserver ce corps afin d'empêcher sa décomposition et lui permettre d'exister éternellement... » Les yeux de Zhou Yi étaient empreints de nostalgie alors qu'il se remémorait le passé.
+« Le Junior s'est autrefois épris d'un cadavre féminin dans le Royaume Céleste de la Pluie. J'ai construit une pagode de jade céleste pour conserver ce corps afin d'empêcher sa décomposition et lui permettre d'exister éternellement... » Les yeux de Zhou Yi étaient empreints de nostalgie alors qu'il se remémorait le passé.
 
 «... Plus tard, j'ai découvert que ce n'était pas Ting Er, mais la Seigneur Céleste Qing Shuang! »
 
@@ -84,7 +84,7 @@ Les deux pouvaient aisément discerner la vérité du mensonge. En ajoutant cela
 
 « Je présume que le Petit Frère Wang Lin est ici pour rapporter le corps de Qing Shuang. » Wang Wei regarda Wang Lin et ne put s'empêcher de manifester une certaine admiration. Avec le recul, il n'avait pas accordé beaucoup d'attention à Wang Lin, mais il ne s'attendait pas à ce qu'il soit un homme aussi intègre.
 
-À cet instant, il semblait que les choses soient clarifiées, mais Wang Lin ne sortit pas immédiatement le corps de Qing Shuang. Au lieu de cela, il recula de quelques pas, regarda Wang Wei et Hu Juan, et demanda: « Quelles sont exactement vos identités, Aînés? »
+À cet instant, il semblait que les choses soient clarifiées, mais Wang Lin ne sortit pas immédiatement le corps de Qing Shuang. Au lieu de cela, il recula de quelques pas, regarda Wang Wei et Hu Juan, et demanda: « Quelles sont exactement vos identités, Seniors? »
 
 Wang Wei admira encore davantage la prudence de Wang Lin. Cette vigilance signifiait qu'il tenait véritablement sa promesse envers Zhou Yi.
 
@@ -104,7 +104,7 @@ Hu Juan regarda Wang Lin et agita la main vers la restriction sur la droite. La 
 
 « Vous avez dû remarquer la différence entre les restrictions autour de la salle d'alchimie. Avec votre culture des restrictions, vous auriez dû vous en douter... Une fois que le Maître a ouvert l'antre céleste, tous les bâtiments et les restrictions ici ont été mis en place par moi sur ses ordres. Seule moi peux parfaire les restrictions de ce lieu. » La voix de Hu Juan n'était pas forte, mais lorsqu'elle atteignit les oreilles de Wang Lin, elle résonna comme un tonnerre rugissant.
 
-Wang Lin eut un haut-le-cœur et sourit amèrement. « C'est donc bien vous. Je pensais que c'était l'Aîné Wang Wei. »
+Wang Lin eut un haut-le-cœur et sourit amèrement. « C'est donc bien vous. Je pensais que c'était le Senior Wang Wei. »
 
 Wang Wei secoua la tête en riant. « Ma culture des restrictions est plus faible que la sienne, sinon je n'aurais pas perdu notre pari concernant votre restriction à l'époque. »
 

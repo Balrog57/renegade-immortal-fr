@@ -38,7 +38,7 @@ Une fois le chemin dégagé, la boule de feu traversa le vide et explosa dans le
 
 « Cette bête appartient au Saint de l'Épée Ling Tianhou. Ce vieux maître est ici! »
 
-« Quel trésor a bien pu pousser l'aîné Ling Tianhou à se déplacer personnellement? »
+« Quel trésor a bien pu pousser le senior Ling Tianhou à se déplacer personnellement? »
 
 Plusieurs cultivateurs érudits furent frappés de stupeur, tentant de deviner la raison de la présence de Ling Tianhou. Ceux dont la volonté était plus faible reculèrent en s'exclamant de terreur.
 

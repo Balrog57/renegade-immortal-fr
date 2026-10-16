@@ -180,7 +180,7 @@ Les trois hommes éclatèrent de rire en échangeant quelques mots. Liu Fei fit 
 
 Sima Yunnan étudia attentivement Sun Zhenwei et commenta: « Tu es un véritable génie. Si jeune, et pourtant tu as déjà atteint le seuil de l'Âme Naissante. Très bien. Dans cent ans, la Secte Ciel Nuageux comptera un autre cultivateur de ce stade. »
 
-Sun Zhenwei esquissa un sourire humble: « Aîné est trop aimable. Ce cadet ne mérite pas de tels éloges. »
+Sun Zhenwei esquissa un sourire humble: « Senior est trop aimable. Ce junior ne mérite pas de tels éloges. »
 
 Sima Yunnan hocha la tête et entra dans le hall principal avec Xu Li.
 

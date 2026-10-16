@@ -110,7 +110,7 @@ Sous un autre angle, la situation paraissait totalement différente. Zhou Jin et
 
 Maître Yan Leizi et Lie Yunzi entendirent également les paroles de Wang Lin. Ils restèrent bouche bée, choqués par les actions de Wang Lin dans le Royaume Extérieur et admiratifs envers le Daoïste Esprit Dispersé.
 
-Maître Yan Leizi hésita un instant avant de joindre ses mains: « Aîné Wang Lin, avez-vous revu le Daoïste Esprit Dispersé par la suite? »
+Maître Yan Leizi hésita un instant avant de joindre ses mains: « Senior Wang Lin, avez-vous revu le Daoïste Esprit Dispersé par la suite? »
 
 Wang Lin secoua la tête. Après la destruction du Clan Tonnerre Dispersé, il avait été traqué et avait dû fuir précipitamment, n'ayant plus eu aucun contact avec le Daoïste Esprit Dispersé.
 
@@ -126,4 +126,4 @@ Le regard de Wang Lin se posa sur Lie Yunzi. Après une courte réflexion, il di
 
 À ces mots, le corps de Lie Yunzi trembla. Il leva les yeux vers Wang Lin, l'excitation brillant dans son regard.
 
-« Aîné, je vous en prie, dites-moi où se trouve l'Ancêtre! »
+« Senior, je vous en prie, dites-moi où se trouve l'Ancêtre! »

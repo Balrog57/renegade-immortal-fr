@@ -106,7 +106,7 @@ Wang Lin regarda calmement tout le monde jusqu'à ce que son regard se pose fina
 
 Wang Lin regarda Yunque Zi, qui lui rendit son regard; tous deux restèrent silencieux.
 
-Peu de temps après, Wang Lin eut un sourire amer et dit: « Ce cadet salue son aîné... »
+Peu de temps après, Wang Lin eut un sourire amer et dit: « Junior salue son aîné... »
 
 Yunque Zi soupira, secoua la tête et répondit: « Toi aussi, tu es venu ici... »
 

@@ -12,7 +12,7 @@ La femme, refusant de se laisser faire, s'apprêtait à résister quand Situ Nan
 
 « Petite fille, ne sois pas si pressée. Combien de fois t'ai-je déjà nourrie? Tu disais avoir de nombreuses sœurs au Palais Rose; allons voir si cet endroit est aussi magnifique que tu le prétends. »
 
-La femme sourit et regarda Situ Nan d'un regard séducteur: « Aîné sera certainement satisfait. Ne nous oubliez pas, nous, les sœurs du Palais Rose. »
+La femme sourit et regarda Situ Nan d'un regard séducteur: « Senior sera certainement satisfait. Ne nous oubliez pas, nous, les sœurs du Palais Rose. »
 
 En entendant ces mots, le cœur de Situ Nan s'anima d'une pointe d'envie; il ne put s'empêcher de songer aux quelques beautés époustouflantes de la planète Feng Luan. S'il pouvait un jour régner sur Feng Luan, lui et son frère, Wang Lin, pourraient chacun tenir une beauté dans leurs bras. Ce serait là la plus grande joie de l'existence.
 
@@ -58,11 +58,11 @@ C'était un secret qu'elle gardait au fond de son cœur. Elle ignorait pourquoi,
 
 Au départ, Ling Er pensait qu'il ne s'agissait que de ses propres fantasmes. Bien qu'elle les ait vus à plusieurs reprises, l'image était toujours floue, comme filtrée par un voile.
 
-La première fois qu'elle vit la scène avec clarté, ce fut la nuit suivant sa rencontre avec l'Aîné nommé Wang. Bien qu'un événement bouleversant se déroulât à l'extérieur, elle ne s'était pas réveillée de son rêve.
+La première fois qu'elle vit la scène avec clarté, ce fut la nuit suivant sa rencontre avec le Senior nommé Wang. Bien qu'un événement bouleversant se déroulât à l'extérieur, elle ne s'était pas réveillée de son rêve.
 
 Dans le rêve de cette nuit-là, elle avait enfin tout vu.
 
-Elle trouvait cela étrange: pourquoi avait-elle ressenti une telle familiarité dès qu'elle avait aperçu l'Aîné Wang Lin? Cela la troublait profondément.
+Elle trouvait cela étrange: pourquoi avait-elle ressenti une telle familiarité dès qu'elle avait aperçu le Senior Wang Lin? Cela la troublait profondément.
 
 Pourtant, elle n'y accorda pas trop d'importance sur le moment, convaincue que tout cela n'était qu'un songe. Mais tout bascula cette nuit!
 
@@ -120,12 +120,12 @@ Alors qu'il l'observait, son expression changea. D'un revers de la main droite, 
 
 Peu après, une voix féminine et hésitante parvint de l'extérieur du palais.
 
-« Wang... Aîné Wang, c'est Ling Er. »
+« Wang... Senior Wang, c'est Ling Er. »
 
 L'aube pointait, mais le vent nocturne soufflait encore. Sur la planète Esprit d'Eau, le vent était glacial; bien que sa culture devrait normalement la protéger, elle ressentait un froid intense.
 
 Elle regarda timidement le grand colosse assis au sol devant elle. Elle se souvenait que ce grand homme suivait Wang Lin depuis quelques jours. Désormais, il la fixait de ses yeux froids, et elle en avait peur.
 
-Mordant sa lèvre inférieure, elle dit doucement: « Je... je veux voir l'Aîné Wang. Pouvez-vous... me laisser entrer? »
+Mordant sa lèvre inférieure, elle dit doucement: « Je... je veux voir le Senior Wang. Pouvez-vous... me laisser entrer? »
 
 Ta Shan resta silencieux, lançant un regard glacial à la jeune fille. Si celle-ci faisait un pas de plus, il attaquerait.

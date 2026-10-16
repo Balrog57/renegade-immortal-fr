@@ -28,7 +28,7 @@ Wang Lin joignit les mains et répondit: « Le disciple souhaite changer de grot
 
 L'homme d'âge moyen fronça les sourcils. « Les cultivateurs ne devraient pas être trop gourmands. Ta vitesse de culture est trop élevée, ta fondation en sera instable. Si tu continues ainsi, tu n'atteindras jamais le stade de la Formation du Noyau! »
 
-Wang Lin réfléchit un instant et dit: « Le disciple comprend, mais j'espère que cet aîné acceptera ma demande. »
+Wang Lin réfléchit un instant et dit: « Le disciple comprend, mais j'espère que ce senior acceptera ma demande. »
 
 L'homme d'âge moyen regarda Wang Lin et déclara: « Puisque tu insistes, je ne t'en empêcherai pas, mais changer de pièce coûte une pierre spirituelle de qualité moyenne supplémentaire. »
 

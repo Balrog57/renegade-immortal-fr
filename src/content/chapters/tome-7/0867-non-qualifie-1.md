@@ -16,7 +16,7 @@ Un silence absolu tomba sur les environs. Hormis quelques rares privilégiés, p
 
 Néanmoins, de nombreux cultivateurs ignoraient tout de l'ancien Royaume Céleste et se tournèrent vers les ancêtres de leurs clans respectifs.
 
-Maître Yan Leizi reprit calmement: « La Pierre de l'Investiture Céleste s'est brisée en d'innombrables fragments lors de l'effondrement du Royaume Céleste du Tonnerre. Mon Temple Céleste du Tonnerre ne l'a pas récupérée, inutile donc de s'y attarder. C’est lorsque cet aîné a capturé la Bête Lunaire qu'il m’a trouvé et m’a remis un fragment de la taille de mon poing! »
+Maître Yan Leizi reprit calmement: « La Pierre de l'Investiture Céleste s'est brisée en d'innombrables fragments lors de l'effondrement du Royaume Céleste du Tonnerre. Mon Temple Céleste du Tonnerre ne l'a pas récupérée, inutile donc de s'y attarder. C’est lorsque ce senior a capturé la Bête Lunaire qu'il m’a trouvé et m’a remis un fragment de la taille de mon poing! »
 
 À ces mots, tous les vieux monstres installés sur les tapis de prière se turent, cessant toute interrogation à ce sujet.
 

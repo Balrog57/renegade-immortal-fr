@@ -48,7 +48,7 @@ L'un des spectateurs s'exclama précipitamment: « Le Saint de l'Épée Ling Tia
 
 Sur la planète Tian Yun, qu'il s'agisse de la puissance individuelle ou de celle de sa secte, la Secte de l'Épée Da Luo se classait juste après la Secte du Destin Céleste!
 
-Ling Tianhou afficha une expression sombre sur son visage émacié tandis que les innombrables épées flottant derrière lui libéraient des vagues d'hymnes d'épée. Il cria de sa voix la plus forte: « Disciples! Sortez et saluez l'aîné Omniscient! »
+Ling Tianhou afficha une expression sombre sur son visage émacié tandis que les innombrables épées flottant derrière lui libéraient des vagues d'hymnes d'épée. Il cria de sa voix la plus forte: « Disciples! Sortez et saluez le senior Omniscient! »
 
 À la suite de cet ordre, les hymnes d'épée devinrent encore plus puissants. Enfin, une série de déflagrations retentit alors que les épées volantes se transformaient l'une après l'autre en gaz. À ce moment précis, un nuage de brume verte enveloppa la zone derrière Ling Tianhou. La brume semblait recouvrir le ciel entier, altérant ses couleurs.
 

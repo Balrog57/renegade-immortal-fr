@@ -10,7 +10,7 @@ Tenant l'âme originelle de l'homme d'âge moyen, Wang Lin regarda froidement le
 
 Il n'y eut aucune difficulté à éliminer ces deux cultivateurs de l'Yin Illusoire terrifiés, grâce au corps céleste de Garde Corporelle Yang de Ta Shan.
 
-« Aîné, ayez pitié; la culture de ce cadet n'a pas été facile à acquérir. Aîné, pardonnez-moi... » L'homme d'âge moyen était mort de peur. Son âme originelle implorait sans cesse la clémence dans la main de Wang Lin.
+« Aîné, ayez pitié; la culture de ce junior n'a pas été facile à acquérir. Aîné, pardonnez-moi... » L'homme d'âge moyen était mort de peur. Son âme originelle implorait sans cesse la clémence dans la main de Wang Lin.
 
 L'expression de Wang Lin resta glaciale tandis qu'il pressait sa main gauche sur l'âme originelle de l'homme. L'énergie originelle afflua dans sa paume et il commença à fouiller les souvenirs de l'âme.
 

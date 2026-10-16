@@ -22,11 +22,11 @@ Il n'aurait jamais imaginé que quelqu'un puisse pénétrer en ces lieux, usurpe
 
 À ce moment précis, les six cultivateurs du Clan Tonnerre Dispersé chargés de la garde ouvrirent soudainement les yeux. L'un d'eux se leva et interpella Wang Lin: « Ton nom est Yu Fei? »
 
-Les yeux de Wang Lin s'illuminèrent. Grâce à sa sagesse, il comprit immédiatement que si cet homme le reconnaissait, c'était lié au cadet du type Yang Corporel qui lui avait remis le jade.
+Les yeux de Wang Lin s'illuminèrent. Grâce à sa sagesse, il comprit immédiatement que si cet homme le reconnaissait, c'était lié au junior du type Yang Corporel qui lui avait remis le jade.
 
 Sans un mot, il agita la main droite et le jade apparut, volant vers l'interlocuteur.
 
-Le cultivateur plissa les yeux en saisissant le jade. Après l'avoir inspecté, il examina Wang Lin avant de joindre les mains en signe de respect devant le Maître Zhou Tian: « Aîné Zhou Tian, je vous en prie, faites preuve d'indulgence. Cette personne a été chargée par un vieil ami de se rendre dans les 7 Millions de Mondes pour passer l'épreuve. La mission ne concerne pas qu'une seule personne. Ne pourriez-vous pas aussi le laisser passer? »
+Le cultivateur plissa les yeux en saisissant le jade. Après l'avoir inspecté, il examina Wang Lin avant de joindre les mains en signe de respect devant le Maître Zhou Tian: « Senior Zhou Tian, je vous en prie, faites preuve d'indulgence. Cette personne a été chargée par un vieil ami de se rendre dans les 7 Millions de Mondes pour passer l'épreuve. La mission ne concerne pas qu'une seule personne. Ne pourriez-vous pas aussi le laisser passer? »
 
 Le Maître Zhou Tian affichait une expression indifférente face au cultivateur qui venait de parler. Ces gardiens de la porte ouest n'étaient pour lui que des fourmis. Mais en fin de compte, ils occupaient des positions respectables au sein de la famille et bénéficiaient du soutien d'un Ancien. Malgré son arrogance, il devait peser sa décision.
 

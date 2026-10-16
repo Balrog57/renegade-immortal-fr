@@ -60,7 +60,7 @@ Après le départ des membres de la Secte de l'Épée Da Lou, Wang Lin apparut s
 
 En raison de la pression oppressante ressentie par les deux Anciens, tout le groupe fut contraint d'accélérer, achevant ainsi le voyage de trois jours en seulement un jour et demi.
 
-À ce moment-là, Qian Qin, qui menait la marche, pointa l'avant du doigt et s'exclama: « Il y a deux mois, la secte de ce cadet a trouvé les Fruits d'Or Brillants là-bas! »
+À ce moment-là, Qian Qin, qui menait la marche, pointa l'avant du doigt et s'exclama: « Il y a deux mois, la secte de ce junior a trouvé les Fruits d'Or Brillants là-bas! »
 
 Tous les regards suivirent le geste de la femme.
 

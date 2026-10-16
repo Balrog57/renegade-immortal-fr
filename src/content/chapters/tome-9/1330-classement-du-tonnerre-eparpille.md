@@ -20,7 +20,7 @@ Une pression écrasante émanait de cet individu, et chaque pas qu'il faisait se
 
 « Yu... Yu Fei! »
 
-Wang Lin traversa les différentes couches de restrictions et pénétra dans la grotte. Son regard balaya le cadet de l'Âme Naissante avant d'examiner les lieux.
+Wang Lin traversa les différentes couches de restrictions et pénétra dans la grotte. Son regard balaya le junior de l'Âme Naissante avant d'examiner les lieux.
 
 Cette grotte n'était pas petite. Elle comprenait six salles de pierre s'étendant à travers la vallée, reliées par un petit sentier. On entendait le murmure de l'eau; c'était la rivière qui coulait dans la vallée. Un parfum embaumait également la cavité, signe qu'une multitude d'herbes spirituelles y étaient plantées.
 

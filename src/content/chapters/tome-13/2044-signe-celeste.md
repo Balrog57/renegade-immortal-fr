@@ -86,11 +86,11 @@ Ji Du avait tenté de rencontrer le Grand Empereur Song Tian à maintes reprises
 
 Une jeune femme se tenait à ses côtés, le regardant de temps à autre avec une inquiétude manifeste.
 
-« Frère, l'Aîné Wang Lin est en culture fermée depuis cent ans... La date de l'abdication de Père approche. Selon la coutume, un nouvel empereur doit être choisi cent ans avant l'abdication. »
+« Frère, le Senior Wang Lin est en culture fermée depuis cent ans... La date de l'abdication de Père approche. Selon la coutume, un nouvel empereur doit être choisi cent ans avant l'abdication. »
 
-« En termes de calendrier, tout devrait se décider au cours des prochaines années. Si tu ne sollicites pas l'aide de l'Aîné Wang Lin, je crains qu'il ne soit trop tard... » soupira la jeune femme. C'était elle qui accompagnait Ji Du autrefois, avant d'épouser l'un des génies de l'Ancien Shi — un homme considéré comme le plus puissant de sa génération et un allié proche de Ji Du. Elle s'exprima à côté de lui en jetant un regard froid sur la situation.
+« En termes de calendrier, tout devrait se décider au cours des prochaines années. Si tu ne sollicites pas l'aide du Senior Wang Lin, je crains qu'il ne soit trop tard... » soupira la jeune femme. C'était elle qui accompagnait Ji Du autrefois, avant d'épouser l'un des génies de l'Ancien Shi — un homme considéré comme le plus puissant de sa génération et un allié proche de Ji Du. Elle s'exprima à côté de lui en jetant un regard froid sur la situation.
 
-« La rumeur prétend que cet Aîné est le dixième soleil, mais après avoir quitté le Dao Ancien, il s'est immédiatement retiré en culture fermée. Il semble blessé... Peut-il vraiment faire changer d'avis le Seigneur Song? » C'était le mari de la jeune femme, un homme vêtu de pourpre.
+« La rumeur prétend que ce Senior est le dixième soleil, mais après avoir quitté le Dao Ancien, il s'est immédiatement retiré en culture fermée. Il semble blessé... Peut-il vraiment faire changer d'avis le Seigneur Song? » C'était le mari de la jeune femme, un homme vêtu de pourpre.
 
 « Frère royal! » s'exclama la femme, encore plus anxieuse.
 

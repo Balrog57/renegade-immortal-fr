@@ -144,7 +144,7 @@ Liu Mei regarda calmement Papillon Rouge sans prononcer un mot.
 
 Qian Feng s'arrêta à 10 mètres de Liu Mei. Il afficha un sourire révélant ses dents blanches et dit: « Jeune sœur apprentie, t'en vas-tu déjà? »
 
-Liu Mei hocha la tête et murmura: « frère aîné Qian Feng, la personne derrière vous est-elle Papillon Rouge? »
+Liu Mei hocha la tête et murmura: « Senior frère Qian Feng, la personne derrière vous est-elle Papillon Rouge? »
 
 Qian Feng éclata de rire. « Papillon Rouge est déjà morte. Elle n'est plus que mon fourneau de concubine. Appelons-la simplement "Sans-Cœur". »
 

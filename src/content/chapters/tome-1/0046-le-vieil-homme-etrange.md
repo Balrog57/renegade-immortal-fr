@@ -46,7 +46,7 @@ Une voix séculaire surgit soudainement: « Inutile d'observer davantage. Avec t
 
 Wang Lin sursauta et ses pupilles se rétractèrent. Il était dans l'espace de rêve depuis des dizaines d'années, et c'était la première fois qu'il entendait une autre voix.
 
-Il prit une profonde inspiration pour réprimer le choc qui agitait son cœur. Il joignit les mains et dit respectueusement: « Ce cadet s'appelle Wang Lin. Quel est le nom de l'Aîné? »
+Il prit une profonde inspiration pour réprimer le choc qui agitait son cœur. Il joignit les mains et dit respectueusement: « Ce junior s'appelle Wang Lin. Quel est le nom du Senior? »
 
 Wang Lin était un homme intelligent. Il comprit que l'interlocuteur n'était pas apparu soudainement, mais qu'il avait été là tout du long, l'observant durant les trente années passées dans ce lieu.
 
@@ -54,9 +54,9 @@ Wang Lin était un homme intelligent. Il comprit que l'interlocuteur n'était pa
 
 Wang Lin réfléchit. Il avait déjà examiné la perle avec son sens divin, mais il ne l'avait pas fait aussi longtemps que ce qu'il venait de tenter.
 
-« Ta façon d'agir m'agace profondément. La culture est un acte qui défie les cieux. Si quelqu'un se dresse contre toi, tu dois le tuer. Je t'ai observé durant ces quelques années dans cette secte de pacotille. Si j'avais été à ta place, je les aurais tous massacrés depuis longtemps. Humph. Si quelqu'un osait m'insulter, je l'anéantirais totalement, surtout ce Wang Zhuo. Il me tape sur les nerfs. Avec mon tempérament, j'aurais saisi son âme pour la jeter en purgatoire, puis j'aurais exterminé toute sa lignée. En revanche, j'apprécie beaucoup ce Zhang Hu de ta secte; il est assez vicieux. Et ce cadet Liu conviendrait parfaitement aux goûts de ce vieil homme... »
+« Ta façon d'agir m'agace profondément. La culture est un acte qui défie les cieux. Si quelqu'un se dresse contre toi, tu dois le tuer. Je t'ai observé durant ces quelques années dans cette secte de pacotille. Si j'avais été à ta place, je les aurais tous massacrés depuis longtemps. Humph. Si quelqu'un osait m'insulter, je l'anéantirais totalement, surtout ce Wang Zhuo. Il me tape sur les nerfs. Avec mon tempérament, j'aurais saisi son âme pour la jeter en purgatoire, puis j'aurais exterminé toute sa lignée. En revanche, j'apprécie beaucoup ce Zhang Hu de ta secte; il est assez vicieux. Et ce junior Liu conviendrait parfaitement aux goûts de ce vieil homme... »
 
-L'expression de Wang Lin devint étrange. Il esquissa un sourire amer: « Aîné, je... »
+L'expression de Wang Lin devint étrange. Il esquissa un sourire amer: « Senior, je... »
 
 « Ne m'interromps pas! Je n'ai pas fini. Humph, ta petite secte compte aussi quelques jolies jeunes femmes. Tu ne sais vraiment pas profiter de la vie. Si j'étais toi, je les aurais capturées pour en faire des fourneaux de culture et drainer leur yin. Héhé, ce goût me rappelle le passé... Cela fait plus de trente ans que je n'en ai pas goûté... »
 
@@ -64,7 +64,7 @@ Wang Lin resta bouche bée, incapable de prononcer un mot pendant un long moment
 
 « Gamin, peux-tu faire un effort? Dépêche-toi d'atteindre le stade de Transformation de l'Âme pour que ce vieil homme puisse sortir. *Soupir*. »
 
-Wang Lin hésita, confus, et demanda: « Aîné, qu'est-ce que le stade de Transformation de l'Âme? Et que vouliez-vous dire par là, quand vous dites que je suis au stade de Mouvement Spirituel? »
+Wang Lin hésita, confus, et demanda: « Senior, qu'est-ce que le stade de Transformation de l'Âme? Et que vouliez-vous dire par là, quand vous dites que je suis au stade de Mouvement Spirituel? »
 
 « Ne peux-tu pas réfléchir par toi-même? Toujours à poser des questions sur tout. Laisse tomber! Pour un petit cultivateur d'un pays de rang 3, même si tu te creusais la cervelle jusqu'à l'explosion, tu ne comprendrais rien. Humph. Écoute bien, gamin: je parle du niveau de culture d'un pays de rang 5. Dans un pays de rang 3 comme le tien, il n'existe que quatre royaumes: Condensation de Qi, Établissement des Fondations, Formation du Noyau et Âme Naissante. Quant au stade de Formation de l'Âme, ce ne serait pour toi qu'une légende. »
 

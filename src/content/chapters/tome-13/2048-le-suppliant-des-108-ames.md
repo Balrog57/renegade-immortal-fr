@@ -70,7 +70,7 @@ Il les voyait, mais ils ne pouvaient ressentir son existence. Lorsque Wang Lin s
 
 Il vit Hai Zi... Il vit Lian Daofei, qui s'était transformé en une montagne sous le palais.
 
-Au sommet du Mont Empereur, le visage de Jiu Di devint livide; puis il s'élança dans le ciel et s'inclina. « Le cadet Zhou Luojiu salue l'Aîné. Si l'Aîné a la moindre requête, le cadet obéira à ses ordres! »
+Au sommet du Mont Empereur, le visage de Jiu Di devint livide; puis il s'élança dans le ciel et s'inclina. « Le junior Zhou Luojiu salue l'Aîné. Si l'Aîné a la moindre requête, le junior obéira à ses ordres! »
 
 Depuis qu'il était devenu un Grand Empereur, il ne s'était jamais incliné ainsi devant quiconque. Pourtant, en cet instant, envahi par la peur, il s'inclina respectueusement vers les cieux.
 
