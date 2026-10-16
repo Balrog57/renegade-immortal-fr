@@ -20,7 +20,7 @@ Alors que ses paroles résonnaient, une lueur étrange brilla dans ses yeux et i
 
 Wang Lin ferma les yeux et concentra son esprit sur la fusion. Sous l'effet du sort du Dao, d'innombrables démons fusionnaient entre eux. Le temps s'écoulait lentement, et en un clin d'œil, sept jours s'étaient écoulés.
 
-Durant ces sept jours, Wang Lin utilisa continuellement le sort du Dao sans accorder le moindre répit à lui-même. Ce jour-là, les âmes s'étaient fusionnées pour former une sphère qui émettait une lueur spectrale. Cette lumière devint de plus plus intense jusqu'à illuminer l'intégralité de la grotte.
+Durant ces sept jours, Wang Lin utilisa continuellement le sort du Dao sans accorder le moindre répit à lui-même. Ce jour-là, les âmes s'étaient fusionnées pour former une sphère qui émettait une lueur spectrale. Cette lumière devint de plus en plus intense jusqu'à illuminer l'intégralité de la grotte.
 
 Une aura violente émanait de la sphère et, simultanément, un rugissement semblable au cri de milliers de démons fusionnés retentit.
 

@@ -34,7 +34,7 @@ Elle dégageait une aura antique, profondément marquée par le passage du temps
 
 C'était une catapulte géante! Une immense boule de feu reposait dans l'engin. Cette flamme n'avait aucune couleur et demeurait invisible, mais on pouvait en ressentir une chaleur inimaginable.
 
-Dans un fracas assourdissant, la catapulte projeta la boule de feu droit sur Tuo Sen. Si une seule boule de feu n'aurait été qu'un contretemps, presque immédiatement après le premier tir, la formation en forgea une autre, et la catapulte se mit à en lancer sans relâche!
+Dans un fracas assourdissant, la catapulte projeta la boule de feu droit sur Tuo Sen. Une seule boule de feu n'aurait été qu'un contretemps, mais presque immédiatement après le premier tir, la formation en forgea une autre, et la catapulte se mit à en lancer sans relâche!
 
 Au cours des éons, alors que les mortels tentaient de briser la formation de scellement, un nombre inimaginable de personnes y avaient péri!
 

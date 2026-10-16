@@ -12,11 +12,11 @@ La voix de l'Ancien Maître Impérial du Dao était féroce lorsqu'il rugit: « 
 
 Les yeux de l'avatar de massacre aux cheveux noirs s'illuminèrent et sa main droite s'immobilisa. Le gaz noir continuait de circuler le long de sa main, offrant un spectacle terrifiant.
 
-« Vous possédez le sang de l'âme du Clan Céleste, qui détient le pouvoir de la création, mais même si vous intégrez cette goutte entière dans le corps de Li Muwan, cela ne lui permettra pas d'entrer en toute sécurité dans le Royaume Divin Immemorial. »
+« Vous possédez le sang de l'âme du Clan Céleste, qui détient le pouvoir de la création, mais même si vous intégrez cette goutte entière dans le corps de Li Muwan, cela ne lui permettra pas d'entrer en toute sécurité dans le Royaume Divin Immémorial. »
 
-« Le Royaume Divin Immemorial est la terre sainte suprême du Continent Astral Immortel. Les cultivateurs ordinaires ne peuvent y pénétrer; ils ont besoin soit d'une culture puissante, soit d'un corps surpuissant. »
+« Le Royaume Divin Immémorial est la terre sainte suprême du Continent Astral Immortel. Les cultivateurs ordinaires ne peuvent y pénétrer; ils ont besoin soit d'une culture puissante, soit d'un corps surpuissant. »
 
-« Cette fois, le Royaume Divin Immemorial s'ouvrira complètement. Ce sera radicalement différent des précédentes ouvertures. Si vous voulez y entrer avec Li Muwan, vous devez rendre son corps indestructible afin qu'il puisse être transporté là-bas. Ensuite, utilisez le pouvoir de la réincarnation pour trouver son véritable moi et l'extraire du cycle de la réincarnation pour en faire une existence immortelle! » déclara l'Omniscient rapidement avant de recracher deux autres bouffées de sang.
+« Cette fois, le Royaume Divin Immémorial s'ouvrira complètement. Ce sera radicalement différent des précédentes ouvertures. Si vous voulez y entrer avec Li Muwan, vous devez rendre son corps indestructible afin qu'il puisse être transporté là-bas. Ensuite, utilisez le pouvoir de la réincarnation pour trouver son véritable moi et l'extraire du cycle de la réincarnation pour en faire une existence immortelle! » déclara l'Omniscient rapidement avant de recracher deux autres bouffées de sang.
 
 Son sang, semblable à une brume, pénétra dans la formation. Deux autres masses d'âmes de morts, issues des victimes de Wang Lin, formèrent deux sphères de gaz noir et s'élancèrent vers le ciel.
 
@@ -34,7 +34,7 @@ Cependant, une vague gigantesque surgit alors de sa Mer de la Mort. Cette vague 
 
 Alors que ce pilier s'élevait dans les cieux, un autre pilier immense jaillit également de la mer, à la frontière entre l'Ancien Dao et l'Ancien Shi. Des ondulations massives se propagèrent dans toutes les directions, attirant l'attention de tous ceux qui purent le voir. Pourtant, hormis quelques rares individus, nul ne savait ce qui se tramait.
 
-« Toutes les réponses que vous cherchez se trouvent dans le Royaume Divin Immemorial. Une fois sur place, vous saurez! » À l'intérieur de la formation, l'Ancien Maître Impérial du Dao essuya le sang au coin de sa bouche.
+« Toutes les réponses que vous cherchez se trouvent dans le Royaume Divin Immémorial. Une fois sur place, vous saurez! » À l'intérieur de la formation, l'Ancien Maître Impérial du Dao essuya le sang au coin de sa bouche.
 
 Le regard de l'avatar de massacre aux cheveux noirs se posa sur l'Ancien Maître Impérial du Dao.
 
@@ -52,7 +52,7 @@ L'Ancien Maître Impérial du Dao serra les dents et demanda soudain: « Posséd
 
 « Vous les avez bel et bien obtenus! » En voyant cela, l'Ancien Maître Impérial du Dao retrouva une certaine vigueur.
 
-Voyant l'avatar de massacre s'agiter, il pressa: « Une fois entré dans le Royaume Divin Immemorial, avec ces cheveux pour guide et ce crâne pour éclairer votre voie, vous découvrirez la vérité! Si vous détruisez cette formation, mon plan échouera, mais vous ne connaîtrez jamais la vérité. Un jour, vous finirez par le regretter! »
+Voyant l'avatar de massacre s'agiter, il pressa: « Une fois entré dans le Royaume Divin Immémorial, avec ces cheveux pour guide et ce crâne pour éclairer votre voie, vous découvrirez la vérité! Si vous détruisez cette formation, mon plan échouera, mais vous ne connaîtrez jamais la vérité. Un jour, vous finirez par le regretter! »
 
 Les événements du jour dépassaient ses espérances. Il avait pensé que Wang Lin ne pourrait jamais pénétrer dans cet espace. Il n'avait jamais imaginé que Wang Lin posséderait la puissance nécessaire pour briser les frontières de la réalité!
 
@@ -64,7 +64,7 @@ Le Massacre aux cheveux noirs déclara lentement: « Intéressant. Je peux épar
 
 L'expression de l'Ancien Maître Impérial du Dao changea et il sembla hésiter, mais il vit immédiatement Wang Lin lever la main pour briser la formation.
 
-« Parce que le Royaume Divin Immemorial a... » Le vieil homme serra les dents, mais au moment même où il allait parler, son corps trembla. Il poussa un cri misérable tandis que son être commençait à se dissiper.
+« Parce que le Royaume Divin Immémorial a... » Le vieil homme serra les dents, mais au moment même où il allait parler, son corps trembla. Il poussa un cri misérable tandis que son être commençait à se dissiper.
 
 « C'est... c'est la loi du royaume! Je ne peux pas le dire! Si je prononçais ces mots, je mourrais! » Le visage de l'Ancien Maître Impérial du Dao devint instantanément livide.
 
@@ -80,7 +80,7 @@ Le Massacre réfléchit en silence. À l'extérieur, le regard de Wang Lin étai
 
 Pourtant, cette affaire concernait Li Muwan. En ce qui la touchait, Wang Lin savait que l'Ancien Maître Impérial du Dao ne mentait pas. Le sang de l'âme pouvait l'éveiller temporairement, mais elle ne pourrait jamais s'affranchir de la réincarnation et finirait inévitablement par mourir.
 
-S'il voulait transcender le cycle des réincarnations, il lui faudrait peut-être réellement se rendre dans le Royaume Divin Immemorial.
+S'il voulait transcender le cycle des réincarnations, il lui faudrait peut-être réellement se rendre dans le Royaume Divin Immémorial.
 
 Fixant le vieil homme, Wang Lin ferma les yeux. À cet instant, le Massacre retira sa main droite. Le gaz noir autour de lui se condensa sans plus se propager.
 
@@ -106,9 +106,9 @@ Le ciel s'obscurcit à nouveau et, neuf respirations plus tard, les ténèbres s
 
 Tandis que le monde oscillait entre l'ombre et la lumière, le Continent Astral Immortel commença à trembler. Des vagues titanesques s'élevèrent dans la vaste mer, provoquant des grondements capables de déchirer les cieux.
 
-Wang Lin percevait vaguement tout ce qui se produisait par-delà l'océan. Un phénomène capable d'affecter l'intégralité du Continent Astral Immortel ne pouvait être causé que par le légendaire Royaume Divin Immemorial, celui-là même capable de transformer un être en Grand Empereur!
+Wang Lin percevait vaguement tout ce qui se produisait par-delà l'océan. Un phénomène capable d'affecter l'intégralité du Continent Astral Immortel ne pouvait être causé que par le légendaire Royaume Divin Immémorial, celui-là même capable de transformer un être en Grand Empyréen!
 
-« Le Royaume Divin Immemorial... » murmura Wang Lin. Il avait entendu parler de ce lieu depuis longtemps, mais c'était la première fois qu'il assistait à son ouverture.
+« Le Royaume Divin Immémorial... » murmura Wang Lin. Il avait entendu parler de ce lieu depuis longtemps, mais c'était la première fois qu'il assistait à son ouverture.
 
 C'était la cinquième fois que le ciel devenait noir; après neuf respirations, la lumière du jour revint. Wang Lin leva les yeux et vit qu'il ne restait plus que trois vortex!
 

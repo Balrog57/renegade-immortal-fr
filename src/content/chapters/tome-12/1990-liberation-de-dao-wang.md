@@ -8,7 +8,7 @@ slug: liberation-de-dao-wang
 ---
 Le palais interdit de la Cité Ancestrale!
 
-Un gouffre gigantesque s'était ouvert dans le ciel, d'où émanait une lueur diffuse. Une tête de trente mètres flottait entre les huit montagnes en contrebas, immobile dans les airs.
+Un gouffre gigantesque s'était ouvert dans le ciel, d'où émanait une lueur diffuse. Une tête de cent pieds flottait entre les huit montagnes en contrebas, immobile dans les airs.
 
 Cependant, son œil droit était ouvert et contenait un éclat de lumière. Bien que l'œil fût encore trouble, cette lueur tournait rapidement comme un vortex à l'intérieur du regard du Céleste Ancêtre.
 

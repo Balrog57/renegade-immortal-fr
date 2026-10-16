@@ -32,11 +32,11 @@ Le départ de Li Qianmei et l'étalage de ses cheveux bleus révélèrent son id
 
 Elle n'était pas obligée de le faire, mais elle l'avait fait.
 
-Le génie de la Secte Ciel Brisant de rang 9, Li Qianmei, s'était assise aux côtés de Wang Lin et avait même reçu une peinture de sa part. Ce geste fut vu par tous les cultivateurs environnants.
+Le génie de la Secte Brise-Ciel de rang 9, Li Qianmei, s'était assise aux côtés de Wang Lin et avait même reçu une peinture de sa part. Ce geste fut vu par tous les cultivateurs environnants.
 
-Li Qianmei avait utilisé cette méthode pour apporter la réponse à la question de savoir si Wang Lin était un membre de la Secte Divin.
+Li Qianmei avait utilisé cette méthode pour apporter la réponse à la question de savoir si Wang Lin était un membre de la Secte Divine.
 
-L'enchère se poursuivit, mais le regard des cultivateurs envers Wang Lin changea. Auparavant, beaucoup doutaient de son appartenance à la Secte Divin; des doutes subsistaient, bien que soigneusement dissimulés.
+L'enchère se poursuivit, mais le regard des cultivateurs envers Wang Lin changea. Auparavant, beaucoup doutaient de son appartenance à la Secte Divine; des doutes subsistaient, bien que soigneusement dissimulés.
 
 Cependant, la majorité de ces doutes furent dissipés par le départ de Li Qianmei.
 
@@ -62,7 +62,7 @@ L'expression de Wang Lin resta neutre tandis que sa main droite traçait un scea
 
 Cette aura antique portait les traces du temps. Cela poussa immédiatement les cultivateurs environnants à devenir sérieux.
 
-Les cultivateurs au stade de la Briseur du Nirvana ne furent pas déstabilisés. En revanche, les cultivateurs au stade du Voyant et du Purificateur du Nirvana fixèrent intensément la pierre et commencèrent à réfléchir.
+Les cultivateurs au stade du Briseur du Nirvana ne furent pas déstabilisés. En revanche, les cultivateurs au stade du Scruteur et du Purificateur du Nirvana fixèrent intensément la pierre et commencèrent à réfléchir.
 
 « Une âme de montagne! » La belle femme qui connaissait Wang Lin fut surprise. Elle observa attentivement la pierre avant de secouer la tête: « Hélas, elle est brisée. »
 
@@ -136,4 +136,4 @@ Le jeune homme en jaune fronça les sourcils: « 18 000 cristaux d'origine! »
 
 « 3... 30 000 cristaux d'origine! » La sueur perla sur le front d'Ouyang Long.
 
-« Tu n'es qu'un membre de la secte Treasured Jade de rang 5; d'où sors-tu autant de cristaux d'origine?! » Le jeune homme en jaune se leva et foudroya Ouyang Long du regard. Une intention meurtrière brilla dans ses yeux, avant qu'il ne reconnaisse l'identité de son adversaire.
+« Tu n'es qu'un membre de la Secte du Jade Précieux de rang 5; d'où sors-tu autant de cristaux d'origine?! » Le jeune homme en jaune se leva et foudroya Ouyang Long du regard. Une intention meurtrière brilla dans ses yeux, avant qu'il ne reconnaisse l'identité de son adversaire.

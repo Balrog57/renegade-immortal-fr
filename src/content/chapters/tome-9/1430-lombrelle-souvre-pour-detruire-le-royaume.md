@@ -102,6 +102,8 @@ L'air expulsé par l'Oiseau Vermillon retomba sur la terre, provoquant d'innombr
 
 Voyant que la terre était sur le point de se désintégrer, le Souverain cracha un flot de sang. Le sang se changea en brume sanguine et propulsa la terre vers le ciel. Après avoir absorbé le sang, la terre cessa de se désintégrer et chargea vers les cieux avec un élan indescriptible!
 
+Des grondements tonitruants retentirent. La grande terre, couverte d'innombrables fissures, fonça directement dans la mer de feu du ciel. Elle recouvrit toute la mer de feu et scella le vortex géant par lequel l'esprit originel de l'Oiseau Vermillon était arrivé!
+
 Le monde trembla et fut déchiré alors que l'onde de choc se propageait, provoquant une désintégration frénétique de tout ce qui l'entourait. Le Souverain toussa du sang, son visage devenant encore plus pâle. Il se retourna vers Wang Lin avec une expression féroce avant de lever le pied!
 
 Wang Lin fut frappé par cette onde de choc et du sang jaillit du coin de sa bouche, mais ses mains bougeaient de plus en plus vite. Il luttait pour continuer à former les sceaux; il y avait désormais plus d'un million de sceaux autour de lui.
@@ -116,9 +118,9 @@ Des grondements emplirent l'air tandis que l'esprit de bois tremblait. La paume 
 
 À cet instant, le neuvième souffle arriva et la main droite de Wang Lin acheva le dernier sceau. Ses mains étaient ensanglantées et presque incapables de bouger après avoir terminé ce dernier geste.
 
-Près de deux millions de sceaux entouraient le corps de Wang Lin. Une fois terminés, ils formèrent une tempête de feu et fusionnèrent avec l'armature d'os pour créer une gigantesque Ombrelle Antique Brûlant les Royaumes!!
+Près de deux millions de sceaux entouraient le corps de Wang Lin. Une fois terminés, ils formèrent une tempête de feu et fusionnèrent avec l'armature d'os pour créer une gigantesque Ombrelle Brûlante du Royaume!!
 
-« Ombrelle Antique Brûlant les Royaumes!! » Les yeux de Wang Lin étaient injectés de sang. Il utilisa le sort le plus puissant du clan de l'Oiseau Vermillon au moment précis où l'empreinte de la paume allait le frapper!
+« Ombrelle Brûlante du Royaume!! » Les yeux de Wang Lin étaient injectés de sang. Il utilisa le sort le plus puissant du clan de l'Oiseau Vermillon au moment précis où l'empreinte de la paume allait le frapper!
 
 Bien qu'il ne l'ait appris que récemment, il était l'Oiseau Vermillon et avait pratiqué les restrictions pendant longtemps; il possédait donc des méthodes pour créer des sceaux rapidement. Cependant, sa compréhension étant encore limitée, sa puissance était manifestement inférieure à la perfection. Pourtant, pour un tel sort, même une puissance moindre restait capable de bouleverser le ciel!
 

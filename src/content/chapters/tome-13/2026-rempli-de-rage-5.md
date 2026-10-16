@@ -76,7 +76,7 @@ Mais désormais...
 
 Wang Lin ouvrit les yeux, et la folie qui y brillait s'intensifia. Une intention meurtrière monstrueuse explosa.
 
-« Si vous refusez... alors vous n'avez qu'à mourir!! » Wang Lin poussa un rugissement et fit un pas en avant. Dès qu'il leva le pied, tous les membres du Dao Ancien se précipitèrent vers lui, bien qu'ils sûtent qu'ils ne faisaient pas le poids. Sous les ordres de l'Empereur du Dao Ancien, ils chargèrent, portés par une soif de sang dévorante!
+« Si vous refusez... alors vous n'avez qu'à mourir!! » Wang Lin poussa un rugissement et fit un pas en avant. Dès qu'il leva le pied, tous les membres du Dao Ancien se précipitèrent vers lui, bien qu'ils sussent qu'ils ne faisaient pas le poids. Sous les ordres de l'Empereur du Dao Ancien, ils chargèrent, portés par une soif de sang dévorante!
 
 Au sein du Clan Ancien, le pouvoir impérial était absolu et la parole de l'Empereur du Dao Ancien faisait loi. À leurs yeux, Wang Lin trahissait le clan et devait périr!
 

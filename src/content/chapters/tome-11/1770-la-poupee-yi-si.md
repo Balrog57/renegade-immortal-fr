@@ -10,15 +10,15 @@ slug: la-poupee-yi-si
 
 Wang Lin comprenait qu'il y avait de nombreuses choses étranges dans ce brouillard; il avait d'ailleurs déjà aperçu la plupart des bêtes féroces de cet endroit. Il modifia sa vitesse pour éviter les créatures à proximité et se dirigea vers l'avant-dernière couche.
 
-C'était précisément dans cette avant-dernière couche que Wang Lin avait ressenti cette aura terrifiante. Cependant, plus il y pensait, plus il était convaincu que cette aura était l'atout le plus puissant de l'Empereur Céleste aux Sept Couleurs!
+C'était précisément dans cette avant-dernière couche que Wang Lin avait ressenti cette aura terrifiante. Cependant, plus il y pensait, plus il était convaincu que cette aura était l'atout le plus puissant du Souverain Céleste aux Sept Couleurs!
 
 La Poupée Yi Si!
 
-Une fois qu'il serait entré au cœur de la grotte, il les sacrifierait en suivant la méthode laissée par l'Empereur Céleste aux Sept Couleurs. Après chaque sacrifice, il sentirait son lien avec elle se renforcer.
+Une fois qu'il serait entré au cœur de la grotte, il les sacrifierait en suivant la méthode laissée par le Souverain Céleste aux Sept Couleurs. Après chaque sacrifice, il sentirait son lien avec elle se renforcer.
 
 Il avait tué beaucoup de gens à ce stade et, grâce à cette connexion mystérieuse, Wang Lin était sûr à 80 % que cette aura terrifiante appartenait à Yi Si!
 
-« Le but de la Tombe Antique est probablement de nourrir la poupée. Après avoir tué Ye Mo, l'Empereur Céleste aux Sept Couleurs s'est servi de lui pour achever cette poupée. » Les yeux de Wang Lin brillèrent. Grâce aux souvenirs de la troisième âme, il avait deviné la majeure partie de la vérité.
+« Le but de la Tombe Antique est probablement de nourrir la poupée. Après avoir tué Ye Mo, le Souverain Céleste aux Sept Couleurs s'est servi de lui pour achever cette poupée. » Les yeux de Wang Lin brillèrent. Grâce aux souvenirs de la troisième âme, il avait deviné la majeure partie de la vérité.
 
 À mesure qu'il avançait, le brouillard s'éclaircissait progressivement. Il se dirigeait vers l'entrée de la couche suivante. En approchant, la brume devint si fine qu'elle ne pouvait plus obstruer sa vue, révélant une terre noire sous ses pieds.
 
@@ -32,7 +32,7 @@ Son regard balaya la végétation au sol, empreint de méfiance. Il était trop 
 
 D'après ses souvenirs, la carte indiquait que l'entrée n'était pas loin.
 
-Après le temps nécessaire pour brûler une demi-demi-encens, le paysage changea. À plus de 100 000 pieds de là se trouvait une zone dégagée de 10 000 pieds, dépourvue de toute végétation. Un ancien réseau de transfert était édifié en son centre.
+Après le temps nécessaire pour brûler un demi-bâton d'encens, le paysage changea. À plus de 100 000 pieds de là se trouvait une zone dégagée de 10 000 pieds, dépourvue de toute végétation. Un ancien réseau de transfert était édifié en son centre.
 
 Cette formation existait depuis une éternité et était toujours opérationnelle. Bien que silencieuse, elle laissait échapper des éclats de lumière fantomatique qui dégageaient un sentiment de puissance immense.
 

@@ -18,7 +18,7 @@ Ce jour-là, quatre rayons de lumière traversèrent le ciel, et le vieil homme 
 
 Wang Lin atterrit sur le sol et observa la fosse profonde ainsi que le vieil homme qui dévorait des yeux Ta Shan. Après une courte réflexion, il dit lentement: « Cela fait longtemps, Senior Yun Quezi. »
 
-Le vieil homme était Yun Quezi, et ses yeux étaient empreints de choc. Il détourna son regard de Ta Shan, une tempête s'emparant de son cœur. Il fixa Wang Lin et dit d'un ton amer: « Je n'ai commencé la culture qu'après toi, nul besoin de m'appeler "senior". Compagnon cultivateur Wang Lin, est-il un membre de mon Clan des Immortels Délaissés? »
+Le vieil homme était Yun Quezi, et ses yeux étaient empreints de choc. Il détourna son regard de Ta Shan, une tempête s'emparant de son cœur. Il fixa Wang Lin et dit d'un ton amer: « Je n'ai commencé la culture qu'après toi, nul besoin de m'appeler "Senior". Compagnon cultivateur Wang Lin, est-il un membre de mon Clan des Immortels Délaissés? »
 
 Yun Quezi pointa Ta Shan du doigt.
 
@@ -98,7 +98,7 @@ Il s'agissait du talisman jaune que le membre de la famille Yao avait sorti lors
 
 Aujourd'hui encore, Wang Lin se souvenait parfaitement de cet événement. Il possédait toujours un autre talisman sur lui.
 
-Après une courte réflexion, Wang Lin dit calmement: « Gros Tête, utilise toute ta puissance et déploie ton sort céleste le plus puissant sur la mare! »
+Après une courte réflexion, Wang Lin dit calmement: « Da Tou, utilise toute ta puissance et déploie ton sort céleste le plus puissant sur la mare! »
 
 Le garçon à la grosse tête ne perdit pas de temps. L'énergie originelle céleste en lui se mit en mouvement. Une tempête d'énergie jaillit de son corps, créant une pression colossale.
 

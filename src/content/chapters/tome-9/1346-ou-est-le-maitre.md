@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1346 - Where is Master
 slug: ou-est-le-maitre
 ---
-À cet instant précis, un bouleversement choquant survint sur l'une des seize planètes du Clan de la Foudre Éparpillée, toutes ceintes par un tonnerre incessant.
+À cet instant précis, un bouleversement choquant survint sur l'une des seize planètes du Clan du Tonnerre Dispersé, toutes ceintes par un tonnerre incessant.
 
 Xu Liguo s'était métamorphosé en une brume noire et fuyait à toute allure. Il tenait une femme magnifique dont le visage affichait un rictus méprisant. Son propre visage était empreint de panique et de malice tandis qu'il poussait des rugissements continus.
 
@@ -16,7 +16,7 @@ Xu Liguo émergea de la brume, lui asséna une gifle et hurla avec colère: « F
 
 Une intention meurtrière traversa le regard de la magnifique femme; elle laissa échapper un ricanement glacial et cracha une bouchée de sang.
 
-À cet instant, le ciel gronda dans un fracas assourdissant. Les grondements incessants se propagèrent à travers les cieux, faisant trembler toutes les créatures. Même les membres du Clan de la Foudre Éparpillée, tapis dans leurs grottes, étaient terrifiés!
+À cet instant, le ciel gronda dans un fracas assourdissant. Les grondements incessants se propagèrent à travers les cieux, faisant trembler toutes les créatures. Même les membres du Clan du Tonnerre Dispersé, tapis dans leurs grottes, étaient terrifiés!
 
 Le ciel tout entier s'était obscurci, mais en un instant, d'innombrables serpents argentés remplirent l'éther. C'était comme si la fin du monde était arrivée!
 
@@ -70,7 +70,7 @@ La haine dans les yeux de la femme devint monstrueuse et elle hurla: « Je vais 
 
 « Maître, si vous ne revenez pas, votre Grand-père Xu est fini!! C'est vous qui m'avez laissé sortir, mais maintenant vous m'ignorez!!! Maître, je vous en prie, apparaissez!! »
 
-En entendant ces paroles, le visage de la femme pâlit. Elle se tut immédiatement, n'osant plus pronter le moindre son.
+En entendant ces paroles, le visage de la femme pâlit. Elle se tut immédiatement, n'osant plus proférer le moindre son.
 
 Le vieil homme en vert qui le poursuivait avait entendu les derniers mots de Xu Liguo. Ils emplirent son corps d'une rage telle qu'il faillit recracher son sang. Il décida simplement de poursuivre sa traque sans dire un mot.
 

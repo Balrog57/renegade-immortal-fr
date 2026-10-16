@@ -14,7 +14,7 @@ L'inimaginable énergie d'origine du feu balayait son corps comme une tempête. 
 
 Une douleur intense le déchirait. Son corps était tel un récipient devant supporter neuf fois sa capacité normale; on pouvait imaginer l'atrocité de la souffrance.
 
-Les Neuf Mystiques Transformations du Oiseau Vermillon s'accomplissent en empruntant neuf vies de culture et en les compressant continuellement jusqu'à forcer l'éveillé à subir la première Transformation du Oiseau Vermillon!
+Les Neuf Transformations Mystérieuses du Oiseau Vermillon s'accomplissent en empruntant neuf vies de culture et en les compressant continuellement jusqu'à forcer l'éveillé à subir la première Transformation du Oiseau Vermillon!
 
 La douleur cuisante fit saillir les veines de son visage. Le simple afflux de deux fois son énergie d'origine lui donnait presque l'impression que ses méridiens allaient exploser.
 
@@ -26,7 +26,7 @@ Une brume de sang jaillit de ses pores et l'enveloppa. Pourtant, dès que cette 
 
 Trois vies d'énergie d'origine pénétrèrent dans son corps, et la sensation que celui-ci allait exploser devint encore plus pressante. Le corps de Wang Lin trembla alors qu'il lâchait un rugissement vers le ciel.
 
-Roar!
+Rugissement!
 
 Tandis qu'il rugissait, une lueur écarlate émana de lui et une armure cramoisie se matérialisa autour de son corps.
 

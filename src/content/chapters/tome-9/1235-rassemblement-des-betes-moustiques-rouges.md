@@ -78,7 +78,7 @@ Il disposait désormais de près de 300 moustiques de niveau Scruteur du Nirvana
 
 « 300, c'est encore bien trop peu. Il m'en faut davantage! Si j'avais 1 000 de ces bêtes rouges de niveau Scruteur du Nirvana, même les cultivateurs du stade Briseur du Nirvana fuiraient devant moi! Et si je pouvais en obtenir 10 000... même les puissants du stade avancé du Briseur du Nirvana resteraient à distance! »
 
-« Si j'en avais 100 000, peu importe qu'ils soient au stade Fléau des Cieuxs! Si j'en avais un million, dix millions... » Wang Lin attendait ce moment depuis très longtemps.
+« Si j'en avais 100 000, peu importe qu'ils soient au stade Fléau Céleste! Si j'en avais un million, dix millions... » Wang Lin attendait ce moment depuis très longtemps.
 
 Il prit une profonde inspiration et s'élança dans les lointains avec ses 300 moustiques. Le battement de leurs ailes provoquait un grondement tonitruant qui résonnait à travers le monde, dégageant une pression colossale.
 

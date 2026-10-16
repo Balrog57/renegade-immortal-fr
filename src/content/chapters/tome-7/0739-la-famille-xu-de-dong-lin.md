@@ -106,6 +106,6 @@ Il était évident pour quiconque que le corps de la garde céleste tremblait l�
 
 Le jeune homme, qui s'était approché avec une intention meurtrière, fondit vers le sol tel une météorite et s'écrasa dans un fracas assourdissant. Un lotus noir illusoire, émettant une puissante flamme démoniaque, apparut au-dessus de lui.
 
-« En cinq mille ans, tu es le premier à me... »
+« En cinq mille ans, tu es le premier à me, Xu Fenghan... »
 
 Cependant, avant qu'il ne puisse achever sa phrase, une explosion sourde retentit de l'intérieur de la brume formée par l'âme de la montagne. Un écho puissant se fit entendre alors que la brume se dissipait et que le fil retournait à la montagne céleste. La lance à l'intérieur avait perdu sa puissance et s'était évaporée, laissant la pluie retomber sur la terre.

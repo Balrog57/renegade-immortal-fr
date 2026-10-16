@@ -28,7 +28,7 @@ En un instant, une énergie glaciale infinie se propagea follement depuis sa mai
 
 À cet instant, un froid puissant enveloppa Maître Yan Leizi. Ce froid était imprégné de Loi et, en un clin d'œil, il forma des couches de glace qui emprisonnèrent le maître des flammes à l'intérieur.
 
-C'est alors que le rugissement du Serpent Observateur de la Lune résonna à travers les étoiles. Son cri secoua le monde, semblant faire vaciller la réalité sous les yeux de tous.
+C'est alors que le rugissement du Serpent aux yeux de lune résonna à travers les étoiles. Son cri secoua le monde, semblant faire vaciller la réalité sous les yeux de tous.
 
 Cette scène fit changer les expressions de ceux qui se trouvaient du côté de l'Alliance!
 
@@ -38,7 +38,7 @@ Ji Xiantian laissa échapper un froid renâclant et ses yeux brillèrent. Au lie
 
 À cet instant, une force destructrice s'engouffra dans la glace. Cette puissance s'accumula mystérieusement pour charger vers Maître Yan Leizi.
 
-Pourtant, à l'intérieur de la glace, les yeux de Maître Yan Leizi laissèrent transparaître un éclat froid et il esquissa un sourire. La culture qu'il avait dissimulée commença à déferler comme une folie, passant du stade tardif du Brise-Nirvana à un niveau phénoménal.
+Pourtant, à l'intérieur de la glace, les yeux de Maître Yan Leizi laissèrent transparaître un éclat froid et il esquissa un sourire. La culture qu'il avait dissimulée commença à déferler comme une folie, passant du stade tardif du Briseur du Nirvana à un niveau phénoménal.
 
 « Tu... Tu as percé le niveau!!! » L'expression de Ji Xiantian changea radicalement et il s'apprêta à reculer sans délai.
 
@@ -54,17 +54,17 @@ Les fragments célestes tremblèrent et tournèrent dix fois plus vite qu'aupara
 
 La tempête générée par les fragments en rotation rugit, et le visage de Ji Xiantian s'assombrit. Il poussa sa main vers l'extérieur pour rassembler une masse d'énergie originelle afin de s'en extraire, mais Maître Yan Leizi s'avança et des flammes immenses jaillirent de son corps. Il pointa du doigt et les flammes s'élancèrent, enveloppant la tempête. Certaines flammes fusionnèrent avec le tourbillon, lui donnant l'apparence d'un dragon de feu!
 
-À ce moment précis, au loin, le Serpent Observateur de la Lune arriva comme par téléportation. Il paraissait extrêmement féroce avec ses innombrables tentacules!
+À ce moment précis, au loin, le Serpent aux yeux de lune arriva comme par téléportation. Il paraissait extrêmement féroce avec ses innombrables tentacules!
 
 Des rugissements éclatèrent. Pendant un instant, les deux camps cessèrent leurs attaques et reculèrent, fixant la scène devant eux avec stupeur.
 
-Le Saint Démon Noir ne jeta qu'un regard au Serpent Observateur de la Lune avant de sentir son cuir chevelu s'engourdir; il esquissa un sourire amer et se retira prestement. Quant au Saint Démon du Dragon des Nuages, il afficha une expression d'incrédulité.
+Le Saint Démon Noir ne jeta qu'un regard au Serpent aux yeux de lune avant de sentir son cuir chevelu s'engourdir; il esquissa un sourire amer et se retira prestement. Quant au Saint Démon du Dragon des Nuages, il afficha une expression d'incrédulité.
 
 Ji Xiantian fut stupéfait. Son énergie originelle déferla tandis qu'il tentait de s'échapper de ce siège. Cependant, comment Maître Yan Leizi pouvait-il le laisser faire? Les bras de Maître Yan Leizi se tendirent et il injecta davantage d'énergie originelle dans les flammes pour maintenir Ji Xiantian prisonnier.
 
-Dans les étoiles lointaines, ce qui suivit immédiatement le Serpent Observateur de la Lune fut le bois géant. D'une taille colossale, il changea soudainement de direction pour foncer vers Maître Yan Leizi et droit sur Ji Xiantian.
+Dans les étoiles lointaines, ce qui suivit immédiatement le Serpent aux yeux de lune fut le bois géant. D'une taille colossale, il changea soudainement de direction pour foncer vers Maître Yan Leizi et droit sur Ji Xiantian.
 
-Le bois géant n'était pas encore arrivé que une force étrange enveloppa le monde. Des grondements infinis en émanèrent et sa vitesse s'accrut encore!
+Le bois géant n'était pas encore arrivé qu'une force étrange enveloppa le monde. Des grondements infinis en émanèrent et sa vitesse s'accrut encore!
 
 Les pupilles de Ji Xiantian se rétractèrent. Il n'avait aucun moyen de s'échapper rapidement. En cette situation critique, ses deux mains formèrent un sceau et il pointa son propre corps. À chaque geste, un vortex bleu apparaissait. En un instant, treize vortex d'un bleu océanique apparurent autour de lui.
 
@@ -124,6 +124,6 @@ Un grondement tonitruant retentit lors de l'explosion des quatre couches. L'impa
 
 Même Maître Yan Leizi hésita un instant avant de pousser un soupir et de battre en retraite. Bien qu'il fût capable de tuer Ji Xiantian, il en sortirait blessé, ce qui constituerait un grand désavantage dans le Système Stellaire de l'Alliance!
 
-Après avoir repoussé les trois puissants cultivateurs, le visage de Ji Xiantian était livide et il cracha une large traînée de sang. Il avait utilisé l'explosion de son intention bleue pour s'échapper et hurla: « Maître Yan Leizi, si ce vieil homme ne se venge pas, alors je ne suis plus un homme! » Derrière lui, le Serpent Observateur de la Lune approchait. Il tendit la main vers le vide et des fissures apparurent. À cet instant, il se moquait d'être perdu dans les failles; il s'apprêtait à s'y engouffrer.
+Après avoir repoussé les trois puissants cultivateurs, le visage de Ji Xiantian était livide et il cracha une large traînée de sang. Il avait utilisé l'explosion de son intention bleue pour s'échapper et hurla: « Maître Yan Leizi, si ce vieil homme ne se venge pas, alors je ne suis plus un homme! » Derrière lui, le Serpent aux yeux de lune approchait. Il tendit la main vers le vide et des fissures apparurent. À cet instant, il se moquait d'être perdu dans les failles; il s'apprêtait à s'y engouffrer.
 
 À ce moment-là, Wang Lin se tenait sur le bois géant. Bien qu'un peu éloigné, il fut tout de même affecté par l'impact, qui rendit l'énergie originelle de son corps instable. Il regarda Ji Xiantian s'éloigner à toute vitesse, puis fixa Maître Yan Leizi. Serrant les dents, il pointa le doigt vers l'avant et cria: « Arrêtez! »

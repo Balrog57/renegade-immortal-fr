@@ -40,7 +40,7 @@ Quant à l'Empereur Céleste siégeant sur le trône de dragon, il était identi
 
 Tout dans cet univers devait s'agenouiller sous son regard.
 
-« Peu importe, tu es le premier des Ascendants Empyréens, et ce esclave a manqué de respect à ton égard. Je ne ferai pas de cette affaire un obstacle. Xuan Dao, préside la cérémonie de titre », déclara l'Empereur Céleste depuis le trône.
+« Peu importe, tu es le premier des Ascendants Empyréens, et cet esclave a manqué de respect à ton égard. Je ne ferai pas de cette affaire un obstacle. Xuan Dao, préside la cérémonie de titre », déclara l'Empereur Céleste depuis le trône.
 
 « Bien », répondit le jeune homme aux vêtements grossiers en s'inclinant légèrement avant de marcher vers l'intérieur du temple.
 
@@ -50,7 +50,7 @@ En passant devant Wang Lin, le jeune homme sourit et lui adressa un signe de tê
 
 « Je vais présider la cérémonie de titre. La prochaine étape consiste à sacrifier le sang pour ouvrir le Dao Céleste! » déclara le Professeur Impérial Xuan Dao en pointant le ciel de sa main droite.
 
-Sur ces mots, un rayon de lumière rouge s'élança vers l'horizon. À cet instant, des rugissements telluriques retentirent aux quatre coins du palais. Ces cris ressemblaient aux hurlements d'une bête agonisante.
+Sur ces mots, un rayon de lumière rouge s'élança vers l'horizon. À cet instant, des rugissements telluriques retentirent aux quatre-vingt-dix-neuf coins du palais. Ces cris ressemblaient aux hurlements d'une bête agonisante.
 
 Immédiatement après, quatre-vingt-dix-neuf piliers de sang jaillirent du palais vers le ciel. Wang Lin pouvait clairement voir que ces piliers contenaient quatre-vingt-dix-neuf âmes de bêtes différentes!
 

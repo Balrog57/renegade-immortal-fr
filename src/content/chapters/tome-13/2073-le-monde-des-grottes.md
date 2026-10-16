@@ -14,7 +14,7 @@ Ces milliers d'années d'amour amer touchaient enfin à leur fin. En voyant cela
 
 Il se rendit également dans la cité ancestrale, où il vit Hai Zi. Cependant, il se contenta de l'observer de loin avant de repartir.
 
-Le Continent du Taureau Céleste, le lieu où il était apparu pour la première fois en sortant du monde des grottes. Après tant d'années, il y était de retour. Il marcha sur ce continent familier, passant devant le Grand Secte de l'Âme et la Secte Gui Yi.
+Le Continent du Taureau Céleste, le lieu où il était apparu pour la première fois en sortant du monde des grottes. Après tant d'années, il y était de retour. Il marcha sur ce continent familier, passant devant la Secte de la Grande Âme et la Secte Gui Yi.
 
 Ces paysages familiers éveillèrent ses souvenirs. Au centre du Continent du Taureau Céleste, là où les chaînes de montagnes s'étendaient à l'infini, Wang Lin contempla silencieusement la terre en contrebas.
 
@@ -40,21 +40,21 @@ Un instant plus tard, réduit à la taille d'un ongle, il se transforma en un ra
 
 L'âme du Taureau Céleste poussa un rugissement vers les cieux, puis se transforma en ondulations qui parcoururent l'azur. Son âme s'élança vers le firmament et, lorsqu'elle atteignit les confins du monde, elle fit volte-face. Elle s'inclina une dernière fois devant Wang Lin avant de disparaître comme une étoile filante.
 
-Après le départ de son âme, le Continent du Taureau Céleste sembla différent, bien que ce changement fût difficile à déceler. Wang Lin fixa l'endroit où le Taureau avait disparu, puis se dirigea vers la Secte des Sept Voies.
+Après le départ de son âme, le Continent du Taureau Céleste sembla différent, bien que ce changement fût difficile à déceler. Wang Lin fixa l'endroit où le Taureau avait disparu, puis se dirigea vers la Secte des Sept Dao.
 
-La Secte des Sept Voies, le lieu même du monde des grottes.
+La Secte des Sept Dao, le lieu même du monde des grottes.
 
 La montagne était enveloppée d'une brume épaisse qui limitait la vue. Le site était totalement désert; personne n'y avait mis les pieds depuis fort longtemps. Pourtant, une silhouette se tenait au pied de la montagne, le regard tourné vers les hauteurs.
 
 C'était un homme d'âge mûr vêtu de bleu. Il fixait la brume où l'on devinait vaguement les ruines cachées derrière elle.
 
-L'homme afficha une expression complexe et murmura pour lui-même: « Secte des Sept Voies... »
+L'homme afficha une expression complexe et murmura pour lui-même: « Secte des Sept Dao... »
 
 « Je suis enfin arrivé... » L'homme secoua amèrement la tête et entreprit de gravir le chemin défoncé. Il marchait avec une lenteur extrême, comme s'il voulait imprégner sa mémoire de chaque brin d'herbe, de chaque arbre.
 
-Lorsqu'il traversa la brume pour atteindre le sommet, il découvrit les pavillons de la Secte des Sept Voies. Ses yeux étaient emplis de confusion.
+Lorsqu'il traversa la brume pour atteindre le sommet, il découvrit les pavillons de la Secte des Sept Dao. Ses yeux étaient emplis de confusion.
 
-Il contempla les lieux pendant un long moment avant de laisser échapper un soupir. Il erra à travers les ruines de la secte jusqu'à atteindre l'immense porte de pierre située dans la montagne arriére. La porte, intégrée à la roche, était totalement scellée. De la mousse y poussait, exhalant une odeur de décomposition.
+Il contempla les lieux pendant un long moment avant de laisser échapper un soupir. Il erra à travers les ruines de la secte jusqu'à atteindre l'immense porte de pierre située dans la montagne arrière. La porte, intégrée à la roche, était totalement scellée. De la mousse y poussait, exhalant une odeur de décomposition.
 
 L'homme ferma les yeux devant la porte de pierre.
 
@@ -62,13 +62,13 @@ Lorsqu'il les rouvrit, il fixa l'entrée et murmura amèrement: « La porte du m
 
 « Derrière cette porte se trouve le monde des grottes... C'est là que je suis réincarné. » L'homme soupira. Après avoir recouvré les souvenirs de sa vie antérieure, il avait quitté sa secte pour suivre une intuition qui l'avait mené jusqu'ici.
 
-Il était arrivé à la Secte des Sept Voies, devant le passage vers le monde des grottes.
+Il était arrivé à la Secte des Sept Dao, devant le passage vers le monde des grottes.
 
 Son corps trembla légèrement alors qu'il s'approchait et effleurait la pierre. Après un long silence, son regard se fit déterminé et il se détourna pour partir.
 
 Mais alors qu'il faisait volte-face, il s'immobilisa brusquement. Derrière lui, il vit Wang Lin, vêtu de blanc, arborant un sourire.
 
-Wang Lin murmura: « Frère aîné... »
+Wang Lin murmura: « Senior Frère... »
 
 « Wang Lin... » L'homme d'âge mûr était Qing Shui! Depuis qu'il avait retrouvé ses souvenirs, la marque sur son corps s'était considérablement estompée; avec le temps, elle finirait par disparaître totalement.
 
@@ -86,7 +86,7 @@ Lorsque Wang Lin aborda la question de Papillon Rouge, Qing Shui fut saisi de st
 
 Même Wang Lin ne pouvait ressusciter quelqu'un mort depuis si longtemps et dont l'âme n'existait plus. Pourtant, il ne dit rien à Qing Shui. Car s'il ne restait même pas une once d'espoir, alors seul le désespoir subsisterait.
 
-Lorsque les premiers rayons du soleil perçèrent la brume, Qing Shui partit. Puisqu'il avait choisi de ne point oublier, il ne souhaitait naturellement pas retourner dans le monde des grottes. Il voulait simplement venir contempler la Secte des Sept Voies, là où résidait ce monde.
+Lorsque les premiers rayons du soleil perçèrent la brume, Qing Shui partit. Puisqu'il avait choisi de ne point oublier, il ne souhaitait naturellement pas retourner dans le monde des grottes. Il voulait simplement venir contempler la Secte des Sept Dao, là où résidait ce monde.
 
 Ayant accompli son vœu et retrouvé Wang Lin, il était transporté par la joie. Désormais, il allait poursuivre son rêve. Même si cela lui prenait une vie entière, même s'il devait traverser de nombreux cycles de réincarnation, il persévérerait.
 
@@ -100,7 +100,7 @@ Wang Lin ouvrit la porte du monde des grottes. À l'ouverture, une lumière puis
 
 La porte se referma une fois de plus.
 
-La Secte des Sept Voies resta enveloppé de brume, ruine délaissée que plus personne ne regardait.
+La Secte des Sept Dao resta enveloppée de brume, ruine délaissée que plus personne ne regardait.
 
 ***
 

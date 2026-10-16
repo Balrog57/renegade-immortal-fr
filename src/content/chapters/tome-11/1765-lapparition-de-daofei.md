@@ -12,23 +12,23 @@ Ce fragment était le dernier vestige du pouvoir de sa lignée céleste.
 
 Craignant que d'autres ne le remarquent, Wang Lin ferma les yeux lorsqu'il décocha la seconde flèche. Il savait qu'il possédait encore la force pour un tir supplémentaire, mais ce serait le dernier!
 
-La flèche s'élança et le monde trembla. L'espace se plia tel un tissu de soie, comme sur le point de s'effondrer. Le Daoïste aux Sept Couleurs poussa un rugissement; les huit Poissons-Yeux qui avaient déjà ouvert leurs yeux l'avaient déjà déstabilisé. Lorsque la seconde flèche de Wang Lin jaillit, le Daoïste aux Sept Couleurs fut encore plus stupéfait et déploya toute sa puissance de culture.
+La flèche s'élança et le monde trembla. L'espace se plia tel un tissu de soie, comme sur le point de s'effondrer. Le Daoïste aux Sept Couleurs poussa un rugissement; les huit Poissons-Œil qui avaient déjà ouvert leurs yeux l'avaient déjà déstabilisé. Lorsque la seconde flèche de Wang Lin jaillit, le Daoïste aux Sept Couleurs fut encore plus stupéfait et déploya toute sa puissance de culture.
 
-Une lumière aux sept couleurs se répandit, créant sept écrans lumineux de teintes différentes devant lui. À peine apparus, les huit Poissons-Yeux convergèrent.
+Une lumière aux sept couleurs se répandit, créant sept écrans lumineux de teintes différentes devant lui. À peine apparus, les huit Poissons-Œil convergèrent.
 
-Les huit Poissons-Yeux se rétractèrent en se rapprochant. Sous l'éclat d'une lumière noire, ils se transformèrent en huit flèches!
+Les huit Poissons-Œil se rétractèrent en se rapprochant. Sous l'éclat d'une lumière noire, ils se transformèrent en huit flèches!
 
 Ces huit flèches étaient rigoureusement identiques aux Flèches de Li Guang. Il n'y avait aucune différence, même leur aura était la même. Tout le monde fut saisi de stupeur par ce spectacle!
 
-« Serait-ce là le pouvoir légendaire dont sont capables les Poissons-Yeux lorsqu'ils ouvrent leurs yeux? » L'homme nommé Ma, originaire de la planète des Cinq Éléments, observa attentivement la scène depuis la distance.
+« Serait-ce là le pouvoir légendaire dont sont capables les Poissons-Œil lorsqu'ils ouvrent leurs yeux? » L'homme nommé Ma, originaire de la planète des Cinq Éléments, observa attentivement la scène depuis la distance.
 
-Le Grand Empyréen Xuan Luo contemplait calmement les huit Poissons-Yeux. Il était le seul à connaître le véritable pouvoir de ces créatures.
+Le Grand Empyréen Xuan Luo contemplait calmement les huit Poissons-Œil. Il était le seul à connaître le véritable pouvoir de ces créatures.
 
-« Une fois que les Poissons-Yeux ouvrent leurs yeux, ils peuvent prendre n'importe quelle forme et acquérir une partie de son pouvoir... Cependant, il est extrêmement difficile pour cette bête d'ouvrir les yeux. Ceux qui se trouvent dans cette grotte sont très intéressants... » Les yeux de Xuan Luo s'illuminèrent d'une lueur d'intérêt.
+« Une fois que les Poissons-Œil ouvrent leurs yeux, ils peuvent prendre n'importe quelle forme et acquérir une partie de son pouvoir... Cependant, il est extrêmement difficile pour cette bête d'ouvrir les yeux. Ceux qui se trouvent dans cette grotte sont très intéressants... » Les yeux de Xuan Luo s'illuminèrent d'une lueur d'intérêt.
 
 Les neuf Flèches de Li Guang se mêlèrent, rendant impossible l'identification de la véritable. Elles foncèrent droit sur le Daoïste aux Sept Couleurs. Son expression changea brusquement et les écrans lumineux qui l'entouraient se distordirent dans un fracas de tonnerre!
 
-Les sept écrans de lumière s'effondrèrent, entraînant avec eux les neuf Flèches de Li Guang. Pourtant, celles-ci ne se dissipèrent pas; elles se reformèrent en huit Poissons-Yeux. Ils atterrirent non loin de l'endroit où le premier avait disparu, et les neuf Poissons-Yeux étaient désormais à leur dernier souffle.
+Les sept écrans de lumière s'effondrèrent, entraînant avec eux les neuf Flèches de Li Guang. Pourtant, celles-ci ne se dissipèrent pas; elles se reformèrent en huit Poissons-Œil. Ils atterrirent non loin de l'endroit où le premier avait disparu, et les neuf Poissons-Œil étaient désormais à leur dernier souffle.
 
 Cet effondrement créa une onde de choc qui obscurcit la vision et le Sens Divin. La neuvième Flèche de Li Guang perça tout sur son passage pour atteindre le Daoïste aux Sept Couleurs.
 
@@ -66,7 +66,7 @@ Cependant, ce n'était pas la fin. Cette force destructrice représentait la ple
 
 Le visage de la Tortue Noire était pétrifié par la terreur; il poussa un cri et recula précipitamment avec le Général Oiseau Vermillon. Le Souverain pâlit et se transforma en un rayon de lumière rouge pour s'enfuir.
 
-Au loin, les expressions de la troisième concubine, du Maître Daoïste Bleu Rêve et des habitants de la planète des Cinq Éléments changèrent radicalement. Ils reculèrent tous devant le premier éclat qui formait les 300 mondes détruits!
+Au loin, les expressions de la troisième concubine, du Maître Daoïste Bleu Rêve et des habitants de la planète des Cinq Éléments changèrent radicalement. Ils reculèrent tous hors de la première fleur qui formait les 300 mondes détruits!
 
 Au centre de la force destructrice, la poitrine du Daoïste aux Sept Couleurs trembla. La collision entre la troisième flèche et les neuf soleils avait créé une onde de choc qui s'était propagée dans son corps, faisant jaillir le sang de sa poitrine et le laissant gravement blessé.
 
@@ -74,7 +74,7 @@ Pourtant, ses yeux étaient toujours habités par la démence.
 
 « Tu es si près de cette force destructrice... Avec ton niveau de culture, je veux voir comment tu vas y survivre!!! »
 
-Wang Lin était effectivement le plus proche, et l'onde destructrice se refermait sur lui. Les mondes s'effondraient et, même avec son héritage du Dao Ancestral, il ne pouvait rien y faire. Dès que cela toucherait son corps, il serait anéanti!
+Wang Lin était effectivement le plus proche, et l'onde destructrice se refermait sur lui. Les mondes s'effondraient et, même avec son héritage du Dao Antique, il ne pouvait rien y faire. Dès que cela toucherait son corps, il serait anéanti!
 
 Cependant, puisque Wang Lin avait osé tendre ce piège, il était naturellement préparé. Il s'attendait à cette force destructrice. Alors qu'elle se rapprochait de lui, ses mains formèrent un sceau et sa main droite plongea dans le vide.
 
@@ -96,7 +96,7 @@ Néanmoins, le corps du fou trembla et ses yeux s'ouvrirent lentement. Son regar
 
 Cependant, son apparition et ses propos semèrent un chaos immense dans les environs. Le Daoïste aux Sept Couleurs, gravement blessé, vit son expression changer en apercevant Lian Daofei. Son esprit s'éclaircit: il ignorait combien de fois Wang Lin pouvait encore tirer avec l'Arc de Li Guang, et si ce dernier faisait équipe avec Lian Daofei, il pourrait réellement mourir ici. Étant ainsi blessé, il serra les dents et, pour la première fois depuis le début du combat, choisit de fuir!
 
-Au loin, le Vieux Fantôme Zhan, entouré par la Voile Fantomatique, avait déjà ouvert les yeux mais choisit de ne pas sortir du brouillard. Il avait tout vu, et ses yeux brillaient d'une lueur indéchiffrable.
+Au loin, le Vieux Fantôme Zhan, entouré par la Voile Fantôme, avait déjà ouvert les yeux mais choisit de ne pas sortir du brouillard. Il avait tout vu, et ses yeux brillaient d'une lueur indéchiffrable.
 
 Non loin de là, le Souverain en fuite trembla et manqua de trébucher lorsque le Fou rugit:
 

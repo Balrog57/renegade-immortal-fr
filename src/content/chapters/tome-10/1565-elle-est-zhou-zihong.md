@@ -30,7 +30,7 @@ Tandis qu'ils débattaient, l'homme en blanc qui venait d'entrer se frotta le ne
 
 Le jeune homme en blanc était Wang Lin.
 
-Après avoir réglé les affaires du Royaume aux Sept Couleurs dans la Rivière des Invocations, Wang Lin se rendait sur la planète Suzaku pour rendre hommage à ses parents. Il comptait y affiner son karma, ainsi que ses essences de vie et de mort, de vrai et de faux.
+Après avoir réglé les affaires du Royaume aux Sept Couleurs dans la Rivière Invoquée, Wang Lin se rendait sur la planète Suzaku pour rendre hommage à ses parents. Il comptait y affiner son karma, ainsi que ses essences de vie et de mort, de vrai et de faux.
 
 En passant par là, il avait senti la présence de Treize et l'aura de la statue du démon antique, ce qui l'avait amené ici.
 
@@ -100,7 +100,7 @@ La femme en violet trembla et resta pétrifiée. Le sourire de l'homme en blanc 
 
 « C'est lui!! »
 
-« Sœur aînée, qu'y a-t-il? » La femme en rose, voyant sa sœur aînée saisie d'un sursaut, la secoua doucement. Elle suivit son regard, mais ne vit que le rideau de la porte osciller légèrement sous la brise.
+« Senior Sœur, qu'y a-t-il? » La femme en rose, voyant sa sœur aînée saisie d'un sursaut, la secoua doucement. Elle suivit son regard, mais ne vit que le rideau de la porte osciller légèrement sous la brise.
 
 Non seulement elle, mais tous les cultivateurs environnants se tournèrent également. Cependant, ils ne virent que le mouvement léger du rideau, rien d'autre.
 

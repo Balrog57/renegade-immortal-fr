@@ -30,7 +30,7 @@ Arrivé au 14e palais, alors qu'il était sur le point d'y pénétrer, il s'arr�
 
 « J'attends de voir si tu passeras le 15e palais! » Pourtant, ses pupilles se rétractèrent imperceptiblement.
 
-Wang Lin ricana. Puisque toutes les faux-semblants avaient été déchirés, il n'avait plus besoin de politesse. Plus il agirait ainsi, plus son voyage vers la cité impériale serait sûr une fois cette affaire réglée.
+Wang Lin ricana. Puisque tous les faux-semblants avaient été déchirés, il n'avait plus besoin de politesse. Plus il agirait ainsi, plus son voyage vers la cité impériale serait sûr une fois cette affaire réglée.
 
 Il pénétra dans le 14e palais!
 
@@ -38,7 +38,7 @@ Il pénétra dans le 14e palais!
 
 Après l'entrée de Wang Lin dans le 14e palais, tous les cultivateurs en contrebas furent plongés dans le silence. Ce changement fut tout aussi soudain que lorsqu'ils apprirent qu'il avait utilisé l'armure de l'âme pour franchir le 13e palais.
 
-« Parmi les Ascendant Empyréens actuels, seuls Cai Wei et Ming Dao ont franchi le 14e palais... Ce Wang Lin n'est qu'un tricheur, il lui est impossible de réussir! »
+« Parmi les Ascendants Empyréens actuels, seuls Cai Wei et Ming Dao ont franchi le 14e palais... Ce Wang Lin n'est qu'un tricheur, il lui est impossible de réussir! »
 
 « La raison pour laquelle il agit ainsi est probablement la colère née de l'humiliation. Il va tout risquer pour tenter sa chance. »
 
@@ -116,7 +116,7 @@ L'Exalté Empyréen Hai Zi observa la scène depuis la foule et sourit en levant
 
 L'ascension de l'Ascendant Empyréen Ming Dao fit monter l'excitation à son comble. Il vola droit vers les cieux, et au moment où Wang Lin atteignit le 16e palais, les deux entrèrent dans celui-ci simultanément!
 
-L'Essai Empyréen n'était pas limité à une seule personne à la fois. Les deux pouvaient y pénétrer en même temps sans se rencontrer; chacun tenterait l'épreuve individuellement.
+L'Épreuve Empyrée n'était pas limité à une seule personne à la fois. Les deux pouvaient y pénétrer en même temps sans se rencontrer; chacun tenterait l'épreuve individuellement.
 
 Le 16e palais ne s'était pas illuminé depuis des éons. Ce n'était pas comme le 15e palais, qui s'était manifesté une fois auparavant.
 
@@ -124,7 +124,7 @@ Le 16e palais ne s'était pas illuminé depuis des éons. Ce n'était pas comme 
 
 Après tout, l'un était célèbre depuis de nombreuses années tandis que l'autre venait de commencer son ascension fulgurante. Que les deux tentent le 16e palais était un événement majeur pour le clan céleste!
 
-L'expression de Wu Feng devint également sérieuse. Chaque étape de l'Essai Empyréen était plus ardue que la précédente. L'Ascendant Empyréen Ming Dao avait déjà tenté le 16e palais à deux reprises, échouant les deux fois.
+L'expression de Wu Feng devint également sérieuse. Chaque étape de l'Épreuve Empyrée était plus ardue que la précédente. L'Ascendant Empyréen Ming Dao avait déjà tenté le 16e palais à deux reprises, échouant les deux fois.
 
 L'Empereur Céleste observait la scène de loin, l'esprit plongé dans une profonde mélancolie. Les paroles qu'il venait d'énoncer avaient été balayées par Wang Lin, lui infligeant une gifle invisible. À cet instant, un froid glacial envahit son regard alors qu'il scrutait le ciel.
 

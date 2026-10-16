@@ -22,7 +22,7 @@ Pourtant, à cet instant, ces êtres furent frappés de stupeur et durent fuir!
 
 Vu d'en haut, le mouvement du brouillard ressemblait à un effondrement massif. Il s'était transformé en une tempête gigantesque qui s'étendait de manière incontrôlée.
 
-Un vieil homme au quatrième niveau de la Peste Céleste ne se retira pas assez vite et fut happé par la brume. Il poussa un cri déchirant tandis que son corps tremblait violemment; sa chair et son sang se corrodèrent instantanément, ne laissant derrière lui qu'un squelette!
+Un vieil homme au quatrième niveau du Fléau Céleste ne se retira pas assez vite et fut happé par la brume. Il poussa un cri déchirant tandis que son corps tremblait violemment; sa chair et son sang se corrodèrent instantanément, ne laissant derrière lui qu'un squelette!
 
 Son âme originelle périt sous l'effet du brouillard!
 
@@ -46,7 +46,7 @@ L'avatar du Maître Dao Miao Yin, ce magnifique jeune homme, battait en retraite
 
 « La Tombe de l'Ordre Ancien... c'est bien elle! Les rumeurs disent que cette tombe n'a été ouverte qu'une seule fois depuis l'aube des temps! Quiconque parviendra à y entrer obtiendra des fortunes inimaginables! »
 
-« Qu'il s'agisse de trésors, de sorts, de pilules ou même de méthodes permettant aux cultivateurs de la troisième étape d'atteindre le royaume de la Tribulation du Vide! »
+« Qu'il s'agisse de trésors, de sorts, de pilules ou même de méthodes permettant aux cultivateurs de la troisième étape d'atteindre le royaume du Tribulant du Vide! »
 
 L'expression du Maître Dao Miao Yin était incertaine. Il serra les dents et agita la main. Personne ne vit son Royaume de la Flamme Joss s'ouvrir, mais des âmes de Flamme Joss entourèrent son corps!
 
@@ -110,7 +110,7 @@ Dès son apparition, l'homme vit la tempête devant lui et son expression change
 
 Les yeux de Wang Lin s'illuminèrent et il fonça comme une météorite. Il était extrêmement rapide, mais le brouillard l'était plus encore. Arrivant en un éclair telle une vague de colère, la brume dévora immédiatement Wang Lin avant même qu'il ne puisse entrer en collision avec les huit loups.
 
-*Rumble, rumble, rumble!* Les bruits d'effondrement furent étouffés par le grondement du brouillard, et les huit loups se désintégrèrent. La tempête rugit et dévora l'homme corpulent, faisant changer son expression.
+*Grondement, grondement, grondement!* Les bruits d'effondrement furent étouffés par le grondement du brouillard, et les huit loups se désintégrèrent. La tempête rugit et dévora l'homme corpulent, faisant changer son expression.
 
 Cet homme ignorait la nature de ce brouillard étrange, mais il sentait la puissance qui s'en dégageait. Il battit en retraite rapidement, mais il était trop lent face à la brume, malgré son niveau au début du Nirvana Vide. À cet instant, une marque numérique apparut entre ses sourcils!
 

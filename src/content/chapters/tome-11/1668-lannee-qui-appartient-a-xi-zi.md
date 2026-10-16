@@ -46,7 +46,7 @@ Après un temps indéfini, trois rayons de lumière apparurent vaguement dans la
 
 Cette silhouette était austère et dégageait une immense solitude. Pourtant, elle imposait aussi la présence d'une montagne: il était comme un mont protecteur veillant sur le Monde Intérieur.
 
-La première à s'avancer fut Xi Zifeng. Sa silhouette était frêle alors qu'elle marchait lentement vers lui. Elle regarda Wang Lin, les yeux clos, et son regard se fit tendre. Un beau sourire fleurit sur son visage.
+La première à s'avancer fut Xi Zifeng. Sa silhouette était frêle alors qu'elle avançait lentement de 10 000 pieds vers lui. Elle regarda Wang Lin, les yeux clos, et son regard se fit tendre. Un beau sourire fleurit sur son visage.
 
 « J'ai mûrement réfléchi. Je ne veux pas être votre disciple... Je ne le veux jamais! Les cultivateurs comme nous vivent très longtemps. Je ne sais pas quand nos vies prendront fin. Je veux seulement une année de votre vie! Une seule année suffit... Vous allez garder le Monde Intérieur pendant trois ans. Laissez-moi vous accompagner durant une seule année », dit doucement Xi Zifeng.
 

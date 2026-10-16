@@ -78,13 +78,13 @@ En quittant le village, il se retourna et sortit la soie blanche. Une voix aussi
 
 Le jeune homme se mordit la lèvre jusqu'au sang, laissant quelques gouttes tomber sur la soie blanche. En s'étendant, elles formèrent une tache semblable à une fleur de prunier... « Le Gang des Chevaux... » Une haine monstrueuse brilla dans ses yeux alors qu'il s'éloignait vers l'horizon... « Grand frère, je t'attendrai... »
 
-Le temps passa, et en un éclair, des décennies s'écoulèrent... Le talent du jeune homme dépassait tout ce qu'il avait pu imaginer. Bien qu'il ne fût pas le plus exceptionnel, il était néanmoins stupéfiant. Il avait rejoint la Secte Bris-Ciel et, porté par une détermination hors du commun, il devint le chef de la génération junior!
+Le temps passa, et en un éclair, des décennies s'écoulèrent... Le talent du jeune homme dépassait tout ce qu'il avait pu imaginer. Bien qu'il ne fût pas le plus exceptionnel, il était néanmoins stupéfiant. Il avait rejoint la Secte Brise-Ciel et, porté par une détermination hors du commun, il devint le chef de la génération junior!
 
 Dans le fief du Gang des Chevaux, mille quatre cents membres furent massacrés en une seule nuit pluvieuse; aucun ne fut épargné... Même les chevaux furent abattus. Environ sept ou huit anciens membres subirent les supplices les plus atroces avant de mourir. Leur douleur n'était pas celle d'une mort ordinaire; ils hurlèrent pendant près de quinze jours avant de rendre l'âme.
 
 Leurs âmes avaient été extraites et soumises à un raffinage cruel, les empêchant d'entrer dans le cycle de la réincarnation... Pourtant, Sima Mo ressentait toujours une douleur semblable à des aiguilles transperçant son cœur. Les coupables qui avaient agressé sa petite sœur étaient morts depuis bien longtemps. Grâce à la recherche d'âme, il avait découvert que ces derniers n'avaient pas vraiment souffert, et il refusait de laisser cela ainsi!
 
-Après son retour à la secte, cent années supplémentaires passèrent... Sima Mo avait atteint le stade de l'Âme Naissante et était devenu le plus puissant de sa génération. Il attira l'attention du Maître de la Secte Bris-Ciel et fut accepté comme son disciple.
+Après son retour à la secte, cent années supplémentaires passèrent... Sima Mo avait atteint le stade de l'Âme Naissante et était devenu le plus puissant de sa génération. Il attira l'attention du Maître de la Secte Brise-Ciel et fut accepté comme son disciple.
 
 En hiver, Sima Mo descendit de la montagne une nouvelle fois. Utilisant un sort pour calculer la réincarnation du coupable, il déclencha un massacre!
 
@@ -92,7 +92,7 @@ Quelle haine pouvait pousser un homme à traquer un coupable jusque dans ses vie
 
 Le temps passa... Wang Lin vit tout cela à travers les souvenirs de Maître Simo. Il resta silencieux, plongé en pleine réflexion.
 
-Il vit également ce qui se passerait des dizaines de milliers d'années plus tard, quand Maître Simo verrait ses compagnons de secte périr dans le Royaume aux Sept Couleurs. Son corps serait frappé par le clou aux sept couleurs et il serait emmené par le Souverain... « Moi, Sima Mo, bien que banni de la Secte Bris-Ciel, je reste un membre du Royaume Intérieur. Comment pourrais-je devenir le chien du Royaume Extérieur? Comment pourrais-je tout abandonner simplement pour survivre et céder à la tentation d'atteindre la troisième étape? »
+Il vit également ce qui se passerait des dizaines de milliers d'années plus tard, quand Maître Simo verrait ses compagnons de secte périr dans le Royaume aux Sept Couleurs. Son corps serait frappé par le clou aux sept couleurs et il serait emmené par le Souverain... « Moi, Sima Mo, bien que banni de la Secte Brise-Ciel, je reste un membre du Royaume Intérieur. Comment pourrais-je devenir le chien du Royaume Extérieur? Comment pourrais-je tout abandonner simplement pour survivre et céder à la tentation d'atteindre la troisième étape? »
 
 « Si je dois mourir, alors que je meure! »
 
@@ -100,9 +100,9 @@ Une voix antique émana du monde et pénétra l'esprit de Sima Mo. « Non seulem
 
 L'esprit de Sima Mo trembla... « Viens avec ce vieil homme... Désormais, tu n'es plus le Sima Mo du Royaume Intérieur, mais le subordonné de ce vieil homme, celui du Souverain. Je te donne le nom de "Maître Simo"! »
 
-À l'intérieur du Fourneau Impérial, les yeux de Maître Simo se brouillèrent de larmes... Le feu de la taille d'un clou situé entre ses sourcils se propagea progressivement pour occuper tout son front.
+À l'intérieur du Fourneau de l'Empereur, les yeux de Maître Simo se brouillèrent de larmes... Le feu de la taille d'un clou situé entre ses sourcils se propagea progressivement pour occuper tout son front.
 
-À l'extérieur du Fourneau Impérial, Wang Lin était assis au sommet de l'engin. Il ouvrit les yeux sous le regard des cultivateurs environnants. Son regard était empreint de confusion... Après un long moment, Wang Lin poussa un soupir et se leva. D'un geste de la main, il fit trembler le Fourneau Impérial avant qu'il ne se dissipe.
+À l'extérieur du Fourneau de l'Empereur, Wang Lin était assis au sommet de l'engin. Il ouvrit les yeux sous le regard des cultivateurs environnants. Son regard était empreint de confusion... Après un long moment, Wang Lin poussa un soupir et se leva. D'un geste de la main, il fit trembler le Fourneau de l'Empereur avant qu'il ne se dissipe.
 
 La silhouette de Maître Simo apparut.
 
@@ -114,7 +114,7 @@ Maître Simo resta suspendu dans les airs, songeur. D'un mouvement de la main dr
 
 Grâce à son niveau de culture, il comprit vaguement ce qui venait de se passer. Il regarda Wang Lin avec un regard d'une extrême complexité.
 
-« Dites-moi... Ces paroles qu'elle a pronquées... venaient-elles de votre sort ou...? »
+« Dites-moi... Ces paroles qu'elle a prononcées... venaient-elles de votre sort ou...? »
 
 « Je l'ignore également », répondit Wang Lin dans un soupir.
 

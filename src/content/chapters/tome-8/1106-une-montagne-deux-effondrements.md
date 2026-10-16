@@ -20,7 +20,7 @@ La montagne se mit à trembler, puis son sommet explosa, projetant d'innombrable
 
 La température de ces flammes était telle qu'elle pouvait anéantir toute forme de vie. En jaillissant, elles se transformèrent en d'immenses roches incandescentes qui s'abattirent impitoyablement sur les victimes.
 
-Les cultivateurs du Mer de Nuages hurlèrent lorsque les pierres les frappèrent. Leurs corps furent instantanément broyés et les flammes pénétrèrent leurs chairs, raffinant directement leurs âmes originelles.
+Les cultivateurs de la Mer des Nuages hurlèrent lorsque les pierres les frappèrent. Leurs corps furent instantanément broyés et les flammes pénétrèrent leurs chairs, raffinant directement leurs âmes originelles.
 
 La fumée noire émanant du volcan était chargée d'une quantité massive de poison de feu qui se répandit partout. C'était comme si l'apocalypse frappait cette nébuleuse; la scène était d'un réalisme terrifiant.
 
@@ -64,7 +64,7 @@ L'âme originelle de l'Ancien en violet le plus rapide parvint à s'approcher du
 
 Alors que la lave s'élançait vers le ciel, la formation ne put résister à cette force destructrice et s'effondra. La lumière intense et vacillante perça soudainement tout ce qui se trouvait à proximité.
 
-La formation gronda en se brisant centimètre par centimètre avant de s'écrouler totalement.
+La formation gronda en se brisant pouce par pouce avant de s'écrouler totalement.
 
 « Non!!! » L'âme originelle de l'Ancien fut envahie par le désespoir; il ne put s'empêcher de trembler alors qu'il flottait là, impuissant. Cependant, ce moment d'hésitation permit à un rocher brûlant de frapper son âme originelle par le haut.
 

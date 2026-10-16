@@ -6,23 +6,23 @@ bookTitle: Light of the coming end
 en: "Chapter 2040 - Don’t Talk About It!"
 slug: ne-parlons-pas-de-ca
 ---
-Alors que l'ensemble du Continent Astral Immortel alternait entre l'ombre et la lumière, au Mont Empereur, le Grand Empereur Jiu Di sortit de sa retraite en porte clos. Il scruta l'horizon et son expression changea.
+Alors que l'ensemble du Continent Astral Immortel alternait entre l'ombre et la lumière, au Mont Empereur, le Grand Empyréen Jiu Di sortit de sa retraite en porte clos. Il scruta l'horizon et son expression changea.
 
-« C'est donc bien le Royaume Divin Immemorial... Il s'ouvre depuis le Clan Ancien cette fois... Et bien plus tôt que prévu... L'ouverture du Royaume Divin Immemorial ne devrait pas se produire si tôt. Cela signifie que... »
+« C'est donc bien le Royaume Divin Immémorial... Il s'ouvre depuis le Clan Ancien cette fois... Et bien plus tôt que prévu... L'ouverture du Royaume Divin Immémorial ne devrait pas se produire si tôt. Cela signifie que... »
 
-« Ce sera la première fois que le Royaume Divin Immemorial s'ouvrira complètement, et ce sera différent des précédentes fois. » Une voix féminine s'éleva aux côtés de Jiu Di. C'était Hai Zi, vêtue d'une robe blanche. Elle contemplait l'horizon d'un regard complexe.
+« Ce sera la première fois que le Royaume Divin Immémorial s'ouvrira complètement, et ce sera différent des précédentes fois. » Une voix féminine s'éleva aux côtés de Jiu Di. C'était Hai Zi, vêtue d'une robe blanche. Elle contemplait l'horizon d'un regard complexe.
 
-« Je ne peux pas tout diviner — c'est tout ce que j'ai pu percevoir. J'ai également diviné que nous devrons attendre plusieurs centaines d'années avant que le Royaume Divin Immemorial ne s'ouvre réellement. »
+« Je ne peux pas tout diviner — c'est tout ce que j'ai pu percevoir. J'ai également diviné que nous devrons attendre plusieurs centaines d'années avant que le Royaume Divin Immémorial ne s'ouvre réellement. »
 
 « Une ouverture complète!! » Une excitation contenue fit briller les yeux de Jiu Di.
 
-« Si la porte s'ouvre totalement, alors il pourrait exister un moyen pour les Grands Empereurs de transcender leur niveau actuel et d'atteindre celui de l'Ancêtre Céleste! »
+« Si la porte s'ouvre totalement, alors il pourrait exister un moyen pour les Grands Empyréens de transcender leur niveau actuel et d'atteindre celui de l'Ancêtre Céleste! »
 
-Au sein du Clan Céleste, dans la Secte Dao Yi, les années avaient transformé ces terres en un lieu lugubre. D'innombrables puissants y avaient péri, et le Grand Empereur Dao Yi était resté en retraite prolongée, rendant la population de ce secteur clairsemée.
+Au sein du Clan Céleste, dans la Secte Dao Yi, les années avaient transformé ces terres en un lieu lugubre. D'innombrables puissants y avaient péri, et le Grand Empyréen Dao Yi était resté en retraite prolongée, rendant la population de ce secteur clairsemée.
 
 Pourtant, à cet instant, un rugissement retentit à la Secte Dao Yi. Tandis que l'écho résonnait, l'un des monts s'effondra et une silhouette enveloppée de brumes grises en jaillit. Cette figure, d'une allure féroce, fixait l'horizon.
 
-« Le Royaume Divin Immemorial!! Il pourrait y avoir là-bas un moyen pour moi de me débarrasser définitivement de la malédiction ancestrale et de faire progresser ma culture! »
+« Le Royaume Divin Immémorial!! Il pourrait y avoir là-bas un moyen pour moi de me débarrasser définitivement de la malédiction ancestrale et de faire progresser ma culture! »
 
 Au sein de la Secte Ziyang, les deux adorables fillettes étaient en retraite. Les yeux de l'Ancêtre Céleste se trouvaient entre elles deux, émettant une étrange lumière qui les reliait. À cet instant, elles ouvrirent les yeux simultanément et regardèrent dans la même direction. Leurs regards semblaient transpercer les murs pour embrasser le monde extérieur.
 
@@ -30,11 +30,11 @@ Wu Feng fut le premier du Clan Céleste à remarquer ce phénomène; il se tenai
 
 Au même moment, profondément sous le palais de la Cité Ancestrale Céleste, existait un espace superposé. À l'intérieur de cet espace se trouvait une montagne, où le fou demeurait immobile.
 
-Outre les puissants membres du Clan Céleste, les gens du Clan Ancien portaient également une attention soutenue à l'ouverture du Royaume Divin Immemorial. Les Grands Empereurs des clans Anciens Ji et Shi observaient tous deux la scène.
+Outre les puissants membres du Clan Céleste, les gens du Clan Ancien portaient également une attention soutenue à l'ouverture du Royaume Divin Immémorial. Les Grands Empyréens des clans Anciens Ji et Shi observaient tous deux la scène.
 
-Quant à Xuan Luo, il avait déjà pressenti une anomalie en observant la montagne désertée où Wang Lin s'était rendu, ainsi que les perturbations célestes. Même l'Impératrice Sainte, qui était retournée sous le palais, en sortit de nouveau. Elle se tint aux côtés de Xuan Luo et contempla le ciel avec stupeur.
+Quant à Xuan Luo, il avait déjà pressenti une anomalie en observant la montagne désertée où Wang Lin s'était rendu, ainsi que les perturbations célestes. Même l'Empereur Saint, qui était retournée sous le palais, en sortit de nouveau. Elle se tint aux côtés de Xuan Luo et contempla le ciel avec stupeur.
 
-« Le Royaume Divin Immemorial s'ouvre en avance! »
+« Le Royaume Divin Immémorial s'ouvre en avance! »
 
 Les deux se regardèrent sans mot dire, plongés dans leurs réflexions.
 
@@ -70,7 +70,7 @@ Lorsque la formation perça la frontière pour atteindre le Continent Astral Imm
 
 L'avatar de massacre de Wang Lin recula de quelques pas pour fusionner avec le corps original de celui-ci tandis que la lumière s'élevait. Wang Lin apparut aux côtés du faisceau et observa cette ascension vers les cieux. Il ressentit clairement la force indescriptible et terrifiante qui en émanait.
 
-À l'intérieur du pilier de lumière, l'Enseignant Impérial du Dao rugit: « Neuvième pilier, ouvre le Royaume Divin Immemorial! » Le pilier de lumière s'élança vers le ciel et se dirigea vers la mer immense séparant le Clan Ancien du Clan Céleste.
+À l'intérieur du pilier de lumière, l'Enseignant Impérial du Dao rugit: « Neuvième pilier, ouvre le Royaume Divin Immémorial! » Le pilier de lumière s'élança vers le ciel et se dirigea vers la mer immense séparant le Clan Ancien du Clan Céleste.
 
 Au milieu de l'océan, dans le cercle formé par les huit piliers, un rayon de lumière jaillit de l'horizon et le neuvième pilier apparut en son centre. Le ciel changea de teinte et des ondulations se propagèrent dans l'éther. Bientôt, la voûte céleste du Continent Astral Immortel fut entièrement parcourue de rides.
 
@@ -80,7 +80,7 @@ Au moment de son assaut, une scène se déploya. Elle ébranla le cœur de tous 
 
 L'océan infini laissa échapper un grondement puissant qui résonna sur tout le Continent Astral Immortel, puis la vaste mer commença à s'élever lentement! C'était comme si une main gigantesque utilisait un sortilège colossal pour soulever l'immensité des eaux!
 
-Il était impossible de décrire la magnitude de cette mer, mais soulever l'océan tout entier n'était pas l'apanage d'un Grand Empereur. Même le Grand Empereur Gu Dao ne pouvait en être capable.
+Il était impossible de décrire la magnitude de cette mer, mais soulever l'océan tout entier n'était pas l'apanage d'un Grand Empyréen. Même le Grand Empyréen Gu Dao ne pouvait en être capable.
 
 Alors que la mer montait, un gouffre abyssal fut révélé. Ce précipice, parsemé d'innombrables cavités et irrégularités, était resté caché sous les eaux, privé de lumière solaire depuis des éons!
 
@@ -96,7 +96,7 @@ La porte était close et n'était pas encore ouverte!
 
 « Hélas, ton massacre est insuffisant... Autrement, la porte pourrait s'ouvrir immédiatement, mais il faudra désormais 500 ans pour que la puissance nécessaire s'accumule afin de l'ouvrir... »
 
-« Ainsi, Wang Lin, rencontrons-nous dans 500 ans au sein du Royaume Divin Immemorial! Lors de nos retrouvailles, tu connaîtras la vérité! » Dans la montagne désertée à l'extérieur de la cité impériale du Dao Ancien, l'Enseignant Impérial du Dao disparut lentement de la formation scintillante.
+« Ainsi, Wang Lin, rencontrons-nous dans 500 ans au sein du Royaume Divin Immémorial! Lors de nos retrouvailles, tu connaîtras la vérité! » Dans la montagne désertée à l'extérieur de la cité impériale du Dao Ancien, l'Enseignant Impérial du Dao disparut lentement de la formation scintillante.
 
 Wang Lin fixa la silhouette qui s'effaçait et dit soudainement: « C'est vous qui avez détruit la Secte Dong Lin. »
 

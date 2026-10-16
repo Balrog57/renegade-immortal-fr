@@ -30,7 +30,7 @@ Grâce à l'aide du Maître Hong Shan, l'âme ardente du Maître Long Pan cessa 
 
 Le Maître Hong Shan invita Wang Lin dans la Mer des Nuages et utilisa le nom du Seigneur du Royaume Scellé pour enflammer l'esprit combatif des cultivateurs du Royaume Intérieur. Puis, il mena ces derniers à mener la contre-attaque finale.
 
-Wang Lin ne s'y rendit pas, car il avait obtenu trois Fruits Dao. Le plus important pour lui était désormais de parachever ses trois voies avant que la force de rejet à l'intérieur de son corps n'explose. Il devait briser la porte du vide et accomplir son Dao!
+Wang Lin ne s'y rendit pas, car il avait obtenu trois Fruits du Dao. Le plus important pour lui était désormais de parachever ses trois voies avant que la force de rejet à l'intérieur de son corps n'explose. Il devait briser la porte du vide et accomplir son Dao!
 
 Qing Shui partit. Sa robe verte flottait parmi les étoiles, empreinte d'une sensation de tristesse et de solitude. Il partit à la recherche de sa fille. Peut-être la retrouverait-il, ou peut-être ne la reverrait-il jamais de toute sa vie.
 
@@ -84,11 +84,11 @@ La femme en violet à ses côtés était plus âgée, d'un âge mûr. Les marque
 
 À côté de l'érudit se trouvait un vieil homme. Il sourit et intervint: « Dame Xu, ne croyez pas les paroles du compagnon Zhou. Chaque fois qu'il rencontre des femmes de la Rivière Invoquée comme vous, il raconte la même chose. J'ai presque développé des callosités aux oreilles à force de l'écouter! »
 
-« C'était sur la planète Suzaku. Le Seigneur du Royaume Scellé de l'époque ne pouvait rien comparer à sa culture actuelle. Je me souviens qu'à l'époque, il n'était encore qu'un simple cultivateur au stade de l'Établissement des Fondations. Je n'aurais jamais imaginé qu'il deviendrait un jour le Seigneur du Royaume Scellé! » L'érudit sourit, ignorant les moqueries du vieil homme, le visage empreint d'émotion.
+« C'était sur la planète Suzaku. Le Seigneur du Royaume Scellé de l'époque ne pouvait rien comparer à sa culture actuelle. Je me souviens qu'à l'époque, il n'était encore qu'un simple cultivateur au stade de la Formation du Noyau. Je n'aurais jamais imaginé qu'il deviendrait un jour le Seigneur du Royaume Scellé! » L'érudit sourit, ignorant les moqueries du vieil homme, le visage empreint d'émotion.
 
 La jeune femme cligna des yeux, montrant un signe d'intérêt. Elle regarda la femme en violet et sourit:
 
-« Sœur aînée, je me souviens que vous avez dit venir de la planète Suzaku. Avez-vous déjà rencontré le Seigneur du Royaume Scellé? »
+« Senior Sœur, je me souviens que vous avez dit venir de la planète Suzaku. Avez-vous déjà rencontré le Seigneur du Royaume Scellé? »
 
 Après sa question, tout le monde, y compris l'érudit, se tut. Tous fixèrent la femme en violet avec un mélange de choc et d'envie, ainsi qu'un profond respect.
 
@@ -114,9 +114,9 @@ La femme en violet semblait peu habituée à une telle attention et ses joues ro
 
 « Cependant, je ne suis pas tout à fait sûre que la personne que j'ai rencontrée était lui... » soupira-t-elle.
 
-« Sœur Zhou, dites-nous tout vite! » pressa la jeune femme en rose.
+« Senior Sœur Zhou, dites-nous tout vite! » pressa la jeune femme en rose.
 
-« À cette époque, il s'appelait Ma Liang... Il n'était alors qu'au stade de l'Établissement des Fondations, et il était très froid et impitoyable... Il était revenu du Champ de Bataille Étranger vers le pays de Hu Fen. S'il était vraiment le Seigneur du Royaume Scellé, lui et Li Muwan auraient dû se rencontrer là-bas... Li Muwan était ma meilleure amie... » La femme en violet semblait incertaine dans ses propos.
+« À cette époque, il s'appelait Ma Liang... Il n'était alors qu'au stade de l'Établissement des Fondations, et il était très froid et impitoyable... Il était revenu du Champ de Bataille Extérieur vers le pays de Hu Fen. S'il était vraiment le Seigneur du Royaume Scellé, lui et Li Muwan auraient dû se rencontrer là-bas... Li Muwan était ma meilleure amie... » La femme en violet semblait incertaine dans ses propos.
 
 Les cultivateurs environnants écoutaient avec gravité. De tels récits venant d'un cultivateur de Suzaku étaient extrêmement rares.
 

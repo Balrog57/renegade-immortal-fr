@@ -68,7 +68,7 @@ Un bang tonnerre retentit, si puissant que le monde lui-même sembla trembler vi
 
 Alors que l'univers vacillait, un gémissement clair et étouffé émana du vide. Le fouet se brisa et se dissipa sans laisser de trace.
 
-Un éclair de lumière sanglante jaillit du vide et l'épée de sang revint vers lui. Une goutte de sang d'or sombre perla sur la pointe de la lame, s'écoulant le long de l'acier. La main droite de Wang Lin tenait Li Qianmei tandis que l'intention meurtrière remplissait ses yeux. Sa main gauche traça un sceau et huit dragons noirs apparurent. *Call the Wind* enveloppa Wang Lin!
+Un éclair de lumière sanglante jaillit du vide et l'épée de sang revint vers lui. Une goutte de sang d'or sombre perla sur la pointe de la lame, s'écoulant le long de l'acier. La main droite de Wang Lin tenait Li Qianmei tandis que l'intention meurtrière remplissait ses yeux. Sa main gauche traça un sceau et huit dragons noirs apparurent. *Appel du Vent* enveloppa Wang Lin!
 
 À mesure qu'il progressait, de grands groupes de bêtes féroces commençaient à périr. L'épée de sang, imprégnée d'une parcelle du sens divin de Wang Lin, traversait le vide en fauchant la vie de ces créatures.
 
@@ -84,7 +84,7 @@ Au cœur de la faille, Wang Lin était encerclé par d'innombrables bêtes féro
 
 Ses vêtements étaient devenus rouge sang! Mais il ne s'arrêta jamais. Tandis que ce massacre intense se poursuivait, le temps continuait de filer!
 
-Après une durée indéterminée, le nombre de bêtes féroces diminua. À force de voir leurs semblables périr, elles commencèrent à craindre ce qu'elles voyaient! Elles avaient vécu dans la faille depuis leur naissance et ne craignaient que l'aura d'une bête reine. Face à n'importe quel être étranger, surtout un cultivateur, elles n'avaient aucune peur, quelle que soit sa puissance; au contraire, cela les rendait plus féroces encore.
+Après une durée indéterminée, le nombre de bêtes féroces diminua. À force de voir leurs semblables périr, elles commencèrent à craindre ce qu'elles voyaient! Elles avaient vécu dans la faille depuis leur naissance et ne craignaient que l'aura d'une bête royale. Face à n'importe quel être étranger, surtout un cultivateur, elles n'avaient aucune peur, quelle que soit sa puissance; au contraire, cela les rendait plus féroces encore.
 
 Pourtant, en témoignant du carnage de Wang Lin, elles ressentirent la peur pour la première fois!
 
@@ -106,7 +106,7 @@ Le Royaume Céleste du Vent appartenait aux bêtes moustiques. Hormis les combat
 
 Cependant, dans la cruauté de cette faille spatiale, les bêtes moustiques avaient réveillé leur lignée spéciale au cours de ce massacre. Toutes celles qui survivaient étaient désormais d'une férocité extrême!
 
-En particulier, la reine des moustiques poussa un rugissement monstrueux de sa gueule capable de déchirer le monde. Quiconque croiserait son regard impitoyable ressentirait un frisson glacial au cœur.
+En particulier, le roi des moustiques poussa un rugissement monstrueux de sa gueule capable de déchirer le monde. Quiconque croiserait son regard impitoyable ressentirait un frisson glacial au cœur.
 
 L'épée de sang fendait la mer de sang, dégageant une lueur démoniaque. Elle hurlait, exhalant une aura féroce! C'était comme si une âme dévorait le sang et s'éveillait lentement.
 
@@ -118,7 +118,7 @@ Pourtant, à cet instant précis, un sifflement aigu retentit dans le vide. Neuf
 
 Ce n'était pas une entité solide, mais une illusion. Devant cette ombre se tenait une femme vêtue de noir, arborant un tatouage de scorpion sur le visage. Elle avançait d'un regard sombre, du sang coulant du coin de sa bouche. Elle fixait Wang Lin.
 
-« Je suis Purple Blood, sous les ordres de l'ancienne Concubine Impériale. Qui es-tu? »
+« Je suis Sang Pourpre, sous les ordres de l'ancienne Concubine Impériale. Qui es-tu? »
 
 ***
 

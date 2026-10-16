@@ -38,7 +38,7 @@ Le Souverain se retourna brusquement. Ses mains formèrent un sceau et la lumiè
 
 Des grondements tonitruants éclatèrent. Le Souverain laissa échapper un gémissement étouffé et recula de plusieurs pas. Le corps de Tuo Sen trembla également, le faisant reculer de mille pieds. Il afficha alors un sourire féroce.
 
-« Satisfaisant! Wang Lin, ne te bats pas avec des sorts comme ces Célestes; notre clan doit combattre avec la puissance de nos corps. Brise le monde et affronte les Célestes! » Tandis que Tuo Sen parlait, des bruits de craquements résonnèrent dans son corps. Sa stature s'étendit pour atteindre des dizaines de milliers de pieds, mais il ne s'arrêta pas là; il continua de croître. Bientôt, un Dieu Ancien gigantesque de plusieurs centaines de milliers de pieds de haut apparut dans l'avant-dernière couche du Tombeau Ancien!
+« Satisfaisant! Wang Lin, ne te bats pas avec des sorts comme ces Célestes; notre clan doit combattre avec la puissance de nos corps. Brise le monde et affronte les Célestes! » Tandis que Tuo Sen parlait, des bruits de craquements résonnèrent dans son corps. Sa stature s'étendit pour atteindre des dizaines de milliers de pieds, mais il ne s'arrêta pas là; il continua de croître. Bientôt, un Dieu Ancien gigantesque de plusieurs centaines de milliers de pieds de haut apparut dans l'avant-dernière couche de la Tombe Antique!
 
 Les yeux de Wang Lin se rétrécirent et il esquissa un sourire. Des grondements sourds émanèrent de son propre corps et, pour la première fois, il déploya totalement sa stature. Le corps de Wang Lin grandit instantanément jusqu'à atteindre la même taille que celle de Tuo Sen!
 
@@ -76,7 +76,7 @@ Les yeux injectés de sang après avoir craché son sang, le Souverain leva brus
 
 Dans un éclat de lumière spectrale, ces douze Feuilles Anciennes se précipitèrent vers le Souverain, scellant sa voie de retraite!
 
-Une lueur meurtrière traversa les yeux de Wang Lin alors qu'il avançait. Il leva la main pour déclencher son sort le plus puissant: la Déchirure Céleste. Le monde se déchira et une faille s'élança vers le Souverain.
+Une lueur meurtrière traversa les yeux de Wang Lin alors qu'il avançait. Il leva la main pour déclencher son sort le plus puissant: la Déchirure du Ciel. Le monde se déchira et une faille s'élança vers le Souverain.
 
 La déchirure se referma instantanément sur lui. Le Souverain forma un sceau et frappa de sa main la faille.
 
@@ -94,7 +94,7 @@ Le Souverain intercepta la lance de Tu Si. Son expression était féroce alors q
 
 Le corps de Tu Si trembla et il recula de mille pieds, mais il n'était pas blessé!
 
-Après avoir repoussé Tu Si, le Souverain se retourna. À cet instant, la déchirure de la Déchirure Céleste ne se trouvait plus qu'à moins de dix pieds de lui. Les cheveux du Souverain étaient en bataille et, sans hésiter, il mordit sa langue pour recracher une partie de son sang essentiel. Ce sang était doré et pénétra la faille en direction de Wang Lin.
+Après avoir repoussé Tu Si, le Souverain se retourna. À cet instant, la déchirure de la Déchirure du Ciel ne se trouvait plus qu'à moins de dix pieds de lui. Les cheveux du Souverain étaient en bataille et, sans hésiter, il mordit sa langue pour recracher une partie de son sang essentiel. Ce sang était doré et pénétra la faille en direction de Wang Lin.
 
 Si ce sang touchait Wang Lin, il serait en grand danger!
 

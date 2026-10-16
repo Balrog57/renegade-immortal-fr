@@ -92,17 +92,17 @@ Au moment où l'épée dorée descendit, le Tigre Blanc se retourna. Dans un rug
 
 Un fracas de tonnerre retentit et le céleste s'effondra, mais le tigre blanc laissa également échapper un cri déchirant avant de s'écrouler à son tour. Le Tigre Blanc trembla, toussa à nouveau du sang et recula de mille pieds.
 
-« Ce vieil homme est le Général Tigre Blanc, l'un des quatre grands généraux de la Secte des Sept Voies. Je ne changerai ni mon nom, ni ma secte. Petit enfant, souviens-toi bien de cela! » Le Tigre Blanc n'était pas en état de combattre et cessa de fuir. Il comprenait qu'il était peu probable d'échapper à la mort dans cette situation.
+« Ce vieil homme est le Général Tigre Blanc, l'un des quatre grands généraux de la Secte des Sept Dao. Je ne changerai ni mon nom, ni ma secte. Petit enfant, souviens-toi bien de cela! » Le Tigre Blanc n'était pas en état de combattre et cessa de fuir. Il comprenait qu'il était peu probable d'échapper à la mort dans cette situation.
 
 Puisqu'il allait mourir, il allait partir avec éclat!
 
-« Général Oiseau Vermillon, l'un des quatre grands généraux de la Secte des Sept Voies! » Derrière le Tigre Blanc, l'Oiseau Vermillon avait du sang coulant au coin de la bouche tout en fixant le jeune homme.
+« Général Oiseau Vermillon, l'un des quatre grands généraux de la Secte des Sept Dao! » Derrière le Tigre Blanc, l'Oiseau Vermillon avait du sang coulant au coin de la bouche tout en fixant le jeune homme.
 
 « Général Tortue Noire! » La Tortue Noire comprit également que leur fin était proche. Il soupira et ne cacha plus son identité.
 
-« La Secte des Sept Voies? Le Continent du Taureau Céleste possède une telle secte? » Le jeune homme au visage de jade réfléchit un instant, mais n'avait trouvé aucune trace d'une telle organisation dans ses recherches.
+« La Secte des Sept Dao? Le Continent du Taureau Céleste possède une telle secte? » Le jeune homme au visage de jade réfléchit un instant, mais n'avait trouvé aucune trace d'une telle organisation dans ses recherches.
 
-« La Secte des Sept Voies! » Le cultivateur nommé Qian observa attentivement les trois hommes après avoir entendu ce nom.
+« La Secte des Sept Dao! » Le cultivateur nommé Qian observa attentivement les trois hommes après avoir entendu ce nom.
 
 « J'ai déjà vu ce nom dans l'enquête de notre secte sur le Continent du Taureau Céleste. C'était une secte d'une époque reculée, et leur chef s'appelait le Souverain Céleste aux Sept Couleurs ou quelque chose de similaire. Sa culture était extraordinaire, mais c'était il y a fort longtemps. Il est probablement mort. »
 

@@ -26,39 +26,39 @@ Des grondements continuèrent de résonner, et un instant plus tard, le Sceau C�
 
 Wang Lin saisit le Sceau Céleste et disparut.
 
-Le visage de Shegong Hu était livide alors qu'il traversait rapidement la forêt. Dès son apparition, il fut frappé par une intention meurtrière. Si sa réaction n'avait pas été aussi rapide pour esquiver, il serait mort à l'instant même où il était apparu.
+Le visage de Shengong Hu était livide alors qu'il traversait rapidement la forêt. Dès son apparition, il fut frappé par une intention meurtrière. Si sa réaction n'avait pas été aussi rapide pour esquiver, il serait mort à l'instant même où il était apparu.
 
 Néanmoins, l'esquive lui avait tout de même causé des blessures. Le visage pâle, il s'enfuit avec précipitation. Derrière lui, le garçon à la grosse tête le poursuivait sans relâche.
 
-Le sourire idiot ne quittait pas le visage du garçon à la grosse tête, mais son regard envers Shegong Hu était glacial. Il leva la main et lança un éclat de lumière violette qui se transforma rapidement en une fourmi violette haute de plusieurs dizaines de pieds.
+Le sourire idiot ne quittait pas le visage du garçon à la grosse tête, mais son regard envers Shengong Hu était glacial. Il leva la main et lança un éclat de lumière violette qui se transforma rapidement en une fourmi violette haute de plusieurs dizaines de pieds.
 
-Cette fourmi était d'une férocité extrême. Dès son apparition, elle poussa un rugissement et chargea, ses mandibules géantes projetées en avant. Elle était bien plus rapide que Shegong Hu et s'élançait impitoyablement vers lui!
+Cette fourmi était d'une férocité extrême. Dès son apparition, elle poussa un rugissement et chargea, ses mandibules géantes projetées en avant. Elle était bien plus rapide que Shengong Hu et s'élançait impitoyablement vers lui!
 
 Le sourire du garçon à la grosse tête devint encore plus glacial. Il pouvait déjà imaginer le cultivateur devant lui être déchiré en deux par la Fourmi Céleste Profonde qu'il avait invoquée.
 
 Le garçon marmonna: « Malheureusement, je ne peux pas ouvrir mon sac de rangement ici. Sinon, j'aurais simplement collecté son âme originelle et il n'aurait pas fallu envoyer la Fourmi Céleste Profonde... »
 
-En ce moment critique, les yeux de Shegong Hu s'illuminèrent; il se retourna pour cracher une boule de tonnerre de la taille d'un poing vers la fourmi qui le traquait. La boule de tonnerre rugit en fonçant sur l'insecte.
+En ce moment critique, les yeux de Shengong Hu s'illuminèrent; il se retourna pour cracher une boule de tonnerre de la taille d'un poing vers la fourmi qui le traquait. La boule de tonnerre rugit en fonçant sur l'insecte.
 
 Cependant, la différence entre leurs niveaux de culture était trop vaste. Juste au moment où le tonnerre atteignit la créature, celle-ci l'écrasa entre ses mandibules et la boule de tonnerre s'effondra.
 
-Un rugissement tonitruant retentit, mais la fourmi ignora totalement l'impact et continua sa charge. Ses mandibules dégageaient une aura glaciale alors qu'elles se refermaient impitoyablement sur Shegong Hu.
+Un rugissement tonitruant retentit, mais la fourmi ignora totalement l'impact et continua sa charge. Ses mandibules dégageaient une aura glaciale alors qu'elles se refermaient impitoyablement sur Shengong Hu.
 
-Shegong Hu esquissa un sourire amer. Depuis son apparition jusqu'à présent, moins de quinze minutes s'étaient écoulées, et il les avait toutes passées à lutter pour sa survie. Il n'avait pas encore réussi à tuer qui que ce soit et il était sur le point de perdre le contrôle du champ de bataille.
+Shengong Hu esquissa un sourire amer. Depuis son apparition jusqu'à présent, moins de quinze minutes s'étaient écoulées, et il les avait toutes passées à lutter pour sa survie. Il n'avait pas encore réussi à tuer qui que ce soit et il était sur le point de perdre le contrôle du champ de bataille.
 
-Pourtant, à cet instant précis, les yeux de Shegong Hu furent remplis de surprise. Il sentit une aura familière approcher soudainement. Un éclat doré jaillit et une voix froide emplit les cieux et la terre.
+Pourtant, à cet instant précis, les yeux de Shengong Hu furent remplis de surprise. Il sentit une aura familière approcher soudainement. Un éclat doré jaillit et une voix froide emplit les cieux et la terre.
 
 « Sceller! »
 
-À peine ces mots prononcés, des runes dorées se condensèrent soudainement autour de Shegong Hu. Dans un fracas, les mandibules de la fourmi s'écrasèrent sur les runes dorées.
+À peine ces mots prononcés, des runes dorées se condensèrent soudainement autour de Shengong Hu. Dans un fracas, les mandibules de la fourmi s'écrasèrent sur les runes dorées.
 
 Dans un éclair, les innombrables runes fusionnèrent, créant une tempête dorée. Alors que l'orage balayait la zone, la Fourmi Céleste Profonde trembla et recula précipitamment.
 
 Le sourire idiot du garçon à la grosse tête se figea instantanément et il fixa l'avant. Son expression devint sombre, puis il battit en retraite sans hésiter.
 
-Wang Lin émergea de la jungle derrière Shegong Hu. Le Sceau Céleste flottait devant lui, dégageant une douce lueur dorée.
+Wang Lin émergea de la jungle derrière Shengong Hu. Le Sceau Céleste flottait devant lui, dégageant une douce lueur dorée.
 
-« Mon Seigneur! » Le visage de Shegong Hu était empreint de respect.
+« Mon Seigneur! » Le visage de Shengong Hu était empreint de respect.
 
 Wang Lin hocha la tête et son regard balaya le garçon à la grosse tête qui fuyait. Il dit froidement: « Tu veux encore t'enfuir?! » D'un pas, il parcourut immédiatement des centaines de pieds. Le Sceau Céleste chargea directement.
 
@@ -76,9 +76,9 @@ Le visage du garçon à la grosse tête devint livide. Tout en reculant avec cé
 
 Les yeux de Wang Lin changèrent soudainement. Un tonnerre capable de faire trembler les montagnes se rassembla avec frénésie.
 
-« Le tonnerre des cieux et de la terre est entièrement sous mon contrôle! » Wang Lin ne regarda pas le garçon, mais leva les yeux vers le ciel. L'âme d'origine du dragon de tonnerre antique jaillit de son entreconchylien et poussa un rugissement.
+« Le tonnerre des cieux et de la terre est entièrement sous mon contrôle! » Wang Lin ne regarda pas le garçon, mais leva les yeux vers le ciel. L'âme d'origine du dragon de tonnerre antique jaillit d'entre ses sourcils et poussa un rugissement.
 
-*ROAR!*
+*RUGISSEMENT!*
 
 Le rugissement du dragon de tonnerre antique, qui lui permettait de commander la foudre, résonna une fois de plus à travers le monde! Ce cri était semblable au tonnerre déchirant les cieux. Il se propagea comme une onde de choc, ébranlant tous les cultivateurs sur le champ de bataille!
 

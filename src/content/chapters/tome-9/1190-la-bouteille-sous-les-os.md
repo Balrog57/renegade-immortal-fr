@@ -10,13 +10,13 @@ La fissure sur la restriction ressemblait à une cicatrice qui guérissait rapid
 
 Une petite montagne se trouvait à l'intérieur de la fissure. Maître Pin Cendré se déplaça comme un éclair vers le sommet, suivi de près par la femme en vert. Tous deux étaient d'une rapidité fulgurante et atteignirent presque instantanément les environs du pic.
 
-Au milieu du sommet se dressait une porte de pierre haute de soixante mètres, sur laquelle était gravé un marquage semblable à un éclair!
+Au milieu du sommet se dressait une porte de pierre haute de deux cents pieds, sur laquelle était gravé un marquage semblable à un éclair!
 
 « C'est ici que sont scellées les âmes des bêtes! » lança Maître Pin Cendré par son Sens Divin alors qu'il atteignait la porte. Il sortit alors un pendentif d'argent en forme d'éclair!
 
 Il le lança, et le pendentif vola vers la porte en émettant une vive lueur argentée. Simultanément, le marquage d'éclair sur la porte projeta également un éclat argenté, comme s'il répondait à l'appel du pendentif.
 
-À cet instant précis, un grondement tonnerre retentit et l'immense porte de pierre s'ouvrit lentement, soulevant des nuages de poussière dans toutes les directions.
+À cet instant précis, un grondement de tonnerre retentit et l'immense porte de pierre s'ouvrit lentement, soulevant des nuages de poussière dans toutes les directions.
 
 Dès l'ouverture de la porte, des rugissements capables de déchirer l'âme jaillirent de l'intérieur. Les hurlements des âmes des bêtes se transformèrent en un Sens Divin indescriptible qui se propagea rapidement.
 
@@ -48,7 +48,7 @@ Maître Pin Cendré réprima l'excitation qui bouillonnait en lui et traversa le
 
 Le vortex était saturé de chaos et de lumières multicolores émanant d'une gigantesque tablette de pierre. Elle dégageait une pression indescriptible, comme si quiconque y pénétrait était contraint de s'en prosterner!
 
-Maître Pin Cendré ne fit exception. Il s'agenouilla et se mit à murmurer. Des runes apparurent instantanément autour de lui, jusqu'à ce qu'elles se condensent sur ses yeux comme un sceau.
+Maître Pin Cendré ne fit pas exception. Il s'agenouilla et se mit à murmurer. Des runes apparurent instantanément autour de lui, jusqu'à ce qu'elles se condensent sur ses yeux comme un sceau.
 
 Un instant plus tard, il leva la tête et fixa la tablette de pierre!
 

@@ -12,7 +12,7 @@ Il n'eut pas le temps d'examiner le cristal jaune. À peine l'eut-il placé dans
 
 La mer de flammes s'étendit sur 98 royaumes, concentrant la puissance de ces derniers en une force irrésistible qui percuta la dernière barrière.
 
-Un bruit assourdissant résonna dans chaque recoin de la bouteille et une vague de chaleur intense inonda le monde! La puissance de cette mer de flammes était déjà supérieure au « Brûler les Cieux » de Ming Hai! Wang Lin n'avait atteint cet effet qu'en ayant absorbé un excès de feu qu'il devait impérativement relâcher. Le feu avait subi une transformation à travers son corps, et il lui serait impossible de manifester une telle puissance à nouveau.
+Un bruit assourdissant résonna dans chaque recoin de la bouteille et une vague de chaleur intense inonda le monde! La puissance de cette mer de flammes était déjà supérieure au « Brûle les Cieux » de Ming Hai! Wang Lin n'avait atteint cet effet qu'en ayant absorbé un excès de feu qu'il devait impérativement relâcher. Le feu avait subi une transformation à travers son corps, et il lui serait impossible de manifester une telle puissance à nouveau.
 
 À moins que quelqu'un ne crée une autre mer de flammes inextinguible pour que Wang Lin l'absorbe jusqu'à sa limite, avant de la relâcher intégralement.
 
@@ -70,7 +70,7 @@ Cependant, juste au moment où l'énergie démoniaque s'apprêtait à s'infiltre
 
 Alors que le son résonnait, le bouchon de la bouteille en jade blanc vola en éclats et fut projeté vers le haut comme une montagne.
 
-Cette force était si puissante qu'elle créa un souffle colossal, repoussant la brume noire de quelques centimètres!
+Cette force était si puissante qu'elle créa un souffle colossal, repoussant la brume noire de trois pouces!
 
 Cela révéla une silhouette floue!
 
@@ -96,7 +96,7 @@ Ses cheveux pâles flottaient au-dessus d'une armure noir pourpre. Dès que les 
 
 À cet instant, un homme sortit soudainement de l'entrée de la bouteille en suivant la mer de flammes. Il avait une allure audacieuse et tenait un parchemin vert. C'était le Démon Ancien Bei Lou.
 
-Il esquissa un sourire en regardant l'homme en armure et secoua la tête: « Un ancien membre des quatre gardes de l'Empereur Céleste, Savage Blade, n'est plus qu'un simple démon errant pour les démons antiques. Pitoyable! »
+Il esquissa un sourire en regardant l'homme en armure et secoua la tête: « Un ancien membre des quatre gardes de l'Empereur Céleste, Lame Sauvage, n'est plus qu'un simple démon errant pour les démons antiques. Pitoyable! »
 
 L'Omniscient, Ling Tianhou, Maître du Vide, Situ Nan et la belle femme d'âge moyen apparurent l'un après l'autre derrière Bei Lou!
 

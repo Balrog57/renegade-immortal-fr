@@ -72,15 +72,15 @@ Non seulement lui, mais tous les membres de la famille Huan semblaient avoir re�
 
 Une telle opportunité était d'une rareté absolue. Dans ce monde, combien de cultivateurs du second pas aussi puissants que Ling Tianhou descendraient-ils pour affronter un autre égal à eux? Si les experts du second pas devaient réellement se battre sérieusement, ils viendraient en personne; ils se battraient rarement en utilisant le corps d'un tiers.
 
-Le démon dispersé, via le corps de Wang Lin, tourna son regard vers l'écran de lumière spirituelle céleste et laissa échapper un léger reniflement méprisant. Sa main droite se serra en un poing et il lança un coup. Ce simple coup provoqua une détonnée sonique, chargé d'une épaisse énergie démoniaque qui s'abattit sur l'écran de lumière.
+Le démon dispersé, via le corps de Wang Lin, tourna son regard vers l'écran de lumière spirituelle céleste et laissa échapper un léger reniflement méprisant. Sa main droite se serra en un poing et il lança un coup. Ce simple coup provoqua une détonation sonique, chargé d'une épaisse énergie démoniaque qui s'abattit sur l'écran de lumière.
 
-*Rumble rumble rumble!*
+*Grondement, grondement, grondement!*
 
 Des fissures apparurent sur l'écran, mais celui-ci ne céda pas. Sous la protection de la lumière, le visage de l'ancêtre de la famille Huan était d'une pâleur mortelle.
 
 Huan Fengshen déclara d'un ton grave: « Ancêtre, remettez Liu Mei... » Il poussa un soupir. Bien que l'adversaire ne soit qu'un cultivateur Ascendant, ses trésors magiques et ses sorts étaient trop puissants, surtout après l'apparition du démon. Même si la culture de l'Ancêtre n'avait pas décliné, il ne serait toujours pas de taille.
 
-L'ancêtre de la famille Huan jeta un regard vers le non loin absent Huan Fengshen, puis détourna les yeux pour fixer tristement Liu Mei. Il hésita un instant avant de dire lentement: « Liu Mei... »
+L'ancêtre de la famille Huan jeta un regard vers Huan Fengshen qui se tenait non loin, puis détourna les yeux pour fixer tristement Liu Mei. Il hésita un instant avant de dire lentement: « Liu Mei... »
 
 Cependant, avant qu'il n'ait pu achever sa phrase, Liu Mei leva ses beaux yeux vers lui. Elle écarta les mèches de cheveux qui retombaient sur sa tête et dit doucement: « Maître, si Liu Mei part, je mourrai certainement. »
 

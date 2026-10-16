@@ -52,23 +52,23 @@ Il tapota son sac de rangement et cinq rayons de lumière dorée s'en échappèr
 
 Après avoir sorti les cinq fourreaux, Wang Lin tendit la main droite et inséra l'épée de fer dans l'un d'eux. L'épée s'y ajusta parfaitement, sans laisser un pouce de vide.
 
-Cependant, rien ne se passa. Wang Lin retira l'épée et essaya les autres fourreaux. Lorsqu'il l'inséra dans le troisième, les runes gravées sur le fourreau émit une lumière aveuglante!
+Cependant, rien ne se passa. Wang Lin retira l'épée et essaya les autres fourreaux. Lorsqu'il l'inséra dans le troisième, les runes gravées sur le fourreau émirent une lumière aveuglante!
 
 Une aura terrifiante émana de l'ensemble épée-fourreau. Les yeux de Wang Lin pétillèrent de joie; il saisit le fourreau, prit une profonde inspiration et tira lentement l'épée de fer.
 
 Dès que l'épée fut partiellement sortie, l'aura terrifiante s'intensifia, comme si une puissance inimaginable était scellée à l'intérieur. Si l'épée était totalement dégagée, une force colossale se manifesterait!
 
-Wang Lin avait déjà ressenti une puissance similaire provenant d'un trésor appartenant à autrui: c'était celui de l'Estimé Xuan Bao. Son trésor magique était la Flèche du Pseudo Vide du Nirvana!
+Wang Lin avait déjà ressenti une puissance similaire provenant d'un trésor appartenant à autrui, dont le propriétaire était mort: c'était celui de l'Estimé Xuan Bao. Son trésor magique était la Flèche du Pseudo Vide du Nirvana!
 
 « Le Pseudo Vide du Nirvana... » Une lueur étrange passa dans les yeux de Wang Lin. Il ne retira pas l'épée, mais la remit en place avec une pointe d'excitation, puis s'élança rapidement.
 
-Il se déplaça tel un rayon de lumière le long du petit sentier et atteignit en un instant un pavillon. Ce dernier n'était pas grand, ne comportant que deux étages. Il paraissait tout à fait ordinaire, mais selon la carte, il s'agissait du premier point de restriction du premier étage. Seul l'ouverture des huit points permettrait d'espérer pénétrer dans le brouillard noir.
+Il se déplaça tel un rayon de lumière le long du petit sentier et atteignit en un instant un pavillon. Ce dernier n'était pas grand, ne comportant que deux étages. Il paraissait tout à fait ordinaire, mais selon la carte, il s'agissait du premier point de restriction du premier étage. Seule l'ouverture des huit points permettrait d'espérer pénétrer dans le brouillard noir.
 
 En examinant attentivement le pavillon, les yeux de Wang Lin s'illuminèrent: il remarqua que les restrictions avaient déjà été brisées par quelqu'un d'autre.
 
 « À en juger par l'état de cette restriction, elle n'a pas été brisée il y a longtemps », pensa Wang Lin, devenant extrêmement prudent. Il était évident qu'il n'était pas le seul à comprendre les mécanismes de ce lieu.
 
-« Lors de l'effondrement du Lac Funéraire Céleste, tout le monde fut dispersé. Il doit y avoir des gens qui ont brisé la restriction avant moi; je ne sais juste pas qui ils sont. » Wang Lin observa les environs. Le premier étage de la Grotte de l'Empereur Céleste n'était pas vaste et pouvait être aisément couvert par son sens divin. Cependant, à moins d'être fou, personne n'oserait étendre son sens divin dans un endroit parsemé de tant de restrictions. Même l'Omniscient aurait été très prudent et ne l'aurait fait qu'en étant acculé.
+« Lors de l'effondrement du Bassin Funéraire Céleste, tout le monde fut dispersé. Il doit y avoir des gens qui ont brisé la restriction avant moi; je ne sais juste pas qui ils sont. » Wang Lin observa les environs. Le premier étage de la Grotte de l'Empereur Céleste n'était pas vaste et pouvait être aisément couvert par son sens divin. Cependant, à moins d'être fou, personne n'oserait étendre son sens divin dans un endroit parsemé de tant de restrictions. Même l'Omniscient aurait été très prudent et ne l'aurait fait qu'en étant acculé.
 
 Après une courte réflexion, Wang Lin contourna le pavillon et s'avança dans l'herbe. Ses yeux brillaient d'une lueur analytique. Sans s'arrêter, il continua sa course.
 
@@ -80,7 +80,7 @@ Face à lui, de l'autre côté du pavillon, se tenait une autre personne: une be
 
 « Cher compagnon de culture, ce n'est qu'une simple restriction; pourquoi devez-vous me la voler? » La voix de la femme était un peu rauque mais très mélodieuse.
 
-Elle avait été projetée dans une restriction lors de l'effondrement du Lac Funéraire Céleste. Heureusement, celle-ci n'était pas très puissante et elle en était sortie rapidement. Elle avait ensuite aperçu le brouillard noir et, après réflexion, s'était avancée prudemment.
+Elle avait été projetée dans une restriction lors de l'effondrement du Bassin Funéraire Céleste. Heureusement, celle-ci n'était pas très puissante et elle en était sortie rapidement. Elle avait ensuite aperçu le brouillard noir et, après réflexion, s'était avancée prudemment.
 
 Elle ne se souciait guère de la jeune fille en rose qu'elle avait emmenée avec elle. Grâce au trésor que la sœur aînée de la jeune fille lui avait confié, elle ne devrait courir aucun danger.
 
@@ -120,7 +120,7 @@ Wang Lin aperçut immédiatement les deux individus à l'intérieur. Ses yeux se
 
 En voyant Wang Lin, l'homme en noir esquissa un sourire étrange. C'est la belle femme qui eut une expression troublée. Lorsque son regard balaya Wang Lin, elle fut frappée de stupeur.
 
-« Sa culture est encore plus étrange! La première fois que je l'ai vu, bien qu'il possédât la puissance d'un cultivateur du Purificateur du Nirvana, sa culture ne semblait être qu'au début du stade de l'Observateur du Nirvana. Plus tard, il n'était toujours qu'au milieu de ce même stade. Mais à présent, il a atteint le sommet de l'Observateur du Nirvana! Cache-t-il son véritable niveau ou vient-il de réaliser une percée? »
+« Sa culture est encore plus étrange! La première fois que je l'ai vu, bien qu'il possédât la puissance d'un cultivateur du Purificateur du Nirvana, sa culture ne semblait être qu'au début du stade du Scruteur du Nirvana. Plus tard, il n'était toujours qu'au milieu de ce même stade. Mais à présent, il a atteint le sommet du Scruteur du Nirvana! Cache-t-il son véritable niveau ou vient-il de réaliser une percée? »
 
 Wang Lin les observa attentivement. Il avait manifestement percé le secret du pavillon. En réalité, la carte indiquait bien la présence d'un réseau de transfert vers un espace de stockage à l'intérieur de ce pavillon. Même sans la carte, Wang Lin pouvait en voir l'existence.
 

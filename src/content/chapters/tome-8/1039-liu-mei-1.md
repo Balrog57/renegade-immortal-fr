@@ -30,9 +30,9 @@ Le monde entier semblait avoir subi une métamorphose profonde.
 
 « Si je retournais dans le monde du flacon, même si je n'ai pas la certitude de pouvoir traverser les 99 royaumes, je serais certainement capable d'en franchir plusieurs d'un coup... »
 
-Ces vieux monstres au stade de la Purification du Nirvana pouvaient percevoir les lois. Ils pouvaient également les contrôler, ce qui leur permettait naturellement de naviguer entre les royaumes.
+Ces vieux monstres au stade du Purificateur du Nirvana pouvaient percevoir les lois. Ils pouvaient également les contrôler, ce qui leur permettait naturellement de naviguer entre les royaumes.
 
-« Je voulais saisir la ligne, mais j'ai été repoussé par une force puissante parce que je n'ai pas encore atteint le stade de la Purification du Nirvana... Je ne maîtrise pas encore le contrôle des lois. » Wang Lin scruta son environnement, l'illumination brillant dans ses yeux.
+« Je voulais saisir la ligne, mais j'ai été repoussé par une force puissante parce que je n'ai pas encore atteint le stade du Purificateur du Nirvana... Je ne maîtrise pas encore le contrôle des lois. » Wang Lin scruta son environnement, l'illumination brillant dans ses yeux.
 
 Même les restrictions invisibles apparaissaient désormais clairement devant lui. En voyant cela, une pensée traversa l'esprit de Wang Lin, et la Perle Défiant le Ciel commença à s'animer d'elle-même. Un vortex de la taille d'un poing se forma entre les sourcils de Wang Lin.
 
@@ -76,9 +76,9 @@ Chaque planète traversée, chaque forme de vie — qu'il s'agisse de mortels, d
 
 Les innombrables lois du monde se transformaient en lignes que l'esprit de Wang Lin observait au passage.
 
-Aucun des cultivateurs sur ces planètes ne remarqua le passage de son esprit, pas même ceux aux stades de la Divination du Nirvana ou de la Purification du Nirvana...
+Aucun des cultivateurs sur ces planètes ne remarqua le passage de son esprit, pas même ceux aux stades du Scruteur du Nirvana ou du Purificateur du Nirvana...
 
-Après tout, l'esprit de Wang Lin était protégé par la Perle Défiant le Ciel. S'il ne souhaitait pas que l'on connaisse son existence, alors personne ne le saurait, pas même les cultivateurs au stade de la Brisure du Nirvana!
+Après tout, l'esprit de Wang Lin était protégé par la Perle Défiant le Ciel. S'il ne souhaitait pas que l'on connaisse son existence, alors personne ne le saurait, pas même les cultivateurs au stade du Briseur du Nirvana!
 
 Alors que son esprit se propageait avec la Terre des Esprits Démoniaques pour centre, le temps semblait s'étirer à l'infini. On ignorait combien de temps s'était écoulé, mais l'esprit de Wang Lin avait déjà couvert une grande partie de l'Alliance.
 
@@ -88,7 +88,7 @@ Il vit trop de cultivateurs et d'innombrables bêtes féroces qu'il n'avait jama
 
 Ces rencontres n'arrêtèrent pas Wang Lin. Lui, à cet instant, était plongé dans un état étrange où il comprenait les lois avec une intensité frénétique. À mesure que son esprit grandissait, son niveau de culture atteignait également un sommet.
 
-Atteindre le sommet du stade avancé de la Divination du Nirvana n'était pas difficile pour la plupart des cultivateurs de ce rang. Tant qu'ils observaient suffisamment de lois, ils atteignaient naturellement leur apogée.
+Atteindre le sommet du stade avancé du Scruteur du Nirvana n'était pas difficile pour la plupart des cultivateurs de ce rang. Tant qu'ils observaient suffisamment de lois, ils atteignaient naturellement leur apogée.
 
 Cependant, c'était un processus de longue haleine, car il fallait expérimenter et voir l'immensité du monde pour réussir. Personne ne pouvait égaler Wang Lin, dont l'esprit pouvait s'étendre sur la majeure partie du Système Stellaire de l'Alliance grâce à la Perle Défiant le Ciel pour observer toutes les lois existantes.
 

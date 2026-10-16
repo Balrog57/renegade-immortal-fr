@@ -80,19 +80,19 @@ L'expression de Wang Lin resta impassible, mais son esprit était en plein choc.
 
 « La grande guerre entre les quatre Royaumes Célestes a causé la perte de trop nombreux célestes. Les quatre royaumes étaient alors à leur plus faible. Pourtant, c'est à ce moment précis qu'un changement stupéfiant se produisit!
 
-« Une poignée de marginaux du clan des Tatouages surgit d'une origine inconnue et apparut dans le royaume situé sous les quatre Royaumes Célestes. Les membres de ce clan utilisaient des sorts extrêmement étranges. Nous, les célestes, étions tout à fait différents. Nous ne cultivons pas le Dao, mais seulement notre origine céleste. Nous pouvons inverser la puissance des cieux et la manier. Ces individus, eux, concentraient toute leur puissance sur des trésors semblables à des talismans pour les utiliser!
+« Une poignée de marginaux du clan du Tatouage surgit d'une origine inconnue et apparut dans le royaume situé sous les quatre Royaumes Célestes. Les membres de ce clan utilisaient des sorts extrêmement étranges. Nous, les célestes, étions tout à fait différents. Nous ne cultivons pas le Dao, mais seulement notre origine céleste. Nous pouvons inverser la puissance des cieux et la manier. Ces individus, eux, concentraient toute leur puissance sur des trésors semblables à des talismans pour les utiliser!
 
-« La bataille fut d'une intensité rare. Finalement, mon clan céleste l'emporta et dispersa ce clan des Tatouages. Nous avons même transformé une grande partie d'entre eux en esclaves! Cependant, les quatre Royaumes Célestes subirent des dommages encore plus lourds... Après cela, nous découvrîmes que ce clan des Tatouages provenait du vide situé sous l'espace! Qui est ici même! » Qing Shui pointa le sol sous ses pieds.
+« La bataille fut d'une intensité rare. Finalement, mon clan céleste l'emporta et dispersa ce clan du Tatouage. Nous avons même transformé une grande partie d'entre eux en esclaves! Cependant, les quatre Royaumes Célestes subirent des dommages encore plus lourds... Après cela, nous découvrîmes que ce clan du Tatouage provenait du vide situé sous l'espace! Qui est ici même! » Qing Shui pointa le sol sous ses pieds.
 
 Wang Lin eut un haut-le-cœur et ses yeux brillèrent. Il avait souvent croisé le Clan des Immortels Élus, mais il ne s'attendait pas à ce que leur origine soit le vide!
 
 En pensant au vieil homme et au jeune homme, une idée jaillit soudainement dans l'esprit de Wang Lin.
 
-« Ce vide n'entoure pas seulement l'Alliance, il entoure les quatre systèmes situés sous les quatre Royaumes Célestes! » Qing Shui soupira et marmonna: « Après la guerre contre le clan des Tatouages, je commençai à montrer des signes de folie, mais à l'époque, je n'y prêtai aucune attention... Par la suite, vous avez dû apprendre ce qui s'est passé par Maître Yan Leizi. »
+« Ce vide n'entoure pas seulement l'Alliance, il entoure les quatre systèmes situés sous les quatre Royaumes Célestes! » Qing Shui soupira et marmonna: « Après la guerre contre le clan du Tatouage, je commençai à montrer des signes de folie, mais à l'époque, je n'y prêtai aucune attention... Par la suite, vous avez dû apprendre ce qui s'est passé par Maître Yan Leizi. »
 
-Wang Lin réfléchit un instant en observant Qing Shui. Après un long moment, il dit lentement: « Frère aîné, ce vieil homme a affirmé qu'il était du clan antique de la Lune Dévorante, issu du Clan Céleste Immemorial... »
+Wang Lin réfléchit un instant en observant Qing Shui. Après un long moment, il dit lentement: « Frère aîné, ce vieil homme a affirmé qu'il était du clan antique de la Lune Dévorante, issu du Clan Céleste Immémorial... »
 
-Les yeux de Qing Shui se remplirent de confusion alors qu'il disait doucement: « C'est aussi ce qui me trouble. Je n'ai jamais entendu parler de ce Clan Céleste Immemorial. Le clan des Tatouages d'autrefois pouvait-il venir du même endroit? Étaient-ils aussi membres du Clan Céleste Immemorial... » La confusion dans le regard de Qing Shui s'intensifia.
+Les yeux de Qing Shui se remplirent de confusion alors qu'il disait doucement: « C'est aussi ce qui me trouble. Je n'ai jamais entendu parler de ce Clan Céleste Immémorial. Le clan du Tatouage d'autrefois pouvait-il venir du même endroit? Étaient-ils aussi membres du Clan Céleste Immémorial... » La confusion dans le regard de Qing Shui s'intensifia.
 
 « Cependant, je ressens quelque chose de très étrange. Au moment où le gaz aux sept couleurs est apparu, j'ai eu une vision. J'ai entendu dire que le Maître était mort en pointant frénétiquement le ciel du doigt. Qu'a-t-il vu exactement...? »
 

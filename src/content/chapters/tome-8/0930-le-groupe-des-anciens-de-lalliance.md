@@ -60,11 +60,11 @@ Tout en reculant, sa main gauche traça un sceau et il appliqua d'innombrables r
 
 L'effondrement avait engendré un vortex gigantesque, créant une aspiration puissante capable de tout dévorer. Seul le Serpent aux yeux de lune pouvait ignorer cette force, massacrant ses ennemis avec frénésie.
 
-À cet instant, plusieurs vieux monstres de l'Alliance encerclèrent le Serpent aux yeux de lune pour l'empêcher d'avancer. Même le Saint Démon du Dragon Nuage s'approcha de la bête.
+À cet instant, plusieurs vieux monstres de l'Alliance encerclèrent le Serpent aux yeux de lune pour l'empêcher d'avancer. Même le Saint Démon du Dragon des Nuages s'approcha de la bête.
 
 Cependant, le Dieu du Sang et sa suite encerclèrent également le serpent aux yeux de lune pour combattre les cultivateurs de l'Alliance. Les êtres de sang, apparaissant les uns après les autres, lançaient une offensive écrasante contre l'Alliance.
 
-Des grondements successifs résonnaient avec les rugissements du Serpent aux yeux de lune. Le combat entre Maître Étincelle et Wudo Chan faisait trembler le monde. Les fracas à l'intérieur du brouillard noir provoqué par leur affrontement étaient d'une intensité extrême.
+Des grondements successifs résonnaient avec les rugissements du Serpent aux yeux de lune. Le combat entre Maître Yan Leizi et Wudo Chan faisait trembler le monde. Les fracas à l'intérieur du brouillard noir provoqué par leur affrontement étaient d'une intensité extrême.
 
 Les fluctuations qui émanaient de leurs chocs étaient telles que même le Dieu du Sang et ses compagnons devaient s'en écarter.
 
@@ -72,9 +72,9 @@ Au loin, la femme en robe bleue observait la scène sans l'ombre d'une panique. 
 
 La femme en robe bleue leva la main droite et dit doucement: « J'invite le Grand Ancien du Palais Xuan, l'estimé Xuan Bao. »
 
-Un rire résonna à travers les étoiles. Ce rire ne dégageait pas une grande puissance de culture, mais tous les trésirs alentour tremblèrent un instant, comme s'ils s'apprêtaient à quitter leurs maîtres.
+Un rire résonna à travers les étoiles. Ce rire ne dégageait pas une grande puissance de culture, mais tous les trésors alentour tremblèrent un instant, comme s'ils s'apprêtaient à quitter leurs maîtres.
 
-Le Saint Démon Noir en fuite poussa un soupir de soulagement. Non seulement lui, mais même le Saint Démon du Dragon Nuage se détendit. Ce dernier renonça simplement au combat et se retira rapidement.
+Le Saint Démon Noir en fuite poussa un soupir de soulagement. Non seulement lui, mais même le Saint Démon du Dragon des Nuages se détendit. Ce dernier renonça simplement au combat et se retira rapidement.
 
 Ils savaient parfaitement que les fameux quatre saints n'étaient pas uniquement eux. Parmi eux, seul Ji Xiantian était un véritable saint!
 
@@ -90,7 +90,7 @@ Si Omniscient était respecté et que l'Alliance de Culture avait même envoyé 
 
 Si Omniscient n'avait pas été si discret, des individus comme Ling Tianhou n'auraient jamais pu exister. S'il l'avait voulu, il aurait pu les faire disparaître en un instant. Toutefois, après un certain incident, il s'était fait encore plus effacé et participait rarement aux réunions des anciens; il s'était retiré du monde.
 
-Il faut dire que même Ji Xiantian ou Wudo Chan, qui affrontaient Maître Étincelle, n'étaient pas éligibles au rang d'Ancien. Devant l'estimé Xuan Bao, ces deux-là n'étaient rien!
+Il faut dire que même Ji Xiantian ou Wudo Chan, qui affrontaient Maître Yan Leizi, n'étaient pas éligibles au rang d'Ancien. Devant l'estimé Xuan Bao, ces deux-là n'étaient rien!
 
 Nul ne savait quel niveau de culture était requis pour intégrer ce groupe. Certains soupçonnaient que, si la culture y était liée, elle n'était pas le seul critère. Le groupe des anciens détenait les plus hauts pouvoirs et les secrets les plus profonds de l'Alliance! Ses membres étaient les véritables souverains de l'Alliance!
 

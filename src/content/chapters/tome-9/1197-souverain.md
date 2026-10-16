@@ -60,17 +60,17 @@ Le visage de Wang Lin pâlit et il prit une inspiration saccadée. Inconsciemmen
 
 Cependant, à l'époque, le Souverain était une figure lointaine, un colosse appartenant à l'ère de Qing Lin. Des éons s'étaient écoulés depuis.
 
-Pourtant, Wang Lin ne s'attendait pas à trouver un jade contenant des informations sur le Souverain dans le Système d'Étoiles de la Mer Nuageuse, au sein de ce Monde aux Sept Couleurs, dans cette même vallée!
+Pourtant, Wang Lin ne s'attendait pas à trouver un jade contenant des informations sur le Souverain dans le Système d'Étoiles de la Mer des Nuages, au sein de ce Monde aux Sept Couleurs, dans cette même vallée!
 
 Wang Lin ferma les yeux et repensa malgré lui au combat entre Qing Shui et le Serpent aux yeux de lune. L'effondrement du vide avait provoqué l'apparition de ces deux mystérieux cultivateurs!
 
-Ces deux individus étaient des résidents du monde extérieur! Si la Perle de Défi Céleste n'était pas apparue, il aurait été capturé par eux!
+Ces deux individus étaient des résidents du monde extérieur! Si la Perle Défiant le Ciel n'était pas apparue, il aurait été capturé par eux!
 
-« À l'époque où le vieil homme a vu la Perle de Défi Céleste, il m'a appelé le Souverain du Royaume Scellé… » Wang Lin ouvrit les yeux et poussa un long soupir. Son esprit était comme une mer déchaînée après avoir découvert ces révélations. Il mit longtemps à retrouver son calme.
+« À l'époque où le vieil homme a vu la Perle Défiant le Ciel, il m'a appelé le Souverain du Royaume Scellé… » Wang Lin ouvrit les yeux et poussa un long soupir. Son esprit était comme une mer déchaînée après avoir découvert ces révélations. Il mit longtemps à retrouver son calme.
 
-« Ce Monde aux Sept Couleurs est lié à l'Omniscient ainsi qu'au Souverain… Notamment ces clous aux sept couleurs qui peuvent rendre fou et pousser à massacrer tout être vivant… Le Frère Ancien Qing Shui a dit qu'avant l'effondrement du Royaume Céleste, il était en culture fermée lorsqu'il est soudainement devenu fou. Lui-même ignore pourquoi… Tout cela est lié à cette folie! »
+« Ce Monde aux Sept Couleurs est lié à l'Omniscient ainsi qu'au Souverain… Notamment ces clous aux sept couleurs qui peuvent rendre fou et pousser à massacrer tout être vivant… Le Senior Frère Qing Shui a dit qu'avant l'effondrement du Royaume Céleste, il était en culture fermée lorsqu'il est soudainement devenu fou. Lui-même ignore pourquoi… Tout cela est lié à cette folie! »
 
-« De plus, le vieux Grand Empereur Divin de l'Oiseau Vermillon a dit qu'après que le Frère Ancien Qing Shui se soit rendu à l'Alliance de Culture, il était redevenu fou… Quel secret se cache derrière tout cela? Cela doit être lié à ce Souverain! »
+« De plus, le vieux Grand Empereur Divin de l'Oiseau Vermillon a dit qu'après que le Senior Frère Qing Shui se soit rendu à l'Alliance de Culture, il était redevenu fou… Quel secret se cache derrière tout cela? Cela doit être lié à ce Souverain! »
 
 « Omniscient, Qing Shui, Sima Mo, Souverain… » Wang Lin médita silencieusement.
 
@@ -96,4 +96,4 @@ En voyant ces perles, le cœur de Wang Lin trembla. Il reconnut immédiatement c
 
 Lorsque Maître Pin Cendré avait sorti les perles, il s'était déplacé avec une telle rapidité que Wang Lin n'avait pu les observer de près sans se distraire du combat. Il n'avait fait qu'un bref coup d'œil, mais à présent, il pouvait les analyser clairement.
 
-« Perle de Défi Céleste… »
+« Perle Défiant le Ciel… »

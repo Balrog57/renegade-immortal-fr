@@ -50,7 +50,7 @@ Le Maître Nan Yunzi était tout aussi sous le choc. Son niveau de culture étai
 
 Situ Nan, le Maître Long Pan et le Maître Lu Fu étaient tous stupéfaits. L'apparition soudaine de cette Porte du Vide les avait choqués deux fois de suite. Ils ignoraient s'il s'agissait d'une bénédiction ou d'un désastre.
 
-« C'est similaire... Comment peut-ce être si semblable à mon frère... » Les yeux de Situ Nan trahissaient son excitation et ses attentes. Une spéculation germa dans son cœur, faisant battre son pouls plus vite, poussant son émotion jusqu'à son paroxysme.
+« C'est similaire... Comment peut-il être si semblable à mon frère... » Les yeux de Situ Nan trahissaient son excitation et ses attentes. Une spéculation germa dans son cœur, faisant battre son pouls plus vite, poussant son émotion jusqu'à son paroxysme.
 
 Wang Lin, qui se trouvait à l'intérieur du vide, ignorait tout de cette scène. Le grondement qu'il percevait au loin était causé par la Porte du Vide apparue à l'extérieur.
 

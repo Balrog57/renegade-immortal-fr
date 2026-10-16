@@ -64,7 +64,7 @@ Wang Lin médita longuement en silence. Lorsqu'il se trouvait dans le Monde des 
 
 Tandis qu'ils progressaient, Wang Lin jeta un dernier regard vers l'endroit où reposait son avatar. Ses yeux brillaient d'une intensité vive. Au-delà des théories du Feng Shui, il nourrissait de grandes attentes envers la croissance de cet être. Il sentait clairement ce lien indéfectible avec l'avatar. Un jour, quand l'avatar aurait fini de croître et sortirait de sa coquille, Wang Lin était convaincu qu'il changerait le monde!
 
-Portant le Cercueil de l'Évitement de la Mort contenant Li Muwan, Wang Lin, porté par le moustique, fonça vers la sortie!
+Portant le Cercueil d'Évitement Céleste contenant Li Muwan, Wang Lin, porté par le moustique, fonça vers la sortie!
 
 À cet instant précis, au cœur du vide, il ignorait le bouleversement titanesque qui venait de frapper le Continent Astral Immortel au moment même où le Roi Moustique avait apporté le sang sur la plateforme et que celui-ci avait été absorbé.
 
@@ -92,13 +92,13 @@ L'Ancêtre Céleste!
 
 L'Ancêtre Céleste avait disparu dans le vide il y a des éons. C'était la première fois depuis lors que son ombre se manifestait de nouveau. Cela déclencha une onde de choc immense parmi la race céleste.
 
-Tous les Grands Empereurs de la race céleste apparurent et s'inclinèrent vers le ciel!
+Tous les Grands Empyréens de la race céleste apparurent et s'inclinèrent vers le ciel!
 
 Au même moment, dans les 36 États du pays antique, un vortex colossal apparut également. Ce vortex était noir et s'étendait sur les 36 États comme pour défier les Célestes!
 
 Une aura terrifiante et tyrannique jaillit de ce vortex, forçant tous les habitants des pays antiques à se prosterner au sol dans une exaltation mêlée de crainte.
 
-Simultanément, Xuan Luo et les deux autres survivants des quatre anciens Grands Empereurs surgirent. Flottant dans les airs, ils contemplèrent le vortex céleste avec incrédulité.
+Simultanément, Xuan Luo et les deux autres survivants des quatre anciens Grands Empyréens surgirent. Flottant dans les airs, ils contemplèrent le vortex céleste avec incrédulité.
 
 Il n'y avait pas d'ombre comme celle de l'Ancêtre Céleste, mais une paire d'yeux. Des yeux argentés qui fixaient l'Ancêtre Céleste, libérant une lumière argentée monstrueuse!
 

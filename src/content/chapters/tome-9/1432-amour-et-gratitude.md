@@ -8,7 +8,7 @@ slug: amour-et-gratitude
 ---
 « Ce vieil homme ne vous ment pas. Dès il y a 1 200 ans, j'ai entendu parler de votre nom et j'ai appris que la seule raison pour laquelle vous cultivez est de ramener votre femme! » La voix du Souverain était faible alors qu'elle flottait lentement parmi les étoiles, mais elle résonnait comme de lourds marteaux frappant l'esprit de Wang Lin.
 
-Cependant, cet impact se transforma en vagues qui déferlèrent dans le cerveau de Wang Lin, l'empêchant d'entendre la voix du Souverain. Seules les quatre derniers mots furent comme un éclair déchirant sa chair et se précipitant dans son âme!
+Cependant, cet impact se transforma en vagues qui déferlèrent dans le cerveau de Wang Lin, l'empêchant d'entendre la voix du Souverain. Seuls les quatre derniers mots furent comme un éclair déchirant sa chair et se précipitant dans son âme!
 
 « Ramener votre femme! »
 
@@ -56,7 +56,7 @@ Wan Er était son tout et sa seule faiblesse. Il n'autoriserait personne à lui 
 
 Cependant, certaines choses étaient encore plus importantes que sa propre existence! Le problème était qu'en cette vie, au-delà de l'amour, il y avait des émotions dont il ne pouvait se défaire!
 
-« À partir de maintenant, je te confie la Secte de la Affinement de l'Âme... » Sur la planète Suzaku, le maître de la Secte de la Affinement de l'Âme, Dun Tian, avait transmis les trésors de sa secte à Wang Lin avant de s'éteindre. Après avoir déposé l'héritage sur ses épaules, Dun Tian avait fermé les yeux avec un sourire... Situ Nan avait renoncé à la chance de s'emparer de la Perle Défiant le Ciel pour accompagner Wang Lin pendant des centaines d'années. Il lui avait enseigné la culture depuis sa jeunesse. Un maître, un père, un frère et aussi un ami... Sans Situ, il n'y aurait pas de Wang Lin! Wang Lin avait un jour dit quelque chose sur Situ qui représentait toute la gratitude qu'il lui portait!
+« À partir de maintenant, je te confie la Secte de l'Affinement de l'Âme... » Sur la planète Suzaku, le maître de la Secte de l'Affinement de l'Âme, Dun Tian, avait transmis les trésors de sa secte à Wang Lin avant de s'éteindre. Après avoir déposé l'héritage sur ses épaules, Dun Tian avait fermé les yeux avec un sourire... Situ Nan avait renoncé à la chance de s'emparer de la Perle Défiant le Ciel pour accompagner Wang Lin pendant des centaines d'années. Il lui avait enseigné la culture depuis sa jeunesse. Un maître, un père, un frère et aussi un ami... Sans Situ, il n'y aurait pas de Wang Lin! Wang Lin avait un jour dit quelque chose sur Situ qui représentait toute la gratitude qu'il lui portait!
 
 « Moi, Wang Lin, je ne m'agenouillerai jamais devant les cieux, sauf par respect pour Situ! »
 
@@ -68,15 +68,15 @@ Le frère Qing Shui avait un visage froid mais un cœur chaleureux. Une fois qu'
 
 « Puisqu'il est mon frère cadet, personne ne peut lui nuire. Si vous lui blessez ne serait-ce qu'un doigt, je vous réclamerai la vie! »
 
-La folie de Qing Shui, qui l'avait poussé à tuer sa femme, était le fruit des complots du Royaume Extérieur et exprimait toute sa douleur et son indignation. S'il découvrait que le frère cadet qu'il avait autrefois protégé était devenu l'esclave de la cause de son malheur, comment se sentirait-il... Il y avait aussi la cinquième génération d'Oiseau Vermillon. Bien qu'au terme de sa vie, il était toujours prêt à aider Wang Lin à se rétablir. Il lui avait même légué la Secte Divin de l'Oiseau Vermillon. Son regard bienveillant resterait à jamais gravé dans le cœur de Wang Lin.
+La folie de Qing Shui, qui l'avait poussé à tuer sa femme, était le fruit des complots du Royaume Extérieur et exprimait toute sa douleur et son indignation. S'il découvrait que le frère cadet qu'il avait autrefois protégé était devenu l'esclave de la cause de son malheur, comment se sentirait-il... Il y avait aussi la cinquième génération d'Oiseau Vermillon. Bien qu'au terme de sa vie, il était toujours prêt à aider Wang Lin à se rétablir. Il lui avait même légué la Secte Divine de l'Oiseau Vermillon. Son regard bienveillant resterait à jamais gravé dans le cœur de Wang Lin.
 
-« Ce vieil homme, Lu Yun, a vécu toute sa vie pour la Secte Divin de l'Oiseau Vermillon... Même si je vais bientôt mourir, je peux désormais mourir avec le sourire... Tu es excellent, prends soin de la Secte Divin de l'Oiseau Vermillon pour moi. »
+« Ce vieil homme, Lu Yun, a vécu toute sa vie pour la Secte Divine de l'Oiseau Vermillon... Même si je vais bientôt mourir, je peux désormais mourir avec le sourire... Tu es excellent, prends soin de la Secte Divine de l'Oiseau Vermillon pour moi. »
 
 Le dernier souhait de l'ancien Empereur Oiseau Vermillon était que Wang Lin veille sur la secte. Face à toute la bonté reçue, il ne pouvait supporter la colère et le regard déçu de l'Empereur Divin défunt.
 
 La deuxième génération d'Oiseau Vermillon n'avait connu Wang Lin que quelques jours. Son rire franc, son expression satisfaite, son admiration et sa gentillesse lui revinrent en mémoire. Il avait pêché un dragon pour offrir son sang à Wang Lin et avait tenté de le sauver à maintes reprises lors des épreuves. Il avait même rugi face à la première génération d'Oiseau Vermillon lors de l'Épreuve Céleste!
 
-La deuxième génération lui avait transmis la méthode pour contrôler le dragon et la Restriction de l'Âme Antique. De plus, avant le départ de Wang Lin, il avait clairement désobéi aux ordres de la première génération et dû en payer un prix inconnu pour enseigner à Wang Lin le sortilège le plus puissant du Clan de l'Oiseau Vermillon: le Parapluie Antique Brûlant les Royaumes!
+La deuxième génération lui avait transmis la méthode pour contrôler le dragon et la Restriction de l'Âme Antique. De plus, avant le départ de Wang Lin, il avait clairement désobéi aux ordres de la première génération et dû en payer un prix inconnu pour enseigner à Wang Lin le sortilège le plus puissant du Clan de l'Oiseau Vermillon: l'Ombrelle Brûlante du Royaume!
 
 « Petit gars, n'oublie pas que la prochaine fois que nous nous verrons, tu devras choisir la septième génération pour ce vieil homme. Choisis un enfant déterminé! Tu as l'air plutôt froid, mais même toi, tu as été espiègle à un moment donné. Quel dommage... Ah, qu'est-ce qu'il y a de si bien dans la culture duale, ce vieil homme ne comprend vraiment pas... »
 
@@ -84,7 +84,7 @@ Il y avait encore tant de gens, tant de personnes... Comment Wang Lin pourrait-i
 
 Le Maître Simo d'aujourd'hui était l'avenir de Wang Lin!
 
-Pour ressusciter sa sœur, le Maître Simo avait abandonné la Secte Brisant les Cieux et tous ses frères de secte. Il avait même sacrifié sa propre âme pour devenir le chien du Souverain et avait tué sur ordre de celui-ci. Sur un simple signe du Souverain, même s'il s'agissait de son propre maître, il aurait levé le couperet tout en versant des larmes!
+Pour ressusciter sa sœur, le Maître Simo avait abandonné la Secte Brise-Ciel et tous ses frères de secte. Il avait même sacrifié sa propre âme pour devenir le chien du Souverain et avait tué sur ordre de celui-ci. Sur un simple signe du Souverain, même s'il s'agissait de son propre maître, il aurait levé le couperet tout en versant des larmes!
 
 S'il n'avait pas vu les souvenirs du Maître Simo, le choix de Wang Lin aurait été encore plus déchirant.
 

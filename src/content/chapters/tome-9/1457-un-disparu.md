@@ -12,7 +12,7 @@ Une plateforme de 60 000 pieds s'étendait ici, parsemée d'une multitude de cr�
 
 Un vieil homme était assis au centre de cette plateforme, imprégné d'une odeur de sang.
 
-L'homme vêtait du noir et la moitié de ses cheveux était blanche. Son visage oscillait rapidement entre la jeunesse et la vieillesse. Entre ses sourcils se trouvait une marque en forme de lune, mais ce n'était pas celle du Clan Lunaire; elle ressemblait plutôt à un sceau démoniaque!
+L'homme vêtait du noir et la moitié de ses cheveux était blanche. Son visage oscillait rapidement entre la jeunesse et la vieillesse. Entre ses sourcils se trouvait une marque en forme de lune, mais ce n'était pas celle du Clan de la Lune; elle ressemblait plutôt à un sceau démoniaque!
 
 Si l'avatar du Maître Dao Miao Yin s'était trouvé ici, il aurait été stupéfait et extrêmement prudent. Cet homme était l'un des cinq maîtres qui avaient été gravement blessés dans les Terres Déchues auparavant: le Maître Démon Neuf Cieux.
 

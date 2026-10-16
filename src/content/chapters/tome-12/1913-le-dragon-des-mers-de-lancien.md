@@ -30,11 +30,11 @@ Le clan céleste n'avait pas besoin de s'agenouiller devant l'empereur, il lui s
 
 La raison pour laquelle la famille impériale restait toujours en retrait, ne participant pas aux affaires mondaines, découlait également de la volonté de l'Ancêtre Céleste. Les êtres célestes ne pouvaient être entravés, et s'ils l'étaient, ils n'étaient pas dignes de porter ce nom!
 
-En conséquence, même les quatre autres Grands Empereurs témoignaient un certain respect à la famille impériale.
+En conséquence, même les quatre autres Grands Empyréens témoignaient un certain respect à la famille impériale.
 
 Tandis que tous les cultivateurs de la Secte Gui Yi s'inclinaient, la silhouette dorée surplombait la terre du regard.
 
-« Il y a trois édits impériaux: l'un ici, l'un au Grande Secte de l'Âme, et le dernier à la Secte Dao Démoniaque du Continent du Démon Vert! »
+« Il y a trois édits impériaux: l'un ici, l'un à la Secte de la Grande Âme, et le dernier à la Secte Dao Démoniaque du Continent du Démon Vert! »
 
 D'un mouvement de la main droite, la lumière dorée brilla de plus belle. Un édit impérial, fait d'une matière inconnue, fut déployé par cet être.
 
@@ -46,7 +46,7 @@ Ces huit noms appartenaient aux seize individus les plus remarquables de cette g
 
 Alors que ces paroles résonnaient, le Maître de la Secte Gui Yi laissa échapper un profond soupir et esquissa un sourire. Cette guerre semblait complexe, mais elle était en réalité très simple: la bataille entre les deux continents servait à mettre en avant la nouvelle génération afin d'attirer l'attention de l'Empereur Céleste et de pouvoir entrer dans le temple ancestral!
 
-Le Maître de la Secte Gui Yi n'était pas le seul à sourire. Les Exaltés du Vide du Continent du Démon Vert souriaient également. Ils joignirent les mains et s'inclinèrent une fois de plus lorsque l'édit fut achevé.
+Le Maître de la Secte Gui Yi n'était pas le seul à sourire. Les Exaltés Tribulants du Vide du Continent du Démon Vert souriaient également. Ils joignirent les mains et s'inclinèrent une fois de plus lorsque l'édit fut achevé.
 
 « Nous obéissons tous à la volonté de l'Empereur! »
 
@@ -54,13 +54,13 @@ La silhouette dorée agita sa main droite et l'édit doré s'envola. Il flotta d
 
 Après cela, la silhouette dorée ne prononça plus un mot et disparut du ciel. La clarté dorée s'estompa lentement pour laisser place à la normale.
 
-Presque au même instant, à l'extérieur du Grande Secte de l'Âme, le combat entre les deux camps atteignait son paroxysme. Yun Kong et les génies du Grande Secte de l'Âme étaient en plein affrontement lorsque la seconde silhouette dorée apparut.
+Presque au même instant, à l'extérieur de la Secte de la Grande Âme, le combat entre les deux camps atteignait son paroxysme. Yun Kong et les génies de la Secte de la Grande Âme étaient en plein affrontement lorsque la seconde silhouette dorée apparut.
 
-La scène se répéta à l'identique au-dessus du Grande Secte de l'Âme.
+La scène se répéta à l'identique au-dessus de la Secte de la Grande Âme.
 
 Tous les cultivateurs s'inclinèrent, et l'édit impérial portait un message quasi identique, seuls les huit noms changeaient pour inclure Yun Kong et ses compagnons!
 
-Une fois la silhouette dorée partie, un silence absolu tomba sur le Grande Secte de l'Âme, à l'intérieur comme à l'extérieur.
+Une fois la silhouette dorée partie, un silence absolu tomba sur la Secte de la Grande Âme, à l'intérieur comme à l'extérieur.
 
 L'Ancien Taureau Vert regarda le ciel après la dissipation de la lumière dorée, l'expression tourmentée. Il soupira; trop de cultivateurs étaient morts dans cette guerre entre les deux continents, mais pour saisir cette chance, ils n'avaient pas d'autre choix!
 

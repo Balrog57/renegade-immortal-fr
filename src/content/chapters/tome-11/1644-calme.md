@@ -60,6 +60,8 @@ Cependant, le corps de Wang Lin subit aussi les contrecoups. Seul son doigt éta
 
 Pourtant, Wang Lin réprima cette douleur intense, une intention meurtrière brillant dans ses yeux. Après avoir repoussé le Général Dragon Azure, une goutte de sang doré contenant le Corps Immortel Céleste jaillit. La pression qu'elle dégageait terrorisa les quatre généraux; cette goutte contenait une lignée céleste d'une pureté extrême.
 
+Le Général Tortue Noire, le plus proche de Wang Lin, fut frappé par la lumière dorée; il sembla sur le point de se changer en gaz. Un cri misérable suivit aussitôt.
+
 La goutte de sang doré s'échappa des sourcils de Wang Lin et fonça vers le Général Tortue Noire. Le sang pénétra ses mains et l'ombre de la Tortue derrière lui s'effondra. Il poussa un rugissement de douleur.
 
 Le Général Tortue Noire cracha du sang et recula précipitamment. Son corps était enveloppé d'une fumée noire et son poing droit n'était plus qu'un amas sanglant. Ses yeux étaient pétris de peur alors qu'il fuyait.

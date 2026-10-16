@@ -32,7 +32,7 @@ Malgré cela, l'inquiétude persistait. Il frappa donc son sac de rangement, fai
 
 Les trésors magiques chargèrent alors Wang Lin.
 
-Le visage de Yu Fei était livide, mais il recula sans hésiter.
+Le visage de Yu Fei était un peu pâle, mais il recula sans hésiter.
 
 L'expression de Wang Lin demeura indifférente. Face à la lame colossale formée par le trésor de vie de Yu Fei, une riche énergie spirituelle émana de son corps. Le corps de Wang Lin commença alors à croître avec frénésie pour devenir un géant de plusieurs centaines de pieds!
 
@@ -46,7 +46,7 @@ Alors qu'il s'apprêtait à le rejeter, Wang Lin fut surpris de constater que le
 
 Il jeta le python dans la Rivière des Enfers, puis d'un geste de la main, il fit s'effondrer tous les trésors qui arrivaient.
 
-Son trésor de vie ayant été détruit, Yu Fei cracha un sang noir et son visage devint encore plus pâle. Il serra les dents, le regard empreint de résolution. Malgré la douleur, il s'arracha le bras gauche dans une explosion de sang. Le visage livide, il murmura un sort complexe. Soudain, son bras gauche se désintégra pour former une porte vortex.
+Son trésor de vie ayant été détruit, Yu Fei cracha une bouffée de sang et son visage devint encore plus pâle. Il serra les dents, le regard empreint de résolution. Malgré la douleur, il s'arracha le bras gauche dans une explosion de sang. Le visage livide, il murmura un sort complexe. Soudain, son bras gauche se désintégra pour former une porte vortex.
 
 Yu Fei s'engouffra directement dans le vortex.
 

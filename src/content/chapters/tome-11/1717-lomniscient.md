@@ -26,7 +26,7 @@ Par ce moyen, Wang Lin espérait localiser l'Omniscient en exploitant le lien en
 
 Ce n'était pas la première fois qu'il utilisait cette méthode. Il avait soigneusement pesé les risques, mais aucun danger ne lui était apparu.
 
-Alors que Wang Lin fusionnait avec l'avatar de l'Omniscient, une météorite flottait lentement à travers la Rivière des Invocations. L'Omniscient était assis à l'intérieur du météore, arborant un sourire étrange.
+Alors que Wang Lin fusionnait avec l'avatar de l'Omniscient, une météorite flottait lentement à travers la Rivière Invoquée. L'Omniscient était assis à l'intérieur du météore, arborant un sourire étrange.
 
 Ses cheveux blancs ondulaient d'une manière singulière, lui conférant l'allure d'un être céleste. Pourtant, son sourire brisait cette image et lui donnait un air extrêmement sinistre.
 

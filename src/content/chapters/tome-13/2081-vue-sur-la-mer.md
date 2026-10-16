@@ -8,7 +8,7 @@ slug: vue-sur-la-mer
 ---
 Wang Lin partit.
 
-Il disparut du monde des grottes. Sur une planète ordinaire de le Luotian, il y avait une femme. Elle portait des vêtements violets et ses cheveux lui arrivaient à la taille. Ses cheveux étaient emportés par le vent et sa robe dégageait une élégance naturelle.
+Il disparut du monde des grottes. Sur une planète ordinaire du Luotian, il y avait une femme. Elle portait des vêtements violets et ses cheveux lui arrivaient à la taille. Ses cheveux étaient emportés par le vent et sa robe dégageait une élégance naturelle.
 
 Elle regarda le ciel. Sous le soleil, si l'on observait attentivement, on pouvait distinguer la finesse de ses sourcils. Elle était empreinte de confusion. Elle sentit un sens divin arriver et stagner près d'elle un instant avant de repartir.
 
@@ -28,7 +28,7 @@ Sur le grand rocher central siégeait un vieil homme. Le visage rubicond, il cul
 
 Il n'y avait aucun rocher ici avant sa venue; mais le jour où le vieil homme arriva, de plus en plus de ces pierres apparurent, comme si elles étaient formées par son sort...
 
-Ce vieil homme était la statue de pierre fissurée qui reposait dans les profondeurs du Royaume Céleste du Vent. Sans lui, la bataille de Wang Lin contre le Daoïste Eau aurait été bien plus périlleuse.
+Ce vieil homme était la statue de pierre fissurée qui reposait dans les profondeurs du Royaume Céleste du Vent. Sans lui, la bataille de Wang Lin contre le Shui Daozi aurait été bien plus périlleuse.
 
 En cet instant, les yeux du vieil homme étaient clos; il cultivait paisiblement pour expulser la puissance qui transformait son corps en pierre. Tous les rochers présents étaient nés de ce processus.
 
@@ -62,7 +62,7 @@ Les chaînes de montagnes sur la planète évoquaient des veines sanguines, les 
 
 Wang Lin était déjà venu ici. Il avait non seulement vu le bébé Tuo Sen, mais aussi la planète que ce dernier avait choisie pour son sommeil.
 
-Après le départ de Wang Lin, le monde des grottes retrouva son calme. C'était comme si quelqu'un s'était fortifié. Une force qu'almost personne ne pouvait détecter emplit le monde après son départ.
+Après le départ de Wang Lin, le monde des grottes retrouva son calme. C'était comme si quelqu'un s'était fortifié. Une force que presque personne ne pouvait détecter emplit le monde après son départ.
 
 Cette puissance pourrait protéger cet endroit pendant des générations, afin que des incidents tels que celui du Maître Âme Écarlate ne se reproduisent plus jamais.
 
@@ -86,7 +86,7 @@ Le Maître Hong Shan le poursuivait, l'air sombre. À cet instant, l'amas de lum
 
 Qing Lin, Zhou Ru, Papillon Rouge, Zhou Yi, et presque tous les habitants du monde des grottes reçurent l'éclat de lumière et ressentirent l'existence de la Secte des Sept Dao. Même s'ils étaient encore mortels, les souvenirs de la secte s'éveilleraient lentement en eux dans le futur.
 
-Wang Lin jeta un dernier regard à la Secte des Sept Dao avant d'y établir une formation puissante. Cette formation était comparable à celle qu'il avait installée dans le monde des grottes. Même s'il ne parvenait pas à sortir du Royaume Divin Immemorial, il pourrait garantir la sécurité du monde des grottes et protéger l'existence de la Secte des Sept Dao.
+Wang Lin jeta un dernier regard à la Secte des Sept Dao avant d'y établir une formation puissante. Cette formation était comparable à celle qu'il avait installée dans le monde des grottes. Même s'il ne parvenait pas à sortir du Royaume Divin Immémorial, il pourrait garantir la sécurité du monde des grottes et protéger l'existence de la Secte des Sept Dao.
 
 Après avoir accompli tout cela, Wang Lin ne se retourna pas et marcha vers le ciel jusqu'à devenir transparent et disparaître.
 
@@ -98,14 +98,14 @@ Après avoir accompli tout cela, Wang Lin ne se retourna pas et marcha vers le c
 
 Après un long moment, Wang Lin ferma les yeux et marcha vers le clan Antique.
 
-« J'avais promis à Gu Dao d'entrer dans le Royaume Divin Immemorial par le côté du clan Antique. » Wang Lin se remémora cette promesse. Il voyagea pendant quelques jours au sein du clan céleste et atteignit la bordure du bassin qui formait la vaste mer. Puis il marcha vers le centre, là où se trouvait la tempête marine.
+« J'avais promis à Gu Dao d'entrer dans le Royaume Divin Immémorial par le côté du clan Antique. » Wang Lin se remémora cette promesse. Il voyagea pendant quelques jours au sein du clan céleste et atteignit la bordure du bassin qui formait la vaste mer. Puis il marcha vers le centre, là où se trouvait la tempête marine.
 
 Avant même de s'en approcher, il entendait les grondements tonnantiens qui agitaient le ciel et l'obscurcissaient. La tempête marine s'était formée il y a trois cents ans, et elle semblait désormais plus violente que jamais.
 
 Tandis que les trépidations de tonnerre résonnaient à travers le monde, la tempête tournoyait rapidement, générant d'immenses ondulations. Elles ressemblaient à des vagues flottant dans l'air, se percutant sans cesse et semblant s'élancer vers le ciel. Au cœur de la tempête se dressaient neuf piliers gigantesques émettant neuf couleurs de lumière différentes. Cette clarté emplissait toute la tempête et s'y reflétait, créant l'illusion d'un rêve aux neuf couleurs.
 
-Ce rêve portait en lui un mystère qui forçait quiconque à s'y immerger, rendant tout détachement impossible. En raison des rumeurs circulant sur le Royaume Divin Immemorial sur le Continent Astral Immortel, les lieux étaient bondés. Les gens étaient animés par le désir, celui de devenir plus forts.
+Ce rêve portait en lui un mystère qui forçait quiconque à s'y immerger, rendant tout détachement impossible. En raison des rumeurs circulant sur le Royaume Divin Immémorial sur le Continent Astral Immortel, les lieux étaient bondés. Les gens étaient animés par le désir, celui de devenir plus forts.
 
-Wang Lin se tint sur le flanc de la tempête et n'hésita pas à la traverser. Il apparut du côté du clan Antique et s'assit calmement pour attendre l'ouverture du Royaume Divin Immemorial dans quelques mois.
+Wang Lin se tint sur le flanc de la tempête et n'hésita pas à la traverser. Il apparut du côté du clan Antique et s'assit calmement pour attendre l'ouverture du Royaume Divin Immémorial dans quelques mois.
 
 À mesure que l'échéance approchait, le clan céleste et le clan Antique s'éveillèrent tels deux prédateurs de légende sortant d'un long sommeil, déchaînant leur puissance ultime après des centaines d'années de préparation.

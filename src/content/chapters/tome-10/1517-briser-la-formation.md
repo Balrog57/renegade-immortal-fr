@@ -36,11 +36,11 @@ Le grand palais noir s'approcha lentement, propageant une pression de plus en pl
 
 « Nous saluons tous le Palais de la Punition Céleste! » La voix des 90 000 cultivateurs monta telle une vague déferlante.
 
-À l'extérieur de la Formation de Scellement du Domaine, le palais géant s'immobilisa lentement. Les milliers de cultivateurs en noir fixaient froidement l'horizon.
+À l'extérieur de la Formation de Scellement du Royaume, le palais géant s'immobilisa lentement. Les milliers de cultivateurs en noir fixaient froidement l'horizon.
 
 « Sur ordre du Conseil Souverain, ce vieil homme est venu superviser la bataille... » Une voix antique émana du palais noir. Cette voix libéra une pression qui submergea immédiatement les clameurs des 90 000 cultivateurs.
 
-« À présent, ce vieil homme va ouvrir la Formation de Scellement du Domaine, et cette guerre va commencer... » Tandis que la voix s'élevait, on crut percevoir un soupir. Peu après, un rayon de lumière jaillit du palais noir!
+« À présent, ce vieil homme va ouvrir la Formation de Scellement du Royaume, et cette guerre va commencer... » Tandis que la voix s'élevait, on crut percevoir un soupir. Peu après, un rayon de lumière jaillit du palais noir!
 
 C'était une épée, une lame faite de lumière cristalline!
 
@@ -74,7 +74,7 @@ La musique de la cithare s'interrompit brusquement! L'une des cordes se rompit e
 
 Après un long moment, il laissa échapper un soupir et agita sa main droite. La corde brisée se détacha de l'instrument, enveloppée d'une lumière bleue. Le Maître du Dao Rêve Bleu se mordit la langue et cracha du sang. Ce sang fusionna avec la corde avant de s'élancer au loin.
 
-À l'extérieur de la Formation de Scellement du Domaine, le monde adjacent au palais noir trembla. Neuf pétales apparurent aux côtés de l'épée de cristal, formant une tempête monstrueuse!
+À l'extérieur de la Formation de Scellement du Royaume, le monde adjacent au palais noir trembla. Neuf pétales apparurent aux côtés de l'épée de cristal, formant une tempête monstrueuse!
 
 Simultanément, une lumière bleue jaillit violemment et un fragment de corde apparut. Cette corde, imprégnée du sang du Maître du Dao Rêve Bleu, de sa culture et liée à son esprit, contenait de puissantes Flammes Joss.
 
@@ -104,7 +104,7 @@ Après un soupir, elle se mordit le doigt. D'un geste de la main, elle fit jaill
 
 Un instant plus tard, les trois spectres s'inclinèrent devant la femme en rouge avant de disparaître!
 
-À l'extérieur de la Formation de Scellement du Domaine, une lumière spectrale jaillit aux côtés de l'épée de cristal, de la corde et des neuf pétales. Un œil fantomatique apparut soudainement, doté de trois pupilles, offrant un spectacle saisissant!
+À l'extérieur de la Formation de Scellement du Royaume, une lumière spectrale jaillit aux côtés de l'épée de cristal, de la corde et des neuf pétales. Un œil fantomatique apparut soudainement, doté de trois pupilles, offrant un spectacle saisissant!
 
 À l'instant même où cet œil aux trois pupilles se manifesta, un rugissement retentit. Les trois spectres géants déchirèrent l'espace pour apparaître!
 
@@ -112,10 +112,10 @@ Les divers trésors invoqués par les puissants cultivateurs du Royaume Extérie
 
 « Pêcher la Lune dans le Puits! » lança l'homme en noir d'une voix rauque et faible qui résonna dans tout le palais.
 
-La Formation de Scellement du Domaine commença à trembler devant les 90 000 cultivateurs et devint floue, comme si une force colossale tentait d'en extraire l'âme même!
+La Formation de Scellement du Royaume commença à trembler devant les 90 000 cultivateurs et devint floue, comme si une force colossale tentait d'en extraire l'âme même!
 
 Tandis que la formation vacillait, des éclairs de lumière jaillirent et divers esprits de formation se manifestèrent. Les trésors ensanglantés dégageaient alors une aura terrifiante!
 
-Ce furent les tremblements de la Formation de Scellement du Domaine qui attirèrent l'attention de Wang Lin. Ses pupilles se rétractèrent et il tourna le regard vers la scène!
+Ce furent les tremblements de la Formation de Scellement du Royaume qui attirèrent l'attention de Wang Lin. Ses pupilles se rétractèrent et il tourna le regard vers la scène!
 
-La coïncidence existe en ce monde. S'il n'y avait pas eu cette Formation de Scellement du Domaine, les 90 000 cultivateurs auraient clairement vu le Wang Lin aux cheveux blancs les observer depuis l'autre côté de la formation!
+La coïncidence existe en ce monde. S'il n'y avait pas eu cette Formation de Scellement du Royaume, les 90 000 cultivateurs auraient clairement vu le Wang Lin aux cheveux blancs les observer depuis l'autre côté de la formation!

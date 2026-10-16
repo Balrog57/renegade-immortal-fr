@@ -12,7 +12,7 @@ C’est cette nuance de regret qui fit monter les larmes aux yeux du fou, jusqu'
 
 En le voyant pleurer, Wang Lin ressentit une certaine compassion. Il se sentait tel un oncle tentant d'arracher un jouet des mains d'un enfant...
 
-« Peu importe, karma, karma... J'ai rencontré cette personne à l'intérieur de la Bête du Néant. C'est elle qui m'a donné mon lignage céleste, et maintenant, je lui dérobe ses sorts par ce moyen. Je devrai tôt ou tard lui rendre la pareille... Les cultivateurs deviennent rarement fous, il doit donc y avoir une histoire tragique derrière lui. Moi, Wang Lin, n'oublie jamais ses bienfaiteurs! Je jure que dans le futur, toutes ses affaires m'appartiendront aussi! » Wang Lin regarda à nouveau le fou, mais cette fois, une lueur de douceur se cachait dans son regard.
+« Peu importe, karma, karma... J'ai rencontré cette personne à l'intérieur de la Bête des Limbes. C'est elle qui m'a donné mon lignage céleste, et maintenant, je lui dérobe ses sorts par ce moyen. Je devrai tôt ou tard lui rendre la pareille... Les cultivateurs deviennent rarement fous, il doit donc y avoir une histoire tragique derrière lui. Moi, Wang Lin, n'oublie jamais ses bienfaiteurs! Je jure que dans le futur, toutes ses affaires m'appartiendront aussi! » Wang Lin regarda à nouveau le fou, mais cette fois, une lueur de douceur se cachait dans son regard.
 
 « Ce roi n'a pas menti, ce roi a utilisé le même sort qu'auparavant. Ce sort s'appelle l'Empreinte de l'Esprit Guerrier. Mon grand frère l'a volé au Souverain Céleste Jumeau avant de me le transmettre... » Il semblait que le fou ne s'était pas lavé le visage depuis longtemps. Tandis que ses larmes coulaient, deux traînées de boue noire marquèrent son visage. Il essuya ses pleurs et fixa Wang Lin d'un regard chargé d'injustice avant de rugir:
 
@@ -64,7 +64,7 @@ Après avoir parlé, le fou se leva et s'étira. Il leva fièrement la main droi
 
 Ce parapluie utilisait la voûte céleste comme toile, et sa hampe était formée d'une mer de feu infinie! Un brasier destructeur se propagea dans toutes les directions, formant neuf graines de feu semblables à des ombrelles. Ces graines dégageaient une aura terrifiante.
 
-Les pupilles de Wang Lin se rétractèrent. Il reconnut que ce sort était similaire au Parapluie Brûlant le Royaume qu'il connaissait, mais la différence résidait dans l'exécution: lui devait ouvrir son parapluie pour l'utiliser, tandis que celui du fou était déjà déployé!
+Les pupilles de Wang Lin se rétractèrent. Il reconnut que ce sort était similaire à l'Ombrelle Brûlante du Royaume qu'il connaissait, mais la différence résidait dans l'exécution: lui devait ouvrir son parapluie pour l'utiliser, tandis que celui du fou était déjà déployé!
 
 La ressemblance était frappante, mais la différence de puissance était comparable à celle entre le ciel et la terre!
 
@@ -92,7 +92,7 @@ Le fou éclata de rire et relâcha sa main. Le ciel retrouva son aspect normal. 
 
 Face au fou, Wang Lin esquissa un lent sourire.
 
-« Je me souviens que dans les souvenirs de la Bête du Néant, cet individu ignorait tout de son existence et en avait très peur... » Le sourire de Wang Lin s'accentua.
+« Je me souviens que dans les souvenirs de la Bête des Limbes, cet individu ignorait tout de son existence et en avait très peur... » Le sourire de Wang Lin s'accentua.
 
 Le fou sentit un pressentiment funeste en voyant Wang Lin le fixer avec ce sourire. Il se rappelait vaguement qu'après un tel sourire, il avait passé des heures à pratiquer l'Empreinte de l'Esprit Guerrier jusqu'à en perdre haleine.
 
@@ -100,7 +100,7 @@ Le fou sentit un pressentiment funeste en voyant Wang Lin le fixer avec ce souri
 
 Le fantôme était colossal, semblable à une baleine, avec deux longues moustaches dansant au gré du vent.
 
-C'était la Bête du Néant! Suite à l'appel de Wang Lin, son apparence spectrale surgit au sein de son propre monde!
+C'était la Bête des Limbes! Suite à l'appel de Wang Lin, son apparence spectrale surgit au sein de son propre monde!
 
 Dès qu'elle apparut, la fierté du fou s'effondra instantanément. Ses pupilles se rétractèrent, son corps trembla violemment et il poussa un cri déchirant:
 

@@ -136,7 +136,7 @@ Ce jour-là, la brume devant eux se dissipa et Wang Lin s'élança. Les membres 
 
 Domaine Ouest du Système Stellaire Luotian!
 
-En contemplant les étoiles, Wang Lin entra en transe. Juste après les événements du Temple Céleste du Tonnerre, il avait été transféré dans la Bête du Néant. Revoir les étoiles après tout cela donnait l'impression que ce qui s'était passé n'était qu'un rêve.
+En contemplant les étoiles, Wang Lin entra en transe. Juste après les événements du Temple Céleste du Tonnerre, il avait été transféré dans la Bête des Limbes. Revoir les étoiles après tout cela donnait l'impression que ce qui s'était passé n'était qu'un rêve.
 
 « Système Stellaire Luotian, je suis de retour! Ma priorité est maintenant de déterminer dans quel domaine je me trouve. Je dois trouver une planète de culture! » murmura Wang Lin en sortant un jade. C'était la carte que Shengong Hu lui avait donnée. Après l'avoir consultée un instant, il la rangea dans son sac.
 

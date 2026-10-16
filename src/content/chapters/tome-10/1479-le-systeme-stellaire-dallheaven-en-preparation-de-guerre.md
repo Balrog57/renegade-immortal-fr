@@ -44,7 +44,7 @@ Outre ces trois-là, le dernier était Xiang Yundong!
 
 Xiang Yundong était celui qui avait conduit Wang Lin sur la planète Dong Lin et qui avait permis à l'ancêtre de la famille Xiang de tromper ce dernier, lui aspirant ainsi presque toute sa force vitale!
 
-Maître Yan Leizi suivait Maître Lu Fu depuis le plus longtemps. En voyant l'expression du vieil homme changer, il fut stupéfait. Après une brève hésitation, il joignit les mains et demanda respectueusement: « Aîné, que se passe-t-il? »
+Maître Yan Leizi suivait Maître Lu Fu depuis le plus longtemps. En voyant l'expression du vieil homme changer, il fut stupéfait. Après une brève hésitation, il joignit les mains et demanda respectueusement: « Senior, que se passe-t-il? »
 
 Le regard de Lie Yunzi et des autres devint sombre. Un pressentiment funeste envahit leurs cœurs. Maître Lu Fu était une existence d'une puissance inimaginable au troisième niveau. Une telle présence relevait de la légende, et peu de choses pouvaient infliger un tel trouble à ses émotions.
 
@@ -68,7 +68,7 @@ Alors que leurs mains traçaient les sceaux, une lumière blanche jaillit. Cette
 
 Les ondulations s'apaisèrent soudainement et l'image cessa d'être déformée. Un système stellaire apparut dans le miroir, et une silhouette aux cheveux blancs, vêtue d'une robe blanche, progressait lentement à travers les astres!
 
-Wang Lin avançait lentement dans le système stellaire de Luotian. Tout lui semblait familier. Bien qu'Luotian ne fût pas l'Alliance, Wang Lin y avait laissé trop de traces.
+Wang Lin avançait lentement dans le système stellaire de Luotian. Tout lui semblait familier. Bien que Luotian ne fût pas l'Alliance, Wang Lin y avait laissé trop de traces.
 
 « Je me demande si les gens que je connais sont toujours là... » Wang Lin laissa échapper un soupir, puis fronça soudainement les sourcils en levant les yeux vers les étoiles. Le tatouage de tonnerre dans son œil droit étincela.
 
@@ -82,7 +82,7 @@ Des grondements tonitruants éclatèrent alors qu'une foudre monstrueuse jaillis
 
 Dans un fracas assourdissant, le miroir vola en éclats. L'expression de Maître Lu Fu changea et il agita ses manches pour repousser l'onde de choc!
 
-Cependant, un tonnerre infini s'éleva dans les cieux, créant des grondements incessants qui secouèrent tous les cultivateurs aux alentours! Pour eux, le tonnerre recouvrait les étoiles comme si une divine retribution descendait sur le monde!
+Cependant, un tonnerre infini s'éleva dans les cieux, créant des grondements incessants qui secouèrent tous les cultivateurs aux alentours! Pour eux, le tonnerre recouvrait les étoiles comme si un châtiment divin descendait sur le monde!
 
 Maître Yan Leizi cracha du sang et se retira précipitamment. Ses yeux étaient écarquillés d'incrédulité. À cet instant, une voix rugissait frénétiquement dans son cœur:
 
@@ -100,7 +100,7 @@ Il y avait aussi Xiang Yundong, de la famille Xiang. Son visage était livide. I
 
 À l'origine, la famille Xiang ne s'en souciait guère. Peu importe la puissance de Wang Lin, face à la famille Xiang, c'était comme frapper un rocher avec un œuf. De plus, l'ancêtre de la famille Xiang était en méditation fermée depuis des dizaines de milliers d'années; sa simple présence dissuadait quiconque de les provoquer.
 
-« Aîné, la culture de cette personne... » Xiang Yundong réprima sa peur et s'adressa à Maître Lu Fu.
+« Senior, la culture de cette personne... » Xiang Yundong réprima sa peur et s'adressa à Maître Lu Fu.
 
 L'expression de Maître Lu Fu devint plus sombre encore alors qu'il contemplait les majestueux nuages de tonnerre s'étendant à travers le système stellaire. Après un long silence, il dit lentement: « Wang Lin... Ce vieil homme s'en souvient. Je l'ai rencontré autrefois, dans la Terre de l'Ancien Dieu au sein du système stellaire de l'Alliance... »
 

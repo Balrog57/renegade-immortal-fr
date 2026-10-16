@@ -58,7 +58,7 @@ L'effondrement rapide du niveau de la mer la préoccupait au plus haut point. El
 
 Le point blanc représentant Wang Lin fut d'abord ignoré par la femme. Cependant, alors que son regard balayait la carte, ses yeux se figèrent sur ce point précis et une intention meurtrière monstrueuse jaillit de son regard!
 
-« Chaque point blanc représente un cultivateur du Continent du Démon Vert... Tous les points blancs se déplacent lentement vers le Continent du Taureau Céleste pour fuir, mais ce point blanc est resté immobile!! »
+« Chaque point blanc représente un cultivateur qui n'est pas du Continent du Démon Vert... Tous les points blancs se déplacent lentement vers le Continent du Taureau Céleste pour fuir, mais ce point blanc est resté immobile!! »
 
 « J'aurais dû m'en rendre compte bien plus tôt! » Un éclair de fureur traversa ses yeux.
 

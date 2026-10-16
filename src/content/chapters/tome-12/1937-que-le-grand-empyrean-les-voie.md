@@ -32,7 +32,7 @@ Malgré sa jeunesse, il était enveloppé d'une aura antique. Il dégageait un c
 
 Il s'agissait du Grand Empyréen Dao Yi!
 
-À quelques mètres de lui se tenait la seconde figure: un homme d'âge moyen à la silhouette élancée, plus grand que l'Exalté Empyréen Dao Yi. Il portait de simples vêtements de lin et gardait les mains derrière le dos.
+À quelques pieds de lui se tenait la seconde figure: un homme d'âge moyen à la silhouette élancée, plus grand que l'Exalté Empyréen Dao Yi. Il portait de simples vêtements de lin et gardait les mains derrière le dos.
 
 Bien qu'il n'eût pas de cheveux, il ne paraissait pas pour autant chauve. Son expression était rude et ses traits peu gracieux, mais il dégageait l'allure d'une tempête imminente. Ses yeux révélaient une aura terrifiante qui faisait trembler le monde sous ses pieds.
 
@@ -100,7 +100,7 @@ La lumière franchit la couche d'encre à la surface et frappa de plein fouet le
 
 « C'est un cultivateur de rang Exalté Empyréen, mais il possède une telle puissance de foi! » nota le Grand Empyréen Wu Feng, son regard trahissant une immense puissance.
 
-Seul le vieil homme trapu fronça les sourcils. Il leva la main droite et pointa l'eau en contrebas d'un geste simple, presque mortel.
+Seul le petit vieil homme fronça les sourcils. Il leva la main droite et pointa l'eau en contrebas d'un geste simple, presque mortel.
 
 Alors que la mer était transpercée par cette lumière infinie, des grondements de tonnerre éclatèrent. L'océan semblait bouillir dans un tourbillon frénétique, tandis qu'un doigt gigantesque semblait s'abattre vers les profondeurs!
 

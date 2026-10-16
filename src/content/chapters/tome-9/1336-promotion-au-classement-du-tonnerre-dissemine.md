@@ -16,11 +16,11 @@ Ce brouillard était terrifiant pour les autres, mais pour Wang Lin, il n'y avai
 
 « Ce brouillard est très intéressant... » Wang Lin comprit que ce n'était pas réellement du brouillard, mais du tonnerre. Quelqu'un avait utilisé un sort puissant pour amener le tonnerre ici, avant de le broyer pour le transformer en brume. Puis, une technique unique avait été ajoutée pour qu'il agisse comme une formation de protection.
 
-« Ainsi, le tonnerre peut être transformé en brouillard. Le Clan du Tonnerre Disséminé a déjà étudié le tonnerre à ce point... Ils ont métamorphosé le tonnerre en brume, lui conférant ainsi une certaine souplesse. En termes de protection, l'effet est similaire à mon Monde du Vent et de la Pluie... »
+« Ainsi, le tonnerre peut être transformé en brouillard. Le Clan du Tonnerre Dispersé a déjà étudié le tonnerre à ce point... Ils ont métamorphosé le tonnerre en brume, lui conférant ainsi une certaine souplesse. En termes de protection, l'effet est similaire à mon Monde du Vent et de la Pluie... »
 
 « D'une simple pensée, ce brouillard de tonnerre peut se contracter pour former une cage. Les possibilités sont infinies! C'est véritablement merveilleux! » Tout en traversant le passage, il commença à observer la brume avec une attention accrue.
 
-« Le Clan du Tonnerre Disséminé ne s'attendait à aucun intrus, et comme le brouillard de tonnerre est actif, cela revient à exposer son cœur aux yeux de tous... Puisqu'ils sont si accueillants, je ne serai pas poli! » Les yeux de Wang Lin s'illuminèrent; son Sens Divin se propagea dans la brume pour commencer son étude.
+« Le Clan du Tonnerre Dispersé ne s'attendait à aucun intrus, et comme le brouillard de tonnerre est actif, cela revient à exposer son cœur aux yeux de tous... Puisqu'ils sont si accueillants, je ne serai pas poli! » Les yeux de Wang Lin s'illuminèrent; son Sens Divin se propagea dans la brume pour commencer son étude.
 
 Son Sens Divin était si puissant qu'il supprima totalement le brouillard de tonnerre, empêchant celui-ci de lui résister pendant qu'il l'analysait. Si le brouillard n'avait pas été ainsi ouvert, Wang Lin aurait dû être bien plus prudent, et il lui aurait fallu un certain temps pour percer le secret de ce sort.
 
@@ -28,17 +28,17 @@ Cependant, la situation était extrêmement propice. Tandis que son Sens Divin �
 
 Ce sort transformant le tonnerre en brouillard était d'une complexité telle qu'elle laissa même Wang Lin émerveillé.
 
-Une telle prouesse ne s'était jamais produite au sein du Clan du Tonnerre Disséminé. Ils n'auraient jamais imaginé que quelqu'un puisse simplement pénétrer dans le brouillard et percer l'origine de la technique utilisée pour le créer!
+Une telle prouesse ne s'était jamais produite au sein du Clan du Tonnerre Dispersé. Ils n'auraient jamais imaginé que quelqu'un puisse simplement pénétrer dans le brouillard et percer l'origine de la technique utilisée pour le créer!
 
 À travers les âges, Wang Lin était le premier!
 
-Le Clan du Tonnerre Disséminé n'aurait jamais cru que quelqu'un puisse franchir le lac de tonnerre pour s'infiltrer dans le clan. C'était impensable. Seuls des cultivateurs de la troisième étape pouvaient y entrer sans être blessés. Personne d'autre ne le pouvait!
+Le Clan du Tonnerre Dispersé n'aurait jamais cru que quelqu'un puisse franchir le lac de tonnerre pour s'infiltrer dans le clan. C'était impensable. Seuls des cultivateurs de la troisième étape pouvaient y entrer sans être blessés. Personne d'autre ne le pouvait!
 
 Seul Wang Lin en était capable. Son âme originelle était un éclair de tonnerre au même niveau d'existence que cet éclair éternel. C'était pourquoi il pouvait accomplir ce prodige presque impossible!
 
-Désormais arrivé dans un lieu crucial du Clan du Tonnerre Disséminé, il faisait face au brouillard de tonnerre. Le voile était levé, lui permettant de tout voir clairement, et il venait d'apprendre l'un des sorts secrets du clan: le Sort de Transformation du Tonnerre en Brouillard!
+Désormais arrivé dans un lieu crucial du Clan du Tonnerre Dispersé, il faisait face au brouillard de tonnerre. Le voile était levé, lui permettant de tout voir clairement, et il venait d'apprendre l'un des sorts secrets du clan: le Sort de Transformation du Tonnerre en Brouillard!
 
-Si le Clan du Tonnerre Disséminé l'apprenait, il serait sous le choc et terrifié. Cela dépassait l'entendement!
+Si le Clan du Tonnerre Dispersé l'apprenait, il serait sous le choc et terrifié. Cela dépassait l'entendement!
 
 Le passage dans la brume n'était pas long; il ne fallut que quinze minutes pour le traverser. Bien que le Sens Divin de Wang Lin submerge le brouillard, personne ne remarqua rien. Après tout, l'âme originelle de Wang Lin étant elle aussi faite de tonnerre, utiliser le tonnerre pour comprendre le tonnerre ne laissait aucune faille.
 
@@ -64,13 +64,13 @@ Wang Lin ne prêta plus attention à Grand Rouge et détourna le regard du templ
 
 Les portes est, sud et ouest menaient toutes à trois espaces distincts. Mais il existait aussi un quatrième espace sans entrée apparente. Le Sens Divin de Wang Lin balaya les lieux et détecta clairement neuf auras en pleine culture.
 
-« Il y a beaucoup de cultivateurs puissants dans le Clan du Tonnerre Disséminé. Sur les neuf auras, cinq sont au stade du Scruteur du Nirvana, trois au stade de Purificateur du Nirvana, et une est même au stade de Briseur du Nirvana! » Wang Lin marcha silencieusement vers la porte est du temple.
+« Il y a beaucoup de cultivateurs puissants dans le Clan du Tonnerre Dispersé. Sur les neuf auras, cinq sont au stade du Scruteur du Nirvana, trois au stade de Purificateur du Nirvana, et une est même au stade de Briseur du Nirvana! » Wang Lin marcha silencieusement vers la porte est du temple.
 
-Le lieu grouillait de membres du Clan du Tonnerre Disséminé. Certains étaient seuls, d'autres en groupe; l'atmosphère était extrêmement animée.
+Le lieu grouillait de membres du Clan du Tonnerre Dispersé. Certains étaient seuls, d'autres en groupe; l'atmosphère était extrêmement animée.
 
 En particulier, une foule de cultivateurs se pressait à la porte est. Ils dissimulaient visiblement leur excitation en s'éloignant rapidement. Il y avait aussi ceux qui, ayant vécu bien trop longtemps, restaient calmes, ne laissant transparaître aucune pensée.
 
-Cette force mentale était liée à la personnalité et à l'âge. Wang Lin cultivait depuis 2 000 ans et avait beaucoup vu. Il était très rusé, et sa capacité de manipulation n'était en rien inférieure à celle de ces vieux monstres ayant vécu des dizaines de milliers d'années.
+Cette force mentale était liée à la personnalité et à l'âge. Wang Lin cultivait depuis 2 000 ans et avait beaucoup vu. Il était très rusé, et sa capacité de manipulation n'était en rien inférieure à celle de ces vieux monstres ayant vécu des dizaines de milliers d'années, parfois même davantage.
 
 Après tout, au-delà du niveau de culture, la ruse est une clé essentielle à la survie.
 
@@ -88,17 +88,17 @@ Ils étaient responsables de cet endroit depuis longtemps et voyaient rarement q
 
 Le niveau de culture de Wang Lin pouvait changer à sa guise; à cet instant, il se présentait devant ces trois vieillards en tant que cultivateur Ascendant.
 
-Une fois les échanges terminés et le contenu englouti par la mare noire, Wang Lin sortit calmement un jade. Ce n'était pas un objet d'échange, mais le Classement du Tonnerre Disséminé.
+Une fois les échanges terminés et le contenu englouti par la mare noire, Wang Lin sortit calmement un jade. Ce n'était pas un objet d'échange, mais le Classement du Tonnerre Dispersé.
 
 Il jeta nonchalamment le jade dans la mare noire. Des rugissements sourds s'élevèrent de la substance, et peu après, le jade jaillit pour revenir dans les mains de Wang Lin.
 
-Simultanément, le jade du Classement du Tonnerre Disséminé possédé par chaque membre du clan émit une onde de choc. Cela signifiait que les rangs enregistrés venaient de changer!
+Simultanément, le jade du Classement du Tonnerre Dispersé possédé par chaque membre du clan émit une onde de choc. Cela signifiait que les rangs enregistrés venaient de changer!
 
 Chaque année, durant les trois jours d'ouverture du Temple du Cristal de Tonnerre, des changements radicaux s'opéraient dans le classement. Cependant, les 800 premiers noms changeaient rarement, se contentant parfois de réorganiser leur ordre.
 
 Mais en cet instant, le jade du Classement émit une ondulation violente. Cela ne pouvait signifier qu'une chose: une nouvelle personne venait d'intégrer le classement!
 
-Presque tous les cultivateurs du Clan du Tonnerre Disséminé sortirent leur propre jade pour consulter les résultats.
+Presque tous les cultivateurs du Clan du Tonnerre Dispersé sortirent leur propre jade pour consulter les résultats.
 
 La première place était toujours occupée par Maître Spruce, mais son score était passé de 1 900 007 000 à 2 400 009 000!
 
@@ -106,7 +106,7 @@ Alors que les membres du clan parcouraient la liste, les plus avisés examinère
 
 Au rang 799: Yu Fei, avec 464 000 cristaux de tonnerre, soit seulement 3 000 de plus que le rang 800!
 
-« Yu Fei? Je me demande de quelle planète d'essai il provient. Il est entré instantanément dans le Classement du Tonnerre Disséminé! »
+« Yu Fei? Je me demande de quelle planète d'essai il provient. Il est entré instantanément dans le Classement du Tonnerre Dispersé! »
 
 « Ce nom ne m'est pas familier, mais le clan est si vaste qu'il est impossible de connaître tout le monde. S'il a pu intégrer le classement, on ne peut le mépriser. Bien qu'il soit en queue de liste, entrer dans ce cercle prouve qu'il possède des capacités. »
 
@@ -114,4 +114,4 @@ Au rang 799: Yu Fei, avec 464 000 cristaux de tonnerre, soit seulement 3 000 de 
 
 À cet instant, les rumeurs circulaient sur les treize planètes d'essai. Après tout, il n'y avait que 800 places au classement; dès qu'on y pénétrait, on devenait célèbre!
 
-Le nom de « Yu Fei » fut ainsi gravé dans la mémoire de nombreux membres du Clan du Tonnerre Disséminé.
+Le nom de « Yu Fei » fut ainsi gravé dans la mémoire de nombreux membres du Clan du Tonnerre Dispersé.

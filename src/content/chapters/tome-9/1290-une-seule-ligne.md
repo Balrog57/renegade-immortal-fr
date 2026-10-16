@@ -10,7 +10,7 @@ Le vieil homme en noir afficha un sourire sardonique alors qu'il s'avançait pou
 
 Les six cultivateurs du Premier Ciel de la Souffrance lancèrent tous leurs attaques simultanément. Il semblait qu’ils étaient déterminés à tuer Wang Lin!
 
-Le vieil homme en noir s'écria immédiatement: « Il prétend que l'Ancien Suprême de la Secte Divine, le Daoïste Shui, a échoué à le tuer. Quelle arrogance! Cet homme a offensé la Secte Divine et a survécu à une calamité, pour ensuite venir provoquer notre Secte Éternelle. Nous allons le capturer et le livrer à la Secte Divine afin de toucher une récompense! »
+Le vieil homme en noir s'écria immédiatement: « Il prétend que l'Ancien Suprême de la Secte Divine, le Shui Daozi, a échoué à le tuer. Quelle absurdité! Cet homme a offensé la Secte Divine et a survécu à une calamité, pour ensuite venir provoquer notre Secte Éternelle. Nous allons le capturer et le livrer à la Secte Divine afin de toucher une récompense! »
 
 Les six auras étaient assourdissantes. Il s'agissait d'une attaque combinée de six cultivateurs du Premier Ciel de la Souffrance. Seuls ceux atteignant le deuxième stade du Ciel de la Souffrance seraient capables de riposter; tous les autres périraient!
 
@@ -84,6 +84,6 @@ Cette épée choqua tout le monde et provoqua un séisme dans leurs cœurs!
 
 Le corps de Wang Lin vacilla, puis il emporta directement la vieille femme abasourdie vers les cieux. Les six membres de la Secte Éternelle n'osèrent même pas tenter de l'arrêter!
 
-« Je reviendrai. Si la Secte d'Origine subit le moindre dommage, je rayerai votre Secte Éternelle de la Mer des Nuages! Vous tous les six, vous périrez! » Wang Lin lança un regard glacial aux six individus suspendus dans les airs. Il avait tenté d'être poli et sincère; il avait même prêté serment, mais tout cela était vain! Dans le monde de la culture, seule la force est respectée!
+« Je reviendrai. Si la Secte Origin subit le moindre dommage, je rayerai votre Secte Éternelle de la Mer des Nuages! Vous tous les six, vous périrez! » Wang Lin lança un regard glacial aux six individus suspendus dans les airs. Il avait tenté d'être poli et sincère; il avait même prêté serment, mais tout cela était vain! Dans le monde de la culture, seule la force est respectée!
 
 Une épée et une phrase valaient dix mille fois plus qu'un serment de sang!

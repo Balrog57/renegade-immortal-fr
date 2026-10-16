@@ -22,7 +22,7 @@ Le regard de Wang Lin resta serein lorsqu'il déclara d'un ton calme: « Ce viei
 
 Les pensées confuses qui agitaient l'esprit de Shengong Hu s'évanouirent instantanément. Au moment même où Wang Lin parlait, il était parvenu à la même conclusion. Dans son esprit, seule une telle origine pouvait correspondre au statut de Wang Lin.
 
-« Aîné, le Royaume Céleste du Tonnerre de mon Système Stellaire de Luotian n'est pas trop gravement endommagé. La limite de culture est le stade avancé de l'Ascendant. Cependant, le Palais Céleste du Tonnerre dispose d'une méthode permettant aux cultivateurs de la deuxième étape d'y entrer. La condition préalable est qu'ils n'utilisent pas une force dépassant le début du stade Scruteur du Nirvana. »
+« Senior, le Royaume Céleste du Tonnerre de mon Système Stellaire de Luotian n'est pas trop gravement endommagé. La limite de culture est le stade avancé de l'Ascendant. Cependant, le Palais Céleste du Tonnerre dispose d'une méthode permettant aux cultivateurs de la deuxième étape d'y entrer. La condition préalable est qu'ils n'utilisent pas une force dépassant le début du stade Scruteur du Nirvana. »
 
 Wang Lin hocha la tête et demanda quelques précisions supplémentaires. Ce Royaume Céleste du Tonnerre ressemblait à celui de la Pluie; après tout, il y avait des éons, les Royaumes Célestes de la Pluie et du Tonnerre étaient tous deux des passages vers l'ancien Royaume Céleste.
 
@@ -52,7 +52,7 @@ La Bête du Tonnerre à corne argentée secoua la tête et passa joyeusement. El
 
 Au loin, le garde céleste était assis sur un astéroïde. Ses yeux brillaient et il jetait parfois des regards vers Shengong Hu.
 
-Cent pas représentaient la limite de Wang Lin, et cela n'était dû qu'au fait qu'il avait entrevu la troisième étape, ce qui avait provoqué l'évolution de son âme. En observant le tonnerre, il pouvait vaguement percevoir des changements étranges, semblables à ceux qu'il ressentait lorsqu'il utilisait la coupure céleste.
+Cent pas représentaient la limite de Wang Lin, et cela n'était dû qu'au fait qu'il avait entrevu la troisième étape, ce qui avait provoqué l'évolution de son âme. En observant le tonnerre, il pouvait vaguement percevoir des changements étranges, semblables à ceux qu'il ressentait lorsqu'il utilisait le Coup Céleste.
 
 Ayant remarqué ce changement, Wang Lin parvint à faire cent pas avant d'être immobilisé. Il s'assit et commença à absorber le tonnerre dans son corps. Le sortilège de l'origine du tonnerre extrayait les éclairs pour en raffiner continuellement l'énergie d'origine.
 
@@ -60,7 +60,7 @@ Au fil du temps, d'immenses quantités de tonnerre convergèrent de toutes les d
 
 Une sensation de bien-être profond émana peu à peu du corps de Wang Lin.
 
-Lorsqu'il avait atteint le stade d'Ascendant grâce au cristal d'Ascendant de Zhou Yi, Wang Lin possédait plus d'énergie d'origine que la plupart des cultivateurs. Cela rendait sa progression très fluide, mais l'usage de la coupure céleste et son combat contre le Daoïste du Tonnerre avaient épuisé ses réserves. En conséquence, il se trouvait à la limite d'une chute de son niveau de culture.
+Lorsqu'il avait atteint le stade d'Ascendant grâce au cristal d'Ascendant de Zhou Yi, Wang Lin possédait plus d'énergie d'origine que la plupart des cultivateurs. Cela rendait sa progression très fluide, mais l'usage du Coup Céleste et son combat contre le Daoïste du Tonnerre avaient épuisé ses réserves. En conséquence, il se trouvait à la limite d'une chute de son niveau de culture.
 
 L'énergie d'origine est une ressource extrêmement difficile à récupérer pour les cultivateurs de la première étape. Si Wang Lin n'avait pas possédé une âme d'origine du tonnerre, il l'aurait regretté toute sa vie.
 
@@ -72,7 +72,7 @@ Même lui ne put s'empêcher de ressentir un certain engourdissement. Wang Lin p
 
 L'action de Wang Lin provoqua une série d'explosions qui tirèrent Shengong Hu de sa torpeur. Il prit une grande inspiration et ouvrit les yeux, mais en voyant Wang Lin, ses pupilles se rétractèrent brusquement.
 
-« Il est digne de son rang d'Aîné. Il a osé attirer autant de tonnerre dans son corps à cent pas de profondeur. Si j'avais été à sa place, ma chair n'aurait pu le supporter et même mon âme d'origine en aurait été endommagée. » Les yeux de Shengong Hu s'illuminèrent d'excitation.
+« Il est digne de son rang de Senior. Il a osé attirer autant de tonnerre dans son corps à cent pas de profondeur. Si j'avais été à sa place, ma chair n'aurait pu le supporter et même mon âme d'origine en aurait été endommagée. » Les yeux de Shengong Hu s'illuminèrent d'excitation.
 
 « Il semble que je doive redoubler d'efforts! » Ses yeux brillèrent, puis il attira davantage de tonnerre dans son corps. Son torse trembla tandis qu'il commençait aussitôt l'absorption.
 
@@ -96,7 +96,7 @@ Pendant ces deux ans, Wang Lin avait gravé dans son cœur tout ce qu'il perceva
 
 Ce changement attira l'attention de Shengong Hu. Il ouvrit les yeux pour fixer Wang Lin; l'excitation dans son regard n'avait pas faibli, elle était désormais teintée d'attente.
 
-Wang Lin ne prêta aucune attention à Shengong Hu et fixa le centre du lac. Cette étendue était immense. Bien qu'elle eût été réduite de moitié par la perle transcendante, elle demeurait impressionnante.
+Wang Lin ne prêta aucune attention à Shengong Hu et fixa le centre du lac. Cette étendue était immense. Bien qu'elle eût été réduite de moitié par la Perle Défiant le Ciel, elle demeurait impressionnante.
 
 À cet instant, Wang Lin n'était qu'au bord et se trouvait encore très loin du centre. Le tonnerre dans le lac devenait naturellement plus puissant à mesure que l'on approchait du centre, là où la concentration d'énergie d'origine était la plus élevée.
 
@@ -104,7 +104,7 @@ On pourrait même dire que l'énergie d'origine contenue dans cent filaments de 
 
 Après avoir réfléchi un moment, Wang Lin fit un pas en avant.
 
-Son cœur était calme, bien qu'empreint d'une pointe de prudence. Non loin de là, Shengong Hu était extrêmement excité en regardant Wang Lin: « Je peux enfin contempler le sortilège d'un Aîné. C'est une occasion unique dans une vie. Je dois observer attentivement, peut-être obtiendrai-je un éclaircissement! »
+Son cœur était calme, bien qu'empreint d'une pointe de prudence. Non loin de là, Shengong Hu était extrêmement excité en regardant Wang Lin: « Je peux enfin contempler le sortilège d'un Senior. C'est une occasion unique dans une vie. Je dois observer attentivement, peut-être obtiendrai-je un éclaircissement! »
 
 Son excitation était immense, comparable à celle qu'il avait ressentie lorsqu'il avait franchi la première étape pour entrer dans le stade Yin Illusoire. En réalité, son émotion était plusieurs fois plus intense que cette fois-là.
 

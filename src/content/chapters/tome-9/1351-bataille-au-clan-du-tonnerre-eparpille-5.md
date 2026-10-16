@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1351 - Battle at the Scatter Thunder Clan ! (5)"
 slug: bataille-au-clan-du-tonnerre-eparpille-5
 ---
-L'Ancien en chef du Clan du Tonnerre Éparpillé affichait une expression venimeuse; toute la sérénité et la fierté d'autrefois s'étaient évanouies. En si peu de temps, Wang Lin lui avait infligé trop de chocs et de surprises lors de leur combat acharné.
+L'Ancien en chef du Clan du Tonnerre Dispersé affichait une expression venimeuse; toute la sérénité et la fierté d'autrefois s'étaient évanouies. En si peu de temps, Wang Lin lui avait infligé trop de chocs et de surprises lors de leur combat acharné.
 
 À l'origine, il ne considérait pas Wang Lin comme une menace; il pensait pouvoir l'éliminer aisément avec le seul pouvoir de la quatrième étape de la Calamité Céleste. Cependant, à cet instant précis, lorsqu'il ressentit cette crise de vie ou de mort — un sentiment auquel il n'avait pas été confronté depuis des dizaines de milliers d'années — son esprit s'éclaircit.
 
@@ -24,11 +24,11 @@ Cependant, que ce soient les blessures ou le sort du Maître du Dao Rêve Bleu, 
 
 « Au moment extrêmement périlleux où le tonnerre s'effondrait, il a utilisé le Bouclier d'Ombre et de Lumière pour contre-attaquer, me prenant au dépourvu. Cela semble simple, mais très peu de gens seraient capables de saisir le timing et de réussir une telle prouesse! Même moi, j'aurais hésité!
 
-« Cet homme n'est pas très âgé, mais il possède déjà un esprit aussi rusé. Il doit être très célèbre dans le Système d'Étoiles Anciennes, pourtant je n'ai jamais entendu parler du nom de "Wang Lin" auparavant!
+« Cet homme n'est pas très âgé, mais il possède déjà un esprit aussi rusé. Il doit être très célèbre dans le Système Stellaire Antique, pourtant je n'ai jamais entendu parler du nom de "Wang Lin" auparavant!
 
 « Que cache-t-il donc exactement?! »
 
-L'expression de l'Ancien en chef du Clan du Tonnerre Éparpillé était féroce alors qu'il se retirait de l'impact, et son intention meurtrière envers Wang Lin décupla. Il laissa échapper un rugissement en levant la main pour lacérer l'espace environnant!
+L'expression de l'Ancien en chef du Clan du Tonnerre Dispersé était féroce alors qu'il se retirait de l'impact, et son intention meurtrière envers Wang Lin décupla. Il laissa échapper un rugissement en levant la main pour lacérer l'espace environnant!
 
 « Ouvrez le Royaume du Tonnerre Antique! »
 
@@ -40,15 +40,15 @@ Ce sort était infiniment proche de la capacité des cultivateurs de la troisiè
 
 Wang Lin, au loin, avait le visage légèrement pâle. Il avait été frappé par l'impact et avait subi des blessures. S'il n'avait pas utilisé le Bouclier d'Ombre et de Lumière pour se protéger, il aurait été gravement atteint!
 
-C'était une bataille acharnée. On pouvait dire que c'était l'adversaire le plus puissant que Wang Lin ait affronté dans sa vie! Le Daoïste Eau était un cultivateur de la troisième étape et avait été contraint de battre en retraite avant même de pouvoir tuer Wang Lin. Cependant, ce n'était pas Wang Lin qui l'avait forcé à fuir, mais le Seigneur du Royaume Scellé!
+C'était une bataille acharnée. On pouvait dire que c'était l'adversaire le plus puissant que Wang Lin ait affronté dans sa vie! Le Shui Daozi était un cultivateur de la troisième étape et avait été contraint de battre en retraite avant même de pouvoir tuer Wang Lin. Cependant, ce n'était pas Wang Lin qui l'avait forcé à fuir, mais le Seigneur du Royaume Scellé!
 
-Par conséquent, puisqu'il affrontait lui-même l'Ancien en chef du Clan du Tonnerre Éparpillé depuis tout ce temps, son sang bouillonnait presque!
+Par conséquent, puisqu'il affrontait lui-même l'Ancien en chef du Clan du Tonnerre Dispersé depuis tout ce temps, son sang bouillonnait presque!
 
 L'intention de combat illuminait ses yeux!
 
 « Les cultivateurs comme nous ne reculent jamais devant un combat, ils n'en ont jamais peur! »
 
-« Si je ne peux surmonter un cultivateur de la cinquième étape de la Calamité Céleste, comment pourrais-je être qualifié pour défier un cultivateur de la troisième étape et tuer le Daoïste Eau? » Wang Lin rit bruyamment et ses mains formèrent un sceau. Des grondements résonnèrent dans son corps alors que ses étoiles de Dieu Antique tournaient rapidement, et l'étoile de la Loi apparut également.
+« Si je ne peux surmonter un cultivateur de la cinquième étape de la Calamité Céleste, comment pourrais-je être qualifié pour défier un cultivateur de la troisième étape et tuer le Shui Daozi? » Wang Lin rit bruyamment et ses mains formèrent un sceau. Des grondements résonnèrent dans son corps alors que ses étoiles de Dieu Antique tournaient rapidement, et l'étoile de la Loi apparut également.
 
 Toute sa culture monta en flèche, et l'épée de sang était revenue depuis longtemps à ses côtés, dégageant une énergie tranchante infinie! Les yeux de Wang Lin brillaient comme des torches, et il ne laissa pas à l'Ancien le temps de poursuivre son sort. Il leva la main droite et chargea en avant!
 
@@ -88,7 +88,7 @@ Ces huit créatures se rapprochèrent instantanément. Le tonnerre n'avait aucun
 
 À cet instant, elles encerclèrent Wang Lin.
 
-Les grondements continuaient. Wang Lin poussa un rugissement et agrippa l'un des dragons. Son corps trembla comme s'il avait été percuté par un char de plusieurs millions de livres, et il recula immédiatement en crachant du sang.
+Les grondements continuaient. Wang Lin poussa un rugissement et agrippa l'un des dragons. Son corps trembla comme s'il avait été percuté par un char d'un million de livres, et il recula immédiatement en crachant du sang.
 
 Cependant, à peine avait-il reculé de trois pas que deux autres dragons se précipitèrent sur lui. Alors que l'impact se poursuivait, Wang Lin continuait de cracher du sang. Incapable de s'arrêter, il fut poussé sans cesse en arrière!
 

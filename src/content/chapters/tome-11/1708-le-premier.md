@@ -14,7 +14,7 @@ De plus, l'homme en robe royale avait lui-même obtenu six gouttes de sang. Il �
 
 C'est ainsi qu'il devint le roi du clan Dao. Son statut était extrêmement élevé et il était vénéré par d'innombrables personnes. Malgré cela, Xuan Luo ne l'avait pas pris pour disciple. Il avait déjà beaucoup ruminé cette question, mais n'osait pas l'aborder.
 
-Lorsqu'il entendit le Grand Empereur Xuan Luo déclarer qu'il allait prendre l'héritier de Ye Mo comme disciple, il ressentit une profonde amertume, mais ne la laissa paraître.
+Lorsqu'il entendit le Grand Empyréen Xuan Luo déclarer qu'il allait prendre l'héritier de Ye Mo comme disciple, il ressentit une profonde amertume, mais ne la laissa paraître.
 
 « Quatre gouttes de sang... une telle chose ne s'était pas produite depuis longtemps. »
 
@@ -34,11 +34,11 @@ L'homme en robe royale resta calme, mais un sourire méprisant étira son cœur.
 
 « S'il décide malgré tout d'accepter l'héritier de Ye Mo, alors je serai le premier à m'y opposer! »
 
-L'homme en robe royale ne révéla nullement ses véritables pensées, affichant plutôt une pointe de regret. Il secoua la tête et sourit amèrement en s'adressant doucement au Grand Empereur Xuan Luo à ses côtés:
+L'homme en robe royale ne révéla nullement ses véritables pensées, affichant plutôt une pointe de regret. Il secoua la tête et sourit amèrement en s'adressant doucement au Grand Empyréen Xuan Luo à ses côtés:
 
 « Oncle, quatre gouttes, c'est considérable. L'héritier de Ye Mo peut être considéré comme un génie au sein de notre clan Dao. »
 
-L'expression du Grand Empereur Xuan Luo resta impassible, comme s'il n'avait pas entendu l'homme en robe royale. Il fixait les sourcils de la statue et observait la lumière rouge s'amenuiser jusqu'à ne devenir qu'un mince filet.
+L'expression du Grand Empyréen Xuan Luo resta impassible, comme s'il n'avait pas entendu l'homme en robe royale. Il fixait les sourcils de la statue et observait la lumière rouge s'amenuiser jusqu'à ne devenir qu'un mince filet.
 
 Il vit également les quatre gouttes qui venaient d'apparaître émettre une lumière cristalline. Elles perçèrent le vide et disparurent au loin.
 
@@ -52,7 +52,7 @@ Le temps s'écoulait lentement sur le Continent Astral Immortel. À cet instant,
 
 Cette goutte flottait là, immobile et silencieuse, quand soudain un hurlement commença à résonner dans cet espace étrange. Des ondulations surgirent du néant et une aura ancienne et puissante se propagea lentement.
 
-Cette aura surpassait tout ce qui existait dans le monde des cavernes; même le Grand Empereur ne pouvait lui être comparé. Pourtant, cette présence n'était pas effrayante et n'attira l'attention de personne d'autre. Seul Wang Lin pouvait la ressentir.
+Cette aura surpassait tout ce qui existait dans le monde des cavernes; même le Grand Empyréen ne pouvait lui être comparé. Pourtant, cette présence n'était pas effrayante et n'attira l'attention de personne d'autre. Seul Wang Lin pouvait la ressentir.
 
 Des ondulations parcoururent l'espace au-dessus de l'autel et un vortex gigantesque apparut. Il tourna lentement dans un grondement de tonnerre. Le vortex enveloppa l'autel tout entier et une force colossale se propagea, projetant l'avatar de Wang Lin hors de l'autel.
 
@@ -90,11 +90,11 @@ C'était déjà beaucoup pour lui. Après tout, il avait reçu l'héritage de Ye
 
 Il n'était pas un génie, il n'était pas né sur le Continent Astral Immortel, il n'était qu'une insignifiante créature des cavernes. Il ne pouvait rivaliser avec l'homme en robe royale qui avait obtenu six gouttes et intégré la famille royale. Wang Lin ne possédait rien qui puisse égaler un être aussi béni!
 
-Il ne pouvait pas non plus se comparer au Grand Empereur Xuan Luo, l'un des neuf soleils, l'un des neuf êtres les plus puissants du Continent Astral Immortel. Une telle existence légendaire trônait au-dessus de tous, ayant obtenu huit gouttes de sang. Wang Lin ne faisait pas le poids.
+Il ne pouvait pas non plus se comparer au Grand Empyréen Xuan Luo, l'un des neuf soleils, l'un des neuf êtres les plus puissants du Continent Astral Immortel. Une telle existence légendaire trônait au-dessus de tous, ayant obtenu huit gouttes de sang. Wang Lin ne faisait pas le poids.
 
 Sa seule force résidait dans sa ténacité, son caractère inflexible et son refus viscéral d'être assujetti. À travers d'innombrables luttes entre la vie et la mort, il était passé du statut de simple mortel vulnérable à celui qu'il était devenu. Avec le recul, un tel parcours était proprement stupéfiant.
 
-Tandis que Wang Lin affrontait des combats acharnés pour obtenir ses ressources, l'empereur et les anciens du Continent Astral Immortel cultivaient dans la paix. Sous la protection du Grand Empereur, ils ne rencontraient que rarement le péril de la mort.
+Tandis que Wang Lin affrontait des combats acharnés pour obtenir ses ressources, l'empereur et les anciens du Continent Astral Immortel cultivaient dans la paix. Sous la protection du Grand Empyréen, ils ne rencontraient que rarement le péril de la mort.
 
 Tandis que Wang Lin luttait pour sa survie, l'homme en robe royale était escorté par d'innombrables serviteurs durant sa culture. Quoi qu'il désire, son clan le lui apportait sur un plateau.
 
@@ -110,7 +110,7 @@ Rien d'autre que pour sa volonté indomptable, cette volonté qui défiait les c
 
 Il était différent de tous les anciens du Continent Astral Immortel. Il avait survécu dans le monde des cavernes et, au fond de lui, il n'avait jamais respecté l'Ancêtre Ancestral. Il ne vouait aucun culte à une existence aussi éthérée; il ne croyait qu'en sa propre force!
 
-C'était un concept que personne sur le Continent Astral Immortel, pas même le Grand Empereur Xuan Luo, ne pouvait concevoir. Même ce dernier conservait un immense respect pour l'existence de cet ancêtre.
+C'était un concept que personne sur le Continent Astral Immortel, pas même le Grand Empyréen Xuan Luo, ne pouvait concevoir. Même ce dernier conservait un immense respect pour l'existence de cet ancêtre.
 
 Mais Wang Lin était différent!
 

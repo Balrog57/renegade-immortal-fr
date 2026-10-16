@@ -34,7 +34,7 @@ L'expression de Wang Lin demeurait sereine. Alors que deux personnes s'élançai
 
 En un instant, la terre émit un grondement sourd. S’il était silencieux, c’est qu’il n’était pas audible par l'oreille, mais parfaitement perceptible par les sens. La terre, cette planète de culture, tremblait!
 
-L'aura antique devint follement dense, comme si la planète s'éveillait pour la première fois de son sommeil millénaire. Ce n'était pas un réveil paisible, mais une éveil brutal. C’était comme si l'aura ancienne, condensée durant des éons, allait être arrachée avec l'âme elle-même.
+L'aura antique devint follement dense, comme si la planète s'éveillait pour la première fois de son sommeil millénaire. Ce n'était pas un réveil paisible, mais un réveil brutal. C’était comme si l'aura ancienne, condensée durant des éons, allait être arrachée avec l'âme elle-même.
 
 Tout dans ce monde possède une âme, même les arbres et l'herbe; une planète de culture en possède donc naturellement une. Cependant, l'âme d'une telle planète met des années infinies à se former et s'avère extrêmement puissante. Elle contient l'antiquité du monde ainsi qu'un fragment des lois célestes.
 
@@ -98,8 +98,8 @@ Les alentours étaient étrangement silencieux, troublés seulement par le mart�
 
 « Ceci... est donc le sort d'extraction de l'âme planétaire?! » Chaque vieux monstre connaissant la technique tremblait. La scène qui venait de se dérouler resterait gravée à jamais dans leurs esprits!
 
-Grâce aux pilules et aux bêtes féroces, il y avait bien plus de cultivateurs puissants dans le système stellaire de la Mer de Nuages que dans les trois autres systèmes. Cependant, à cause de la dépendance aux pilules et du blocage du Royaume Céleste du Vent, ils n'avaient pu accéder aux sorts laissés par les célestes. Les cultivateurs de la Mer de Nuages étaient donc bien en retard sur les trois autres systèmes en matière de compréhension des sorts!
+Grâce aux pilules et aux bêtes féroces, il y avait bien plus de cultivateurs puissants dans le système stellaire de la Mer des Nuages que dans les trois autres systèmes. Cependant, à cause de la dépendance aux pilules et du blocage du Royaume Céleste du Vent, ils n'avaient pu accéder aux sorts laissés par les célestes. Les cultivateurs de la Mer des Nuages étaient donc bien en retard sur les trois autres systèmes en matière de compréhension des sorts!
 
-L'extraction de l'âme planétaire était un sort puissant, mais dans la Mer de Nuages, ce n'était qu'une légende... Ce n'était pas que personne ne l'avait maîtrisé, mais bien trop peu d'entre eux y étaient parvenus.
+L'extraction de l'âme planétaire était un sort puissant, mais dans la Mer des Nuages, ce n'était qu'une légende... Ce n'était pas que personne ne l'avait maîtrisé, mais bien trop peu d'entre eux y étaient parvenus.
 
-Après avoir atteint la deuxième étape, les sorts d'un être sont liés à son domaine et à sa compréhension des cieux. Les cultivateurs de la Mer de Nuages s'appuyaient sur les pilules; ainsi, comparés aux cultivateurs des trois autres systèmes qui devaient comprendre leur domaine en luttant contre le monde, ils étaient bien trop faibles.
+Après avoir atteint la deuxième étape, les sorts d'un être sont liés à son domaine et à sa compréhension des cieux. Les cultivateurs de la Mer des Nuages s'appuyaient sur les pilules; ainsi, comparés aux cultivateurs des trois autres systèmes qui devaient comprendre leur domaine en luttant contre le monde, ils étaient bien trop faibles.

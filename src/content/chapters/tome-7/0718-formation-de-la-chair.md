@@ -22,9 +22,9 @@ Les yeux de Wang Lin brillaient d'une lueur étrange. Cet endroit était tout si
 
 « Il ne me faudra que la moitié de l'effort habituel pour cultiver le sortilège de l'Origine du Tonnerre! » L'âme originelle de Wang Lin se posa sur le sol. Comme s'il avait atterri dans un bassin de foudre, une onde de choc se propagea depuis son âme originelle.
 
-Même l'os du Serpent Observateur de la Lune était entouré de tonnerre.
+Même l'os du Serpent aux yeux de lune était entouré de tonnerre.
 
-Wang Lin bougea et l'os du Serpent Observateur de la Lune se déposa sur le sol. C'était comme si cette planète venait d'acquérir une immense chaîne de montagnes. Ce mouvement colossal fit trembler la planète.
+Wang Lin bougea et l'os du Serpent aux yeux de lune se déposa sur le sol. C'était comme si cette planète venait d'acquérir une immense chaîne de montagnes. Ce mouvement colossal fit trembler la planète.
 
 C'était semblable à une pierre jetée dans un étang dont on regarderait les ondulations se propager à la surface. À cet instant, l'os était le rocher et les ondulations étaient le tonnerre. Une masse colossale de foudre parcourut alors la planète en vagues successives.
 
@@ -62,11 +62,11 @@ Cependant, au moment où le tonnerre se répandait, Wang Lin inspira brusquement
 
 « Si je n'étais pas ici, il m'aurait fallu bien plus de temps pour restaurer mon âme originelle. » Wang Lin leva la tête vers le ciel.
 
-« La priorité absolue est maintenant de récupérer mon corps! Reformer un corps physique est une chose qu'un cultivateur ordinaire ne peut accomplir. Cela requiert la tactique du Dieu Antique! » Wang Lin commença à réfléchir.
+« La priorité absolue est maintenant de récupérer mon corps! Reformer un corps physique est une chose qu'un cultivateur ordinaire ne peut accomplir. Cela requiert la tactique du Dieu Ancien! » Wang Lin commença à réfléchir.
 
 Son corps s'était déjà effondré une fois auparavant et n'avait été reconstitué que grâce à cette tactique.
 
-« Seul le corps originel a pratiqué la tactique du Dieu Antique. Cependant, je peux encore utiliser une partie de celle-ci pour reformer mon propre corps. » Une résolution profonde apparut dans les yeux de Wang Lin tandis qu'il formait un sceau. C'était un sceau issu des souvenirs du Dieu Antique Tu Si.
+« Seul le corps originel a pratiqué la tactique du Dieu Ancien. Cependant, je peux encore utiliser une partie de celle-ci pour reformer mon propre corps. » Une résolution profonde apparut dans les yeux de Wang Lin tandis qu'il formait un sceau. C'était un sceau issu des souvenirs du Dieu Ancien Tu Si.
 
 Une aura antique jaillit soudainement de la main de Wang Lin et enveloppa le monde. La puissance du tonnerre s'insinua également dans cette aura ancestrale.
 
@@ -116,6 +116,6 @@ Le temps s'écoula rapidement. En incluant le temps nécessaire à la récupéra
 
 C'était comme si cette planète de tonnerre entière avait accompli un cycle de vie complet en ces soixante années. Le tonnerre n'était plus aussi dense, permettant même au garde céleste d'entrer sur la planète.
 
-Tout le tonnerre et la majeure partie de la vitalité s'étaient condensés en un cocon de neuf mètres de haut!
+Tout le tonnerre et la majeure partie de la vitalité s'étaient condensés en un cocon de trente pieds de haut!
 
 Ce jour-là, le cocon s'ouvrit!

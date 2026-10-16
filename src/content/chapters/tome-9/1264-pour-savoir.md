@@ -30,13 +30,13 @@ Aucune femme rencontrée par Wang Lin dans sa vie ne pouvait se comparer à Mu B
 
 Pourtant, Liu Mei appartenait à cette femme, et Liu Mei continuait de vivre à travers elle. Parfois, même Wang Lin ne savait plus si elle était Liu Mei ou Mu Bingmei.
 
-Cependant, rien de tout cela n'importait. Lorsqu'il avait quitté le Système d'Alliance des Étoiles, il avait mis fin à toutes les querelles avec cette femme. Même si le vent tournait à nouveau, il ne pourrait plus jamais affecter son cœur.
+Cependant, rien de tout cela n'importait. Lorsqu'il avait quitté le Système Stellaire de l'Alliance, il avait mis fin à toutes les querelles avec cette femme. Même si le vent tournait à nouveau, il ne pourrait plus jamais affecter son cœur.
 
 « Connaissez-vous une personne appelée Tuo Sen... un Dieu Ancien... » Mu Bingmei regarda Wang Lin. Ses yeux trahissaient une pointe d'amertume et un profond sentiment d'inquiétude.
 
 « Tuo Sen! » Les yeux de Wang Lin changèrent soudainement, laissant poindre une lueur de froideur.
 
-« Il s'est échappé. L'armée de Luotian s'est effondrée. Il a tué d'innombrables cultivateurs, les forçant à battre en retraite vers Luotian. Ils n'osent plus entrer dans l'Alliance... Luotian possède un puissant cultivateur nommé Maître Lu Fu. Il a évité le Système d'Alliance des Étoiles pour ne pas avoir à affronter Tuo Sen! » Les paroles de Mu Bingmei étaient calmes, mais leur contenu choqua Wang Lin. Ce dernier prit une profonde inspiration tandis que son aura se condensait en lui; il était tel un volcan sur le point d'exploser.
+« Il s'est échappé. L'armée de Luotian s'est effondrée. Il a tué d'innombrables cultivateurs, les forçant à battre en retraite vers Luotian. Ils n'osent plus entrer dans l'Alliance... Luotian possède un puissant cultivateur nommé Maître Lu Fu. Il a évité le Système Stellaire de l'Alliance pour ne pas avoir à affronter Tuo Sen! » Les paroles de Mu Bingmei étaient calmes, mais leur contenu choqua Wang Lin. Ce dernier prit une profonde inspiration tandis que son aura se condensait en lui; il était tel un volcan sur le point d'exploser.
 
 Pourtant, Mu Bingmei n'en avait pas fini; elle n'avait pas encore livré toutes les nouvelles!
 
@@ -58,7 +58,7 @@ Il n'avait jamais imaginé que le réveil de Tuo Sen déclencherait une telle te
 
 Les vagues dans l'esprit de Wang Lin finirent par se calmer. Il s'était déjà préparé mentalement à l'apparition de Tuo Sen, mais les paroles de Mu Bingmei le laissèrent tout de même stupéfait.
 
-« En tant que Sainte du Vide Brillant, je possède l'héritage du Royaume du Vide Brillant. Il y a des dizaines de milliers d'années, une ancienne Sainte du Vide Brillant a sauvé le Grand Ancien de la Secte de Dieu. Le Grand Ancien nous doit une faveur, j'ai donc utilisé une technique secrète pour fuir ici. Je veux me rendre à la Secte de Dieu et utiliser leur puissance pour m'aider à me rétablir... » La voix de Mu Bingmei devint basse, puis elle se mit soudainement à trembler.
+« En tant que Sainte du Vide Brillant, je possède l'héritage du Royaume du Vide Brillant. Il y a des dizaines de milliers d'années, une ancienne Sainte du Vide Brillant a sauvé le Grand Ancien de la Secte Divine. Le Grand Ancien nous doit une faveur, j'ai donc utilisé une technique secrète pour fuir ici. Je veux me rendre à la Secte Divine et utiliser leur puissance pour m'aider à me rétablir... » La voix de Mu Bingmei devint basse, puis elle se mit soudainement à trembler.
 
 Ce qui faisait trembler son corps, c'était Wang Lin!
 

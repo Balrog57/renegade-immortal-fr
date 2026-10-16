@@ -40,7 +40,7 @@ Le Maître Simo laissa échapper un reniflement froid. « Le Conseil Souverain a
 
 Quant au Maître du Dao Miao Yin, il était allongé sur un nuage, les yeux plissés, laissant filtrer une lueur étrange.
 
-« Ce jeune homme doit être ce Wang Lin dont le Daoïste Water avait envoyé des informations... Le Seigneur du Domaine Scellé n'est pas mort... Ce Daoïste Water ne saurait mentir, mais je devrais rester sur mes gardes... J'ai agi la dernière fois parce que le Souverain m'avait offert de grands avantages, mais maintenant... S'ils veulent que j'intervienne, tout dépendra de la volonté du Conseil Souverain à m'accorder une récompense appropriée. »
+« Ce jeune homme doit être ce Wang Lin dont le Shui Daozi avait envoyé des informations... Le Seigneur du Domaine Scellé n'est pas mort... Ce Shui Daozi ne saurait mentir, mais je devrais rester sur mes gardes... J'ai agi la dernière fois parce que le Souverain m'avait offert de grands avantages, mais maintenant... S'ils veulent que j'intervienne, tout dépendra de la volonté du Conseil Souverain à m'accorder une récompense appropriée. »
 
 Le Maître du Dao Rêve Bleu observa calmement Wang Lin et soupira intérieurement.
 
@@ -56,7 +56,7 @@ Alors que les dix mille cultivateurs entourant la tortue géante regardaient Wan
 
 « Humph, cet homme a vraiment de la chance d'avoir attiré l'attention du premier Jeune Empereur. Cependant, cette épreuve est extrêmement difficile. Je suis certain qu'il échouera! »
 
-« Le Premier Ancien des Terres Déchues n'a même pas osé tenter de revendiquer le titre de Jeune Empereur bien qu'il soit au cinquième Flétrissement Céleste. Bien que cet homme ait obtenu les faveurs du Grand Empereur et du premier Jeune Empereur, il est hors de question qu'il réussisse. »
+« Le Premier Ancien des Terres Déchues n'a même pas osé tenter de revendiquer le titre de Jeune Empereur bien qu'il soit au cinquième Fléau Céleste. Bien que cet homme ait obtenu les faveurs du Grand Empereur et du premier Jeune Empereur, il est hors de question qu'il réussisse. »
 
 Wang Lin arriva aux côtés du premier bâton d'encens sous le regard des dix mille cultivateurs de l'arène et se posa sur la carapace de la tortue. Comparée au bâton d'encens, la silhouette de Wang Lin paraissait véritablement insignifiante.
 

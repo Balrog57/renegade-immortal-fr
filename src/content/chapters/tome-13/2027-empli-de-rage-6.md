@@ -14,47 +14,47 @@ Wang Lin ne parvenait pas à distinguer les silhouettes qui se précipitaient ve
 
 L'arrivée massive de nouveaux arrivants finit par obstruer totalement sa vue. Après un moment, Wang Lin poussa un rugissement et bondit dans les airs. Il était impossible de se téléporter ou d'utiliser la Distorsion Spatiale ici. Lorsqu'il s'élança, la moitié de ses cheveux vira au noir.
 
-Dès que cette noirceur apparut, l'empreinte du Soleil du Grand Empereur de Wang Lin se manifesta derrière lui, faisant surgir un autre soleil dans le ciel!
+Dès que cette noirceur apparut, l'empreinte du Grand Soleil Empyréen de Wang Lin se manifesta derrière lui, faisant surgir un autre soleil dans le ciel!
 
 À la vue de cet astre, l'expression de l'Empereur de l'Ancien Dao changea radicalement, son visage empreint d'une incrédulité totale. Perdu, il s'exclama:
 
-« Grand Empereur! »
+« Grand Empyréen! »
 
 Il n'était pas le seul; des dizaines de milliers de membres de l'Ancien Dao entouraient Wang Lin, et lorsqu'ils virent ce soleil étrange, noir et blanc, leurs esprits furent secoués.
 
-« Grand Empereur!! »
+« Grand Empyréen!! »
 
-« Il... Il est en réalité un Grand Empereur!! »
+« Il... Il est en réalité un Grand Empyréen!! »
 
 Au loin, le Prince Ji Du s'enthousiasma en voyant cela. Il avait attendu ce jour; il recula alors tout en ricanant face à l'Empereur de l'Ancien Dao.
 
 « L'Ancien Dao... a attiré une immense calamité, tout cela par la faute de cet empereur stupide! »
 
-Le Prince Ji Du était transporté d'excitation tandis que le soleil noir et blanc du Grand Empereur s'étendait, libérant une lumière infinie. Au même instant, Wang Lin poussa un rugissement et leva la main droite comme s'il brandissait son propre soleil de Grand Empereur. D'un geste, il balaya les dizaines de milliers de membres de l'Ancien Dao qui lui barraient la route.
+Le Prince Ji Du était transporté d'excitation tandis que le Grand Soleil Empyréen noir et blanc s'étendait, libérant une lumière infinie. Au même instant, Wang Lin poussa un rugissement et leva la main droite comme s'il brandissait son propre Grand Soleil Empyréen. D'un geste, il balaya les dizaines de milliers de membres de l'Ancien Dao qui lui barraient la route.
 
-Sous ce mouvement, le soleil du Grand Empereur fondit sur la terre tel un météore. Le hurlement de l'astre remplaça même le grondement des tambours!
+Sous ce mouvement, le Grand Soleil Empyréen fondit sur la terre tel un météore. Le hurlement de l'astre remplaça même le grondement des tambours!
 
 Des fracas tonitruants résonnèrent alors qu'une puissante onde de choc se propageait. Quiconque fut touché par cette onde mourut instantanément, son corps réduit en cendres. Cette puissance explosa sur la place devant le palais.
 
 La terre s'effondra et le monde trembla. D'innombrables plateformes flottant dans le ciel se désintégrèrent. La majeure partie des dizaines de milliers de membres du clan de l'Ancien Dao fut balayée, comme emportée par un vent dévastateur.
 
-Une fois le chaos passé, le soleil du Grand Empereur fonça vers le palais. À cet instant, une ombre apparut. C'était un vieil homme vêtu d'une robe royale. Il dégageait une pression écrasante sans pour autant montrer de colère, et leva la paume droite pour faire face au soleil du Grand Empereur.
+Une fois le chaos passé, le Grand Soleil Empyréen fonça vers le palais. À cet instant, une ombre apparut. C'était un vieil homme vêtu d'une robe royale. Il dégageait une pression écrasante sans pour autant montrer de colère, et leva la paume droite pour faire face au Grand Soleil Empyréen.
 
 Le vieil homme se tenait à 60 000 pieds du palais, et derrière lui se trouvaient près de 1 000 membres puissants de la cour, incluant les 72 Saints, les 36 Démons, les 18 Rois et les neuf Généraux Immortels. Ils n'avaient pas participé aux combats précédents car ils étaient chargés de la garde du palais!
 
 Dès l'apparition du vieil homme, ces mille personnes furent prises d'une excitation fébrile. Même l'Empereur de l'Ancien Dao se montra respectueux.
 
-Au moment où la paume du vieil homme percuta le soleil du Grand Empereur, son expression changea brusquement. Des bruits de craquements résonnèrent dans son corps et ses cheveux furent projetés en arrière. Il cracha une gorgée de sang et, repoussé par l'impact, poussa un rugissement.
+Au moment où la paume du vieil homme percuta le Grand Soleil Empyréen, son expression changea brusquement. Des bruits de craquements résonnèrent dans son corps et ses cheveux furent projetés en arrière. Il cracha une gorgée de sang et, repoussé par l'impact, poussa un rugissement.
 
 « De mon sang, j'active la Grande Restriction du clan Ancien! »
 
 À peine eut-il prononcé ces mots qu'une lumière sombre jaillit du sang qu'il venait de cracher. Celle-ci se dispersa pour former un immense rideau lumineux. Ce rideau agissait comme un mur surgissant devant le vieil homme; il était infini et obstruait tout passage.
 
-Dès son apparition, le rideau entra en collision avec le soleil du Grand Empereur de Wang Lin. Cela provoqua un fracas de tonnerre qui résonna dans toute la cité impériale avant de s'estomper lentement.
+Dès son apparition, le rideau entra en collision avec le Grand Soleil Empyréen de Wang Lin. Cela provoqua un fracas de tonnerre qui résonna dans toute la cité impériale avant de s'estomper lentement.
 
 La place présentait désormais un aspect étrange. Tout ce qui se trouvait à l'extérieur du rideau lumineux était en ruines, mais tout ce qui était derrière demeurait intact.
 
-Cependant, comment le soleil du Grand Empereur pouvait-il être ainsi contenu? Le rideau luminescent vacilla à plusieurs reprises après avoir bloqué l'astre de Wang Lin, puis vola en éclats.
+Cependant, comment le Grand Soleil Empyréen pouvait-il être ainsi contenu? Le rideau luminescent vacilla à plusieurs reprises après avoir bloqué l'astre de Wang Lin, puis vola en éclats.
 
 Quant au vieil homme, son visage était livide et son bras droit s'était changé en cendres. Il cracha de nouveau du sang, paraissant soudainement flétri. Frappé par une force colossale, il fut projeté aux côtés de l'Empereur de l'Ancien Dao.
 
@@ -62,11 +62,11 @@ Quant au vieil homme, son visage était livide et son bras droit s'était chang�
 
 Dans un fracas sourd, une marque de cinq doigts apparut sur le côté droit du visage de l'Empereur.
 
-« Dégage! Tu as provoqué un ennemi aussi puissant pour notre Ancien Dao pour une simple femme! Pourquoi ne vas-tu pas mourir! Je me rendrai sans faute au Mont Gu Dao pour voir le Grand Empereur Gu Dao et instaurer un nouvel empereur! » Le vieil homme était manifestement furieux, sa voix résonnant comme le tonnerre.
+« Dégage! Tu as provoqué un ennemi aussi puissant pour notre Ancien Dao pour une simple femme! Pourquoi ne vas-tu pas mourir! Je me rendrai sans faute au Mont Gu Dao pour voir le Grand Empyréen Gu Dao et instaurer un nouvel empereur! » Le vieil homme était manifestement furieux, sa voix résonnant comme le tonnerre.
 
 Une lueur de froideur passa dans les yeux de l'Empereur de l'Ancien Dao alors qu'il touchait son visage. Il cracha un jet de sang et fixa le vieil homme d'un regard sombre.
 
-« Père, occupez-vous d'abord de la menace qui nous fait face. Pour le reste, ne vous en souciez pas. Grâce au Grand Empereur Gu Dao, je ne peux pas mourir. » Les paroles de l'Empereur étaient glaciales.
+« Père, occupez-vous d'abord de la menace qui nous fait face. Pour le reste, ne vous en souciez pas. Grâce au Grand Empyréen Gu Dao, je ne peux pas mourir. » Les paroles de l'Empereur étaient glaciales.
 
 « Espèce de...! » Le vieil homme était enragé, mais il se retourna pour fixer Wang Lin qui s'avançait. Ses yeux étaient emplis de terreur.
 
@@ -82,7 +82,7 @@ Au loin, des rayons de lumière jaillissaient du palais et convergeaient de tout
 
 C'était la capitale impériale de l'Ancien Dao. La foule y était normalement innombrable, mais pour le mariage de l'Empereur, elle était devenue titanesque.
 
-Peu importe la puissance de Wang Lin, même s'il était comparable à un Grand Empereur, il finirait par s'épuiser s'il restait encerclé...
+Peu importe la puissance de Wang Lin, même s'il était comparable à un Grand Empyréen, il finirait par s'épuiser s'il restait encerclé...
 
 De plus, c'était le palais. Le lieu regorgeait de formations et il était probable qu'il abritât des reliques laissées par l'Ancêtre Ancien. C'était comme un mortel pénétrant dans la tanière d'un tigre. Mais Wang Lin n'en avait cure — son unique pensée était de reprendre Wan Er!
 
@@ -96,7 +96,7 @@ Wang Lin s'immobilisa, son regard ignorant superbement le vieil homme. Il observ
 
 « J'en suis capable », dit lentement Wang Lin. Comme il l'avait affirmé, sa force lui permettait de tenir cette promesse!
 
-L'intention meurtrière contenue dans ces mots fit frémir le vieil homme. Sa main gauche trembla légèrement; il sentait que Wang Lin pourrait réellement accomplir cela. Ses yeux furent envahis par une soif de sang, mais il renonça à tuer la femme. Après tout, seule sa présence leur permettait d'espérer éliminer Wang Lin. Avant de venir, il avait déjà brisé le jade pour informer le Grand Empereur Gu Dao. Cela signifiait que la famille royale était en péril et requérait la protection du Grand Empereur.
+L'intention meurtrière contenue dans ces mots fit frémir le vieil homme. Sa main gauche trembla légèrement; il sentait que Wang Lin pourrait réellement accomplir cela. Ses yeux furent envahis par une soif de sang, mais il renonça à tuer la femme. Après tout, seule sa présence leur permettait d'espérer éliminer Wang Lin. Avant de venir, il avait déjà brisé le jade pour informer le Grand Empyréen Gu Dao. Cela signifiait que la famille royale était en péril et requérait la protection du Grand Empyréen.
 
 Une fois ses paroles prononcées, Wang Lin resta silencieux et avança vers les mille personnes devant lui, tandis que des dizaines de milliers d'autres se ruaient sur lui!
 

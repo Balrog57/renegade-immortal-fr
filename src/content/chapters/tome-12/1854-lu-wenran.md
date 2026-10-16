@@ -10,7 +10,7 @@ Après le départ de Wang Lin du Pic Céleste Vert, l'Illustre Taureau Vert rest
 
 « L'Empereur Céleste n'est sorti de sa retraite depuis seulement quelques années. Le Continent du Démon Vert ne pouvait effectivement plus se contenir... La divination de la première génération est très précise... Cependant, certains détails subtils sont déplacés, et la méthode de l'Ancêtre était trop indulgente. Elle n'est pas adaptée à la situation actuelle... »
 
-« L'objectif du Continent du Démon Vert est aussi celui de ma Grande Secte de l'Âme... C'est également l'objectif de la Secte Gui Yi... » L'Illustre Taureau Vert sourit soudainement.
+« L'objectif du Continent du Démon Vert est aussi celui de ma Secte de la Grande Âme... C'est également l'objectif de la Secte Gui Yi... » L'Illustre Taureau Vert sourit soudainement.
 
 « Lu Wenran! »
 
@@ -36,17 +36,17 @@ Les yeux de Wang Lin s'illuminèrent dans la grotte et sa main droite se tendit 
 
 Il se souvenait que l'Illustre Taureau Vert lui avait accordé sept jours. Il ne lui restait plus que deux jours; il allait donc au Pic Fantôme pour trouver une âme morte à fusionner avec la voile.
 
-Sa silhouette disparut et, lorsqu'il réapparut, il se trouvait devant la montagne ardente. Il regarda vers le nord. Selon la carte de la Grande Secte de l'Âme, le Pic Fantôme se trouvait là!
+Sa silhouette disparut et, lorsqu'il réapparut, il se trouvait devant la montagne ardente. Il regarda vers le nord. Selon la carte de la Secte de la Grande Âme, le Pic Fantôme se trouvait là!
 
 Sans hésiter, Wang Lin s'élança vers le Pic Fantôme.
 
-À l'extrémité nord de la Grande Secte de l'Âme se trouvait une terre interdite entourée d'un brouillard infini. Peu de disciples s'y aventuraient. Ils n'y venaient qu'en cas de besoin d'une âme morte, accompagnés de leurs maîtres respectifs.
+À l'extrémité nord de la Secte de la Grande Âme se trouvait une terre interdite entourée d'un brouillard infini. Peu de disciples s'y aventuraient. Ils n'y venaient qu'en cas de besoin d'une âme morte, accompagnés de leurs maîtres respectifs.
 
 Seuls les disciples principaux possédant un haut niveau de culture pouvaient s'y rendre seuls.
 
-La Grande Secte de l'Âme y avait rassemblé d'immenses quantités d'âmes mortes. Bien que leur qualité fût médiocre, elles étaient faciles à obtenir. Après tout, la Grande Secte de l'Âme était célèbre pour ses illusions, et sans le Pic Fantôme, la plupart des disciples ne pourraient achever leurs Voiles Fantômes.
+La Secte de la Grande Âme y avait rassemblé d'immenses quantités d'âmes mortes. Bien que leur qualité fût médiocre, elles étaient faciles à obtenir. Après tout, la Secte de la Grande Âme était célèbre pour ses illusions, et sans le Pic Fantôme, la plupart des disciples ne pourraient achever leurs Voiles Fantômes.
 
-Au fil des âges, bien que les âmes mortes fussent constamment renouvelées, les stocks restaient limités, car la demande de la Grande Secte de l'Âme était immense.
+Au fil des âges, bien que les âmes mortes fussent constamment renouvelées, les stocks restaient limités, car la demande de la Secte de la Grande Âme était immense.
 
 Beaucoup de ces âmes avaient été collectées il y a d'innombrables années par les membres de la secte dans le cadre de missions officielles. Cependant, comme peu d'entre elles pouvaient cultiver par elles-mêmes, elles devaient être raffinées avec le temps.
 
@@ -126,8 +126,8 @@ Le septième jour, un jade perça plusieurs couches de protection pour arriver d
 
 Wang Lin ouvrit les yeux, le regard serein. Son Sens Divin scruta le jade et les informations imprégnèrent son esprit.
 
-Des générations d'ancêtres de la Grande Secte de l'Âme avaient consacré un temps incommensurable à créer sept points clés sur le Continent du Taureau Céleste. Ils étaient basés sur les sept méridiens du Taureau Céleste.
+Des générations d'ancêtres de la Secte de la Grande Âme avaient consacré un temps incommensurable à créer sept points clés sur le Continent du Taureau Céleste. Ils étaient basés sur les sept méridiens du Taureau Céleste.
 
 En ces sept méridiens, on pouvait emprunter la puissance du Taureau Céleste grâce à une formation puissante. Parallèlement, cela apportait de nombreux bénéfices mystérieux aux cultivateurs du continent.
 
-L'ancêtre de la première génération de la Grande Secte de l'Âme avait diviné l'arrivée de Wang Lin ainsi que l'invasion massive du Continent du Démon Vert. Comment auraient-ils pu ne rien avoir préparé?
+L'ancêtre de la première génération de la Secte de la Grande Âme avait diviné l'arrivée de Wang Lin ainsi que l'invasion massive du Continent du Démon Vert. Comment auraient-ils pu ne rien avoir préparé?

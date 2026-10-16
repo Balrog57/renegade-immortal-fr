@@ -46,7 +46,7 @@ C'est sur ces continents que poussaient souvent les herbes les plus précieuses.
 
 Guidé par la carte stellaire gravée dans son esprit, Wang Lin plongea dans le brouillard. Ce dernier était semblable à des nuages: en plus d'obscurcir la vue, il empêchait le sens divin de se propager trop loin. N'étant pas familier avec le système stellaire de la mer de nuages, Wang Lin dut ralentir sa progression.
 
-Sur le continent sauvage proche de Mo Luo, les bêtes s'étaient peu à peu raréfiées au fil des ans. C'était devenu un lieu d'entraînement pour les disciples de la Secte Origine. Il n'y restait que quelques créatures de bas niveau et la plupart des herbes avaient été épuisées.
+Sur le continent sauvage proche de Mo Luo, les bêtes s'étaient peu à peu raréfiées au fil des ans. C'était devenu un lieu d'entraînement pour les disciples de la Secte de l'Origine. Il n'y restait que quelques créatures de bas niveau et la plupart des herbes avaient été épuisées.
 
 Ce n'était pas le choix de Wang Lin. Il comptait viser un continent sauvage plus lointain, là où les bêtes féroces régnaient et où peu de cultivateurs s'étaient aventurés, garantissant ainsi une abondance d'herbes.
 
@@ -56,7 +56,7 @@ En chemin, diverses créatures étranges apparurent dans son champ de perception
 
 D'autres ressemblaient à des dragons, mais ne mesuraient que quelques centaines de pieds de long. Ces bêtes rouges se déplaçaient avec la rapidité de l'éclair en vivant en troupeaux; des centaines de milliers d'entre elles traversaient la mer de nuages.
 
-Il y avait également des créatures semblables aux Bêtes du Limbes qu'il avait vues, mais beaucoup plus petites, ne dépassant pas quelques milliers de pieds de large. Elles étaient lentes, mais même les bêtes rouges les évitaient.
+Il y avait également des créatures semblables aux Bêtes des Limbes qu'il avait vues, mais beaucoup plus petites, ne dépassant pas quelques milliers de pieds de large. Elles étaient lentes, mais même les bêtes rouges les évitaient.
 
 On trouvait aussi des bêtes noires semblables à des têtards, comme celle que possédait Lu Di. Elles se dissimulaient dans la brume, dégageant une pression occulte. Cependant, dès qu'elles percevaient le sens divin de Wang Lin, elles se retiraient promptement.
 

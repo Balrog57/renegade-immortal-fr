@@ -50,7 +50,7 @@ Ta Shan laissa échapper un sourire misérable, recula de quelques pas et marmon
 
 Wang Lin fixa le Fourneau Yin Mystérieux et demanda lentement: « Qu'y a-t-il à l'intérieur de ce fourneau? »
 
-Ta Shan murmura: « Je l'ignore. Les archives du clan disent qu'il y a d'innombrables années, le Roi Céleste Xiaoyaozi a introduit mon clan dans le corps de la Bête des Ténèbres pour garder ce Fourneau Yin Mystérieux jusqu'à son retour. »
+Ta Shan murmura: « Je l'ignore. Les archives du clan disent qu'il y a d'innombrables années, le Roi Céleste Xiaoyaozi a introduit mon clan dans le corps de la Bête des Limbes pour garder ce Fourneau Yin Mystérieux jusqu'à son retour. »
 
 « Comment puis-je quitter cet endroit? » demanda Wang Lin en détournant le regard.
 

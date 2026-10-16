@@ -50,13 +50,13 @@ Le bel homme élégant attendait depuis plusieurs jours, mais il n'avait montré
 
 Le cri du Oiseau Vermillon résonna aux quatre coins du monde!
 
-Les yeux du Maître Dao Bleu Rêve brillèrent d'une lueur étrange, teintée d'un soupçon de choc.
+Les yeux du Maître du Dao Rêve Bleu brillèrent d'une lueur étrange, teintée d'un soupçon de choc.
 
 « Le cri d'un Oiseau Vermillon... Ce n'est pas un oiseau ordinaire, c'est... »
 
 Le cri de ce Oiseau Vermillon n'avait effectivement rien d'ordinaire. Il contenait une nature défiante et puissante qui ne céderait jamais rien. On aurait dit qu'il venait des enfers plutôt que des cieux!
 
-« Impossible! Le Grand Maître Yun Luo avait prévu que ce petit bâtard ferait face à une épreuve de vie ou de mort extrêmement difficile à surmonter! » L'expression du Maître Simo changea radicalement alors qu'il fixait le premier bâton d'encens.
+« Impossible! La Grande Maîtresse Yun Luo avait prévu que ce petit bâtard ferait face à une épreuve de vie ou de mort extrêmement difficile à surmonter! » L'expression du Maître Simo changea radicalement alors qu'il fixait le premier bâton d'encens.
 
 Le visage de la Grande Maîtresse Yun Luo afficha également un choc profond. Sa main droite, dissimulée sous sa manche, s'agita avec une telle rapidité qu'elle créa des images rémanentes. Cependant, ses doigts tremblèrent et l'extrémité de ses ongles se déchira, laissant jaillir le sang. C'était comme si une force avait stoppé sa divination! Ou bien la situation actuelle de Wang Lin dépassait les capacités de son pouvoir divinatoire!
 
@@ -66,7 +66,7 @@ Le vieux Oiseau Vermillon laissa paraître une pointe d'excitation et éclata d'
 
 Seul le vieil homme assis sur le lézard gardait les yeux clos, comme si rien de tout cela ne pouvait retenir son attention.
 
-La femme aux côtés du Maître Dao Bleu Rêve fixait intensément le premier bâton d'encens. Elle se mordillait la lèvre inférieure, tandis que des larmes chargées d'émotions complexes coulaient sur ses joues.
+La femme aux côtés du Maître du Dao Rêve Bleu fixait intensément le premier bâton d'encens. Elle se mordillait la lèvre inférieure, tandis que des larmes chargées d'émotions complexes coulaient sur ses joues.
 
 À l'intérieur de l'Épreuve Humaine, le Oiseau Vermillon noir déploya ses ailes et s'élança vers les cieux. Son corps était enveloppé de flammes noires infinies dégageant une température inimaginable. Pourtant, cette chaleur n'affectait pas le monde extérieur, restant condensée sur le corps de l'oiseau.
 

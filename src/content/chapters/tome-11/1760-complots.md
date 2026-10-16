@@ -16,7 +16,7 @@ Le vide fut lacéré, fendant le vortex en deux et provoquant son effondrement i
 
 Tout cela se produisit en un éclair. Wang Lin s'engouffra dans la faille créée par le sort du « Ciel Ondoyant » et disparut.
 
-L'instant après sa disparition, un grognement froid retentit dans le vide. Des grondements tonnantes résonnèrent tandis que le Daoïste aux Sept Couleurs sortait du vortex effondré.
+L'instant après sa disparition, un grognement froid retentit dans le vide. Des grondements tonnants résonnèrent tandis que le Daoïste aux Sept Couleurs sortait du vortex effondré.
 
 Son regard était glacial et son visage empreint d'une profonde mélancolie. Si Wang Lin n'avait pas réagi si promptement en utilisant la destruction du vortex pour le ralentir, il n'aurait pu s'échapper aussi calmement; il aurait été capturé par le Daoïste aux Sept Couleurs.
 
@@ -46,7 +46,7 @@ Si Lian Daofei n'était pas apparu si soudainement, le Souverain Céleste aux Se
 
 Le Daoïste aux Sept Couleurs, dépourvu de ces souvenirs, l'ignorait. Même les quatre généraux et leurs concubines n'en savaient pas plus; ils ne connaissaient que l'existence des trois cents mondes détruits.
 
-Tandis que Wang Lin continuait sa course, la barrière entre les mondes devint instable et des grondements tonnantes éclatèrent. Chaque passage d'un monde à l'autre provoquait un fracas capable de briser le ciel.
+Tandis que Wang Lin continuait sa course, la barrière entre les mondes devint instable et des grondements tonnants éclatèrent. Chaque passage d'un monde à l'autre provoquait un fracas capable de briser le ciel.
 
 Ce changement attira immédiatement l'attention du Daoïste aux Sept Couleurs. Ses yeux se plissèrent et il ricana.
 
@@ -58,7 +58,7 @@ Grâce à sa culture pour stabiliser la barrière, l'effet fut notable. Cependan
 
 « Cet enfant est rusé. S'il découvre que j'ai déjà percé son plan, il pourrait changer de tactique et causer des ennuis inutiles. Je vais le laisser croire que sa méthode fonctionne, puis je le capturerai une fois qu'il se croira victorieux! » Le Daoïste aux Sept Couleurs sourit et poursuivit sa traque avec désinvolture.
 
-Pendant que les deux hommes s'élançaient, le Grand Empereur Xuan Luo observait la scène. Il songea à aider Wang Lin à résoudre ce problème, mais cette idée ne fit que l'effleurer avant de disparaître.
+Pendant que les deux hommes s'élançaient, le Grand Empyréen Xuan Luo observait la scène. Il songea à aider Wang Lin à résoudre ce problème, mais cette idée ne fit que l'effleurer avant de disparaître.
 
 « Cet enfant doit compter sur lui-même pour passer cette épreuve. S'il parvient à remarquer ma présence, je l'aiderai. C'est mon ultime test pour lui! »
 
@@ -66,9 +66,9 @@ Pendant que les deux hommes s'élançaient, le Grand Empereur Xuan Luo observait
 
 « Si la barrière des mondes s'effondre, il pourrait s'échapper, mais son plan est désormais déjoué. Comment va-t-il s'adapter...? » Xuan Luo suivit lentement.
 
-Wang Lin naviguait entre les mondes, conscient que la barrière était sur le point de céder. Ses yeux brillèrent et, alors qu'il disparaissait dans un vortex, il sortit la Voile Fantomatique sans que personne ne s'en aperçoive.
+Wang Lin naviguait entre les mondes, conscient que la barrière était sur le point de céder. Ses yeux brillèrent et, alors qu'il disparaissait dans un vortex, il sortit la Voile Fantôme sans que personne ne s'en aperçoive.
 
-En un éclair, la Voile Fantomatique enveloppa son corps; lorsqu'il réapparut, l'objet avait disparu. Tout cela se produisit durant sa transition entre les mondes, de sorte que nul ne remarqua rien.
+En un éclair, la Voile Fantôme enveloppa son corps; lorsqu'il réapparut, l'objet avait disparu. Tout cela se produisit durant sa transition entre les mondes, de sorte que nul ne remarqua rien.
 
 L'attention du Daoïste aux Sept Couleurs était entièrement focalisée sur la barrière imminente de l'effondrement. Il était convaincu d'avoir percé le jeu de Wang Lin et qu'aucune fuite n'était possible!
 
@@ -80,7 +80,7 @@ Il se déplaça très rapidement, vola à plus de cent mille pieds, puis se recr
 
 Au moment même où il se transformait en planète, une lumière aux sept couleurs envahit le vortex dont il venait de sortir. Le Daoïste aux Sept Couleurs n'hésita pas et replongea immédiatement dans le vortex.
 
-Le Grand Empereur Xuan Luo vit tout cela, ses pupilles se contractant sous le choc. Il observa intensément la planète que Wang Lin avait simulée, une lueur d'étonnement dans les yeux.
+Le Grand Empyréen Xuan Luo vit tout cela, ses pupilles se contractant sous le choc. Il observa intensément la planète que Wang Lin avait simulée, une lueur d'étonnement dans les yeux.
 
 « Quel esprit machiavélique... Cet enfant... est un dragon parmi les hommes! » Xuan Luo songea en silence, et son regard trahissait une admiration qu'il n'avait jamais manifestée auparavant.
 
@@ -104,7 +104,7 @@ Wang Lin était d'une intelligence redoutable, et il était bien difficile de le
 
 L'instabilité de la barrière entre les mondes était le premier piège. Wang Lin avait déduit que ce premier stratagème ne pourrait tromper ni le Daoïste aux Sept Couleurs ni le Vieux Fantôme Zhan, et il souhaitait qu'ils le découvrent.
 
-Une fois qu'ils auraient trouvé l'endroit, ils tomberaient inconsciemment dans le second piège. En pensant avoir percé les intentions de Wang Lin, ils baisseraient leur garde. Profitant de ce moment et du fait que la poursuite avait instauré un cycle répétitif, Wang Lin utiliserait la Voile Fantomatique pour les plonger dans une illusion.
+Une fois qu'ils auraient trouvé l'endroit, ils tomberaient inconsciemment dans le second piège. En pensant avoir percé les intentions de Wang Lin, ils baisseraient leur garde. Profitant de ce moment et du fait que la poursuite avait instauré un cycle répétitif, Wang Lin utiliserait la Voile Fantôme pour les plonger dans une illusion.
 
 Le point crucial n'était ni l'effondrement de la barrière, ni l'illusion en soi, mais le fait que Wang Lin avait répété cette manœuvre plus de cent fois. Cela avait créé chez ses poursuivants des réflexes et des tendances subconscientes...
 

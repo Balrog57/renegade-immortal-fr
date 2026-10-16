@@ -10,7 +10,7 @@ Depuis que Wang Lin était entré dans le Royaume aux Sept Couleurs, le temps s'
 
 Au cours de ces 99 ans, un changement cataclysmique avait secoué le Système Stellaire de l'Alliance. Les Quatre Sectes Divines s'étaient déployées avec force, balayant les vestiges de l'Alliance de Culture. Elles avaient également contraint la Secte des Cadavres à coopérer pour repousser l'armée de Luotian.
 
-À l'origine, la Secte des Cadavres n'avait aucune intention de s'impliquer; il préférait rester en retrait pour profiter de la situation, car il semblait que qu'il s'agisse de Luotian ou des Quatre Sectes Divines, aucun des deux camps ne pourrait l'emporter sans l'aide de la Secte des Cadavres.
+À l'origine, la Secte des Cadavres n'avait aucune intention de s'impliquer; il préférait rester en retrait pour profiter de la situation, car il semblait qu'il s'agisse de Luotian ou des Quatre Sectes Divines, aucun des deux camps ne pourrait l'emporter sans l'aide de la Secte des Cadavres.
 
 La Secte des Cadavres se souciait peu du fait que les cultivateurs de Luotian fussent des envahisseurs! Ce qui importait à ses yeux, c'était l'immense commerce de vente et d'achat de corps que la guerre générait. La Secte des Cadavres espérait même que ce conflit ne s'interrompe jamais.
 
@@ -28,23 +28,23 @@ Une fois son carnage terminé, il partit en ne laissant qu'une seule phrase:
 
 « Vous êtes tous trop faibles. »
 
-Aucun des cultivateurs de Luotian n'osa le poursuivre, pas même Maître Lufu, qui se terrât de peur. Il s'était enfui loin du Système Stellaire de l'Alliance et n'osait plus y poser le pied!
+Aucun des cultivateurs de Luotian n'osa le poursuivre, pas même Maître Lufu, qui se terrait de peur. Il s'était enfui loin du Système Stellaire de l'Alliance et n'osait plus y poser le pied!
 
 Heureusement, après son apparition, Tuo Sen ne resta pas longtemps dans le Système Stellaire de l'Alliance. Il se dirigea d'abord vers les Quatre Sectes Divines. Fort de sa puissance de Dieu Ancien et de celle de ses étoiles, il parvint à blesser gravement l'Empereur Divin du Dragon Azure en un seul coup. Il fit s'effondrer le champ stellaire des Quatre Sectes Divines, y laissant d'innombrables fissures qui empêchaient toute intrusion! Cependant, Tuo Sen ne tua pas l'Empereur Divin du Dragon Azure et lança une nouvelle fois:
 
 « Tu es trop faible! »
 
-Quant à la Secte Divin de l'Oiseau Vermillon, les flammes éternelles furent éteintes par un simple revers de main de Tuo Sen!
+Quant à la Secte Divine de l'Oiseau Vermillon, les flammes éternelles furent éteintes par un simple revers de main de Tuo Sen!
 
 « Ce feu est agaçant à regarder! »
 
-Nul membre de la Secte Divin de l'Oiseau Vermillon n'osa exprimer sa colère.
+Nul membre de la Secte Divine de l'Oiseau Vermillon n'osa exprimer sa colère.
 
 Puis, Tuo Sen partit vers le Royaume du Vide Brillant pour combattre le vieil homme. Après avoir scellé ce dernier dans l'une de ses étoiles, il utilisa la Lance Tueuse de Dieux et provoqua l'effondrement du Royaume du Vide Brillant! Le Royaume du Vide Brillant, qui avait existé durant d'innombrables années, disparut à jamais, ne devenant qu'un souvenir.
 
 Le corps de Mu Bingmei s'effondra. Son âme originelle fut gravement blessée et elle disparut. Tuo Sen ne jugea pas nécessaire de la poursuivre; il lui laissa simplement une marque avant de la laisser partir.
 
-Peu de temps après, la Secte des Cadavres fut attaqué en raison de la rage de Tuo Sen, qui ne parvenait pas à trouver Wang Lin. D'innombrables vies furent fauchées, puis Tuo Sen s'en alla.
+Peu de temps après, la Secte des Cadavres fut attaquée en raison de la rage de Tuo Sen, qui ne parvenait pas à trouver Wang Lin. D'innombrables vies furent fauchées, puis Tuo Sen s'en alla.
 
 La dernière destination de Tuo Sen fut le Royaume Céleste de la Pluie scellé. Face au sceau entourant ce royaume, Tuo Sen devint sérieux pour la première fois. Cependant, ce sérieux ne fit qu'accentuer son arrogance et sa fierté.
 
@@ -60,11 +60,11 @@ Seul un rugissement qui fit trembler le système stellaire tout entier résonna 
 
 « Wang Lin, où diable es-tu?! »
 
-Des paroles au sens similaire furent également prononcées par Lu Yanfei sur le continent de Mo Luo, dans le Système Stellaire de la Mer Nuageuse.
+Des paroles au sens similaire furent également prononcées par Lu Yanfei sur le continent de Mo Luo, dans le Système Stellaire de la Mer des Nuages.
 
-« Aîné, où êtes-vous... Il ne reste qu'un an avant la compétition de la secte principale... Reviendrez-vous... »
+« Senior, où êtes-vous... Il ne reste qu'un an avant la compétition de la secte principale... Reviendrez-vous... »
 
-Dans le Système Stellaire de la Mer Nuageuse, la Secte du Dao Pourpre s'était rapidement développé, s'approchant du rang des six plus grandes sectes de la région de niveau 5. Pourtant, durant ces centaines d'années, le maître de la Secte du Dao Pourpre, Lu Yuncong, avait toujours contemplé les étoiles comme s'il cherchait à se remémorer quelque chose. Seul le vieil homme qui l'accompagnait entendait parfois ses doux murmures:
+Dans le Système Stellaire de la Mer des Nuages, la Secte du Dao Pourpre s'était rapidement développé, s'approchant du rang des six plus grandes sectes de la région de niveau 5. Pourtant, durant ces centaines d'années, le maître de la Secte du Dao Pourpre, Lu Yuncong, avait toujours contemplé les étoiles comme s'il cherchait à se remémorer quelque chose. Seul le vieil homme qui l'accompagnait entendait parfois ses doux murmures:
 
 « Frère Lu, j'ai énormément bénéficié de notre débat sur le Dao il y a tant d'années. Pourtant, cent ans ont passé et je n'ai toujours aucune nouvelle de vous... Ma culture s'est améliorée. Si nous pouvions nous revoir, je voudrais débattre du Dao avec vous à nouveau... »
 
@@ -80,9 +80,9 @@ Presque tous les cultivateurs savaient que Li Qianmei possédait un trésor: un 
 
 « Toi, où es-tu maintenant... Près de cent ans ont passé... » À cet instant, Li Qianmei était assise sur une simple plateforme de culture, le visage pâle. Elle semblait blessée. Devant elle, une multitude de bêtes féroces chargeaient à travers le brouillard, contenues par d'innombrables cultivateurs. Elle paraissait avoir oublié le massacre du champ de bataille et les rugissements des bêtes; elle leva la tête et regarda au loin...
 
-Quelque part dans la Mer Nuageuse se trouvait un continent sauvage. Mu Bingmei avait utilisé un sort secret du Royaume du Vide Brillant pour briser la barrière spatiale et s'échapper ici. Elle reconstruisait lentement sa chair. Après avoir été gravement blessée et avoir vu son corps détruit par Tuo Sen, elle avait ressenti, pour une raison inconnue, le besoin de revoir Wang Lin une dernière fois...
+Quelque part dans la Mer des Nuages se trouvait un continent sauvage. Mu Bingmei avait utilisé un sort secret du Royaume du Vide Brillant pour briser la barrière spatiale et s'échapper ici. Elle reconstruisait lentement sa chair. Après avoir été gravement blessée et avoir vu son corps détruit par Tuo Sen, elle avait ressenti, pour une raison inconnue, le besoin de revoir Wang Lin une dernière fois...
 
-« Wang Lin, je me demande si tu vas bien... » Dans la grotte d'un continent sauvage de la Mer Nuageuse, Mu Bingmei ouvrit lentement ses beaux yeux et regarda devant elle. Un sentiment de solitude qu'elle n'avait jamais éprouvé jusqu'alors envahit son cœur. Elle ressentait un froid intense dans ce lieu étranger où elle cultivait en solitaire. Le froid semblait envelopper son corps et la grotte; en écoutant le vent glacial souffler à l'extérieur, elle se sentait encore plus glacée.
+« Wang Lin, je me demande si tu vas bien... » Dans la grotte d'un continent sauvage de la Mer des Nuages, Mu Bingmei ouvrit lentement ses beaux yeux et regarda devant elle. Un sentiment de solitude qu'elle n'avait jamais éprouvé jusqu'alors envahit son cœur. Elle ressentait un froid intense dans ce lieu étranger où elle cultivait en solitaire. Le froid semblait envelopper son corps et la grotte; en écoutant le vent glacial souffler à l'extérieur, elle se sentait encore plus glacée.
 
 Le Royaume aux Sept Couleurs était plongé dans les ténèbres depuis plus de cent ans, depuis que toutes les lumières colorées avaient disparu. Une force mystérieuse enveloppait la montagne où l'âme originelle et l'âme de Wang Lin s'étaient volatilisées, rendant toute intrusion impossible. Maître Nuage-Âme avait tenté de forcer le passage, mais en vain. Il n'avait pu que trouver une grotte à proximité et contempler silencieusement ce monde obscur pendant cent ans.
 

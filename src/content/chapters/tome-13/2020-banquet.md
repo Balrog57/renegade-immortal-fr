@@ -28,7 +28,7 @@ Grâce à cela, tous les membres du clan de l'Ancien Dao présents pouvaient l'e
 
 Des grondements tonitruants retentissaient par intervalles, créant d'innombrables échos. Dès qu'un son commençait à s'estomper, un autre prenait le relais, plongeant le monde dans le fracas des percussions.
 
-Au troisième coup de tambour, des membres du clan sortirent du palais. Ils étaient si nombreux qu'il était impossible de les dénombrer d'un seul coup d'œil. Tous étaient puissants — bien que non comparables aux Exalté Empyréens, ils possédaient tous une culture équivalente à celle de cultivateurs du troisième niveau.
+Au troisième coup de tambour, des membres du clan sortirent du palais. Ils étaient si nombreux qu'il était impossible de les dénombrer d'un seul coup d'œil. Tous étaient puissants — bien que non comparables aux Exaltés Empyréens, ils possédaient tous une culture équivalente à celle de cultivateurs du troisième niveau.
 
 Chacun choisit une table et s'assit pour converser. La place entière commença à bourdonner, devenant très animée.
 
@@ -118,6 +118,6 @@ Devant eux, il restait encore quatre tables!
 
 « Ce doivent être les neuf Généraux Immortels de l'Ancien Dao! »
 
-« Ces neuf êtres sont comparables à des Ascendants ayant franchi le 13e palais! L'un d'eux a même atteint un niveau lui permettant de briser le 14e palais! » Wang Lin détourna le regard et continua sa marche alors que le neuvième coup de tambour résonnait.
+« Ces neuf êtres sont comparables à des Ascendants Empyréens ayant franchi le 13e palais! L'un d'eux a même atteint un niveau lui permettant de briser le 14e palais! » Wang Lin détourna le regard et continua sa marche alors que le neuvième coup de tambour résonnait.
 
 Son apparition attira immédiatement les regards de la multitude présente!

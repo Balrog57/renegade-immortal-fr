@@ -6,11 +6,11 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1826 - Terrifying Avatar!"
 slug: avatar-terrifiant
 ---
-« Huitième Niveau du Dao Céleste, Dao du Feu Extrême! » C'était le sort puissant que l'Ancêtre Céleste avait utilisé pour sceller le Taureau Céleste. Une partie de l'âme originelle de Wang Lin venait tout juste de quitter l'illusion, mais il était encore en état de transe. Même une fois fusionné avec son corps, il restait secondé par cette torpeur, et la seule chose qui occupait son esprit était le sort du Dao du Feu Extrême utilisé par l'Ancêtre Céleste!
+« Huitième Niveau du Dao Céleste, Dao du Feu Extrême! » C'était le sort puissant que l'Ancêtre Céleste avait utilisé pour sceller le Taureau Céleste. Une partie de l'âme originelle de Wang Lin venait tout juste de quitter l'illusion, mais il était encore en état de transe. Même une fois fusionné avec son corps, il restait sous l'emprise de cette torpeur, et la seule chose qui occupait son esprit était le sort du Dao du Feu Extrême utilisé par l'Ancêtre Céleste!
 
 Lorsque Wang Lin parla, l'ombre de son essence véritable apparut. De loin, on aurait dit que deux Wang Lin se tenaient là, face à face. C'était une vision très étrange.
 
-L'essence véritable étant faite de feu, dès qu'elle se manifesta, une vague de chaleur se propagea, faisant semblant de distordre l'espace environnant. L'essence véritable de Wang Lin contenait également une volonté puissante: la volonté du feu, le seigneur des flammes!
+L'essence véritable étant faite de feu, dès qu'elle se manifesta, une vague de chaleur se propagea, donnant l'impression de distordre l'espace environnant. L'essence véritable de Wang Lin contenait également une volonté puissante: la volonté du feu, le seigneur des flammes!
 
 Alors que Wang Lin levait la main droite pour pointer la jeune femme, son essence véritable fit de même. Simultanément, un panache de gaz vert apparut au bout des doigts de Wang Lin et de son essence véritable!
 
@@ -36,7 +36,7 @@ L'anneau de fumée de Wang Lin frappa le premier, percutant les 36 000 visages f
 
 Rumble, rumble, rumble... Le fracas était assourdissant, mêlé à des hurlements déchirants. Les 36 000 visages fantomatiques poussèrent des cris terrifiants avant de s'effondrer sous l'assaut de l'anneau de fumée de Wang Lin.
 
-L'anneau pénétra l'armée de spectres et apparut devant la jeune femme. Tremblante, celle-ci recula précipitamment. Elle mordit le bout de sa langue et cracha du sang pour former une silhouette d'un mètre qui lui ressemblait trait pour trait. Cependant, il ne s'agissait pas de son âme originelle, mais d'une entité créée par une méthode extrêmement vicieuse.
+L'anneau pénétra l'armée de spectres et apparut devant la jeune femme. Tremblante, celle-ci recula précipitamment. Elle mordit le bout de sa langue et cracha du sang pour former une silhouette de trois pieds qui lui ressemblait trait pour trait. Cependant, il ne s'agissait pas de son âme originelle, mais d'une entité créée par une méthode extrêmement vicieuse.
 
 Une fois apparue, la petite silhouette poussa un cri strident. L'onde sonore percuta l'anneau de fumée qui venait de traverser l'armée spectrale.
 
@@ -48,7 +48,7 @@ Bien qu'il possédât le corps du Dao Antique, Wang Lin fut tout de même repous
 
 Mais ce n'était pas encore la fin. Sans son essence véritable, Wang Lin aurait été en infériorité numérique, mais maintenant que celle-ci était complète, le combat changeait de dimension. L'anneau de fumée créé par son essence véritable traversa l'impact et fonça vers la jeune femme.
 
-Cette scène amusa l'amertume chez la femme. Elle comprenait la nature de l'essence véritable: combattre un tel être revenait à affronter deux adversaires en un seul.
+Cette scène emplit la femme d'amertume. Elle comprenait la nature de l'essence véritable: combattre un tel être revenait à affronter deux adversaires en un seul.
 
 Alors que l'anneau de fumée se rapprochait, la jeune femme serra les dents. Elle leva la main droite et un parapluie bleu apparut dans sa poigne.
 
@@ -76,11 +76,11 @@ On pourrait même dire qu'ils étaient nés selon la même méthode. Bien qu'il 
 
 C'était son plus grand atout!
 
-Le Huitième Niveau du Dao Céleste de l'Ancêtre Céleste n'était pas une technique que Wang Lin pouvait maîtriser d'un simple regard à son niveau actuel. Seul un Grand Empereur pourrait sans doute accomplir une telle prouesse.
+Le Huitième Niveau du Dao Céleste de l'Ancêtre Céleste n'était pas une technique que Wang Lin pouvait maîtriser d'un simple regard à son niveau actuel. Seul un Grand Empyréen pourrait sans doute accomplir une telle prouesse.
 
 S'il pouvait l'utiliser, c'était grâce à son avatar. C'était lui qui avait compris le sort après que le corps original de Wang Lin l'ait observé, et cette compréhension avait été transmise au corps originel. Cela permettait à Wang Lin d'utiliser ce sort ultime qui avait jadis scellé le Taureau Céleste!
 
-Avec neuf anneaux, ce sort pourrait sceller le Taureau Céleste; il pourrait même sceller un Grand Empereur!!
+Avec neuf anneaux, ce sort pourrait sceller le Taureau Céleste; il pourrait même sceller un Grand Empyréen!!
 
 Toutefois, son avatar actuel était encore loin d'atteindre une telle maîtrise.
 
@@ -100,7 +100,7 @@ D'un mouvement de la main droite, il projeta les deux empreintes vers la jeune f
 
 La terre trembla et la mer de feu rugit. Un fracas assourdissant secoua une partie du Continent du Taureau Céleste, faisant frémir le cœur d'innombrables cultivateurs. Un hurlement de rage, aigu et strident, résonna dans les profondeurs de la terre.
 
-À cet instant, Wang Lin s'était déjà fusionné avec le monde et avait utilisé la Distorsion Spatiale pour réapparaître sur la Montagne Céleste, à l'extérieur de la Secte de la Grande Âme.
+À cet instant, Wang Lin s'était déjà fusionné avec le monde et avait utilisé la Déformation Spatiale pour réapparaître sur la Montagne Céleste, à l'extérieur de la Secte de la Grande Âme.
 
 « L'essence véritable de feu est formée. Bien que mon niveau de culture n'ait pas évolué, ma force a doublé! Je ne peux pas encore égaler un cultivateur au stade initial de la Tribulation du Vide, mais j'ai désormais les moyens de me protéger! Si la situation devenait critique et que j'utilisais le Dao Antique, "No Celestial", ainsi que le Dao du Feu Extrême, je pourrais tuer un cultivateur de la Tribulation du Vide... Mais le prix serait bien trop lourd... » Tandis qu'il se tenait sur la montagne, ses yeux brillaient d'une lueur intense. Des ondulations apparurent sous ses pieds alors qu'il s'apprêtait à partir.
 

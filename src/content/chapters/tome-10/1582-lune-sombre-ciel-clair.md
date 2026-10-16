@@ -10,7 +10,7 @@ slug: lune-sombre-ciel-clair
 
 Wang Lin recracha plusieurs bouffées de sang et fut projeté en arrière. Les poumons dans sa poitrine se flétrirent et disparurent à l'intérieur de son corps. Privé de ses poumons, il ne pouvait plus respirer. La douleur le fit pousser des gémissements étouffés.
 
-Après la mort de ses poumons, sa rate dépérrit. Des quantités massives de sang se répandirent sur tout son corps. La décomposition de sa rate entra gravement en conflit avec sa récupération. Le corps de Wang Lin devint livide et des taches de sang apparurent partout sur lui.
+Après la mort de ses poumons, sa rate dépérit. Des quantités massives de sang se répandirent sur tout son corps. La décomposition de sa rate entra gravement en conflit avec sa récupération. Le corps de Wang Lin devint livide et des taches de sang apparurent partout sur lui.
 
 Enfin, son foie fondit sous ses paroles.
 
@@ -26,7 +26,7 @@ Des grondements de tonnerre résonnèrent lorsque la femme porta son coup. La po
 
 « Concubine Impériale Céleste! » Dans un fracas, Wang Lin percuta la surface de l'eau mais ne coula pas. Il endura la douleur tandis que sa main droite frappait la surface, lui permettant de rebondir vers le haut.
 
-Il tenta d'entrer dans la fissure de la Mer Nuageuse en utilisant le jade que la femme mystérieuse lui avait donné, mais cela fut sans effet. Il essaya d'invoquer la Bête du Néant, mais un sceau l'en empêchait; il ne parvenait pas à ressentir la créature.
+Il tenta d'entrer dans la fissure de la Mer des Nuages en utilisant le jade que la femme mystérieuse lui avait donné, mais cela fut sans effet. Il essaya d'invoquer la Bête des Limbes, mais un sceau l'en empêchait; il ne parvenait pas à ressentir la créature.
 
 « Tu n'as aucune voie de survie, tu ne peux t'échapper! Mais si tu t'agenouilles et me supplies, je pourrais peut-être t'accorder une chance de vivre », dit doucement la femme en sortant de la glace pour marcher vers Wang Lin.
 
@@ -56,9 +56,9 @@ Wang Lin n'était pas aussi habile que Qing Shui pour utiliser *Lune Sombre, Cie
 
 Il l'avait vu une fois; ainsi, avec son niveau de culture actuel et plus de 2 000 ans d'illumination, ce n'était pas difficile d'accomplir au moins cela!
 
-Tandis que les grondements tonnerraient, la femme traversa calmement tous ces sorts. Ils étaient inutiles contre elle.
+Tandis que les grondements tonnaient, la femme traversa calmement tous ces sorts. Ils étaient inutiles contre elle.
 
-Cependant, juste au moment où elle émergeait, Wang Lin poussa un ruglement vers le ciel!
+Cependant, juste au moment où elle émergeait, Wang Lin poussa un rugissement vers le ciel!
 
 « Lune Sombre, Ciel Clair!! » Alors que Wang Lin rugissait, il pointa la femme du doigt.
 

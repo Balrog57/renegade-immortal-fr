@@ -42,7 +42,7 @@ Tout se déroula avec une fluidité parfaite, sans la moindre hésitation. Le so
 
 Avant de partir, Wang Lin décela une trace de confiance au fond de la folie qui brûlait dans l'œil gauche de Qing Shui.
 
-« Frère aîné Qing Shui, je ferai de mon mieux! » Wang Lin surgit du vortex. Après avoir jeté l'âme originelle de l'Illustre Xuan Bao dans son sac, il se retourna et ouvrit son troisième œil sans hésiter. La lumière rouge se propagea et verrouilla le vortex, forçant ce fragment d'énergie originelle à ressortir.
+« Senior Frère Qing Shui, je ferai de mon mieux! » Wang Lin surgit du vortex. Après avoir jeté l'âme originelle de l'Illustre Xuan Bao dans son sac, il se retourna et ouvrit son troisième œil sans hésiter. La lumière rouge se propagea et verrouilla le vortex, forçant ce fragment d'énergie originelle à ressortir.
 
 Le dragon doré poussa un rugissement et changea immédiatement de direction. Il fut si rapide qu'il atteignit le vortex en un instant pour s'y engouffrer.
 
@@ -114,7 +114,7 @@ Une lumière invisible scintillait autour du dragon doré, lui permettant de ré
 
 Cependant, cette bulle se dissipait sans cesse, exigeant qu'il utilise constamment son énergie originelle pour la maintenir.
 
-Quant à Qing Shui, il fit simplement un geste de la main et utilisa la Prison de Terre pour bloquer de force la puissance de scellement, mais il ne put la soutenir longtemps.
+Quant à Qing Shui, il fit simplement un geste de la main et utilisa la Prison Terrestre pour bloquer de force la puissance de scellement, mais il ne put la soutenir longtemps.
 
 En revanche, le plus imperturbable était Wang Lin. Il ignora totalement l'énergie originelle déclinant en lui, serra le poing, fixa le dragon doré et afficha un sourire narquois.
 

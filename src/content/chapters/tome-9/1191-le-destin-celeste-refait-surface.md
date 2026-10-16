@@ -10,7 +10,7 @@ La vieille femme en vert n'offrit aucune explication; elle fit simplement un pas
 
 Cependant, son expression retrouva aussitôt son calme. Il eut un ricanement méprisant et serra plus fermement le flacon de jade. S'il avait pu le placer dans son espace de stockage, il l'aurait déjà mis en sécurité.
 
-Ne perdant pas de temps avec la vieille femme, il utilisa sa puissante culture pour tenter de quitter les lieux. Bien que le sortilège ancestral Ying Yang l'ait surpris, il était confiant quant à sa fuite.
+Ne perdant pas de temps avec la vieille femme, il utilisa sa puissante culture pour tenter de quitter les lieux. Bien que le sortilège ancestral Yang Yin l'ait surpris, il était confiant quant à sa fuite.
 
 À cet instant, sa main gauche s'élança vers le vide et une lumière dorée apparut. Cette clarté se mua en des dizaines de milliers d'épées volantes qui, d'un geste de son doigt, foncèrent sur la vieille femme en vert.
 
@@ -112,7 +112,7 @@ Dès sa destruction, la lumière aux sept couleurs du monde fulgura violemment e
 
 « Le Doigt du Destin Céleste! » Cet endroit était bel et bien lié à l'Omniscient! En voyant ce doigt colossal dans le ciel, les pupilles de Wang Lin se contractèrent.
 
-Le doigt semblait avoir absorbé la majeure partie de la lumière céleste, plongeant le ciel dans la pénombre. Un rugissement tonnerre retentit alors qu'il descendait sur l'échappée de Wang Lin, comme pour l'écraser!
+Le doigt semblait avoir absorbé la majeure partie de la lumière céleste, plongeant le ciel dans la pénombre. Un rugissement de tonnerre retentit alors qu'il descendait sur l'échappée de Wang Lin, comme pour l'écraser!
 
 Les yeux de la vieille femme en vert brillèrent tandis qu'elle formait un sceau avant de pointer entre ses sourcils. Trois restrictions s'élancèrent immédiatement: les trois puissantes entités qui constituaient le sommet des Restrictions de Vie et de Mort!
 

@@ -36,15 +36,15 @@ Comme ces hurlements provenaient de très loin, ils ressemblaient au souffle d'u
 
 Cette sensation étrange aurait rendu n'importe quel cultivateur de la Mer des Nuages extrêmement vigilant lors d'une première incursion. Mais cela n'affectait nullement Wang Lin.
 
-Il restait assis calmement, le regard porté vers l'avant, se remémorant ces dix années où il n'était qu'une statue de pierre, incapable de ressentir quoi que ce soit du monde extérieur... Il songea également à la lumière sanguine et à la chaleur qui l'avaient accompagné durant ses dix ans à l'intérieur de la Perle Céleste.
+Il restait assis calmement, le regard porté vers l'avant, se remémorant ces dix années où il n'était qu'une statue de pierre, incapable de ressentir quoi que ce soit du monde extérieur... Il songea également à la lumière sanguine et à la chaleur qui l'avaient accompagné durant ses dix ans à l'intérieur de la Perle Défiant le Ciel.
 
-Sans cette lumière sanguine, l'âme de Wang Lin serait restée prisonnière de la Perle Céleste jusqu'à sa dissipation complète. Il se souvenait qu'au début, il avait ressenti un froid glacial et qu'il s'effaçait peu à peu... Ce n'est que lorsque la lumière sanguine apparut qu'il retrouva la chaleur et que son corps commença lentement à se reformer. Il avait alors recouvré ses sens et réveillé ses souvenirs.
+Sans cette lumière sanguine, l'âme de Wang Lin serait restée prisonnière de la Perle Défiant le Ciel jusqu'à sa dissipation complète. Il se souvenait qu'au début, il avait ressenti un froid glacial et qu'il s'effaçait peu à peu... Ce n'est que lorsque la lumière sanguine apparut qu'il retrouva la chaleur et que son corps commença lentement à se reformer. Il avait alors recouvré ses sens et réveillé ses souvenirs.
 
 C'est grâce à cette lumière sanguine qu'il avait pu trouver le Seigneur du Royaume Scellé et entrer dans le domaine du Dao pour comprendre son premier sort de Dao.
 
 « Sort Dao... C'est le sort que j'ai compris dans le domaine du Dao. C'est mon troisième sort, après Nuit Brisée et Temps Fluide. C'est un véritable sort de Dao... »
 
-Wang Lin laissa échapper un soupir. Plus il repensait aux paroles de la vieille femme, plus il songeait à cette lumière sanguine au sein de la Perle Céleste. Il avait le sentiment d'être encore plus redevable envers Li Qianmei, et se sentait incapable de l'en remercier.
+Wang Lin laissa échapper un soupir. Plus il repensait aux paroles de la vieille femme, plus il songeait à cette lumière sanguine au sein de la Perle Défiant le Ciel. Il avait le sentiment d'être encore plus redevable envers Li Qianmei, et se sentait incapable de l'en remercier.
 
 Le temps s'écoulait lentement tandis que Wang Lin plongeait dans ses souvenirs. Le monde au sein de la faille spatiale semblait immuable; tout n'était qu'obscurité constante.
 
@@ -58,7 +58,7 @@ Ces créatures semblaient extrêmement sensibles à la lumière. Dès que l'écl
 
 L'aveuglante clarté fut bientôt engloutie par l'obscurité, replongeant le monde dans les ténèbres.
 
-Le Dragon des Ne neuf Abîmes était l'une des bêtes royales de la faille spatiale, et il dégageait une aura de souverain qui empêchait les créatures alentour de s'approcher. C'était ce qui avait permis à Wang Lin d'avancer si loin.
+Le Dragon des Neuf Abîmes était l'une des bêtes royales de la faille spatiale, et il dégageait une aura de souverain qui empêchait les créatures alentour de s'approcher. C'était ce qui avait permis à Wang Lin d'avancer si loin.
 
 En temps normal, toutes les bêtes féroces auraient dû fuir face au Dragon des Neuf Abîmes, mais la présence de Wang Lin créait une confusion en elles. C'est pourquoi tant d'entre elles s'étaient rassemblées sans toutefois oser s'approcher davantage.
 
@@ -74,7 +74,7 @@ Bien qu'il ne puisse toujours voir qu'à mille pieds devant lui, il remarqua un 
 
 Le Dragon des Neuf Abîmes commença à ralentir. Un léger tremblement émanait de son âme, comme si ce monde violet l'effrayait.
 
-Si le Sens Divin de Wang Lin ne l'entourait pas, le Dragon des Neuf Abîmes aurait tremblé violemment et n'aurait plus osé avancer. Il aurait immédiatement fait demi-tour pour s'enfuir. Les bêtes qui les suivaient avaient elles aussi frémi, n'osant pas poursuivre l'exploration. Cependant, la densité des créatures environnantes n'augmentait pas, elle se multipliait. C'étaient toutes des bêtes résidant dans ce monde violet.
+Si le Sens Divin de Wang Lin ne l'entourait pas, le Dragon des Neuf Abîmes aurait tremblé violemment et n'aurait plus osé avancer. Il aurait immédiatement fait demi-tour pour s'enfuir. Les bêtes qui les suivaient avaient elles aussi frémi, n'osant pas poursuivre l'exploration. Cependant, la densité des créatures environnantes ne diminuait pas, elle augmentait. C'étaient toutes des bêtes résidant dans ce monde violet.
 
 Wang Lin nota naturellement l'état anormal du Dragon des Neuf Abîmes. Ses yeux s'illuminèrent. Bien que le temps écoulé fût difficile à estimer, il calcula la distance parcourue en fonction de leur vitesse. Selon son analyse, il atteignait la lisière du royaume violet mentionné dans le jade.
 

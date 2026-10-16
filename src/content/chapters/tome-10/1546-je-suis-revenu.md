@@ -30,7 +30,7 @@ Conjuguées aux ondulations qui saturaient l'espace, il était impossible pour l
 
 Une légère odeur de sang flottait encore dans l'air, témoignant de la tragédie qui s'était déroulée ici! Wang Lin se souvenait clairement que la bataille entre Luotian et l'Alliance n'avait pas été d'une telle intensité. Il n'y avait qu'une seule explication à ce changement!
 
-« J'ignore combien de temps j'ai passé à l'intérieur de la Bête du Néant. Je me demande combien d'autres batailles contre le Royaume Extérieur ont eu lieu... Les Royaumes aux Sept Couleurs auraient dû être découverts et détruits... » Wang Lin s'apprêtait à faire son troisième pas, mais avant de poser le pied au sol, une lueur glaciale traversa ses yeux et il regarda au loin.
+« J'ignore combien de temps j'ai passé à l'intérieur de la Bête des Limbes. Je me demande combien d'autres batailles contre le Royaume Extérieur ont eu lieu... Les Royaumes aux Sept Couleurs auraient dû être découverts et détruits... » Wang Lin s'apprêtait à faire son troisième pas, mais avant de poser le pied au sol, une lueur glaciale traversa ses yeux et il regarda au loin.
 
 Trois traînées de lumière fusaient au loin. La première appartenait à un cultivateur du Royaume Intérieur. C'était un vieil homme au visage livide qui crachait sans cesse du sang, mais son expression restait féroce.
 
@@ -48,7 +48,7 @@ Un fracas de tonnerre retentit et, tandis que l'impact se propageait, Maître Ya
 
 « Si le vice-doyen du Conseil Souverain, l'estimé Maître Tian Zhao, n'avait pas conclu d'accord avec votre Royaume Intérieur pour cesser tout combat, croyez-vous encore que le Royaume du Vide Brillant vous appartiendrait?! » Le membre du Clan du Loup Céleste afficha un mépris manifeste. Il agita la main droite et un fantôme de loup vert, haut de milliers de pieds, apparut pour bondir sur Maître Yan Leizi.
 
-Les deux cultivateurs du Système des Étoiles Anciennes étaient tous deux au sommet du stade de Briseur du Nirvana, tout comme l'actuel Maître Yan Leizi. Le fait qu'il puisse encore tenir était la preuve de sa puissance.
+Les deux cultivateurs du Système Stellaire Antique étaient tous deux au sommet du stade de Briseur du Nirvana, tout comme l'actuel Maître Yan Leizi. Le fait qu'il puisse encore tenir était la preuve de sa puissance.
 
 Alors que le loup vert se rapprochait, Maître Yan Leizi fit soudainement volte-face. Il mordit le bout de sa langue et cracha du sang sur la douzaine de fragments derrière lui. Son expression devint sauvage et il hurla: « Explosez! »
 

@@ -14,7 +14,7 @@ Murong Yun esquissa un léger sourire, joignit ses mains et dit: « Le jeune Mur
 
 Mu Yunhai hocha la tête et demanda: « Sais-tu comment pénétrer dans la section intérieure? »
 
-Murong Yun acquiesça et répondit: « Aîné Mu, le jeune connaît la méthode pour y accéder, mais l'Aîné doit promettre de nous faire entrer également. Si vous acceptez, je promets de vous révéler tout ce que je sais. »
+Murong Yun acquiesça et répondit: « Senior Mu, le jeune connaît la méthode pour y accéder, mais l'Aîné doit promettre de nous faire entrer également. Si vous acceptez, je promets de vous révéler tout ce que je sais. »
 
 Les yeux de Mu Yunhai s'illuminèrent et il déclara: « Parle, ce vieil homme accepte. »
 

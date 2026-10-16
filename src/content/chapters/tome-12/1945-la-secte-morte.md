@@ -128,6 +128,8 @@ Il demanda doucement: « La Secte Dong Lin de votre rêve était-il identique à
 
 « Je suis assis ici depuis si longtemps... Vous êtes le seul à m'avoir apporté un sentiment de familiarité... C'est ma maison... Je l'ai quittée il y a bien longtemps, lorsque je suis devenu un Ascendant Empyréen, et quand je suis revenu, tout était déjà ainsi... » Le vieil homme ouvrit les yeux, lesquels étaient noyés dans une douleur et une tristesse indicibles.
 
+« Je ne sais pas qui a fait cela... Je ne peux pas le découvrir. Même les Grands Empyréens n'y parviennent pas... Je peux seulement m'asseoir ici avec mes souvenirs et créer ce rêve, le laisser m'accompagner et permettre à la Secte Dong Lin d'exister... jusqu'au jour de ma mort... » murmura le vieil homme, la voix rauque.
+
 Wang Lin resta silencieux.
 
 Quelle émotion pouvait transformer un être en une telle créature? Quelle tristesse pouvait pousser quelqu'un à s'auto-illusionner par un rêve? Quelle solitude pouvait amener un homme à créer une illusion pour ne plus être seul?

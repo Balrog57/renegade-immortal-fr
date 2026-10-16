@@ -44,7 +44,7 @@ Il vit le fragment percuter d'innombrables fissures en un instant. La force éma
 
 Au fur et à mesure de sa progression, c'était comme si les failles spatiales étaient aplaties et montraient des signes de fermeture.
 
-Les yeux de Wang Lin se plissèrent et il monta immédiatement sur le fragment. Il s'assit en position du lotus et exécuta un sceau manuel. L'énergie originelle afflua dans le fragment, le faisant briller intensément. Sa vitesse décupla et il chargea tête baissée.
+Les yeux de Wang Lin se plissèrent et il monta immédiatement sur le fragment. Il s'assit en position du lotus et exécuta un sceau manuel. L'énergie originelle afflua dans le fragment, le faisant briller intensément. Sa vitesse augmenta de plusieurs fois et il chargea tête baissée.
 
 Grâce à cela, sa progression était bien plus rapide qu'auparavant. Wang Lin n'avait plus qu'à surveiller les fissures de plus de mille pieds; il pouvait ignorer totalement les autres.
 
@@ -56,7 +56,7 @@ Le fragment sur lequel Wang Lin voyageait était très visible dans le vide, et 
 
 Wang Lin détourna calmement le regard. Compte tenu de sa personnalité, il n'aiderait personne sans raison. Son fragment continua sa course sans s'arrêter.
 
-La femme, plongée dans le désespoir, lutta pour s'extraire de la fissure et cria d'une voix pressante: « Senior, je vous en prie, sauvez-moi! Zhan Konglie est mon frère aîné! »
+La femme, plongée dans le désespoir, lutta pour s'extraire de la fissure et cria d'une voix pressante: « Senior, je vous en prie, sauvez-moi! Zhan Konglie est mon Senior Frère! »
 
 Wang Lin fronça les sourcils. Il avait déjà vu cette femme. Lorsque Zhan Konglie était passé accompagné de plus de dix personnes, elle faisait partie de ce groupe.
 
@@ -74,7 +74,7 @@ D'une voix posée, Wang Lin déclara: « Dix mille jades célestes pour vous sau
 
 Le fragment sous ses pieds s'élança de nouveau vers l'horizon.
 
-La femme resta silencieuse, pensive. Une lueur de mépris imperceptible passa dans son regard. Elle ne s'attendait pas à ce que la personne si respectée par son frère aîné Zhan soit un individu de ce genre. Si elle n'avait pas vu de ses propres yeux le combat entre lui et l'étrange homme aux cheveux blancs, elle n'aurait jamais cru que l'homme devant elle était un senior!
+La femme resta silencieuse, pensive. Une lueur de mépris imperceptible passa dans son regard. Elle ne s'attendait pas à ce que la personne si respectée par son Senior Frère Zhan soit un individu de ce genre. Si elle n'avait pas vu de ses propres yeux le combat entre lui et l'étrange homme aux cheveux blancs, elle n'aurait jamais cru que l'homme devant elle était un Senior!
 
 Sans dire un mot, elle lança un sac de rangement et dit à Wang Lin: « Il y a cinquante mille jades célestes à l'intérieur. Senior, je vous prie de les compter! »
 

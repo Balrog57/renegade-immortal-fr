@@ -58,9 +58,9 @@ Les deux cultivateurs du stade initial restèrent à la traîne, et l'écart ent
 
 Il toucha sa poitrine. Une Pierre Spatiale se trouvait dans son corps. Il sentait que cette pierre était extraordinaire, mais il n'en connaissait pas encore l'usage exact.
 
-Lorsque la Bête du Néant était apparue pour dévorer l'autre Dao Céleste, Wang Lin avait eu une intuition. Il pressentait vaguement les autres fonctions de cet objet.
+Lorsque la Bête des Limbes était apparue pour dévorer l'autre Dao Céleste, Wang Lin avait eu une intuition. Il pressentait vaguement les autres fonctions de cet objet.
 
-« Elle pourrait augmenter le pouvoir de dévoration de la Bête du Néant, mais cette pierre contient un espace infini... Une fois fusionnée avec la Bête du Néant, une série de changements se produira... » Les yeux de Wang Lin s'illuminèrent. Il ouvrit la bouche et, dans un éclat de lumière fantomatique, la Pierre Spatiale vola vers sa main.
+« Elle pourrait augmenter le pouvoir de dévoration de la Bête des Limbes, mais cette pierre contient un espace infini... Une fois fusionnée avec la Bête des Limbes, une série de changements se produira... » Les yeux de Wang Lin s'illuminèrent. Il ouvrit la bouche et, dans un éclat de lumière fantomatique, la Pierre Spatiale vola vers sa main.
 
 Tenant la pierre, Wang Lin réfléchit un instant. Des ondulations apparurent et il disparut sans laisser de trace. Seule la Pierre Spatiale tomba au sol, se cachant parmi les hautes herbes.
 
@@ -74,7 +74,7 @@ D'un nouveau geste, il fit apparaître la gourde contenant les 30 millions d'âm
 
 Après une courte réflexion, Wang Lin leva la main droite et l'empreinte dorée que Xuan Luo lui avait donnée apparut. Il souffla dessus, ce qui fit briller l'emblème, puis il le lança vers les cieux. L'empreinte devint alors le soleil.
 
-Puis, Wang Lin sortit la Voile Fantomatique qu'il avait fabriquée. La voile se dispersa pour devenir les nuages de ce monde. Ces nuages semblaient simples, mais ils pouvaient prendre n'importe quelle forme.
+Puis, Wang Lin sortit la Voile Fantôme qu'il avait fabriquée. La voile se dispersa pour devenir les nuages de ce monde. Ces nuages semblaient simples, mais ils pouvaient prendre n'importe quelle forme.
 
 Les derniers éléments qu'il fit apparaître furent Yi Si et le Roi des Moustiques. Le Roi des Moustiques modifia sa taille et se fondit dans les nuages blancs. Quant à Yi Si, elle fusionna avec la terre, dissimulée par l'aura terrestre émanant des 30 millions d'âmes Dao enfouies dans le sol.
 

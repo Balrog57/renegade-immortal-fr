@@ -10,7 +10,7 @@ slug: lhorreur-de-du-qing
 
 Wang Lin ne voulait laisser aucun indice aux poursuivants, surtout pas le fait qu'il maîtrisait les restrictions. Dans ce continent étrange, une couche de mystère supplémentaire constituait une protection supplémentaire.
 
-Les restrictions disparurent sans laisser de trace. Même si quelqu'un remarquait quelque chose, il lui serait difficile de déterminer si elles avaient été créées par une personne ou par un trésor. D'un revers de manche, Wang Lin brûla les parois de la grotte sur plus d'un mètre afin qu'aucun vestige ne subsiste.
+Les restrictions disparurent sans laisser de trace. Même si quelqu'un remarquait quelque chose, il lui serait difficile de déterminer si elles avaient été créées par une personne ou par un trésor. D'un revers de manche, Wang Lin brûla les parois de la grotte sur plus d'un pied afin qu'aucun vestige ne subsiste.
 
 Une fois cela accompli, Wang Lin sortit de la grotte et se tint dans les airs. Le ciel était limpide, sans le moindre nuage, d'une beauté saisissante.
 
@@ -28,7 +28,7 @@ Un grondement tonitruant retentit tandis que le sommet s'effondrait, dispersant 
 
 « Dispersez-vous et continuez vos recherches. Je ne crois pas qu'il puisse échapper au Continent du Taureau Céleste! » Du Qing prit une profonde inspiration et serra le poing.
 
-« S'il se cache, il sera difficile de le trouver... Il semble que je doive demander l'aide du Grand Secte de l'Âme... »
+« S'il se cache, il sera difficile de le trouver... Il semble que je doive demander l'aide de la Secte de la Grande Âme... »
 
 Wang Lin n'avait aucune intention d'éviter l'autre partie. S'il avait réellement voulu se cacher, il aurait pu trouver une montagne lointaine et s'y terrer; après huit ou dix ans, le danger serait passé.
 

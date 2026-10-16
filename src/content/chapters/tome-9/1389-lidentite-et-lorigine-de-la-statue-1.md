@@ -60,11 +60,11 @@ Tout en parlant, il agita la main, relâchant le sort d'arrêt sur Cupidité pou
 
 Cupidité réfléchit un instant en silence avant de laisser échapper un soupir: « Dans une tombe antique. »
 
-« Pour entrer dans le Système Stellaire Antique, il faut briser la Formation de Scellement du Royaume, ce qui est impossible avec votre niveau de culture. Comment êtes-vous arrivé ici? » La voix de Wang Lin était glaciale et elle envahit l'esprit de Cupidité, faisant frissonner son corps.
+« Pour entrer dans le Système Stellaire Antique, il faut briser la Formation du Royaume Scellé, ce qui est impossible avec votre niveau de culture. Comment êtes-vous arrivé ici? » La voix de Wang Lin était glaciale et elle envahit l'esprit de Cupidité, faisant frissonner son corps.
 
 « C'était aussi dans cette tombe antique... Tous mes trésors ont été obtenus là-bas. » Cupidité renonça à résister. Il comprit que s'il disait la vérité, il aurait peut-être une chance de survie. Il savait que l'homme devant lui était un monstre qui ne ferait preuve d'aucune pitié.
 
-S'il évevait les soupçons de Wang Lin et que celui-ci utilisait la recherche d'âme, même s'il ne mourait pas, il perdrait toute raison.
+S'il éveillait les soupçons de Wang Lin et que celui-ci utilisait la recherche d'âme, même s'il ne mourait pas, il perdrait toute raison.
 
 Les yeux de Wang Lin s'illuminèrent tandis qu'il fixait Cupidité et dit lentement: « Quelle tombe? Expliquez en détail, et ne me forcez pas à fouiller votre âme! »
 
@@ -94,7 +94,7 @@ L'expression de Cupidité changea et il s'empressa de répondre: « Je ne mens p
 
 « Quand j'avais huit ans, alors que je jouais simplement dans le village, j'ai pu trouver de l'essence jaune. Je suis tombé d'une falaise, j'ai trouvé un Fruit Vermillon et j'ai obtenu le dragon de tonnerre ancien. Le fourneau est tombé du ciel pour tuer mon ennemi. Les autres doivent se battre pour obtenir le fourneau de la pluie, mais moi, je volais simplement à l'extérieur et le fourneau a volé vers moi.
 
-« En entrant dans le Royaume Céleste, les autres passent un temps infini à chercher minutieusement des jades célestes pour n'en trouver que peu. Lors de ma première visite, j'ai été téléporté directement dans la grotte d'un roi céleste... Il y avait aussi une ancienne héritage de l'Alliance dont l'entrée était difficile à trouver pour les autres. J'ai fait trois pas et j'ai été téléporté à l'intérieur... » Cupidité craignait que Wang Lin ne le croie. Si tout cela n'était qu'un mensonge, peu importait, mais Cupidité savait que chacun de ses mots était vrai.
+« En entrant dans le Royaume Céleste, les autres passent un temps infini à chercher minutieusement des jades célestes pour n'en trouver que peu. Lors de ma première visite, j'ai été téléporté directement dans la grotte d'un roi céleste... Il y avait aussi un ancien héritage de l'Alliance dont l'entrée était difficile à trouver pour les autres. J'ai fait trois pas et j'ai été téléporté à l'intérieur... » Cupidité craignait que Wang Lin ne le croie. Si tout cela n'était qu'un mensonge, peu importait, mais Cupidité savait que chacun de ses mots était vrai.
 
 Parfois, lui-même trouvait cela incroyable.
 
@@ -104,6 +104,6 @@ Wang Lin interrompit l'explication de Cupidité et dit lentement: « Continuez. 
 
 « Je n'ai trouvé aucune sortie et j'y suis resté prisonnier pendant des centaines d'années. L'aura de mort y était extrêmement puissante et, d'après mes observations, j'en ai déduit que cet endroit devait être une tombe!
 
-« J'ai même vu une tête géante sur un rocher. Cette tête mesurait environ mille pieds et était d'une férocité extrême. Elle avait des étoiles entre les sourcils... C'est là que j'ai trouvé le Fourneau de l'Empereur. Il y avait encore de la fumée d'encens qui s'en échappait, comme si l'on y pratiquait des rites de vénération.
+« J'ai même vu une tête géante sur un rocher. Cette tête mesurait environ mille pieds et était d'une férocité extrême. Elle avait des étoiles entre les sourcils... C'est là que j'ai trouvé le Fourneau Impérial. Il y avait encore de la fumée d'encens qui s'en échappait, comme si l'on y pratiquait des rites de vénération.
 
 « En m'enfonçant davantage, j'ai découvert d'autres têtes. Toutes dégageaient une rancœur et un regret puissants. Certaines avaient une seule corne, d'autres deux! Certaines avaient des trésors déposés devant elles! » Alors qu'il se remémorait ces instants, une pointe de terreur perçait dans ses yeux.

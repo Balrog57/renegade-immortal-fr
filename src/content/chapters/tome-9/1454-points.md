@@ -48,7 +48,7 @@ Un éclair de froideur passa dans les yeux de Wang Lin. Cette phrase venait de r
 
 Les cinq maîtres étaient extrêmement rusés; ayant tous cultivé pendant des dizaines de milliers d'années, aucun n'était fou! En un coup d'œil, il avait perçu la possibilité que Wang Lin et Grande Désolation fassent équipe. Il avait donc immédiatement offert l'esprit Dao pour briser net toute chance de cette alliance!
 
-« N'est-ce pas cet esprit Dao que tu convoites? Je te le donne! Comparé à la Perle qui défie le Ciel que possède Wang Lin, ceci n'est rien! » Le Maître Dao Miao Yin restait calme, attendant de voir le choix de Grande Désolation.
+« N'est-ce pas cet esprit Dao que tu convoites? Je te le donne! Comparé à la Perle Défiant le Ciel que possède Wang Lin, ceci n'est rien! » Le Maître Dao Miao Yin restait calme, attendant de voir le choix de Grande Désolation.
 
 Wang Lin ricana. S'il avait été à l'extérieur, il aurait immédiatement fui en rencontrant le Maître Dao Miao Yin, tant l'écart entre eux était immense. Cependant, ici, Wang Lin était certain de pouvoir tenir tête. Bien que le Maître Dao Miao Yin fût l'un des cinq maîtres, il ne pouvait manifester ici qu'une culture au début du stade Vide du Nirvana.
 
@@ -104,9 +104,9 @@ Voyant les cinq ongles s'approcher, il concentra toute son attention sur la mena
 
 « Jeune Wang Lin, dégage de mon chemin! Quand j'en aurai le temps, je te tuerai! » Tout en reculant, il agita la main gauche et une illusion surgit de l'océan violet. Cette figure mesurait mille pieds de haut, vêtue d'une armure pourpre. Brandissant un trident, elle s'élança avec des yeux brillants vers Wang Lin et l'épée de sang.
 
-Le Maître Dao Miao Yin n'avait pas assisté au combat entre Wang Lin et le Maître Simo. Pressé de rejoindre la Tombe de l'Ordre Antique, il n'avait même pas cherché à savoir ce qui s'était passé sur la Planète de l'Empereur Suprême.
+Le Maître Dao Miao Yin n'avait pas assisté au combat entre Wang Lin et le Maître Simo. Pressé de rejoindre la Tombe de l'Ordre Antique, il n'avait même pas cherché à savoir ce qui s'était passé sur la Planète du Grand Empereur.
 
-S'il avait été informé, il n'aurait jamais méprisé Wang Lin de la sorte, et n'aurait pas concentré toute son attention sur l'ennemi devant lui, car derrière ce dernier se trouvait un dieu de la destruction! Un dieu ancien qui avait raffiné le vénérable Ling Dong et dont la puissance avait prodigieusement augmenté!
+S'il avait été informé, il n'aurait jamais méprisé Wang Lin de la sorte, et n'aurait pas concentré toute son attention sur l'ennemi devant lui, car derrière ce dernier se trouvait un dieu de la destruction! Un dieu ancien qui avait raffiné l'estimé Ling Dong et dont la puissance avait prodigieusement augmenté!
 
 L'épée de sang hurla et percuta le trident dans un fracas violent. Presque rien au monde ne pouvait arrêter l'épée de sang. Elle transperça le trident ainsi que la figure, puis fonça droit sur le Maître Dao Miao Yin!
 

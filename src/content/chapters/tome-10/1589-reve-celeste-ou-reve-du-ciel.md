@@ -26,7 +26,7 @@ Qing Shui leva les yeux vers les étoiles lointaines et son regard devint glacia
 
 Il renonça à retrouver sa fille et à sa liberté. Il choisit d'endosser l'identité de Wang Lin pour devenir un symbole à la station de combat de la Mer des Nuages.
 
-« Frère cadet, je me vengerai pour toi... Quant à tous ceux qui sont impliqués dans cette affaire, si j'en ai la moindre chance, je ferai tout mon possible pour obtenir ma vengeance! » Qing Lin ferma les yeux pour dissimuler sa douleur.
+« Junior Frère, je me vengerai pour toi... Quant à tous ceux qui sont impliqués dans cette affaire, si j'en ai la moindre chance, je ferai tout mon possible pour obtenir ma vengeance! » Qing Lin ferma les yeux pour dissimuler sa douleur.
 
 Beaucoup de ceux qui étaient présents savaient pertinemment que Wang Lin ne pouvait éviter cette calamité. Ils savaient que le Royaume Extérieur avait planifié cela depuis longtemps, agissant dans l'ombre pour échapper à leur détection et lancer son assaut.
 

@@ -10,17 +10,17 @@ slug: je-nai-pas-besoin-que-tu-me-sauves
 
 « Lu Yundao! » L'Omniscient fronça les sourcils et dit: « Se pourrait-il que votre Royaume du Vide Brillant souhaite également s'en mêler? »
 
-Le vieil homme regarda l'Omniscient, puis le Démon Ancestral Ta Jia au visage sombre. Lorsqu'il fixa le Démon Ancestral Ta Jia, une pointe de souvenir brilla dans son regard.
+Le vieil homme regarda l'Omniscient, puis le Démon Ancien Ta Jia au visage sombre. Lorsqu'il fixa le Démon Ancien Ta Jia, une pointe de souvenir brilla dans son regard.
 
 « La cible de ce vieil homme, c'est lui! » Le vieil homme poussa un soupir et marcha vers Ta Jia.
 
-Les yeux du démon ancestral étaient emplis de flammes démoniaques alors qu'il fixait le vieil homme, devenant d'une gravité extrême. Sa main droite agrippa la lame et la projeta en avant tandis qu'il disait d'une voix lugubre: « C'est toi! Il s'avère que tu n'es pas mort! »
+Les yeux du démon ancien étaient emplis de flammes démoniaques alors qu'il fixait le vieil homme, devenant d'une gravité extrême. Sa main droite agrippa la lame et la projeta en avant tandis qu'il disait d'une voix lugubre: « C'est toi! Il s'avère que tu n'es pas mort! »
 
-« Je devrais déjà être mort, mais le frère Qing Lin m'a sauvé. Bien que notre querelle ait été profonde, puisqu'il m'a sauvé une fois, je lui suis redevable. Je rembourserai cette dette en t'affrontant, toi! » Tandis qu'il parlait, le vieil homme s'avança vers le démon ancestral. Son expression était calme, comme si le démon n'était pas digne de son attention.
+« Je devrais déjà être mort, mais le frère Qing Lin m'a sauvé. Bien que notre querelle ait été profonde, puisqu'il m'a sauvé une fois, je lui suis redevable. Je rembourserai cette dette en t'affrontant, toi! » Tandis qu'il parlait, le vieil homme s'avança vers le démon ancien. Son expression était calme, comme si le démon n'était pas digne de son attention.
 
 Ta Jia poussa un rugissement et une monstrueuse brume noire émana de son corps. La brume se mua en une ombre démoniaque qui ouvrit la gueule pour tenter de dévorer le vieil homme.
 
-En un clin d'œil, le démon ancestral et le vieil homme furent enveloppés dans un nuage de brume noire. Le rugissement du démon ancestral retentit, suivi d'un grondement tonnerreux.
+En un clin d'œil, le démon ancien et le vieil homme furent enveloppés dans un nuage de brume noire. Le rugissement du démon ancien retentit, suivi d'un grondement tonnerreux.
 
 Mu Bingmei déposa Wang Lin et s'élança droit vers l'Omniscient.
 
@@ -36,7 +36,7 @@ Les yeux de l'Omniscient révélèrent une lueur étrange et il murmura quelques
 
 Mu Bingmei secoua la tête et dit doucement: « Votre sort de destin céleste est inutile contre moi! » Tandis qu'elle parlait, sa main droite plongea dans le vide et une énergie originelle infinie se rassembla pour former un parchemin de bambou. À l'instant où le parchemin s'ouvrit, une lumière aux sept couleurs fut libérée. De nombreuses runes s'envolèrent et entourèrent le corps de Mu Bingmei.
 
-« Bien que je ne sois qu'au premier niveau de la Flétrissure Céleste, aucune des énergies originelles au sein du Vide Brillant ne peut échapper à mon contrôle. Si je refuse que vous possédiez de l'énergie originelle, vous n'en récupérerez pas même une parcelle! » La main de jade de Mu Bingmei pointa les runes qui l'entouraient. Celles-ci se dispersèrent soudainement et disparurent dans le monde.
+« Bien que je ne sois qu'au premier niveau du Fléau Céleste, aucune des énergies originelles au sein du Vide Brillant ne peut échapper à mon contrôle. Si je refuse que vous possédiez de l'énergie originelle, vous n'en récupérerez pas même une parcelle! » La main de jade de Mu Bingmei pointa les runes qui l'entouraient. Celles-ci se dispersèrent soudainement et disparurent dans le monde.
 
 À cet instant précis, toute l'énergie originelle du monde entier changea radicalement pour converger vers le pilier d'énergie originelle.
 
@@ -96,7 +96,7 @@ Wang Lin regarda Liu Mei lutter contre l'Omniscient. Son regard devint ferme et 
 
 « Je n'ai pas besoin qu'elle me sauve, et je ne veux rien lui devoir! »
 
-Dans sa réflexion, les cinq étoiles du Dieu Ancien apparurent soudainement entre les sourcils de Wang Lin et tournèrent rapidement. Une quantité massive d'énergie de Dieu Ancien émergea et péntra dans le bouclier de lumière azur de son œil droit.
+Dans sa réflexion, les cinq étoiles du Dieu Ancien apparurent soudainement entre les sourcils de Wang Lin et tournèrent rapidement. Une quantité massive d'énergie de Dieu Ancien émergea et pénétra dans le bouclier de lumière azur de son œil droit.
 
 Alors que cette énergie s'y engouffrait, la lueur bleue de son œil devint si intense qu'elle en était aveuglante!
 

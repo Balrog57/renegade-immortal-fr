@@ -78,17 +78,17 @@ Cette immense structure trônait au sein de la Perle Défiant le Ciel et semblai
 
 « C'est bien lui! » Les pupilles de Wang Lin se contractèrent tandis qu'il fixait la porte de pierre en silence. Il avait émis plusieurs hypothèses concernant cette voix durant ces années, et il avait naturellement pensé à cette porte surgissant de la Perle Défiant le Ciel. En la voyant enfin, bien que choqué, il fut frappé par la surprise.
 
-Grâce à la lumière rouge sang qui l'avait nourri au fil des ans, son âme originelle s'était solidifiée et ses souvenirs étaient revenus en force. Il se remémora le jade qui était apparu soudainement lors de son combat contre le Daoïste Eau!
+Grâce à la lumière rouge sang qui l'avait nourri au fil des ans, son âme originelle s'était solidifiée et ses souvenirs étaient revenus en force. Il se remémora le jade qui était apparu soudainement lors de son combat contre le Shui Daozi!
 
-Il se souvint également de l'exclamation du Daoïste Eau. Ce jade était le Jade du Royaume Scellé, un objet appartenant au maître du Daoïste Eau! Wang Lin avait longtemps été dans l'incertitude, mais il tenait enfin une réponse!
+Il se souvint également de l'exclamation du Shui Daozi. Ce jade était le Jade du Royaume Scellé, un objet appartenant au maître du Shui Daozi! Wang Lin avait longtemps été dans l'incertitude, mais il tenait enfin une réponse!
 
-Ce qui l'intriguait était la raison pour laquelle le garçon aux cheveux blancs voulait le tuer. Cependant, après le réveil de ses souvenirs et son combat contre le Daoïste Eau, Wang Lin venait de comprendre que le maître du Daoïste Eau était le Seigneur du Royaume Scellé et le dernier propriétaire de la Perle Défiant le Ciel!
+Ce qui l'intriguait était la raison pour laquelle le garçon aux cheveux blancs voulait le tuer. Cependant, après le réveil de ses souvenirs et son combat contre le Shui Daozi, Wang Lin venait de comprendre que le maître du Shui Daozi était le Seigneur du Royaume Scellé et le dernier propriétaire de la Perle Défiant le Ciel!
 
 Le garçon aux cheveux blancs avait manifestement ressenti l'aura de son maître et était venu pour éliminer Wang Lin. C'est pourquoi, après avoir dévoré le sang de Wang Lin, il avait lâché: « Ce n'est pas une réincarnation! »
 
 Puis il avait fouillé l'âme de Wang Lin à la recherche de la Perle Défiant le Ciel. Son but était de retrouver son maître pour l'assassiner!
 
-Wang Lin avait tout percé à blanc. Voilà pourquoi le garçon aux cheveux blancs avait été si alarmé et avait manifesté une terreur infinie en voyant le jade!
+Wang Lin avait tout percé à jour. Voilà pourquoi le garçon aux cheveux blancs avait été si alarmé et avait manifesté une terreur infinie en voyant le jade!
 
 Le Seigneur du Royaume Scellé n'était visiblement pas mort. En retrouvant la mémoire, Wang Lin se rappelait distinctement qu'un doigt était sorti du jade. Il avait enfoncé l'ongle multicolore dans le crâne du garçon aux cheveux blancs, le forçant à s'enfuir grièvement blessé!
 
@@ -104,7 +104,7 @@ Après une courte réflexion, Wang Lin n'hésita plus et vola vers la porte. Il 
 
 ***
 
-Mer de Nuages, région de rang 2. Un continent sauvage et reculé était caché au plus profond du brouillard. Les cultivateurs venaient rarement ici; c'était un lieu désolé.
+Mer des Nuages, région de rang 2. Un continent sauvage et reculé était caché au plus profond du brouillard. Les cultivateurs venaient rarement ici; c'était un lieu désolé.
 
 Il y avait une vallée sur ce continent. Li Qianmei y était assise, face à une statue d'une clarté cristalline.
 

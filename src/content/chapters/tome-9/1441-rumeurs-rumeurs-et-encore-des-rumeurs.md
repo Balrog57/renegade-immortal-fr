@@ -15,7 +15,7 @@ Il tenait un petit boulier à la main. D'un mouvement de doigt, il produisait de
 
 Bien qu'il ne restât que 28 plateformes, sept d'entre elles avaient été infiltrées avec succès et finalement dérobées au terme de nombreux combats! Réussir à voler une plateforme dans de telles circonstances prouvait que ces individus n'étaient pas ordinaires.
 
-Les occupants de ces sept plateformes attirèrent également l'attention de Wang Lin. Ce qui le surprit, c'est que le vieil homme de la quatrième Cendre du Ciel figurait parmi eux. Les cinq autres ne manquaient pas de puissance de culture et appartenaient chacun à un clan différent; ils étaient imprégnés d'une intention meurtrière telle qu'ils ressemblaient à des dieux de la destruction.
+Les occupants de ces sept plateformes attirèrent également l'attention de Wang Lin. Ce qui le surprit, c'est que le vieil homme du quatrième Fléau Céleste figurait parmi eux. Les cinq autres ne manquaient pas de puissance de culture et appartenaient chacun à un clan différent; ils étaient imprégnés d'une intention meurtrière telle qu'ils ressemblaient à des dieux de la destruction.
 
 L'un d'eux avait conquis sa plateforme avec une facilité déconcertante: une vieille femme en vert au visage parsemé de bosses. Son apparence était terrifiante et, tandis qu'elle avançait, les cultivateurs alentour affichaient des expressions de confusion totale. La plateforme qu'elle convoitait faisait l'objet d'un affrontement entre plus de dix cultivateurs. Pourtant, dès que la vieille femme s'approcha, leurs regards se troublèrent et ils reculèrent inopinément. Même l'ancien propriétaire abandonna sa place, permettant à la vieille femme de s'y installer.
 
@@ -29,19 +29,19 @@ Cet endroit était imprégné de danger et d'une étrange atmosphère. La menace
 
 Les cultivateurs sur les plateformes poussèrent secrètement des soupirs de soulagement et se mirent à cultiver. Cependant, une tension sous-jacente persistait et chacun observait attentivement ses voisins. Bien que la bataille précédente eût été courte, tout le monde avait prêté attention aux sorts utilisés par autrui.
 
-Tout comme Wang Lin s'était concentré sur certains individus, de nombreux cultivateurs avaient également gardé un œil sur lui. Le fait que Wang Lin ait tué proprement six personnes suffisait à attirer l'attention. Son rugissement, qui avait étouffé tous les autres sons et provoqué l'effondrement du corps d'un cultivateur de la Cendre du Ciel, imposait désormais une vigilance accrue à son égard.
+Tout comme Wang Lin s'était concentré sur certains individus, de nombreux cultivateurs avaient également gardé un œil sur lui. Le fait que Wang Lin ait tué proprement six personnes suffisait à attirer l'attention. Son rugissement, qui avait étouffé tous les autres sons et provoqué l'effondrement du corps d'un cultivateur du Fléau Céleste, imposait désormais une vigilance accrue à son égard.
 
 « Cet homme n'a pas trop révélé ses capacités... » L'homme en violet accompagné du poisson de 10 000 pieds observa Wang Lin, le visage toujours sombre.
 
 « La puissance de son rugissement a suffi à faire imploser et dissiper un individu. Ses sorts doivent être liés au son », commenta l'un de ceux qui avaient réussi à voler une plateforme, le regard chargé d'hostilité et d'intention meurtrière.
 
-« Les autres n'ont remarqué que sa férocité et la puissance de son cri, mais ils n'ont pas vu qu'il dévorait le brouillard de sang... Ce genre de méthode démoniaque est devenu plus fréquent dans l'Ancien Système Stellaire ces derniers temps... » Le gros homme sourit en observant Wang Lin tout en jouant avec son boulier.
+« Les autres n'ont remarqué que sa férocité et la puissance de son cri, mais ils n'ont pas vu qu'il dévorait le brouillard de sang... Ce genre de méthode démoniaque est devenu plus fréquent dans le Système Stellaire Antique ces derniers temps... » Le gros homme sourit en observant Wang Lin tout en jouant avec son boulier.
 
 « Il veut certainement me tuer... Je dois obtenir de l'aide... » La jeune fille du Clan de l'Extermination des Sceaux était pâle et se mordait la lèvre, l'expression de timidité dans ses yeux s'intensifiant.
 
 « Je ne peux pas le provoquer. Il m'a laissé la vie sauve tout à l'heure, je lui suis redevable... » Le vieil homme que Wang Lin avait épargné baissa la tête, terrifié. Le combat qu'il venait de vivre resterait gravé en sa mémoire à jamais.
 
-La femme aux longs cheveux blancs détourna lentement son regard pour ensuite fixer Wang Lin. Son expression restait impénétrable, et nul ne savait ce qu'elle pensait.
+La femme aux longs cheveux détourna lentement son regard pour ensuite fixer Wang Lin. Son expression restait impénétrable, et nul ne savait ce qu'elle pensait.
 
 Alors que chacun s'observait secrètement tout en se soignant, l'environnement commença peu à peu à se calmer. Même la mer de brouillard semblait s'apaiser. Après un bref instant de récupération, un cultivateur se leva et chargea vers le trésor situé devant la tête sur sa plateforme.
 
@@ -75,6 +75,6 @@ Alors que sa voix résonnait, les bêtes humanoïdes poussèrent des rugissement
 
 Les yeux de Wang Lin brillèrent. Il percevait des émotions oppressantes émanant de ces bêtes féroces. Il pourrait utiliser cela pour embraser le Feu Éthéré!
 
-Les cultivateurs du Feu Éthéré étaient des êtres extrêmement mystérieux dans les Royaumes Intérieurs et Extérieurs, car très peu en avaient croisé. Cependant, ils jouissaient d'une réputation légendaire dans l'Ancien Système Stellaire! Comme ils n'avaient pas été vus depuis des dizaines de milliers d'années, des rumeurs s'étaient propagées, prétendant qu'ils étaient aussi puissants que des cultivateurs du troisième niveau!
+Les cultivateurs du Feu Éthéré étaient des êtres extrêmement mystérieux dans les Royaumes Intérieurs et Extérieurs, car très peu en avaient croisé. Cependant, ils jouissaient d'une réputation légendaire dans le Système Stellaire Antique! Comme ils n'avaient pas été vus depuis des dizaines de milliers d'années, des rumeurs s'étaient propagées, prétendant qu'ils étaient aussi puissants que des cultivateurs du troisième pas!
 
-Ces légendes habitaient le cœur des cultivateurs de l'Ancien Système Stellaire. Tous les présents étaient puissants et connaissaient ces récits terrifiants: des rumeurs disant qu'un simple geste d'un cultivateur du Feu Éthéré pouvait réduire des milliers de personnes en cendres... Des rumeurs affirmant que son regard pouvait enflammer les sept émotions, ne laissant aucun survivant... Des rumeurs prétendant qu'ils étaient le cauchemar de leurs ennemis, capable de consumer l'adversaire en embrasant ses propres émotions... Des rumeurs selon lesquelles la colère d'un tel être pourrait embraser celle de tous, le laissant seul debout au sommet d'une montagne de cadavres... Rumeurs... Rumeurs... Encore des rumeurs... À l'exception de la jeune fille du Clan de l'Extermination des Sceaux, personne ici, pas même la femme en blanc, ne savait qu'un légendaire cultivateur du Feu Éthéré se cachait parmi eux... Car avant d'être utilisé, le Feu Éthéré est invisible...
+Ces légendes habitaient le cœur des cultivateurs du Système Stellaire Antique. Tous les présents étaient puissants et connaissaient ces récits terrifiants: des rumeurs disant qu'un simple geste d'un cultivateur du Feu Éthéré pouvait réduire des milliers de personnes en cendres... Des rumeurs affirmant que son regard pouvait enflammer les sept émotions, ne laissant aucun survivant... Des rumeurs prétendant qu'ils étaient le cauchemar de leurs ennemis, capable de consumer l'adversaire en embrasant ses propres émotions... Des rumeurs selon lesquelles la colère d'un tel être pourrait embraser celle de tous, le laissant seul debout au sommet d'une montagne de cadavres... Rumeurs... Rumeurs... Encore des rumeurs... À l'exception de la jeune fille du Clan de l'Extermination des Sceaux, personne ici, pas même la femme en blanc, ne savait qu'un légendaire cultivateur du Feu Éthéré se cachait parmi eux... Car avant d'être utilisé, le Feu Éthéré est invisible...

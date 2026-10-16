@@ -50,19 +50,19 @@ C'est pourquoi même la famille impériale et les plus déterminés évitaient r
 
 Et presque personne n'avait jamais tenté une troisième fois; tous étaient morts.
 
-La rumeur prétendait qu'au fil des âges, seul le plus puissant des Grands Empereaux, Gu Dao, avait choisi de se briser totalement et avait finalement réussi.
+La rumeur prétendait qu'au fil des âges, seul le plus puissant des Grands Empyréens, Gu Dao, avait choisi de se briser totalement et avait finalement réussi.
 
 Comparée à la deuxième calamité de la troisième épreuve, la troisième n'était pas considérée comme une véritable calamité. La Bénédiction de l'Ancêtre était, en réalité, une récompense offerte par l'Ancêtre.
 
 Il pouvait s'agir d'un fragment de mémoire, peut-être d'un sortilège incomplet, ou encore d'une parcelle de sang de l'Ancêtre extrêmement pur... Il existait même une infime chance qu'il s'agisse de sang d'âme...
 
-Cependant, cette probabilité n'était qu'une rumeur inventée par les générations futures. On disait que même le Grand Empereur Gu Dao n'avait pas obtenu de sang d'âme lors de sa Bénédiction.
+Cependant, cette probabilité n'était qu'une rumeur inventée par les générations futures. On disait que même le Grand Empyréen Gu Dao n'avait pas obtenu de sang d'âme lors de sa Bénédiction.
 
 Il se murmurait toutefois que ce que Gu Dao avait obtenu était extraordinaire, mais personne ne savait de quoi il s'agissait.
 
 Wang Lin prit une profonde inspiration; son corps commença à trembler et son sang à bouillonner. Des décharges de douleur surgirent, se mêlant au rugissement dans son esprit pour former une force mystérieuse enveloppant tout son être. Simultanément, il sentit clairement son âme originelle commencer à se fragmenter.
 
-« Ça commence enfin! » Wang Lin leva soudain la tête, le regard calme. Il avait attendu cinquante ans pour ce jour! Tout dépendait de cela: obtenir suffisamment de sang d'âme pour permettre au corps de Li Muwan d'entrer en toute sécurité dans le Royaume Divin Immemorial!
+« Ça commence enfin! » Wang Lin leva soudain la tête, le regard calme. Il avait attendu cinquante ans pour ce jour! Tout dépendait de cela: obtenir suffisamment de sang d'âme pour permettre au corps de Li Muwan d'entrer en toute sécurité dans le Royaume Divin Immémorial!
 
 De plus en plus de fissures apparurent sur son âme originelle, suivies de vagues de douleur inimaginables. Pourtant, Wang Lin parvenait à endurer ce supplice.
 
@@ -70,9 +70,9 @@ Mais ce n'était que le début!
 
 « Pour obtenir le sang d'âme, je dois pousser la deuxième calamité jusqu'à ses limites pour voir où elle s'arrête! » Une lueur de détermination absolue brilla dans ses yeux. Il ferma lentement les paupières pour affronter la tempête.
 
-Alors que Wang Lin traversait la deuxième calamité, des ondulations circulaires apparurent à l'extérieur du temple ancestral. Ces ondes se propagèrent dans toutes les directions, enveloppant presque toute la cité impériale de Shi Antique.
+Alors que Wang Lin traversait la deuxième calamité, des ondulations circulaires apparurent à l'extérieur du temple ancestral. Ces ondes se propagèrent dans toutes les directions, enveloppant presque toute la cité impériale des Anciens Shi.
 
-Ce phénomène étrange attira immédiatement l'attention de tous les membres du clan Shi Antique.
+Ce phénomène étrange attira immédiatement l'attention de tous les membres des Anciens Shi.
 
 « La statue de l'Ancêtre émet des halos! Quelqu'un traverse les calamités! »
 
@@ -84,11 +84,11 @@ Ce phénomène étrange attira immédiatement l'attention de tous les membres du
 
 « Je me demande combien de personnes tentent la calamité et combien de temps elles pourront tenir. Normalement, cela ne dure que quelques jours. »
 
-Les habitants de Shi Antique ne furent pas surpris par les halos émanant de la statue de l'Ancêtre. Ils avaient déjà vu cela auparavant et, après un bref regard, ils cessèrent d'y prêter attention.
+Les habitants des Anciens Shi ne furent pas surpris par les halos émanant de la statue de l'Ancêtre. Ils avaient déjà vu cela auparavant et, après un bref regard, ils cessèrent d'y prêter attention.
 
-Ce qu'ils ignoraient, c'est que lorsque les neuf halos apparurent, l'Empereur de Shi Antique et Ji Du scrutèrent tous deux l'horizon.
+Ce qu'ils ignoraient, c'est que lorsque les neuf halos apparurent, l'Empereur des Anciens Shi et Ji Du scrutèrent tous deux l'horizon.
 
-« Cinquante ans... Il a enfin commencé sa première division... Je me demande combien de temps il pourra persister. Dans mon clan Shi Antique, certains ont passé une année entière sur la première division pour atteindre la perfection. Je me demande si cet homme pourra en faire autant. » L'Empereur de Shi Antique observa longuement le lointain avant de détourner les yeux.
+« Cinquante ans... Il a enfin commencé sa première division... Je me demande combien de temps il pourra persister. Chez les Anciens Shi, certains ont passé une année entière sur la première division pour atteindre la perfection. Je me demande si cet homme pourra en faire autant. » L'Empereur des Anciens Shi observa longuement le lointain avant de détourner les yeux.
 
 Ji Du se tenait près de la fenêtre de sa chambre, le regard perdu dans le lointain. Sa femme était à ses côtés, contemplant la même direction.
 
@@ -114,7 +114,7 @@ Wang Lin connaissait cette silhouette.
 
 « Maître... » murmura-t-il. Il savait que son maître ne quitterait pas l'Ancien Dao sans raison. Son maître était venu parce que Xuan Luo voulait le protéger alors qu'il était au plus vulnérable face à la calamité.
 
-Dans le ciel, Xuan Luo contemplait la cité impériale de Shi Antique et la statue de l'Ancêtre. Il percevait faiblement l'aura de Wang Lin émanant du temple ancestral.
+Dans le ciel, Xuan Luo contemplait la cité impériale des Anciens Shi et la statue de l'Ancêtre. Il percevait faiblement l'aura de Wang Lin émanant du temple ancestral.
 
 Un sourire étira ses lèvres et son regard devint empreint de douceur.
 

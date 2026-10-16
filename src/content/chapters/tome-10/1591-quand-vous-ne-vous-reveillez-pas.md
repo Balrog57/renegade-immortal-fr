@@ -26,7 +26,7 @@ Le visage de Wang Lin, d'ordinaire empreint d'une aura de lettré, devint encore
 
 Le rire de la jeune fille résonna. En observant l'expression gauche de Wang Lin, elle s'apprêtait à parler quand une voix douce et mélodieuse s'éleva de l'intérieur du bateau.
 
-« Sœur cadette! »
+« Junior Sister! »
 
 Alors que la voix résonnait, le coin de l'auvent du bateau fut écarté par une main semblable au jade, révélant la silhouette délicate d'une autre jeune femme. Lorsque le visage de cette dernière apparut aux yeux de Wang Lin, la pluie du monde sembla s'immobiliser.
 
@@ -38,7 +38,7 @@ On y décelait également une trace d'agacement alors qu'elle regardait la jeune
 
 La jeune fille en vert sourit et attira la jeune femme en violet vers elle. Elle pointa Wang Lin du doigt, sa voix s'élevant comme celle d'un oiseau chanteur:
 
-« Sœur aînée, cet érudit est vraiment impoli. Il a d'abord parlé sans respect, puis il m'a dévisagée. Mais il a l'air un peu niais, c'est assez amusant! »
+« Senior Sister, cet érudit est vraiment impoli. Il a d'abord parlé sans respect, puis il m'a dévisagée. Mais il a l'air un peu niais, c'est assez amusant! »
 
 La jeune femme en violet sourit et son regard suivit la pluie vers Wang Lin, qui cherchait refuge sur la rive. En le voyant, elle fut surprise un instant. Après l'avoir observé de plus près, une lueur de confusion traversa ses yeux.
 
@@ -48,7 +48,7 @@ Le visage de Wang Lin devint encore plus cramoisi sous le regard de ces deux fem
 
 « Wang Lin, ah, Wang Lin... tu as lu tant de livres, comment peux-tu regarder deux jeunes filles ainsi? Reste calme. Une fois que la pluie cessera, je devrai reprendre ma route. » Wang Lin prit une profonde inspiration de l'air chargé d'humidité et parvint lentement à calmer ses émotions.
 
-La jeune femme en violet observa Wang Lin un instant avant de dire doucement: « Monsieur, je crains que la pluie ne persiste toute la nuit. Puisque le destin nous a fait nous rencontrer, pourquoi ne pas monter à bord pour vous abriter? Il y aura une halte pour séjourner à la prochaine station. »
+La jeune femme en violet observa Wang Lin un instant avant de dire doucement: « Monsieur, je crains que la pluie ne persiste toute la nuit jusqu'au lendemain. Puisque le destin nous a fait nous rencontrer, pourquoi ne pas monter à bord pour vous abriter? Il y aura une halte pour séjourner à la prochaine station. »
 
 Bien que ses paroles fussent légères, elles perçèrent l'averse et se propagèrent dans l'air.
 
@@ -56,7 +56,7 @@ Bien que ses paroles fussent légères, elles perçèrent l'averse et se propag�
 
 « Nous vous proposons de nous abriter sur notre bateau avec de bonnes intentions, et vous hésitez encore? Pensez-vous que nous allons vous dévorer? » La jeune fille en vert, voyant l'hésitation de Wang Lin, le fixa d'un air provocateur.
 
-« Sœur cadette. » La jeune femme en violet lança un regard impuissant à la jeune fille en vert.
+« Junior Sister. » La jeune femme en violet lança un regard impuissant à la jeune fille en vert.
 
 Wang Lin esquissa un sourire amer et hocha la tête en ramassant son sac en bambou. Il prit son ombrelle et marcha sur le sentier boueux vers la rive.
 
@@ -112,7 +112,7 @@ Il lui sembla vaguement entendre quelqu'un mentionner la Secte Heng Yue...
 
 Le bateau tangua légèrement, faisant osciller le chandelier. La jeune fille en vert regarda son aînée avec une expression confuse.
 
-« Sœur aînée, il n'est qu'un mortel. Pourquoi avez-vous utilisé un sort pour l'endormir? »
+« Senior Sister, il n'est qu'un mortel. Pourquoi avez-vous utilisé un sort pour l'endormir? »
 
 La jeune femme en violet contempla Wang Lin endormi. Après un long silence, elle dit doucement: « Je dois absolument avoir déjà rencontré cet homme! Pourtant, je ne parviens pas à me souvenir d'où. Même toi as trouvé son nom familier. »
 
@@ -122,4 +122,4 @@ Un instant plus tard, la jeune femme en violet secoua la tête et soupira. « La
 
 « Une vie antérieure? » La jeune fille en vert rit en levant les yeux vers le ciel nocturne.
 
-« Sœur aînée, il est temps. Nous devons rejoindre Wang Zhuo. Cette fois, le Maître de la Secte a détecté une lumière dorée provenant de l'Est et a prédit la naissance d'un trésor. De nombreuses sectes pourraient se mettre en quête. Bien que nos niveaux de culture ne soient pas assez élevés pour y participer, ce sera une expérience enrichissante. »
+« Senior Sister, il est temps. Nous devons rejoindre Wang Zhuo. Cette fois, le Maître de la Secte a détecté une lumière dorée provenant de l'Est et a prédit la naissance d'un trésor. De nombreuses sectes pourraient se mettre en quête. Bien que nos niveaux de culture ne soient pas assez élevés pour y participer, ce sera une expérience enrichissante. »

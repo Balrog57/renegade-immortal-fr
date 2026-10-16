@@ -56,13 +56,13 @@ Ce changement fut comme un coup invisible et pesant qui frappa l'esprit de Lu We
 
 « J'étais au Pill Sea et tu y étais aussi! Pourquoi ai-je été destiné à m'échapper alors que tu es resté pour faire exploser le Pill Sea afin d'obtenir de grands mérites?! Si c'était moi, j'aurais pu le faire aussi! »
 
-« Je suis au troisième méridien et tu y es également. Mon niveau de culture est supérieur au tien et je suis mon aîné. Cette armure d'âme m'appartient, de quel droit me la voles-tu?! »
+« Je suis au troisième méridien et tu y es également. Mon niveau de culture est supérieur au tien et j'ai plus d'ancienneté. Cette armure d'âme m'appartient, de quel droit me la voles-tu?! »
 
 Les yeux de Wang Lin restaient clos. Son aura, après être entré dans la Tribulation du Vide, augmenta encore une fois.
 
-La première Tribulation du Vide, la deuxième, la troisième, la quatrième... la huitième, la neuvième!!!
+La première Tribulation de l'Arcane, la deuxième, la troisième, la quatrième... la huitième, la neuvième!!!
 
-Aucune Tribulation du Vide ne survint; c'était extrêmement sûr. L'aura de Wang Lin changea neuf fois et augmenta neuf fois. Il passa directement du stade de la Tribulation du Vide au stade de la Tribulation du Vide!
+Aucune Tribulation de l'Arcane ne survint; c'était extrêmement sûr. L'aura de Wang Lin changea neuf fois et augmenta neuf fois. Il passa directement du stade de la Tribulation de l'Arcane au stade de la Tribulation du Vide!
 
 Stade initial de la Tribulation du Vide!!
 
@@ -98,13 +98,13 @@ Dans un fracas tonitruant, Lu Wenran poussa un cri déchirant et son corps explo
 
 À cet instant, il ne ressentait plus ni jalousie ni folie. C'était comme s'il revenait brusquement à lui, et il hurla en reculant de peur.
 
-« Je suis un Ancien du Grand Secte des Âmes, tu ne peux pas me tuer! » Les yeux de Wang Lin étaient glacials alors qu'il le rattrapait. Il fit un geste de la main droite et l'âme originelle de Lu Wenran explosa. Il perdit la moitié inférieure de son corps.
+« Je suis un Ancien de la Secte de la Grande Âme, tu ne peux pas me tuer! » Les yeux de Wang Lin étaient glacials alors qu'il le rattrapait. Il fit un geste de la main droite et l'âme originelle de Lu Wenran explosa. Il perdit la moitié inférieure de son corps.
 
 « Je suis le disciple du Très Estimé Taureau Vert. Si tu me tues, mon Maître ne te lâchera pas! » Lu Wenran était affaibli après avoir perdu la moitié de son corps, et sa voix n'était plus qu'un souffle. Il reculait frénétiquement, terrorisé.
 
 Mais Wang Lin fit un autre pas et se rapprocha à nouveau. D'un geste de la main droite, il fit s'effondrer une fois de plus le corps de Lu Wenran, ne laissant qu'une tête sur le point de se dissiper.
 
-« Mon rang au Grand Secte des Âmes est très noble, tu... » Sa tête reculait en hurlant. À cet instant, il était véritablement terrifié. Il ne voulait pas mourir. En tant que cultivateur du stade médian de la Tribulation du Vide, sa mort aurait dû être difficile, mais à ce moment précis, il sentit la mort descendre sur lui comme jamais auparavant.
+« Mon rang à la Secte de la Grande Âme est très noble, tu... » Sa tête reculait en hurlant. À cet instant, il était véritablement terrifié. Il ne voulait pas mourir. En tant que cultivateur du stade médian de la Tribulation du Vide, sa mort aurait dû être difficile, mais à ce moment précis, il sentit la mort descendre sur lui comme jamais auparavant.
 
 « Ne me tue pas! » À peine eut-il prononcé ces mots que Wang Lin apparut aux côtés de sa tête, revêtu de l'effrayante armure noire. L'expression de Wang Lin était froide et indifférente tandis que sa main s'abattait.
 

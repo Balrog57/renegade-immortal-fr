@@ -26,7 +26,7 @@ Cette aura ne se contentait pas de les faire trembler; elle vidait leurs esprits
 
 « Le Seigneur du Royaume Scellé! »
 
-Comparés au Domaine Extérieur, les habitants du Royaume Scellé ne ressentirent pas un impact aussi violent. Seules les figures les plus puissantes des quatre systèmes stellaires furent touchées. Dans la Secte Divin, au sein d'une chambre, était assis un garçon. Il avait l'apparence d'un enfant, mais ses cheveux étaient gris. Il restait là, comme s'il n'avait pas bougé depuis des éternités.
+Comparés au Domaine Extérieur, les habitants du Royaume Scellé ne ressentirent pas un impact aussi violent. Seules les figures les plus puissantes des quatre systèmes stellaires furent touchées. Dans la Secte Divine, au sein d'une chambre, était assis un garçon. Il avait l'apparence d'un enfant, mais ses cheveux étaient gris. Il restait là, comme s'il n'avait pas bougé depuis des éternités.
 
 Cependant, à cet instant précis, ses paupières tremblèrent et il ouvrit soudainement les yeux.
 
@@ -66,7 +66,7 @@ Les yeux du vieil homme s'illuminèrent, puis il serra les dents et agita sa mai
 
 Le vieil homme était désormais enveloppé par le brouillard noir. Il résista de toutes ses forces à la lumière puissante pour s'approcher de Wang Lin, mais son brouillard noir se dissipait. Une griffe noire jaillit de la brume et s'abattit impitoyablement sur Wang Lin.
 
-Les yeux de Wang Lin s'illuminèrent. Il sentit l'énergie originelle d'un cultivateur du troisième niveau approcher, mais il demeura extrêmement calme. Il regarda froidement la griffe qui fonçait sur lui et recula d'un pas à l'intérieur de la porte de la Perle Défiant le Ciel.
+Les yeux de Wang Lin s'illuminèrent. Il sentit l'énergie originelle d'un cultivateur du troisième pas approcher, mais il demeura extrêmement calme. Il regarda froidement la griffe qui fonçait sur lui et recula d'un pas à l'intérieur de la porte de la Perle Défiant le Ciel.
 
 Alors que le vieil homme était sur le point de le frapper, la porte de la Perle Défiant le Ciel libéra une lumière fulgurante. Simultanément, un bras gigantesque apparut devant la porte et s'étira impitoyablement vers le vieil homme.
 
@@ -88,7 +88,7 @@ Le Royaume aux Sept Couleurs était plongé dans les ténèbres depuis cent ans.
 
 Après un long moment, Wang Lin ouvrit les yeux et des craquements résonnèrent dans son corps. La poussière fut instantanément balayée.
 
-Après avoir dormi pendant cent ans, il se redressa à nouveau! Dès qu'il se leva, l'aura d'un cultivateur du stade avancé de la Purification du Nirvana se propagea de son corps. Cette aura continua de croître jusqu'à atteindre le sommet du stade de la Purification du Nirvana!
+Après avoir dormi pendant cent ans, il se redressa à nouveau! Dès qu'il se leva, l'aura d'un cultivateur du stade avancé du Purificateur du Nirvana se propagea de son corps. Cette aura continua de croître jusqu'à atteindre le sommet du stade du Purificateur du Nirvana!
 
 Cependant, elle ne s'arrêta pas là. Elle augmenta encore de façon effrénée, tentant d'atteindre le stade du Briseur du Nirvana!
 
@@ -112,18 +112,18 @@ L'aura de Briseur du Nirvana émanant de son corps se dissipa progressivement ju
 
 « Cependant, la gaspiller maintenant serait regrettable. Je vais d'abord la sceller; une fois que j'aurai parfaitement assimilé toute l'intention Dao absorbée, je pourrai lever les sceaux un par un. À ce moment-là, il n'y aura aucun danger! Cela rendra même ma culture encore plus puissante! » Wang Lin prit une inspiration profonde, une lueur de froideur dans le regard.
 
-« Avec ma culture au sommet de la Purification du Nirvana, à mi-chemin du stade de Briseur du Nirvana, combinée à mon corps de Dieu Ancien, mes sorts et mes trésors magiques, je me demande quelle est ma véritable force... Puis-je vaincre des cultivateurs de stade avancé ou même de stade culminant du Briseur du Nirvana? Je devrais pouvoir vaincre ceux au stade avancé, mais quant à ceux au sommet, n'ayant jamais combattu un tel adversaire, j'ignore... Si l'occasion se présente, je devrais en affronter un! » La marque cachée entre les sourcils de Wang Lin scintilla de manière incontrôlable et une puissante intention de combat l'enveloppa.
+« Avec ma culture au sommet du Purificateur du Nirvana, à mi-chemin du stade de Briseur du Nirvana, combinée à mon corps de Dieu Ancien, mes sorts et mes trésors magiques, je me demande quelle est ma véritable force... Puis-je vaincre des cultivateurs de stade avancé ou même de stade culminant du Briseur du Nirvana? Je devrais pouvoir vaincre ceux au stade avancé, mais quant à ceux au sommet, n'ayant jamais combattu un tel adversaire, j'ignore... Si l'occasion se présente, je devrais en affronter un! » La marque cachée entre les sourcils de Wang Lin scintilla de manière incontrôlable et une puissante intention de combat l'enveloppa.
 
 Wang Lin prit une profonde inspiration pour réprimer l'étoile et fronça les sourcils. Il savait que cela résultait de son incompréhension partielle des Dao absorbés.
 
 « Il est temps de partir. Je me demande comment va la bête moustique après toutes ces années. Et combien de temps ai-je dormi dans cette fleur... Cela a dû faire au moins 20 ou 30 ans. » Les yeux de Wang Lin étaient brillants et empreints d'assurance alors qu'il s'avançait. Il quitta la montagne et s'envola droit devant lui.
 
-« Maintenant que c'est terminé, je dois me rendre dans le Royaume Céleste du Vent. Si je peux rassembler une armée de bêtes moustiques, je pourrai peut-être même tenter de pénétrer la Secte Divin! Je ne sais juste pas si Tuo Sen s'est réveillé... »
+« Maintenant que c'est terminé, je dois me rendre dans le Royaume Céleste du Vent. Si je peux rassembler une armée de bêtes moustiques, je pourrai peut-être même tenter de pénétrer la Secte Divine! Je ne sais juste pas si Tuo Sen s'est réveillé... »
 
 À cet instant, dans le Système Stellaire Antique, parmi les étoiles infinies, Tuo Sen fixait le ciel. Il serrait les dents, envahi par une humeur sombre. Sa colère était telle qu'il brûlait de détruire tout être vivant sur son passage.
 
-Il avait déployé des efforts colossaux pour briser cette formation. Finalement, au prix de l'effondrement d'une étoile et du sacrifice des cultivateurs du troisième niveau scellés dans ses astres, il avait à peine réussi à franchir la formation de scellement pour dévorer Wang Lin. Pourtant, maintenant, malgré tous ses efforts, il ne parvenait pas à trouver l'aura de ce dernier.
+Il avait déployé des efforts colossaux pour briser cette formation. Finalement, au prix de l'effondrement d'une étoile et du sacrifice des cultivateurs du troisième pas scellés dans ses astres, il avait à peine réussi à franchir la formation de scellement pour dévorer Wang Lin. Pourtant, maintenant, malgré tous ses efforts, il ne parvenait pas à trouver l'aura de ce dernier.
 
-« Il n'est ni dans le Royaume Scellé, ni dans le Domaine Extérieur, et pourtant son aura était présente dans la formation de scellement. Pourrait-il se cacher à l'intérieur de la formation elle-même? Mais c'est impossible avec son niveau de culture! » Il rugit vers les cieux, les yeux injectés de sang. Il percevut la présence de quelques anciens cultivateurs dans un champ stellaire au loin. N'ayant aucun moyen d'exprimer sa rage, il serra le poing et se précipita dans cette direction.
+« Il n'est ni dans le Royaume Scellé, ni dans le Domaine Extérieur, et pourtant son aura était présente dans la formation de scellement. Pourrait-il se cacher à l'intérieur de la formation elle-même? Mais c'est impossible avec son niveau de culture! » Il rugit vers les cieux, les yeux injectés de sang. Il perçut la présence de quelques anciens cultivateurs dans un champ stellaire au loin. N'ayant aucun moyen d'exprimer sa rage, il serra le poing et se précipita dans cette direction.
 
 « Maudit Wang Lin, ce Dieu te retrouvera un jour! Je te dévorerai pour apaiser la colère qui me consume! »

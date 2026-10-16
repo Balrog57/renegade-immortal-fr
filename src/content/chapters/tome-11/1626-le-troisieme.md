@@ -104,11 +104,11 @@ Il baissa la tête vers le puits, rendant son expression illisible. Après un lo
 
 « Maître a perdu la raison, il a réellement sauvé Wang Lin, malgré son tempérament... » Une voix rauque résonna dans l'obscurité avant de se déformer progressivement. C'était comme si le Souverain ne pouvait masquer la panique dans sa voix.
 
-« L'Arc et la Flèche de Li Guang... Il a dû être Maître qui a donné à Wang Lin le sang pour qu'il puisse l'utiliser sans rejet... Maître n'est pas mort... Il est fou actuellement, mais une fois rétabli... il ne manquera pas de me punir... Mais à ce moment-là, il était gravement blessé et a disparu après avoir été dévoré par le Dao Céleste. Que puis-je faire?! Que puis-je faire d'autre que de me soumettre à Seven-Color?! »
+« L'Arc et la Flèche de Li Guang... Il a dû être Maître qui a donné à Wang Lin le sang pour qu'il puisse l'utiliser sans rejet... Maître n'est pas mort... Il est fou actuellement, mais une fois rétabli... il ne manquera pas de me punir... Mais à ce moment-là, il était gravement blessé et a disparu après avoir été dévoré par le Dao Céleste. Que puis-je faire?! Que puis-je faire d'autre que de me soumettre à Sept-Couleurs?! »
 
 Le corps du Souverain sous sa robe noire sembla trembler. Il leva la tête et poussa un rugissement dans la salle vide du palais.
 
-La Rivière des Invocations avait été entièrement occupée par les cultivateurs du Royaume Extérieur. Dans la région sud, de nombreuses planètes brisées dérivaient avec des fragments rocheux autour d'elles. L'une d'elles mesurait environ cent pieds de large.
+La Rivière Invoquée avait été entièrement occupée par les cultivateurs du Royaume Extérieur. Dans la région sud, de nombreuses planètes brisées dérivaient avec des fragments rocheux autour d'elles. L'une d'elles mesurait environ cent pieds de large.
 
 Ce rocher était creux, et un vieil homme vêtu de blanc y était assis. Ce vieil homme dégageait une aura céleste et une goutte de sang se trouvait entre ses sourcils. Cette goutte semblait avoir fusionné complètement avec lui, ce qui était saisissant. Il ouvrit lentement les yeux et leva la main droite. Après un court calcul, son regard révéla une lumière étrange.
 
@@ -120,6 +120,6 @@ Dans le Vide Brillant, Wang Lin se trouvait au cœur des nuages infinis, là où
 
 Les nuages au-dessus de lui tourbillonnaient, laissant entrevoir d'innombrables serpents argentés s'agitant à l'intérieur. Un vortex, semblable à une gueule béante, se forma.
 
-« J'ai une question: de quelle qualification le ciel dispose-t-il pour me infliger une rétribution? Aujourd'hui, je ne suis pas seulement celui qui subit la rétribution, je suis aussi celui qui va en infliger une! »
+« J'ai une question: de quelle qualification le ciel dispose-t-il pour m'infliger une rétribution? Aujourd'hui, je ne suis pas seulement celui qui subit la rétribution, je suis aussi celui qui va en infliger une! »
 
 « Rétribution du tonnerre, en mon nom, Wang Lin, commencez! »

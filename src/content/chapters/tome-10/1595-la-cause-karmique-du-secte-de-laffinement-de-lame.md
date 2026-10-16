@@ -36,7 +36,7 @@ Grande Fortune sortit l'argent qu'il gardait pour Wang Lin. Son cœur se serra e
 
 « Pas beaucoup d'argent... Ça fait mal au cœur... J'ai l'impression d'avoir déjà vécu cela, je sais que l'argent est crucial... »
 
-Tout en bredouillant, le serveur jeta un regard méprisant à Wang Lin et à l'homme d'âge mûr. Il les conduisit avec nonchalance à leur chambre. Il avait vu passer bien des érudits de ce genre: certains généreux, d'autres aussi indigents que Wang Lin.
+Tandis que Grande Fortune bredouillait, le serveur jeta un regard méprisant à Wang Lin et à l'homme d'âge mûr. Il les conduisit avec nonchalance à leur chambre. Il avait vu passer bien des érudits de ce genre: certains généreux, d'autres aussi indigents que Wang Lin.
 
 Wang Lin possédait une personnalité simple. Bien qu'il eût remarqué le dédain du serveur, il n'y prêta aucune importance.
 

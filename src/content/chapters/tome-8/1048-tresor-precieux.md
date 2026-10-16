@@ -28,7 +28,7 @@ Son intuition lui dictait que s'il trouvait la réponse, il trouverait le chemin
 
 Il pouvait même entendre ses propres battements de cœur s'accélérer. Cependant, alors qu'il progressait rapidement et qu'il était sur le point de découvrir un indice, son corps se figea instantanément et un sentiment de crise de vie ou de mort l'envahit.
 
-Cette sensation de péril n'était pas moins intense que l'effondrement du Bassin de l'Enterrement Céleste; en réalité, elle était plusieurs fois plus puissante. Maître du Vide eut même la sensation que cette aura lui était familière. Ses pupilles se contractèrent alors qu'il fixait l'épée de fer dans la main de Wang Lin.
+Cette sensation de péril n'était pas moins intense que l'effondrement du Bassin Funéraire Céleste; en réalité, elle était plusieurs fois plus puissante. Maître du Vide eut même la sensation que cette aura lui était familière. Ses pupilles se contractèrent alors qu'il fixait l'épée de fer dans la main de Wang Lin.
 
 « Un trésor de Pseudo-Vide du Nirvana! »
 
@@ -36,7 +36,7 @@ Bien que l'épée ne quittât pas la main de Wang Lin, l'illusion d'une épée d
 
 Cette lame massive était entièrement faite de lumière argentée et dégageait un éclat aveuglant. Dès son apparition, elle s'abattit impitoyablement sur Maître du Vide. Ce dernier prit une inspiration glacée, les yeux écarquillés par le choc.
 
-Il n'eut aucun temps pour esquiver. Le timing de Wang Lin était parfait, et c'était là la clé de cette formation meurtrière. L'épée d'argent était trop rapide, bien plus qu'un sortilège lancé par un cultivateur du Nirvana Briseur. La lumière argentée percuta violemment la poitrine du Maître du Vide.
+Il n'eut aucun temps pour esquiver. Le timing de Wang Lin était parfait, et c'était là la clé de cette formation meurtrière. L'épée d'argent était trop rapide, bien plus qu'un sortilège lancé par un cultivateur du Briseur du Nirvana. La lumière argentée percuta violemment la poitrine du Maître du Vide.
 
 À cet instant précis, l'âme originelle du Maître du Vide jaillit de son corps à une vitesse inimaginable pour entourer sa silhouette. Le corps du Maître du Vide brilla d'une lueur pourpre, tout comme son âme originelle qui devint entièrement violette.
 
@@ -86,7 +86,7 @@ Dans un fracas retentissant, l'avatar du Maître du Vide heurta la grande lame e
 
 La seconde attaque s'enchaîna à la première comme si un mortel pratiquait les arts martiaux de l'épée. Si cela s'était arrêté là, ce n'aurait pas été surprenant, mais dès que l'épée argentée percuta l'avatar pour la deuxième fois, elle changea immédiatement de trajectoire pour attaquer par le bas.
 
-Il n'y avait aucune pause; la grande épée d'argent se transforma en un rayon de lumière et continua de harceler l'avatar du Maître du Vide tel un dragon argenté. Cou après coup, l'épée martelait l'avatar.
+Il n'y avait aucune pause; la grande épée d'argent se transforma en un rayon de lumière et continua de harceler l'avatar du Maître du Vide tel un dragon argenté. Coup après coup, l'épée martelait l'avatar.
 
 Sa vitesse devenait de plus en plus effrénée. Le premier coup était quelque peu lent, le second fut plus vif. Désormais, en un clin d'œil, sept frappes se combinaient en une seule.
 

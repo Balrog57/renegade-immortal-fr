@@ -28,11 +28,11 @@ Sous le choc, Kang Ren recula de mille pieds, l'éclat dans ses yeux s'intensifi
 
 « Il n'a pas riposté. Il est mort, il n'est pas seulement inconscient! » Kang Ren esquissa un sourire rapide avant de charger et d'arriver instantanément aux côtés de Wang Lin.
 
-Bien que l'impact du jade fût puissant, il ne put en rien blesser Wang Lin. En vérité, même des dizaines ou des centaines de jades dotés de la puissance d'un cultivateur de l'Épurateur de Nirvana n'auraient pas pu lui infliger la moindre égratignure.
+Bien que l'impact du jade fût puissant, il ne put en rien blesser Wang Lin. En vérité, même des dizaines ou des centaines de jades dotés de la puissance d'un cultivateur Purificateur du Nirvana n'auraient pas pu lui infliger la moindre égratignure.
 
-Quant au Coffre Évitant les Cieux, il était toujours protégé par Wang Lin et demeurait intact. Oubliez Kang Ren: même un cultivateur ayant traversé plusieurs Tribulations Arcanes aurait eu du mal à endommager le coffre.
+Quant au Cercueil d'Évitement Céleste, il était toujours protégé par Wang Lin et demeurait intact. Oubliez Kang Ren: même un cultivateur ayant traversé plusieurs Tribulations Arcanes aurait eu du mal à endommager le coffre.
 
-En s'approchant de Wang Lin, les yeux de Kang Ren se rétrécirent lorsqu'il aperçut le Coffre Évitant les Cieux derrière lui. Il vit la femme à l'intérieur. Bien qu'elle fût d'une beauté extrême, son apparence endormie fit naître des pensées impures dans son regard.
+En s'approchant de Wang Lin, les yeux de Kang Ren se rétrécirent lorsqu'il aperçut le Cercueil d'Évitement Céleste derrière lui. Il vit la femme à l'intérieur. Bien qu'elle fût d'une beauté extrême, son apparence endormie fit naître des pensées impures dans son regard.
 
 « Haha, je n'avais pas bien regardé tout à l'heure, mais il s'avère qu'une cultivatrice se trouvait ici. Parfait, parfait! Je transformerai aussi cette femme en marionnette pour qu'elle me serve. Quelle joie! » Kang Ren se lécha les lèvres et, d'un geste rapide, traça un sceau avant de pointer le ciel. Une fissure apparut sur son poignet droit et un immense filet s'en échappa, emprisonnant Wang Lin ainsi que le coffre posé sur son dos.
 

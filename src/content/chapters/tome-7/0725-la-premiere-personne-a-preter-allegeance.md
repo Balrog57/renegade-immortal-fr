@@ -44,7 +44,7 @@ Cependant, Wang Lin avait pu obtenir une opportunité aussi inimaginable grâce 
 
 Après avoir entrevu le Dao de la troisième étape, les futurs accomplissements de Wang Lin devenaient imprévisibles et incommensurables.
 
-« Ce junior est un messager de deuxième niveau du Temple Céleste du Tonnerre, Shengong Hu. Shengong Hu salue l'Aîné! » L'homme aux cheveux noirs se prosterna immédiatement au sol, adoptant la position qu'il utilisait pour reconnaître son maître afin de témoigner son respect.
+« Ce junior est un messager de deuxième niveau du Temple Céleste du Tonnerre, Shengong Hu. Shengong Hu salue le Senior! » L'homme aux cheveux noirs se prosterna immédiatement au sol, adoptant la position qu'il utilisait pour reconnaître son maître afin de témoigner son respect.
 
 Si un étranger avait vu cela, il en aurait été extrêmement stupéfait. Il faut dire que Shengong Hu était d'une fierté extrême et d'une grande cruauté. Même parmi les messagers du Temple Céleste du Tonnerre, c'était une personne difficile à traiter, et la plupart des familles de culture n'oseraient pas le provoquer.
 
@@ -80,21 +80,21 @@ Le cœur de Wang Lin battait rapidement. Il ne pouvait imaginer les conséquence
 
 De plus, ce rêve avait permis d'améliorer son domaine. Il n'était plus loin du sommet du stade avancé de l'Ascendant, marquant la fin de la première étape de culture.
 
-Shengong Hu trouvait l'attitude de Wang Lin tout à fait normale. Un être puissant devait être ainsi, car c'était lui qui avait perturbé la culture de cet Aîné. Ce dernier s'était montré clément en ne le tuant pas.
+Shengong Hu trouvait l'attitude de Wang Lin tout à fait normale. Un être puissant devait être ainsi, car c'était lui qui avait perturbé la culture de ce Senior. Ce dernier s'était montré clément en ne le tuant pas.
 
-En repensant au regard de tout à l'heure, Shengong Hu n'en doutait pas: cet Aîné lui avait épargné la vie. Autrement, il serait sans aucun doute mort!
+En repensant au regard de tout à l'heure, Shengong Hu n'en doutait pas: ce Senior lui avait épargné la vie. Autrement, il serait sans aucun doute mort!
 
-Son esprit tremblant et son choc s'étaient transformés en fanatisme et en révérence. Après une profonde inspiration, il dit: « Aîné, Junior est Shengong Hu, un membre de la famille Shenggong dans le domaine sud. Je suis un messager de deuxième niveau du Temple Céleste du Tonnerre et un cultivateur au stade Yang Corporel. Je prie l'Aîné de me permettre de lui prêter allégeance! »
+Son esprit tremblant et son choc s'étaient transformés en fanatisme et en révérence. Après une profonde inspiration, il dit: « Senior, Junior est Shengong Hu, un membre de la famille Shenggong dans le domaine sud. Je suis un messager de deuxième niveau du Temple Céleste du Tonnerre et un cultivateur au stade Yang Corporel. Je prie le Senior de me permettre de lui prêter allégeance! »
 
 Ce n'était pas qu'il ne parvenait pas à percevoir le niveau de culture de Wang Lin, mais ce regard terrifiant l'avait fait tout oublier. Il croyait même qu'il s'agissait d'un véritable expert surpuissant! Si un cultivateur puissant cachait son niveau, il ferait croire aux autres qu'il était un cultivateur Ascendant.
 
 « Prêter allégeance? » Wang Lin fut surpris et fixa Shengong Hu.
 
-Shengong Hu s'empressa de poursuivre: « La culture de Junior est insuffisante et je sais que je ne suis pas qualifié pour prêter allégeance à l'Aîné. Cependant, Junior est extrêmement sincère; de plus, j'ai de nombreuses familles qui me sont vouées, ainsi Junior peut aider à satisfaire n'importe quelle exigence de l'Aîné. Junior sait que ces choses ne sont rien aux yeux de l'Aîné, mais j'espère qu'au vu de ma sincérité, l'Aîné acceptera mon allégeance... »
+Shengong Hu s'empressa de poursuivre: « La culture de Junior est insuffisante et je sais que je ne suis pas qualifié pour prêter allégeance au Senior. Cependant, Junior est extrêmement sincère; de plus, j'ai de nombreuses familles qui me sont vouées, ainsi Junior peut aider à satisfaire n'importe quelle exigence du Senior. Junior sait que ces choses ne sont rien aux yeux du Senior, mais j'espère qu'au vu de ma sincérité, le Senior acceptera mon allégeance... »
 
 Wang Lin fronça les sourcils. Après avoir réfléchi un instant, il secoua la tête. Il ne pouvait pas utiliser ce sort une seconde fois, et d'un seul regard, il avait compris que cet homme était extrêmement orgueilleux. Si celui-ci remarquait quoi que ce soit, cela causerait des ennuis inutiles.
 
-Voyant Wang Lin secouer la tête, Shengong Hu s'exclama immédiatement: « Aîné, Junior est d'une sincérité absolue et ne le regrettera jamais, quel que soit le temps qui passe. Tant que l'Aîné accepte de me donner quelques conseils lors de ma percée, Junior est prêt à abandonner une partie de son âme Dao pour prêter allégeance à l'Aîné pendant 1 000 ans! »
+Voyant Wang Lin secouer la tête, Shengong Hu s'exclama immédiatement: « Senior, Junior est d'une sincérité absolue et ne le regrettera jamais, quel que soit le temps qui passe. Tant que le Senior accepte de me donner quelques conseils lors de ma percée, Junior est prêt à abandonner une partie de son âme Dao pour prêter allégeance au Senior pendant 1 000 ans! »
 
 Tout en parlant, sa main traça un sceau avant de pointer son front. Une lumière noire contenant son domaine et son âme Dao s'échappa de son crâne.
 

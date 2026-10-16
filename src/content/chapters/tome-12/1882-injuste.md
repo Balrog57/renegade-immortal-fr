@@ -28,7 +28,7 @@ D'un seul geste, le monde entier sembla se figer, comme si une force étrange av
 
 La lame d'or, aussi massive qu'un éboulement, se brisa sans même que Wang Lin n'ait eu à attaquer! Tandis que le jeune homme restait pétrifié, Wang Lin atterrit calmement sur la place, au pied de l'horloge.
 
-Yang Jia vit tout cela et son cœur trembla. Elle tourna soudain les yeux vers Wang Lin, une lueur mystérieuse dans le regard. Quant au vieil homme de la Tribulation du Vide, il fronça les sourcils et jeta un coup d'œil à Wang Lin.
+Tang Jia vit tout cela et son cœur trembla. Elle tourna soudain les yeux vers Wang Lin, une lueur mystérieuse dans le regard. Quant au vieil homme de la Tribulation du Vide, il fronça les sourcils et jeta un coup d'œil à Wang Lin.
 
 Le sort d'immobilisation n'avait duré qu'un instant, et le jeune homme retrouva ses mouvements. Il afficha un sourire amer tandis que la lumière dorée autour de lui s'estompait. Il regarda Wang Lin d'un air complexe avant de laisser poindre un sourire sincère.
 
@@ -70,7 +70,7 @@ Ce qui le surprit secrètement était que les fluctuations du monde étaient ég
 
 « Présent! » Le vieil homme nommé Bord-des-Nuages s'avança.
 
-« Tu as gardé le quatrième méridien et accompli des mérites. Je te nomme Ancien de la faction de l'élément Métal et je te remets l'armure élémentaire de métal! » Un rayon de lumière dorée jaillit, dégageant une intention meurtrière si puissante qu'elle enveloppa la place. La lumière s'arrêta près d'Bord-des-Nuages et se mua en une armure dorée exsudant une pression terrifiante. Bord-des-Nuages, loin d'être calme, était transporté par l'excitation.
+« Tu as gardé le quatrième méridien et accompli des mérites. Je te nomme Ancien de la faction de l'élément Métal et je te remets l'armure élémentaire de métal! » Un rayon de lumière dorée jaillit, dégageant une intention meurtrière si puissante qu'elle enveloppa la place. La lumière s'arrêta près de Bord-des-Nuages et se mua en une armure dorée exsudant une pression terrifiante. Bord-des-Nuages, loin d'être calme, était transporté par l'excitation.
 
 « Merci, Maître de Secte! » Bord-des-Nuages prit une profonde inspiration et inclina la tête. Au moment où il s'inclinait, la lumière dorée se fragmenta en d'innombrables fils qui pénétrèrent son corps.
 
@@ -78,7 +78,7 @@ Ce qui le surprit secrètement était que les fluctuations du monde étaient ég
 
 « Tu as gardé le sixième méridien et accompli des mérites. Je permettrai à ta Secte Xiu Shen de tripler sa taille, de recruter trois fois plus de disciples et d'obtenir trois fois plus de ressources de culture. Je te remettrai également l'armure élémentaire d'eau, un trésor de la Secte Gui Yi! »
 
-Un rayon de lumière bleue jaillit de la grande salle, se transformant en une mer qui sembla remplir le monde. Elle s'élança et enveloppa Tang Jia, pénétrant ses pores. Le corps de la jeune femme trembla et des ondulations parcoururent ses yeux autrefois calmes. Elle s'inclina respectueusement: « Merci, Maître de Secte. »
+Un rayon de lumière bleue jaillit de la grande salle, se transformant en une mer qui sembla remplir le monde. Elle s'élança et enveloppa Tang Jia, pénétrant ses pores. Le corps de la jeune femme trembla et des ondulations parcoururent ses yeux autrefois calmes. Elle s'inclina respectueusement: « Merci, Senior Maître de Secte. »
 
 « Yun Yifeng! »
 
@@ -106,6 +106,6 @@ Les trois autres avaient reçu deux récompenses, tandis que Wang Lin n'en avait
 
 « Votre mission est de vous rendre sur le Continent du Démon Vert, d'infiltrer le Temple du Démon Vert et de détruire la Statue du Démon Vert afin de blesser gravement l'âme du Démon Vert. Une fois cela accompli, vous aurez tous quatre réalisé un exploit immense pour le Continent du Taureau Céleste! » La voix ignora totalement l'interruption de Wang Lin et poursuivit son énoncé.
 
-À ces mots, le visage d'Bord-des-Nuages se crispa, tout comme celui de Tang Jia. Il semblait que c'était aussi la première fois que Yun Yifeng entendait parler de cela; leurs expressions changèrent toutes simultanément. Pénétrer sur le Continent du Démon Vert était un acte d'une dangerosité extrême. La moindre erreur et ils ne pourraient jamais revenir.
+À ces mots, le visage de Bord-des-Nuages se crispa, tout comme celui de Tang Jia. Il semblait que c'était aussi la première fois que Yun Yifeng entendait parler de cela; leurs expressions changèrent toutes simultanément. Pénétrer sur le Continent du Démon Vert était un acte d'une dangerosité extrême. La moindre erreur et ils ne pourraient jamais revenir.
 
 « Le Continent du Démon Vert est pratiquement désert pour l'instant. Quant aux ancêtres qui y résident, il y aura naturellement des êtres pour les contenir... Maintenant que la mission a été énoncée, que voulais-tu dire, Wang Lin? » La voix demeurait calme et posée, comme si rien ne pouvait troubler sa sérénité.

@@ -42,7 +42,7 @@ La crise n'était pas terminée; quinze autres tourbillons fonçaient vers lui. 
 
 Même en utilisant le fourneau de dieu ancestral pour esquiver, il ne pourrait pas les séparer en raison de leur vitesse fulgurante.
 
-Rumble, rumble, rumble, rumble!
+Grondement, grondement, grondement, grondement!
 
 Un son capable de faire trembler la terre retentit instantanément. Les quinze tourbillons percutèrent le bouclier de lumière azur et se dissipèrent, libérant une force inimaginable. Le bouclier fut presque écrasé contre le corps de Wang Lin.
 

@@ -32,11 +32,11 @@ La lumière bleue à l'intérieur du puits se dissipa progressivement.
 
 « Cher Cultivateur, pourriez-vous m'aider? »
 
-À l'extérieur de la faille menant à la Tombe de l'Ordre Antique, au cœur des brumes, le pas de Wang Lin ne faiblit pas d'un iota face à cette phrase ou à cette voix mélodieuse.
+À l'extérieur de la faille menant à la Tombe de l'Ordre Ancien, au cœur des brumes, le pas de Wang Lin ne faiblit pas d'un iota face à cette phrase ou à cette voix mélodieuse.
 
-Il sembla devenu sourd, ignorant totalement l'appel. Son corps se changea en un rayon de lumière et s'engouffra dans la faille.
+Il sembla devenir sourd, ignorant totalement l'appel. Son corps se changea en un rayon de lumière et s'engouffra dans la faille.
 
-Le monde autour de lui se distordit dès qu'il franchit le seuil. Il disparut sans laisser de trace devant l'érudit d'âge moyen, s'enfonçant dans les entrailles de la Tombe de l'Ordre Antique.
+Le monde autour de lui se distordit dès qu'il franchit le seuil. Il disparut sans laisser de trace devant l'érudit d'âge moyen, s'enfonçant dans les entrailles de la Tombe de l'Ordre Ancien.
 
 Wang Lin n'était plus un enfant et ne se laissait pas guider par une simple curiosité. Il n'allait pas secourir un inconnu sans rien savoir de la situation. La femme qui ressemblait à cet érudit avait pu atteindre ce lieu par la force, ce qui signifiait que sa culture était terrifiante. Wang Lin ne souhaitait pas interagir avec une telle entité sans raison valable.
 
@@ -44,11 +44,11 @@ Même si elle lui avait promis des bénéfices immenses en échange de son aide,
 
 Plus il songeait à ses actes passés dans le Système Stellaire Antique, plus il avait l'impression de ne plus être lui-même, comme si une force puissante s'était infiltrée en son corps pour contrôler silencieusement ses pensées... Choqué par ce pressentiment, il devint encore plus prudent et ignora totalement l'érudit.
 
-Voyant ce jeune homme étrange partir après avoir parlé, l'érudit fronça les sourcils. Bien que la Tombe de l'Ordre Antique ne fût qu'à mille pieds de là, même avec sa puissante culture et ses trésors, il ne pouvait progresser davantage. Il était bloqué.
+Voyant ce jeune homme étrange partir après avoir parlé, l'érudit fronça les sourcils. Bien que la Tombe de l'Ordre Ancien ne fût qu'à mille pieds de là, même avec sa puissante culture et ses trésors, il ne pouvait progresser davantage. Il était bloqué.
 
 Observant le brouillard s'agiter avec une violence accrue, l'érudit soupira.
 
-« Il semble que je ne puisse entrer dans la Tombe de l'Ordre Antique par la force avec mon corps original... Ce petit gars n'avait aucune marque entre les sourcils... Son identité dépasse mes espérances. Hormis ce voyou de Tuo Sen, il doit être l'autre Dieu Antique qui a tué l'avatar de ma Septième Sœur Cadette... »
+« Il semble que je ne puisse entrer dans la Tombe de l'Ordre Ancien par la force avec mon corps original... Ce petit gars n'avait aucune marque entre les sourcils... Son identité dépasse mes espérances. Hormis ce voyou de Tuo Sen, il doit être l'autre Dieu Antique qui a tué l'avatar de ma Septième Sœur Cadette... »
 
 Les yeux de l'érudit s'illuminèrent et ses mains formèrent un sceau. Une lumière jaillit des neuf statues qui l'entouraient. D'un geste de la main, il fit intensifier l'éclat des statues jusqu'à ce qu'il enveloppe totalement son corps.
 
@@ -56,7 +56,7 @@ Un instant plus tard, une silhouette féminine émergea de la clarté. Sa beaut�
 
 Dès que la femme apparut, le brouillard s'engouffra en elle, et une marque ténue se dessina instantanément entre ses sourcils.
 
-Dans un soupir, la femme fit un pas et pénétra dans la faille menant à la Tombe de l'Ordre Antique.
+Dans un soupir, la femme fit un pas et pénétra dans la faille menant à la Tombe de l'Ordre Ancien.
 
 À l'instant où elle disparut, la lumière se dissipa dans la brume. Le visage de l'érudit pâlit et il recula précipitamment en murmurant: « Je ne peux envoyer que mon avatar... Il y avait des traces de "Pêcher la Lune dans le Puits" sur le corps de ce petit Dieu Antique. À part lui, personne d'autre dans le Système Stellaire Antique ne peut utiliser ce sort... Ma Sœur Aînée et ma Huitième Sœur Cadette sont parties depuis des années. Ma Deuxième Sœur Aînée a déjà trouvé un partenaire. Même cette renarde, ma Quatrième Sœur Cadette, s'est donnée corps et âme pour dérober ce voyou de Tuo Sen... Ma Cinquième Sœur Cadette a pris ce corps et suit la même voie que le Maître du Dao Rêve Bleu... Si je ne trouve pas quelqu'un pour collaborer, je crains d'être laissé pour compte... » La silhouette de l'érudit s'éloigna de plus en plus.
 
@@ -76,7 +76,7 @@ C'était Tuo Sen!
 
 À cet instant, les yeux de Tuo Sen étaient injectés de sang, lui donnant un air de démence et une expression féroce. Il progressait avec une impétuosité tyrannique, sur le point de dépasser l'érudit.
 
-« Est-ce là la toujours froide Troisième Sœur Aînée? Serait-il possible que même avec ta culture, tu ne puisses entrer dans la Tombe de l'Ordre Antique? » Une voix séduisante émana lentement du front de Tuo Sen.
+« Est-ce là la toujours froide Troisième Sœur Aînée? Serait-il possible que même avec ta culture, tu ne puisses entrer dans la Tombe de l'Ordre Ancien? » Une voix séduisante émana lentement du front de Tuo Sen.
 
 L'érudit ricana et se retira loin sur le côté. Une voix glissa doucement vers lui:
 
@@ -86,9 +86,9 @@ L'érudit ricana et se retira loin sur le côté. Une voix glissa doucement vers
 
 Un éclair de froideur passa dans les yeux de l'érudit en robe blanche, qui s'éloigna dans un reniflement méprisant.
 
-Dès que Wang Lin pénétra dans la faille de la Tombe de l'Ordre Antique, il ressentit une force de téléportation. Avant même de pouvoir discerner ses environs, il fut projeté en arrière de plusieurs dizaines de pieds tandis qu'une lumière jaillissait pour former un bouclier autour de lui.
+Dès que Wang Lin pénétra dans la faille de la Tombe de l'Ordre Ancien, il ressentit une force de téléportation. Avant même de pouvoir discerner ses environs, il fut projeté en arrière de plusieurs dizaines de pieds tandis qu'une lumière jaillissait pour former un bouclier autour de lui.
 
-C'était sa prudence. Après tout, c'était la Tombe de l'Ordre Antique, et de nombreux cultivateurs y étaient entrés avant lui; il devait être vigilant.
+C'était sa prudence. Après tout, c'était la Tombe de l'Ordre Ancien, et de nombreux cultivateurs y étaient entrés avant lui; il devait être vigilant.
 
 À peine apparu, Wang Lin entendit un fracas tonitruant et une force puissante percuta son corps, venant s'écraser contre son bouclier lumineux.
 
@@ -108,7 +108,7 @@ Un homme d'âge moyen vêtu d'une robe taoïste reculait à toute vitesse. Le vi
 
 C'était lui, l'assaillant!
 
-Une douzaine de cultivateurs étaient visibles dans le ciel, tous sous le choc. Lorsque le regard de Wang Lin balaya la zone, ils reculèrent instinctivement.
+Plusieurs dizaines de cultivateurs étaient visibles dans le ciel, tous sous le choc. Lorsque le regard de Wang Lin balaya la zone, ils reculèrent instinctivement.
 
 L'odeur du sang imprégnait l'air. Wang Lin comprit immédiatement que ces individus avaient uni leurs forces pour attaquer les cultivateurs qui venaient d'arriver, encore étourdis et terrifiés par leur arrivée.
 

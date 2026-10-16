@@ -44,9 +44,9 @@ La seule chose réelle était le sang, la douleur et l'accumulation des cadavres
 
 Mais comment pouvait-il leur dire? Il n'y avait aucun moyen d'annoncer cette cruelle vérité à ces cultivateurs fanatiques.
 
-À cet instant, Wang Lin pensa soudainement au Daoïste Esprit Dissipé du monde des 7 Millions de Mondes. Il ressentit une connexion avec lui, car leurs expériences étaient très similaires.
+À cet instant, Wang Lin pensa soudainement au Daoïste Esprit Dispersé du monde des 7 Millions de Mondes. Il ressentit une connexion avec lui, car leurs expériences étaient très similaires.
 
-Cependant, le Daoïste Esprit Dissipé avait été plus chanceux que Wang Lin, car il croyait être arrivé dans le vrai monde après avoir quitté un monde factice.
+Cependant, le Daoïste Esprit Dispersé avait été plus chanceux que Wang Lin, car il croyait être arrivé dans le vrai monde après avoir quitté un monde factice.
 
 Le silence et la confusion de Wang Lin furent remarqués par Situ Nan, ce qui l'inquiéta. Il ne comprenait pas ce que Wang Lin avait affronté à l'intérieur de la faille. Il était si plein d'entrain en y entrant, et voilà qu'il semblait maintenant déprimé.
 

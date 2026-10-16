@@ -14,7 +14,7 @@ Les cultivateurs excellaient dans l'art de ralentir leur vieillissement physique
 
 Comparée à cette femme, l'autre semblait un peu ordinaire. Ses longs cheveux drapés sur son épaule lui donnaient un air de fragilité. Sa silhouette gracile laissait croire qu'elle pourrait être emportée par une simple brise. Elle portait du rose, ce qui contrastait avec son visage extrêmement pâle. Face à la femme éclatante, elle paraissait moins éblouissante, mais semblait plus délicate.
 
-Un jeune homme vêtu d'une robe rouge se tenait aux côtés des deux femmes. Il dit d'un ton doux: « Mes deux jeunes sœurs de discipline, cet endroit est la chaîne de montagnes de la Mer de Nuages, dans le Pays du Démon de l'Eau. Autrefois, j'ai découvert ce lieu par accident et j'y ai séjourné quelque temps. Bien que votre frère aîné ne soit pas encore monté au Royaume Céleste, je suis convaincu que cette Mer de Nuages est d'un niveau supérieur à celui du Royaume Céleste. Frère Murong, qu'en pensez-vous? »
+Un jeune homme vêtu d'une robe rouge se tenait aux côtés des deux femmes. Il dit d'un ton doux: « Mes deux jeunes sœurs de discipline, cet endroit est la chaîne de montagnes de la Mer des Nuages, dans le Pays du Démon de l'Eau. Autrefois, j'ai découvert ce lieu par accident et j'y ai séjourné quelque temps. Bien que votre frère aîné ne soit pas encore monté au Royaume Céleste, je suis convaincu que cette Mer des Nuages est d'un niveau supérieur à celui du Royaume Céleste. Frère Murong, qu'en pensez-vous? »
 
 Ce jeune homme était plutôt beau et dégageait un certain orgueil, comme s'il était un fils favori des cieux.
 
@@ -22,9 +22,9 @@ Un autre homme, vêtu de noir, répondit froidement: « Satisfaisant! » Son exp
 
 Le jeune homme en robe rouge sourit. Il s'était habitué depuis longtemps au parler concis de l'autre.
 
-« Je crois que le frère aîné Du n'est pas resté ici pour la Mer de Nuages », dit la femme éclatante en serrant les lèvres avec un sourire.
+« Je crois que le frère aîné Du n'est pas resté ici pour la Mer des Nuages », dit la femme éclatante en serrant les lèvres avec un sourire.
 
-Le jeune homme en robe rouge sourit à nouveau: « Je ne vous mentirai pas, petite sœur Zhao. Lorsque j'étais à la Mer de Nuages, j'ai découvert une fissure dans le sol. Je crains qu'il ne s'agisse de l'entrée du légendaire Abîme des Marées. »
+Le jeune homme en robe rouge sourit à nouveau: « Je ne vous mentirai pas, petite sœur Zhao. Lorsque j'étais à la Mer des Nuages, j'ai découvert une fissure dans le sol. Je crains qu'il ne s'agisse de l'entrée du légendaire Abîme des Marées. »
 
 Les yeux de la femme nommée Zhao s'emplirent de convoitise. Alors qu'elle s'apprêtait à reprendre la parole, le jeune homme en noir ouvrit soudainement les yeux et scruta l'horizon.
 
@@ -92,7 +92,7 @@ Il était l'exact opposé de l'image du ploutre que Du Jian se faisait de lui.
 
 L'expérience de vie de Du Jian était dérisoire comparée à celle de Wang Lin!
 
-Le groupe des cinq cessa de discuter et fonça droit vers les montagnes de la Mer de Nuages.
+Le groupe des cinq cessa de discuter et fonça droit vers les montagnes de la Mer des Nuages.
 
 Les nuages emplissaient l'espace, créant l'illusion de montagnes et de mers. Ce spectacle était grandiose et empreint d'une beauté mystérieuse.
 

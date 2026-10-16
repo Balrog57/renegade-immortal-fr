@@ -36,7 +36,7 @@ Après un fracas assourdissant qui sembla déchirer le ciel, Wang Lin fut repous
 
 Tout en reculant, Wang Lin cria rapidement: « Il n'a aucune énergie originelle dans son corps, il n'est donc pas limité par le sceau ici! Il excelle dans les attaques physiques. L'énergie originelle des aînés a été totalement dissipée; si vous ne travaillez pas ensemble pour le tuer, la situation deviendra périlleuse! »
 
-« Jeune homme, tais-toi! » Le corps du dragon doré s'anima et les cinq talismans qui l'entouraient émit une étrange lueur. L'aura des cinq éléments emplit son corps et, au lieu de charger vers Ji Xiantian, il se précipita sur Wang Lin.
+« Junior, tais-toi! » Le corps du dragon doré s'anima et les cinq talismans qui l'entouraient émit une étrange lueur. L'aura des cinq éléments emplit son corps et, au lieu de charger vers Ji Xiantian, il se précipita sur Wang Lin.
 
 L'aura des cinq éléments tournoyait et, dans un rugissement du dragon doré, elle se transforma en cinq rayons qui frappèrent Wang Lin.
 
@@ -58,7 +58,7 @@ L'une des trois bûches violettes s'effondra immédiatement en une multitude de 
 
 Cependant, Ji Xiantian était encore plus rapide. Alors que le périmètre de 50 kilomètres était en train d'être scellé, il fit un pas en arrière et disparut.
 
-« Assez! Tuanons d'abord ce pantin de Ji Xiantian avant de nous occuper du reste! » L'expression de Wudo Chan était sombre, son niveau de culture ayant lui aussi considérablement chuté. Tout en poussant un rugissement, il fit un pas et une multitude de bulles apparurent. Sous son contrôle, une bulle fonça droit sur Yi Muzi.
+« Assez! Tuons d'abord ce pantin de Ji Xiantian avant de nous occuper du reste! » L'expression de Wudo Chan était sombre, son niveau de culture ayant lui aussi considérablement chuté. Tout en poussant un rugissement, il fit un pas et une multitude de bulles apparurent. Sous son contrôle, une bulle fonça droit sur Yi Muzi.
 
 « Annihilation du Vide! » Les mains de Wudo Chan formèrent un sceau et pointèrent vers l'avant. La bulle passa de une à deux, puis de deux à quatre, jusqu'à ce qu'elles encerclent la zone.
 
@@ -90,7 +90,7 @@ Après sa réapparition, le fourneau de l'ancien dieu n'avait pas encore disparu
 
 Dans un fracas, Wang Lin cracha du sang et fut repoussé. Simultanément, Ji Xiantian fut lui aussi projeté en arrière. À ce moment, la main de Qing Shui forma un sceau et une pluie dense apparut, convergeant vers l'ennemi.
 
-Ji Xiantian ricana et utilisa sa vitesse pour disparaître une fois de plus. Une lueur froide passa dans les yeux de Wang Lin qui cria: « Frère aîné, aide-moi avec l'énergie d'origine céleste! » Au même instant, il pointa le doigt et hurla: « Arrête! »
+Ji Xiantian ricana et utilisa sa vitesse pour disparaître une fois de plus. Une lueur froide passa dans les yeux de Wang Lin qui cria: « Senior Frère, aide-moi avec l'énergie d'origine céleste! » Au même instant, il pointa le doigt et hurla: « Arrête! »
 
 D'un seul mot, toute l'énergie originelle restante et l'énergie d'origine céleste de Wang Lin se mirent en mouvement. Elles passèrent par sa main droite pour s'engouffrer dans le vide. Qing Shui n'hésita pas; il agita la main droite et projeta la moitié de son énergie d'origine céleste restante dans le corps de Wang Lin.
 

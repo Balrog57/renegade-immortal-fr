@@ -96,7 +96,7 @@ En parcourant la zone du regard, il aperçut la femme du Clan de l'Extermination
 
 Outre cette jeune fille, cinq autres personnes attirèrent l'attention de Wang Lin.
 
-La première était une femme aux longs cheveux blancs, vêtue de blanc. Elle restait là, silencieuse, le regard porté au loin. Tout cultivateur s'approchant de sa plateforme poussait un cri déchirant; du sang noir coulait alors de leurs yeux et leur corps dégageait une vapeur noire, victimes d'un poison puissant.
+La première était une femme aux longs cheveux, vêtue de blanc. Elle restait là, silencieuse, le regard porté au loin. Tout cultivateur s'approchant de sa plateforme poussait un cri déchirant; du sang noir coulait alors de leurs yeux et leur corps dégageait une vapeur noire, victimes d'un poison puissant.
 
 Une autre plateforme était occupée par un homme d'âge moyen. Il tenait une cruche de vin dans la main gauche et une épée de sept pieds dans la droite. « La langue ancienne dit... Trois coupes pour une promesse... » L'homme prit une gorgée de vin et agita négligemment sa main droite. Sans autre mouvement, son épée transperça le crâne d'un cultivateur qui se précipitait vers lui. Le sang jaillit du front de la victime et dessina la forme d'une fleur de prunier sur la plateforme.
 

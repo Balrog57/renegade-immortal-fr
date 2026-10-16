@@ -18,7 +18,7 @@ Plusieurs personnes furent même touchées par la tranche des fragments, et leur
 
 Tout cela plongea l'environnement dans un silence soudain, comme si chaque regard était fixé sur ce lieu. Cependant, dans ce calme, un rugissement venu des temps anciens résonna depuis l'intérieur de la carapace noire.
 
-Roar!
+Rugissement!
 
 Ce rugissement était infiniment proche de celui d'un dieu ancien. Il semblait percer le temps lui-même, comme s'il avait toujours existé. Ce cri était empreint d'une force infinie.
 
@@ -78,13 +78,13 @@ Simultanément, les yeux de la sculpture brillèrent d'un rouge éclatant, lui d
 
 Wang Lin observa la scène de loin et esquissa un sourire narquois. Si le doigt du dieu ancien pouvait être brisé si facilement, les cultivateurs de Luotian n'auraient pas déployé tant d'efforts pour acheminer le Serpent aux yeux de lune ici.
 
-Ce serpent pouvait être considéré comme l'arme la plus puissante qu'Luotian ait préparée pour cette guerre! Le regard de Wang Lin glissa vers le bois géant au loin.
+Ce serpent pouvait être considéré comme l'arme la plus puissante que Luotian ait préparée pour cette guerre! Le regard de Wang Lin glissa vers le bois géant au loin.
 
 « Je doute que charger en avant soit la seule chose que ce bois puisse faire. Après y avoir si longtemps posé le pied, j'ai senti qu'il y avait autre chose à l'intérieur... » Des centaines de pensées traversèrent son esprit. La bataille entre les deux systèmes stellaires avait infiniment élargi ses horizons.
 
 Tout cela était crucial pour lui. Après tout, sa durée de culture était bien trop courte comparée à celle de ces vieux maîtres; il était donc moins instruit qu'eux.
 
-Cette grande bataille était une véritable démonstration de sorts et de trésors magiques. Wang Lin absorbait toutes ces informations et découvrait ainsi la puissance des cultivateurs du Purificateur du Nirvana et du Brise-Nirvana.
+Cette grande bataille était une véritable démonstration de sorts et de trésors magiques. Wang Lin absorbait toutes ces informations et découvrait ainsi la puissance des cultivateurs du Purificateur du Nirvana et du Briseur du Nirvana.
 
 Sans cette guerre, il lui aurait été très difficile d'acquérir un tel savoir.
 

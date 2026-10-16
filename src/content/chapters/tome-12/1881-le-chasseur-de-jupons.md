@@ -36,7 +36,7 @@ La Secte Gui Yi était l'une des deux puissances majeures du Continent du Taurea
 
 L'ensemble de la Secte Gui Yi occupait une vaste portion du Continent du Taureau Céleste. Ses pics interminables abritaient d'innombrables édifices antiques et dégageaient un sentiment de mystère indicible sous la brume. La secte était structurée en plusieurs anneaux concentriques qui semblaient former un vortex gigantesque couvrant une zone infinie.
 
-À l'instar de la Grande Secte de l'Âme, la Secte Gui Yi comptait une multitude de disciples. Une telle institution regroupait de nombreux cultivateurs puissants.
+À l'instar de la Secte de la Grande Âme, la Secte Gui Yi comptait une multitude de disciples. Une telle institution regroupait de nombreux cultivateurs puissants.
 
 À des dizaines de milliers de kilomètres de la Secte Gui Yi, une explosion de lumière illumina le ciel. Ce changement soudain attira immédiatement l'attention de la secte, et des dizaines de rayons de lumière volèrent vers la formation.
 
@@ -52,7 +52,7 @@ Lorsque la silhouette de Wang Lin devint parfaitement nette, les cultivateurs vi
 
 Ils éprouvaient un respect profond pour un Messager du Taureau Céleste capable de garder l'un des méridiens. Bien qu'ils constatassent que le niveau de culture de Wang Lin n'était pas élevé, tout comme celui d'Ouyang Zhen, ils pensaient qu'une telle personne devait posséder quelque chose d'extraordinaire pour pouvoir repousser l'attaque du Continent du Démon Vert.
 
-« Grande Secte de l'Âme, Wang Lin. Troisième méridien du Taureau Céleste, Prairie de l'Extrême Ciel. » Wang Lin leur adressa un salut respectueux.
+« Secte de la Grande Âme, Wang Lin. Troisième méridien du Taureau Céleste, Prairie de l'Extrême Ciel. » Wang Lin leur adressa un salut respectueux.
 
 « Noble Messager, je vous en prie! Le Maître de la secte a envoyé un ordre: tous les messagers doivent se rendre au grand hall. » L'homme d'âge moyen leva la main pour accueillir Wang Lin.
 

@@ -52,9 +52,9 @@ En suivant le bois géant, ils croisèrent quelques cultivateurs de Luotian, mai
 
 À cet instant, l'équipe que Wang Lin avait rassemblée comptait des centaines de personnes, ce qui attira les regards de tous les cultivateurs aux alentours du bois géant. Il était évident que c'était la présence de Xu Mu qui avait attiré une telle foule!
 
-« Le Ciel de Tonnerre, Xu Mu! »
+« Le Céleste du Tonnerre, Xu Mu! »
 
-C'était lui, le héros de la compétition des bénédictions célestes. Même Xu Ting de la planète Dong Lin avait été vaincu par lui, faisant de Xu Mu le Ciel de Tonnerre!
+C'était lui, le héros de la compétition des bénédictions célestes. Même Xu Ting de la planète Dong Lin avait été vaincu par lui, faisant de Xu Mu le Céleste du Tonnerre!
 
 « Je me demande seulement si Xu Mu est digne de monter sur ce bois géant! »
 
@@ -84,7 +84,7 @@ Néanmoins, une onde de choc parcourut le cœur des dizaines de milliers de cult
 
 Wang Lin était le quatrième!
 
-« Le Ciel de Tonnerre, Xu Mu, est véritablement digne de sa renommée! »
+« Le Céleste du Tonnerre, Xu Mu, est véritablement digne de sa renommée! »
 
 À cet instant, une pensée similaire traversa l'esprit des cultivateurs environnants.
 
@@ -100,7 +100,7 @@ Après tout, peu de cultivateurs au stade Scruteur du Nirvana parvenaient à com
 
 Dans le monde de la culture, la force est souveraine. Pour obtenir la reconnaissance d'autrui, il faut atteindre leur niveau!
 
-Debout aux côtés de Lie Yunzi, Wang Lin dit respectueusement: « Xu Mu salue l'Aîné Lie Yunzi. »
+Debout aux côtés de Lie Yunzi, Wang Lin dit respectueusement: « Xu Mu salue le Senior Lie Yunzi. »
 
 Après avoir parlé, il se tourna et joignit les mains en direction de l'ancêtre de la famille Shengong.
 

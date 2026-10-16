@@ -30,7 +30,7 @@ Un grondement assourdissant résonna à travers le monde. Même l'espace lui-mê
 
 Le tonnerre de Wang Lin frappa soudainement la porte et provoqua un effondrement indescriptible. Cette force était capable de déchirer le monde; elle contenait l'essence du tonnerre de Wang Lin ainsi que tout le tonnerre qui l'accompagnait!
 
-Alors que le fracas résonnait, le tonnerre s'effondra soudainement. Le corps de Wang Lin apparut tandis qu'il recrachait une grande quantité de sang. Repoussé par la force de réulsion, il fut projeté en arrière et tomba au sol.
+Alors que le fracas résonnait, le tonnerre s'effondra soudainement. Le corps de Wang Lin apparut tandis qu'il recrachait une grande quantité de sang. Repoussé par la force de répulsion, il fut projeté en arrière et tomba au sol.
 
 La Grande Porte du Vide n'avait pas bougé d'un iota!
 
@@ -42,7 +42,7 @@ Des grondements tonitruants résonnèrent à travers le monde et une onde de cho
 
 La Grande Porte du Vide ne changea en rien; aucune trace d'ouverture n'apparut, et elle semblait sur le point de disparaître du monde.
 
-« Je ne vais pas abandonner ainsi! » Les yeux de Wang Lin étaient injectés de sang et empreints de folie. Alors que la porte était sur le point de s'évanouir, il se précipita une fois de plus. Ses mains formèrent un sceau, et le tonnerre du ciel et de la terre commença à affluer vers lui.
+« Je ne vais pas abandonner ainsi! » Les yeux de Wang Lin étaient injectés de sang et empreints de folie. Alors que la porte était sur le point de disparaître, il se précipita une fois de plus. Ses mains formèrent un sceau, et le tonnerre du ciel et de la terre commença à affluer vers lui.
 
 « Je suis le seigneur du tonnerre! Tout le tonnerre de ce ciel étoilé, rassemblez-vous pour moi! » Tandis que les paroles de Wang Lin résonnaient, tout le tonnerre de la planète convergea vers lui. Le tonnerre venait même de l'extérieur de la planète, à 50 kilomètres; 500 kilomètres; 5 000 kilomètres; 50 000 kilomètres; 500 000 kilomètres; et jusqu'à 5 000 000 de kilomètres!
 

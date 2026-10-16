@@ -16,7 +16,7 @@ Après avoir pris sa décision, Du Qing tendit la main vers le vide devant lui e
 
 Du Qing la suivit dans les airs.
 
-« Avec ce trésor exotique de la Grande Secte de l'Âme, cet individu ne pourra pas s'échapper bien longtemps! »
+« Avec ce trésor exotique de la Secte de la Grande Âme, cet individu ne pourra pas s'échapper bien longtemps! »
 
 Un grondement de tonnerre résonna à travers la terre du Continent du Taureau Céleste, puis un gigantesque Oiseau Vermillon couvert de flammes surgit. Le monde parut se distordre et la terre se dessécha, comme prête à s'effondrer.
 
@@ -34,7 +34,7 @@ Cette personne devait être l'ancêtre de la Secte du Dragon Bleu, Du Qing, l'ex
 
 L'analyse était simple. Oser le poursuivre ainsi et sur une telle durée signifiait que cet individu avait pleine confiance en sa propre puissance. Parmi tous ceux que Wang Lin avait provoqués depuis son arrivée sur le Continent Astral Immortel, seul l'ancêtre de la Secte du Dragon Bleu possédait une telle force.
 
-« D'après les souvenirs de Kang Ran, l'ancêtre est au début du stade de la Tribulation du Vide... Mais si cela est vrai ou non, ce n'est pas à Kang Ran de le savoir! Il a peut-être effectivement traversé neuf Tribulations Arcanes pour atteindre le début de la Tribulation du Vide, ou il pourrait encore être au stade de la Tribulation Arcane! » Wang Lin ne se fierait évidemment pas uniquement aux souvenirs de Kang Ran pour juger du niveau de culture de Du Qing.
+« D'après les souvenirs de Kang Ren, l'ancêtre est au début du stade de la Tribulation du Vide... Mais si cela est vrai ou non, ce n'est pas à Kang Ren de le savoir! Il a peut-être effectivement traversé neuf Tribulations Arcanes pour atteindre le début de la Tribulation du Vide, ou il pourrait encore être au stade de la Tribulation Arcane! » Wang Lin ne se fierait évidemment pas uniquement aux souvenirs de Kang Ren pour juger du niveau de culture de Du Qing.
 
 Les yeux de Wang Lin s'illuminèrent et l'Oiseau Vermillon sous lui poussa un rugissement assourdissant. Plus il dévorait de veines de feu terrestre, plus l'Oiseau Vermillon devenait rapide. Bien qu'il ne pût égaler le Roi des Moustiques, sa vitesse approchait celle de Wang Lin.
 

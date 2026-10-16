@@ -34,7 +34,7 @@ C'était aussi un moyen puissant de s'assurer la protection totale de Luotian!
 
 C'était une preuve de sincérité absolue. Grâce à cet exploit, où que ce soit et quel que soit le moment, lui, Wang Lin, serait devenu le héros le plus emblématique de la guerre entre les deux systèmes!
 
-Nul ne pourrait occulter ce fait ou l'oublier! Si Wang Lin venait à se retrouver dans une situation périlleuse sans qu'Luotian ne vienne à son aide, cela nuirait gravement à l'image de cette entité. Et si tel était le cas, qui risquerait de se donner corps et âme dans les batailles futures?
+Nul ne pourrait occulter ce fait ou l'oublier! Si Wang Lin venait à se retrouver dans une situation périlleuse sans que Luotian ne vienne à son aide, cela nuirait gravement à l'image de cette entité. Et si tel était le cas, qui risquerait de se donner corps et âme dans les batailles futures?
 
 Wang Lin avait tout calculé. En combinant sa culture et son corps de Dieu Ancien, il s'était dit que si l'adversaire était à son apogée, il pourrait mourir des contrecoups du sort; mais puisque Ji Xiantian était gravement blessé et en fuite, même en cas d'échec, il ne succomberait pas aux retombées de sa propre technique!
 
@@ -48,7 +48,7 @@ Une impulsion d'énergie originelle d'une puissance inimaginable jaillit du corp
 
 De plus, Maître Yan Leizi bloqua la puissance de cette énergie afin qu'elle reste entièrement confinée dans le corps de Wang Lin.
 
-À cet instant, Wang Lin sentit l'énergie originelle exploser en lui. Son âme originelle s'éveilla et absorba cette force avec une avidité dévorante. Il sentit sa propre puissance croître de façon vertigineuse. Finalement, sa culture atteignit le sommet du stade initial du Briseur du Nirvana. Il ne lui manquait plus qu'une compréhension profonde de son domaine pour devenir un cultivateur au stade intermédiaire du Briseur du Nirvana!
+À cet instant, Wang Lin sentit l'énergie originelle exploser en lui. Son âme originelle s'éveilla et absorba cette force avec une avidité dévorante. Il sentit sa propre puissance croître de façon vertigineuse. Finalement, sa culture atteignit le sommet du stade initial du Scruteur du Nirvana. Il ne lui manquait plus qu'une compréhension profonde de son domaine pour devenir un cultivateur au stade intermédiaire du Scruteur du Nirvana!
 
 Cette fois, Maître Yan Leizi n'avait pas retenu ses coups et avait offert à Wang Lin une fortune inestimable!
 
@@ -68,7 +68,7 @@ Quant aux autres cultivateurs, le vieillard en robe noire et le jeune homme affi
 
 Il y avait aussi cette femme vêtue d'une robe de palais. Elle fixait désormais Wang Lin avec une pointe d'intérêt. Déjà magnifique, son regard lui conférait un charme irrésistible.
 
-« Xu Mu, une fois cette guerre terminée, non seulement ce vieillard te rendra ta Bête du Tonnerre, mais je t'offrirai également un trésor défensif! Avec ce trésor, à l'exception de quelques élus de l'Alliance, nul ne pourra plus menacer ta vie! » sourit Maître Yan Leizi en chargeant vers le Saint Démon Noir et le Saint Dragon Démon.
+« Xu Mu, une fois cette guerre terminée, non seulement ce vieillard te rendra ta Bête du Tonnerre, mais je t'offrirai également un trésor défensif! Avec ce trésor, à l'exception de quelques élus de l'Alliance, nul ne pourra plus menacer ta vie! » sourit Maître Yan Leizi en chargeant vers le Saint Démon Noir et le Saint Démon du Dragon des Nuages.
 
 D'un air serein, Wang Lin activa l'énergie originelle dans son corps. Sentant sa force revenir, il prit une profonde inspiration. Il avait parié sur le bon coup!
 
@@ -78,7 +78,7 @@ Le Serpent aux yeux de lune rugissait avec frénésie, ses tentacules balayant l
 
 Le Serpent aux yeux de lune était trop puissant!
 
-Le Saint Démon Noir et le Saint Dragon Démon reculaient sans cesse. Leurs esprits étaient troublés et ils n'avaient plus la volonté de poursuivre le combat; ils s'apprêtaient à fuir.
+Le Saint Démon Noir et le Saint Démon du Dragon des Nuages reculaient sans cesse. Leurs esprits étaient troublés et ils n'avaient plus la volonté de poursuivre le combat; ils s'apprêtaient à fuir.
 
 Mais un impact, non moins violent que celui du bois géant, approchait soudainement des profondeurs de la région Nord.
 
@@ -108,7 +108,7 @@ Quant aux dizaines de milliers de cultivateurs gravitant autour du bois géant, 
 
 À peine eut-elle parlé qu'un rire long et sonore retentit au loin, et un nuage noir s'élança dans la même direction.
 
-Une silhouette se tenait au cœur de ce nuage sombre. C'était un homme d'âge moyen au visage carré, vêtu d'une robe pourpre qui imposait le respect sans qu'il n'ait à exprimer la moindre colère. Autour de lui, une brume noire bouillonnait, accompagnée d'un grondement tonnerre.
+Une silhouette se tenait au cœur de ce nuage sombre. C'était un homme d'âge moyen au visage carré, vêtu d'une robe pourpre qui imposait le respect sans qu'il n'ait à exprimer la moindre colère. Autour de lui, une brume noire bouillonnait, accompagnée d'un grondement de tonnerre.
 
 « Maître Yan Leizi, votre nom m'est familier depuis longtemps! Aujourd'hui, osez-vous défier Wudo Chan? » Les paroles de l'homme étaient empreintes d'une arrogance extrême. Tandis qu'il parlait, la brume noire sous ses pieds se projeta vers Maître Yan Leizi.
 
@@ -120,6 +120,6 @@ Maître Yan Leizi ne connaissait pas ce Wudo Chan. Il était évident que cet ho
 
 Elles étaient comme des lames projetées droit sur le Serpent aux yeux de lune!
 
-Wang Lin réalisa intérieurement que la situation tournait au désastre. Il semblait qu'Luotian soit en position de faiblesse. Il recula silencieusement sur le bois géant, mais il sentit aussitôt un regard féroce peser sur lui.
+Wang Lin réalisa intérieurement que la situation tournait au désastre. Il semblait que Luotian soit en position de faiblesse. Il recula silencieusement sur le bois géant, mais il sentit aussitôt un regard féroce peser sur lui.
 
 C'était la femme en robe bleue qui fixait Wang Lin d'un regard complexe!

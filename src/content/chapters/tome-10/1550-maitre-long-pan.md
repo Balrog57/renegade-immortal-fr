@@ -120,4 +120,4 @@ Seuls ceux ayant massacré une multitude d'êtres au cours de leur existence pou
 
 Wang Lin connaissait ce rugissement. Dès qu'il retentit, son expression changea pour la première fois. Une bouffée d'excitation traversa son regard!
 
-« Frère Aîné Qing Shui! »
+« Senior Frère Qing Shui! »

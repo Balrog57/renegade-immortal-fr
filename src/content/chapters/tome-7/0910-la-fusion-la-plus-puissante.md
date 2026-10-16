@@ -26,13 +26,13 @@ Le visage de Yu Fei se glaça davantage, car il comprit immédiatement que ce Xu
 
 Il poussa un rugissement de rage, se retourna et fixa le garçon à la grosse tête qui combattait son avatar. Toute sa volonté de tuer et sa fureur furent instantanément redirigées vers lui. Il chargea violemment vers l'enfant.
 
-« Ton maître s'est enfui, alors commençons par toi! » La colère de Yu Fei était profonde et oppressante. Lui, un cultivateur du stade intermédiaire de la Recherche de Nirvana, qui laissait échapper un cultivateur du stade initial de la Recherche de Nirvana sans pouvoir le poursuivre... Cela faisait bien longtemps qu'il n'avait pas ressenti une telle humiliation.
+« Ton maître s'est enfui, alors commençons par toi! » La colère de Yu Fei était profonde et oppressante. Lui, un cultivateur du stade intermédiaire du Scruteur du Nirvana, qui laissait échapper un cultivateur du stade initial du Scruteur du Nirvana sans pouvoir le poursuivre... Cela faisait bien longtemps qu'il n'avait pas ressenti une telle humiliation.
 
 Le garçon à la grosse tête, en plein combat contre l'avatar de Yu Fei, sentit son cuir chevelu picoter et faillit perdre la raison. Il ne put s'empêcher de maudire Wang Lin tout en reculant pour tenter de s'échapper.
 
-Cependant, porté par une rage noire, Yu Fei se rapprocha instantanément. Utilisant sa culture écrasante du stade intermédiaire de la Recherche de Nirvana, il pointa le doigt. Les cinq épées de sang jaillirent immédiatement vers le garçon.
+Cependant, porté par une rage noire, Yu Fei se rapprocha instantanément. Utilisant sa culture écrasante du stade intermédiaire du Scruteur du Nirvana, il pointa le doigt. Les cinq épées de sang jaillirent immédiatement vers le garçon.
 
-« Meurs! » hurla Yu Fei. Les cinq épées de sang chargèrent avec la puissance de cinq cultivateurs du stade initial de la Recherche de Nirvana. En comptant celle qui avait déjà été lancée, c'était comme si six experts de ce niveau attaquaient l'enfant.
+« Meurs! » hurla Yu Fei. Les cinq épées de sang chargèrent avec la puissance de cinq cultivateurs du stade initial du Scruteur du Nirvana. En comptant celle qui avait déjà été lancée, c'était comme si six experts de ce niveau attaquaient l'enfant.
 
 Comment le garçon pouvait-il résister avec son niveau de culture actuel?
 
@@ -48,7 +48,7 @@ Une série de détonations soniques retentit et l'espace devant Wang Lin se frag
 
 Si l'espace pouvait se rompre ainsi, alors les six épées de sang n'étaient rien. Le poing de Wang Lin percuta directement l'une des épées volantes. L'arme trembla et s'effondra dans un fracas retentissant. Les fragments furent repoussés avant de se transformer en un avatar qui cracha un jet de sang. Ses yeux étaient pétris de terreur alors qu'il tentait de battre en retraite.
 
-Le regard de Wang Lin était d'une froideur absolue, tel un bloc de glace éternelle. Les avatars de Yu Fei étaient au stade initial de la Recherche de Nirvana, tandis que le corps véritable de ce dernier se trouvait au stade intermédiaire. S'ils agissaient ensemble, il serait très difficile pour Wang Lin de terrasser Yu Fei, et même en cas de victoire, le prix à payer serait exorbitant. Dès lors, la meilleure option était de fusionner avec son corps originel. Il fit un pas et apparut aux côtés de l'avatar ensanglanté avant que les cinq autres ne puissent réagir. Sans la moindre hésitation, Wang Lin asséna un coup de poing!
+Le regard de Wang Lin était d'une froideur absolue, tel un bloc de glace éternelle. Les avatars de Yu Fei étaient au stade initial du Scruteur du Nirvana, tandis que le corps véritable de ce dernier se trouvait au stade intermédiaire. S'ils agissaient ensemble, il serait très difficile pour Wang Lin de terrasser Yu Fei, et même en cas de victoire, le prix à payer serait exorbitant. Dès lors, la meilleure option était de fusionner avec son corps originel. Il fit un pas et apparut aux côtés de l'avatar ensanglanté avant que les cinq autres ne puissent réagir. Sans la moindre hésitation, Wang Lin asséna un coup de poing!
 
 Un fracas assourdissant retentit, comme si l'espace lui-même en tremblait. L'avatar cracha davantage de sang et d'innombrables nuages de brume sanguine explosèrent de son corps. Après avoir reculé de dix pas, l'avatar s'effondra et fut totalement annihilé!
 
@@ -56,7 +56,7 @@ Un massacre absolu!
 
 C'était une véritable boucherie!
 
-Après avoir tué un premier avatar, Wang Lin se retourna et marcha vers les cinq épées de sang qui fonçaient sur lui. Tout cela se produisit en un éclair. Wang Lin était si rapide qu'il laissait derrière lui de multiples images rémanentes. Cette fois, son poing s'abattit dans le vide. Des craquements sinistres se firent entendre alors qu'une immense faille déchirait l'espace telle une dragon.
+Après avoir tué un premier avatar, Wang Lin se retourna et marcha vers les cinq épées de sang qui fonçaient sur lui. Tout cela se produisit en un éclair. Wang Lin était si rapide qu'il laissait derrière lui de multiples images rémanentes. Cette fois, son poing s'abattit dans le vide. Des craquements sinistres se firent entendre alors qu'une immense faille déchirait l'espace tel un dragon.
 
 L'une des épées de sang fila vers Wang Lin. Sans même la regarder, il tendit la main droite. L'épée trembla, tentant de lutter, mais Wang Lin la saisit et l'écrasa sans la moindre pitié!
 
@@ -80,7 +80,7 @@ Devant le rugissement d'un dieu ancien, même le tonnerre céleste devait trembl
 
 Le cri libéra une aura ancestrale à travers les mondes. Toutes les créatures devaient se soumettre au rugissement d'un dieu ancien, et toute puissance devait se désintégrer!
 
-Ce rugissement était des fois plus violent que le tonnerre. Que valait le tonnerre face à cela? Ce cri était chargé d'une force infinie, créant une tempête qui balaya toute la région.
+Ce rugissement était plusieurs fois plus violent que le tonnerre. Que valait le tonnerre face à cela? Ce cri était chargé d'une force infinie, créant une tempête qui balaya toute la région.
 
 Yu Fei venait à peine de lever le pied quand le rugissement du dieu ancien l'atteignit. Une puissance qui fit vaciller son esprit se précipita sur lui. Choqué, il recula précipitamment, sentant qu'il serait mis en pièces s'il ne fuyait pas.
 
@@ -100,7 +100,7 @@ C'était la première fois qu'il ressentait une telle émotion. Bien que stupéf
 
 Si ces personnes réagissaient ainsi, alors les quatre épées volantes près de Wang Lin n'avaient aucune chance. L'impact indescriptible du rugissement fit changer les couleurs du monde et l'espace lui-même s'effondra. Les quatre épées explosèrent toutes!
 
-Dans leur destruction, d'innombrables fragments furent repoussés pour redevenir quatre avatars. Chacun possédait une culture de Recherche de Nirvana, mais dès leur apparition, ils furent frappés par l'onde de choc du rugissement divin.
+Dans leur destruction, d'innombrables fragments furent repoussés pour redevenir quatre avatars. Chacun possédait une culture de Scruteur du Nirvana, mais dès leur apparition, ils furent frappés par l'onde de choc du rugissement divin.
 
 Comme balayés par un vent destructeur, les quatre avatars s'effondrèrent et se dissipèrent instantanément. Ils étaient définitivement morts!
 

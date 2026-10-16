@@ -46,11 +46,11 @@ Sa main droite plongea dans le vide et une fiole de pilules apparut. Juste au mo
 
 Le vieil homme aux robes grises afficha un visage grave. Il ne savait pas ce qu'était cette lumière dorée, mais il avait la sensation de l'avoir déjà vue. Il apparut sur le flanc gauche de Wang Lin et leva son index droit. Un éclair de lumière jaune jaillit, comme si son doigt entier était constitué de terre. Il pointa directement le milieu des sourcils de Wang Lin!
 
-Alors qu'il pointait vers l'avant, d'innombrables âmes de Flammes de l'Encens jaillirent. Ces âmes se transformèrent en grains de sable pour encercler Wang Lin, s'apprêtant à le décomposer comme l'Empreinte de l'Esprit de Guerre!
+Alors qu'il pointait vers l'avant, d'innombrables âmes de Flammes de Joss jaillirent. Ces âmes se transformèrent en grains de sable pour encercler Wang Lin, s'apprêtant à le décomposer comme l'Empreinte de l'Esprit de Guerre!
 
 Au même moment, la vieille femme aux robes noires apparut sur la droite de Wang Lin. Ses yeux brillèrent et sa main droite s'abattit vers la poitrine du jeune homme!
 
-Les âmes de Flammes de l'Encens prirent la forme de fantômes entre ses cinq doigts. Elles poussèrent des rugissements cruels en fonçant sur Wang Lin; il était comme si les doigts de cette vieille femme contenaient l'enfer lui-même, saturés d'une intention meurtrière monstrueuse!
+Les âmes de Flammes de Joss prirent la forme de fantômes entre ses cinq doigts. Elles poussèrent des rugissements cruels en fonçant sur Wang Lin; il était comme si les doigts de cette vieille femme contenaient l'enfer lui-même, saturés d'une intention meurtrière monstrueuse!
 
 L'homme au regard indifférent fit un pas devant Wang Lin. Son expression demeurait froide et impitoyable alors qu'il levait la main droite. Une énergie glaciale convergea et il frappa de plein fouet la tête de Wang Lin!
 
@@ -62,7 +62,7 @@ Profitant de l'instant où le Fourneau Impérial bloqua l'assaut, Wang Lin laiss
 
 Tout s'était passé trop vite. À peine quelques respirations s'étaient-elles écoulées depuis le début de l'assaut que Wang Lin avait déjà traversé d'innombrables situations de vie ou de mort. Il n'avait pu utiliser ni la plupart de ses sorts, ni ses trésors magiques; même son Empreinte de l'Esprit de Guerre avait été interrompue.
 
-Wang Lin devait diviser sa conscience pour surveiller ses environs. Il ne croyait pas que seuls trois individus cherchaient sa perte. Le tuer maintenant ressemblait à la chute du précédent Seigneur du Domaine Scellé: une manœuvre massive orchestrée par l'ensemble du Royaume Extérieur.
+Wang Lin devait diviser sa conscience pour surveiller ses environs. Il ne croyait pas que seuls trois individus cherchaient sa perte. Le tuer maintenant ressemblait à la chute du précédent Seigneur du Royaume Scellé: une manœuvre massive orchestrée par l'ensemble du Royaume Extérieur.
 
 Le Souverain n'était toujours pas apparu!
 
@@ -114,8 +114,8 @@ Ses yeux étaient empreints de la même terreur; elle était terrifiée par les 
 
 Wang Lin avait subi des dommages terribles pour repousser ces trois adversaires, mais cela lui avait acheté un temps précieux. Il recula et pointa le ciel d'un air farouche.
 
-« Parapluie de Combustion du Royaume, ouvre-toi pour détruire le royaume! »
+« Ombrelle Brûlante du Royaume, ouvre-toi pour détruire le royaume! »
 
 Le ciel bleu s'assombrit et un mât de parapluie gigantesque apparut. La voûte céleste devint sa toile. De loin, cela ressemblait à un immense parapluie azur!
 
-Cependant, au moment même où cet objet se manifestait, une mer de feu surgit et enveloppa l'ouvrage, le transformant en un Parapluie de Combustion du Royaume!
+Cependant, au moment même où cet objet se manifestait, une mer de feu surgit et enveloppa l'ouvrage, le transformant en une Ombrelle Brûlante du Royaume!

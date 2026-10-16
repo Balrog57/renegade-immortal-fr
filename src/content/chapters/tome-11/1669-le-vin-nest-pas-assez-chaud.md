@@ -28,7 +28,7 @@ Wang Lin se redressa et se tint debout sur le Fourneau Impérial. Ses cheveux bl
 
 L'esprit de Xi Zifeng, initialement ébranlé, fut instantanément apaisé par les paroles de Wang Lin. Elle leva sa main délicate et écarta ses mèches de cheveux derrière ses oreilles avec un sourire, puis hocha la tête.
 
-Des grondements tonitruants résonnèrent à l'extérieur de la formation. Les 100 000 cultivateurs ne s'approchèrent pas, mais s'arrêtèrent à une certaine distance. Ils savaient parfaitement quelle était la puissance de Wang Lin et de cette formation. Ils s'assirent alors et portèrent leurs mains à leur entreceinte.
+Des grondements tonitruants résonnèrent à l'extérieur de la formation. Les 100 000 cultivateurs ne s'approchèrent pas, mais s'arrêtèrent à une certaine distance. Ils savaient parfaitement quelle était la puissance de Wang Lin et de cette formation. Ils s'assirent alors et portèrent leurs doigts entre leurs sourcils.
 
 À cet instant, les âmes originelles de ces 100 000 cultivateurs du Royaume Extérieur jaillirent. Ces âmes libérèrent une lumière monstrueuse qui illumina le système stellaire ténébreux.
 
@@ -36,7 +36,7 @@ Dès que les 100 000 âmes originelles furent sorties, cinq cultivateurs de la t
 
 Ces cinq experts n'avaient pas participé à la guerre contre le Royaume Intérieur, restant en réserve pour protéger le Royaume Extérieur. Cependant, l'ordre du Conseil Souverain était tombé: même si le Royaume Extérieur devait périr, ils devaient mourir au combat.
 
-Les cinq s'assirent en ligne. Ils savaient à quel point Wang Lin était puissant. Même en attaquant de concert, ils pourraient ne pas être de taille face au Seigneur du Domaine Scellé, Wang Lin.
+Les cinq s'assirent en ligne. Ils savaient à quel point Wang Lin était puissant. Même en attaquant de concert, ils pourraient ne pas être de taille face au Seigneur du Royaume Scellé, Wang Lin.
 
 Toutefois, avec l'appui des 100 000 âmes originelles et du secret antique du Conseil Souverain, ils croyaient posséder la puissance nécessaire. Les cinq formèrent un sceau et projetèrent leur énergie dans le dos de celui qui les précédait.
 
@@ -96,11 +96,11 @@ Wang Lin, debout au sein de la formation, contemplait l'aura émanant du rayon d
 
 Le regard serein, il pointa vers le Royaume Extérieur.
 
-« Parasol Brûleur de Monde, déploie-toi pour consumer le monde! » Dans le Royaume Extérieur, un gigantesque parasol de feu s'ouvrit. Dès son apparition, la lumière dorée fut repoussée par une flamme destructrice qui se propagea.
+« Ombrelle Brûlante du Royaume, déploie-toi pour consumer le monde! » Dans le Royaume Extérieur, un gigantesque parasol de feu s'ouvrit. Dès son apparition, la lumière dorée fut repoussée par une flamme destructrice qui se propagea.
 
 « Dao aux sept couleurs, transmute les cieux et la terre! » Tandis que la lumière dorée et le feu rouge s'entrechoquaient, les paroles de Wang Lin résonnèrent. Des lueurs rouges, orangées, jaunes, vertes, bleues et indigo surgirent du vide pour former une Lance aux Sept Couleurs!
 
-« Cette lumière antique a percé le ciel, je la briserai donc avec cette Lance aux Sept Couleurs. Le Parasol Brûleur de Monde colmatera la brèche. Cette lumière a peut-être engendré toute vie, mais elle ne pourra pas m'effacer! » Le parasol et la Lance aux Sept Couleurs entrèrent en collision dans une explosion titanesque.
+« Cette lumière antique a percé le ciel, je la briserai donc avec cette Lance aux Sept Couleurs. L'Ombrelle Brûlante du Royaume colmatera la brèche. Cette lumière a peut-être engendré toute vie, mais elle ne pourra pas m'effacer! » Le parasol et la Lance aux Sept Couleurs entrèrent en collision dans une explosion titanesque.
 
 Wang Lin agita ses manches et se tourna vers Xi Zifeng. Il saisit la cruche de vin sur le petit pot et en but une gorgée.
 

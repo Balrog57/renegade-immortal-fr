@@ -32,7 +32,7 @@ Du sang frais gouttait de la pointe de la lame.
 
 « Et si tu es un tigre? Aujourd'hui, je vais massacrer un tigre! » Les yeux de Wang Lin s'illuminèrent d'une lueur glaciale. Le gaz noir l'entourait comme pour former l'ombre d'un géant.
 
-Ce géant n'était pas Dao Ye Mo, mais le Dao de Wang Lin!
+Ce géant n'était pas le Dao Antique de Ye Mo, mais le Dao Antique de Wang Lin!
 
 5 000 pieds, 4 000 pieds, 3 000 pieds... En un instant, il ne restait plus que 1 000 pieds entre eux! Une distance qui pouvait être franchie en un battement de cil!
 
@@ -108,7 +108,7 @@ Cette bataille déciderait du vainqueur!
 
 Les deux camps entrèrent instantanément en collision. Le tigre et le dragon rugirent au cœur du combat. La planète entière trembla comme si elle allait s'effondrer.
 
-La lame de Wang Lin descendit et percuta la lance du général en armure blanche. Après une longue méditation, Wang Lin poussa un rugissement. Tandis qu'il criait, l'ombre de l'Dao Antique apparut derrière lui et descendit avec la lame.
+La lame de Wang Lin descendit et percuta la lance du général en armure blanche. Après une longue méditation, Wang Lin poussa un rugissement. Tandis qu'il criait, l'ombre du Dao Antique apparut derrière lui et descendit avec la lame.
 
 Le général tigre poussa un cri de désespoir alors que sa lance, son armure et le tigre blanc sous lui s'effondraient tous simultanément. Une traînée de sang fendit son front tandis que la lame de Wang Lin l'atteignait, et son corps vola en éclats!
 

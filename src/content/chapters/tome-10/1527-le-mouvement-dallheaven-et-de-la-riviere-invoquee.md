@@ -110,4 +110,4 @@ Les renforts de Luotian étaient arrivés!
 
 Encore plus loin, des éclairs surgirent de nulle part. Ils déchirèrent le vide et se rapprochèrent à une vitesse fulgurante. Ce n'étaient pas quelques éclairs, mais une multitude infinie!
 
-Les renforts du Fleuve Invoqué étaient arrivés!
+Les renforts de la Rivière Invoquée étaient arrivés!

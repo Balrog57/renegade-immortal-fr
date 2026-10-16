@@ -8,7 +8,7 @@ slug: lambition-gravee
 ---
 « Souvenez-vous, sauf si cela est absolument nécessaire, n’utilisez pas ce sort! » Le vieux Oiseau Vermillon avait l'air extrêmement sérieux. Après avoir fini de parler, il prit une profonde inspiration et forma un étrange sceau avec ses mains.
 
-À mesure que le sceau apparaissait, des flammes éthérées jaillirent des sourcils du vieux Oiseau Vermillon pour pénétrer dans la formation. Cela fit briller le sceau d'un éclat rouge, et les deux fusionnèrent pour former un os de feu d'environ trois mètres de long.
+À mesure que le sceau apparaissait, des flammes éthérées jaillirent des sourcils du vieux Oiseau Vermillon pour pénétrer dans la formation. Cela fit briller le sceau d'un éclat rouge, et les deux fusionnèrent pour former un os de feu d'environ dix pieds de long.
 
 Il n'était peut-être pas approprié de l'appeler un os; cela ressemblait plutôt à un bâton, mais il était très lisse.
 
@@ -36,7 +36,7 @@ Wang Lin prit une profonde inspiration et leva les yeux. Ses pupilles se rétrac
 
 La tempête semblait avoir formé une immense ombrelle qui ne s'était pas encore ouverte! Des quantités massives de flammes généraient d'innombrables dragons de feu tout autour!
 
-Le ciel entier était occupé par ces dragons de feu qui encerclaient l'ombrelle en rugissant. Ce spectacle pouvait être vu depuis n'importe quel point de la Planète du Grand Empereur!
+Le ciel entier était occupé par ces dragons de feu qui encerclaient l'ombrelle en rugissant. Ce spectacle pouvait être vu depuis n'importe quel point de la Planète de l'Empereur!
 
 « Parapluie du Royaume Brûlant! » Le vieux Oiseau Vermillon poussa un cri et la tempête cessa soudainement de tourner. Elle resta suspendue, immobile, dans les airs!
 
@@ -46,7 +46,7 @@ De fines fissures apparurent sur le sol.
 
 Tous les cultivateurs qui furent témoins de cela eurent l'impression que le sang dans leurs veines était sur le point de s'évaporer.
 
-Le ciel était couvert d'une distorsion infinie, comme s'il ne pouvait supporter la tempête. Cette distorsion continua de se propager jusqu'à couvrir presque la moitié des Terres Tombées!
+Le ciel était couvert d'une distorsion infinie, comme s'il ne pouvait supporter la tempête. Cette distorsion continua de se propager jusqu'à couvrir presque la moitié des Terres Déchues!
 
 Toutes les planètes enveloppées par ce phénomène montraient les signes d'une grande sécheresse imminente. C'étaient les prémices d'une destruction inévitable.
 
@@ -76,7 +76,7 @@ La respiration du vieux Oiseau Vermillon s'accéléra encore. Il agita la main e
 
 « Je ne peux que vous le montrer, je ne peux pas l'ouvrir. Si je le faisais, cela causerait des dégâts colossaux ici! » Le vieux Oiseau Vermillon mordit le bout de sa langue et cracha un jet de sang chargé de sa culture du Vide Arcanique vers la tempête. Le sang se transforma en une brume monstrueuse qui fusionna avec la tempête pour la faire disparaître progressivement.
 
-Il fallut sept minutes avant que la tempête ne s'évanouisse totalement. La Planète du Grand Empereur retrouva peu à peu son état normal et les distorsions s'estompèrent lentement.
+Il fallut sept minutes avant que la tempête ne s'évanouisse totalement. La Planète de l'Empereur retrouva peu à peu son état normal et les distorsions s'estompèrent lentement.
 
 Bien que ce phénomène n'ait pas duré longtemps, il avait laissé Wang Lin le teint livide et le regard étincelant. Bien que le sort n'ait pas été pleinement activé, Wang Lin en avait perçu l'essence. Son cœur battait la chamade.
 

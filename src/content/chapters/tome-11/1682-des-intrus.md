@@ -62,7 +62,7 @@ Après avoir scellé la faille, la main droite de Wang Lin s'agita si vite qu'el
 
 Une fois cela accompli, Wang Lin resta silencieux, pensif, mais une certaine inquiétude le taraudait. Il leva la main droite vers le vide et le monde trembla. La tête géante qu'il avait récupérée dans l'ancienne tombe pour cultiver les Feuilles Anciennes apparut soudainement.
 
-Il restait encore une grande quantité d'arbres séchés sur celle-ci, mais de nombreuses Feuilles Anciennes avaient poussé. Il y a trois ans, lorsque Wang Lin avait absorbé toutes ces statues ancestrales dans le Royaume Ancestral, il avait lentement infusé de la puissance ancestrale en ce lieu. Ces feuilles avaient grandi grâce à cela.
+Il restait encore une grande quantité d'arbres séchés sur celle-ci, mais de nombreuses Feuilles Anciennes avaient poussé. Il y a trois ans, lorsque Wang Lin avait absorbé toutes ces statues ancestrales dans le Royaume Céleste Antique, il avait lentement infusé de la puissance ancestrale en ce lieu. Ces feuilles avaient grandi grâce à cela.
 
 D'un geste, quelques dizaines de feuilles anciennes complètes s'envolèrent des arbres pour atterrir dans la main de Wang Lin. Il agita la main et ces feuilles se posèrent sur la faille scellée, renforçant le sceau une fois de plus!
 
@@ -96,7 +96,7 @@ Au cours des cent dernières années, de nombreuses bêtes moustiques avaient é
 
 Après avoir reconstitué le Royaume Céleste du Vent, Wang Lin atterrit sur le continent et s'assit. Il ferma les yeux et son Sens Divin se propagea. Fusionnant avec ce continent, il le contrôla pour qu'il avance.
 
-Des grondements tonitruants retentirent. Sous le contrôle de Wang Lin, il extragit de force le Royaume Céleste du Vent de l'univers où il se trouvait pour le transporter dans la Mer des Nuages!
+Des grondements tonitruants retentirent. Sous le contrôle de Wang Lin, il extirpa de force le Royaume Céleste du Vent de l'univers où il se trouvait pour le transporter dans la Mer des Nuages!
 
 Le continent flottait là, émettant d'immenses quantités d'énergie céleste. Cette énergie était différente de celle du Continent Astral Immortel; elle avait été altérée par les Flammes Joss et constituait une énergie céleste propre au monde des grottes!
 
@@ -104,7 +104,7 @@ Il y a fort longtemps, le Seigneur du Royaume Céleste avait créé ces quatre c
 
 Les bêtes moustiques présentes sur le continent étaient écrasées par la pression de Wang Lin; elles ne pouvaient s'envoler, mais seulement trembler en suivant le mouvement du continent.
 
-Les étoiles rugissaient tandis que Wang Lin restait assis sur le continent. Bien que ses yeux fussent clos, son Sens Divin dirigeait la masse pour qu'elle vole vers la Rivière des Invocations. Il se dirigeait vers le Royaume Céleste de la Foudre!
+Les étoiles rugissaient tandis que Wang Lin restait assis sur le continent. Bien que ses yeux fussent clos, son Sens Divin dirigeait la masse pour qu'elle vole vers la Rivière Invoquée. Il se dirigeait vers le Royaume Céleste de la Foudre!
 
 Le Royaume Céleste de la Foudre était le seul qu'il n'avait pas encore visité. Cet endroit diffusait d'innombrables éclats lumineux créant un reflet magnifique.
 

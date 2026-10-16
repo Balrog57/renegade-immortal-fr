@@ -96,11 +96,11 @@ S'il reculait maintenant, il mourrait sans aucun doute dans le futur. Il valait 
 
 Cependant, à cet instant précis, un changement stupéfiant que personne n'aurait pu imaginer se produisit!!!
 
-Avant cette bataille, Wang Lin s'était fusionné avec l'Omniscient et avait utilisé une perle des Désobéissants pour déchirer le brouillard et entrevoir un espoir de survie!
+Avant cette bataille, Wang Lin s'était fusionné avec l'Omniscient et avait utilisé une Perle Défiant le Ciel pour déchirer le brouillard et entrevoir un espoir de survie!
 
 Cet espoir de survie était un jade appartenant à Liu Jinbiao!
 
-À cet instant, la planète de culture du taoïste Shui était sur le point de s'entrechoquer avec le vortex d'essences de Wang Lin, et ce dernier s'apprêtait à faire exploser ses essences pour qu'ils meurent tous les deux. Le jade qui s'était intégré à son âme originelle, disparu avec la Perle des Désobéissants et devenu indétectable pour le taoïste Shui, réapparut soudainement!
+À cet instant, la planète de culture du taoïste Shui était sur le point de s'entrechoquer avec le vortex d'essences de Wang Lin, et ce dernier s'apprêtait à faire exploser ses essences pour qu'ils meurent tous les deux. Le jade qui s'était intégré à son âme originelle, disparu avec la Perle Défiant le Ciel et devenu indétectable pour le taoïste Shui, réapparut soudainement!
 
 Le jade brilla intensément en émergeant du corps de Wang Lin pour flotter devant lui. Dès l'apparition du jade, le taoïste Shui trembla violemment et ses yeux furent envahis par la peur et la panique. Son visage devint livide, vidé de tout sang.
 

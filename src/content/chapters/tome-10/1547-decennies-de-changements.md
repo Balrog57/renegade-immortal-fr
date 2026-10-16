@@ -14,7 +14,7 @@ Quant au cultivateur du Clan de l'Hirondelle de Feu, il n'eut le temps de faire 
 
 Le grand oiseau de feu noir qu'il avait invoqué pour dévorer Maître Yan Leizi était imprégné de terreur. Ayant acquis une certaine intelligence, il commença à paniquer. Cependant, il fut lui aussi enveloppé par la lumière dorée et rayé de l'existence!
 
-Le cultivateur du Clan du Lou Céleste trembla. Il ne vit même pas la mort de son compagnon, car tout ce qui se trouvait devant lui fut remplacé par une lumière dorée. Il pouvait vaguement distinguer la silhouette floue de Wang Lin derrière cet éclat.
+Le cultivateur du Clan du Loup Céleste trembla. Il ne vit même pas la mort de son compagnon, car tout ce qui se trouvait devant lui fut remplacé par une lumière dorée. Il pouvait vaguement distinguer la silhouette floue de Wang Lin derrière cet éclat.
 
 Cette silhouette avait été son cauchemar durant ces dernières décennies. Il ne pourrait jamais oublier cet homme maniant une hache gigantesque, empêchant des dizaines de milliers de cultivateurs d'entrer et des dizaines de milliers d'autres de sortir. Il se souvenait encore de ce nom!
 
@@ -26,7 +26,7 @@ La puissance de cette hache avait anéanti d'innombrables cultivateurs lors de l
 
 Chaque fois qu'il passait près de cette faille, son cœur tremblait. Il ne pouvait oublier qu'il se trouvait de l'autre côté de cette hache à l'époque. Une multitude de ses compagnons étaient morts et il avait eu la chance de survivre. Il portait en lui une vie entière de cauchemars tandis qu'il reculait, terrifié.
 
-Aujourd'hui, il revoyait cette figure terrifiante. Sous l'emprise de cette peur indicible, le cultivateur du Clan du Lou Céleste sombra soudainement dans la folie!
+Aujourd'hui, il revoyait cette figure terrifiante. Sous l'emprise de cette peur indicible, le cultivateur du Clan du Loup Céleste sombra soudainement dans la folie!
 
 Avec un sourire tordu, il oublia de fuir. Sa peau fondit instantanément et son âme originelle s'effondra. Son existence disparut sur-le-champ!
 
@@ -40,11 +40,11 @@ Tout cela se produisit en un éclair. Pour Wang Lin, tuer ces deux petits cultiv
 
 « Les cinq Royaumes aux Sept Couleurs devinrent autant de portails vers le Royaume Intérieur, permettant aux cultivateurs du Royaume Extérieur de pénétrer chez nous. Utilisant ces Royaumes comme bases, ils purent envahir le Royaume Intérieur... Les pertes furent lourdes...
 
-« Lors de la seconde bataille, Senior Maître Hong Shan fut attaqué par ce garçon au regard glacial et d'autres cultivateurs de la troisième étape du Royaume Extérieur. Finalement, il fut piégé à l'intérieur du Royaume aux Sept Couleurs de la Rivière des Invocations, gardé par 30 000 cultivateurs! Actuellement, celui qui dirige le Royaume Intérieur est l'un de ses avatars.
+« Lors de la seconde bataille, Senior Maître Hong Shan fut attaqué par ce garçon au regard glacial et d'autres cultivateurs de la troisième étape du Royaume Extérieur. Finalement, il fut piégé à l'intérieur du Royaume aux Sept Couleurs de la Rivière Invoquée, gardé par 30 000 cultivateurs! Actuellement, celui qui dirige le Royaume Intérieur est l'un de ses avatars.
 
 « Senior Maître Nan Yunzi fut gravement blessé par le Souverain et s'est retiré en culture fermée. À ce jour, il ne montre aucun signe de sortie!
 
-« La seconde bataille affecta les quatre grands systèmes stellaires. Au moment le plus critique, l'Empereur Céleste Qing Lin quitta le Royaume Céleste de la Pluie pour mener les combats. Même avec les cultivateurs de la troisième étape de la Rivière des Invocations pour les ralentir, nous ne parvinons pas à stopper l'avancée de l'armée du Royaume Extérieur!
+« La seconde bataille affecta les quatre grands systèmes stellaires. Au moment le plus critique, l'Empereur Céleste Qing Lin quitta le Royaume Céleste de la Pluie pour mener les combats. Même avec les cultivateurs de la troisième étape de la Rivière Invoquée pour les ralentir, nous ne parvinons pas à stopper l'avancée de l'armée du Royaume Extérieur!
 
 « Le Royaume Extérieur possède bien plus de cultivateurs de la troisième étape que notre Royaume Intérieur. En fin de compte, l'Empereur Céleste Qing Lin utilisa un ancien sort céleste invoquant une lumière antique pour sceller la connexion entre les Royaumes aux Sept Couleurs et le Royaume Extérieur. Cela permit de sceller les passages pour une courte période, nous permettant de survivre de justesse à la seconde bataille!
 
@@ -52,7 +52,7 @@ Tout cela se produisit en un éclair. Pour Wang Lin, tuer ces deux petits cultiv
 
 « La bataille s'est apaisée pendant un certain temps. Le Royaume Extérieur aura besoin de temps pour briser la lumière antique. Après cela, tous les cultivateurs de la troisième étape se sont reposés, puis ont rassemblé les forces restantes pour lancer la troisième bataille. L'objectif était de pulvériser les cinq Royaumes aux Sept Couleurs...
 
-« Mais finalement, nous n'avons réussi à en détruire que trois, et les deux camps subirent de lourdes pertes. Plusieurs cultivateurs de la troisième étape du Royaume Extérieur furent tués ou gravement blessés, mais il en fut de même pour nous. L'Empereur Céleste Qing Lin fut gravement blessé, deux membres de la Rivière des Invocations périrent, et les autres furent tous contraints à une culture fermée pour guérir.
+« Mais finalement, nous n'avons réussi à en détruire que trois, et les deux camps subirent de lourdes pertes. Plusieurs cultivateurs de la troisième étape du Royaume Extérieur furent tués ou gravement blessés, mais il en fut de même pour nous. L'Empereur Céleste Qing Lin fut gravement blessé, deux membres de la Rivière Invoquée périrent, et les autres furent tous contraints à une culture fermée pour guérir.
 
 « Nous sommes maintenant dans la neuvième année suivant la troisième bataille. Selon les calculs de Maître Hong Shan, il ne faudra pas longtemps avant que le Royaume Extérieur ne brise la lumière antique. Ils entreront alors pour unir leurs forces aux deux Royaumes aux Sept Couleurs restants. Le Royaume Intérieur est en péril! »
 
@@ -60,19 +60,19 @@ Maître Yan Leizi expliqua rapidement à Wang Lin tout ce qui s'était passé. I
 
 Après avoir exposé ces faits avec ferveur, il cracha une bouchée de sang et parut extrêmement sinistre. Ses blessures se rouvrirent et il semblait toucher à sa fin.
 
-« Seigneur du Royaume Scellé!! Le Royaume Intérieur est en danger. Il n'y avait pas de Royaume aux Sept Couleurs dans Luotian. Celui de la Mer des Nuages a été détruit par vous. Après votre disparition, nous avons découvert les cinq autres sites. Hormis celui du Vide Brillant, tous se trouvaient à la Rivière des Invocations!
+« Seigneur du Royaume Scellé!! Le Royaume Intérieur est en danger. Il n'y avait pas de Royaume aux Sept Couleurs dans Luotian. Celui de la Mer des Nuages a été détruit par vous. Après votre disparition, nous avons découvert les cinq autres sites. Hormis celui du Vide Brillant, tous se trouvaient à la Rivière Invoquée!
 
-« En conséquence, la Rivière des Invocations est tombée dès le début de la seconde bataille... À ce jour, nous ne pouvons toujours pas reprendre ce territoire, devenu une province du Royaume Extérieur. Ils y oppriment sans cesse les cultivateurs locaux.
+« En conséquence, la Rivière Invoquée est tombée dès le début de la seconde bataille... À ce jour, nous ne pouvons toujours pas reprendre ce territoire, devenu une province du Royaume Extérieur. Ils y oppriment sans cesse les cultivateurs locaux.
 
-« Lors de la première bataille, la Mer des Nuages faillit s'effondrer, mais elle est restée sous notre contrôle. Luotian est le secteur le plus stable et n'a pas subi de grands bouleversements. Cependant, le Vide Brillant subit le même sort que la Rivière des Invocations. En raison du Royaume aux Sept Couleurs situé au Siège de l'Alliance, ce système stellaire est contrôlé par les deux camps!
+« Lors de la première bataille, la Mer des Nuages faillit s'effondrer, mais elle est restée sous notre contrôle. Luotian est le secteur le plus stable et n'a pas subi de grands bouleversements. Cependant, le Vide Brillant subit le même sort que la Rivière Invoquée. En raison du Royaume aux Sept Couleurs situé au Siège de l'Alliance, ce système stellaire est contrôlé par les deux camps!
 
 « Maître Hong Shan a tenté de détruire les Royaumes aux Sept Couleurs restants par crainte de devoir affronter deux fronts lors de la quatrième bataille. Il a essayé maintes fois, mais le Royaume Intérieur n'a plus la puissance nécessaire pour les anéantir... Tout le monde est en culture fermée... »
 
-Wang Lin médita silencieusement, une lueur de froideur dans les yeux. Il ne s'était pas attendu à ce que le temps s'écoule si différemment à l'intérieur de la Bête du Néant. Tant de combats avaient eu lieu au monde extérieur!
+Wang Lin médita silencieusement, une lueur de froideur dans les yeux. Il ne s'était pas attendu à ce que le temps s'écoule si différemment à l'intérieur de la Bête des Limbes. Tant de combats avaient eu lieu au monde extérieur!
 
-« La Rivière des Invocations est tombée... le Siège de l'Alliance est occupé par les cultivateurs du Royaume Extérieur... » Une intention meurtrière traversa le regard de Wang Lin.
+« La Rivière Invoquée est tombée... le Siège de l'Alliance est occupé par les cultivateurs du Royaume Extérieur... » Une intention meurtrière traversa le regard de Wang Lin.
 
-« Pourquoi es-tu ici? » L'intention meurtrière de Wang Lin fit fuir inconsciemment la lumière dorée. Lorsqu'elle toucha Maître Yan Leizi, il se sentit comme une fourmi face à un dieu; Wang Lin était pour lui comme les cieux eux-mêmes. Il avait depuis longtemps pressenti que Wang Lin était devenu encore plus puissant qu'auparavant.
+« Pourquoi es-tu ici? » L'intention meurtrière de Wang Lin fit s'échapper inconsciemment la lumière dorée. Lorsqu'elle toucha Maître Yan Leizi, il se sentit comme une fourmi face à un dieu; Wang Lin était pour lui comme les cieux eux-mêmes. Il avait depuis longtemps pressenti que Wang Lin était devenu encore plus puissant qu'auparavant.
 
 « Le Seigneur du Royaume Scellé a dit que vous viendriez... Je... je ne croyais pas que vous étiez mort, et j'ai deviné que vous surgiriez ici dès votre réapparition. Alors, je suis venu ici de nombreuses fois au fil des ans...
 

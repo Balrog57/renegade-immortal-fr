@@ -8,11 +8,11 @@ slug: je-suis-daccord
 ---
 Wang Lin ne manifesta pas ce violent bouleversement émotionnel. Ses yeux se calmèrent progressivement, mais derrière ce calme brûlait une flamme ardente.
 
-Il ne fut pas le premier à s'avancer; il attendit que les autres expriment leurs demandes avant de marcher lentement vers l'avant. Il joignit les mains devant Maître Yan Leizi et dit respectueusement: « Le disciple a une requête! »
+Il ne fut pas le premier à s'avancer; il attendit que les autres expriment leurs demandes avant de marcher lentement vers l'avant. Il joignit les mains devant Maître Yan Leizi et dit respectueusement: « Junior a une requête! »
 
 Maître Yan Leizi regarda Wang Lin et dit calmement: « Xu Mu, expose ta requête. »
 
-« La requête du disciple est de reformer la chair d'une Âme Naissante brisée et de l'éveiller! » Tandis que Wang Lin parlait, sa voix ne trahit aucune émotion. Cependant, son cœur battait si fort qu'il semblait sur le point d'exploser dans sa poitrine.
+« La requête de Junior est de reformer la chair d'une Âme Naissante brisée et de l'éveiller! » Tandis que Wang Lin parlait, sa voix ne trahit aucune émotion. Cependant, son cœur battait si fort qu'il semblait sur le point d'exploser dans sa poitrine.
 
 « Oh? » Les yeux de Maître Yan Leizi se plissèrent. Il réfléchit un instant avant de regarder le vieil homme Xiang et de dire: « Cette requête n'est pas difficile. Depuis les temps anciens, la famille Xiang possède un sort censé être très puissant. Il devrait pouvoir répondre à tes exigences. Qu'en dis-tu, Honorable Cultivateur Xiang? »
 

@@ -12,7 +12,7 @@ Même avec le niveau de culture actuel de Wang Lin, s'il voulait utiliser Nuit B
 
 Quant à Temps Fluide, bien qu'elle fût inférieure à Nuit Brisée en termes de puissance, la loi du temps était une force à laquelle on ne pouvait résister. Le temps est tout et il est invisible; il est comparable aux cieux.
 
-Le troisième sort de Wang Lin fut compris après qu'il eut été gravement blessé lors de son combat contre le Daoïste Water. À la frontière de la mort, Wang Lin était entré dans le mystérieux Domaine du Dao à l'intérieur de la Perle Défiant le Ciel. Même aujourd'hui, il n'était pas certain de ce qu'était réellement ce Domaine du Dao!
+Le troisième sort de Wang Lin fut compris après qu'il eut été gravement blessé lors de son combat contre le Shui Daozi. À la frontière de la mort, Wang Lin était entré dans le mystérieux Domaine du Dao à l'intérieur de la Perle Défiant le Ciel. Même aujourd'hui, il n'était pas certain de ce qu'était réellement ce Domaine du Dao!
 
 À l'intérieur du Domaine du Dao, deux sorts apparurent dans l'esprit de Wang Lin. Le premier était le sort qui avait gravement blessé l'Omniscient et qui était le sort salvateur d'un Dieu Ancien à 8 étoiles: le Rêve des Temps Anciens!
 
@@ -26,7 +26,7 @@ Le Rêve des Temps Anciens était un sort de Dieu Ancien; il ne pouvait donc pas
 
 Pourtant, ce sort était tout simplement trop magnifique. Normalement, Wang Lin n'aurait pas été capable de le comprendre, mais en s'appuyant sur le Domaine du Dao, il avait fait preuve d'une persévérance et d'une ténacité sans faille pour fusionner les deux en un seul: le Dao des Rêves!
 
-De retour dans la Mer de Nuages, à l'extérieur de la Secte Démon, Wang Lin ne l'avait testé que sur l'Ancien Fléau des Cieux. Si Wang Lin ne l'avait pas prévenu, le cœur de Dao de cet Ancien se serait effondré, entraînant sa mort!
+De retour dans la Mer des Nuages, à l'extérieur de la Secte Démon, Wang Lin ne l'avait testé que sur l'Ancien Fléau Céleste. Si Wang Lin ne l'avait pas prévenu, le cœur de Dao de cet Ancien se serait effondré, entraînant sa mort!
 
 Le Dao des Rêves, bien que son nom paraisse complexe, était en réalité une forme de démon intérieur!
 
@@ -38,9 +38,9 @@ Le Dao des Rêves pouvait ramener une personne à son passé! Bien qu'il ne puis
 
 Ce faux souvenir existerait éternellement dans l'esprit de la victime et deviendrait réel! C'était cela, implanter un démon intérieur!
 
-Ce souffle d'air s'échappant de la bouche de Wang Lin était son essence de Dao, qui pénétra dans le Fourneau Impérial... Le Maître Simo regarda l'ombre derrière lui et fut frappé de stupeur. Cette ombre l'avait accompagné pendant des dizaines de milliers d'années et faisait partie intégrante de sa vie. Pourtant, cette silhouette n'avait jamais prononcé un seul mot!
+Ce souffle d'air s'échappant de la bouche de Wang Lin était son essence de Dao, qui pénétra dans le Fourneau de l'Empereur... Le Maître Simo regarda l'ombre derrière lui et fut frappé de stupeur. Cette ombre l'avait accompagné pendant des dizaines de milliers d'années et faisait partie intégrante de sa vie. Pourtant, cette silhouette n'avait jamais prononcé un seul mot!
 
-Elle... aurait dû être morte. Une douleur intense lui lacéra le cœur... Le rouleau de soie blanche était un objet qu'elle portait, et ce sang avait été recraché par le Maître Simo sous le coup de son propre chagrin et de son indignation... Le corps du Maître Simo trembla et son expression se mua. Il resta pétrifié sur place, oubliant totalement l'os de bête qu'il tenait, oubliant même de poser sa paume dessus.
+Elle... aurait dû être morte. Une douleur intense lui lacéra le cœur... Le rouleau de soie blanche était un objet qu'elle portait, et ce sang avait été recraché par le Maître Simo sous le coup de son propre chagrin et de son indignation... Le corps du Maître Simo trembla et son expression se mua en entendant ces mots. Il resta pétrifié sur place, oubliant totalement l'os de bête qu'il tenait, oubliant même de poser sa paume dessus.
 
 La flamme de la taille d'un ongle entre ses sourcils brilla avec une violence accrue!
 
@@ -48,7 +48,13 @@ La flamme de la taille d'un ongle entre ses sourcils brilla avec une violence ac
 
 « Grand Frère, Grand Frère, viens vite voir. Des orchidées violettes ont poussé ici... »
 
-« Grand Frère, ne dors pas tout le temps, tu avais promis de jouer avec moi aujourd'hui... » Le garçon était un peu plus âgé. Après avoir ouvert les yeux pour marmonner quelques mots, il se rendormit.
+« Grand Frère, ne dors pas tout le temps, tu avais promis de jouer avec moi aujourd'hui... » « Grand Frère, Grand Frère... »
+
+Dans le Système Stellaire de la Mer des Nuages, dans un village mortel sur un continent, une fillette de sept ou huit ans boudait en poussant un garçon endormi à côté d'elle.
+
+« Petite Lan, laisse-moi dormir encore un peu. Hier soir, je suis allé avec Petit Tiger et les autres voler des œufs, je suis épuisé... »
+
+Le garçon était un peu plus âgé. Après avoir ouvert les yeux pour marmonner quelques mots, il se rendormit.
 
 Le temps sembla s'écouler et les années passèrent... « Grand Frère, Tiger m'a harcelée aujourd'hui. Il... Il m'a embrassée en cachette! » Sur un sentier du village, un adolescent et une adolescente marchaient sous le soleil couchant.
 

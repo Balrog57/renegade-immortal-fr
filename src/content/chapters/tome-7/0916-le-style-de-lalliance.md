@@ -30,7 +30,7 @@ Les pupilles de Lei Ji se rétractèrent. Face aux dix-huit couches de l'enfer, 
 
 Wang Lin frappa son sac de rangement et deux sphères de lumière apparurent dans sa main. Il s'agissait de deux âmes originelles. L'une appartenait au Vice-Maître de la Salle de Rancœur de la Secte des Cadavres, et l'autre était ce que ce dernier avait offert à Wang Lin pour lui sauver la vie.
 
-Après avoir réfléchi un instant, Wang Lin décida de ne pas les envoyer dans les dix-huit couches de l'enfer et les remit dans son sac. Ces deux âmes originelles du stade précoce de l'Éveil du Nirvana étaient cruciales pour restaurer sa culture. Il les garda au cas où il en aurait besoin plus tard.
+Après avoir réfléchi un instant, Wang Lin décida de ne pas les envoyer dans les dix-huit couches de l'enfer et les remit dans son sac. Ces deux âmes originelles du stade précoce du Scruteur du Nirvana étaient cruciales pour restaurer sa culture. Il les garda au cas où il en aurait besoin plus tard.
 
 À cet instant, il se redressa, fixa le ciel, forma un sceau de la main et pointa le Tampon de Scellement Céleste. Celui-ci rétrécit et fut englouti par Wang Lin.
 

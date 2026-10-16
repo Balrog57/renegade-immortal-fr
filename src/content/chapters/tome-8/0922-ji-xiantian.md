@@ -40,7 +40,7 @@ Cependant, la contre-attaque de Maître Yan Leizi et l'intervention des 18 Lou F
 
 Désormais, les cultivateurs de Luotian n'étaient plus isolés. Il leur suffisait de tenir jusqu'à l'arrivée des renforts pour que le camp de Luotian reprenne un avantage absolu!
 
-L'expression du Saint Démon du Noir était sombre. Comment pouvait-il laisser Maître Yan Leizi agir à sa guise? Pourtant, le Dieu de Sang était un être doté d'un niveau de culture extrêmement élevé. Tandis qu'ils se affrontaient, les collisions de leurs sorts étaient cataclysmiques et leurs grondements résonnaient à travers les étoiles.
+L'expression du Saint Démon du Noir était sombre. Comment pouvait-il laisser Maître Yan Leizi agir à sa guise? Pourtant, le Dieu de Sang était un être doté d'un niveau de culture extrêmement élevé. Tandis qu'ils s'affrontaient, les collisions de leurs sorts étaient cataclysmiques et leurs grondements résonnaient à travers les étoiles.
 
 Ces affrontements généraient d'immenses ondes de choc. Tout cultivateur touché par ces remous mourait instantanément!
 
@@ -52,11 +52,11 @@ Au même moment, un pilier de lumière violette descendit du ciel. Ce pilier, do
 
 Un rire jaillit du pilier de lumière et une silhouette en émergea! C'était un homme d'âge moyen vêtu d'une robe jaune. Il était beau, et alors qu'il avançait, deux illusions de dragons tournaient autour de son corps en rugissant.
 
-« Maître Yan Leizi, votre nom m'est connu depuis longtemps! Ce vieil homme est l'un des nouveaux saints de l'Alliance: le Saint Démon du Dragon Céleste! »
+« Maître Yan Leizi, votre nom m'est connu depuis longtemps! Ce vieil homme est l'un des nouveaux saints de l'Alliance: le Saint Démon du Dragon des Nuages! »
 
-Les yeux de Maître Yan Leizi s'illuminèrent, mais il ne l'attaqua pas immédiatement. Cependant, les ancêtres des familles de culture d'autrefois s'animèrent. Tous trois chargèrent vers le Saint Démon du Dragon Céleste.
+Les yeux de Maître Yan Leizi s'illuminèrent, mais il ne l'attaqua pas immédiatement. Cependant, les ancêtres des familles de culture d'autrefois s'animèrent. Tous trois chargèrent vers le Saint Démon du Dragon des Nuages.
 
-« Les quatre saints de l'Alliance de la Culture sont tous au stade intermédiaire de la Rupture du Nirvana. La culture du Dieu de Sang est indéterminée, et il est capable de combattre seul. Les trois autres camarades ne sont qu'au stade initial de la Rupture du Nirvana; ils doivent donc unir leurs forces pour espérer tenir! Pourtant, ces individus ne sont pas les plus puissants de cette bataille! » Les yeux de Maître Yan Leizi brillèrent, mais il ne daigna pas regarder le Saint Démon du Dragon Céleste à la robe jaune. Au lieu de cela, il fixa le vide devant lui et dit calmement: « Les quatre saints de l'Alliance n'agissent jamais seuls. Ji Xiantian, pourquoi te caches-tu encore? »
+« Les quatre saints de l'Alliance de la Culture sont tous au stade intermédiaire du Briseur du Nirvana. La culture du Dieu de Sang est indéterminée, et il est capable de combattre seul. Les trois autres camarades ne sont qu'au stade initial du Briseur du Nirvana; ils doivent donc unir leurs forces pour espérer tenir! Pourtant, ces individus ne sont pas les plus puissants de cette bataille! » Les yeux de Maître Yan Leizi brillèrent, mais il ne daigna pas regarder le Saint Démon du Dragon Céleste à la robe jaune. Au lieu de cela, il fixa le vide devant lui et dit calmement: « Les quatre saints de l'Alliance n'agissent jamais seuls. Ji Xiantian, pourquoi te caches-tu encore? »
 
 Tandis que Maître Yan Leizi parlait, il avança pour se placer aux côtés des 18 Lou Fu. Puis, de ses deux doigts, il pointa impitoyablement vers l'avant.
 
@@ -102,9 +102,9 @@ Au centre du champ de bataille, les flammes de Maître Yan Leizi étaient monstr
 
 Parallèlement à ces craquements, d'innombrables glaciers surgirent, imposants, s'élançant droit vers le ciel. Ji Xiantian était entouré de glaces semblables à des épines acérées pointées vers les cieux, faisant face à Maître Yan Leizi.
 
-« Maître Yan Leizi, nous t'avons laissé échapper lors de la bataille d'il y worth des dizaines de milliers d'années. Aujourd'hui, en l'absence de Zhong Xuanzi, je vais te tuer ici et maintenant! » La voix tranchante de Ji Xiantian était comme une lame de glace, empreinte d'un froid absolu et d'une intention meurtrière sans fin.
+« Maître Yan Leizi, nous t'avons laissé échapper lors de la bataille d'il y a des dizaines de milliers d'années. Aujourd'hui, en l'absence de Zhong Xuanzi, je vais te tuer ici et maintenant! » La voix tranchante de Ji Xiantian était comme une lame de glace, empreinte d'un froid absolu et d'une intention meurtrière sans fin.
 
-Ce Ji Xiantian ressemblait à une femme extrêmement séduisante. Pourtant, en regardant de plus près, on remarquait que sa poitrine était plate et que, malgré sa petite taille, son pomme d'Adam était bien visible! C'était manifestement un homme!
+Ce Ji Xiantian ressemblait à une femme extrêmement séduisante. Pourtant, en regardant de plus près, on remarquait que sa poitrine était plate et que, malgré sa petite taille, sa pomme d'Adam était bien visible! C'était manifestement un homme!
 
 Le regard de Maître Yan Leizi resta calme alors qu'il levait la main droite vers le vide. L'énergie d'origine du monde se rassembla frénétiquement pour former une sphère de flammes blanches dans sa paume. Il fixa Ji Xiantian et dit lentement: « Quand je suis parti, j'ai déclaré que si le jour venait où je reviendrais, je ferais disparaître l'Alliance de la Culture. Peu importe si le ciel se couvre de sang après ma mort! »
 

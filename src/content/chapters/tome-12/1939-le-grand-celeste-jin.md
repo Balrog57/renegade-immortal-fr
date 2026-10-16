@@ -48,7 +48,7 @@ Alors que la foule discutait avec enthousiasme, oubliant presque la chaleur, une
 
 Au loin, un parasol rouge d'une envergure de plusieurs centaines de pieds s'ouvrit, révélant en dessous un siège de bambou pourpre. Quatre hommes robustes vêtus de robes dorées portaient le siège.
 
-Autour de ces quatre colosses défilait une douzaine d'enfants qui transportaient des fioles précieuses, des éventails ou des jades étincelants.
+Autour de ces quatre colosses défilait des dizaines d'enfants qui transportaient des fioles précieuses, des éventails ou des jades étincelants.
 
 Sur le siège trônait un vieil homme aux cheveux blancs. Il dégageait une aura si pure qu'il ressemblait à un véritable être céleste au premier coup d'œil!
 

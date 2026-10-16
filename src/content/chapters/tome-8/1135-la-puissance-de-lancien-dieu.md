@@ -82,7 +82,7 @@ Seul Wang Lin fixait Tuo Sen, et plus particulièrement l'étoile située sur so
 
 « Enterrer le vide pour affiner les étoiles! »
 
-« Inutile! » Un bourdonnement retentit alors que Tuo Sen agitait ses mains vers le vieil homme, provoquant une immense rafale de vent. Ses bras se déplacèrent avec la rapidité d'une Manipulation Spatiale et encerclèrent instantanément le vieil homme. Ses deux mains étaient comme deux planètes de culture s'écrasant sur lui.
+« Déchets! » Un bourdonnement retentit alors que Tuo Sen agitait ses mains vers le vieil homme, provoquant une immense rafale de vent. Ses bras se déplacèrent avec la rapidité d'une Manipulation Spatiale et encerclèrent instantanément le vieil homme. Ses deux mains étaient comme deux planètes de culture s'écrasant sur lui.
 
 Le visage du vieil homme devint à nouveau pourpre et ses vêtements gonflèrent. Il écarta ses bras gauche et droit dans un rugissement, faisant condenser une énergie originelle infinie devant lui. Des glaciers apparurent soudainement, suivis d'une mer de flammes. Puis, par-delà cela, d'innombrables montagnes surgirent, suivies d'un tonnerre infini...
 

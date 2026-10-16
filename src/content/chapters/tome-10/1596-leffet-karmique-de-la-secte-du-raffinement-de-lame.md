@@ -1,12 +1,12 @@
 ---
 n: 1596
-title: "L'effet karmique de la Secte du Affinement de l'Âme"
+title: "L'effet karmique de la Secte de l'Affinement de l'Âme"
 book: 10
 bookTitle: Rampage Through the Inner Realm
 en: Chapter 1596 - Soul Refining Secte’s Karmic Effect
 slug: leffet-karmique-de-la-secte-du-raffinement-de-lame
 ---
-« Serait-il possible que ma Secte du Affinement de l'Âme n'ait plus aucune chance de renaître, aucune chance de perdurer... » L'homme d'âge moyen sembla sombrer dans la folie et se mit à rire. Cependant, à cet instant précis, son expression changea et il fixa l'horizon.
+« Serait-il possible que ma Secte de l'Affinement de l'Âme n'ait plus aucune chance de renaître, aucune chance de perdurer... » L'homme d'âge moyen sembla sombrer dans la folie et se mit à rire. Cependant, à cet instant précis, son expression changea et il fixa l'horizon.
 
 « Hein! » Ses yeux se plissèrent et ses mains formèrent un sceau. Il commença à diviner avec frénésie.
 
@@ -58,7 +58,7 @@ Wang Lin prit plusieurs inspirations profondes pour se calmer lentement. Après 
 
 Deux fonctionnaires en robe surveillaient froidement les érudits. Leur présence imposait une atmosphère solennelle. Wang Lin resta calmement debout à observer la zone d'examen, retrouvant peu à peu son sang-froid.
 
-Grande Fortune regardait partout, mais plus il observait, plus il devenait sombre de visage. Il vit que les autres jeunes érudits étaient bien plus jeunes que lui; en comparaison, il semblait déplacé.
+Grande Fortune regardait partout, mais plus il observait, plus il devenait sombre de visage. Il vit que les autres serviteurs étaient bien plus jeunes que lui; en comparaison, il semblait déplacé.
 
 Après avoir marmonné quelques mots, Grande Fortune sortit des brioches et en prit de grandes bouchées.
 
@@ -124,4 +124,4 @@ Un homme d'âge moyen vêtu d'une robe noire émergea du vent noir. Une aura gla
 
 « Ce vieil homme ne te fera aucun mal, tu as seulement une question à répondre. »
 
-Il était le frère aîné de Dun Tian, de la Secte du Affinement de l'Âme! Presque tous les érudits de ce pays avaient été trouvés par lui, et il leur avait posé la même question. Puis, déçu, il effaçait leurs souvenirs avant de partir en quête de la proie suivante.
+Il était le frère aîné de Dun Tian, de la Secte de l'Affinement de l'Âme! Presque tous les érudits de ce pays avaient été trouvés par lui, et il leur avait posé la même question. Puis, déçu, il effaçait leurs souvenirs avant de partir en quête de la proie suivante.

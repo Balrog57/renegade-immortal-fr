@@ -22,7 +22,7 @@ Certains furent projetés vers le ciel, où ils tournoyaient avant de disparaît
 
 Il se tenait en équilibre sur une feuille avec son pied droit. La moitié de ladite feuille luttait encore dans l'eau boueuse sous les assauts du vent...
 
-Une étrange marque ornait son entreceinte!
+Une étrange marque ornait entre ses sourcils!
 
 Derrière lui se tenaient sept cultivateurs d'âge moyen au regard glacial. D'un geste de la main, les sept individus encerclèrent immédiatement le vieil homme et formèrent des sceaux de leurs mains. Une lueur diffuse émana de chacun d'eux, formant des filaments semblables à des éclairs qui se connectèrent au corps du vieil homme.
 
@@ -38,7 +38,7 @@ Non seulement le temps des demeures s'inversait, mais même les mortels qui y r�
 
 Certaines personnes ayant vécu ici et étant décédées depuis longtemps semblaient ressusciter. Leurs vies se déroulaient sous les yeux du vieil homme.
 
-Wang Lin était toujours assis à l'intérieur de la maison. L'assimilation de l'éclair éternel au sein de son âme originelle avait atteint un moment critique. L'éclair éternel contenait une volonté qui luttait frénétiquement, poussant des rugissements tonnantes semblables au tonnerre extérieur.
+Wang Lin était toujours assis à l'intérieur de la maison. L'assimilation de l'éclair éternel au sein de son âme originelle avait atteint un moment critique. L'éclair éternel contenait une volonté qui luttait frénétiquement, poussant des rugissements tonnants semblables au tonnerre extérieur.
 
 Cependant, malgré ses efforts pour se libérer, elle ne pouvait s'échapper du corps de Wang Lin. Après que l'âme originelle de Wang Lin eut dévoré les huit anciens dragons de tonnerre, elle s'était transformée en un éclair. C'était comme si deux éclairs éternels s'affrontaient depuis l'aube des temps. Un seul pouvait subsister, un seul pouvait devenir le véritable roi du tonnerre!
 
@@ -88,7 +88,7 @@ C'était la première image. Elle fut très brève, mais le choc qu'elle inflige
 
 Toutefois, il était des milliers de fois plus puissant que lorsqu'il l'avait dévoré!
 
-Dans la deuxième image, l'éclair nageait dans la paume d'un homme. C'était un homme d'âge moyen au regard indifférent. Un tatouage en forme de fleur ornait son entreceinte; une fleur à sept pétales représentant les sept couleurs.
+Dans la deuxième image, l'éclair nageait dans la paume d'un homme. C'était un homme d'âge moyen au regard indifférent. Un tatouage en forme de fleur ornait entre ses sourcils; une fleur à sept pétales représentant les sept couleurs.
 
 — Hélas, cet ancien éclair divin du vide ne redeviendra jamais ce qu'il était autrefois... Peu importe, je vais simplement vous envoyer dehors et voir quelle est votre chance, dit l'homme d'âge moyen en secouant la tête et en agitant la main. L'éclair gronda alors qu'il plongeait dans l'infini avant de disparaître.
 

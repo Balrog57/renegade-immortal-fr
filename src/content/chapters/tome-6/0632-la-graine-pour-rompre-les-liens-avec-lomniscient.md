@@ -36,7 +36,7 @@ L'expression de Cupidité demeura sombre tandis qu'il laissait échapper un rire
 
 « Chers neveux, que signifie ce comportement? »
 
-Chen Long déclara d'un ton solennel: « Aîné Cupidité, le junior souhaite savoir ce que vous avez obtenu dans cette grotte! »
+Chen Long déclara d'un ton solennel: « Senior Cupidité, le junior souhaite savoir ce que vous avez obtenu dans cette grotte! »
 
 Une lueur de dédain passa dans les yeux de Cupidité lorsqu'il répondit: « Tu veux savoir? » Sur ces mots, il frappa son sac de rangement et un œuf de forme ovale apparut dans sa main.
 

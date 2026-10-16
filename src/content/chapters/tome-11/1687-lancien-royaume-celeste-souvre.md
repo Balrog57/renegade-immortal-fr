@@ -99,7 +99,7 @@ Après ces dizaines d'individus, d'autres figures dorées continuèrent de surgi
 
 Qing Lin et son groupe étaient les plus proches. Tandis que la lumière dorée emplissait le ciel, ils affichaient tous des expressions solennelles. Maître Hong Shan et Maître Nan Yunzi joignirent les mains en signe de respect.
 
-Pourtiment, comparé à eux, Qing Lin était le plus exalté. Il fit un pas en avant, joignit les mains face aux silhouettes dorées et s'adressa à elles d'un ton respectueux:
+Pourtant, comparé à eux, Qing Lin était le plus exalté. Il fit un pas en avant, joignit les mains face aux silhouettes dorées et s'adressa à elles d'un ton respectueux:
 
 « Le disciple du Seigneur du Royaume Scellé, Qing Lin, salue les anciens célestes! »
 

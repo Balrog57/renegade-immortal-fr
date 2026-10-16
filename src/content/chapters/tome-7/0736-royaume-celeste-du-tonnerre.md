@@ -98,7 +98,7 @@ Tous les regards suivirent immédiatement la scène. Ils virent le clone toucher
 
 Simultanément, un éclair de tonnerre rouge sombre jaillit vers le cultivateur qui avait envoyé le clone.
 
-L'expression de ce dernier changea radicalement. Bien qu'il fût au stade de l'Illusion Yin, face à ce tonnerre, son cuir chevelu devint engourdi et il manqua de perdre la raison. Il fit volte-face pour s'enfuir, mais le tonnerre rouge le poursuivit de près. L'éclair pénétra son corps avant d'en ressortir après avoir effectué un cycle complet à l'intérieur de lui.
+L'expression de ce dernier changea radicalement. Bien qu'il fût au stade de l'Yin Illusoire, face à ce tonnerre, son cuir chevelu devint engourdi et il manqua de perdre la raison. Il fit volte-face pour s'enfuir, mais le tonnerre rouge le poursuivit de près. L'éclair pénétra son corps avant d'en ressortir après avoir effectué un cycle complet à l'intérieur de lui.
 
 Le cultivateur trembla, puis tout son être, ainsi que son âme originelle et sa sacoche de rangement, s'effondrèrent!
 

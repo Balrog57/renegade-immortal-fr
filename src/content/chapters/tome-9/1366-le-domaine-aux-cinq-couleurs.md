@@ -44,11 +44,11 @@ Cela était directement lié au fait qu'il possédait cinq essences dans son cor
 
 Dehors, la pluie continuait de tomber tandis que des éclairs déchiraient parfois le ciel. Wang Lin se leva, saisit sa veste imperméable déchirée, l'enfila et franchit le seuil.
 
-Dès qu'il ouvrit la porte, un éclair frappa, illuminant la rue sombre. La pluie créait une brume épaisse, rendant toute visibilité lointaine impossible. Aucune lumière ne émanait des maisons; elles étaient manifestement déjà plongées dans le sommeil.
+Dès qu'il ouvrit la porte, un éclair frappa, illuminant la rue sombre. La pluie créait une brume épaisse, rendant toute visibilité lointaine impossible. Aucune lumière n'émanait des maisons; elles étaient manifestement déjà plongées dans le sommeil.
 
 Par intermittence, on entendait les cris d'enfants réveillés par le tonnerre, bientôt apaisés et bercés à nouveau par leurs parents.
 
-Le bruissement de la pluie créait des ondulations sur le sol jonché de feuilles mortes. Wang Lin resta un instant sur le seuil, observant le ciel brièvement éclairé par la foudre. Puis, il resserra sa veste autour de lui et s'avanée.
+Le bruissement de la pluie créait des ondulations sur le sol jonché de feuilles mortes. Wang Lin resta un instant sur le seuil, observant le ciel brièvement éclairé par la foudre. Puis, il resserra sa veste autour de lui et s'avança.
 
 À part Wang Lin, la rue était déserte. Outre la pluie, seul le vent l'accompagnait dans cette marche silencieuse.
 

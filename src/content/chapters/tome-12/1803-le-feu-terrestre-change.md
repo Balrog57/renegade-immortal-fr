@@ -10,7 +10,7 @@ Ce serait la première fois que Wang Lin ouvrirait les yeux sur le Continent Ast
 
 C'était la première fois qu'il voyait le Continent Astral Immortel de ses propres yeux. C'était la première fois qu'il ressentait lui-même l'aura de ce monde!
 
-À son réveil, Wang Lin vérifia le Cercueil Évitant les Cieux derrière lui. Après s'être assuré que tout était en ordre, il examina le feu terrestre qui l'entourait.
+À son réveil, Wang Lin vérifia le Cercueil d'Évitement Céleste derrière lui. Après s'être assuré que tout était en ordre, il examina le feu terrestre qui l'entourait.
 
 Comment un simple feu terrestre pourrait-il oser brûler Wang Lin?
 
@@ -102,7 +102,7 @@ Ce regard fit trembler le cœur du jeune homme, qui manqua de perdre pied.
 
 Le vieil homme aux cheveux blancs observa la mer de flammes et désigna la grotte de Kang Ren: « Cet individu a ramené deux corps d'un lieu inconnu, et le changement du feu terrestre s'est produit alors qu'il raffinait ses marionnettes. »
 
-« Le Maître de la Secte et l'Ancêtre sont partis vers le Grande Secte des Âmes. J'ai déjà envoyé un jade de message, ils devraient être en route. Puisqu'il est possible que cela soit causé par les deux corps ramenés par Kang Ren, alors ce vieil homme va voir quel genre de corps peut provoquer une telle mutation du feu! » Une lueur d'intention meurtrière traversa les yeux de l'homme d'âge moyen. Ce changement imprévu avait pris la Secte du Dragon Bleu au dépourvu. Bien qu'il n'y eût pas eu de morts, de nombreux bâtiments avaient été détruits ainsi que de vastes réserves d'herbes célestes.
+« Le Maître de la Secte et l'Ancêtre sont partis vers la Secte de la Grande Âme. J'ai déjà envoyé un jade de message, ils devraient être en route. Puisqu'il est possible que cela soit causé par les deux corps ramenés par Kang Ren, alors ce vieil homme va voir quel genre de corps peut provoquer une telle mutation du feu! » Une lueur d'intention meurtrière traversa les yeux de l'homme d'âge moyen. Ce changement imprévu avait pris la Secte du Dragon Bleu au dépourvu. Bien qu'il n'y eût pas eu de morts, de nombreux bâtiments avaient été détruits ainsi que de vastes réserves d'herbes célestes.
 
 Le prix à payer était bien trop lourd!
 

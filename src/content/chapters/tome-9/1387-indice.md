@@ -28,7 +28,7 @@ Chevauchant ces deux démons, Cupidité accéléra encore davantage et disparut 
 
 Une force de recul jaillit alors vers Wang Lin!
 
-« Quel genre de feuille est-ce là? » Les pupilles de Wang Lin se rétractèrent. Plutôt que de résister par la force brute, il utilisa la Déviation Spatiale pour contourner la feuille et poursuivre Cupidité.
+« Quel genre de feuille est-ce là? » Les pupilles de Wang Lin se rétractèrent. Plutôt que de résister par la force brute, il utilisa la Distorsion Spatiale pour contourner la feuille et poursuivre Cupidité.
 
 Après le départ de Wang Lin, les ondulations s'estompèrent progressivement. La feuille émit une lueur jaune avant de disparaître elle aussi.
 
@@ -66,7 +66,7 @@ Lorsqu'il leva les yeux, Cupidité avait déjà disparu sans laisser de trace. L
 
 « Je commence à comprendre sa personnalité. À moins d'être poussé dans ses derniers retranchements, il sort rarement tous ses trésors d'un coup, contrairement à ce qu'il fit sur la planète de culture. Il ne les utilise généralement qu'un par un! »
 
-« Il cache aussi bien des secrets. Peu importe la manière dont il a obtenu ces trésors, la méthode qu'il a utilisée pour pénétrer dans le Système d'Étoiles Anciennes est une information que je dois absolument obtenir! » Wang Lin se pencha en avant et disparut soudainement.
+« Il cache aussi bien des secrets. Peu importe la manière dont il a obtenu ces trésors, la méthode qu'il a utilisée pour pénétrer dans le Système Stellaire Antique est une information que je dois absolument obtenir! » Wang Lin se pencha en avant et disparut soudainement.
 
 Deux êtres volaient à travers l'espace, l'un fuyant et l'autre poursuivant, provoquant un grondement tonitruant à travers la Terre Déchue. Cela attira l'attention des habitants de la Terre Déchue, mais après avoir constaté la vitesse prodigieuse des deux individus, ils décidèrent de les ignorer.
 

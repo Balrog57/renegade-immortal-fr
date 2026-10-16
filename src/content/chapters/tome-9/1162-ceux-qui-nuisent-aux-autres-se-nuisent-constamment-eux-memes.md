@@ -6,25 +6,25 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1162 - Those Who Harm Others are Constantly Hurting Themselves
 slug: ceux-qui-nuisent-aux-autres-se-nuisent-constamment-eux-memes
 ---
-La Secte des Cinq Pois de rang 6 était considéré comme une force relativement puissante parmi les sectes de ce niveau; il était l'égal de la Secte de la Fleur Claire. De nombreuses frictions existaient entre les deux sectes, et elles se livraient à de constantes joutes.
+La Secte des Cinq Poisons de rang 6 était considérée comme une force relativement puissante parmi les sectes de ce niveau; il était l'égal de la Secte de la Fleur Claire. De nombreuses frictions existaient entre les deux sectes, et elles se livraient à de constantes joutes.
 
-Zhou Hai était un disciple central de la Secte des Cinq Pois. Son niveau de culture n'était pas aussi élevé que celui de la Vieille Femme Poisonneuse, se situant seulement au début du stade de la Purification du Nirvana. Cependant, il était un membre influent de la Secte des Cinq Pois, et la secte lui accordait une importance considérable.
+Zhou Hai était un disciple central de la Secte des Cinq Poisons. Son niveau de culture n'était pas aussi élevé que celui de la Vieille Femme Poisonneuse, se situant seulement au début du stade de la Purification du Nirvana. Cependant, il était un membre influent de la Secte des Cinq Poisons, et la secte lui accordait une importance considérable.
 
-À cet instant, son expression était sombre et une lueur bleue brillait dans son œil droit. Bien que cette lumière fût esthétique, elle résultait de la culture d'une technique de poison propre à la Secte des Cinq Pois.
+À cet instant, son expression était sombre et une lueur bleue brillait dans son œil droit. Bien que cette lumière fût esthétique, elle résultait de la culture d'une technique de poison propre à la Secte des Cinq Poisons.
 
 « Le compagnon cultivateur Zhou est resté morose durant tout le trajet. Si quelqu'un ignorant la situation vous voyait, il serait bien confus de votre état. » Une voix féminine émana d'un cultivateur vêtu de noir à ses côtés. Ce dernier était un homme, mais son maquillage lui donnait l'apparence correspondant à sa voix.
 
 Un éclair de froideur passa dans les yeux de Zhou Hai alors qu'il fixait le cultivateur en noir: « Zhao Yu, j'ai enduré tes provocations tout au long du voyage. Si tu continues tes sarcasmes, ne me reproche pas de ne plus me retenir! »
 
-« La Secte des Cinq Pois est donc bien puissant. Je veux voir si votre secte oserait affronter ma Secte de la Collection Démoniaque! » Le cultivateur en noir sourit, mais ce sourire était d'une froideur extrême.
+« La Secte des Cinq Poisons est donc bien puissant. Je veux voir si votre secte oserait affronter ma Secte de la Collection Démoniaque! » Le cultivateur en noir sourit, mais ce sourire était d'une froideur extrême.
 
 La lueur bleue de l'œil droit de Zhou Hai s'intensifia, mais à cet instant précis, un reniflement glacial retentit près d'eux.
 
-« Cela suffit! Nous sommes trois représentants de nos sectes respectives pour traquer le traître de la Secte des Cinq Pois. Nous ne pouvons nous battre entre nous! » L'homme qui venait de parler était un quadragénaire au milieu du stade de la Purification du Nirvana. Après son intervention, Zhou Hai et Zhao Yu se lancèrent des regards hostiles avant de laisser échapper des reniflements froids et de réprimer l'énergie originelle qu'ils s'apprêtaient à déchaîner.
+« Cela suffit! Nous sommes trois représentants de nos sectes respectives pour traquer le traître de la Secte des Cinq Poisons. Nous ne pouvons nous battre entre nous! » L'homme qui venait de parler était un quadragénaire au milieu du stade de la Purification du Nirvana. Après son intervention, Zhou Hai et Zhao Yu se lancèrent des regards hostiles avant de laisser échapper des reniflements froids et de réprimer l'énergie originelle qu'ils s'apprêtaient à déchaîner.
 
-Cet homme d'âge moyen était un disciple central de la puissante secte de rang 6, la Secte du Sort Dao. En raison de la Vieille Femme Poisonneuse, il était extrêmement difficile pour la Secte des Cinq Pois de justifier la situation. Finalement, ils avaient payé un lourd tribut pour clore l'affaire. Ils avaient également dû envoyer des disciples centraux en guise d'otages sous prétexte de rechercher la Vieille Femme Poisonneuse; la véritable raison était de surveiller les membres de la Secte des Cinq Pois.
+Cet homme d'âge moyen était un disciple central de la puissante secte de rang 6, la Secte du Sort Dao. En raison de la Vieille Femme Poisonneuse, il était extrêmement difficile pour la Secte des Cinq Poisons de justifier la situation. Finalement, ils avaient payé un lourd tribut pour clore l'affaire. Ils avaient également dû envoyer des disciples centraux en guise d'otages sous prétexte de rechercher la Vieille Femme Poisonneuse; la véritable raison était de surveiller les membres de la Secte des Cinq Poisons.
 
-Si la Vieille Femme Poisonneuse n'était pas retrouvée rapidement, la Secte des Cinq Pois ferait face à une crise majeure.
+Si la Vieille Femme Poisonneuse n'était pas retrouvée rapidement, la Secte des Cinq Poisons ferait face à une crise majeure.
 
 Des disciples de chaque secte suivaient leur sillage. Tous se transformèrent en rayons de lumière et descendirent à travers la barrière entourant le continent de Mo Luo.
 
@@ -44,7 +44,7 @@ L'homme d'âge moyen joignit ses mains à son tour: « Je suis Feng Peishan, de 
 
 « Je ne pensais pas rencontrer une telle beauté ici! » Le cultivateur en noir à l'allure féminine regarda Lu Yanfei avec un sourire. « Je suis Zhao Yu, de la Secte de la Collection Démoniaque. »
 
-« Zhou Hai, de la Secte des Cinq Pois! » L'expression de Zhou Hai demeurait sombre tandis que son œil droit dégageait une lueur bleue qui balaya les cultivateurs de la Secte de l'Origine.
+« Zhou Hai, de la Secte des Cinq Poisons! » L'expression de Zhou Hai demeurait sombre tandis que son œil droit dégageait une lueur bleue qui balaya les cultivateurs de la Secte de l'Origine.
 
 Li Xiangdong inspira profondément et échangea un regard sérieux avec les deux anciens à ses côtés. Ces trois sectes détenaient près de 40 % de la puissance de la région de rang 6. Elles étaient si dominantes qu'une simple pensée de leur part suffirait à anéantir la Secte de l'Origine.
 

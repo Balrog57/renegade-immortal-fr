@@ -11,7 +11,7 @@ Plusieurs cultivateurs passèrent à côté de Wang Lin et balayèrent la zone d
 
 Tandis que Wang Lin restait assis là, il s'était complètement fondu dans son environnement. Chaque fois qu'un regard ou un Sens Divin passait à proximité, ces derniers se trouvaient déformés, ce qui empêchait toute détection de sa présence. Son aura s'était depuis longtemps fusionnée avec la chaîne de montagnes; il était désormais impossible de les distinguer l'une de l'autre!
 
-Le Tonnerre Céleste avait déjà été raffiné avec succès et était devenu l'un de ses tonnres accompagnateurs. Le Tonnerre Terrestre avait également été dévoré par Wang Lin quelques heures auparavant.
+Le Tonnerre Céleste avait déjà été raffiné avec succès et était devenu l'un de ses tonnerres accompagnateurs. Le Tonnerre Terrestre avait également été dévoré par Wang Lin quelques heures auparavant.
 
 Wang Lin savait que le temps pressait. Sans hésiter, il se lança vers le quatrième type de tonnerre: le Tonnerre Originel. Ce dernier était formé par l'énergie originelle du monde. Après trois heures de raffinage par Wang Lin, il trembla et ne put plus résister!
 
@@ -27,7 +27,7 @@ Wang Lin n'en avait cure. Après avoir absorbé les cinq types de tonnerres acco
 
 Une fois sa culture du tonnerre ayant atteint le sommet du Briseur du Nirvana, son âme d'origine s'étendit brusquement avant de frapper le sixième type de tonnerre accompagnateur: le Tonnerre Dao!
 
-Le Clan des Disperseurs de Tonnerre avait découvert le Tonnerre Dao dans le Royaume Intérieur. Seuls les cultivateurs du Royaume Intérieur cultivaient le Dao et pouvaient ainsi former une intention Dao. C'était ainsi que le tonnerre Dao prenait vie!
+Le Clan du Tonnerre Dispersé avait découvert le Tonnerre Dao dans le Royaume Intérieur. Seuls les cultivateurs du Royaume Intérieur cultivaient le Dao et pouvaient ainsi former une intention Dao. C'était ainsi que le tonnerre Dao prenait vie!
 
 Si ce tonnerre résistait, Wang Lin n'hésiterait pas à l'écraser. Son âme d'origine surgit avec la puissance d'une armée immense, mais contre toute attente, le Tonnerre Dao ne résista point! Une intention Dao complexe émanait des innombrables âmes contenues dans le tonnerre. Wang Lin sentit que ces âmes lui étaient extrêmement familières: c'étaient des cultivateurs du Royaume Intérieur!
 

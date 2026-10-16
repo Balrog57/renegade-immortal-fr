@@ -8,15 +8,15 @@ slug: un-voyage-pour-defier-les-cieux
 ---
 Le hurlement résonna à travers les étoiles, s'intensifiant de plus en plus. Sous le contrôle de Wang Lin, le vaste continent du Royaume Céleste du Vent s'élança.
 
-Après avoir récupéré la Rivière des Invocations, certains cultivateurs de celle-ci étaient retournés dans leurs terres natales au cours des trois dernières années. Ils connaissaient bien ces lieux et pourraient mieux s'y rétablir.
+Après avoir récupéré la Rivière Invoquée, certains cultivateurs de celle-ci étaient retournés dans leurs terres natales au cours des trois dernières années. Ils connaissaient bien ces lieux et pourraient mieux s'y rétablir.
 
-Le Royaume Céleste de la Foudre de la Rivière des Invocations était très différent des trois autres. Il était totalement ouvert, et dès que l'on pénétrait dans la partie nord de la Rivière des Invocations, on pouvait clairement apercevoir une rivière argentée et étincelante.
+Le Royaume Céleste de la Foudre de la Rivière Invoquée était très différent des trois autres. Il était totalement ouvert, et dès que l'on pénétrait dans la partie nord de la Rivière Invoquée, on pouvait clairement apercevoir une rivière argentée et étincelante.
 
 Cette rivière d'argent était le Royaume Céleste de la Foudre!
 
-Wang Lin s'était rendu à la Rivière des Invocations à plusieurs reprises, mais il avait toujours été pressé. Il avait vu cette rivière argentée et savait qu'il s'agissait du Royaume Céleste de la Foudre, mais il n'y était jamais entré.
+Wang Lin s'était rendu à la Rivière Invoquée à plusieurs reprises, mais il avait toujours été pressé. Il avait vu cette rivière argentée et savait qu'il s'agissait du Royaume Céleste de la Foudre, mais il n'y était jamais entré.
 
-Le Royaume Céleste du Vent se précipita et, dès son apparition dans la Rivière des Invocations, une ondulation se propagea, accompagnée d'une pression écrasante.
+Le Royaume Céleste du Vent se précipita et, dès son apparition dans la Rivière Invoquée, une ondulation se propagea, accompagnée d'une pression écrasante.
 
 Le continent du Royaume Céleste du Vent s'arrêta lentement devant la rivière argentée au nord. Wang Lin se leva et contempla le Royaume Céleste de la Foudre. Il fit un pas en avant et pénétra dans les eaux argentées.
 
@@ -48,7 +48,7 @@ Au plus profond du Royaume Céleste du Tonnerre se trouvait le Vieux Fantôme Zh
 
 « Rassembler les quatre Royaumes Célestes... Que sait-il donc... Est-il le troisième... » songeait le Vieux Fantôme Zhan, sans pour autant empêcher Wang Lin de partir.
 
-Au moment où Wang Lin sortit du Royaume Céleste du Tonnerre, ses yeux brillèrent d'un éclat imperceptible. Lorsque son Sens Divin s'était déployé la première fois, il n'avait pas remarqué le Vieux Fantôme Zhan. Cependant, la Perle de la Défiance Céleste à l'intérieur de son corps s'était soudainement agitée, libérant une puissance étrange. Grâce à cette force, Wang Lin avait brusquement perçu le regard du Vieux Fantôme Zhan qui l'observait depuis les profondeurs du Royaume Céleste du Tonnerre!
+Au moment où Wang Lin sortit du Royaume Céleste du Tonnerre, ses yeux brillèrent d'un éclat imperceptible. Lorsque son Sens Divin s'était déployé la première fois, il n'avait pas remarqué le Vieux Fantôme Zhan. Cependant, la Perle Défiant le Ciel à l'intérieur de son corps s'était soudainement agitée, libérant une puissance étrange. Grâce à cette force, Wang Lin avait brusquement perçu le regard du Vieux Fantôme Zhan qui l'observait depuis les profondeurs du Royaume Céleste du Tonnerre!
 
 Wang Lin n'agit pas avec imprudence et partit sans laisser paraître le moindre changement dans son humeur.
 

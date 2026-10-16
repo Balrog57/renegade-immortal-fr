@@ -48,7 +48,7 @@ Il avait été invité par la Secte du Démon Dao pour participer à la guerre c
 
 À cet instant, il menait plus d'une douzaine de cultivateurs. Parmi eux se trouvaient trois personnes au troisième stade, mais la plus forte n'était qu'au stade intermédiaire du Vide Arcane.
 
-Le reste était principalement composé de cultivateurs au stade de la Flétrissure Céleste. Ils chargeaient, menés par Xu Decai.
+Le reste était principalement composé de cultivateurs au stade du Fléau Céleste. Ils chargeaient, menés par Xu Decai.
 
 Tout au long du trajet, Xu Decai s'était montré très prudent. La mort de Liu Zhiyuan l'avait profondément secoué. Les cultivateurs de la Tribulation du Vide étaient difficiles à tuer, et pourtant, Liu Zhiyuan avait péri deux jours auparavant.
 

@@ -18,7 +18,7 @@ Toutefois, ce troisième échelon était bien trop éthéré et le chemin bien t
 
 Pour ces vieux monstres ayant vécu si longtemps, atteindre le troisième échelon n'était plus un simple rêve ou un espoir, mais une nécessité pour survivre. Seul le pouvoir du troisième échelon permettrait d'endurer les cinq Fléaux Célestes; sans quoi, seule la mort les attendait.
 
-À cet instant précis, un cultivateur issu du système sous le Domaine Céleste était arrivé dans le Système Stellaire de l'Alliance. Bien qu'il n'ait pas atteint le troisième échelon, il avait déjà surmonté le quatrième Fléau Céleste!
+À cet instant précis, un cultivateur issu du système sous le Domaine du Vent Céleste était arrivé dans le Système Stellaire de l'Alliance. Bien qu'il n'ait pas atteint le troisième échelon, il avait déjà surmonté le quatrième Fléau Céleste!
 
 Les cinq Fléaux Célestes étaient des épreuves que tout cultivateur briseur de Nirvana devait affronter. Chaque fois qu'un Fléau était surmonté, sa force augmentait considérablement. Cependant, ces épreuves étaient si ardues que l'échec signifiait une mort immédiate!
 

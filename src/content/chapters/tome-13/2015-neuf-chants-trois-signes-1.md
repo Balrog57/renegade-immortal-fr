@@ -10,7 +10,7 @@ Voyant la détermination de Wang Lin, les yeux de Xuan Luo se plissèrent, mais 
 
 La pression exercée par le Mont Gu Dao devint une force indescriptible qui s'abattit sur Wang Lin dès qu'il posa le pied sur la 201e marche.
 
-L'écart de puissance entre la 200e et la 201e marche était immense. Si, auparavant, il s'agissait d'une vague déchaînée que Wang Lin devait affronter en déployant toute sa puissance et en brûlant l'empreinte de son Grand Empyréen Sun pour à peine la franchir, c'était désormais l'océan tout entier qui s'écrasait sur lui.
+L'écart de puissance entre la 200e et la 201e marche était immense. Si, auparavant, il s'agissait d'une vague déchaînée que Wang Lin devait affronter en déployant toute sa puissance et en brûlant l'empreinte de son soleil de Grand Empyréen pour à peine la franchir, c'était désormais l'océan tout entier qui s'écrasait sur lui.
 
 Après un seul pas, le visage de Wang Lin devint plus pâle encore. Son corps tremblait et le sang continuait de couler du coin de sa bouche. Ses os étaient broyés, sa chair et son sang déchirés, son âme originelle était sur le point de se briser et son âme allait être anéantie!
 
@@ -110,7 +110,7 @@ Un pas, un pas, un pas... Lorsqu'il atteignit la 230e marche, Wang Lin toussa vi
 
 Pourtant, au moment où le sang toucha la pierre, un second son surgit dans le Chant du Vent Céleste!
 
-C'était le son du tonnerre. Des grondements tonnantes résonnèrent de toutes parts. Ce tonnerre semblait rugir, mais il possédait un rythme propre. C'était comme une symphonie céleste de foudre!
+C'était le son du tonnerre. Des grondements tonnants résonnèrent de toutes parts. Ce tonnerre semblait rugir, mais il possédait un rythme propre. C'était comme une symphonie céleste de foudre!
 
 Le tonnerre résonna et fusionna avec le chant du vent. Le souffle et la foudre se mêlèrent, comme si des millions de chevaux chargeaient à travers le ciel doré et la terre noire!
 

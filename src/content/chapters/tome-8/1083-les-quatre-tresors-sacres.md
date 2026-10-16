@@ -32,7 +32,7 @@ Le rugissement soudain d'un tigre ébranla le monde. Une intention de meurtre in
 
 Ce Tigre Blanc semblait d'une férocité extrême, comme prêt à dévorer toute créature vivante. Tandis qu'il flottait dans les airs, ses yeux rouges balayèrent la foule avant de se fixer sur le côté ouest du ciel.
 
-La dernière secte à révéler son Trésor Sacré fut la Secte Divine de la Tortue Noire. Suite à la trahison de l'Empereur Divin de la Tortoise Noire, la secte avait été scindée en deux et, après les assauts de l'Alliance, il n'en restait que peu d'âmes. Bien qu'ils se soient redressés, leur nombre demeurait infime.
+La dernière secte à révéler son Trésor Sacré fut la Secte Divine de la Tortue Noire. Suite à la trahison de l'Empereur Divin de la Tortue Noire, la secte avait été scindée en deux et, après les assauts de l'Alliance, il n'en restait que peu d'âmes. Bien qu'ils se soient redressés, leur nombre demeurait infime.
 
 Seuls trois anciens étaient présents. Dès qu'ils fermèrent les yeux, une vague déferla et balaya la zone. Alors que cette onde monstrueuse traversait le ciel, une gigantesque Tortue Noire apparut.
 
@@ -50,7 +50,7 @@ L'Empereur Divin de l'Oiseau Vermillon s'était préparé. D'un geste de la main
 
 L'Oiseau Vermillon poussa aussitôt un cri strident, et les flammes qui l'entouraient s'intensifièrent violemment. Il chargea droit sur l'Omniscient et l'Ancien Démon Ta Jia.
 
-Au même moment, les Sectes Divines du Dragon Azure, du Tigre Blanc et de la Tortoise Noire firent de même. Les trois bêtes divines poussèrent des rugissements et fondirent sur leurs cibles, provoquant un impact inimaginable.
+Au même moment, les Sectes Divines du Dragon Azure, du Tigre Blanc et de la Tortue Noire firent de même. Les trois bêtes divines poussèrent des rugissements et fondirent sur leurs cibles, provoquant un impact inimaginable.
 
 Le visage de l'Omniscient s'assombrit alors qu'il formait un sceau de sa main droite. Il pointa ensuite le ciel en criant: « Esprit Tigre aux Sept Couleurs du Destin Céleste! »
 
@@ -123,4 +123,4 @@ Mu Bingmei observa les Quatre Bêtes Divines en fronçant les sourcils. Cependan
 
 Le vieil homme du Vide Brillant fixait le ciel, une pointe de crainte dans le regard. Il savait que ces Quatre Trésors Sacrés n'étaient pas parfaits et qu'ils comportaient un défaut. Ce défaut résidait dans le Trésor Sacré de la Tortue Noire.
 
-« Le véritable Trésor Sacré de la Tortue Noire devrait être entre les mains de l'Alliance des Cultivateurs... Entre les mains de l'ancien Empereur Divin de la Tortoise Noire... » Les yeux du vieil homme du Vide Brillant s'illuminèrent.
+« Le véritable Trésor Sacré de la Tortue Noire devrait être entre les mains de l'Alliance des Cultivateurs... Entre les mains de l'ancien Empereur Divin de la Tortue Noire... » Les yeux du vieil homme du Vide Brillant s'illuminèrent.

@@ -48,7 +48,7 @@ L'autre essence contenait le karma. Le Karma était un Grand Dao, d'une complexi
 
 « Trois éthérées... trois... Cet homme a réellement eu la chance d'obtenir trois essences éthérées! » Les yeux de Du Qing étaient pétris de choc et il recula inconsciemment de quelques pas. Même les essences du feu et de la terre qu'il tenait entre ses mains devinrent ternes.
 
-« Trois éthérées et deux corporelles... Quel genre de talent faut-il pour posséder cinq essences? C’est... c'est du jamais vu, même au sein du Grand Secte des Âmes! » Du Qing se remémora ses propres paroles: trois essences n'étaient rien face à un tel être.
+« Trois éthérées et deux corporelles... Quel genre de talent faut-il pour posséder cinq essences? C’est... c'est du jamais vu, même au sein de la Secte de la Grande Âme! » Du Qing se remémora ses propres paroles: trois essences n'étaient rien face à un tel être.
 
 « Et alors, qu'importe si tu as cinq essences? Posséder de nombreuses essences ne signifie pas pour autant que tu es puissant... » Bien que de nouveau sous le choc, Du Qing serra les dents et rugit.
 
@@ -82,7 +82,7 @@ Dans une telle conjoncture, entre la nature mystérieuse de Wang Lin et la prude
 
 « Veux-tu vraiment te battre? » demanda le visage de Wang Lin depuis l'intérieur de la boule de feu, ses yeux s'illuminant d'un éclat étrange. Tandis qu'il parlait, une pression terrifiante jaillit de la sphère de feu.
 
-Cette pression était si saisissante que, dès sa propagation, la terreur dans les yeux de Du Qing décupla. Il recula prestement sans l'ombre d'une hésitation, le visage marqué par l'horreur. Il fixa le visage de Wang Lin sur la boule de feu, tandis qu'une lumière dorée se propageait depuis les traits déformés du visage.
+Cette pression était si saisissante que, dès sa propagation, la terreur dans les yeux de Du Qing augmenta fortement. Il recula prestement sans l'ombre d'une hésitation, le visage marqué par l'horreur. Il fixa le visage de Wang Lin sur la boule de feu, tandis qu'une lumière dorée se propageait depuis les traits déformés du visage.
 
 La lumière dorée s'étendit loin et large, telle un soleil. Une empreinte dorée de la taille d'une tête s'éleva lentement de la boule de feu.
 
@@ -92,17 +92,17 @@ Cette aura provenant de l'empreinte dorée, bien que ténue, semblait capable de
 
 Elle était de nature à rendre fou quiconque la percevrait et la comprendrait!
 
-« Grand... Grand Empereur... » Du sang coula du coin de la bouche de Du Qing alors qu'il reculait précipitamment. Le choc provoqué par l'empreinte avait blessé son âme originelle. Il comprit instantanément que cette empreinte était un sortilège condensé en trésor par un Grand Empereur.
+« Grand... Grand Empyréen... » Du sang coula du coin de la bouche de Du Qing alors qu'il reculait précipitamment. Le choc provoqué par l'empreinte avait blessé son âme originelle. Il comprit instantanément que cette empreinte était un sortilège condensé en trésor par un Grand Empyréen.
 
-La puissance intrinsèque de ce trésor était secondaire; sa véritable fonction était d'intimider. Elle pouvait ébranler n'importe qui! Oubliez Du Qing, même la Grande Secte des Âmes et toutes les puissantes sectes du Continent du Taureau Céleste trembleraient de peur en ressentant l'aura de cette empreinte dorée!
+La puissance intrinsèque de ce trésor était secondaire; sa véritable fonction était d'intimider. Elle pouvait ébranler n'importe qui! Oubliez Du Qing, même la Secte de la Grande Âme et toutes les puissantes sectes du Continent du Taureau Céleste trembleraient de peur en ressentant l'aura de cette empreinte dorée!
 
-Car à moins qu'un Grand Empereur n'ait personnellement remis ce trésor à quelqu'un, celui-ci s'effondrerait instantanément entre les mains d'autrui. C'était une vérité universelle sur le Continent Astral Immortel!
+Car à moins qu'un Grand Empyréen n'ait personnellement remis ce trésor à quelqu'un, celui-ci s'effondrerait instantanément entre les mains d'autrui. C'était une vérité universelle sur le Continent Astral Immortel!
 
-Les Grands Empereurs offraient souvent de tels trésors à leurs disciples les plus proches. C'était leur manière de signifier au monde que nul ne pouvait toucher à cette personne!
+Les Grands Empyréens offraient souvent de tels trésors à leurs disciples les plus proches. C'était leur manière de signifier au monde que nul ne pouvait toucher à cette personne!
 
-Avec son niveau de culture, Du Qing était incapable de déterminer quel Grand Empereur l'avait créé. Au cours des innombrables années de sa vie, il n'avait même pas eu la chance d'apercevoir un seul Grand Empereur.
+Avec son niveau de culture, Du Qing était incapable de déterminer quel Grand Empyréen l'avait créé. Au cours des innombrables années de sa vie, il n'avait même pas eu la chance d'apercevoir un seul Grand Empyréen.
 
-Mais cette aura qui le faisait trembler de peur et surpassait celle de tous les autres puissants cultivateurs ne pouvait provenir que d'un Grand Empereur!
+Mais cette aura qui le faisait trembler de peur et surpassait celle de tous les autres puissants cultivateurs ne pouvait provenir que d'un Grand Empyréen!
 
 Du Qing cracha une bouffée de sang. Tout en reculant, il lança un regard accusateur à Wang Lin et rugit:
 

@@ -68,7 +68,7 @@ Tuo Sen, ou Tu Si, méditait également en silence. Il fixait la porte dorée, m
 
 À Luotian, à l'extérieur de la porte dorée, plusieurs rayons de lumière convergèrent. Des cultivateurs du monde caverne arrivaient de loin. En voyant la porte, ils furent tous frappés de stupeur.
 
-Le regard de Wang Lin se détacha enfin de la porte après un long moment. Il constata que, depuis qu'il avait quitté la cinquième fleur, ses huit corps de vérité essentiels avaient disparu. Son essence d'eau n'était encore qu'au stade de la petite complétude, et les sept autres essences étaient dissimulées.
+Le regard de Wang Lin se détacha enfin de la porte après un long moment. Il constata que, depuis qu'il avait quitté la cinquième fleur, ses huit corps véritables de son Essence avaient disparu. Son essence d'eau n'était encore qu'au stade de la petite complétude, et les sept autres essences étaient dissimulées.
 
 Tout était revenu à l'état précédant son entrée dans le Bassin Dong Lin.
 
@@ -120,7 +120,7 @@ Le Général Tigre Blanc fut surpris, les yeux brillants de gratitude. Il s'incl
 
 Les trois se transformèrent en trois traînées de lumière et volèrent vers la porte dorée tandis que Wang Lin restait pensif. Ils disparurent dans l'ouverture pour retourner sur le Continent Astral Immortel.
 
-La troisième concubine, Tang Shan, mordit sa lèvre inférieure et s'avança vers la porte dorée. À environ trente mètres de celle-ci, elle s'arrêta et regarda Wang Lin.
+La troisième concubine, Tang Shan, mordit sa lèvre inférieure et s'avança vers la porte dorée. À environ cent pieds de celle-ci, elle s'arrêta et regarda Wang Lin.
 
 « Merci... »
 

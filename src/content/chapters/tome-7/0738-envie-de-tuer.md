@@ -62,7 +62,7 @@ Cette question lui brûlait le cœur depuis qu'il avait découvert l'existence d
 
 Après sa rencontre avec Shengong Hu, Wang Lin fit quelques suppositions et commença à comprendre.
 
-Outre les jades célestes, le Royaume Céleste du Tonnerre recelait des pilules et des trésors célestes. Bien que certains soient pillés à chaque ouverture, il en restait toujours. Quant à savoir si l'on pouvait en trouver, tout dépendait de la fortune de chacun. Des rumeurs circulaient même sur l'existence de sorts célestes complets. Bien que la plupart fussent lacunaires, les cultivateurs du Système Stellaire de Luotian étaient convaincus que des sorts intègrait y existaient!
+Outre les jades célestes, le Royaume Céleste du Tonnerre recelait des pilules et des trésors célestes. Bien que certains soient pillés à chaque ouverture, il en restait toujours. Quant à savoir si l'on pouvait en trouver, tout dépendait de la fortune de chacun. Des rumeurs circulaient même sur l'existence de sorts célestes complets. Bien que la plupart fussent lacunaires, les cultivateurs du Système Stellaire de Luotian étaient convaincus que des sorts complets y existaient!
 
 À cela s'ajoutait une autre raison cruciale: à ce jour, huit corps de célestiaux parfaitement intacts avaient été découverts dans le Royaume Céleste du Tonnerre.
 

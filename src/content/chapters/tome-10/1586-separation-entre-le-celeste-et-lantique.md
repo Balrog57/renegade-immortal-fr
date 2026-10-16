@@ -10,7 +10,7 @@ Wang Lin leva la tête et regarda l'homme en robe noire. Comment aurait-il pu ou
 
 Le chef des cinq maîtres du Système Stellaire Antique. Un être d'une ruse infinie qui avait comploté contre le ciel et la terre!
 
-Qu'il s'agisse du meurtre de l'ancien Seigneur du Domaine Scellé, de la destruction des quatre Royaumes Célestes, des manigances contre l'Empereur Céleste Qing Lin, de la mise en place du Clan du Tatou pour traquer la flèche de Li Guang, de la trahison du Daoïste Eau, de la chute du Maître Simo, de la mort de l'ancêtre de la famille Zhan ou de tant d'autres événements, l'ombre du Souverain planait sur chacun d'eux!
+Qu'il s'agisse du meurtre de l'ancien Seigneur du Royaume Scellé, de la destruction des quatre Royaumes Célestes, des manigances contre l'Empereur Céleste Qing Lin, de la mise en place du Clan du Tatouage pour traquer la flèche de Li Guang, de la trahison du Shui Daozi, de la chute du Maître Simo, de la mort de l'ancêtre de la famille Zhan ou de tant d'autres événements, l'ombre du Souverain planait sur chacun d'eux!
 
 Dans le Système Stellaire Antique, Wang Lin avait eu ce pressentiment diffus que son esprit était manipulé. Avec le recul, il devait s'agir là aussi d'un acte du Souverain.
 
@@ -94,7 +94,7 @@ Privé de sa lignée céleste, la force de rejet disparut. Le corps de Wang Lin 
 
 « Le Corps Céleste Immortel... C'est le Corps Céleste Immortel... Où l'as-tu trouvé?! » L'homme en robe noire contemplait la goutte de sang doré flottant au-dessus de Wang Lin. Ses yeux brillaient d'une immense excitation, mais aussi d'une profonde terreur.
 
-Le Souverain perdait rarement son sang-froid; seul ce sang pouvait provoquer une telle réaction! Il savait tout de Wang Lin, mais il était incapable de savoir ce qui s'était produit en lui à l'intérieur de la Bête du Néant.
+Le Souverain perdait rarement son sang-froid; seul ce sang pouvait provoquer une telle réaction! Il savait tout de Wang Lin, mais il était incapable de savoir ce qui s'était produit en lui à l'intérieur de la Bête des Limbes.
 
 À cet instant, le Souverain fit un pas en avant, sa main droite tendue vers la goutte dorée.
 
@@ -106,15 +106,15 @@ Dès l'apparition du palais, le monde s'obscurcit; le sang antique de Wang Lin a
 
 Alors que sa voix résonnait et que le sang coulait, la fenêtre du palais noir trembla. Des craquements sinistres retentirent et elle s'effondra soudainement. Un rugissement puissant et exalté jaillit de l'ouverture brisée.
 
-« Maudit Ye Mo! Tu as scellé ce vieux maître, Âme Écarlate, pendant d'innombrables années. Aujourd'hui, ce vieux est enfin libre! » Dans un fracas, une ombre rougejaunte chargea hors du palais. On ne pouvait distinguer son visage, elle n'était qu'une silhouette de sang. Une aura terrifiante l'accompagnait.
+« Maudit Ye Mo! Tu as scellé ce vieux maître, Âme Écarlate, pendant d'innombrables années. Aujourd'hui, ce vieux est enfin libre! » Dans un fracas, une ombre rouge chargea hors du palais. On ne pouvait distinguer son visage, elle n'était qu'une silhouette de sang. Une aura terrifiante l'accompagnait.
 
 Le Souverain étant trop proche, il fut percuté par cette ombre de sang dès son apparition. Il fut projeté en arrière de plusieurs centaines de pieds et sa capuche vola, révélant son visage.
 
 « Maître Âme Écarlate! »
 
-L'ombre rougejaunte éclata de rire sans même accorder un regard au Souverain ou à Wang Lin. En un éclair, elle fonça vers la concubine impériale céleste au loin. L'ombre enveloppa la femme qui poussa un cri strident; son corps délicat fondit et fut dévoré par l'entité sanglante.
+L'ombre rouge éclata de rire sans même accorder un regard au Souverain ou à Wang Lin. En un éclair, elle fonça vers la concubine impériale céleste au loin. L'ombre enveloppa la femme qui poussa un cri strident; son corps délicat fondit et fut dévoré par l'entité sanglante.
 
-L'ombre rougejaunte rit de nouveau et chargea vers le ciel. Dans un flash de lumière bleue, une brèche gigantesque apparut, et l'ombre s'y engouffra.
+L'ombre rouge rit de nouveau et chargea vers le ciel. Dans un flash de lumière bleue, une brèche gigantesque apparut, et l'ombre s'y engouffra.
 
 À ce moment précis, dans le Royaume Intérieur, sur la véritable planète Suzaku, au sein d'une cité mortelle, le fou tenait une cuisse de poulet grasse. Assis parmi un groupe de mendiants, il croqua dedans avec fierté sous leurs regards envieux. Puis, il fixa le ciel, l'air hagard.
 

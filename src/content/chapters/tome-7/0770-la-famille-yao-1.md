@@ -46,7 +46,7 @@ Lorsque le pied droit de Wang Lin se posa, ses yeux s'ouvrirent. Au loin, l'Anc�
 
 D'après ses connaissances, même Ling Tianhou ne comprenait pas totalement cette technique. Pour des gens comme eux, ce sort était infiniment proche d'une maîtrise du troisième pas!
 
-C'était la première fois que l'Ancêtre Sanguin ressentait une trace de peur envers Wang Lin, et cette peur naissait de ce qu'il avait vu de ses propres yeux. Il avait été témoin des transformations subies par Wang Lin; il l'avait vu passer d'un cultivateur de l'Ascension au stade tardif à son niveau actuel!
+C'était la première fois que l'Ancêtre Sanguin ressentait une trace de peur envers Wang Lin, et cette peur naissait de ce qu'il avait vu de ses propres yeux. Il avait été témoin des transformations subies par Wang Lin; il l'avait vu passer d'un cultivateur de l'Ascendant au sommet du stade tardif à son niveau actuel!
 
 « Ce petit morveux doit être chanceux. Oui, il a dû avoir une chance inouïe pour pouvoir utiliser la Distorsion Spatiale! » L'Ancêtre Sanguin se sentait extrêmement amer. Il ne daigna même pas se retourner et s'enfuit à toute vitesse.
 

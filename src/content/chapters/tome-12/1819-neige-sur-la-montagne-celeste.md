@@ -72,17 +72,17 @@ Simultanément, la puissante pression se délesta comme de la glace qui fond. D'
 
 Tout cela était dû à son avatar!
 
-Au moment où son sens divin fusionna avec le monde, son corps disparut pour se fondre dans l'environnement. Il ressentit alors la même sensation qu'au moment où il utilisait la Déviation Spatiale dans le monde de la grotte; une sensation qu'il n'avait pas éprouvée depuis longtemps.
+Au moment où son sens divin fusionna avec le monde, son corps disparut pour se fondre dans l'environnement. Il ressentit alors la même sensation qu'au moment où il utilisait la Déformation Spatiale dans le monde de la grotte; une sensation qu'il n'avait pas éprouvée depuis longtemps.
 
-D'une simple pensée, il apparut sur la Montagne Céleste de ce continent et vit la neige verte tomber. La première fois qu'il avait utilisé la Déviation Spatiale ici, il l'avait fait sans direction précise, se retrouvant n'importe où par hasard.
+D'une simple pensée, il apparut sur la Montagne Céleste de ce continent et vit la neige verte tomber. La première fois qu'il avait utilisé la Déformation Spatiale ici, il l'avait fait sans direction précise, se retrouvant n'importe où par hasard.
 
 Mais lorsqu'il retourna à la Secte du Dragon Bleu, l'image de la secte apparut clairement dans son esprit. Il se matérialisa dans les montagnes arrières de la Secte du Dragon Bleu, juste derrière Du Qing.
 
-Il ne lui fallut qu'un battement de cils pour faire ce voyage aller-retour. Sans la neige verte déposée sur ses pieds, même Du Qing n'aurait pas su où Wang Lin était allé.
+Il ne lui fallut que la moitié du temps de brûler un bâton d'encens pour faire ce voyage aller-retour. Sans la neige verte déposée sur ses pieds, même Du Qing n'aurait pas su où Wang Lin était allé.
 
 « L'avatar n'a grandi que quelques jours et il apporte déjà un tel renforcement... Avec plus de temps, mon avatar deviendra le corps le plus puissant! » Wang Lin l'avait compris depuis longtemps.
 
-« Il est temps d'aller à la Grande Secte des Âmes pour absorber la veine principale de terre-feu. Avant cela, je dois absorber le reste des veines secondaires pour voir quelle part du corps véritable d'essence de feu je peux former. » Wang Lin savait que plus l'objectif était ambitieux, plus la tâche serait ardue.
+« Il est temps d'aller à la Secte de la Grande Âme pour absorber la veine principale de terre-feu. Avant cela, je dois absorber le reste des veines secondaires pour voir quelle part du corps véritable d'essence de feu je peux former. » Wang Lin savait que plus l'objectif était ambitieux, plus la tâche serait ardue.
 
 Pour former la tête, l'essence de feu ne suffisait pas. Ce dont il avait le plus besoin était la volonté du feu.
 
@@ -110,8 +110,8 @@ Wang Lin émergea du brouillard noir et jeta un regard vers la montagne intérie
 
 « Situ, Qing Shui, Li Qianmei, et tous ceux qui se sont réincarnés... Où êtes-vous tous maintenant...? » Wang Lin tourna le dos pour partir, son allure dégageant une profonde solitude.
 
-Un jour plus tard, dans la partie orientale du continent du Taureau Céleste, sur la Montagne Céleste où se trouvait la Grande Secte des Âmes, un jeune homme aux cheveux blancs se tenait au sommet du ciel alors que la neige verte tombait. Il pouvait voir l'autre versant de la montagne à travers les flocons.
+Un jour plus tard, dans la partie orientale du continent du Taureau Céleste, sur la Montagne Céleste où se trouvait la Secte de la Grande Âme, un jeune homme aux cheveux blancs se tenait au sommet du ciel alors que la neige verte tombait. Il pouvait voir l'autre versant de la montagne à travers les flocons.
 
 Depuis cet endroit, le jeune homme pouvait vaguement apercevoir l'immensité de la chaîne de montagnes, et au sein de celle-ci, une montagne rouge perçait les nuages au loin.
 
-« Grande Secte des Âmes... » murmura le jeune homme aux cheveux blancs, les yeux brillant d'une lueur intense.
+« Secte de la Grande Âme... » murmura le jeune homme aux cheveux blancs, les yeux brillant d'une lueur intense.

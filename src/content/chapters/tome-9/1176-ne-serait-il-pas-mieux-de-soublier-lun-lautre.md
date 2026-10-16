@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1176 - Wouldnt It Be Better to Forget About Each Other
 slug: ne-serait-il-pas-mieux-de-soublier-lun-lautre
 ---
-En l'espace de deux courts jours, la partie de la ville détruite par l'Empreinte d'Esprit de Guerre de Wang Lin fut rapidement reconstruite par la Secte du Jade Précieux.
+En l'espace de deux courts jours, la partie de la ville détruite par l'Empreinte de l'Esprit Guerrier de Wang Lin fut rapidement reconstruite par la Secte du Jade Précieux.
 
 Il n'aura fallu que deux jours, une quantité massive de pierres spirituelles et le travail d'innombrables cultivateurs pour que la ville soit restaurée avant le début des enchères.
 
@@ -36,7 +36,7 @@ Le vieil homme en rouge se montra très poli. Il n'osait sous-estimer ce jeune h
 
 Il avait ensuite rapporté ses observations au Maître de la Secte. Après une longue réflexion, celui-ci avait envoyé un ordre: aucun disciple de la secte ne devait offenser cet homme sur Peng Lai.
 
-« Qu'il appartienne ou non à la Secte Divin n'a aucune importance pour ma Secte du Jade Précieux. Le simple fait qu'il ait pu tuer Wu Qing si aisément suffit à lui valoir notre respect. » L'Ancien en rouge discuta un moment avec Wang Lin avant de lever les yeux vers le ciel. Il lui sourit et ajouta: « Compagnon Cultivateur Lu, les enchères vont bientôt commencer. Si vous avez des objets à proposer, dépêchez-vous. »
+« Qu'il appartienne ou non à la Secte Divine n'a aucune importance pour ma Secte du Jade Précieux. Le simple fait qu'il ait pu tuer Wu Qing si aisément suffit à lui valoir notre respect. » L'Ancien en rouge discuta un moment avec Wang Lin avant de lever les yeux vers le ciel. Il lui sourit et ajouta: « Compagnon Cultivateur Lu, les enchères vont bientôt commencer. Si vous avez des objets à proposer, dépêchez-vous. »
 
 Wang Lin réfléchit un instant. Il possédait effectivement quelques objets qu'il souhaitait mettre en vente pour obtenir autant de cristaux d'origine que possible. Après un moment, il sourit: « Très bien. J'ai justement deux trésors que je souhaite enchérir. »
 
@@ -104,7 +104,7 @@ La main droite de Wang Lin s'étira dans le vide et saisit le parchemin des main
 
 « Un cadeau pour toi! », dit Wang Lin en lui tendant la peinture.
 
-Li Qianmei resta pensive. Après un long moment, elle sourit et accepta le présent. Elle se leva, mordillant sa lèvre inférieure, et murmura: « Si jamais tu trouves l'homme qui a découvert le jade de la Secte Ciel Brisé, transmets-lui ce message: la Secte Ciel Brisé l'accueille. »
+Li Qianmei resta pensive. Après un long moment, elle sourit et accepta le présent. Elle se leva, mordillant sa lèvre inférieure, et murmura: « Si jamais tu trouves l'homme qui a découvert le jade de la Secte Brise-Ciel, transmets-lui ce message: la Secte Brise-Ciel l'accueille. »
 
 Une fois ses paroles prononcées, elle ne regarda plus Wang Lin et s'élança telle un papillon dansant. Ses cheveux noirs se transformèrent soudainement en une magnifique teinte bleue et elle disparut progressivement sous les yeux des cultivateurs. Elle tenait toujours la peinture contre elle.
 

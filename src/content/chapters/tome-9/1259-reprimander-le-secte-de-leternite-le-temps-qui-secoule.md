@@ -6,17 +6,17 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1259 - Rebuking the Everlasting Secte, Flowing Time
 slug: reprimander-le-secte-de-leternite-le-temps-qui-secoule
 ---
-Le vieil homme aux cheveux blancs continuait de reculer, mais ses yeux étaient empreints d'une intention de combat monstrueuse. Ses mains formèrent un sceau et il pointa l'avant. À chaque geste, un grondement tonitruant émanait de son corps alors qu'il commençait à résister au pouvoir de la Nuit Déchirée.
+Le vieil homme aux cheveux blancs continuait de reculer, mais ses yeux étaient empreints d'une intention de combat monstrueuse. Ses mains formèrent un sceau et il pointa l'avant. À chaque geste, un grondement tonitruant émanait de son corps alors qu'il commençait à résister au pouvoir de la Nuit Brisée.
 
-La puissance de ce vieil homme était extrêmement stupéfiante, et la Nuit Déchirée de Wang Lin n'était pas parfaite. Les grondements résonnèrent et, après que le vieil homme eut reculé de 10 000 pieds, la force de la Nuit Déchirée fut neutralisée.
+La puissance de ce vieil homme était extrêmement stupéfiante, et la Nuit Brisée de Wang Lin n'était pas parfaite. Les grondements résonnèrent et, après que le vieil homme eut reculé de 10 000 pieds, la force de la Nuit Brisée fut neutralisée.
 
 Un halo rouge, semblable à du sang, l'entourait. Un halo rouge illusoire apparut derrière lui et devint gigantesque, diffusant une lumière écarlate qui enveloppa toute la zone.
 
 « Puisque tu as dérobé l'un de mes sorts, je vais prendre l'un des tiens! » L'expression du vieil homme aux cheveux blancs était d'une gravité extrême. Il ne dégageait plus aucune aura de vieillesse, mais libérait désormais sa culture terrifiante. Son halo était plus rouge que le sang alors qu'il chargeait en avant; il parcourut 10 000 pieds en un instant pour se précipiter sur Wang Lin.
 
-L'expression de Wang Lin demeurait calme. Il ne possédait plus beaucoup d'énergie originelle après avoir utilisé la Nuit Déchirée, mais ses yeux aussi dégageaient une intention de combat monstrueuse. L'étoile de la loi entre ses sourcils scintillait follement et tournait rapidement. À mesure qu'elle pivotait, l'énergie originelle du monde commença à se condenser vers Wang Lin avec frénésie.
+L'expression de Wang Lin demeurait calme. Il ne possédait plus beaucoup d'énergie originelle après avoir utilisé la Nuit Brisée, mais ses yeux aussi dégageaient une intention de combat monstrueuse. L'étoile de la loi entre ses sourcils scintillait follement et tournait rapidement. À mesure qu'elle pivotait, l'énergie originelle du monde commença à se condenser vers Wang Lin avec frénésie.
 
-Il lui était extrêmement difficile de tuer quelqu'un au stade de la première Affliction Céleste. Ce n'est que si ses blessures guérissaient et qu'il levait le sceau sur sa culture pour atteindre le stade du Briseur du Nirvana qu'il aurait une chance!
+Il lui était extrêmement difficile de tuer quelqu'un au stade du premier Fléau Céleste. Ce n'est que si ses blessures guérissaient et qu'il levait le sceau sur sa culture pour atteindre le stade du Briseur du Nirvana qu'il aurait une chance!
 
 Cependant, il était évident que rien de tout cela n'était possible.
 
@@ -26,13 +26,13 @@ Simultanément, une image apparut dans l'esprit de Wang Lin. Dans cette vision, 
 
 Cette image était la porte du Royaume Céleste du Vent!
 
-Dès que l'image apparut dans son esprit, elle supplantâ toutes ses pensées. D'un mouvement de sa main droite, il manifesta cette vision au monde par une méthode étrange!
+Dès que l'image apparut dans son esprit, elle supplanta toutes ses pensées. D'un mouvement de sa main droite, il manifesta cette vision au monde par une méthode étrange!
 
 Alors qu'il agitait sa main droite, les vagues de la mer s'emportèrent et un tourbillon géant apparut. La terre trembla et un grondement tonitruant retentit tandis qu'une gigantesque porte de pierre s'élevait lentement hors des eaux. À cet instant, la scène était identique à celle de son esprit!
 
-Dès l'apparition de la porte de pierre, une pression indicible enveloppa le monde. Cela réveilla en sursaut tous les cultivateurs qui étaient encore en état de transe à cause de la Nuit Déchirée. Pourtant, après cet instant de lucidité, ils furent frappés une seconde fois par la stupeur. En contemplant la porte de pierre surplombant l'océan, un sentiment lié au temps envahit leurs cœurs.
+Dès l'apparition de la porte de pierre, une pression indicible enveloppa le monde. Cela réveilla en sursaut tous les cultivateurs qui étaient encore en état de transe à cause de la Nuit Brisée. Pourtant, après cet instant de lucidité, ils furent frappés une seconde fois par la stupeur. En contemplant la porte de pierre surplombant l'océan, un sentiment lié au temps envahit leurs cœurs.
 
-Le vieil homme aux cheveux blancs, en pleine charge, s'arrêta brusquement et haleta. Ses yeux étaient remplis d'incrédulité. Lorsqu'il avait vu la Nuit Déchirée, il pensait avoir atteint la limite des sorts de Wang Lin. Mais face à cette porte de pierre, il fut ébranlé. Avec son niveau de culture, il pouvait ressentir le pouvoir du temps avec une clarté accrue, et un mauvais pressentiment l'assaillit.
+Le vieil homme aux cheveux blancs, en pleine charge, s'arrêta brusquement et haleta. Ses yeux étaient remplis d'incrédulité. Lorsqu'il avait vu la Nuit Brisée, il pensait avoir atteint la limite des sorts de Wang Lin. Mais face à cette porte de pierre, il fut ébranlé. Avec son niveau de culture, il pouvait ressentir le pouvoir du temps avec une clarté accrue, et un mauvais pressentiment l'assaillit.
 
 « Comment cet homme peut-il posséder autant de sorts?! Depuis qu'il est arrivé, il n'a sorti aucun trésor; il n'a fait usage que de sorts. Posséder une telle force par la seule magie... n'est-il pas un peu trop puissant? » Le vieil homme prit une profonde inspiration et l'intention de combat dans ses yeux s'intensifia. Compte tenu de son rang au sein de la Secte de l'Éternité, il ne lui était pas permis de battre en retraite!
 
@@ -84,13 +84,13 @@ Deux mille ans de souvenirs furent inconsciemment parcourus. Le vieil homme aux 
 
 Sa culture fut progressivement réprimée et perdit de sa vigueur en s'évanouissant lentement. Le vieil homme vit son disciple préféré mourir dans la faille spatiale il y a trois mille ans. Il combattait la marée des bêtes à la Secte Démoniaque. Aucun reste n'avait été retrouvé, seule une épée brisée avait été rapportée.
 
-En voyant cette épée brisée, la tristesse d'autrefois envahit de nouveau son cœur. Il se remémora l'époque d'il y a quatre mille ans, puis cinq mille ans, avant d'atteindre le sommet de la première Affliction Céleste. Il luttait en méditation fermée pour résister à la décomposition que la première Affliction Céleste infligeait à son corps.
+En voyant cette épée brisée, la tristesse d'autrefois envahit de nouveau son cœur. Il se remémora l'époque d'il y a quatre mille ans, puis cinq mille ans, avant d'atteindre le sommet du premier Fléau Céleste. Il luttait en méditation fermée pour résister à la décomposition que le premier Fléau Céleste infligeait à son corps.
 
 Tandis que ses souvenirs étaient remués, il sembla retourner dans son passé; la douleur envahit tout son être, le submergeant. Son niveau de culture retourna également à ce qu'il était cinq mille ans auparavant et se dissipa rapidement.
 
 Il se vit rugir de douleur, poussant un cri de révolte. Ce rugissement résonna dans son esprit, rendant la lutte dans ses yeux encore plus violente.
 
-« J'ai cultivé pendant dix-neuf mille ans! Je refuse de céder à la première Affliction Céleste! J'ai tué d'innombrables personnes et j'ai compris la loi du sang. Je ne me laisserai pas mourir ainsi!!! »
+« J'ai cultivé pendant dix-neuf mille ans! Je refuse de céder au premier Fléau Céleste! J'ai tué d'innombrables personnes et j'ai compris la loi du sang. Je ne me laisserai pas mourir ainsi!!! »
 
 Alors que le vieil homme aux cheveux blancs rugissait, un craquement se fit entendre autour de lui. Il cracha du sang et recula précipitamment. Il s'était libéré du sort « Le Temps qui s'écoule »!
 

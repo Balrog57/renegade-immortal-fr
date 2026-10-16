@@ -66,7 +66,7 @@ Il venait d'arriver, tout lui était étranger. Heureusement, il avait fouillé 
 
 « Voici le Continent du Taureau Céleste, dans le Continent de l'Est, sous la domination des Célestes... Les sectes Gui Yi et Grande Âme sont les deux puissances dominantes du Continent du Taureau Céleste. Elles font partie des neuf sectes et treize factions... » Wang Lin éprouva un sentiment complexe. Il ne connaissait pas ces deux sectes par hasard.
 
-« La Secte Grande Âme, la secte de Fan Shanmeng et Fan Shanlu! Celle qui manie les illusions terrifiantes... Il y a aussi Yun Yifeng dans les souvenirs de Kang Ren. Il est devenu le génie de la Secte Gui Yi...
+« La Secte de la Grande Âme, la secte de Fan Shanmeng et Fan Shanlu! Celle qui manie les illusions terrifiantes... Il y a aussi Yun Yifeng dans les souvenirs de Kang Ren. Il est devenu le génie de la Secte Gui Yi...
 
 « Hélas, je suis arrivé trop tard... Le Maître a probablement pensé que j'étais mort et n'a pas attendu... » Wang Lin soupira. Cependant, ce qui l'émut particulièrement était que le Continent du Taureau Céleste abritait la Secte des Sept Dao.
 
@@ -120,4 +120,4 @@ Il l'avait utilisé comme une expérience pour confirmer sa théorie!
 
 « Aussi, le Fouet des Âmes. Il est spécialisé dans le traitement de l'âme originelle. Ce serait dommage qu'il disparaisse dans l'espace de stockage...
 
-« De plus, il y a la marionnette Yi Si, qui est aussi puissante qu'un cultivateur de la Tribulation du Vide... Et aussi la Voile Fantomatique... »
+« De plus, il y a la marionnette Yi Si, qui est aussi puissante qu'un cultivateur de la Tribulation du Vide... Et aussi la Voile Fantôme... »

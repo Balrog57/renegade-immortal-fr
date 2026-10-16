@@ -34,7 +34,7 @@ Le rire de Wang Lin atteignit également les oreilles de l'Empereur Dao Antique.
 
 Au sein du clan Antique, là où le pouvoir impérial régnait en maître, et dans le palais de l'Empereur Dao Antique, l'ordre de l'empereur devait être exécuté immédiatement. Pourtant, à cet instant, mis à part les mille personnes proches du palais, les dizaines de milliers d'autres alentour, y compris ceux que Wang Lin avait ressuscités, restèrent silencieux.
 
-Ils avaient tout été témoins: ils avaient vu la cause et l'effet, la douleur de Xuan Luo, et le plaidoyer de Wang Lin. Après avoir vu tout cela, ils ne purent lever le pied pour franchir le pas...
+Ils avaient tous été témoins: ils avaient vu la cause et l'effet, la douleur de Xuan Luo, et le plaidoyer de Wang Lin. Après avoir vu tout cela, ils ne purent lever le pied pour franchir le pas...
 
 C'était un choix entre le pouvoir impérial et leur conscience, et la majorité hésitait. Cependant, des milliers de personnes, encore endoctrinées par le pouvoir impérial, poussèrent un rugissement et chargèrent Wang Lin.
 

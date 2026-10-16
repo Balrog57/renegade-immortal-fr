@@ -16,7 +16,7 @@ Tuo Sen était agenouillé au sol, la poitrine ensanglantée, en pleine régén�
 
 Son corps trembla visiblement.
 
-Il avait attendu ce jour pendant une éternité... Depuis qu'il n'était qu'un fragment de démon intérieur scellé depuis des années sans nom, jusqu'à voir Wang Lin dérober l'héritage de la mémoire. La haine et la colère qu'il ressentait étaient monstrueuses.
+Il avait attendu ce jour pendant une éternité... Depuis qu'il n'était qu'un fragment de démon intérieur scellé depuis d'innombrables années, jusqu'à voir Wang Lin dérober l'héritage de la mémoire. La haine et la colère qu'il ressentait étaient monstrueuses.
 
 Pour obtenir cet héritage, il était prêt à tout. Après avoir brisé le sceau, il avait pris possession du corps de Tu Si pour entamer sa longue quête. Ce fut une période empreinte d'une amertume infinie!
 
@@ -34,7 +34,7 @@ Sa fierté et son arrogance étaient inscrites dans ses os!
 
 Si un jour la culture de Wang Lin atteignait un stade lui permettant d'en supporter davantage, il reviendrait pour continuer... Après avoir prononcé ces dernières paroles, Wang Lin agita la main. Ling Dong et Zhou Jin, stupéfaits par ce qu'ils venaient de voir, furent rangés dans le Fourneau Impérial par Wang Lin. Il mit également le corps du démon ancien dans son espace de stockage.
 
-Il rangea les Feuilles Antiques, l'épée de sang et le reste de ses biens. Ayant obtenu une partie de l'héritage, Wang Lin maîtrisait désormais la première couche de la tombe mieux que quiconque. Des ondulations apparurent sous ses pieds alors qu'il s'apprêtait à quitter le palais.
+Il rangea les Feuilles Ancestrales, l'épée de sang et le reste de ses biens. Ayant obtenu une partie de l'héritage, Wang Lin maîtrisait désormais la première couche de la tombe mieux que quiconque. Des ondulations apparurent sous ses pieds alors qu'il s'apprêtait à quitter le palais.
 
 Cependant, à cet instant précis, le corps de Wang Lin trembla et il s'arrêta net. Il fixa le vide au loin.
 
@@ -100,7 +100,7 @@ Wang Lin n'hésita pas. Dès que le Palais Terrestre fut invoqué, il le rangea 
 
 Il disparut soudainement.
 
-Lorsqu'il réapparut, il se trouvait à la cinquième carte, celle d'où provenaient les Feuilles Antiques. Cet endroit conservait l'apparence qu'il lui avait laissée, sans aucun signe de destruction. Wang Lin agita la main droite et une Feuille Antique apparut. Après l'avoir utilisée pour ouvrir le territoire scellé, il la rangea.
+Lorsqu'il réapparut, il se trouvait à la cinquième carte, celle d'où provenaient les Feuilles Ancestrales. Cet endroit conservait l'apparence qu'il lui avait laissée, sans aucun signe de destruction. Wang Lin agita la main droite et une Feuille Ancestrale apparut. Après l'avoir utilisée pour ouvrir le territoire scellé, il la rangea.
 
 Tout était identique à son départ; le vortex flottant au-dessus du sol tournoyait toujours lentement.
 
@@ -114,7 +114,7 @@ Alors qu'il s'apprêtait à entrer dans le vortex, il esquissa un sourire narquo
 
 Au moment où le territoire disparut, Miao Yin et ses compagnons arrivèrent sur les lieux. Mais ils étaient trop tard: il n'y avait plus rien devant eux!
 
-Simultanément au départ de Wang Lin, Tuo Sen sembla prendre sa décision. Il prit l'héritage de la mémoire et le pressa contre son entreceinte!
+Simultanément au départ de Wang Lin, Tuo Sen sembla prendre sa décision. Il prit l'héritage de la mémoire et le pressa entre ses sourcils!
 
 Dans le Royaume Intérieur, sous le Royaume Céleste du Tonnerre, à Luotian. À cet instant, une faille spatiale apparut silencieusement là où Cupidité avait disparu précédemment, et une silhouette blanche en sortit.
 

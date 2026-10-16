@@ -10,7 +10,7 @@ Le Clan de l'Évasion Nuageuse ne quitta pas la planète; ils n'oseraient pas pa
 
 Après le retour de Wang Lin, celui-ci créa une vaste grotte et se mit en culture en isolement. Il installa des restrictions telles que personne ne puisse faire le moindre pas dans un rayon de 50 kilomètres autour de la grotte.
 
-Le Clan du Scorpion Noir possédant le statut le plus élevé, ils occupèrent la zone la plus proche de la grotte. Le Clan de l'Évasion Nuageuse, impuissant, ne put que s'établir temporairement à proximité.
+Le Clan des Scorpions Noirs possédant le statut le plus élevé, ils occupèrent la zone la plus proche de la grotte. Le Clan de l'Évasion Nuageuse, impuissant, ne put que s'établir temporairement à proximité.
 
 Zhong Grand Rouge était extrêmement arrogant; il se déplaçait entre les deux clans à sa guise. La joie d'être au centre de tous les regards était une sensation qu'il n'avait jamais connue au sein du Clan du Tonnerre Dispersé.
 
@@ -60,7 +60,7 @@ Liu Jinbiao essuya les larmes qui coulaient sur son visage, le regard empreint d
 
 Une lueur de froideur traversa les yeux de Wang Lin, qui hocha la tête. « Puisque tu ne peux plus tromper personne, tu es inutile. Par conséquent, il n'y a aucune raison de te garder en vie. »
 
-Le visage de Liu Jinbiao s'illumina d'une joie éphémère avant de se figer instantanément. Lorsqu'il comprit le sens des paroles de Wang Lin, son expression changea radicalement. Son corps trembla face à la froideur du regard de Wang Lin, et il s'exclama avec précipitation: « Le Céleste se méprend!!! Le Céleste se méprend!!! Ce que ce petit a dit est faux! Même sans le jade, l'art de la tromperie de ce petit est le premier de toute la Mer de Nuages, nul ne peut l'égaler! Je ne me suis jamais reposé uniquement sur le jade, je ne m'en servais qu'en cas de nécessité. Ce petit pratique l'art de la tromperie depuis son plus jeune âge et a saisi chaque occasion pour s'exercer. Je suis un maître de la tromperie! »
+Le visage de Liu Jinbiao s'illumina d'une joie éphémère avant de se figer instantanément. Lorsqu'il comprit le sens des paroles de Wang Lin, son expression changea radicalement. Son corps trembla face à la froideur du regard de Wang Lin, et il s'exclama avec précipitation: « Le Céleste se méprend!!! Le Céleste se méprend!!! Ce que ce petit a dit est faux! Même sans le jade, l'art de la tromperie de ce petit est le premier de toute la Mer des Nuages, nul ne peut l'égaler! Je ne me suis jamais reposé uniquement sur le jade, je ne m'en servais qu'en cas de nécessité. Ce petit pratique l'art de la tromperie depuis son plus jeune âge et a saisi chaque occasion pour s'exercer. Je suis un maître de la tromperie! »
 
 « Oh? Alors dis-moi, quelle est ta compréhension de la tromperie? » L'index droit de Wang Lin continuait de tapoter doucement son genou. Bien que sa voix fût calme, ce geste rythmé faisait battre le cœur de Liu Jinbiao au même tempo.
 

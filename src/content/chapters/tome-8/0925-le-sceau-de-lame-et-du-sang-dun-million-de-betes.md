@@ -82,7 +82,7 @@ L'âme originelle de Lie Yunzi désigna l'un des Parchemins de Bataille et proje
 
 Alors que ce sens divin se propageait, l'un des 17 Lou Fu explosa soudainement, laissant sortir une silhouette sanglante.
 
-Cette silhouette était un homme fait de sang pur. Dès son apparition, il poussa un rugissement et chargea dans la mêlée. Le Dieu du Sang et ses compagnons ne restaient pas en retrait non plus; le Saint Démon Noir et le Saint Dragon Nu attaquaient le groupe du Dieu du Sang. Les deux camps avaient ouvert un nouveau champ de bataille où aucun ne parvenait à prendre l'avantage!
+Cette silhouette était un homme fait de sang pur. Dès son apparition, il poussa un rugissement et chargea dans la mêlée. Le Dieu du Sang et ses compagnons ne restaient pas en retrait non plus; le Saint Démon Noir et le Saint Démon du Dragon des Nuages attaquaient le groupe du Dieu du Sang. Les deux camps avaient ouvert un nouveau champ de bataille où aucun ne parvenait à prendre l'avantage!
 
 L'être de sang se dirigea vers l'affrontement entre le Dieu du Sang et le Saint Démon Noir. Dès son arrivée, le Saint Démon Noir fut contraint dans une situation désastreuse et dut battre en retraite.
 

@@ -8,7 +8,7 @@ slug: le-plan-de-wang-lin
 ---
 Les deux vieux cultivateurs au stade avancé de la Purification du Nirvana se regardèrent, avant de porter leur attention sur le vieil homme au stade initial du Briseur du Nirvana. Ils suivaient manifestement ses ordres.
 
-Ce dernier fixa Wang Lin. Bien que son expression fût sereine, son esprit était bouleversé. Il aurait pu tuer Ren Tao avec deux mouvements tout aussi bien, mais lui était un cultivateur du Briseur du Nirvana, tandis que Wang Lin n'était qu'au sommet du stade du Voyant de Nirvana.
+Ce dernier fixa Wang Lin. Bien que son expression fût sereine, son esprit était bouleversé. Il aurait pu tuer Ren Tao avec deux mouvements tout aussi bien, mais lui était un cultivateur du Briseur du Nirvana, tandis que Wang Lin n'était qu'au sommet du stade du Scruteur du Nirvana.
 
 En tenant compte de cela, il devait accorder une importance capitale à l'individu qui se tenait devant lui. Plus important encore...
 
@@ -38,7 +38,7 @@ Outre Ta Shan et Maître Chen Yi, une autre personne était habitée par des sen
 
 « Espèce de meurtrier, Wang Lin! Pourquoi n'as-tu pas encore laissé ton Grand-père Xu sortir?! Attends un peu, attends seulement! »
 
-Au cours des deux jours suivants, les anciens des trois autres Sectes Divins vinrent féliciter Wang Lin pour son accession au titre d'Empereur Divin de l'Oiseau Vermillon. La Secte Divine de l'Oiseau Vermillon était en pleine effervescence. Wang Lin se montra très poli envers les anciens des trois autres sectes. Après tout, les Quatre Sectes Divines partageaient un destin commun, et la majorité des anciens présents étaient au Domaine de l'Esprit Démon. Ayant été témoins des sorts de Wang Lin, ils ne pouvaient naturellement ressentir de dédain face au fait qu'il n'était qu'un cultivateur du stade Voyant de Nirvana.
+Au cours des deux jours suivants, les anciens des trois autres Sectes Divines vinrent féliciter Wang Lin pour son accession au titre d'Empereur Divin de l'Oiseau Vermillon. La Secte Divine de l'Oiseau Vermillon était en pleine effervescence. Wang Lin se montra très poli envers les anciens des trois autres sectes. Après tout, les Quatre Sectes Divines partageaient un destin commun, et la majorité des anciens présents étaient au Domaine de l'Esprit Démon. Ayant été témoins des sorts de Wang Lin, ils ne pouvaient naturellement ressentir de dédain face au fait qu'il n'était qu'un cultivateur du stade Scruteur du Nirvana.
 
 Après les civilités d'usage, des lieux de séjour furent aménagés pour les anciens des trois sectes, lesquels portaient une grande attention à Wang Lin.
 
@@ -118,4 +118,4 @@ Si Wang Lin avait été présent, il aurait instantanément reconnu le vieil hom
 
 À ce moment-là, un junior de la Secte Divine de l'Oiseau Vermillon entra pour apporter des fruits et du thé. Après les avoir déposés, il se retira aussitôt.
 
-La belle femme saisit sa tasse et souffla sur le thé. Elle leva les yeux vers le vieillard et sourit: « Je présume que vous êtes Lie Yunzi de Luotian. Je suis Li Yingzhi de la Secte des Cadavres. Salutations, Aîné. »
+La belle femme saisit sa tasse et souffla sur le thé. Elle leva les yeux vers le vieillard et sourit: « Je présume que vous êtes Lie Yunzi de Luotian. Ce Junior est Li Yingzhi de la Secte des Cadavres. Salutations, Aîné. »

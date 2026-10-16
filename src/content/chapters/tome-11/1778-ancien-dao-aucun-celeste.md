@@ -84,11 +84,11 @@ Ces puissances se fondirent en une seule au sein de Wang Lin pour former le pouv
 
 Cette ombre était une tête. Une tête aussi vaste que le monde, occupant la majeure partie de l'horizon. Elle dégageait une aura lugubre et millénaire. Son apparence n'était ni celle de Ye Mo, ni celle de Wang Lin, mais celle d'un étranger. Wang Lin ne savait pas qui il était, mais un sentiment de familiarité l'envahit!
 
-Ce sentiment émanait de sa lignée, du sang de l'âme qu'il avait obtenu de l'Ancêtre Ancestral!
+Ce sentiment émanait de sa lignée, du sang de l'âme qu'il avait obtenu de l'Ancien Ancêtre!
 
 Si Wang Lin s'était rendu auprès du clan de l'Ancien Dao sur le Continent Astral Immortel pour voir la statue imposante qui contemplait le monde avec mépris, il aurait réalisé que la tête apparue était identique à celle de cette statue!
 
-« Ancêtre Ancestral! » Au loin, le corps de Xuan Luo trembla. Il contempla la tête avec une immense révérence.
+« Ancien Ancêtre! » Au loin, le corps de Xuan Luo trembla. Il contempla la tête avec une immense révérence.
 
 Les yeux de cette entité étaient flous, impossibles à distinguer clairement. À cet instant, elle ouvrit la bouche et expira un souffle. Ce souffle fut comme une bourrasque dévastatrice balayant le monde, le Vieux Fantôme Zhan et l'intégralité de l'Ancienne Tombe!
 

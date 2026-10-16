@@ -66,7 +66,7 @@ S'ils pouvaient sceller le monde une fois, ils pourraient le faire une deuxième
 
 Cela faisait longtemps qu'il n'avait pas ressenti une telle urgence. Ce n'est qu'en étant constamment confronté à la mort que Wang Lin avait pu progresser autant en moins de 3 000 ans.
 
-Pendant que Wang Lin méditait, l'agitation des cultivateurs s'intensifiait à mesure que les grondements persistaient. On ne savait pas qui menait la marche, mais ils se ruaient même vers les palais.
+Pendant que Wang Lin méditait, hormis quelques centaines de cultivateurs, l'agitation des autres s'intensifiait à mesure que les grondements persistaient. On ne savait pas qui menait la marche, mais ils se ruaient même vers les palais.
 
 « Chers compagnons de la Tribulation du Vide, que devons-nous faire maintenant?! »
 
@@ -74,7 +74,7 @@ Pendant que Wang Lin méditait, l'agitation des cultivateurs s'intensifiait à m
 
 « Avons-nous des renforts? Si oui, quand arriveront-ils? Et s'il n'y en a pas, allons-nous simplement attendre la mort?! »
 
-« Aîné, donnez-nous une explication! »
+« Senior, donnez-nous une explication! »
 
 « Donnez-nous une réponse! »
 
@@ -86,7 +86,7 @@ Dans un fracas assourdissant, le cultivateur explosa en un nuage de sang qui éc
 
 « Pourquoi paniquez-vous tous ainsi? » Une voix glaciale émana du palais. Lu Wenran, bien qu'ayant perdu un bras, sortit avec un visage pâle mais un regard sombre.
 
-Derrière lui, Yan Lu était livide. Elle suivait silencieusement, des taches de sang maculant ses vêtements. À ses côtés se trouvait Xu Dongdei, qui paraissait extrêmement affaibli, comme s'il avait été gravement blessé lors du dernier affrontement.
+Derrière lui, Yan Lu était livide. Elle suivait silencieusement, des taches de sang maculant ses vêtements. À ses côtés se trouvait Xu Dongde, qui paraissait extrêmement affaibli, comme s'il avait été gravement blessé lors du dernier affrontement.
 
 Derrière ce trio marchaient les trois cultivateurs de stade initial de la Tribulation du Vide issus des sectes voisines. Tous étaient épuisés et avançaient en silence.
 
@@ -110,7 +110,7 @@ Le vieil homme nommé Zhou, tremblant, accéléra le débit de ses paroles.
 
 À ces mots, la respiration des mille cultivateurs devint erratique. Ils n'avaient jamais entendu parler d'une telle chose. Certains doutaient de l'existence même du Taureau Céleste, mais il semblait que cette créature existait bel et bien, et que son armure pouvait décupler la puissance de celui qui la portait.
 
-« Comme revêtir cette armure comporte des risques non négligeables, les cultivateurs de la Tribulation du Vide ont convenu que l'Aîné Lu, qui possède le niveau de culture et la contribution les plus élevés, en serait le porteur. » Tandis que le vieil homme Zhou parlait, dans une grotte lointaine, Wang Lin ouvrit les yeux, dont le regard brillait d'une étrange lueur.
+« Comme revêtir cette armure comporte des risques non négligeables, les cultivateurs de la Tribulation du Vide ont convenu que l'Ancien Lu, qui possède le niveau de culture et la contribution les plus élevés, en serait le porteur. » Tandis que le vieil homme Zhou parlait, dans une grotte lointaine, Wang Lin ouvrit les yeux, dont le regard brillait d'une étrange lueur.
 
 Il ne croyait pas un instant que Lu Wenran accepterait de porter cette armure uniquement par nécessité. Il devait y avoir d'autres avantages cachés, sans quoi Lu Wenran n'aurait jamais consenti.
 

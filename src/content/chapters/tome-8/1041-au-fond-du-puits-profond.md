@@ -10,7 +10,7 @@ slug: au-fond-du-puits-profond
 
 Après avoir longuement réfléchi, Wang Lin réprima les sentiments complexes qu'il éprouvait en voyant Liu Mei. Il détourna son regard du ciel et sentit la puissante énergie originelle parcourir tout son corps.
 
-« Au sommet de l'Éclaireur du Nirvana! » Les yeux de Wang Lin brillèrent intensément. Il était inutile de songer à autre chose. Il se trouvait toujours dans la Grotte de l'Empereur Céleste et devait d'abord résoudre le problème immédiat.
+« Au sommet du Scruteur du Nirvana! » Les yeux de Wang Lin brillèrent intensément. Il était inutile de songer à autre chose. Il se trouvait toujours dans la Grotte de l'Empereur Céleste et devait d'abord résoudre le problème immédiat.
 
 « Tout dans ce monde contient une loi. Le ciel, la terre, les cinq éléments, tout possède sa propre loi. Si l'on veut toutes les comprendre, il faudrait bien trop de temps. La puissance d'un être est limitée; il est donc impossible de tout saisir. » Les yeux de Wang Lin s'illuminèrent tandis qu'il méditait.
 
@@ -32,7 +32,7 @@ Wang Lin observa attentivement, et l'Oiseau Vermillon devint transparent. La mer
 
 « Selon ma compréhension de la culture, pour atteindre le stade du Purificateur du Nirvana, je dois maîtriser complètement l'une de ces lois. Je pourrai alors utiliser cette loi pour absorber l'énergie originelle du monde et faire en sorte que l'énergie originelle dans mon corps ne s'épuise jamais.
 
-La force des cultivateurs du stade Purificateur du Nirvana est étroitement liée à la loi qu'ils choisissent. »
+La force des cultivateurs du stade du Purificateur du Nirvana est étroitement liée à la loi qu'ils choisissent. »
 
 Wang Lin agita la main pour disperser la mer de flammes, puis ses yeux retrouvèrent leur aspect normal.
 
@@ -70,7 +70,7 @@ Se remémorant l'apparence d'un Blaireau Marqué d'Étoiles après sa métamorph
 
 Tandis que le blaireau reniflait l'aura de Wang Lin, ses yeux intelligents s'animèrent d'excitation. Il décida de simplement s'allonger sur l'épaule du cultivateur.
 
-Wang Lin leva la main et saisit délicatement le petit blaireau. Ce dernier sembla très mécontent et agrippa le tissu des vêtements de Wang Lin avec ses griffes, poussant un rugissement comme s'il bourait d'avoir été arraché à son perchoir.
+Wang Lin leva la main et saisit délicatement le petit blaireau. Ce dernier sembla très mécontent et agrippa le tissu des vêtements de Wang Lin avec ses griffes, poussant un rugissement comme s'il boudait d'avoir été arraché à son perchoir.
 
 Wang Lin tint le Blaireau Marqué d'Étoiles devant son visage pour mieux l'examiner. Il l'avait vu des centaines d'années auparavant lors de son arrivée sur la planète Tian Yun et lui avait déjà pris une certaine affection. Il n'aurait jamais imaginé que l'animal reviendrait vers lui des siècles plus tard.
 
@@ -82,7 +82,7 @@ Cependant, au moment où il allait s'éloigner, le Blaireau Marqué d'Étoiles p
 
 Les yeux de Wang Lin s'illuminèrent et il scruta le fond du puits. Après une courte réflexion, il descendit à son tour, suivi par le blaireau.
 
-« Les Blaireaux Marqués d'Étoiles adorent l'aura des dieux anciens. Se pourrait-il que quelque chose appartenant à un dieu ancien soit enfoui sous le Bassin de l'Enterrement Céleste? » Wang Lin pensa immédiatement au tendon rouge qui avait piégé l'Ancêtre Saint du Clan du Tatouage.
+« Les Blaireaux Marqués d'Étoiles adorent l'aura des dieux anciens. Se pourrait-il que quelque chose appartenant à un dieu ancien soit enfoui sous le Bassin Funéraire Céleste? » Wang Lin pensa immédiatement au tendon rouge qui avait piégé l'Ancêtre Saint du Clan du Tatouage.
 
 Ce puits semblait sans fond. Peu importe la profondeur atteinte par Wang Lin, il ne semblait jamais se rapprocher de l'issue. L'énergie glaciale émanant des profondeurs devenait de plus en plus intense, jusqu'à ce qu'une couche de givre recouvre les parois du puits.
 

@@ -70,7 +70,7 @@ Ceux qui subsistaient représentaient toute la puissance restante du Royaume Int
 
 Le nombre de morts subis durant ce siècle de guerre était sans précédent pour le Royaume Intérieur. Ce dernier ne comptait déjà plus beaucoup de cultivateurs du troisième niveau, et beaucoup venaient de disparaître. Ceux qui restaient étaient tous blessés.
 
-Les Flammes de l'Encens manquaient cruellement, rendant leur récupération très difficile; ils pourraient ne jamais retrouver leur apogée.
+Les Flammes de Joss manquaient cruellement, rendant leur récupération très difficile; ils pourraient ne jamais retrouver leur apogée.
 
 Après cette guerre, seules 19 planètes subsistaient dans la formation planétaire. Les 50 000 cultivateurs restèrent sur ces mondes pour se soigner.
 
@@ -80,7 +80,7 @@ Sous la garde de Situ Nan et de ses compagnons, chacun choisit l'une des 19 plan
 
 Tout semblait s'apaiser et ces dizaines de milliers de cultivateurs commencèrent à se rétablir. Cependant, ils ne relâchèrent pas leur vigilance, car cette guerre n'était pas terminée.
 
-À cet instant, un quatrième rayon de lumière s'élança vers la direction où Wang Lin avait disparu. Une autre femme se trouvait dans ce rayon. C'était la cultivatrice du Vide Arcane de la Rivière Invocatrice, la femme en violet!
+À cet instant, un quatrième rayon de lumière s'élança vers la direction où Wang Lin avait disparu. Une autre femme se trouvait dans ce rayon. C'était la cultivatrice du Vide Arcane de la Rivière Invoquée, la femme en violet!
 
 Elle possédait une origine mystérieuse et, hormis quelques rares privilégiés du Royaume Intérieur, personne ne connaissait son identité. Pourtant, ses actions durant cette guerre lui avaient valu le respect de tous.
 
@@ -112,4 +112,4 @@ Debout devant l'ouverture, Wang Lin réfléchit silencieusement. Il scruta la Fo
 
 « Cette formation est morte... » déplora Wang Lin. Il se retourna et observa l'espace devant lui. Un rayon de lumière violette, portant l'aura d'une cultivatrice du troisième niveau, volait vers lui.
 
-Ce rayon violet était la dernière personne à être partie, mais la première à rattraper Wang Lin. La cultivatrice de la Rivière Invocatrice!
+Ce rayon violet était la dernière personne à être partie, mais la première à rattraper Wang Lin. La cultivatrice de la Rivière Invoquée!

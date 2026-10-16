@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1662 - Eight Imperial Concubine
 slug: huitieme-concubine-imperiale
 ---
-Debout devant la brèche de la Formation de Scellement du Royaume, Wang Lin regarda la cultivatrice venue des Rivières Invoquées. La femme froide s'arrêta à trente mètres de lui.
+Debout devant la brèche de la Formation de Scellement du Royaume, Wang Lin regarda la cultivatrice venue des Rivières Invoquées. La femme froide s'arrêta à cent pieds de lui.
 
 Elle était d'une grande beauté; bien qu'inférieure à Mu Bingmei, elle n'en demeurait pas moins éblouissante. Debout là, sa robe violette flottait au vent, lui donnant l'allure d'une immortelle céleste.
 
@@ -40,7 +40,7 @@ Si les dires de Zi Xia étaient exacts, celle qui s'était échappée était la 
 
 Il s'agissait de la première et de la septième!
 
-« Dans la faille de la Mer Nuageuse, cette femme qui a conclu un accord avec moi est très probablement aussi une concubine impériale céleste. Je ne sais juste pas si elle est la première ou la septième! » Une pensée traversa l'esprit de Wang Lin.
+« Dans la faille de la Mer des Nuages, cette femme qui a conclu un accord avec moi est très probablement aussi une concubine impériale céleste. Je ne sais juste pas si elle est la première ou la septième! » Une pensée traversa l'esprit de Wang Lin.
 
 « La cinquième sœur que tu as scellée possède une grande valeur pour moi. Remets-la-moi. » Le ton de Zi Xia était empreint d'une autorité indiscutable. Il était évident qu'elle avait toujours joui d'un statut élevé, même sur le Continent Astral Immortel, et elle s'exprimait ainsi par pur réflexe.
 
@@ -54,7 +54,7 @@ Le froid dans le regard de Wang Lin s'intensifia. Il fixa Zi Xia, qui continuait
 
 « Tes exigences sont excessives! »
 
-« Errance! Qui es-tu pour me parler sur ce ton? N'agis-tu pas ainsi pour éveiller le Souverain Céleste et obtenir une immense fortune? Fais ce que je te dis. Une fois la tâche accomplie, je rapporterai naturellement tes services au Souverain Céleste. » Les yeux en forme de phénix de Zi Xia fixèrent Wang Lin, son expression devenant sombre.
+« Absurdité! Qui es-tu pour me parler sur ce ton? N'agis-tu pas ainsi pour éveiller le Souverain Céleste et obtenir une immense fortune? Fais ce que je te dis. Une fois la tâche accomplie, je rapporterai naturellement tes services au Souverain Céleste. » Les yeux en forme de phénix de Zi Xia fixèrent Wang Lin, son expression devenant sombre.
 
 Wang Lin fut un instant stupéfait par l'audace de Zi Xia, puis il éclata de rire. Tandis qu'il riait, ses yeux devinrent glacials.
 

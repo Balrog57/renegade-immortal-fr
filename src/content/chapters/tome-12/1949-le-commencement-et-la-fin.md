@@ -42,9 +42,9 @@ Il s'immergea et utilisa le Dao de la tromperie pour échapper à l'inspection d
 
 Ceux qui étaient imprégnés par cette aura devaient être des êtres de droiture. Ils ne portaient peut-être pas le poids du monde sur leurs épaules, mais ils étaient des êtres capables d'assumer chacune de leurs décisions!
 
-Après un long moment, Wang Lin ouvrit les yeux à l'issue de sa cinquième compréhension. La lumière dans son œil gauche persista durant plusieurs respirations avant de se dissiper lentement.
+Après un long moment, Wang Lin ouvrit les yeux à l'issue de sa cinquième compréhension. La lumière dans son œil gauche persista durant plusieurs dizaines de respirations avant de se dissiper lentement.
 
-Lorsque Liu Jinbiao vit la lumière émanant de Wang Lin, son cœur trembla et il n'osa plus approcher. Même le dragon marin de l'Exaltation Dorée évita cette clarté.
+Lorsque Liu Jinbiao vit la lumière émanant de Wang Lin, son cœur trembla et il n'osa plus approcher. Même le dragon marin Exalté Doré évita cette clarté.
 
 Dans l'œil gauche de Wang Lin, sous l'éclat de la lumière, les contours d'un soleil se formèrent lentement. Cependant, dès que la lumière se dissipa, la forme ne put prendre corps.
 
@@ -106,6 +106,6 @@ Ainsi, huit années passèrent en un éclair.
 
 Durant ces huit ans, aucun nouveau visiteur ne vint à la Secte Dong Lin, et l'Ancien de la secte ne vint pas troubler Wang Lin. Il passa ces huit années dans la paix.
 
-Pendant cette période, Liu Jinbiao utilisa une méthode inconnue pour se lier d'amitié avec le dragon marin de l'Exaltation Dorée. Cela lui permit même de s'asseoir sur son dos pour parcourir le monde.
+Pendant cette période, Liu Jinbiao utilisa une méthode inconnue pour se lier d'amitié avec le dragon marin Exalté Doré. Cela lui permit même de s'asseoir sur son dos pour parcourir le monde.
 
 Après ces huit ans, cinq autres années passèrent...

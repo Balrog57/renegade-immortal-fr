@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1343 - Bait
 slug: lappat
 ---
-La neige tombait comme des plumes de canard, recouvrant la terre couche après couche. Le monde entier n'était que blancheur. Une épaisse couche de neige drapait la végétation, tandis que les parois de glace reflétaient la lumière du soleil.
+La neige tombait comme des plumes d'oie, recouvrant la terre couche après couche. Le monde entier n'était que blancheur. Une épaisse couche de neige drapait la végétation, tandis que les parois de glace reflétaient la lumière du soleil.
 
 Le poids de la neige sur les branches des arbres créait une sensation oppressante, comme si elles allaient se briser à tout instant.
 
@@ -32,17 +32,17 @@ La neige fut repoussée comme des vagues océaniques, révélant la terre nue en
 
 Simultanément, des nuages de tribulation divine apparurent et se rassemblèrent rapidement. Une silhouette semblait se tenir à l'intérieur. Cet être dégageait une dense énergie spirituelle céleste et irradiait une aura majestueuse!
 
-« Cultivateur du bas-monde, endure la tribulation divine et deviens un immortel! » La voix puissante rugit comme le tonnerre depuis les nuages. Pourtant, lorsqu'elle atteignit les oreilles de l'homme d'âge moyen, son expression ne changea pas d'un iota.
+« Cultivateur du royaume inférieur, endure la tribulation divine et deviens un être céleste! » La voix puissante rugit comme le tonnerre depuis les nuages. Pourtant, lorsqu'elle atteignit les oreilles de l'homme d'âge moyen, son expression ne changea pas d'un iota.
 
 L'homme tapota ses vêtements et se leva pour faire face aux nuages. Il les fixa avec un regard complexe, empreint d'une profonde moquerie.
 
-« Devenir un immortel? » Le sarcasme dans sa voix s'accentua.
+« Devenir un être céleste? » Le sarcasme dans sa voix s'accentua.
 
-Alors qu'il se moquait, le tonnerre gronda dans les cieux. L'immortel au sein des nuages leva la main et l'orage éclata. Un éclair capable de fendre le monde descendit sur l'homme!
+Alors qu'il se moquait, le tonnerre gronda dans les cieux. L'être céleste au sein des nuages leva la main et l'orage éclata. Un éclair capable de fendre le monde descendit sur l'homme!
 
 L'homme d'âge moyen resta immobile et, au moment où l'éclair frappait, il leva la main droite. Le tonnerre s'abattit sur lui et, après un fracas assourdissant, se dissipa. Le visage de l'homme était pâle, mais sa tête restait haute!
 
-Il vit l'immortel dans les nuages lever une nouvelle fois la main droite, provoquant de nouveaux grondements. La seconde tribulation divine se préparait et frappa un instant plus tard!
+Il vit l'être céleste dans les nuages lever une nouvelle fois la main droite, provoquant de nouveaux grondements. La seconde tribulation divine se préparait et frappa un instant plus tard!
 
 Cependant, à cet instant précis, un changement stupéfiant se produisit.
 
@@ -58,7 +58,7 @@ Dès l'apparition du jeune homme, l'expression de l'immortel changea radicalemen
 
 Le tonnerre gronda et le vieillard dans les nuages trembla. Le tonnerre à l'intérieur de son corps rugissait hors de son contrôle, faisant changer son expression. Cependant, loin de s'enfuir, il chargea avec une férocité inattendue hors des nuages. Ses mains formèrent un sceau et il cracha une perle de tonnerre qui fonça vers Wang Lin.
 
-« Arrogant à l'extrême! » Le vieil homme était d'une rapidité fulgurante. Il dégageait l'aura d'un cultivateur au stade avancé de la Scrutation du Nirvana. Il semblait sur le point de franchir le stade de la Purification du Nirvana!
+« Arrogant à l'extrême! » Le vieil homme était d'une rapidité fulgurante. Il dégageait l'aura d'un cultivateur au stade avancé du Scruteur du Nirvana. Il semblait sur le point de franchir le stade du Purificateur du Nirvana!
 
 La perle de tonnerre contenait une puissance infinie. C'était un trésor composé de cinq Éclairs de Tonnerre Spirituel! La perle fonçait sur Wang Lin avec une force capable de briser la terre.
 
@@ -94,7 +94,7 @@ Cette méthode était bien plus efficace que de les traquer un par un. Après un
 
 « Un cultivateur Briseur du Nirvana arrive enfin... » Les yeux de Wang Lin s'illuminèrent et il sourit en observant le vieil homme qui sortait de la brèche dans les nuages de tribulation, enveloppé d'éclairs!
 
-Ce vieillard vêtait du noir et dégageait une majesté imposante. Dès son apparition, son expression changea lorsqu'il baissa les yeux. Il vit immédiatement Wang Lin et sentit l'odeur du sang qui imprégnait le monde!
+Ce vieillard était vêtu de noir et dégageait une majesté imposante. Dès son apparition, son expression changea lorsqu'il baissa les yeux. Il vit immédiatement Wang Lin et sentit l'odeur du sang qui imprégnait le monde!
 
 L'expression du vieil homme devint grave et il révéla une intention meurtrière. Loin de reculer, il chargea Wang Lin. Ses mains formèrent des sceaux et il pointa le vide.
 
@@ -112,6 +112,6 @@ Le vieil homme cracha un flot de sang, les yeux écarquillés par une peur monst
 
 « Combien de temps comptes-tu encore te cacher? » L'expression de Wang Lin était sereine. Après avoir tué le cultivateur Briseur du Nirvana, il scruta l'horizon. Le Royaume Ji, sous la forme d'un éclair rouge, pointait vers cette direction en crépitant, prêt à frapper à tout instant.
 
-Des ondulations apparurent dans le ciel. Le jeune homme chauve qui avait usurpé ce corps, connu sous le nom de « Maître du Tonnerre Dispersé » par les habitants des 7 Millions de Mondes, fit son apparition.
+Des ondulations apparurent dans le ciel. Le jeune homme chauve qui avait usurpé ce corps, connu sous le nom de « Maître Esprit Dispersé » par les habitants des 7 Millions de Mondes, fit son apparition.
 
 Wang Lin regarda calmement l'audacieux jeune homme et dit lentement: « Tu m'as suivi jusqu'à aujourd'hui. Je ne te donnerai qu'une seule chance de t'expliquer. Si ton explication ne me satisfait pas, tu mourras! »

@@ -58,7 +58,7 @@ Cependant, rien ne pouvait arrêter Wang Lin. Il leva la tête vers le sommet de
 
 Cette montagne bleue s'élançait vers les cieux sans fin apparente. Pourtant, des escaliers sinueux menaient au sommet. Wang Lin gravit les marches une à une.
 
-Il était extrêmement rapide et ne marquait aucun temps d'arrêt. Tandis qu'il avançait, il mobilisait toute son énergie originelle pour contrer la force qui le repoussait. Il poussa un rugissement en franchissant instantanément les 30 % premiers degrés!
+Il était extrêmement rapide et ne marquait aucun temps d'arrêt. Tandis qu'il avançait, il mobilisait toute son énergie originelle pour contrer la force qui le repoussait. Il poussa un rugissement en franchissant instantanément les 30 % premières marches!
 
 Mais à ce moment précis, la résistance de la montagne devint terrifiante. C'était comme si une planète entière pesait sur lui, l'empêchant d'avancer. À chaque pas, il devait supporter une pression colossale. Plus surprenant encore: plus il montait, plus la résistance se multipliait!
 

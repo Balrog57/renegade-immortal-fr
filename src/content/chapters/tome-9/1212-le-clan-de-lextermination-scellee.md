@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1212 - Sealing Extermination Clan
 slug: le-clan-de-lextermination-scellee
 ---
-Wang Lin n'était pas certain de pouvoir affronter un cultivateur au stade avancé de la Brisure de Nirvana. En temps normal, il aurait choisi de battre en retraite, mais après le troisième éveil de l'Oiseau Vermillon, une chance s'offrait à lui! De plus, après avoir absorbé le tonnerre du membre du Clan du Tonnerre Dispersé, son propre pouvoir de foudre s'était considérablement amélioré.
+Wang Lin n'était pas certain de pouvoir affronter un cultivateur au stade avancé du Briseur du Nirvana. En temps normal, il aurait choisi de battre en retraite, mais après le troisième éveil de l'Oiseau Vermillon, une chance s'offrait à lui! De plus, après avoir absorbé le tonnerre du membre du Clan du Tonnerre Dispersé, son propre pouvoir de foudre s'était considérablement amélioré.
 
-Plus important encore, il avait assimilé le domaine de combat de Zhang Xingye. Bien qu'il ne l'ait pas fusionné et n'en ait que partiellement compris la nature, cela lui donnait la détermination nécessaire pour combattre ce cultivateur au stade avancé de la Brisure de Nirvana!
+Plus important encore, il avait assimilé le domaine de combat de Zhan Xingye. Bien qu'il ne l'ait pas fusionné et n'en ait que partiellement compris la nature, cela lui donnait la détermination nécessaire pour combattre ce cultivateur au stade avancé du Briseur du Nirvana!
 
 La phrase de Zhan Xingye résonnait dans l'esprit de Wang Lin: « Les cultivateurs comme nous ne reculent jamais devant un combat! »
 
@@ -34,9 +34,9 @@ Cette scène fit pousser un cri d'effroi chez le vieil homme aux cheveux blancs.
 
 Cependant, au moment où les sorts atteignirent leur cible, la mer de flammes avait fini de converger. Wang Lin était devenu un vortex de feu, absorbant toutes les flammes bleues du monde. Un grondement sourd retentit alors que ces sortilèges entraient en collision avec l'incendie!
 
-Un fracas tonnerrelement retentit à travers le monde. Il était difficile de décrire la splendeur de cette scène: c'était comme si le Royaume aux Sept Couleurs tout entier était en proie aux flammes, et Wang Lin en était le foyer central!
+Un fracas tonitruant retentit à travers le monde. Il était difficile de décrire la splendeur de cette scène: c'était comme si le Royaume aux Sept Couleurs tout entier était en proie aux flammes, et Wang Lin en était le foyer central!
 
-À mesure que les sorts s'effondraient, tout le feu fut absorbé par l'armure de Wang Lin et se précipita vers son entretoit. À cet instant, la lumière bleue émanant du tatouage entre ses sourcils revêtait un caractère démoniaque!
+À mesure que les sorts s'effondraient, tout le feu fut absorbé par l'armure de Wang Lin et se précipita vers le point entre ses sourcils. À cet instant, la lumière bleue émanant du tatouage entre ses sourcils revêtait un caractère démoniaque!
 
 « Feu des cieux et de la terre, écoutez mon commandement et incinérez tout! » La voix de Wang Lin était calme, mais cette sérénité semblait contenir une chaleur capable de consumer l'âme. Dès qu'il parla, la lumière bleue entre ses sourcils brilla intensément et le feu jaillit!
 
@@ -80,7 +80,7 @@ Alors que sa main droite redescendait, l'innombrable tonnerre qui emplissait le 
 
 C'était comme une divine rétribution! Et Wang Lin en était le maître!
 
-« Même la puissance de son tonnerre suffit à combattre un cultivateur de la Brisure de Nirvana. Je dois tuer cet homme. Pas étonnant que le Souverain veuille sa mort. S'il survit, il sera une calamité pour mon Haut Clan Ancestral! » Le vieil homme poussa un rugissement et s'élança dans les airs. Il leva la main droite et une lueur étrange envahit son regard. L'énergie originelle du monde se précipita inopinément dans sa paume!
+« Même la puissance de son tonnerre suffit à combattre un cultivateur du Briseur du Nirvana. Je dois tuer cet homme. Pas étonnant que le Souverain veuille sa mort. S'il survit, il sera une calamité pour mon Haut Clan Ancestral! » Le vieil homme poussa un rugissement et s'élança dans les airs. Il leva la main droite et une lueur étrange envahit son regard. L'énergie originelle du monde se précipita inopinément dans sa paume!
 
 Au moment où le vieil homme s'éleva, le tonnerre se rapprocha dans un fracas de déchirement. Le monde entier était saturé de foudre.
 
@@ -88,7 +88,7 @@ Au moment où le vieil homme s'éleva, le tonnerre se rapprocha dans un fracas d
 
 « L'Empreinte de l'Esprit Guerrier! » Les pupilles de Wang Lin se rétractèrent brusquement!
 
-« Ce vieil homme est entré dans la Secte de Dieu et a appris ce sort. Aujourd'hui, je vais t'éliminer avec lui, et cela marquera l'achèvement d'un cycle! » Le vieillard n'était pas surpris que Wang Lin connaisse cette technique. Après tout, ce sort jouissait d'une renommée illustre dans la Mer des Nuages!
+« Ce vieil homme est entré dans la Secte Divine et a appris ce sort. Aujourd'hui, je vais t'éliminer avec lui, et cela marquera l'achèvement d'un cycle! » Le vieillard n'était pas surpris que Wang Lin connaisse cette technique. Après tout, ce sort jouissait d'une renommée illustre dans la Mer des Nuages!
 
 L'Empreinte de l'Esprit Guerrier créée par le vieil homme dégagea soudain une pression majestueuse en s'élançant. Elle entra en collision avec le tonnerre et provoqua un séisme qui ébranla les cieux!
 
@@ -100,6 +100,6 @@ Il était rare de voir quelqu'un utiliser l'Empreinte de l'Esprit Guerrier, mais
 
 Pourtant, ici même, dans le Royaume aux Sept Couleurs, deux Empreintes de l'Esprit Guerrier venaient de surgir pour engager un combat à mort!
 
-Nul ne savait laquelle était la plus forte, mais dès leur apparition, il sembla que le Royaume aux Sept Couleurs soit sur le point de s'effondrer. La terre se fendit et une immense faille apparut, scindant le domaine en deux. Cette crevasse se formaait précisément là où les empreintes de Wang Lin et du vieil homme entraient en collision.
+Nul ne savait laquelle était la plus forte, mais dès leur apparition, il sembla que le Royaume aux Sept Couleurs soit sur le point de s'effondrer. La terre se fendit et une immense faille apparut, scindant le domaine en deux. Cette crevasse se formait précisément là où les empreintes de Wang Lin et du vieil homme entraient en collision.
 
 Les deux paumes projetées s'approchèrent l'une de l'autre à des vitesses extrêmes!

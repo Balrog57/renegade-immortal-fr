@@ -24,7 +24,7 @@ Sept jours passèrent, puis plus d'une demi-lune. Près d'un mois s'était écou
 
 Tout était conforme à ce que Wang Lin avait prédit avant sa méditation: hormis quelques rares rescapés, tous les autres étaient morts.
 
-Bien que la flamme de la guerre brûlât toujours sur le Continent du Taureau Céleste, une paix rare régnait sur la Prairie de l'Extrême Ciel. Aucune nouvelle directive ne provenant ni du Grand Secte de l'Âme, ni de la Secte Gui Yi, personne ne pouvait partir; ils n'avaient d'autre choix que de garder le troisième méridien.
+Bien que la flamme de la guerre brûlât toujours sur le Continent du Taureau Céleste, une paix rare régnait sur la Prairie de l'Extrême Ciel. Aucune nouvelle directive ne provenant ni de la Secte de la Grande Âme, ni de la Secte Gui Yi, personne ne pouvait partir; ils n'avaient d'autre choix que de garder le troisième méridien.
 
 Bien que les jours fussent monotones, la situation devenait intéressante dès qu'un cultivateur dénichait un trésor brisé sur la prairie. De plus en plus de cultivateurs s'aventuraient hors de leurs bases pour chercher les reliques et les objets laissés par les défunts du Continent du Démon Vert. Cependant, la grande majorité d'entre eux avait été détruite par le sort de Wang Lin. Même ceux qui subsistaient étaient pour la plupart brisés, bien que certains conservassent une certaine valeur malgré leur état.
 
@@ -36,7 +36,7 @@ La bataille de Wang Lin et ses trois sentences avaient imposé le respect et la 
 
 Le temps reprit sa course inexorable. Un mois, deux mois, trois mois. Durant ces trois mois, les cultivateurs avaient exploré la totalité de la prairie sans rien laisser derrière eux, mais Wang Lin n'était toujours pas sorti de sa méditation.
 
-Un jour, alors qu'une centaine de cultivateurs formaient un petit marché sur la prairie pour échanger leurs trouvailles et leurs propres biens, un grondement sourd retentit au loin. Ce bruit soudain fit pâlir leurs visages. Ils se levèrent d'un bond, la légèreté des trois derniers mois s'effaçant devant une expression solennelle.
+Un jour, alors que quelques centaines de cultivateurs formaient un petit marché sur la prairie pour échanger leurs trouvailles et leurs propres biens, un grondement sourd retentit au loin. Ce bruit soudain fit pâlir leurs visages. Ils se levèrent d'un bond, la légèreté des trois derniers mois s'effaçant devant une expression solennelle.
 
 Le grondement ne provenait pas de la Prairie de l'Extrême Ciel, mais de bien plus loin. Bien qu'il eût parcouru une distance inconnue, il plongea le monde dans une pénombre oppressante. Le tumulte se propagea instantanément au-dessus d'eux, dégageant une aura de sang et de férocité que l'on ne pouvait voir, mais que l'on ressentait viscéralement.
 
@@ -72,9 +72,9 @@ Il fallut plusieurs heures pour que ce rugissement violent ne se dissipe dans le
 
 Au cours des deux mois suivants, les cultivateurs ne furent plus du tout détendus, mais au contraire extrêmement tendus. En effet, le rugissement d'il y a deux mois s'était répété deux fois supplémentaires! Ces trois rugissements, faibles mais puissants, accablèrent le cœur de chacun sous une pression croissante.
 
-Le septième jour suivant ces deux mois, un rayon de lumière fonça vers la Prairie de l'Extrême Ciel depuis le Continent du Taureau Céleste. Le rayon atteignit rapidement le dessus du palais souterrain et se mua en un vieil homme vêtu de noir, dont l'état paraissait pitoyable. Cet homme n'appartenait pas au Grand Secte de l'Âme, il venait de la Secte Gui Yi!
+Le septième jour suivant ces deux mois, un rayon de lumière fonça vers la Prairie de l'Extrême Ciel depuis le Continent du Taureau Céleste. Le rayon atteignit rapidement le dessus du palais souterrain et se mua en un vieil homme vêtu de noir, dont l'état paraissait pitoyable. Cet homme n'appartenait pas à la Secte de la Grande Âme, il venait de la Secte Gui Yi!
 
-« Habitants du troisième méridien de la Prairie de l'Extrême Ciel, obéissez à cet ordre! Je viens sous le commandement du Grand Secte de l'Âme et de la Secte Gui Yi. Quittez immédiatement ces lieux et repliez-vous à un million de kilomètres pour vous rassembler au Mont Tian Luan. Quelqu'un vous y attendra. Suivez l'ordre et partez sans tarder! »
+« Habitants du troisième méridien de la Prairie de l'Extrême Ciel, obéissez à cet ordre! Je viens sous le commandement de la Secte de la Grande Âme et de la Secte Gui Yi. Quittez immédiatement ces lieux et repliez-vous à un million de kilomètres pour vous rassembler au Mont Tian Luan. Quelqu'un vous y attendra. Suivez l'ordre et partez sans tarder! »
 
 « Propriétaire de l'armure de l'âme du troisième méridien, ce vieil homme, Ouyang Zhen, sollicite une rencontre! » Le vieil homme se tenait dans le ciel, l'air anxieux, mais n'oubliait pas de rester respectueux. Après tout, celui qui possédait l'armure de l'âme méritait les honneurs!
 

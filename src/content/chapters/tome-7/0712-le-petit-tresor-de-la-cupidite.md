@@ -12,9 +12,9 @@ D'un geste de la main droite, il fit éclater tous les fruits pour en extraire l
 
 Des craquements secs retentirent tandis que la brume se diffusait autour de la Bête du Tonnerre. L'étreinte des tentacules se relâcha légèrement et leur couleur commença à virer au cramoisi.
 
-Profitant de l'affaiblissement des tentacules, la Bête du Tonnerre s'enveloppa d'éclairs. Son corps colossal se rétracta jusqu'à redevenir le charriot, avant de charger enfin vers l'extérieur.
+Profitant de l'affaiblissement des tentacules, la Bête du Tonnerre s'enveloppa d'éclairs. Son corps colossal se rétracta jusqu'à redevenir le chariot, avant de charger enfin vers l'extérieur.
 
-La main gauche de Wang Lin s'étira et rengaina le Charriot de Guerre du Dieu Exterminateur dans son sac de rangement.
+La main gauche de Wang Lin s'étira et rengaina le Char de Guerre Divin dans son sac de rangement.
 
 Il était évident que la Bête du Tonnerre était terrifiée. À l'origine, elle refusait de retourner dans le sac, mais elle finit par céder.
 
@@ -114,7 +114,7 @@ Le sort d'Arrêt!
 
 Tout cela se produisit en un éclair, sans la moindre hésitation. Tandis que Wang Lin s'élançait, un rugissement retentit dans son dos.
 
-Saisissant la montagne, Wang Lin s'envola promptement. Il la rengaina aussitôt dans son sac et plongea dans la terre. Sans hésiter, il utilisa un sort d'évasion appris de le vieil homme. Des rugissements résonnèrent derrière lui et, alors qu'il s'échappait, il déploya son sens divin. À sa grande horreur, il vit une partie du corps du Serpent aux yeux de lune — une centaine de pieds — sortir de la terre, tandis que le reste demeurait enfoui.
+Saisissant la montagne, Wang Lin s'envola promptement. Il la rengaina aussitôt dans son sac et plongea dans la terre. Sans hésiter, il utilisa un sort d'évasion appris du vieil homme. Des rugissements résonnèrent derrière lui et, alors qu'il s'échappait, il déploya son sens divin. À sa grande horreur, il vit une partie du corps du Serpent aux yeux de lune — une centaine de pieds — sortir de la terre, tandis que le reste demeurait enfoui.
 
 Le petit Serpent aux yeux de lune était immobilisé par le sort d'Arrêt, ce qui offrit à Wang Lin l'opportunité parfaite de s'enfuir. Une fois Wang Lin disparu, le serpent reprit le contrôle, mais ses yeux étaient injectés de sang. Il poussa un rugissement avant de disparaître à nouveau sous terre.
 

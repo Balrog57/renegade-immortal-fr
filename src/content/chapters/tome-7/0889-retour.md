@@ -54,7 +54,7 @@ Sous l'assaut de son sens divin, seules quelques âmes d'exception continuaient 
 
 Yun Quezi était couvert de tatouages dorés. Son visage était pâle et ses veines saillantes. À cet instant, il eut l'illusion de faire face aux forces mêmes du ciel et de la terre.
 
-Roar!
+Rugissement!
 
 Bien que Yun Quezi fût vieux, il poussa un rugissement. L'ombre illusoire d'un arbre titanesque apparut dans le ciel. Cet arbre dégageait une aura puissante qui ne cessait de croître. Sous cette pression intense, il était en pleine percée! C'était comme si une pensée émanant de ce sens divin le forçait à céder, comme si cette pensée provenait d'une empreinte gravée au plus profond de son âme.
 

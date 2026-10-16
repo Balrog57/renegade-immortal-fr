@@ -14,7 +14,7 @@ Par conséquent, personne ne pourrait rien dire et il pourrait repartir en toute
 
 La puissance de l'adoration des innombrables âmes se transforma en un vent violet qui chargea Wang Lin de toutes les directions. À première vue, on aurait dit que le monde entier avait été teinté de pourpre!
 
-Ce sort de la Flamme Joss était assourdissant et suffisamment puissant pour détruire un cultivateur de la Peste Céleste du cinquième ciel. Cependant, l'essence de tonnerre de Wang Lin était complète et son essence de feu avait atteint le Feu Éthéré. Il avait également combattu Shui Daozi; ainsi, bien qu'il soit confronté à cette crise, il ne ressentait aucune peur. Au contraire, une intention de combat embrasait ses yeux.
+Ce sort de la Flamme Joss faisait trembler les cieux et était suffisamment puissant pour détruire un cultivateur du Fléau Céleste du cinquième ciel. Cependant, l'essence de tonnerre de Wang Lin était complète et son essence de feu avait atteint le Feu Éthéré. Il avait également combattu Shui Daozi; ainsi, bien qu'il soit confronté à cette crise, il ne ressentait aucune peur. Au contraire, une intention de combat embrasait ses yeux.
 
 Pour être plus précis, c'était la première fois que Wang Lin affrontait un cultivateur du troisième pas. Lorsqu'il avait combattu Shui Daozi, il ne pouvait que se défendre sans pouvoir attaquer. Cependant, son niveau de culture avait augmenté rapidement durant son séjour dans l'Ancien Système Stellaire.
 
@@ -54,7 +54,7 @@ Le vent violet se mua en une tempête pourpre qui balaya le monde. Tandis que le
 
 La tempête de tonnerre de Wang Lin contenait neuf anciens dragons de tonnerre en rotation, créant une force colossale. Elle avait également puisé une puissance foudroyante dans le Royaume du Tonnerre Ancien!
 
-*Rumble, rumble, rumble, rumble!*
+*Grondement, grondement, grondement, grondement!*
 
 La collision des deux tempêtes fit trembler la Planète de l'Empereur. Une aura destructrice se propagea telle une main gigantesque balayant la terre. La tortue géante poussa un cri lugubre et s'effondra soudainement!
 

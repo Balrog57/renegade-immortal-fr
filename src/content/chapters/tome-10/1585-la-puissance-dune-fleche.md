@@ -6,11 +6,11 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1585 - The Might of an Arrow!"
 slug: la-puissance-dune-fleche
 ---
-Le regard de Wang Lin était aussi froid que la glace alors qu'il observait les quatre individus battre en retraite rapidement, parmi lesquels se trouvait l'homme en blanc, cet être extrêmement arrogant qui avait gelé l'ombrelle antique. Leurs expressions changèrent radicalement tandis qu'ils tentaient désespérément de s'échapper.
+Le regard de Wang Lin était aussi froid que la glace alors qu'il observait les quatre individus battre en retraite rapidement, parmi lesquels se trouvait l'homme en blanc, cet être extrêmement arrogant qui avait gelé le parapluie antique. Leurs expressions changèrent radicalement tandis qu'ils tentaient désespérément de s'échapper.
 
 Tous étaient des cultivateurs puissants dont les niveaux de culture surpassaient largement ceux de Wang Lin. Cependant, seules leurs projections étaient présentes ici, ce qui limitait leur niveau de culture au stade intermédiaire du Vide Spirituel, un niveau qui ne serait pas détecté par les cultivateurs du Royaume Intérieur.
 
-Pourtant, ces quatre personnes avaient forcé Wang Lin à affronter plusieurs crises de vie ou de mort. S'il n'avait pas appris la technique de l'Ombrelle Brûlant le Domaine dans la Terre Déchue, il serait mort lors de leur première attaque combinée!
+Pourtant, ces quatre personnes avaient forcé Wang Lin à affronter plusieurs crises de vie ou de mort. S'il n'avait pas appris la technique de l'Ombrelle Brûlante du Royaume dans la Terre Déchue, il serait mort lors de leur première attaque combinée!
 
 S'il n'avait pas obtenu la fortune du fou, il serait mort des mains des deux concubines impériales célestes!
 

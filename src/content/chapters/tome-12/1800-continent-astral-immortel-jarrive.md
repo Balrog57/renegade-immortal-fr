@@ -70,9 +70,9 @@ Le fait qu'il souffre malgré un tel avantage démontrait à quel point ce vide 
 
 Il avait déjà perdu la notion du temps. Il ignorait depuis combien de temps il était là, mais il comprenait que plus de dix ans s'étaient écoulés.
 
-« Je crains que le Maître ne puisse plus attendre. S'il est retourné au clan de l'Ancien Dao, alors une fois que j'atteindrai le Continent Astral Immortel, je devrai compter sur moi-même... » Les yeux de Wang Lin brillèrent d'une détermination farouche.
+« Je crains que le Maître ne puisse plus attendre. S'il est retourné au clan Dao Antique, alors une fois que j'atteindrai le Continent Astral Immortel, je devrai compter sur moi-même... » Les yeux de Wang Lin brillèrent d'une détermination farouche.
 
-« Ce n'est pas un problème. Autrefois, j'ai quitté la planète Suzaku seul pour explorer le Vide Brillant. Puis je suis passé du Vide Brillant à Luotian, puis à la Mer des Nuages. Plus tard, j'ai rejoint le Système Stellaire Ancestral par mes propres moyens. Maintenant, je me rendrai également seul sur le Continent Astral Immortel, ce n'est qu'une formalité! »
+« Ce n'est pas un problème. Autrefois, j'ai quitté la planète Suzaku seul pour explorer le Vide Brillant. Puis je suis passé du Vide Brillant à Luotian, puis à la Mer des Nuages. Plus tard, j'ai rejoint le Système d'Étoiles Anciennes par mes propres moyens. Maintenant, je me rendrai également seul sur le Continent Astral Immortel, ce n'est qu'une formalité! »
 
 « D'un autre côté, je dois rapidement augmenter mon niveau de culture sur le Continent Astral Immortel... Il y a aussi la Secte Dong Lin que je dois visiter. Si je peux entrer dans le Bassin Dong Lin... » À cette pensée, le cœur de Wang Lin s'emballa. On pouvait dire qu'il brûlait d'envie d'entrer dans le Bassin Dong Lin!
 
@@ -104,7 +104,7 @@ Wang Lin devrait prendre le temps de résoudre ces incertitudes.
 
 Outre quelques pilules et trésors, il y avait le fou et la femme en argent à l'intérieur. Ces deux êtres possédaient la lignée du Continent Astral Immortel; ainsi, même dans le vide, ils ne rencontreraient aucun problème, contrairement à Wang Lin qui tentait de protéger quelqu'un tout en franchissant les limites du continent.
 
-Après avoir assimilé la bête moustique, Wang Lin prit Li Muwan et se prépara. Il ouvrit les yeux et fixa la fissure. À cet instant, il retrouva la sensation du Champ de Bataille Étranger, lorsqu'il tentait de s'échapper après être devenu un dévoreur d'âmes. Il déploya toute sa culture et se précipita vers la brèche!
+Après avoir assimilé la bête moustique, Wang Lin prit Li Muwan et se prépara. Il ouvrit les yeux et fixa la fissure. À cet instant, il retrouva la sensation du Champ de Bataille Extérieur, lorsqu'il tentait de s'échapper après être devenu un dévoreur d'âmes. Il déploya toute sa culture et se précipita vers la brèche!
 
 Il était extrêmement rapide et combla l'espace en un instant. Il consacrait toute son énergie à la vitesse, le reste servant uniquement à maintenir la sécurité de Li Muwan. Il utilisait la seule force de son corps pour charger en avant!
 

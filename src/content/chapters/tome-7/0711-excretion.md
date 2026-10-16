@@ -20,7 +20,7 @@ La Bête du Tonnerre détecta ce danger encore plus tôt. Sans attendre l'ordre 
 
 Un tentacule gracile apparut comme une image rémanente et balaya l'endroit où Wang Lin se trouvait à l'instant même. Il était d'une rapidité telle qu'il ne sembla ne faire qu'une minuscule déchirure dans le brouillard.
 
-Heureusement, la Bête du Tonnerre esquiva assez vite. Le tentacule déployé oscilla avant de se rétracter immédiatement. Cependant, lors de son retrait, il s'enroula autour de la formation d'épées aux sept étoiles de Wang Lin. Il semblait exercer une puissante force de section qui tira la formation vers le bas.
+Heureusement, la Bête du Tonnerre esquiva assez vite. Le tentacule déployé oscilla avant de se rétracter immédiatement. Cependant, lors de son retrait, il s'enroula autour de la formation d'épées aux sept étoiles de Wang Lin. Il semblait exercer une puissante force d'aspiration qui tira la formation vers le bas.
 
 L'expression de Wang Lin devint sombre. S'il n'avait pas anticipé le danger et avait foncé, il n'aurait pu esquiver ce tentacule.
 

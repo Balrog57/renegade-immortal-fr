@@ -50,7 +50,7 @@ Un grondement violent retentit lors de la collision des deux empreintes, avec Yu
 
 Cette force était le gaz!
 
-Le gaz était une essence extrêmement difficile à obtenir. Plus précisément, il était presque impossible de la maîtriser. Il fallait dominer les essences d'eau et de feu et les combiner parfaitement pour créer l'essence de gaz!
+Le gaz était une essence extrêmement difficile à obtenir. Plus précisément, il était impossible de l'obtenir. Il fallait dominer les essences d'eau et de feu et les combiner parfaitement pour créer l'essence de gaz!
 
 Cette essence était bien plus précieuse que n'importe quelle autre!
 
@@ -78,15 +78,15 @@ L'ensemble de la Mer des Pilules était devenu le domaine du Continent du Démon
 
 À l'extérieur de la Mer des Pilules, au-dessus du Continent du Taureau Céleste, Wang Lin vola sur des dizaines de milliers de kilomètres. Du sang s'écoulait du coin de sa bouche alors qu'il se retournait pour contempler la restriction entourant la Mer des Pilules d'un regard venimeux.
 
-« Tigre Blanc, partez tous les trois... J'ai encore d'autres affaires à régler, je ne partirai pas avec vous. Cet endroit est loin du Grand Secte de l'Âme mais proche de la Secte Gui Yi. Si vous voulez leur rapporter ce qui s'est passé, dépêchez-vous. »
+« Tigre Blanc, partez tous les trois... J'ai encore d'autres affaires à régler, je ne partirai pas avec vous. Cet endroit est loin de la Secte de la Grande Âme mais proche de la Secte Gui Yi. Si vous voulez leur rapporter ce qui s'est passé, dépêchez-vous. »
 
-« Quant au Grand Secte de l'Âme, je les informerai! » Wang Lin regarda la Mer des Pilules, le regard froid. Il agita la main droite et une pierre de jade apparut. C'était une pierre de message du Grand Secte de l'Âme. Après avoir transmis son message, il l'effaça d'un geste.
+« Quant à la Secte de la Grande Âme, je les informerai! » Wang Lin regarda la Mer des Pilules, le regard froid. Il agita la main droite et une pierre de jade apparut. C'était une pierre de message de la Secte de la Grande Âme. Après avoir transmis son message, il l'effaça d'un geste.
 
-Grâce à leur structure, les pierres de message voyageaient bien plus vite que les cultivateurs, mais Wang Lin ignorait quand le Grand Secte de l'Âme la recevrait précisément.
+Grâce à leur structure, les pierres de message voyageaient bien plus vite que les cultivateurs, mais Wang Lin ignorait quand la Secte de la Grande Âme la recevrait précisément.
 
-En voyant la pierre de jade, Tigre Blanc et sa compagnie comprirent qu'il s'agissait d'un objet utilisé en interne par le Grand Secte de l'Âme. Ils regardèrent Wang Lin comme s'ils voulaient parler, mais ils se retinrent.
+En voyant la pierre de jade, Tigre Blanc et sa compagnie comprirent qu'il s'agissait d'un objet utilisé en interne par la Secte de la Grande Âme. Ils regardèrent Wang Lin comme s'ils voulaient parler, mais ils se retinrent.
 
-Wang Lin détourna les yeux de la Mer des Pilules. Remarquant leurs expressions, il dit lentement: « J'ai rejoint le Grand Secte de l'Âme et je suis devenu un Ancien. »
+Wang Lin détourna les yeux de la Mer des Pilules. Remarquant leurs expressions, il dit lentement: « J'ai rejoint la Secte de la Grande Âme et je suis devenu un Ancien. »
 
 « Prenez soin de vous! » Tigre Blanc et sa compagnie joignirent les mains. Ils ne dirent pas merci, mais que ce soit pour cette nouvelle ou pour ce qui s'était passé dans le monde des grottes, ils garderaient cela gravé dans leur cœur.
 

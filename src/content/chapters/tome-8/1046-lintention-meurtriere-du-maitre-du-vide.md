@@ -34,7 +34,7 @@ Cependant, à cet instant précis, un cri retentit.
 
 Une silhouette bleue surgit de la distance. L'homme paraissait âgé, mais ses yeux brillaient d'un éclat intense. C'était le Maître du Vide!
 
-Le Maître du Vide était lui aussi profondément stupéfait. Il s'était libéré depuis longtemps de la restriction dans laquelle il avait été projeté lors de l'effondrement du Bassin de l'Enterrement Céleste. Il avait erré autour du premier étage pendant un long moment et avait fait des récoltes fort intéressantes. Cependant, lorsque ce rugissement furieux retentit, son esprit vacilla.
+Le Maître du Vide était lui aussi profondément stupéfait. Il s'était libéré depuis longtemps de la restriction dans laquelle il avait été projeté lors de l'effondrement du Bassin Funéraire Céleste. Il avait erré autour du premier étage pendant un long moment et avait fait des récoltes fort intéressantes. Cependant, lorsque ce rugissement furieux retentit, son esprit vacilla.
 
 Il suivit rapidement la provenance du bruit et vit la belle femme en danger.
 
@@ -54,7 +54,7 @@ L'homme en noir suivit Wang Lin en maintenant une certaine distance et dit d'une
 
 « De plus, le Camarade Cultivateur Wang pourrait-il m'expliquer ce qui nous poursuit? »
 
-« C'est une bête du Bassin de l'Enterrement Céleste! » répondit Wang Lin en un mot, se déplaçant comme l'éclair au sein du brouillard noir vers le palais.
+« C'est une bête du Bassin Funéraire Céleste! » répondit Wang Lin en un mot, se déplaçant comme l'éclair au sein du brouillard noir vers le palais.
 
 Ce palais était immense, bien plus vaste que n'importe quel pavillon. Vu de l'extérieur, il exerçait une pression écrasante et le brouillard sombre dégageait une aura sinistre. C'était comme si une bête féroce fixait froidement le petit cultivateur à ses pieds.
 
@@ -94,13 +94,13 @@ Wang Lin avait déjà inspecté toute la salle. Bien qu'il n'eût pas trouvé l'
 
 La belle femme répliqua avec colère: « Si ce n'était pas à cause de vous, pourquoi vous êtes-vous précipité ici dès l'instant où vous avez entendu ce rugissement?! »
 
-« Cette chose humanoïde est une bête qui était ensevelie sous le Bassin de l'Enterrement Céleste. En sortant de la restriction, je l'ai croisée. Après avoir combattu et constaté que je n'étais pas de taille, j'ai fui. Aurais-je dû rester et me laisser tuer? » Tandis qu'il parlait, Wang Lin recula encore de quelques pas, se retrouvant presque au pied des statues. Sa main reposait sur son sac, mais son regard ne se posait pas sur la belle femme; il était fixé sur le Maître du Vide.
+« Cette chose humanoïde est une bête qui était ensevelie sous le Bassin Funéraire Céleste. En sortant de la restriction, je l'ai croisée. Après avoir combattu et constaté que je n'étais pas de taille, j'ai fui. Aurais-je dû rester et me laisser tuer? » Tandis qu'il parlait, Wang Lin recula encore de quelques pas, se retrouvant presque au pied des statues. Sa main reposait sur son sac, mais son regard ne se posait pas sur la belle femme; il était fixé sur le Maître du Vide.
 
 La puissance du Maître du Vide exerçait une pression insoutenable sur Wang Lin!
 
 Bien qu'il ait atteint le sommet de l'étape Scruteur du Nirvana et possède un corps de Dieu Ancien, il n'était pas de taille face au Maître du Vide. Après tout, ce dernier était un cultivateur au stade Briseur du Nirvana!
 
-La belle femme laissa échapper un renâclement glacial. Elle s'apprêtait à parler, mais le Maître du Vide l'interrompit en faisant un pas vers Wang Lin et dit d'un ton lent: « Jeune homme, que ce soit ta faute ou non, point n'est besoin d'explications. Je vais te donner une chance: sors d'ici et attire cette chose humanoïde loin de nous! »
+La belle femme laissa échapper un renâclement glacial. Elle s'apprêtait à parler, mais le Maître du Vide l'interrompit en faisant un pas vers Wang Lin et dit d'un ton lent: « Junior, que ce soit ta faute ou non, point n'est besoin d'explications. Je vais te donner une chance: sors d'ici et attire cette chose humanoïde loin de nous! »
 
 Bien que les paroles du Maître du Vide semblassent calmes, elles étaient empreintes de pouvoir. À mesure qu'il avançait, une ondulation se propagea entre lui et Wang Lin. Mais il ne s'agissait pas d'une simple onde invisible; des milliers d'ondulations invisibles apparurent soudainement.
 

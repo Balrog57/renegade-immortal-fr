@@ -20,7 +20,7 @@ slug: loiseau-vermillon-de-la-sixieme-generation
 
 Les yeux de Wang Lin s'illuminèrent et il dit lentement: « C'est plutôt intéressant... »
 
-Après avoir été réprimandé par Liu Jinbiao, Xu Liguo ne répliqua pas, mais réfléchit un instant. Son regard envers Liu Jinbiao changea avant qu'il ne joigne les mains et ne dise: « Les paroles du camarade cultivateur Jingbiao ont élargi mes horizons. Parmi les 3 000 grands Daos, il existe le Dao de la tromperie! Bien, bien, bien! Je veux savoir si le Dao que je recherche figure également parmi les 3 000 grands Daos! »
+Après avoir été réprimandé par Liu Jinbiao, Xu Liguo ne répliqua pas, mais réfléchit un instant. Son regard envers Liu Jinbiao changea avant qu'il ne joigne les mains et ne dise: « Les paroles du camarade cultivateur Jinbiao ont élargi mes horizons. Parmi les 3 000 grands Daos, il existe le Dao de la tromperie! Bien, bien, bien! Je veux savoir si le Dao que je recherche figure également parmi les 3 000 grands Daos! »
 
 Les yeux de Liu Jinbiao étaient remplis de joie, comme s'il était devenu une personne différente. La fierté et l'indifférence qu'il affichait auparavant s'étaient effondrées en un instant. Son dos était toujours voûté et une pointe de peur subsistait dans son regard. « Ce n'est qu'une simple compétence de tromperie, rien qui vaille la peine d'être mentionné devant Seigneur Xu. Tant que le Seigneur Xu ne maltraite pas trop ce humble serviteur, il sera satisfait. »
 
@@ -68,7 +68,7 @@ Xu Liguo était totalement stupéfait. Il ne pouvait dire s'il s'agissait du mê
 
 « Ceci... Vous... » À peine Xu Liguo eut-il ouvert la bouche que Liu Jinbiao lui lança un regard glacial. Ce simple coup d'œil fit frissonner le cuir chevelu de Xu Liguo, qui recula inconsciemment de quelques pas.
 
-« Ce vieil homme est l'Empereur Divin Vermillon de la sixième génération! Je recherche l'Empereur Divin Vermillon de la quatrième génération. J'ai été gravement blessé par la Formation du Royaume Scellé lors de ma sortie du Domaine Intérieur! » déclara Liu Jinbiao, dégageant une majesté suprême. Une telle aura ne pouvait appartenir qu'à quelqu'un ayant occupé une position de pouvoir dominant la vie et la mort de dizaines de milliers d'êtres pendant des éons.
+« Ce vieil homme est l'Empereur Divin Vermillon de la sixième génération! Je recherche l'Empereur Divin Vermillon de la quatrième génération. J'ai été gravement blessé par la Formation du Royaume Scellé lors de ma sortie du Royaume Intérieur! » déclara Liu Jinbiao, dégageant une majesté suprême. Une telle aura ne pouvait appartenir qu'à quelqu'un ayant occupé une position de pouvoir dominant la vie et la mort de dizaines de milliers d'êtres pendant des éons.
 
 À cet instant, il avait depuis longtemps oublié qu'il n'était qu'un escroc. Sa mémoire avait changé et il croyait fermement être l'Empereur Divin Vermillon de la sixième génération!
 
@@ -98,7 +98,7 @@ Le premier concernait l'endroit où le vortex était apparu dans Luotian.
 
 Le second indiquait l'endroit où Cupidité était apparu après être sorti de cette tombe antique!
 
-« Ces deux informations devraient m'être utiles. Je devrais explorer ce secteur dans le Système d'Étoiles Anciennes, je pourrais y trouver des gains! Quant à la tombe, elle ressemble fort à la rumeur de la Tombe de l'Ordre Ancien! » Le regard de Wang Lin balaya la statue tandis qu'il méditait.
+« Ces deux informations devraient m'être utiles. Je devrais explorer ce secteur dans le Système Stellaire Antique, je pourrais y trouver des gains! Quant à la tombe, elle ressemble fort à la rumeur de la Tombe de l'Ordre Ancien! » Le regard de Wang Lin balaya la statue tandis qu'il méditait.
 
 « Qui diable est cette statue... Pourquoi apparaîtrait-elle dans une telle tombe... » Wang Lin réfléchit longuement avant d'étendre son Sens Divin vers la statue.
 

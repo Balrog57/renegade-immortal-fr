@@ -33,7 +33,7 @@ Par la même occasion, les deux autres tués par Wang Lin explosèrent égalemen
 
 Noble Argent, qui s'éloignait, se retourna soudainement, frappé par le choc. Cependant, cette stupeur se mua rapidement en férocité alors qu'il chargeait vers Wang Lin.
 
-L'expression de Wang Lin était neutre mais empreinte d'amertume. Son corps originel n'était pas ici; à moins d'y être contraint, pourquoi provoquerait-il un cultivateur au stade de Briseur du Nirvana? Pourtant, il n'avait pas le temps de réfléchir, car il avait déjà tué huit personnes. Wang Lin s'élança rapidement. Il devait éliminer tous ceux qui entouraient le Briseur du Nirvana au plus vite. Autrement, si l'un d'eux s'échappait, il lui serait difficile de faire le moindre pas dans le Système Stellaire de la Mer de Nuages!
+L'expression de Wang Lin était neutre mais empreinte d'amertume. Son corps originel n'était pas ici; à moins d'y être contraint, pourquoi provoquerait-il un cultivateur au stade de Briseur du Nirvana? Pourtant, il n'avait pas le temps de réfléchir, car il avait déjà tué huit personnes. Wang Lin s'élança rapidement. Il devait éliminer tous ceux qui entouraient le Briseur du Nirvana au plus vite. Autrement, si l'un d'eux s'échappait, il lui serait difficile de faire le moindre pas dans le Système Stellaire de la Mer des Nuages!
 
 Cependant, les neuf survivants, ainsi que le Briseur du Nirvana, réalisèrent immédiatement ce plan et se dispersèrent. Noble Argent chargea en avant et projeta un rayon de lumière noire pour bloquer la progression de Wang Lin!
 

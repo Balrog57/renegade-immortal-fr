@@ -20,7 +20,7 @@ Contemplant ce spectacle, Wang Lin ne put s'empêcher de ressentir une immense d
 
 Ses expériences avaient été extraordinaires; peu d'êtres pouvaient se comparer à ce qu'il avait vécu.
 
-Le Royaume Céleste de la Pluie lui avait laissé l'impression d'être gravement endommagé, où il était difficile de trouver la moindre trace du royaume d'autrefois. Il n'y restait que la tristesse d'un lieu pillé maintes et mantes par les cultivateurs.
+Le Royaume Céleste de la Pluie lui avait laissé l'impression d'être gravement endommagé, où il était difficile de trouver la moindre trace du royaume d'autrefois. Il n'y restait que la tristesse d'un lieu pillé maintes et maintes fois par les cultivateurs.
 
 Le Royaume Céleste du Tonnerre différait de celui de la Pluie car il était moins dévasté. Bien qu'il fût également en ruines, il pouvait encore y ressentir la puissance et la majesté du royaume d'antan.
 

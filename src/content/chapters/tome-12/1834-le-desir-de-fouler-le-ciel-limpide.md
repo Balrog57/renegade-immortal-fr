@@ -28,11 +28,11 @@ Wang Lin observa l'escalier. Il y avait au total dix-neuf marches pour atteindre
 
 Wang Lin se retourna soudain et lança un regard plein de sens à Yan Lu.
 
-« Regarde attentivement! » Après ces mots, ses yeux brillèrent et son pied se posa sur la première marche. À l'instant même où il toucha le sol, le ciel au-dessus du Grand Secte de l'Âme changea radicalement.
+« Regarde attentivement! » Après ces mots, ses yeux brillèrent et son pied se posa sur la première marche. À l'instant même où il toucha le sol, le ciel au-dessus de la Secte de la Grande Âme changea radicalement.
 
-Un escalier gigantesque, large de plusieurs centaines de kilomètres, apparut dans le firmament surplombant le Grand Secte de l'Âme. Cet escalier de lumière illumina les ténèbres du ciel.
+Un escalier gigantesque, large de plusieurs centaines de kilomètres, apparut dans le firmament surplombant la Secte de la Grande Âme. Cet escalier de lumière illumina les ténèbres du ciel.
 
-Des grondements tonnantes résonnèrent dans la nuit noire, tirant d'innombrables cultivateurs du Grand Secte de l'Âme de leur culture. Leurs Sens Divins se déployèrent ou ils s'envolèrent simplement de leurs pics pour contempler l'escalier géant qui trônait dans le ciel!
+Des grondements tonnants résonnèrent dans la nuit noire, tirant d'innombrables cultivateurs de la Secte de la Grande Âme de leur culture. Leurs Sens Divins se déployèrent ou ils s'envolèrent simplement de leurs pics pour contempler l'escalier géant qui trônait dans le ciel!
 
 « Quelqu'un tente d'entrer au septième étage du Pavillon des Écritures de l'Âme! »
 
@@ -52,13 +52,13 @@ C'était un sentiment de gloire, mais aussi une pression immense. Si l'on n'éta
 
 C'est précisément pour cette raison que si peu de personnes avaient tenté l'ascension!
 
-Au sein du Grand Secte de l'Âme, plusieurs rayons de lumière jaillirent des pics respectifs. Ce genre d'événement n'était pas rare, mais restait exceptionnel à observer. Puisqu'ils en étaient témoins, ils manifestèrent un vif intérêt.
+Au sein de la Secte de la Grande Âme, plusieurs rayons de lumière jaillirent des pics respectifs. Ce genre d'événement n'était pas rare, mais restait exceptionnel à observer. Puisqu'ils en étaient témoins, ils manifestèrent un vif intérêt.
 
 Cependant, très peu pensaient que Wang Lin réussirait; la plupart espéraient le voir échouer lamentablement.
 
 Même l'Estimé Taureau Vert fronça les sourcils. Il leva les yeux, son regard perçant la montagne pour observer l'illusion céleste.
 
-« Il est un peu téméraire... Avec un tel niveau de culture, il est impossible d'atteindre le septième étage... » L'Estimé Taureau Vert soupira en secouant la tête. « C'est une bonne façon de tempérer son esprit. Ne crois pas que mon Grand Secte de l'Âme soit si facile à conquérir! »
+« Il est un peu téméraire... Avec un tel niveau de culture, il est impossible d'atteindre le septième étage... » L'Estimé Taureau Vert soupira en secouant la tête. « C'est une bonne façon de tempérer son esprit. Ne crois pas que mon Secte de la Grande Âme soit si facile à conquérir! »
 
 Simultanément, sur trois à cinq pics appartenant à de vieux monstres habituellement en culture isolée, les propriétaires ouvrirent les yeux et regardèrent vers le ciel.
 
@@ -70,7 +70,7 @@ Dans l'illusion céleste, le pied droit de Wang Lin se posa sur la première mar
 
 Cependant, peu après, il ouvrit soudainement les yeux et fixa le sommet de l'escalier. Il leva le pied et commença à avancer!
 
-À chaque pas, un grondement tonitruant résonnait dans tout le Grand Secte de l'Âme. En un éclair, Wang Lin franchit cinq marches!
+À chaque pas, un grondement tonitruant résonnait dans tout la Secte de la Grande Âme. En un éclair, Wang Lin franchit cinq marches!
 
 Au sixième étage, Yan Lu fixait Wang Lin. Après l'avoir vu gravir ces cinq marches, son expression changea, avant de redevenir normale.
 
@@ -90,7 +90,7 @@ Cette voix donnait à Wang Lin la sensation que son corps allait être déchiré
 
 Sous le choc de cette voix, le pied de Wang Lin s'immobilisa sur la cinquième marche. Il leva les yeux vers l'escalier, le regard empreint d'une détermination farouche.
 
-« Corps véritable d'essence, rassemblez-vous! » La main de Wang Lin traça un sceau et pointa vers l'avant. Une partie du Grand Secte de l'Âme trembla et une mer de feu jaillit de la Montagne des Veines de Feu. Ce brasier couvrit le ciel et un visage gigantesque apparut.
+« Corps véritable d'essence, rassemblez-vous! » La main de Wang Lin traça un sceau et pointa vers l'avant. Une partie de la Secte de la Grande Âme trembla et une mer de feu jaillit de la Montagne des Veines de Feu. Ce brasier couvrit le ciel et un visage gigantesque apparut.
 
 Ce visage était le corps véritable d'essence de Wang Lin!
 
@@ -106,7 +106,7 @@ Au moment où son pied toucha le sol, Yan Lu, qui l'observait, se leva brusqueme
 
 « Impossible! »
 
-Simultanément, les expressions de tous ceux du Grand Secte de l'Âme qui virent Wang Lin franchir ces marches pour atteindre la treizième changèrent radicalement.
+Simultanément, les expressions de tous ceux de la Secte de la Grande Âme qui virent Wang Lin franchir ces marches pour atteindre la treizième changèrent radicalement.
 
 « Après avoir marqué une pause à la cinquième marche, il est allé directement à la treizième! Cet homme... cet homme possède une volonté prodigieuse! »
 
@@ -114,9 +114,9 @@ Simultanément, les expressions de tous ceux du Grand Secte de l'Âme qui virent
 
 « Cet Ancien Wang est tout simplement incroyable. Il ne lui reste que six marches et il pourra atteindre le septième étage! »
 
-Le corps véritable d'essence de Wang Lin n'était pas un concept connu de tous au Grand Secte de l'Âme. Le choc qu'il provoquait était indescriptible.
+Le corps véritable d'essence de Wang Lin n'était pas un concept connu de tous à la Secte de la Grande Âme. Le choc qu'il provoquait était indescriptible.
 
-Tout le Grand Secte de l'Âme était en émoi. Même certains des vieux monstres en culture isolée furent tirés de leur méditation.
+Tout la Secte de la Grande Âme était en émoi. Même certains des vieux monstres en culture isolée furent tirés de leur méditation.
 
 « Treize marches... » Au Pic Céleste Vert, l'Estimé Taureau Vert devint sérieux. Cependant, il resta assis sans sortir.
 
@@ -130,11 +130,11 @@ Tout le Grand Secte de l'Âme était en émoi. Même certains des vieux monstres
 
 Le rugissement résonnait dans son esprit et continuait de marteler son âme originelle. Bien qu'il paraisse calme, sa vision devenait floue.
 
-Cette confusion fut remarquée par Yan Lu, par les innombrables cultivateurs du Grand Secte de l'Âme et par les vieux monstres en retraite méditative!
+Cette confusion fut remarquée par Yan Lu, par les innombrables cultivateurs de la Secte de la Grande Âme et par les vieux monstres en retraite méditative!
 
 « Il est sur le point d'échouer! » Un sourire de joie apparut sur le visage de Yan Lu.
 
-« Il semble qu'il ne soit toujours pas capable de pénétrer au septième étage... » La plupart des cultivateurs du Grand Secte de l'Âme secouèrent silencieusement la tête.
+« Il semble qu'il ne soit toujours pas capable de pénétrer au septième étage... » La plupart des cultivateurs de la Secte de la Grande Âme secouèrent silencieusement la tête.
 
 Pourtant, à cet instant précis, la confusion dans les yeux de Wang Lin disparut soudainement, remplacée par une lumière monstrueuse!
 

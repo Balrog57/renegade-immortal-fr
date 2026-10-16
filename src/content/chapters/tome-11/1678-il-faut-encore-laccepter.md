@@ -64,7 +64,7 @@ Li Qianmei versa des larmes. Elle comprenait enfin ce que son père avait fait p
 
 Wang Lin afficha un regard tourmenté. Il se leva et joignit les mains en signe de respect devant le Maître du Dao Rêve Bleu.
 
-« Ce junior ne doute pas de ce que le Senior a accompli... »
+« Ce Junior ne doute pas de ce que le Senior a accompli... »
 
 « Ne dis rien de plus, tu... » Le Maître du Dao Rêve Bleu vit les larmes de Li Qianmei et son cœur s'adoucit. Il fixa Wang Lin et avala ses paroles.
 

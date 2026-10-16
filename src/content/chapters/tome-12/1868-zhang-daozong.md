@@ -22,7 +22,7 @@ Lorsqu'il réapparut, il se trouvait à la lisière du champ de bataille. Là, i
 
 Tant qu'il y aurait de grandes batailles, il y aurait d'innombrables morts de chaque côté. Wang Lin s'était lassé de ce genre de combats et ne souhaitait guère y participer. Il n'éprouvait aucune nostalgie qui le pousserait à rugir: « Les cultivateurs comme nous ne reculent jamais devant un combat! »
 
-Il n'était présent que pour remplir les trois conditions fixées par l'Ancien Taureau Vert afin de rembourser la Grande Secte de l'Âme pour ces trois cadeaux! C'était là le caractère de Wang Lin; il rendait toujours la pareille!
+Il n'était présent que pour remplir les trois conditions fixées par l'Ancien Taureau Vert afin de rembourser la Secte de la Grande Âme pour ces trois cadeaux! C'était là le caractère de Wang Lin; il rendait toujours la pareille!
 
 « Ce n'est pas le moment idéal pour affronter des cultivateurs de la Tribulation du Vide... Mais si l'un d'eux est gravement blessé, je pourrais peut-être avoir de la chance... » Les yeux de Wang Lin s'illuminèrent et son corps se mua en fumée alors qu'il se rapprochait de plus en plus du champ de bataille.
 
@@ -72,7 +72,7 @@ L'âme originelle disparut, mais un vortex apparut dans le corps de Wang Lin. Ce
 
 Tout cela se produisit en un éclair. Le vieil homme regardait avec stupéfaction la disparition de Wang Lin. Après un long moment, il prit une profonde inspiration.
 
-« C'est l'Ancien de la Grande Secte de l'Âme! » Le vieillard avait rencontré Wang Lin dans le palais souterrain et l'avait reconnu. Cependant, en voyant ses longs cheveux blancs, sa robe immaculée et cette aura glaciale, il avait l'impression d'avoir déjà croisé ce visage quelque part.
+« C'est l'Ancien de la Secte de la Grande Âme! » Le vieillard avait rencontré Wang Lin dans le palais souterrain et l'avait reconnu. Cependant, en voyant ses longs cheveux blancs, sa robe immaculée et cette aura glaciale, il avait l'impression d'avoir déjà croisé ce visage quelque part.
 
 Wang Lin fendit le brouillard pour continuer sa progression vers les cultivateurs de la Tribulation du Vide qui combattaient. Tout cultivateur du Vide Arcanique qu'il croisait était immédiatement exécuté. Il scellait leurs âmes originelles dans son corps afin de renforcer sa première veine de sorts.
 

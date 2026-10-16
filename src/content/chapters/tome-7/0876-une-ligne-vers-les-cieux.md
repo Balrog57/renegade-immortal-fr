@@ -34,7 +34,7 @@ Alors que Lie Yunzi regagnait son tapis de prière, le regard du Maître Yan Lei
 
 « "Une Ligne vers les Cieux" est l'ultime étape de la compétition pour le titre céleste. Parmi les 108 personnes qui obtiendront un titre, les 36 premiers seront nommés "Célestes du Ciel"! »
 
-« Dans l'épreuve d'une ligne vers le ciel, vous n'existez que sous forme de phantoms. Même si vous mourez, votre corps physique ne subira que des dommages mineurs, ce qui n'aura que peu d'impact sur vous! »
+« Dans l'épreuve d'une ligne vers le ciel, vous n'existez que sous forme de fantômes. Même si vous mourez, votre corps physique ne subira que des dommages mineurs, ce qui n'aura que peu d'impact sur vous! »
 
 Une fois son discours achevé, Maître Yan Leizi frappa son sac de rangement et un objet octogonal apparut dans sa main. Il le lança en l'air et le bois octogonal grandit brusquement. En un instant, il mesurait plus de cent pieds de large et des éclats de lumière multicolore s'en échappaient tandis qu'il tournait dans le ciel.
 
@@ -50,7 +50,7 @@ Le sol était jonché de feuilles pourries où s'agitaient des insectes venimeux
 
 À cet instant précis, l'un des arbres géants émit un flash de lumière aux cinq couleurs et Wang Lin en sortit. Dès son apparition, il bondit immédiatement pour atterrir sur une branche. Il utilisa aussitôt sa restriction cardiaque pour dissimuler son aura.
 
-Wang Lin avait été forgé par les situations de vie ou de mort; cette prétendue "ligne vers le ciel" n'était même pas aussi dangereuse que la Terre des Esprits Démoniaques! Il ne commettrait naturellement pas l'erreur de déployer son sens divin dès son arrivée.
+Wang Lin avait été forgé par les situations de vie ou de mort; cette prétendue "ligne vers le ciel" n'était même pas aussi dangereuse que la Terre des Esprits Démoniaques[1]! Il ne commettrait naturellement pas l'erreur de déployer son sens divin dès son arrivée.
 
 À ce moment-là, un sens divin balaya les environs et ne s'arrêta pas à Wang Lin; il continua sa progression. Cependant, un instant plus tard, ce sens divin paniqua et se rétracta précipitamment. Mais après quelques instants seulement, le sens divin s'effondra et un cri lugubre retentit au loin.
 
@@ -70,7 +70,7 @@ Il s'agissait de Zhao Yidao, qui avait été interrompu deux fois par Wang Lin l
 
 Il voulut immédiatement s'enfuir, mais à ce moment précis, un brouillard noir passa derrière lui. Une intention meurtrière puissante surgit et dévora instantanément le Zhao qui tentait de s'échapper.
 
-Un cri déchirant résonna entre les arbres. Wang Lin se tenait à trois cents mètres de là et fixait froidement le brouillard noir.
+Un cri déchirant résonna entre les arbres. Wang Lin se tenait à mille pieds de là et fixait froidement le brouillard noir.
 
 La brume bougeait comme si elle avait absorbé ce cultivateur Zhao avec sa peau et ses os. Un instant plus tard, une silhouette en sortit. C'était Xu Ting!
 
@@ -92,7 +92,7 @@ Wang Lin cracha un objet: c'était le Sceau Céleste! Ce petit objet flottait de
 
 Parmi les centaines de milliers de sceaux dorés, deux d'entre eux contenaient les âmes originelles de cultivateurs scellées à l'intérieur, et la puissance de ces deux sceaux était manifestement différente des autres. Wang Lin n'était pas certain que ces âmes originelles illusoires puissent être scellées. Il resta calme, attendant l'arrivée du premier prétendant à la mort.
 
-Après quelques respirations, une silhouette jaillit de la jungle sur la droite comme un éclair. Cependant, dès que cette silhouette se trouva à moins de trois cents mètres de Wang Lin, elle fut frappée de stupeur. En voyant que sa cible était Wang Lin, les yeux de l'individu se remplirent de terreur et il choisit de fuir sans hésiter.
+Après quelques respirations, une silhouette jaillit de la jungle sur la droite comme un éclair. Cependant, dès que cette silhouette se trouva à moins de mille pieds de Wang Lin, elle fut frappée de stupeur. En voyant que sa cible était Wang Lin, les yeux de l'individu se remplirent de terreur et il choisit de fuir sans hésiter.
 
 Du début à la fin, Wang Lin resta impassible. Dès l'apparition du cultivateur, le Sceau Céleste s'élança. Il était d'une rapidité extrême en poursuivant celui qui tentait de s'échapper.
 
@@ -105,3 +105,4 @@ Les yeux de Wang Lin se rétrécirent et il rétracta le Sceau Céleste. Après 
 La jungle devant lui était plongée dans un silence total. Un instant plus tard, quatre personnes émergèrent des arbres. Tous quatre étaient au stade du Yang Corporel. Leurs auras fusionnèrent pour former une puissance qui pouvait vaguement égaler celle de Wang Lin.
 
 Les quatre se regardèrent. L'un d'eux eut un regard vicieux et, sans dire un mot, frappa son sac. Une calebasse s'envola immédiatement. Sa main droite forma un sceau, puis une flamme rouge jaillit de la calebasse en direction de Wang Lin.
+

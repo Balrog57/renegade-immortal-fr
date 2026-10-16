@@ -24,7 +24,7 @@ Après qu'il l'eut dévoré, les vents et les nuages changèrent et le monde ent
 
 La série de grondements se mua rapidement en rugissements étouffés émanant du corps de Wang Lin. Son corps tremblait alors qu'il avalait la foudre, et il eut l'illusion de recevoir le coup de poing d'un dieu ancien.
 
-Il chuta du ciel telle une comète brisée et s'écrasa au sol dans un fracas assourdissant.
+Il chuta du ciel tel un cerf-volant brisé et s'écrasa au sol dans un fracas assourdissant.
 
 À l'instant où son corps toucha terre, une immense quantité de tonnerre s'en échappa et se propagea. En un instant, une zone d'un rayon de cinq kilomètres autour de lui fut enveloppée par une tempête électrique.
 

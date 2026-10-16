@@ -30,7 +30,7 @@ Au moment même où il reculait, les yeux de Wang Lin s'illuminèrent. Il leva l
 
 « Arrête!!! » Wang Lin utilisa le sort « Arrête » une seconde fois face à Exalté Empyréen Hai Zi. Les 97 images rémanentes fusionnèrent, et ce doigt qui lui inspirait terreur, colère et honte fondit sur elle!!
 
-« Wang Lin, tu... » Exalté Empyréen Hai Zi n'eut pas le temps de finir sa phrase. En raison de ses blessures, elle fut totalement immobilisée. Son âme originelle étant stoppée et l'octopus ne la soutenant plus, elle commença à sombrer vers les profondeurs de la mer.
+« Wang Lin, tu... » Exalté Empyréen Hai Zi n'eut pas le temps de finir sa phrase. En raison de ses blessures, elle fut totalement immobilisée. Son âme originelle étant stoppée et la pieuvre ne la soutenant plus, elle commença à sombrer vers les profondeurs de la mer.
 
 Cependant, puisqu'elle avait osé tenter d'arrêter Wang Lin, elle s'était préparée. Bien que cette préparation fût un peu précipitée et qu'elle eût été prise au dépourvu par le timing magistral de Wang Lin, seule son âme originelle était immobilisée. Ses yeux et ses pensées fonctionnaient toujours normalement.
 
@@ -40,7 +40,7 @@ Il y avait deux raisons pour lesquelles Wang Lin n'avait pas utilisé le sort «
 
 Secondement, même si Wang Lin avait arrêté Exalté Empyréen Hai Zi, à moins qu'il ne la blessât gravement avant de s'enfuir, elle le poursuivrait une fois libérée. En revanche, plutôt que de simplement l'immobiliser, il valait mieux la blesser gravement puis l'arrêter. Ainsi, elle n'oserait plus le suivre, et cela serait conforme à la voie droite!
 
-Après avoir immobilisé Exalté Empyréen Hai Zi, Wang Lin s'apprêtait à dégager l'octopus pour emporter le dragon marin. Son Sens Divin balaya inconsciemment Exalté Empyréen Hai Zi qui sombrait dans les eaux.
+Après avoir immobilisé Exalté Empyréen Hai Zi, Wang Lin s'apprêtait à dégager la pieuvre pour emporter le dragon marin. Son Sens Divin balaya inconsciemment Exalté Empyréen Hai Zi qui sombrait dans les eaux.
 
 Cependant, cela le fit sursauter.
 
@@ -116,13 +116,13 @@ Sans la moindre hésitation, une lueur glaciale passa dans les yeux de Wang Lin.
 
 « Âme non issue du Continent Astral Immortel détectée, sceller! »
 
-L'action décisive de Wang Lin avait offert un répit à Exalté Empyréen Hai Zi. Elle leva sa main pâle et jade pour sortir un morceau de jade qu'elle brisa. Une couche de lumière bleu foncé enveloppa alors elle et Wang Lin. La protection s'étendit sur 100 000 pieds, protégeant également le dragon marin et l'octopus qui avaient reculé. Puis, le rideau de lumière plongea dans les abysses avec Wang Lin, Exalté Empyréen Hai Zi, ainsi que le dragon et l'octopus effrayés.
+L'action décisive de Wang Lin avait offert un répit à Exalté Empyréen Hai Zi. Elle leva sa main pâle et jade pour sortir un morceau de jade qu'elle brisa. Une couche de lumière bleu foncé enveloppa alors elle et Wang Lin. La protection s'étendit sur 100 000 pieds, protégeant également le dragon marin et la pieuvre qui avaient reculé. Puis, le rideau de lumière plongea dans les abysses avec Wang Lin, Exalté Empyréen Hai Zi, ainsi que le dragon et la pieuvre effrayés.
 
 Bientôt, la barrière lumineuse atteignit le fond de la mer. L'eau environnante était d'un noir d'encre, rendant toute visibilité impossible. On n'entendait que des bruits de chocs contre la paroi, mais le rideau lumineux ne faisait que trembler sans jamais céder.
 
 La paume brisée continuait de marteler la barrière, incapable de la rompre immédiatement, bien que les coups devinssent de plus en plus violents. Le rideau de lumière formait un demi-cercle sur le fond marin et, outre les fracas, un silence de mort régnait!
 
-L'expression de Wang Lin était sombre alors qu'il restait assis, les yeux clos. Le dragon marin tournait autour de lui, fixant l'octopus non loin de là, près d'Exalté Empyréen Hai Zi. Son regard était hostile, mais il scrutait aussi la barrière avec effroi. L'octopus, quant à lui, lançait des regards furieux au dragon, comme si les deux créatures ne pouvaient se supporter.
+L'expression de Wang Lin était sombre alors qu'il restait assis, les yeux clos. Le dragon marin tournait autour de lui, fixant la pieuvre non loin de là, près d'Exalté Empyréen Hai Zi. Son regard était hostile, mais il scrutait aussi la barrière avec effroi. La pieuvre, quant à lui, lançait des regards furieux au dragon, comme si les deux créatures ne pouvaient se supporter.
 
 Exalté Empyréen Hai Zi se trouvait à 1 000 pieds de Wang Lin. Son visage magnifique était pâle et ses cheveux ébouriffés. Elle regardait Wang Lin avec une expression complexe, l'image de lui bloquant la paume pour elle tournant en boucle dans son esprit.
 

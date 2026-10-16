@@ -44,7 +44,7 @@ Ces trois-là n'étaient qu'au neuvième niveau de la Tribulation Arcane, et bie
 
 Dans le monde des cavernes, seuls le Vieux Fantôme Zhan et le Daoïste aux Sept Couleurs atteignaient le stade initial de la Tribulation du Vide. S'ils avaient fusionné avec la troisième âme pour devenir le nouveau Souverain Céleste aux Sept Couleurs, ils auraient atteint le sommet du stade intermédiaire de la Tribulation du Vide.
 
-Avec son niveau de culture actuel, Wang Lin pouvait tuer des êtres inférieurs à la Tribulation du Vide. Mais pour assassiner un véritable cultivateur de la Tribulation du Vide, une préparation était nécessaire. Même sur le Continent Astral Immortel, la mort d'un tel expert était rare. Lorsqu'elle survenait, elle affectait lourdement le moral d'une secte. Sans parler de la perte d'un cultivateur au stade intermédiaire; même la Grande Secte de l'Âme ne pourrait supporter un tel coup.
+Avec son niveau de culture actuel, Wang Lin pouvait tuer des êtres inférieurs à la Tribulation du Vide. Mais pour assassiner un véritable cultivateur de la Tribulation du Vide, une préparation était nécessaire. Même sur le Continent Astral Immortel, la mort d'un tel expert était rare. Lorsqu'elle survenait, elle affectait lourdement le moral d'une secte. Sans parler de la perte d'un cultivateur au stade intermédiaire; même la Secte de la Grande Âme ne pourrait supporter un tel coup.
 
 Observant le brouillard tourbillonner devant lui, il regardait les sept combattants engagés dans une lutte acharnée pour leur survie. Il était extrêmement difficile de décider d'un vainqueur; en réalité, c'était presque impossible. Tant qu'ils restaient prudents, ils ne mourraient pas, au pire seraient-ils blessés.
 
@@ -66,7 +66,7 @@ La bataille chaotique entre les sept continuait sous des grondements tonitruants
 
 Entre deux explosions, Liu Zhiyuang recula sans hésiter. Nul besoin de mots: ses trois compagnons comprirent son intention et bloquèrent les attaques pour lui permettre de consommer des pilules. Après plusieurs heures de lutte, il était inévitable qu'ils doivent restaurer leur énergie céleste sous peine de ne pouvoir poursuivre.
 
-Le visage de Liu Zhiyuang était empreint d'une cruauté extrême. Il pratiquait une méthode de double culture Yin et Yang qui consistait à condenser les âmes des "fours de culture" féminins en un lotus noir. D'innombrables femmes avaient péri par sa main.
+Le visage de Liu Zhiyuang était empreint d'une cruauté extrême. Il pratiquait une méthode de double culture Yin et Yang qui consistait à condenser les âmes des « fours de culture » féminins en un lotus noir. D'innombrables femmes avaient péri par sa main.
 
 En un instant, il recula de dizaines de milliers de pieds. Il agita la main droite, faisant apparaître plus d'une douzaine de sphères lumineuses devant lui. À l'intérieur de chaque sphère se trouvait une femme nue de trois pouces de haut, à l'aspect misérable. Liu Zhiyuang ne prit même pas la peine de les regarder lorsqu'il ouvrit la bouche pour les inhaler.
 
@@ -74,7 +74,7 @@ Cependant, à cet instant précis, non loin de là, Wang Lin, qui s'était tapi 
 
 « C'est lui! »
 
-Les yeux de Wang Lin brillèrent d'une intention meurtrière. La première promesse qu'il avait faite à la Grande Secte de l'Âme était de tuer dix cultivateurs du stade initial de la Tribulation du Vide. Aujourd'hui, il allait abattre le premier!
+Les yeux de Wang Lin brillèrent d'une intention meurtrière. La première promesse qu'il avait faite à la Secte de la Grande Âme était de tuer dix cultivateurs du stade initial de la Tribulation du Vide. Aujourd'hui, il allait abattre le premier!
 
 Alors que Wang Lin bondissait tel un éclair, une lueur sanglante jaillit de sa main. Cette lumière frappa Liu Zhiyuang, qui lui tournait le dos! L'épée de sang possédait une tranchante inégalée; alors qu'elle fonçait sur sa cible, Liu Zhiyuang était sur le point d'engloutir ses sphères lumineuses. Sentant soudain un péril imminent, il abandonna son festin et agita sa manche pour invoquer un lotus noir derrière lui. Le lotus percuta l'épée de sang dans un fracas assourdissant!
 

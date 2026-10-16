@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1152 - Inside the Valley
 slug: a-linterieur-de-la-vallee
 ---
-Cependant, cette vieille femme avait sous-estimé le vent noir de Wang Lin. Maintenant que celui-ci avait atteint le stade du Purificateur du Nirvana, la puissance des sorts de Bai Fen commençait à révéler sa véritable nature. Plus important encore, grâce à la fortune que Qing Lin lui avait octroyée, Wang Lin avait acquis une compréhension profonde des sorts de Bai Fan.
+Cependant, cette vieille femme avait sous-estimé le vent noir de Wang Lin. Maintenant que celui-ci avait atteint le stade du Purificateur du Nirvana, la puissance des sorts de Bai Fan commençait à révéler sa véritable nature. Plus important encore, grâce à la fortune que Qing Lin lui avait octroyée, Wang Lin avait acquis une compréhension profonde des sorts de Bai Fan.
 
 Lorsque les cinq dragons noirs entrèrent en collision avec le brouillard rouge craché par la vieille femme, un grondement tonitruant résonna. Les cinq dragons rugirent, déchirèrent rapidement le brouillard rouge et fusionnèrent en un seul.
 

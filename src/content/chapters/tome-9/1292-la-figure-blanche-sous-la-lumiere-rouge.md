@@ -18,37 +18,37 @@ En apercevant ces trois personnes, le dragon laissa échapper un rugissement cap
 
 Il reconnut la brume bleue. Dans sa mémoire, ceux qui étaient enveloppés par cette brume étaient leurs ennemis mortels, ceux qui les empêchaient de s'échapper de la faille spatiale!
 
-« C'est étonnamment un jeune dragon du Neuf Abîme. Ce dragon ne peut plus être considéré comme une simple bête féroce. Bien qu'il soit de rang 12, il peut manifester une puissance équivalente à celle d'une bête-roi de rang 13 incapable de prendre forme humaine! »
+« C'est étonnamment un jeune dragon des Neuf Abîmes. Ce dragon ne peut plus être considéré comme une simple bête féroce. Bien qu'il soit de rang 12, il peut manifester une puissance équivalente à celle d'une bête-roi de rang 13 incapable de prendre forme humaine! »
 
-« C'est bel et bien un dragon du Neuf Abîme. Ce genre de créature n'était pas apparu depuis longtemps. Un Ancien avait dit que ces groupes surpassaient largement les bêtes capables de transformation humaine. La légende raconte qu'il était l'un des six compagnons bestiaux appartenant à Ji Qiong! »
+« C'est bel et bien un dragon des Neuf Abîmes. Ce genre de créature n'était pas apparu depuis longtemps. Un Ancien avait dit que ces groupes surpassaient largement les bêtes capables de transformation humaine. La légende raconte qu'il était l'un des six compagnons bestiaux appartenant à Ji Qiong! »
 
 « Cette affaire est cruciale, nous devons en informer les Anciens! » Les trois personnes dans la brume bleue communiquèrent par pensée. L'une d'elles sortit un jade et le broya, envoyant instantanément un message.
 
-À l'instant même où ce message fut transmis, le Dragon du Neuf Abîme rugit et une vapeur noire s'échappa des fissures de son corps. Cette brume noire se mua en crânes sombres capables de pénétrer l'âme. Ils se dispersèrent dans toutes les directions et chargèrent hors de la faille spatiale!
+À l'instant même où ce message fut transmis, le Dragon des Neuf Abîmes rugit et une vapeur noire s'échappa des fissures de son corps. Cette brume noire se mua en crânes sombres capables de pénétrer l'âme. Ils se dispersèrent dans toutes les directions et chargèrent hors de la faille spatiale!
 
 Des grondements tonnerres résonnèrent depuis la faille, comme si elle tremblait, incapable de supporter une telle force. Les innombrables crânes noirs jaillirent de la brèche et se précipitèrent sur les cultivateurs environnants.
 
-Les bêtes féroces sortant de la faille suivirent les crânes noirs, lançant une attaque terrifiante! Cependant, le Dragon du Neuf Abîme ne s'élança pas; il resta à l'intérieur de la faille spatiale, observant l'extérieur d'un regard glacial et meurtrier.
+Les bêtes féroces sortant de la faille suivirent les crânes noirs, lançant une attaque terrifiante! Cependant, le Dragon des Neuf Abîmes ne s'élança pas; il resta à l'intérieur de la faille spatiale, observant l'extérieur d'un regard glacial et meurtrier.
 
 Les milliers de cultivateurs présents sur le champ de bataille luttaient depuis des centaines d'années et possédaient une force mentale robuste. Pourtant, même eux tremblaient à présent. Mais une fois engagés, ils ne pouvaient reculer et devaient combattre. Lorsque les crânes noirs approchèrent, les cultivateurs entamèrent une lutte acharnée pour leur survie.
 
-Les six génies chargèrent pour affronter le Dragon du Neuf Abîme tapi dans la faille.
+Les six génies chargèrent pour affronter le Dragon des Neuf Abîmes tapi dans la faille.
 
 « Si nous travaillons ensemble pour tuer ce dragon, nous pourrons devenir membres de la Secte Démon! » cria l'un des hommes d'âge mûr parmi les six. Ses mains formèrent un sceau, son corps fut enveloppé d'une lumière violette et son aura décupla!
 
-Les cinq autres utilisèrent tous leurs sorts les plus puissants. Les cheveux de la belle femme d'âge mûr devinrent instantanément blancs; sa chevelure balaya l'air pour former une tempête de cheveux blancs devant elle, chargée d'une puissance foudroyante, qui chargea vers le Dragon du Neuf Abîme.
+Les cinq autres utilisèrent tous leurs sorts les plus puissants. Les cheveux de la belle femme d'âge mûr devinrent instantanément blancs; sa chevelure balaya l'air pour former une tempête de cheveux blancs devant elle, chargée d'une puissance foudroyante, qui chargea vers le Dragon des Neuf Abîmes.
 
-Il y avait aussi ce vieil homme, possédant le niveau de culture le plus élevé. D'un geste de la main droite, il fit apparaître d'innombrables cœurs dorés autour de lui. Cela ressemblait aux cœurs dorés des cultivateurs, mais s'en distinguait grandement: c'était un sort qu'il avait créé lui-même grâce à sa grande sagesse. Ces cœurs dorés étaient formés d'énergie originelle, et leur effondrement pouvait libérer une puissance décuplée. En un éclair, près de 10 000 cœurs dorés apparurent autour de lui!
+Il y avait aussi ce vieil homme, possédant le niveau de culture le plus élevé. D'un geste de la main droite, il fit apparaître d'innombrables cœurs dorés autour de lui. Cela ressemblait aux cœurs dorés des cultivateurs, mais s'en distinguait grandement: c'était un sort qu'il avait créé lui-même grâce à sa grande sagesse. Ces cœurs dorés étaient formés d'énergie originelle, et leur effondrement pouvait se transformer en une puissance encore plus grande. En un éclair, près de 10 000 cœurs dorés apparurent autour de lui!
 
 Il y avait aussi cette femme froide. Elle se mordit la langue et cracha du sang sur l'épée fine qu'elle tenait. L'arme émit un éclat éblouissant et fondit pour former une rivière dorée. Ce fleuve l'enveloppa, dégageant une aura destructrice, avant de charger avec elle!
 
-Les six cultivateurs les plus puissants parmi les milliers attaquèrent tous simultanément, engageant le combat contre le Dragon du Neuf Abîme!
+Les six cultivateurs les plus puissants parmi les milliers attaquèrent tous simultanément, engageant le combat contre le Dragon des Neuf Abîmes!
 
 Les cultivateurs environnants poussaient des cris de désespoir. Les crânes noirs étaient trop étranges: aucun sort ni trésor magique n'avait d'effet sur eux. Ils pénétraient directement dans le corps des cultivateurs et, dès leur entrée, ils explosaient. La force destructrice faisait éclater les corps et dissipait les âmes originelles.
 
 Entre les bêtes féroces surgissant de la faille et ces crânes, c'était un moment de crise absolue!
 
-Les six puissants combattants avaient encerclé le Dragon du Neuf Abîme pour lancer leur assaut. Cependant, alors que leurs sorts approchaient, le dragon ouvrit la gueule et cracha une bouffée de brume noire!
+Les six puissants combattants avaient encerclé le Dragon des Neuf Abîmes pour lancer leur assaut. Cependant, alors que leurs sorts approchaient, le dragon ouvrit la gueule et cracha une bouffée de brume noire!
 
 Au moment où la brume fut expulsée, elle prit la forme d'un crâne noir de dix mille pieds de large qui fonça sur les six guerriers!
 
@@ -70,11 +70,11 @@ Le vieil homme jouissait d'une grande autorité parmi les milliers de cultivateu
 
 Tandis que leurs voix résonnaient, une lueur fantomatique jaillit de la faille spatiale. Après un grondement de tonnerre, la faille se comporta comme une immense gueule et se referma brusquement!
 
-Certaines bêtes féroces ne purent esquiver assez vite et leurs corps explosèrent. Même le Dragon du Neuf Abîme dut rétracter précipitamment sa tête pour éviter d'être tranché en deux.
+Certaines bêtes féroces ne purent esquiver assez vite et leurs corps explosèrent. Même le Dragon des Neuf Abîmes dut rétracter précipitamment sa tête pour éviter d'être tranché en deux.
 
-En voyant cela, le vieil homme soupira. Il avait initialement voulu attirer le Dragon du Neuf Abîme à mi-chemin avant d'utiliser la formation pour l'anéantir. Cependant, ils n'étaient pas assez forts pour réussir une telle provocation.
+En voyant cela, le vieil homme soupira. Il avait initialement voulu attirer le Dragon des Neuf Abîmes à mi-chemin avant d'utiliser la formation pour l'anéantir. Cependant, ils n'étaient pas assez forts pour réussir une telle provocation.
 
-« Si Li Qianmei était ici, avec sa force et ses trésors magiques, elle aurait peut-être été capable de briser le crâne et de forcer le Dragon du Neuf Abîme à sortir! » Le vieil homme soupira et chassa ces pensées. Profitant de l'instant où la faille était close, il agita sa main droite. D'innombrables cœurs dorés apparurent et chargèrent le crâne.
+« Si Li Qianmei était ici, avec sa force et ses trésors magiques, elle aurait peut-être été capable de briser le crâne et de forcer le Dragon des Neuf Abîmes à sortir! » Le vieil homme soupira et chassa ces pensées. Profitant de l'instant où la faille était close, il agita sa main droite. D'innombrables cœurs dorés apparurent et chargèrent le crâne.
 
 La femme indifférente fit de même. Ces cultivateurs avaient œuvré ensemble durant de nombreuses années et se comprenaient parfaitement. Les quatre autres n'attaquèrent pas le grand crâne, mais se dispersèrent pour s'en prendre aux petits crânes et aux bêtes isolées.
 
@@ -82,11 +82,11 @@ Les cultivateurs de la Secte Démon, enveloppés dans la brume bleue, restaient 
 
 « Cet endroit est un champ de bataille, et les faibles n'y survivront pas. Si vous voulez vivre, devenez plus forts, franchissez vos limites; vous devez marcher sur le fil de la vie et de la mort, encore et toujours. Autrefois, nous trois faisions la même chose! »
 
-« Bien sûr que le Dragon du Neuf Abîme est puissant. Une fois que la formation aura épuisé ses forces, nous trois nous occuperons de lui. »
+« Bien sûr que le Dragon des Neuf Abîmes est puissant. Une fois que la formation aura épuisé ses forces, nous trois nous occuperons de lui. »
 
 Deux voix s'élevèrent des trois individus dans la brume bleue.
 
-La faille refermée commença à trembler après un moment. Bien qu'elle ait été close brièvement, elle s'ouvrit progressivement. Le rugissement du Dragon du Neuf Abîme résonna de l'intérieur.
+La faille refermée commença à trembler après un moment. Bien qu'elle ait été close brièvement, elle s'ouvrit progressivement. Le rugissement du Dragon des Neuf Abîmes résonna de l'intérieur.
 
 Le vieil homme et la femme indifférente combattaient le crâne géant; ils l'avaient piégé et étaient sur le point de le détruire!
 

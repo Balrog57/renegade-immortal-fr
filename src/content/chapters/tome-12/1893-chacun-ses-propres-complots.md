@@ -82,7 +82,7 @@ Les paroles du vieil homme avaient été soudaines; n'importe qui aurait réagi 
 
 Il ne croyait absolument pas que l'adversaire ait pu détecter la Perle Défiant le Ciel. C'était une bataille d'esprit!
 
-Tout se déroula en un éclair. Les sorts des messagers du Démon Vert convergeaient vers Wang Lin, à moins de dix-sept centimètres de lui, mais son corps ne bougea pas. Dix-sept centimètres, quinze, dix, cinq, trois, un centimètre!!
+Tout se déroula en un éclair. Les sorts des messagers du Démon Vert convergeaient vers Wang Lin, à moins de sept pouces de lui, mais son corps ne bougea pas. Sept pouces, six, cinq, trois, un pouce!!
 
 Une violente crise de vie ou de mort s'empara de son cœur. Malgré sa détermination, il fut ébranlé, mais resta immobile.
 

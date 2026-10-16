@@ -32,7 +32,7 @@ Les huit anciens se tenaient devant l'ensemble des descendants du clan Wang, age
 
 Le regard de Wang Lin descendit depuis la tablette supérieure pour se poser sur l'une d'elles. Celle-ci indiquait: « Ancêtre Wang Yu ».
 
-Wang Lin avait une vague impression de ce nom, Wang Yu. À l'époque où le Clan de l'Immortel Délaissé était en guerre contre Suzaku, ils capturaient des jeunes enfants capables de cultiver. L'un d'eux était Wang Yu.
+Wang Lin avait une vague impression de ce nom, Wang Yu. À l'époque où le Clan des Immortels Délaissés était en guerre contre Suzaku, ils capturaient des jeunes enfants capables de cultiver. L'un d'eux était Wang Yu.
 
 « La vie de cet enfant s'est également éteinte... » La tristesse qui entourait Wang Lin s'intensifia. Il ressentait une émotion complexe au plus profond de son être. En un clin d'œil, des centaines d'années s'étaient écoulées. En regardant en arrière, il constatait que le temps avait tout transformé. Il était devenu difficile de trouver ne serait-ce qu'une seule personne qu'il avait connue.
 
@@ -44,21 +44,21 @@ Tout en réfléchissant, il se détourna et sortit de la salle ancestrale. En ob
 
 Après avoir réglé le karma de la famille Wang, Wang Lin jeta un regard froid à tous ses descendants, agita ses manches et s'élança dans les airs. Ta Shan et le garçon à la grosse tête le suivirent, ainsi que Lei Ji, dont la stature atteignait les trente pieds.
 
-Une fois Wang Lin parti, la place retomba dans un silence de mort. Après un long moment, les huit anciens se relevèrent, l'expression sombre. Ils jetèrent un regard impitoyable à la foule et l'un d'eux déclara froidement: « Nous avons eu tort d'irriter notre ancêtre. Dès aujourd'hui, de nouvelles lois du clan seront instaurées, et quiconque les enfindra sera exécuté! »
+Une fois Wang Lin parti, la place retomba dans un silence de mort. Après un long moment, les huit anciens se relevèrent, l'expression sombre. Ils jetèrent un regard impitoyable à la foule et l'un d'eux déclara froidement: « Nous avons eu tort d'irriter notre ancêtre. Dès aujourd'hui, de nouvelles lois du clan seront instaurées, et quiconque les enfreindra sera exécuté! »
 
 Wang Lin voyageait entre ciel et terre. Malgré le règlement du karma de ses descendants, la mélancolie dans son cœur ne s'atténuait pas. Il se dirigea vers la Secte du Ciel Nuageux.
 
-En chemin, son expression changea alors qu'il scrutait l'horizon. Il aperçut une centipède de milliers de pieds de long fendant rapidement l'air, portant plusieurs cultivateurs sur son dos. L'un d'eux dégageait l'aura d'un immortel; il portait une robe jaune et une épée dans le dos.
+En chemin, son expression changea alors qu'il scrutait l'horizon. Il aperçut un centipède de milliers de pieds de long fendant rapidement l'air, portant plusieurs cultivateurs sur son dos. L'un d'eux dégageait l'aura d'un immortel; il portait une robe jaune et une épée dans le dos.
 
 La brise légère faisait flotter ses vêtements, lui conférant une élégance suprême.
 
 « Maître de la Secte Huanglong! » En voyant cet homme, les yeux de Wang Lin se plissèrent brusquement et brillèrent. Le portrait qu'il avait aperçu dans la Terre des Esprits Démoniaques apparut immédiatement dans son esprit.
 
-La centipède était extrêmement rapide et disparut en un instant derrière l'horizon. Pourtant, Wang Lin sentit distinctement un regard posé sur lui depuis le dos de la créature.
+Le centipède était extrêmement rapide et disparut en un instant derrière l'horizon. Pourtant, Wang Lin sentit distinctement un regard posé sur lui depuis le dos de la créature.
 
 « Ce jeune homme n'est pas mal! » Un léger rire parvint à l'oreille de Wang Lin, porté par ce regard. Le rire s'estompa et finit par disparaître sans laisser de trace.
 
-Wang Lin fronça légèrement les sourcils et fixa le point de disparition de la centipède. Après une courte réflexion, il se dirigea vers la Secte du Ciel Nuageux. Cette affaire était trop étrange, et Wang Lin ne voulait pas agir avec imprudence.
+Wang Lin fronça légèrement les sourcils et fixa le point de disparition du centipède. Après une courte réflexion, il se dirigea vers la Secte du Ciel Nuageux. Cette affaire était trop étrange, et Wang Lin ne voulait pas agir avec imprudence.
 
 Tie Yan attendait toujours Wang Lin sur la place de la Secte du Ciel Nuageux. Il savait que ce dernier viendrait inévitablement.
 
@@ -106,7 +106,7 @@ Planète Suzaku, pays de culture de rang 5 de Zhao, Secte He Huan. Une belle fem
 
 L'endroit où elle pratiquait était réservé aux membres internes du secteur; l'énergie spirituelle y était bien plus dense qu'à l'extérieur. Alors qu'elle était absorbée par sa culture, un rire parvint de l'entrée de la grotte.
 
-« Jeune sœur Zhang, n'oublie pas ta promesse! Puisque je t'ai laissé cultiver dans ma grotte pendant un mois, tu devras être ma partenaire de culture pendant trois jours! Plus que quatre jours avant la fin du mois! » Cette voix était empreinte d'une intention moqueuse. Après le rire, la voix s'éloigna progressivement.
+« Junior Sister Zhang, n'oublie pas ta promesse! Puisque je t'ai laissé cultiver dans ma grotte pendant un mois, tu devras être ma partenaire de culture pendant trois jours! Plus que quatre jours avant la fin du mois! » Cette voix était empreinte d'une intention moqueuse. Après le rire, la voix s'éloigna progressivement.
 
 La femme ouvrit les yeux et soupira. Elle n'était qu'une disciple extérieure de la Secte He Huan. L'énergie spirituelle à l'extérieur était trop ténue pour lui permettre d'atteindre le neuvième niveau de Condensation de Qi; elle ne pouvait espérer sa percée qu'ici.
 

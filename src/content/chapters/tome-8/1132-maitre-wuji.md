@@ -22,7 +22,7 @@ Tout cela se produisit en un instant. Le jeune homme ne fut confus qu'un bref mo
 
 « Je... Qu'est-ce qui m'arrive? » La vision du jeune homme était floue, comme si un voile de brume obstruait son regard. Il leva lentement la main pour se frotter les yeux, espérant dissiper ce brouillard.
 
-Ce geste sembla porter ses fruits, car il regagna un bref instant de clarté. Il vit les cultivateurs autour de lui reculer, leurs yeux empreints de peur et d'effroi. Il vit que la sœur cadette qui l'accompagnait depuis longtemps affichait elle aussi une expression terrifiée; toute la tendresse qu'elle manifestait autrefois avait disparu.
+Ce geste sembla porter ses fruits, car il regagna un bref instant de clarté. Il vit les cultivateurs autour de lui reculer, leurs yeux empreints de peur et d'effroi. Il vit que la Junior Sister qui l'accompagnait depuis longtemps affichait elle aussi une expression terrifiée; toute la tendresse qu'elle manifestait autrefois avait disparu.
 
 Ce qu'il vit en dernier fut sa main droite, celle qu'il avait utilisée pour se frotter les yeux, et il fut saisi d'horreur. C'était une main couverte de rides et de taches séniles.
 
@@ -74,9 +74,9 @@ Wang Lin entendit également ce rugissement. Son corps s'immobilisa et il leva l
 
 Ils n'étaient pas les seuls cultivateurs à avoir survécu. Certains Briseurs de Nirvana avaient également passé l'épreuve. Après réflexion, ils se rapprochèrent tous de ce lieu. Quant aux autres cultivateurs restés à l'extérieur du vide, ils échappèrent heureusement à la loi du temps et survivirent.
 
-Il existait un autre endroit en dehors de ce vide. Il se situait dans un lieu qui n'appartenait pas à la Terre des Dieux Anciens parce que... c'était la Terre des Dieux Anciens elle-même...
+Il existait un autre endroit en dehors de ce vide. Il se situait dans un lieu qui n'appartenait pas à la Terre de l'Ancien Dieu parce que... c'était la Terre de l'Ancien Dieu elle-même...
 
-Cela pouvait sembler contradictoire, mais c'était un fait. La planète Suzaku n'était que l'entrée de la Terre des Dieux Anciens. Il s'agissait d'une faille spatiale qui n'appartenait pas à cet espace, une faille extrêmement vaste, assez grande pour contenir le corps gigantesque d'un dieu ancien à 8 étoiles!
+Cela pouvait sembler contradictoire, mais c'était un fait. La planète Suzaku n'était que l'entrée de la Terre de l'Ancien Dieu. Il s'agissait d'une faille spatiale qui n'appartenait pas à cet espace, une faille extrêmement vaste, assez grande pour contenir le corps gigantesque d'un dieu ancien à 8 étoiles!
 
 Que ce soit le vide ou les épreuves, tout se trouvait, en réalité, à l'intérieur du corps du dieu ancien... Tout comme en ce moment même: que ce soit Wang Lin, les huit rois de la Secte des Cadavres ou le vieil homme en noir, ils se trouvaient tous dans la poitrine du dieu ancien.
 

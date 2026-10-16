@@ -96,7 +96,7 @@ De loin, la montagne et les nuages semblaient livrer bataille: la montagne cherc
 
 À cet instant, le tonnerre éclata et la pluie commença à tomber. Wang Lin courut rapidement vers un arbre et sortit un grand parapluie de son sac en bambou. Cet objet, habilement fabriqué par son père, était pliable. Une fois ouvert, il couvrait non seulement son sac, mais aussi tout son corps.
 
-Tenant le parapluie de la main droite, Wang Lin observa la montagne lointaine que les nuages ne parvenaient pas à occulter. Il regarda la pluie tomber sur la terre, sur les feuilles, sur la surface de la rivière créant des ondulations, et sur le pont de la navire.
+Tenant le parapluie de la main droite, Wang Lin observa la montagne lointaine que les nuages ne parvenaient pas à occulter. Il regarda la pluie tomber sur la terre, sur les feuilles, sur la surface de la rivière créant des ondulations, et sur les embarcations.
 
 « Le vieil adage dit: "Les nuages noirs sont comme de l'encre couvrant les montagnes, la pluie blanche saute comme des perles dans le bateau"... Il s'avère que c'est vrai. » Wang Lin contempla ce spectacle et rit.
 

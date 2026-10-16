@@ -32,7 +32,7 @@ Tant qu'ils sauraient qui avait tué l'Ancêtre, ils auraient la détermination 
 
 Le Maître Lu Fu regarda également Wang Lin tout en réfléchissant.
 
-« Vous avez peut-être entendu dire que dans le Royaume Intérieur, il existe un lieu appelé le Royaume aux sept couleurs... Dans ce royaume se trouvent les fruits du Dao... Pour absorber l'intention du Dao de milliards d'êtres vivants et capturer le Dao d'innombrables cultivateurs afin de produire sept fruits du Dao... J'ai découvert les restes du cultivateur de la troisième étape, Zhan Xingye, dans le Royaume aux sept couleurs, au sein du système stellaire de la Mer Nuageuse... Il a été tué par le Souverain du Royaume Extérieur! » dit lentement Wang Lin en se remémorant le passé.
+« Vous avez peut-être entendu dire que dans le Royaume Intérieur, il existe un lieu appelé le Royaume aux sept couleurs... Dans ce royaume se trouvent les fruits du Dao... Pour absorber l'intention du Dao de milliards d'êtres vivants et capturer le Dao d'innombrables cultivateurs afin de produire sept fruits du Dao... J'ai découvert les restes du cultivateur de la troisième étape, Zhan Xingye, dans le Royaume aux sept couleurs, au sein du système stellaire de la Mer des Nuages... Il a été tué par le Souverain du Royaume Extérieur! » dit lentement Wang Lin en se remémorant le passé.
 
 Alors que Wang Lin évoquait le Royaume aux sept couleurs et mentionnait son hypothèse sur le fait que le Souverain avait planté ces fruits du Dao, Lie Yunzi prit une inspiration glaciale. Pourtant, son intention meurtrière ne faiblit pas; au contraire, son instinct de combat devint plus intense encore! Cet élan guerrier était un héritage que la famille Zhan devait porter à bout de bras!
 
@@ -40,7 +40,7 @@ Le Maître Yan Leizi sentit son esprit vaciller. Ce que Wang Lin révélait sur 
 
 Le Maître Lu Fu, bouleversé, se leva soudainement. Il joignit les mains en signe de respect devant Wang Lin et dit: « Camarade cultivateur Wang, cette affaire est trop grave. L'existence même du Royaume aux sept couleurs représente un danger latent pour le Royaume Intérieur. Une fois que le Royaume Extérieur aura envahi nos terres, je crains que ce royaume n'apporte un désastre inimaginable à notre monde! »
 
-« Absorber toute l'intention du Dao des cultivateurs de mon Royaume Intérieur... quelle méthode redoutable! Ce vieil homme doit immédiatement se rendre à la Secte Démoniaque dans la Mer Nuageuse pour qu'ils mobilisent toutes les forces afin d'éliminer les six autres Royaumes aux sept couleurs! » L'expression du Maître Lu Fu était extrêmement grave. Il percevait clairement le péril imminent. Sans l'alerte de Wang Lin, cela aurait causé une catastrophe sans précédent lors de l'invasion du Royaume Extérieur!
+« Absorber toute l'intention du Dao des cultivateurs de mon Royaume Intérieur... quelle méthode redoutable! Ce vieil homme doit immédiatement se rendre à la Secte Démoniaque dans la Mer des Nuages pour qu'ils mobilisent toutes les forces afin d'éliminer les six autres Royaumes aux sept couleurs! » L'expression du Maître Lu Fu était extrêmement grave. Il percevait clairement le péril imminent. Sans l'alerte de Wang Lin, cela aurait causé une catastrophe sans précédent lors de l'invasion du Royaume Extérieur!
 
 Il songea notamment à la possibilité qu'une multitude de cultivateurs meurent subitement suite à l'effondrement de leur Dao. Cette image glaça le Maître Lu Fu.
 
@@ -100,7 +100,7 @@ Il allait la raffiner pour en faire son essence vitale de Dieu Antique!
 
 En vérité, lorsqu'il était encore un Dieu Antique de 6 étoiles, il aurait pu raffiner une bête pour en faire son essence vitale, mais il n'en avait jamais trouvé une qui soit à sa mesure. Il avait beaucoup aimé le Ji Qiong, mais faute de puissance, il n'avait pu l'obtenir.
 
-Cependant, même le Ji Qiong pâlissait face à ce que Wang Lin visait désormais. Quant aux nombreuses bêtes féroces de la Mer Nuageuse, même les créatures de rang 13 ne pouvaient captiver son attention!
+Cependant, même le Ji Qiong pâlissait face à ce que Wang Lin visait désormais. Quant aux nombreuses bêtes féroces de la Mer des Nuages, même les créatures de rang 13 ne pouvaient captiver son attention!
 
 « Bien que je ne l'aie pas combattue, d'après ce que j'ai vu autrefois, elle doit être au troisième niveau! Même le Serpent aux yeux de lune ne pourra lui résister! Je dois obtenir cette bête! »
 

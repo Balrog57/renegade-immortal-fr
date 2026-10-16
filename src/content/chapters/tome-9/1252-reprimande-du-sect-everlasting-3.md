@@ -16,9 +16,9 @@ Même Wang Shanshan afficha un regard étrange alors que diverses scènes lui ve
 
 Lu Yuncong laissa échapper un sourire amer. Il n'aurait jamais pensé que Frère Lu déclencherait une telle vague d'agitation avant même son arrivée. Cela n'avait rien à voir avec lui, c'était la conséquence des paroles des deux Anciens de la Secte Éternelle.
 
-L'ensemble de la tribune s'était tu, et le vieil homme en blanc poussa un profond soupir. Il devait y croire! À cet instant, il ne regardait plus cet être mystérieux comme un simple cadet, mais comme un semblable, un membre de sa propre génération!
+L'ensemble de la tribune s'était tu, et le vieil homme en blanc poussa un profond soupir. Il devait y croire! À cet instant, il ne regardait plus cet être mystérieux comme un simple Junior, mais comme un semblable, un membre de sa propre génération!
 
-« Lu... Lu Yanfei, vous n'avez pas besoin de repartir. Attendez ici. Je présume que d'ici la fin de la compétition des sectes de rang 6, votre oncle-enseignant sera arrivé. » Le Maître de la Secte Éternelle toussa sèchement. Il regarda Lu Yanfei avec l'admiration que l'on porte à un cadet prodige.
+« Lu... Lu Yanfei, vous n'avez pas besoin de repartir. Attendez ici. Je présume que d'ici la fin de la compétition des sectes de rang 6, votre oncle-enseignant sera arrivé. » Le Maître de la Secte Éternelle toussa sèchement. Il regarda Lu Yanfei avec l'admiration que l'on porte à un Junior prodige.
 
 Li Qianmei ne partit pas et s'assit suite à l'invitation de Wang Shanshan. Dès qu'elle prit place, le regard fulgurant de Mu Bingmei la balaya.
 
@@ -32,9 +32,9 @@ Les membres de la Secte Éternelle étaient de plus en plus exaltés par la comp
 
 La lutte entre les deux sectes de rang 6 n'avait plus d'intérêt, mais une personne se leva, tout comme Lu Yuncong l'avait fait autrefois!
 
-Il s'agissait de Yuan Fei, le disciple principal de la Secte Giant Spirit. Toujours plongé dans une culture en isolement, il avait quitté sa secte il y a de nombreuses années pour ne revenir que deux siècles plus tard. Par conséquent, il avait manqué deux compétitions. C'était un homme d'âge mûr, au stade initial du Briseur du Nirvana. Il était extrêmement féroce; ceux qui l'affrontaient finissaient souvent gravement blessés.
+Il s'agissait de Yuan Fei, le disciple principal de la Secte de l'Esprit Géant. Toujours plongé dans une culture en isolement, il avait quitté sa secte il y a de nombreuses années pour ne revenir que deux siècles plus tard. Par conséquent, il avait manqué deux compétitions. C'était un homme d'âge mûr, au stade initial du Briseur du Nirvana. Il était extrêmement féroce; ceux qui l'affrontaient finissaient souvent gravement blessés.
 
-Cet homme occupait la première place parmi les juniors de sa secte de rang 6. Si ce n'était son absence constante, la Secte Musique Céleste n'aurait jamais obtenu sa position de premier rang et Lu Yingjie ne serait pas devenu célèbre.
+Cet homme occupait la première place parmi les juniors de sa secte de rang 6. Si ce n'était son absence constante, la Secte de la Musique Céleste n'aurait jamais obtenu sa position de premier rang et Lu Yingjie ne serait pas devenu célèbre.
 
 Il représentait les jeunes talents de sa secte. Même Lu Yingjie, bien que las, esquissa un sourire méprisant silencieux sans pour autant apparaître. Cela permit à la renommée de Yuan Fei de s'envoler!
 
@@ -48,7 +48,7 @@ L'expression de Li Qianmei resta calme alors qu'elle observait Yuan Fei sur l'ar
 
 Yuan Fei réfléchit silencieusement un instant avant de sourire, comme indifférent. Son regard se posa sur Lu Yuncong et il lança froidement: « Lu Yuncong, je n'étais pas là lors de la dernière compétition. Veux-tu toujours me défier? »
 
-Les yeux de Lu Yuncong exprimèrent un regard glacial et, après un long moment, il répondit: « Si Frère Lu de la Secte Origin ne vient pas, c'est moi qui te combattrai! »
+Les yeux de Lu Yuncong exprimèrent un regard glacial et, après un long moment, il répondit: « Si Frère Lu de la Secte de l'Origine ne vient pas, c'est moi qui te combattrai! »
 
 Le temps passa lentement. La compétition des sectes de rang 6 touchait à sa fin, mais le Lu Zihao que tous attendaient n'était toujours pas apparu.
 
@@ -68,17 +68,17 @@ Lâchant un soupir, Lu Yanfei vola tel un papillon vers l'arène. Elle y atterri
 
 « Même s'il ne vient pas, je dois mener ce combat jusqu'au bout! »
 
-C'était une affaire privée de la Secte Éternelle, Li Qianmei n'avait donc aucune raison d'intervenir. Elle observa silencieusement la silhouette de Lu Yanfei. Cependant, si la Secte Origin devait être dissous, elle s'était juré de ramener tous ses membres à la Secte Brise-Ciel.
+C'était une affaire privée de la Secte Éternelle, Li Qianmei n'avait donc aucune raison d'intervenir. Elle observa silencieusement la silhouette de Lu Yanfei. Cependant, si la Secte de l'Origine devait être dissous, elle s'était juré de ramener tous ses membres à la Secte Brise-Ciel.
 
 Dès que Lu Yuncong et Lu Yanfei atteignirent l'arène, un silence s'installa et tous les regards se tournèrent vers eux. À cause d'une seule personne de la Secte Origin, ils avaient captivé l'attention générale. Pour la première fois, une si petite secte était remarquée par les innombrables cultivateurs présents.
 
 Tout cela était dû à la personne qui n'était pas encore arrivée!
 
-Tous les regards n'étaient pas bienveillants. C'était le cas de Lu Yingjie, de la Secte Musique Céleste, qui fixait Lu Yuncong et Lu Yanfei d'un regard venimeux.
+Tous les regards n'étaient pas bienveillants. C'était le cas de Lu Yingjie, de la Secte de la Musique Céleste, qui fixait Lu Yuncong et Lu Yanfei d'un regard venimeux.
 
 « Cet homme ridicule... Étiez-vous tous si certains qu'il viendrait? Je veux voir si cet individu est aussi incroyable que vous le prétendez! » Lu Yingjie serra les poings.
 
-Plus loin encore, au sein de la Secte Mountain Seeking, l'atmosphère était lugubre. Zhao Long avait perdu son corps et ne possédait plus que son âme originelle. Il flottait aux côtés du Maître de la Secte et du Grand Ancien, mais son regard venimeux surpassait de loin celui de Lu Yingjie.
+Plus loin encore, au sein de la Secte Montagneuse, l'atmosphère était lugubre. Zhao Long avait perdu son corps et ne possédait plus que son âme originelle. Il flottait aux côtés du Maître de la Secte et du Grand Ancien, mais son regard venimeux surpassait de loin celui de Lu Yingjie.
 
 « Frère Zhao peut être rassuré, je ne laisserai pas passer cela! S'il ne vient pas, il aura de la chance; mais s'il vient, je le tuerai sur-le-champ! »
 

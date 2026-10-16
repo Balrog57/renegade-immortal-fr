@@ -60,13 +60,13 @@ Wang Lin serra les dents et s'élança. Il savait que l'évasion serait pérille
 
 « N'aie pas peur, je ne te tuerai pas. Tu me seras d'une grande utilité! » Les yeux du Maître de la Secte du Dao Démoniaque brillèrent d'une lueur étrange, teintée de mépris, comme s'il contemplait une fourmi. Il agita sa manche vers Wang Lin.
 
-Il était tout simplement trop puissant. À cet instant, l'armure spirituelle de Wang Lin s'était dissipée et son niveau de culture était revenu au stade tardif de la Tribulation Spirituelle. Après avoir utilisé tant de sorts, Wang Lin était comme une lampe à huile vide. L'écart entre leurs niveaux de culture était trop abyssal. Face à ce geste, Wang Lin afficha un regard résolu et ferma les yeux pour tenter de se connecter à son avatar dans le vide.
+Il était tout simplement trop puissant. À cet instant, l'armure spirituelle de Wang Lin s'était dissipée et son niveau de culture était revenu au stade tardif du Vide Spirituel. Après avoir utilisé tant de sorts, Wang Lin était comme une lampe à huile vide. L'écart entre leurs niveaux de culture était trop abyssal. Face à ce geste, Wang Lin afficha un regard résolu et ferma les yeux pour tenter de se connecter à son avatar dans le vide.
 
 Au moment où le Maître de la Secte du Dao Démoniaque agita sa manche, une aura supplémentaire enveloppa le corps de Wang Lin. Ses yeux devinrent dorés et il leva la main en retour.
 
 Le monde gronda et le corps de Wang Lin trembla violemment. Il cracha du sang et fut projeté en arrière alors qu'il tentait de courir vers la montagne. Cet homme était trop fort; même si Wang Lin parvenait à emprunter la puissance de son avatar, il ne ferait toujours pas le poids!
 
-Le choc venā de lui infliger de graves blessures, et il sentait qu'il allait perdre connaissance. Il se mordit la langue pour se forcer à rester éveillé.
+Le choc venait de lui infliger de graves blessures, et il sentait qu'il allait perdre connaissance. Il se mordit la langue pour se forcer à rester éveillé.
 
 Le Maître de la Secte du Dao Démoniaque laissa échapper un léger murmure. Ses yeux brillaient d'une lueur singulière alors qu'il observait Wang Lin s'enfuir, avant de secouer la tête.
 

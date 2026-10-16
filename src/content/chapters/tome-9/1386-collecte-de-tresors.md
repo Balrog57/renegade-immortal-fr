@@ -40,7 +40,7 @@ Il craignait que s'il était trop lent, tous ses trésors ne soient repris un pa
 
 Tout cela se passa en un instant. Une fois son évasion entamée, il retrouva soudainement ses esprits. Il s'arrêta, l'expression empreinte d'incertitude.
 
-« Ce vieil homme est désormais plusieurs fois plus fort qu'auparavant. Mes trésors sont également plus puissants, et je peux affronter des cultivateurs de la Fléau Céleste! Ce Wang Lin n'est qu'un cadet, alors pourquoi ai-je fui?! » Cupidité serra les dents en se remémorant ce qui venait de se passer. La colère monta dans son cœur. Il n'était pas en colère contre Wang Lin, mais contre lui-même!
+« Ce vieil homme est désormais plusieurs fois plus fort qu'auparavant. Mes trésors sont également plus puissants, et je peux affronter des cultivateurs du Fléau Céleste! Ce Wang Lin n'est qu'un cadet, alors pourquoi ai-je fui?! » Cupidité serra les dents en se remémorant ce qui venait de se passer. La colère monta dans son cœur. Il n'était pas en colère contre Wang Lin, mais contre lui-même!
 
 « Ce vieil homme ne fuira plus, je vais tuer Wang Lin et me venger! » Une intention meurtrière apparut dans les yeux de Cupidité et il fit demi-tour, prêt à repartir.
 
@@ -72,11 +72,11 @@ Après quelques respirations, le corps de Cupidité trembla; il rugit et cracha 
 
 « Maudite némésis!!! Il a même volé mon Fourneau Impérial!!! Mon Fourneau Impérial!! » Le cœur de Cupidité se serra, comme si une main s'était introduite dans sa poitrine pour en arracher un morceau de chair.
 
-« Je n'aurais pas dû sortir autant de trésors devant le Clan de l'Évasion des Nuages! Si j'en avais pris un seul, ou même aucun... » Cupidité regrettait ses actes alors qu'il s'échappait, le visage pâle.
+« Je n'aurais pas dû sortir autant de trésors devant le Clan de l'Évasion Nuageuse! Si j'en avais pris un seul, ou même aucun... » Cupidité regrettait ses actes alors qu'il s'échappait, le visage pâle.
 
 Il s'enfuit très rapidement et, peu après, il fut loin de la planète où se trouvait Wang Lin. Il vola profondément dans les Terres Déchues.
 
-Sur la planète du Clan du Scorpion Noir, la main géante de Wang Lin balaya le sol. Après avoir pris les neuf tablettes de pierre, la lance de brume et le grand fourneau, son regard se posa sur l'arbre géant au sol.
+Sur la planète du Clan des Scorpions Noirs, la main géante de Wang Lin balaya le sol. Après avoir pris les neuf tablettes de pierre, la lance de brume et le grand fourneau, son regard se posa sur l'arbre géant au sol.
 
 « Les trésors que Cupidité possédait sont bien plus puissants qu'auparavant. Ces 99 épées seules sont bien plus fortes que celles du Royaume de la Massacre! De plus, ces neuf tablettes sont faites d'os et dégagent une aura puissante!
 

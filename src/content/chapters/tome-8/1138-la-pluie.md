@@ -10,7 +10,7 @@ Une chaîne de montagnes s'étendait loin à l'est de la jungle, sur le continen
 
 Au centre de ce cercle se trouvait un bassin gigantesque.
 
-Le bassin était parsemé de pavillons dont les lueurs illuminaient la nuit. Pourtant, une profonde tristesse régnait en ces lieux. Ni la pluie, ni les éclairs qui déchiraient le ciel ne parvenaient à apaiser cette mélancolie, ni même à la dissiper le moins que soit.
+Le bassin était parsemé de pavillons dont les lueurs illuminaient la nuit. Pourtant, une profonde tristesse régnait en ces lieux. Ni la pluie, ni les éclairs qui déchiraient le ciel ne parvenaient à apaiser cette mélancolie, ni même à la dissiper le moins du monde.
 
 Huit piliers massifs d'une centaine de pieds d'épaisseur étaient disposés autour de la montagne, à l'extérieur du bassin. Ils étaient tous espacés de manière parfaitement égale, sans la moindre différence, semblant jaillir de la roche pour percer les cieux.
 
@@ -60,7 +60,7 @@ Les quatre disciples contemplaient leur maître avec douleur. Ils savaient que t
 
 Ce sortilège était d'un grand mystère; personne ne pouvait en expliquer précisément le mécanisme. Même le vieil homme ne le comprenait pas totalement, sachant seulement qu'il s'agissait d'une technique ancestrale transmise depuis des générations.
 
-Le sortilège ne garantissait jamais le succès. En réalité, au fil des millénaires, chaque fois qu'un chef de la Secte de l'Origine approchait de la mort, il tentait cette invocation. Sur toutes ces années, elle n'avait réussi que deux fois... Tous les autres échels indiquaient qu'aucun talent correspondant n'existait sur le continent de Mo Luo.
+Le sortilège ne garantissait jamais le succès. En réalité, au fil des millénaires, chaque fois qu'un chef de la Secte de l'Origine approchait de la mort, il tentait cette invocation. Sur toutes ces années, elle n'avait réussi que deux fois... Tous les autres échecs indiquaient qu'aucun talent correspondant n'existait sur le continent de Mo Luo.
 
 La dernière trace de vitalité et d'énergie originelle du vieil homme s'embrasa. Une flamme bleue enveloppa son corps, puis il commença à se dissiper devant ses quatre disciples.
 
@@ -70,7 +70,7 @@ Il chercha encore et encore, mais ne trouva aucune trace de lui. Le vieil homme 
 
 À cet instant, sous les flammes bleues dévorantes, il ne restait plus que sa tête. Il était sur le point de disparaître totalement.
 
-Cependant, à ce moment précis, son Sens Divin perceva une lueur émanant de la pluie dans la partie nord du continent de Mo Luo. S'il prêtait attention à cette jungle, c'était parce qu'elle abritait la porte vers le Système Stellaire de l'Alliance.
+Cependant, à ce moment précis, son Sens Divin perçut une lueur émanant de la pluie dans la partie nord du continent de Mo Luo. S'il prêtait attention à cette jungle, c'était parce qu'elle abritait la porte vers le Système Stellaire de l'Alliance.
 
 Il vit clairement la lumière du transfert s'illuminer et, simultanément, une silhouette blanche en émergea lentement. Ses cheveux blancs flottaient dans la nuit obscure, et même la pluie semblait frémir devant lui. Plus étrange encore, le tonnerre grondant semblait craindre cet individu et se dispersa soudainement.
 

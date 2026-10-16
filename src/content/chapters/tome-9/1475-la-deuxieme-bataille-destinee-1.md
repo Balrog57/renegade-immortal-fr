@@ -70,7 +70,7 @@ On pourrait dire qu'il était la personne qui comprenait le mieux Wang Lin au mo
 
 Bien que cela puisse paraître simple, combien de personnes dans ce monde auraient pu faire une telle chose?
 
-« Si tu veux te battre contre moi, je satisferai ta requête! La bataille devant la Formation de Scellement du Royaume n'était pas plaisante. Aujourd'hui, nous nous battrons à nouveau dans cette terre ancienne! » Tandis que Tuo Sen parlait, il avança et franchit l'interstice entre les Feuilles Anciennes. Il sortit et pénétra dans le palais!
+« Si tu veux te battre contre moi, je satisferai ta requête! La bataille devant la Formation de Scellement du Royaume n'était pas plaisante. Aujourd'hui, nous nous battrons à nouveau dans cette terre ancienne! » Tandis que Tuo Sen parlait, il avança et franchit l'interstice entre les Feuilles Ancestrales. Il sortit et pénétra dans le palais!
 
 C'était la première fois que Tuo Sen ne s'appelait pas lui-même « ce dieu ». Un simple changement de langage, mais qui révélait qu'il reconnaissait désormais Wang Lin comme un dieu ancestral!
 

@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1973 - White-Haired Ascendant Empyrean!"
 slug: lascendant-empyreen-aux-cheveux-blancs
 ---
-« Ne flèches se dispersant en d'innombrables traits pour former une main... Cela atteint à peine la puissance d'un Empyréen Exalté ayant franchi le septième palais... Vous neuf devriez posséder la puissance d'un Empyréen Exalté ayant franchi le quatrième palais. »
+« Neuf flèches se dispersant en d'innombrables traits pour former une main... Cela atteint à peine la puissance d'un Empyréen Exalté ayant franchi le septième palais... Vous neuf devriez posséder la puissance d'un Empyréen Exalté ayant franchi le quatrième palais. »
 
 « Digne du Manoir Li, vos fondations sont profondes! » dit lentement Wang Lin en avançant.
 
@@ -58,7 +58,7 @@ Ce qui les terrifiait davantage encore était qu'ils avaient, en réalité, tent
 
 « Le Manoir Li compte deux Ascendants Empyréens et onze Empyréens Exaltés... Et il existe trois manoirs de cette envergure dans la cité ancestrale. » Après avoir observé le Manoir Li, Wang Lin avait une compréhension claire de la hiérarchie des quatre rois de la cité.
 
-« Plus tôt, le support d'arc de l'ancêtre a émis un bourdonnement, ce qui signifie que l'arc était à proximité. Autrefois, l'arc de l'ancêtre fut transmis à Li Guang, puis disparut sans laisser de trace... Ayant remarqué le son provenant du support, j'ai envoyé deux Empyréens Exaltés dorés pour vérifier, mais leur comportement fut quelque peu excessif. Après tout, l'arc de l'ancêtre est d'une importance capitale pour ma famille Li... » Bien que le vieil homme tentât de soutenir le regard de Wang Lin, il sentait faiblement que la force de suppression émanant de ses yeux était trop puissante.
+« Plus tôt, le support d'arc de l'ancêtre a émis un bourdonnement, ce qui signifie que l'arc était à proximité. Autrefois, l'arc de l'ancêtre fut transmis à Li Guang, puis disparut sans laisser de trace... Ayant remarqué le son provenant du support, j'ai envoyé deux Exaltés Dorés pour vérifier, mais leur comportement fut quelque peu excessif. Après tout, l'arc de l'ancêtre est d'une importance capitale pour ma famille Li... » Bien que le vieil homme tentât de soutenir le regard de Wang Lin, il sentait faiblement que la force de suppression émanant de ses yeux était trop puissante.
 
 Wang Lin resta silencieux, les yeux fixés sur le vieillard.
 
@@ -120,6 +120,6 @@ Wang Lin avait appris à la Secte du Soleil Violet que chaque Ascendant Empyrée
 
 Lors de la cérémonie, il existait une possibilité d'être défié, mais par le passé, cela était généralement ignoré. Après tout, les Ascendants Empyréens recevaient la reconnaissance de l'ombre de l'Ancêtre Céleste, et peu de gens se sentaient assez oisifs pour s'y risquer.
 
-Une fois la lecture terminée, l'homme en robe verte constata que Wang Lin ne sortait pas, ce qui accroît sa frustration. Il laissa l'édit derrière lui et reprit sa route.
+Une fois la lecture terminée, l'homme en robe verte constata que Wang Lin ne sortait pas, ce qui accroissait sa frustration. Il laissa l'édit derrière lui et reprit sa route.
 
 « Je me demande ce que Lian Daozhen fera lors de cette cérémonie... Je devrais pouvoir croiser le regard de ce fou... » Songea Wang Lin. Il avait étendu son Sens Divin à travers toute la ville est, mais il n'avait pas trouvé trace de Ling Daofei.

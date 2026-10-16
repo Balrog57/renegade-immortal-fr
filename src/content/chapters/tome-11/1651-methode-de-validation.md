@@ -34,11 +34,11 @@ Au fil des millénaires, quiconque tentait de découvrir si le monde dans lequel
 
 Le seul moyen de le prouver était le suivant: si, en partant, toute votre culture disparaissait et que vous redeveniez un mortel, alors votre existence n'était qu'une Flamme Joss. En revanche, si votre culture restait inchangée après votre départ, alors tout était réel!
 
-Tandis que Wang Lin traversait la Rivière des Invocations, son Sens Divin revint de sa tête. Lorsqu'il avait saisi la tête pour la première fois, il avait utilisé la recherche d'âme et avait ainsi extrait de nombreux souvenirs de l'homme d'âge moyen.
+Tandis que Wang Lin traversait la Rivière Invoquée, son Sens Divin revint de sa tête. Lorsqu'il avait saisi la tête pour la première fois, il avait utilisé la recherche d'âme et avait ainsi extrait de nombreux souvenirs de l'homme d'âge moyen.
 
 D'un revers de main, il ajouta une nouvelle tête aux dizaines de milliers qui le suivaient. C'était la première tête de cultivateur de la troisième étape, mais ce ne serait certainement pas la dernière.
 
-Il n'y avait plus aucun cultivateur de la troisième étape dans la Rivière des Invocations; s'il y en avait eu, ils avaient fui depuis longtemps. Wang Lin se déplaça comme un éclair, balayant la Rivière des Invocations.
+Il n'y avait plus aucun cultivateur de la troisième étape dans la Rivière Invoquée; s'il y en avait eu, ils avaient fui depuis longtemps. Wang Lin se déplaça comme un éclair, balayant la Rivière Invoquée.
 
 Les planètes qu'il survolait devenaient des charniers. C'était comme si une tempête violente passait, arrachant d'innombrables têtes qui se mettaient à sa suite.
 
@@ -46,31 +46,31 @@ Souvent, une lueur blanche surgissait près d'une planète ou d'une garnison, su
 
 Le chiffre de 50 000 peut paraître abstrait, mais le spectacle de toutes ces têtes aurait pu terrifier n'importe quel cultivateur. Ce n'était pas qu'un simple nombre, mais des têtes réelles et visibles. L'odeur du sang était si épaisse que même à distance, on pouvait distinctement la sentir.
 
-Lorsque Situ Nan et les milliers de cultivateurs arrivèrent, ils découvrirent une Rivière des Invocations reconquise et débarrassée des cultivateurs du Royaume Extérieur! En volant vers l'avant, ils rencontrèrent des planètes teintées de pourpre par le sang. Un à un, les cultivateurs de la Rivière des Invocations suivirent les traces de Wang Lin.
+Lorsque Situ Nan et les milliers de cultivateurs arrivèrent, ils découvrirent une Rivière Invoquée reconquise et débarrassée des cultivateurs du Royaume Extérieur! En volant vers l'avant, ils rencontrèrent des planètes teintées de pourpre par le sang. Un à un, les cultivateurs de la Rivière Invoquée suivirent les traces de Wang Lin.
 
 Wang Lin avançait et ils le suivaient. Bien qu'une vaste distance les séparât, Wang Lin était tel une épée menant la charge. Tous les autres n'avaient d'autre choix que de le suivre!
 
-Wang Lin quitta la Rivière des Invocations. Après avoir déterminé qu'aucun cultivateur du Royaume Extérieur ne subsistait, il pénétra dans la Mer Nuageuse tandis que les près de 50 000 têtes poussaient des hurlements lugubres!
+Wang Lin quitta la Rivière Invoquée. Après avoir déterminé qu'aucun cultivateur du Royaume Extérieur ne subsistait, il pénétra dans la Mer des Nuages tandis que les près de 50 000 têtes poussaient des hurlements lugubres!
 
-La Mer Nuageuse était à l'origine le front de guerre, et une multitude de cultivateurs des deux camps y avaient péri. Dès son entrée, Wang Lin eut l'impression d'entendre les cris d'innombrables fantômes.
+La Mer des Nuages était à l'origine le front de guerre, et une multitude de cultivateurs des deux camps y avaient péri. Dès son entrée, Wang Lin eut l'impression d'entendre les cris d'innombrables fantômes.
 
 Il ferma les yeux. Après un instant de sensation, il les rouvrit, révélant un regard chargé d'une intention meurtrière. Il avança, les 50 000 têtes flottant derrière lui; une scène proprement terrifiante.
 
-« 50 000 têtes suffisent pour former la formation de la Vie et de la Mort! » Tandis que Wang Lin traversait la Mer Nuageuse, plus de la moitié des continents flottants d'autrefois avaient été déchirés et effondrés.
+« 50 000 têtes suffisent pour former la formation de la Vie et de la Mort! » Tandis que Wang Lin traversait la Mer des Nuages, plus de la moitié des continents flottants d'autrefois avaient été déchirés et effondrés.
 
-Les continents restants étaient occupés par une masse de cultivateurs du Royaume Extérieur installés là depuis longtemps. La Mer Nuageuse étant la ligne de front, il ne restait presque plus de cultivateurs du Royaume Intérieur; la quasi-totalité avait péri.
+Les continents restants étaient occupés par une masse de cultivateurs du Royaume Extérieur installés là depuis longtemps. La Mer des Nuages étant la ligne de front, il ne restait presque plus de cultivateurs du Royaume Intérieur; la quasi-totalité avait péri.
 
-Toute la Mer Nuageuse était devenue le territoire du Royaume Extérieur!
+Toute la Mer des Nuages était devenue le territoire du Royaume Extérieur!
 
-Le Sens Divin de Wang Lin se déploya et enveloppa instantanément la Mer Nuageuse. Tout ce qui s'y trouvait apparut clairement dans son esprit. En contemplant cette étrangère Mer Nuageuse, la colère de Wang Lin rugit comme une tempête.
+Le Sens Divin de Wang Lin se déploya et enveloppa instantanément la Mer des Nuages. Tout ce qui s'y trouvait apparut clairement dans son esprit. En contemplant cette étrangère Mer des Nuages, la colère de Wang Lin rugit comme une tempête.
 
-Il ne dissimula nullement son Sens Divin, utilisant au contraire une méthode impérieuse pour signifier à tous les cultivateurs du Royaume Extérieur de la Mer Nuageuse qu'il était arrivé.
+Il ne dissimula nullement son Sens Divin, utilisant au contraire une méthode impérieuse pour signifier à tous les cultivateurs du Royaume Extérieur de la Mer des Nuages qu'il était arrivé.
 
 Sur les continents, les cultivateurs du Royaume Extérieur s'éveillèrent lorsqu'ils ressentirent le Sens Divin de Wang Lin. Ils levèrent les yeux vers le ciel, stupéfaits, tandis qu'un pressentiment funeste grandissait dans leurs cœurs.
 
-Le Sens Divin de Wang Lin était comme une tempête balayant la Mer Nuageuse, tel un lourd gourdin frappant au cœur de chaque cultivateur du Royaume Extérieur.
+Le Sens Divin de Wang Lin était comme une tempête balayant la Mer des Nuages, tel un lourd gourdin frappant au cœur de chaque cultivateur du Royaume Extérieur.
 
-Au plus profond de la Mer Nuageuse se trouvait une planète rare. C'était autrefois la planète de la Secte Brise-Ciel, mais elle n'était plus que ruines. D'innombrables algues bleues et violettes y poussaient, atteignant des milliers de pieds de hauteur. De loin, on aurait dit que la planète avait poussé des poils.
+Au plus profond de la Mer des Nuages se trouvait une planète rare. C'était autrefois la planète de la Secte Brise-Ciel, mais elle n'était plus que ruines. D'innombrables algues bleues et violettes y poussaient, atteignant des milliers de pieds de hauteur. De loin, on aurait dit que la planète avait poussé des poils.
 
 La planète entière était recouverte par ces algues. Au centre de cette étendue végétale se trouvaient d'immenses branches de plusieurs centaines de pieds d'épaisseur, et là trônait une fleur géante et violette!
 
@@ -78,7 +78,7 @@ La fleur mesurait plus de 10 000 pieds de haut, et il était évident que les al
 
 Le bourgeon floral était circulaire et vaguement transparent; une femme y était assise. Elle était d'une grande beauté et portait une robe légère. Assise là, elle cultivait.
 
-L'aura d'un cultivateur du Vide du Nirvana au stade intermédiaire émanait du bourgeon. Lorsque l'aura de Wang Lin balaya la Mer Nuageuse, la femme à l'intérieur du bourgeon ouvrit les yeux.
+L'aura d'un cultivateur du Vide du Nirvana au stade intermédiaire émanait du bourgeon. Lorsque l'aura de Wang Lin balaya la Mer des Nuages, la femme à l'intérieur du bourgeon ouvrit les yeux.
 
 Son regard était empreint de choc. À l'instant où ses yeux s'ouvrirent, les algues infinies de la planète s'agitèrent.
 

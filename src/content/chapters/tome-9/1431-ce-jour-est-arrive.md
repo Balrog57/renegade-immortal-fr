@@ -8,7 +8,7 @@ slug: ce-jour-est-arrive
 ---
 La tempête de feu s'immobilisa dans les airs et fusionna avec l'armature de l'ombrelle en os de feu, formant une ombrelle ardente. Lorsque la bouchée de sang de Wang Lin atteignit l'ombrelle, une quantité massive de vitalité s'y engouffra, provoquant un rugissement retentissant.
 
-La terre sacrée du Clan des Oiseaux de Feu, alors en plein effondrement, fut envahie par une chaleur indescriptible. Même l'empreinte de la paume hésita lorsqu'elle fut frappée par cette onde thermique.
+La terre sacrée du Clan des Moineaux de Feu, alors en plein effondrement, fut envahie par une chaleur indescriptible. Même l'empreinte de la paume hésita lorsqu'elle fut frappée par cette onde thermique.
 
 L'expression du Souverain changea radicalement!
 
@@ -26,13 +26,13 @@ C'était là le pouvoir capable de dévaster un royaume!
 
 L'onde de choc destructrice créée par la collision entre le bec de l'Oiseau Vermillon et le Souverain heurta la puissance de l'aura de feu. D'innombrables grondements éclatèrent tandis que l'onde de choc s'effondrait et que le feu s'éteignait!
 
-« L'Ancienne Ombrelle Brûlant les Royaumes!! » Le visage du Souverain était pâle. Il était gravement blessé, puis il avait commis une erreur de calcul avec "Pêcher la Lune dans le Puits". Après cela, il avait combattu l'esprit originel de l'Oiseau Vermillon et l'avait scellé avant même d'avoir vu Wang Lin utiliser la terrifiante Ancienne Ombrelle Brûlant les Royaumes!
+« L'Ancienne Ombrelle Brûlante du Royaume!! » Le visage du Souverain était pâle. Il était gravement blessé, puis il avait commis une erreur de calcul avec "Pêcher la Lune dans le Puits". Après cela, il avait combattu l'esprit originel de l'Oiseau Vermillon et l'avait scellé avant même d'avoir vu Wang Lin utiliser la terrifiante Ancienne Ombrelle Brûlante du Royaume!
 
 À cet instant, il était plus affaibli qu'auparavant! Avec une expression féroce, le Souverain forma un sceau et saisit l'étoffe sur son épaule. Dans un rugissement, il la tira violemment!
 
 Une douleur intense envahit son corps alors qu'il arrachait l'armure qui avait déjà fusionné avec sa chair. L'armure émit une lueur grise et se transforma soudainement en une paume gigantesque!
 
-« Comment l'Ancienne Ombrelle Brûlant les Royaumes pourrait-elle être si facile à ouvrir? Cette armure m'a été donnée par mon Maître, elle est amplement suffisante pour rivaliser avec une ombrelle fermée! Paume de la Suppression Universelle! » rugit le Souverain, tandis que l'immense paume formée par l'armure fonçait sur Wang Lin!
+« Comment l'Ancienne Ombrelle Brûlante du Royaume pourrait-elle être si facile à ouvrir? Cette armure m'a été donnée par mon Maître, elle est amplement suffisante pour rivaliser avec une ombrelle fermée! Paume de la Suppression Universelle! » rugit le Souverain, tandis que l'immense paume formée par l'armure fonçait sur Wang Lin!
 
 Elle était d'une rapidité extrême et semblait couvrir tout le ciel, égalant presque la taille du bec de l'Oiseau Vermillon. En balayant l'azur, elle s'apprêtait à percuter l'ombrelle antique.
 
@@ -40,7 +40,7 @@ Des grondements tonitruants retentirent frénétiquement alors que le feu péné
 
 Tout cela se produisit en un éclair. Alors que la paume se désintégrait, elle se rapprocha de l'ombrelle. Après avoir réduit sa taille de moitié, elle percuta l'ombrelle antique!
 
-« Ancienne Ombrelle Brûlant les Royaumes, brise-toi devant ce Souverain!! »
+« Ancienne Ombrelle Brûlante du Royaume, brise-toi devant ce Souverain!! »
 
 L'ombrelle antique trembla et Wang Lin cracha du sang. La vitalité dans son corps était en plein chaos. Après tout, son niveau de culture n'était pas assez élevé pour déployer sa véritable puissance. Le simple fait de l'ouvrir à 20 % pour bloquer la paume du Souverain représentait sa limite!
 
@@ -50,11 +50,11 @@ Cependant, juste au moment où elle allait disparaître complètement, Wang Lin 
 
 L'ombrelle antique, sur le point de se dissiper, trembla et, sous l'écho du cri de Wang Lin, une aura destructrice jaillit de son sein!
 
-La terre sacrée entière du Clan des Oiseaux de Feu s'effondra totalement! L'empreinte grise générée par l'armure se désintégra complètement.
+La terre sacrée entière du Clan des Moineaux de Feu s'effondra totalement! L'empreinte grise générée par l'armure se désintégra complètement.
 
-À l'extérieur de la porte de la terre sacrée du Clan des Oiseaux de Feu, l'Ancêtre était assis en pleine culture. Il ouvrit soudain les yeux et regarda vers la porte. Mais à cet instant, la porte s'effondra et d'innombrables fragments se précipitèrent vers lui.
+À l'extérieur de la porte de la terre sacrée du Clan des Moineaux de Feu, l'Ancêtre était assis en pleine culture. Il ouvrit soudain les yeux et regarda vers la porte. Mais à cet instant, la porte s'effondra et d'innombrables fragments se précipitèrent vers lui.
 
-Ce fut si soudain que l'Ancêtre du Clan des Oiseaux de Feu n'eut pas le temps de réagir avant que les débris ne le percutent. Il cracha du sang et recula rapidement, le regard empreint de choc, de terreur et d'incrédulité!
+Ce fut si soudain que l'Ancêtre du Clan des Moineaux de Feu n'eut pas le temps de réagir avant que les débris ne le percutent. Il cracha du sang et recula rapidement, le regard empreint de choc, de terreur et d'incrédulité!
 
 La silhouette de Wang Lin jaillit de la porte effondrée et s'échappa promptement. Derrière lui, l'effondrement de la terre sacrée se mua en une force destructrice infinie qui explosait vers l'extérieur.
 
@@ -72,11 +72,11 @@ Le sort du Maître du Dao Rêve Bleu, le Bouclier d'Ombre et de Lumière!
 
 Dès que le Bouclier d'Ombre et de Lumière apparut, l'empreinte de la paume s'abattit dessus. Le bouclier vacilla violemment, tentant de refléter la puissance, mais il ne tint que quelques respirations avant de s'effondrer!
 
-Les fragments du bouclier volèrent en éclats et le visage de Wang Lin devint d'une pâleur extrême alors qu'il crachait à nouveau du sang. Voyant que l'empreinte de la paume allait l'atteindre, Wang Lin poussa un rugissement. Ses étoiles d'Ancien Dieu tournèrent rapidement et le Foyer de l'Empereur jaillit de sa première étoile!
+Les fragments du bouclier volèrent en éclats et le visage de Wang Lin devint d'une pâleur extrême alors qu'il crachait à nouveau du sang. Voyant que l'empreinte de la paume allait l'atteindre, Wang Lin poussa un rugissement. Ses étoiles d'Ancien Dieu tournèrent rapidement et le Fourneau de l'Empereur jaillit de sa première étoile!
 
-Le Foyer de l'Empereur apparut autour de Wang Lin, formant un bouclier, et entra en collision avec la paume qui le poursuivait.
+Le Fourneau de l'Empereur apparut autour de Wang Lin, formant un bouclier, et entra en collision avec la paume qui le poursuivait.
 
-Un bourdonnement puissant retentit alors que Wang Lin était repoussé, couvert d'innombrables blessures. Le Foyer de l'Empereur ne s'effondra pas, mais il ne put prendre sa forme complète à cause de la force de l'impact et fut renvoyé dans la première étoile d'Ancien Dieu de Wang Lin!
+Un bourdonnement puissant retentit alors que Wang Lin était repoussé, couvert d'innombrables blessures. Le Fourneau de l'Empereur ne s'effondra pas, mais il ne put prendre sa forme complète à cause de la force de l'impact et fut renvoyé dans la première étoile d'Ancien Dieu de Wang Lin!
 
 « Ce Souverain veut voir comment tu vas résister, comment tu vas t'échapper!! » Le Souverain poursuivait Wang Lin, les yeux injectés de soif de sang!
 
@@ -120,7 +120,7 @@ Le front de l'Ancien Dieu révélait clairement huit étoiles en rotation!
 
 Le Souverain n'eut aucun temps pour esquiver avant que le poing de l'Ancien Dieu ne le percute comme une météorite.
 
-Le visage du Souverain pâlit et il cracha du sang; il était gravement blessé. Son corps fut projeté en arrière dans un grognement étouffé. Ce coup fit resurgir toutes les blessures qu'il avait subies du bec de l'Oiseau Vermillon, de l'Ancienne Ombrelle Brûlant les Royaumes, ainsi que celles datant de dizaines de milliers d'années!
+Le visage du Souverain pâlit et il cracha du sang; il était gravement blessé. Son corps fut projeté en arrière dans un grognement étouffé. Ce coup fit resurgir toutes les blessures qu'il avait subies du bec de l'Oiseau Vermillon, de l'Ancienne Ombrelle Brûlante du Royaume, ainsi que celles datant de dizaines de milliers d'années!
 
 Dans un ultime éclat, l'Ancien Dieu se dissipa, redevint le gantelet et disparut dans le bras droit de Wang Lin.
 
@@ -128,7 +128,7 @@ Une lueur glaciale passa dans les yeux de Wang Lin. Il aurait dû choisir la fui
 
 Le Souverain sortit un trésor inconnu pour bloquer l'épée de sang, la repoussant. Wang Lin soupira. Ses blessures étaient trop lourdes; il ne tenait plus qu'à un fil. S'il perdait ce dernier souffle, il s'effondrerait instantanément. À cet instant, il saisit son épée de sang et s'échappa sans attendre.
 
-Cependant, juste au moment où Wang Lin allait utiliser la Déformation Spatiale pour fuir, la voix affaiblie du Souverain résonna à travers le monde. Lorsque ces mots atteignirent les oreilles de Wang Lin, il se figea net.
+Cependant, juste au moment où Wang Lin allait utiliser la Distorsion Spatiale pour fuir, la voix affaiblie du Souverain résonna à travers le monde. Lorsque ces mots atteignirent les oreilles de Wang Lin, il se figea net.
 
 « Wang Lin... Wang Lin, tu es audacieux, cruel, décisif et rusé! Veux-tu devenir mon soldat? Si tu acceptes, je peux ressusciter ta femme!! Pas seulement éveiller son âme, mais la ressusciter complètement!!! »
 

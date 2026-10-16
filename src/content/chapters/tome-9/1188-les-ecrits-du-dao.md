@@ -28,7 +28,7 @@ Cependant, lors de son passage à Luotian, Wang Lin avait hérité de l'une des 
 
 Il avait le vague sentiment que les choses n'étaient pas aussi simples qu'elles en avaient l'air.
 
-Wang Lin déploya son Sens Divin et scanna méticuleusement l'herbe, centimètre par centimètre. Son expression devint progressivement grave, d'autant plus lorsqu'il aperçut la lumière noire non loin de la restriction. Il pensa immédiatement au gaz noir que la vieille femme avait utilisé pour absorber la vitalité du dragon et pénétrer dans la Formation de Scellement des Neuf Pas vers le Ciel.
+Wang Lin déploya son Sens Divin et scanna méticuleusement l'herbe, centimètre par centimètre. Son expression devint progressivement grave, d'autant plus lorsqu'il aperçut la lumière noire non loin de la restriction. Il pensa immédiatement au gaz noir que la vieille femme avait utilisé pour absorber la vitalité du dragon et pénétrer dans la Formation de Scellement Céleste en Neuf Étapes.
 
 Lorsqu'il avait vu la restriction de la vieille femme, il l'avait trouvée étrange, mais ne pouvant l'observer trop près, il n'avait pu percer son mystère. Cependant, face à cette restriction, sa réflexion lui apporta une illumination.
 
@@ -62,7 +62,7 @@ En regardant devant lui, Wang Lin sentait distinctement que Maître Pin Cendré 
 
 Maître Pin Cendré portait l'Armure Divine Démoniaque et faisait preuve d'une prudence extrême. Il devait surveiller chacun de ses pas au sein du brouillard. La vieille femme en vert l'accompagnait, entourée d'un gaz noir. Le silence régnait, seul le bruit de leurs pas venait troubler le calme.
 
-« Cet individu nommé Lu devrait être mort à présent. Pang Decai est un expert en recherche d'âmes; il doit avoir fait une belle récolte, surtout avec cette Marque d'Esprit de Guerre. C'est l'un des grands sorts de la Secte Divin. » Maître Pin Cendré avait calculé le temps. Ils avaient souvent collaboré, ce qui leur permettait de deviner les pensées de l'autre d'un simple regard.
+« Cet individu nommé Lu devrait être mort à présent. Pang Decai est un expert en recherche d'âmes; il doit avoir fait une belle récolte, surtout avec cette Marque d'Esprit de Guerre. C'est l'un des grands sorts de la Secte Divine. » Maître Pin Cendré avait calculé le temps. Ils avaient souvent collaboré, ce qui leur permettait de deviner les pensées de l'autre d'un simple regard.
 
 « Pang Decai doit être en route... » Les yeux de Maître Pin Cendré brillèrent d'une lueur indéchiffrable.
 
@@ -74,7 +74,7 @@ Une statue gigantesque et floue se dessinait dans le brouillard. Elle semblait m
 
 Ils échangèrent un regard avant d'avancer lentement. Peu de temps après, ils arrivèrent au pied de l'énorme monument et levèrent les yeux.
 
-Il s'agissait d'un rocher colossal de plus de mille pieds de haut, dans lequel était sculpté un homme. Il contemplait le ciel, plongé dans la méditation, et une marque semblable à un éclair marquait son entreceils.
+Il s'agissait d'un rocher colossal de plus de mille pieds de haut, dans lequel était sculpté un homme. Il contemplait le ciel, plongé dans la méditation, et une marque semblable à un éclair marquait son front, entre les sourcils.
 
 « C'est... » La vieille femme en vert fut saisie de stupeur en fixant la marque sur la statue, son expression changeant radicalement.
 

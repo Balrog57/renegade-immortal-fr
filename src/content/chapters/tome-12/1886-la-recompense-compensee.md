@@ -16,7 +16,7 @@ Wang Lin esquissa un sourire fugace et secoua la tête sans répondre. Il contem
 
 « Je n'en dirai pas plus. Frère Du, si le destin le permet, nous nous reverrons. Adieu! » Wang Lin poussa un soupir et disparut d'un pas vers les cieux.
 
-En observant la silhouette de Wang Lin s'éloigner, Du Qing comprit vaguement quelque chose. Il laissa échapper un soupir secret et secoua la tête. Puis, il se transforma en un rayon de lumière pour regagner le Grand Secte des Âmes afin d'annoncer à l'Ancien Taureau Vert qu'il avait accompli sa mission.
+En observant la silhouette de Wang Lin s'éloigner, Du Qing comprit vaguement quelque chose. Il laissa échapper un soupir secret et secoua la tête. Puis, il se transforma en un rayon de lumière pour regagner la Secte de la Grande Âme afin d'annoncer à l'Ancien Taureau Vert qu'il avait accompli sa mission.
 
 Wang Lin fusionna avec le monde et quitta la Secte des Sept Dao. Il apparut dans un désert désolé, une contrée peu commune sur le Continent du Taureau Céleste.
 
@@ -46,13 +46,13 @@ Cette armure humanoïde était probablement une rareté, même au sein de la Sec
 
 Wang Lin resta silencieux, plongé dans ses pensées.
 
-Dans la deuxième sphère de lumière se trouvait une petite voile noire. Pour être précis, il s'agissait d'une Voile Fantomatique. Elle dégageait une aura qui plongeait quiconque dans un rêve profond.
+Dans la deuxième sphère de lumière se trouvait une petite voile noire. Pour être précis, il s'agissait d'une Voile Fantôme. Elle dégageait une aura qui plongeait quiconque dans un rêve profond.
 
-Wang Lin pouvait ressentir l'aura de la Voile Fantomatique principale, celle qui servait de formation de protection au Grand Secte des Âmes. Si ses soupçons étaient exacts, il s'agissait de la Voile Fantomatique de Vice, faisant partie de la récompense pour avoir tué Wang Lin!
+Wang Lin pouvait ressentir l'aura de la Voile Fantôme principale, celle qui servait de formation de protection à la Secte de la Grande Âme. Si ses soupçons étaient exacts, il s'agissait de la Voile Fantôme de Vice, faisant partie de la récompense pour avoir tué Wang Lin!
 
 En contemplant cette petite voile, Wang Lin fut envahi par un sentiment indescriptible.
 
-La Voile Fantomatique de protection était cruciale pour le Grand Secte des Âmes. Pourtant, l'Ancien Taureau Vert la lui avait offerte de manière inattendue.
+La Voile Fantôme de protection était cruciale pour la Secte de la Grande Âme. Pourtant, l'Ancien Taureau Vert la lui avait offerte de manière inattendue.
 
 Wang Lin ne put que méditer en silence.
 
@@ -66,9 +66,9 @@ Wang Lin ressentit l'aura du Taureau Céleste émanant de cet objet. Bien qu'il 
 
 Tout ce qui était lié au Taureau Céleste constituait un trésor inestimable pour le Continent du Taureau Céleste. Un tel objet ne serait jamais donné si facilement, et on n'autoriserait jamais son départ du continent. Pourtant, la perle avait été envoyée à Wang Lin. Bien qu'elle parût légère, elle pesait lourdement sur son cœur.
 
-Enfin, il y avait la quatrième sphère de lumière. Elle renfermait une carapace de tortue brisée, couverte de motifs complexes. À l'œil nu, ils étaient flous, mais lorsqu'il utilisa son Sens Divin, Wang Lin tourna soudain le regard vers le Grand Secte des Âmes.
+Enfin, il y avait la quatrième sphère de lumière. Elle renfermait une carapace de tortue brisée, couverte de motifs complexes. À l'œil nu, ils étaient flous, mais lorsqu'il utilisa son Sens Divin, Wang Lin tourna soudain le regard vers la Secte de la Grande Âme.
 
-Il sembla y voir un vieil homme au sein du Grand Secte, assis sur la Montagne du Ciel Vert. Le vieillard lui souriait et levait la main droite comme pour lui faire signe de l'adieu.
+Il sembla y voir un vieil homme au sein du Grande Secte, assis sur la Montagne du Ciel Vert. Le vieillard lui souriait et levait la main droite comme pour lui faire signe de l'adieu.
 
 La carapace contenait la carte intégrale du Continent Est. Elle manquait de précision; plus on s'éloignait du Continent du Taureau Céleste, plus les détails devenaient vagues, ne laissant place qu'à des contours grossiers et des indications sommaires.
 
@@ -78,37 +78,37 @@ En plus de la carte, la carapace offrait une description détaillée de la perle
 
 L'Ancien Taureau Vert n'avait laissé qu'une seule phrase. Ce n'était pas un message transmis par le Sens Divin, mais une inscription gravée dans la carapace elle-même.
 
-« Bon voyage... Dans trois cents ans, reviens voir le Grand Secte des Âmes... » Il n'y avait aucune explication, ni mention des trois conditions. Cette unique phrase suffisait à clore le karma liant Wang Lin au Continent du Taureau Céleste.
+« Bon voyage... Dans trois cents ans, reviens voir la Secte de la Grande Âme... » Il n'y avait aucune explication, ni mention des trois conditions. Cette unique phrase suffisait à clore le karma liant Wang Lin au Continent du Taureau Céleste.
 
-L'expression de Wang Lin devint complexe. Après un long moment, il rangea l'armure humanoïde et la Voile Fantomatique. Il prit la Perle du Taureau Céleste et y insuffla l'âme du Taureau Céleste; désormais, il pourrait l'emporter partout avec lui.
+L'expression de Wang Lin devint complexe. Après un long moment, il rangea l'armure humanoïde et la Voile Fantôme. Il prit la Perle du Taureau Céleste et y insuffla l'âme du Taureau Céleste; désormais, il pourrait l'emporter partout avec lui.
 
-Enfin, il rangea soigneusement la carapace de tortue et regarda une dernière fois vers le Grand Secte des Âmes. Il joignit les mains et s'inclina avec respect.
+Enfin, il rangea soigneusement la carapace de tortue et regarda une dernière fois vers la Secte de la Grande Âme. Il joignit les mains et s'inclina avec respect.
 
 « Je reviendrai... » murmura Wang Lin avant de faire volte-face. Il s'élança dans le ciel, suivant les frontières indiquées par la carte. Il se dirigeait vers la Secte Dong Lin!
 
-La Secte Dong Lin se situait dans la partie septentrionale du Continent Est, sur le Grand Continent Sage. Il se trouvait à cinq continents de distance du Continent du Taureau Céleste! Le voyage était immense et un vol direct prendrait des années. Même en utilisant la Déformation Spatiale, comme Wang Lin ne pouvait l'utiliser de manière répétée, cela lui prendrait tout de même un à deux ans.
+La Secte Dong Lin se situait dans la partie septentrionale du Continent Est, sur le Grand Continent Sage. Il se trouvait à cinq continents de distance du Continent du Taureau Céleste! Le voyage était immense et un vol direct prendrait des années. Même en utilisant la Distorsion Spatiale, comme Wang Lin ne pouvait l'utiliser de manière répétée, cela lui prendrait tout de même un à deux ans.
 
 Et pour atteindre la Secte Dong Lin, il y avait un passage obligé: le Continent du Démon Vert! S'il choisissait de contourner, il perdrait encore plus de temps et devrait parcourir bien plus que cinq continents, traversant des zones encore plus périlleuses.
 
-Après réflexion, les yeux de Wang Lin s'illuminèrent. Il devina vaguement que les bouleversements au sein du Grand Secte des Âmes et de la Secte Gui Yi étaient liés au Continent du Démon Vert. Qu'il ait raison ou tort, s'il avait raison, quelqu'un l'attendrait probablement aux confins du Continent du Taureau Céleste.
+Après réflexion, les yeux de Wang Lin s'illuminèrent. Il devina vaguement que les bouleversements au sein de la Secte de la Grande Âme et de la Secte Gui Yi étaient liés au Continent du Démon Vert. Qu'il ait raison ou tort, s'il avait raison, quelqu'un l'attendrait probablement aux confins du Continent du Taureau Céleste.
 
 Bien que la traversée du Continent du Démon Vert semblât dangereuse, cet endroit était désormais largement désert... Peut-être que le lieu le plus périlleux était, en réalité, le plus sûr.
 
 Après tout, peu de gens imagineraient que Wang Lin oserait s'aventurer seul sur le Continent du Démon Vert...
 
-Sa décision prise, Wang Lin changea de direction et utilisa la Déformation Spatiale vers la Mer des Pilules. Il avança avec une prudence extrême.
+Sa décision prise, Wang Lin changea de direction et utilisa la Distorsion Spatiale vers la Mer des Pilules. Il avança avec une prudence extrême.
 
-Lorsqu'il ne pouvait recourir à la Déformation Spatiale, il évitait de voler à découvert. Après tout, sur le Continent du Taureau Céleste, chacun était désormais son ennemi. Que ce soient les cultivateurs du Continent du Taureau Céleste ou ceux du Continent du Démon Vert, dès qu'on le reconnaîtrait, ce serait un massacre.
+Lorsqu'il ne pouvait recourir à la Distorsion Spatiale, il évitait de voler à découvert. Après tout, sur le Continent du Taureau Céleste, chacun était désormais son ennemi. Que ce soient les cultivateurs du Continent du Taureau Céleste ou ceux du Continent du Démon Vert, dès qu'on le reconnaîtrait, ce serait un massacre.
 
 En effet, les cultivateurs ordinaires du Continent du Taureau Céleste ne connaissaient que l'existence de l'Ordre de l'Âme, sans en connaître les détails.
 
-Cependant, Wang Lin n'avait aucune envie de massacrer les cultivateurs de son propre continent; ainsi, chaque fois qu'il ne pouvait plus utiliser la Déformation Spatiale, il se mettait en retrait pour se cacher. Une fois le danger passé, il reprenait sa route.
+Cependant, Wang Lin n'avait aucune envie de massacrer les cultivateurs de son propre continent; ainsi, chaque fois qu'il ne pouvait plus utiliser la Distorsion Spatiale, il se mettait en retrait pour se cacher. Une fois le danger passé, il reprenait sa route.
 
-Par conséquent, sa progression était bien plus lente. Lorsqu'il dépassa la Prairie Extrême et qu'il ne lui restait plus qu'une seule Déformation Spatiale pour atteindre la Mer des Pilules — un trajet qui aurait dû durer trois mois de vol —, plusieurs mois s'étaient déjà écoulés.
+Par conséquent, sa progression était bien plus lente. Lorsqu'il dépassa la Prairie Extrême et qu'il ne lui restait plus qu'une seule Distorsion Spatiale pour atteindre la Mer des Pilules — un trajet qui aurait dû durer trois mois de vol —, plusieurs mois s'étaient déjà écoulés.
 
 Dans cette partie du Continent du Taureau Céleste, l'hiver était arrivé. La neige tombait du ciel et une tempête s'étendait sur des dizaines de milliers de kilomètres.
 
-Il lui faudrait encore une demi-quinzaine de jours avant de pouvoir utiliser à nouveau la Déformation Spatiale. Il passa ce temps en culture isolée, et ses blessures se cicatrisèrent. Il finit par marcher dans la neige, affrontant le vent glacial pour avancer.
+Il lui faudrait encore une demi-quinzaine de jours avant de pouvoir utiliser à nouveau la Distorsion Spatiale. Il passa ce temps en culture isolée, et ses blessures se cicatrisèrent. Il finit par marcher dans la neige, affrontant le vent glacial pour avancer.
 
 Non loin de lui, dans le crépuscule neigeux, une ville mortelle émettait des lueurs diffuses. La fumée s'élevait vers le ciel pour se fondre dans les flocons. C'était une scène empreinte de calme et de beauté.
 

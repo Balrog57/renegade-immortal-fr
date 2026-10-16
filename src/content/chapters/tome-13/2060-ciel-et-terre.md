@@ -18,7 +18,7 @@ Devant lui se dressait le grand fourneau, et l'encens attendait d'être allumé.
 
 À cet instant précis, il était observé par tous les occupants du palais ainsi que par chaque habitant de la cité impériale de Shi Antique. Même ceux qui n'étaient pas dignes de pénétrer dans la cité impériale avaient été rassemblés par leurs seigneurs locaux pour scruter, de loin, la direction de la capitale.
 
-Même au sein des cités impériales d'Dao Antique et de Ji Antique, les regards perçants étaient tournés vers la cité de Shi Antique.
+Même au sein des cités impériales du Dao Antique et de Ji Antique, les regards perçants étaient tournés vers la cité de Shi Antique.
 
 « Empereur de Shi Antique... Parrain, je deviendrai bientôt l'empereur! » Ji Du leva les yeux vers le ciel, son regard se posant sur la statue de l'Ancêtre Suprême au loin. Il prit une profonde inspiration et agita sa manche. Une flamme ardente jaillit autour du fourneau, et l'encens s'embrasa.
 
@@ -120,7 +120,7 @@ L'ombre semblait se superposer à la statue, mais en le faisant, l'apparence de 
 
 C'était parce que l'âme originelle de Wang Lin s'était étendue pour recouvrir la statue de l'Ancêtre Suprême!
 
-Dans le ciel, Xuan Luo afficha un sourire de satisfaction. « Les Trois Divisions de l'Âme d'Dao Antique... il a enfin réussi!! Je me demande quel genre de présent il obtiendra de l'Ancêtre Suprême... »
+Dans le ciel, Xuan Luo afficha un sourire de satisfaction. « Les Trois Divisions de l'Âme du Dao Antique... il a enfin réussi!! Je me demande quel genre de présent il obtiendra de l'Ancêtre Suprême... »
 
 Sur la Montagne de l'Origine, Song Tian, qui n'assistait pas à la cérémonie de Ji Du, contemplait également la statue, et les mêmes pensées traversaient son esprit.
 

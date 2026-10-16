@@ -30,11 +30,11 @@ Des grondements tonitruants secouèrent le monde. La seconde empreinte, créée 
 
 Ses yeux étaient emplis de désespoir. Alors que la troisième empreinte de paume se rapprochait, il poussa le dernier rugissement de sa vie. Il savait qu'il ne pouvait s'échapper, mais il voulait combattre!
 
-En un éclair, il s'élança vers le ciel, en direction de la troisième empreinte. Son âme commença à brûler et son âme d'origine dégagea une aura destructrice. En cet instant de vie ou de mort, il décida de consumer sa propre existence pour obtenir un sursaut de puissance!
+En un éclair, il s'élança vers le ciel, en direction de la troisième empreinte. Son âme commença à brûler et son âme originelle dégagea une aura destructrice. En cet instant de vie ou de mort, il décida de consumer sa propre existence pour obtenir un sursaut de puissance!
 
 Son niveau de culture grimpa follement depuis celui de l'Exalté de Tribulation du Vide à mesure qu'il brûlait sa force vitale. Alors que la troisième empreinte se refermait, son niveau de culture bondit jusqu'à celui d'un Exalté Doré!!
 
-Au moment précis où il devint un Exalté Doré, la troisième empreinte de paume le frappa dans un fracas de tonnerre. L'empreinte de foudre s'effondra, mais ce n'était que du tonnerre ordinaire, et non le tonnerre de destruction.
+Au moment précis où il devint un Exalté Doré, la troisième empreinte de paume le frappa dans un fracas de tonnerre. L'empreinte de foudre s'effondra, mais ce n'était que du tonnerre ordinaire, et non le tonnerre de massacre.
 
 Une fois la brume dissipée, l'homme à la robe rouge affichait un regard dément. Son corps n'était plus qu'un amas sanglant, mais il ne mourut pas. Il fixa Wang Lin, sachant qu'il ne lui restait que dix respirations à vivre. Après ces dix respirations, il mourrait, et Wang Lin n'aurait même pas besoin d'agir!
 
@@ -58,7 +58,7 @@ Il lui restait encore sept respirations de puissance d'Exalté Doré, mais il é
 
 Au moment de son trépas, l'homme comprit clairement la force de Wang Lin. Il n'était pas son égal! Même en brûlant son âme et sa vie, il n'avait pas pu rivaliser avec lui!
 
-« Est-ce cela, un Exalté Doré... » Les yeux de Wang Lin étaient empreints d'intention de combat. Il n'avait utilisé que 70 % de sa puissance, mais il ressentait déjà la puissance colossale des Exalté Dorés.
+« Est-ce cela, un Exalté Doré... » Les yeux de Wang Lin étaient empreints d'intention de combat. Il n'avait utilisé que 70 % de sa puissance, mais il ressentait déjà la puissance colossale des Exaltés Dorés.
 
 À la mort de l'homme à la robe rouge, les 30 000 cultivateurs et les dizaines de cultivateurs du troisième niveau tentèrent de fuir. Cependant, Wang Lin avait déjà scellé la Secte du Dao Démoniaque; aucune évasion n'était possible.
 
@@ -90,9 +90,9 @@ De plus, le Maître de la Secte savait pertinemment que Wang Lin possédait enco
 
 « Je ne peux pas sortir! J'ai déjà rapporté la situation à l'Ancêtre. J'ignore s'il pourra revenir à temps... » Les cris extérieurs lui brisaient le cœur, mais son expression devint bientôt glaciale.
 
-« Et alors s'ils meurent? Même si tout la Secte du Dao Démoniaque disparaît, tant que je suis en vie, il pourra être reconstruit. Plus il y aura de mort et de destruction, plus l'Ancêtre sera en colère! »
+« Et alors s'ils meurent? Même si toute la Secte du Dao Démoniaque disparaît, tant que je suis en vie, il pourra être reconstruit. Plus il y aura de mort et de destruction, plus l'Ancêtre sera en colère! »
 
-« Et j'ai aussi un plan de secours. L'accord entre moi et le Respectable Taureau Vert du Grand Secte des Âmes arrive à son terme. La bataille finale doit avoir lieu en ce moment même... »
+« Et j'ai aussi un plan de secours. L'accord entre moi et le Respectable Taureau Vert de la Secte de la Grande Âme arrive à son terme. La bataille finale doit avoir lieu en ce moment même... »
 
 « Les deux continents jouent cette pièce depuis des dizaines de milliers d'années. Au cours des cent dernières années, nous l'avons rendue plus crédible encore en sacrifiant de nombreux cultivateurs! »
 
@@ -104,7 +104,7 @@ Le sceau en contraction rapide avait tué la plupart des cultivateurs et détrui
 
 À cet instant précis, sur le Continent du Taureau Céleste, un événement majeur survint!
 
-La Secte Gui Yi était encerclé par d'innombrables cultivateurs du Continent du Démon Vert. Ils s'étaient lancés dans une boucherie frénétique pour tenter de briser la formation de la Secte Gui Yi. Les deux camps comptaient sept ou huit génies émergents, et les deux armées combattaient sans égard pour leur vie.
+La Secte Gui Yi était encerclée par d'innombrables cultivateurs du Continent du Démon Vert. Ils s'étaient lancés dans une boucherie frénétique pour tenter de briser la formation de la Secte Gui Yi. Les deux camps comptaient sept ou huit génies émergents, et les deux armées combattaient sans égard pour leur vie.
 
 Tous les cultivateurs de la Tribulation du Vide, y compris le Maître de la Secte et les autres experts du Continent du Démon Vert, levèrent la tête vers le ciel!
 
@@ -114,4 +114,4 @@ Une vague de pression infinie descendit des cieux. Une silhouette dorée se tena
 
 « Continent du Taureau Céleste, Continent du Démon Vert, tous les membres du clan céleste, recevez cet édit! »
 
-Deux autres silhouettes identiques apparurent: l'une à l'extérieur du Grand Secte des Âmes, et l'autre se déplaçant à une vitesse indescriptible vers le Continent du Démon Vert!
+Deux autres silhouettes identiques apparurent: l'une à l'extérieur de la Secte de la Grande Âme, et l'autre se déplaçant à une vitesse indescriptible vers le Continent du Démon Vert!

@@ -86,7 +86,7 @@ Alors que les trois avançaient, ils échangeaient des messages. À cet instant 
 
 Lorsque les ondulations finirent leur course, les trois cultivateurs du Royaume Extérieur tremblèrent, incapables de pousser le moindre cri. D'innombrables fissures apparurent sur leurs corps et ils s'effondrèrent soudainement. Leurs âmes originelles furent déchirées et ils périrent.
 
-Des scènes similaires se produisaient ailleurs dans le Vide Brillant, à Luotian et dans la Mer de Nuages. Peu de temps après que le Maître Long Pan eut déferlé sur la zone, les cultivateurs du Royaume Extérieur restants subirent la folie de Qing Shui.
+Des scènes similaires se produisaient ailleurs dans le Vide Brillant, à Luotian et dans la Mer des Nuages. Peu de temps après que le Maître Long Pan eut déferlé sur la zone, les cultivateurs du Royaume Extérieur restants subirent la folie de Qing Shui.
 
 Les fleurs de sang s'épanouissaient, révélant la beauté de leur mort.
 
@@ -110,7 +110,7 @@ Dès qu'il franchit les limites du royaume au sein de la Rivière Invoquée, Wan
 
 Toutefois, cette zone n'était plus que des fragments de continents; seuls trois restaient intacts. Le Maître Long Pan combattait un homme en robe noire. À chaque mouvement de leurs mains, des grondements assourdissants faisaient trembler le ciel.
 
-Wang Lin avait déjà vu ce vieillard en noir. Il s'agissait du seigneur du Palais de la Punition Céleste, celui-là même qui avait été piégé par le Seigneur du Royaume Scellé lors de la première bataille dans la Mer de Nuages!
+Wang Lin avait déjà vu ce vieillard en noir. Il s'agissait du seigneur du Palais de la Punition Céleste, celui-là même qui avait été piégé par le Seigneur du Royaume Scellé lors de la première bataille dans la Mer des Nuages!
 
 Le niveau de culture de cet homme se situait juste en dessous des cinq maîtres du Royaume Extérieur: il était au début du stade Vide Arcane! Il n'avait pas atteint ce niveau en sacrifiant sa propre durée de vie comme le Maître Long Pan, mais l'avait véritablement atteint par la voie de la culture!
 

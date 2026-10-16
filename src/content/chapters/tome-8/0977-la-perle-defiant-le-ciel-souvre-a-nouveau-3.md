@@ -24,7 +24,7 @@ Le soleil sur la perle défiant le ciel, qui tournait rapidement, ralentit et, �
 
 Une lueur rouge jaillit alors que l'énergie source s'échappait pour pénétrer le motif solaire de la perle défiant le ciel.
 
-Une grande partie de l'énergie source de Wang Lin provenait des Parchemins de Bataille. Une petite portion fut absorbée à partir de la flamme du clan Tattoo sur la planète Suzaku. Les deux étant des sources d'énergie originelle, elles fusionnèrent aisément pour demeurer dans le troisième œil. C'était l'ultime atout que Wang Lin avait préparé pour le combat.
+Une grande partie de l'énergie source de Wang Lin provenait des Parchemins de Bataille. Une petite portion fut absorbée à partir de la flamme du clan du Tatouage sur la planète Suzaku. Les deux étant des sources d'énergie originelle, elles fusionnèrent aisément pour demeurer dans le troisième œil. C'était l'ultime atout que Wang Lin avait préparé pour le combat.
 
 À cet instant, cette rare énergie source originelle pénétra la perle défiant le ciel. C'était comme si une clé avait été trouvée pour elle. La perle défiant le ciel trembla et une force puissante en jaillit, entraînant l'âme originelle de Wang Lin à l'intérieur même de l'objet.
 

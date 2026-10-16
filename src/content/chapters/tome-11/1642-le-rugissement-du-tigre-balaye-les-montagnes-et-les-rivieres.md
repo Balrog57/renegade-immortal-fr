@@ -76,7 +76,7 @@ Un son strident retentit lorsque la lame fendant le ciel fendit la silhouette de
 
 « L'essence du Vrai et du Faux!! C'est l'essence du Vrai et du Faux!! Maudit soit, les sept lois imposées par le Souverain Céleste empêchaient la naissance des essences éthérées. Si ce n'était pas parce qu'il était gravement blessé et avait dû retirer ces sept lois, cet homme n'aurait jamais eu la chance de comprendre une telle essence! »
 
-Les yeux du vieil homme étaient empreints de choc, mais il refusait d'abandonner. Il fit tournoyer sa lame des milliers de fois. Des hurlements aigus continua ne cesser de résonner, mais la silhouette de Wang Lin demeurait une illusion. La lame traversait son corps sans que rien ne change.
+Les yeux du vieil homme étaient empreints de choc, mais il refusait d'abandonner. Il fit tournoyer sa lame des milliers de fois. Des hurlements aigus ne cessaient de résonner, mais la silhouette de Wang Lin demeurait une illusion. La lame traversait son corps sans que rien ne change.
 
 Alors que le vieil homme portait son ultime assaut, Wang Lin ouvrit les yeux et demanda simplement: « As-tu fini de frapper? »
 

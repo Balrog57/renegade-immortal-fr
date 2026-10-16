@@ -78,7 +78,7 @@ Les yeux de Wang Lin se rétrécirent et il l'observa attentivement sans dire un
 
 Après avoir fusionné avec la protection, une aura puissante émana du navire et la barrière devint encore plus robuste. Les grondements provenant de l'extérieur furent presque totalement étouffés, les sons atteignant leurs oreilles n'étant plus qu'un murmure imperceptible.
 
-« Puisque tu coopères avec ma sœur et moi, je ne te cacherai rien. À l'époque, deux des neuf soleils, le Grand Empereur Dao Yi et le Grand Empereur Xuan Luo des anciens pays, apparurent près de notre Secte aux Sept Taoïsmes. Leurs pouvoirs étaient divins; ils se disputaient un fragment de stockage qui s'était échappé du Domaine Divin Immemorial.
+« Puisque tu coopères avec ma sœur et moi, je ne te cacherai rien. À l'époque, deux des neuf soleils, le Grand Empyréen Dao Yi et le Grand Empyréen Xuan Luo des anciens pays, apparurent près de notre Secte aux Sept Taoïsmes. Leurs pouvoirs étaient divins; ils se disputaient un fragment de stockage qui s'était échappé du Domaine Divin Immémorial.
 
 « Normalement, Sept-Couleurs et moi ne pouvions pas intervenir dans cette affaire ni en tirer profit, mais finalement, la fortune nous a souri... Même encore aujourd'hui, je ne comprends toujours pas comment Dao Yi ou Xuan Luo n'ont pas remarqué qu'une pièce manquait, même si le fragment de stockage était brisé.
 
@@ -86,9 +86,9 @@ Après avoir fusionné avec la protection, une aura puissante émana du navire e
 
 « Cependant, durant le voyage de retour, il m'a poignardée dans le dos. Prise au dépourvu, j'ai vu ma culture entière aspirée pour servir à supprimer le fragment. Il a ensuite tenté de détruire mon âme, voulant m'éliminer par peur que la nouvelle ne se répande.
 
-« Il avait également besoin de ma culture pour ouvrir le fragment. Après tout, ce fragment provenant du Domaine Divin Immemorial était extrêmement difficile à déverrouiller.
+« Il avait également besoin de ma culture pour ouvrir le fragment. Après tout, ce fragment provenant du Domaine Divin Immémorial était extrêmement difficile à déverrouiller.
 
-« Pourtant, je ne suis pas morte. Étant une disciple centrale de la Grande Secte des Âmes, une partie de mon âme était restée auprès de mon maître. Ce dernier utilisa le grand sortilège de réincarnation pour me permettre de renaître rapidement.
+« Pourtant, je ne suis pas morte. Étant une disciple centrale de la Secte de la Grande Âme, une partie de mon âme était restée auprès de mon maître. Ce dernier utilisa le grand sortilège de réincarnation pour me permettre de renaître rapidement.
 
 « Au sein de la Secte aux Sept Taoïsmes, certains m'écoutaient, en particulier ma petite sœur. J'ai utilisé le sortilège de mon maître pour tout lui révéler, et c'est ainsi que la guerre éclata! » La femme relata lentement les événements passés.
 
@@ -98,13 +98,13 @@ Après avoir fusionné avec la protection, une aura puissante émana du navire e
 
 L'expression de Wang Lin resta imperturbable et il ne montra aucune fluctuation émotionnelle. Il avait déjà spéculé sur la majeure partie de ces faits, et même maintenant, il ne croyait qu'une partie de ses paroles. Plusieurs éléments restaient flous et, bien que son récit semblât complet, certaines incohérences subsistaient.
 
-Après avoir médité en silence un instant, Wang Lin demanda lentement: « Quel genre d'endroit est le Domaine Divin Immemorial? »
+Après avoir médité en silence un instant, Wang Lin demanda lentement: « Quel genre d'endroit est le Domaine Divin Immémorial? »
 
-« Une légende sur le Continent Astral Immortel raconte que le Domaine Divin Immemorial s'ouvrira neuf fois. À chaque ouverture, celui qui s'emparera de la fortune ultime deviendra un Grand Empereur... Jusqu'à présent, il s'est ouvert neuf fois, et il y a effectivement neuf soleils.
+« Une légende sur le Continent Astral Immortel raconte que le Domaine Divin Immémorial s'ouvrira neuf fois. À chaque ouverture, celui qui s'emparera de la fortune ultime deviendra un Grand Empyréen... Jusqu'à présent, il s'est ouvert neuf fois, et il y a effectivement neuf soleils.
 
 « Peut-être que le dixième soleil apparaîtra lors de la dixième ouverture...
 
-« Quant à la nature exacte du Domaine Divin Immemorial, je l'ignore également. »
+« Quant à la nature exacte du Domaine Divin Immémorial, je l'ignore également. »
 
 « Vous avez dit que ce Sept-Couleurs est différent du Sept-Couleurs passé. J'ai besoin d'une réponse. » Les yeux de Wang Lin brillèrent alors qu'il fixait la silhouette floue qui martelait les protections du navire.
 

@@ -58,7 +58,7 @@ Wang Lin eut le sentiment d'avoir découvert un secret capable de faire trembler
 
 Les pupilles de Wang Lin se rétractèrent et il leva soudain la tête. Son regard perça les murs de la salle pour embrasser le monde, d'un air extrêmement sombre.
 
-« Se pourrait-il que le Système Stellaire Antique soit une existence mystérieuse dotée d'une culture inimaginable, et qu'il ait créé ce lieu comme une prison? Par exemple, lors de mon combat contre le Daoïste Eau, il y avait un monde qu'il avait créé contenant deux milliards de disciples. Il y avait aussi des planètes de culture, et pour ces disciples, le Daoïste Eau était Dieu! »
+« Se pourrait-il que le Système Stellaire Antique soit une existence mystérieuse dotée d'une culture inimaginable, et qu'il ait créé ce lieu comme une prison? Par exemple, lors de mon combat contre le Shui Daozi, il y avait un monde qu'il avait créé contenant deux milliards de disciples. Il y avait aussi des planètes de culture, et pour ces disciples, le Shui Daozi était Dieu! »
 
 Plus il spéculait, plus son cœur se glaçait. Mais son regard ne parvenait pas à percer les cieux ni le brouillard entourant la vérité.
 
@@ -82,7 +82,7 @@ Dès qu'il entra, avant même de voir Wang Lin, Grand Rouge s'exclama avec entho
 
 Tout plein d'entrain, il prit une grande inspiration et dit avec excitation: « Ce petit n'a pas vu l'Aîné depuis plusieurs semaines. Maintenant que je suis devant vous, je me sens immédiatement revigoré! Le simple fait de respirer l'air que l'Aîné cultive me donne l'impression que mon niveau de culture a augmenté! Je regrette seulement de ne pas pouvoir suivre l'Aîné en permanence. Cependant, servir les ordres de l'Aîné est un immense honneur pour Grand Rouge. J'aimerais pouvoir me diviser en de nombreux avatars pour rassembler des choses plus rapidement! »
 
-L'expression de Wang Lin resta neutre tandis qu'il observait Grand Rouge. D'un geste de la main, il rangea tout ce qui serviraient à l'échange des cristaux.
+L'expression de Wang Lin resta neutre tandis qu'il observait Grand Rouge. D'un geste de la main, il rangea tout ce qui servirait à l'échange des cristaux.
 
 « Pas mal. Voici une récompense pour toi. » Wang Lin fit un mouvement du doigt et une pilule atterrit dans la main de Grand Rouge.
 

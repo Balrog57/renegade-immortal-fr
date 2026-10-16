@@ -8,7 +8,7 @@ slug: incapable-dencaisser-un-seul-coup
 ---
 Wang Lin utilisait son Dao du Vrai et du Faux pour créer une illusion de rétribution divine. Les innombrables silhouettes au sein de la brume laissaient échapper des rugissements de lutte, toutes dirigées vers la faille surplombant Wang Lin.
 
-Un grondement tonnerre résonna à travers tout le Vide Brillant. La faille, frappée par la rétribution divine de Wang Lin, trembla violemment. Les cheveux blancs de Wang Lin flottaient alors qu'il fixait froidement la brèche et s'avançait calmement vers elle.
+Un grondement de tonnerre résonna à travers tout le Vide Brillant. La faille, frappée par la rétribution divine de Wang Lin, trembla violemment. Les cheveux blancs de Wang Lin flottaient alors qu'il fixait froidement la brèche et s'avançait calmement vers elle.
 
 Son pas n'était pas rapide, mais chaque enjambée provoquait un fracas tonitruant qui intensifiait les grondements provenant de la faille.
 
@@ -42,7 +42,7 @@ Après ces centaines de poils, les restants des 3 000 suivirent, se transformant
 
 Tout cela se produisit en un instant. Les 3 000 poils s'étaient transformés en 3 000 sorts différents que Wang Lin avait croisés au cours de sa vie.
 
-Il y avait aussi les sorts de Qing Lin, du Daoïste Water et du Maître Lu Fu. On y trouvait même les sorts des Cinq Maîtres du Système Stellaire Antique, les Vermillon Birds de la première et de la deuxième génération, et bien d'autres encore!
+Il y avait aussi les sorts de Qing Lin, du Shui Daozi et du Maître Lu Fu. On y trouvait même les sorts des Cinq Maîtres du Système Stellaire Antique, les Oiseaux Vermillon de la première et de la deuxième génération, et bien d'autres encore!
 
 3 000 poils, 3 000 Grands Daos, 3 000 sorts! La majorité des sortilèges gravés dans la mémoire de Wang Lin apparaissaient devant lui.
 
@@ -60,7 +60,7 @@ Cette énergie céleste n'était pas l'énergie spirituelle céleste des Royaume
 
 Des éclats de lumière dorée et douce jaillirent des 3 000 sorts alors qu'ils convergeaient vers Wang Lin pour s'abattre sur lui.
 
-Un grondement tonnerre retentit, faisant trembler les cieux. La silhouette de Wang Lin fut engloutie par la lumière dorée, le rendant totalement invisible.
+Un grondement de tonnerre retentit, faisant trembler les cieux. La silhouette de Wang Lin fut engloutie par la lumière dorée, le rendant totalement invisible.
 
 Au même moment, un autre objet sortit de la faille: une pagode à neuf étages. La pagode était d'or et dégageait une pression infinie. Elle prit de l'ampleur dès sa sortie. En un clin d'œil, elle mesurait des centaines de milliers de pieds de haut. Rayonnante d'une lumière dorée, elle fonça vers Wang Lin.
 
@@ -78,15 +78,15 @@ La pagode dorée à neuf étages percuta immédiatement la zone où se trouvaien
 
 La seule chose qui subsistait au milieu des nuages était la pagode dorée à neuf étages, qui semblait exister depuis l'Antiquité.
 
-Le Maître des Nuages du Sud et ses compagnons, restés à l'extérieur de la couverture nuageuse, tremblaient face à ce silence. Tandis qu'il fixait les nuages, le Maître des Nuages du Sud devint anxieux.
+Maître Nan Yunzi et ses compagnons, restés à l'extérieur de la couverture nuageuse, tremblaient face à ce silence. Tandis qu'il fixait les nuages, Maître Nan Yunzi devint anxieux.
 
-Situ Nan méditait en silence, pressentant qu'un malheur allait se produire. Sans dire un mot, il s'apprêtait à charger dans les nuages. Cependant, au moment où il fit un mouvement, le Maître des Nuages du Sud leva la main pour l'arrêter.
+Situ Nan méditait en silence, pressentant qu'un malheur allait se produire. Sans dire un mot, il s'apprêtait à charger dans les nuages. Cependant, au moment où il fit un mouvement, Maître Nan Yunzi leva la main pour l'arrêter.
 
 « Maître des Nuages du Sud! Vous ne m'en empêcherez pas!!! » Situ Nan se retourna brusquement, les yeux injectés de folie. Il fixa son maître alors qu'il parlait, ses paroles chargées d'une intention meurtrière monstrueuse.
 
-Il savait qu'il n'était pas de taille face au Maître des Nuages du Sud, mais à cet instant, il sentait que Wang Lin était en danger. Vu le tempérament de Situ Nan, même si son maître, Qing Lin, avait été présent, il aurait attaqué sans hésiter.
+Il savait qu'il n'était pas de taille face à Maître Nan Yunzi, mais à cet instant, il sentait que Wang Lin était en danger. Vu le tempérament de Situ Nan, même si son maître, Qing Lin, avait été présent, il aurait attaqué sans hésiter.
 
-Le Maître des Nuages du Sud ne prêta aucune attention aux paroles de Situ Nan. Il réfléchit un instant, puis parla d'un ton grave:
+Maître Nan Yunzi ne prêta aucune attention aux paroles de Situ Nan. Il réfléchit un instant, puis parla d'un ton grave:
 
 « Le Seigneur du Royaume Scellé subit une rétribution divine, nous ne devons pas interférer... Si vous forcez le passage, non seulement vous ne l'aiderez pas, mais vous le distragerez également. »
 
@@ -94,7 +94,7 @@ Le regard de Situ Nan se posa sur les nuages et il serra les poings. Après un c
 
 « J'attendrai la durée d'un demi-encens. Si après cela, le silence persiste, je devrai y aller! »
 
-Le Maître des Nuages du Sud ne répondit rien. Il contemplait les nuages, l'anxiété grandissant en lui.
+Maître Nan Yunzi ne répondit rien. Il contemplait les nuages, l'anxiété grandissant en lui.
 
 De l'autre côté, le Vieux Fantôme Zhan était de plus en plus exalté. Ses yeux brillaient tandis qu'il se léchait les lèvres en murmurant:
 

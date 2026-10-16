@@ -6,9 +6,9 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1998 - Leave Behind Dao Fei!"
 slug: laisse-dao-fei-derriere-toi
 ---
-Le Grand Soleil Suprême était un mélange de noir et de blanc. Il émettait une lumière étrange qui illuminait le monde et enveloppait le vide derrière Wang Lin!
+Le soleil du Grand Empyréen était un mélange de noir et de blanc. Il émettait une lumière étrange qui illuminait le monde et enveloppait le vide derrière Wang Lin!
 
-C'était là la puissance la plus absolue de Wang Lin. Dès que le Grand Soleil Suprême apparut, Wang Lin fit un pas en avant et se précipita vers Dao Yi, pétrifié par la surprise!
+C'était là la puissance la plus absolue de Wang Lin. Dès que le soleil du Grand Empyréen apparut, Wang Lin fit un pas en avant et se précipita vers Dao Yi, pétrifié par la surprise!
 
 Le regard de Jiu Di devint grave et ses pupilles se rétractèrent alors qu'il chargeait pour intercepter Wang Lin. Il ne pouvait laisser Dao Yi succomber à la malédiction ancestrale. Il ne voulait pas que le clan Céleste sombre dans un état misérable où l'équilibre avec le clan Antique serait rompu!
 
@@ -22,7 +22,7 @@ Les deux adversaires se rapprochaient de plus en plus!
 
 L'expression de Wang Lin demeurait calme. Alors que le loup blanc fondait sur lui, le soleil noir et blanc émit un éclat éblouissant. Il se rétracta rapidement pour pénétrer dans le corps de Wang Lin.
 
-Cela permit au corps de Wang Lin d'incorporer toute la puissance du contour du Grand Soleil Suprême. Il pivota son corps et décocha un coup de pied au loup!
+Cela permit au corps de Wang Lin d'incorporer toute la puissance du contour du soleil du Grand Empyréen. Il pivota son corps et décocha un coup de pied au loup!
 
 À cet instant, un seul coup de poing ou un seul coup de pied contenait la puissance du monde et pouvait déclencher n'importe quel sortilège. Sous l'impact de ce coup, le vide trembla!
 
@@ -30,15 +30,15 @@ De loin, il ne s'agissait plus d'une collision entre un loup blanc et le coup de
 
 Des grondements tonitruants résonnèrent dans toutes les directions. Tandis que le tonnerre éclatait, le soleil blanc de Jiu Di vacilla. Le loup blanc hurla alors que son corps immense s'effondrait sous l'impact; il ne resta que la tête, projetée en arrière.
 
-Le visage de Jiu Di était pâle et ses yeux débordaient de choc. Il subissait les effets de la malédiction ancestrale et devait donc diviser sa puissance pour la contenir; de plus, il venait de combattre Gémeaux, ce qui le plaçait dans son état le plus vulnérable. Pourtant, il demeurait un Grand Suprême, et même l'un des plus puissants parmi eux!
+Le visage de Jiu Di était pâle et ses yeux débordaient de choc. Il subissait les effets de la malédiction ancestrale et devait donc diviser sa puissance pour la contenir; de plus, il venait de combattre Gémeaux, ce qui le plaçait dans son état le plus vulnérable. Pourtant, il demeurait un Grand Empyréen, et même l'un des plus puissants parmi eux!
 
-Et bien que l'adversaire n'ait condensé que le contour d'un Grand Soleil Suprême, ce n'était qu'une esquisse. C'était comme une graine n'ayant pas encore fleuri ni porté de fruit.
+Et bien que l'adversaire n'ait condensé que le contour d'un soleil du Grand Empyréen, ce n'était qu'une esquisse. C'était comme une graine n'ayant pas encore fleuri ni porté de fruit.
 
 Pourtant, avec seulement ce contour, Wang Lin avait réussi à le repousser tout en déployant la pleine puissance de ses capacités actuelles!
 
-Cela défiait toute logique. La seule explication était que le Grand Soleil Suprême condensé par Wang Lin n'était absolument pas ordinaire!
+Cela défiait toute logique. La seule explication était que le soleil du Grand Empyréen condensé par Wang Lin n'était absolument pas ordinaire!
 
-« Ce n'est certainement pas un Grand Soleil Suprême ordinaire! » Jiu Di se précipita à nouveau. Lorsque les deux soleils suprêmes entrèrent en collision, Wang Lin fut repoussé et du sang jaillit du coin de sa bouche. Son corps trembla tandis qu'il s'élançait vers le ciel!
+« Ce n'est certainement pas un soleil du Grand Empyréen ordinaire! » Jiu Di se précipita à nouveau. Lorsque les deux soleils du Grand Empyréen entrèrent en collision, Wang Lin fut repoussé et du sang jaillit du coin de sa bouche. Son corps trembla tandis qu'il s'élançait vers le ciel!
 
 L'action précipitée de Jiu Di ne suffit pas à stopper Wang Lin. En un éclair, il fendit les airs vers Dao Yi, dont le corps était recouvert d'une épaisse brume noire et qui commençait à pourrir.
 
@@ -78,7 +78,7 @@ Un éclat imperceptible traversa les yeux de Wang Lin lorsqu'il déclara: « Je 
 
 Jiu Di fronça les sourcils.
 
-« Dao Yi, donne-moi ce crâne et tu pourras partir. » L'expression de Wang Lin restait sereine, gardant l'initiative. Il n'avait jamais eu l'intention de tuer Dao Yi. Après tout, s'il avait pu reprendre le contrôle, c'était parce que tous les Grands Suprêmes étaient affaiblis par la malédiction, et non par une supériorité absolue de sa propre puissance.
+« Dao Yi, donne-moi ce crâne et tu pourras partir. » L'expression de Wang Lin restait sereine, gardant l'initiative. Il n'avait jamais eu l'intention de tuer Dao Yi. Après tout, s'il avait pu reprendre le contrôle, c'était parce que tous les Grands Empyréens étaient affaiblis par la malédiction, et non par une supériorité absolue de sa propre puissance.
 
 Dao Yi fixa Wang Lin comme s'il cherchait à graver son visage dans sa mémoire.
 
@@ -94,21 +94,21 @@ Une sensation familière envahit le cœur de Wang Lin. Il agita la main droite e
 
 Après avoir récupéré l'objet, Wang Lin recula pour se placer près de la tête de l'Ancêtre Céleste. L'homme fou était toujours inconscient sur cette tête monumentale.
 
-« Wang Lin, le clan Dao Wang et moi avons élaboré ce plan, pourtant c'est toi qui en tires le plus grand profit. Ce vieil homme s'en souviendra. Quitte cet endroit, et tu ferais mieux de devenir un Grand Suprême au plus vite. Sinon, une fois que je me serai débarrassé de la malédiction, tu devras me rendre des comptes! » dit Jiu Di en fixant Wang Lin.
+« Wang Lin, le clan Dao Wang et moi avons élaboré ce plan, pourtant c'est toi qui en tires le plus grand profit. Ce vieil homme s'en souviendra. Quitte cet endroit, et tu ferais mieux de devenir un Grand Empyréen au plus vite. Sinon, une fois que je me serai débarrassé de la malédiction, tu devras me rendre des comptes! » dit Jiu Di en fixant Wang Lin.
 
 « Et toi, Gémeaux. Si Dao Yi ne se rétablit pas et que nous entrons en guerre contre le clan Antique, alors tu n'auras qu'à regarder le sang de mon clan Céleste couler. Ta Secte du Yang Pourpre ne s'en sortira pas seule! »
 
-« Ce vieil homme avait initialement un plan parfait. J'allais laisser tous les Grands Suprêmes se partager les reliques de l'Ancêtre Céleste afin que nous devenions plus forts, pour qu'il n'y ait plus jamais d'Empereur Céleste! »
+« Ce vieil homme avait initialement un plan parfait. J'allais laisser tous les Grands Empyréens se partager les reliques de l'Ancêtre Céleste afin que nous devenions plus forts, pour qu'il n'y ait plus jamais d'Empereur Céleste! »
 
 « Mais à cause de toi, tout a changé. Tu devras en assumer les conséquences! » ricana Jiu Di.
 
 Gémeaux resta silencieuse, mais une lueur de confusion et de trouble passa dans ses yeux.
 
-Wang Lin s'excusa intérieurement. Il regarda le Grand Suprême Gémeaux et prit une décision ferme!
+Wang Lin s'excusa intérieurement. Il regarda le Grand Empyréen Gémeaux et prit une décision ferme!
 
-« Je dois énormément au Grand Suprême Gémeaux... Je ne peux qu'essayer d'empêcher la guerre entre le clan Antique et le clan Céleste, afin qu'elle ne regrette pas sa décision d'aujourd'hui. »
+« Je dois énormément au Grand Empyréen Gémeaux... Je ne peux qu'essayer d'empêcher la guerre entre le clan Antique et le clan Céleste, afin qu'elle ne regrette pas sa décision d'aujourd'hui. »
 
-Le Grand Suprême Gémeaux réfléchit un instant, puis dit froidement: « Puisque j'ai décidé d'agir, nul besoin d'en dire davantage! »
+Le Grand Empyréen Gémeaux réfléchit un instant, puis dit froidement: « Puisque j'ai décidé d'agir, nul besoin d'en dire davantage! »
 
 « Bien, bien! » Jiu Di éclata de rire, avant que son regard ne redevienne glacial en fixant Wang Lin.
 

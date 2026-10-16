@@ -22,7 +22,7 @@ Ils contemplèrent la lumière violette et démoniaque émanant du Sang d'Âme a
 
 « Qui traverse ainsi la première calamité de la troisième épreuve? Je n'ai jamais entendu parler de Sang d'Âme durant cette calamité. Cette affaire... c'est absolument incroyable! Ce sera sans aucun doute un événement historique pour notre pays ancestral! »
 
-« La troisième épreuve comporte trois calamités, la première étant le Sang Céleste de la Race Ancestrale. Il a obtenu neuf gouttes de sang suivies d'une goutte de Sang d'Âme, et ce n'est que la première étape. S'il atteint la deuxième calamité, les Trois Distractions du Dao Ancestral... quelle fortune obtiendra-t-il alors? »
+« La troisième épreuve comporte trois calamités, la première étant le Sang Céleste de la Race Ancienne. Il a obtenu neuf gouttes de sang suivies d'une goutte de Sang d'Âme, et ce n'est que la première étape. S'il atteint la deuxième calamité, les Trois Distractions du Dao Ancestral... quelle fortune obtiendra-t-il alors? »
 
 « Et il y a aussi la dernière calamité, la Bénédiction de l'Ancêtre Ancestral. S'il a obtenu une telle reconnaissance de l'Ancêtre, je ne peux imaginer ce qu'il recevra ensuite... Peut-être l'héritage légendaire de l'Ancêtre Ancestral que nul n'a jamais obtenu? »
 
@@ -118,6 +118,6 @@ L'âme de la femme à l'intérieur de la perle rouge restait immobile. Sa silhou
 
 À cet instant, un vent souffla sur l'homme en robe royale. La perle sembla également réagir au souffle, et la brume entourant la femme s'agita violemment. Juste au moment où sa silhouette allait être révélée, elle fut brusquement dissimulée par les doigts de la main qui serrait la perle.
 
-Dans le monde des grottes, au sein de la faille de la Mer Nuageuse, le vortex géant surplombant l'autel gronda. La lumière sanguine baigna le corps de Wang Lin, lui donnant l'apparence d'un être fait de sang pur.
+Dans le monde des grottes, au sein de la faille de la Mer des Nuages, le vortex géant surplombant l'autel gronda. La lumière sanguine baigna le corps de Wang Lin, lui donnant l'apparence d'un être fait de sang pur.
 
 Ses yeux se plissèrent tandis qu'il fixait les profondeurs du vortex. Finalement, il vit quelques gouttes de sang s'en échapper et voler vers lui!

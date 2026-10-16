@@ -8,7 +8,7 @@ slug: un-vin-corse
 ---
 Heureusement, ils étaient tous deux de ce genre de personnes.
 
-La neuvième épine était nichée dans sa colonne vertébrale; elle y était totalement enfouie, sans qu'un seul millimètre ne dépasse. Il n’y avait même pas de blessure apparente, comme si elle se tapissait dans un vide à l’intérieur de son corps.
+La neuvième épine était nichée dans sa colonne vertébrale; elle y était totalement enfouie, sans qu'un seul pouce ne dépasse. Il n’y avait même pas de blessure apparente, comme si elle se tapissait dans un vide à l’intérieur de son corps.
 
 Le visage d'inconscience de Qing Shui restait tordu par la douleur, mais une nuance de soulagement et de joie perçait ses traits. Son soulagement était dû à Wang Lin, tout comme sa joie.
 
@@ -22,7 +22,7 @@ Après un long moment, l'expression de Wang Lin devint grave. Il leva la main dr
 
 Le corps de Qing Shui trembla et ses yeux s'ouvrirent. Il serra les dents pour empêcher un cri de douleur de franchir ses lèvres.
 
-Wang Lin murmura doucement: « Frère aîné, la douleur de cette neuvième épine sera plus intense que celle des huit précédentes réunies... »
+Wang Lin murmura doucement: « Senior Frère, la douleur de cette neuvième épine sera plus intense que celle des huit précédentes réunies... »
 
 « J'ai souffert toute ma vie, je m'y suis habitué », répondit Qing Shui d'une voix rauque, mais d'un calme absolu.
 
@@ -46,7 +46,7 @@ L'épine extraite était d'un noir absolu, et chaque goutte de sang noir qui tom
 
 « Tire le reste d'un coup! » La voix calme de Qing Shui, arrachée entre ses dents serrées, parvint aux oreilles de Wang Lin.
 
-Wang Lin réfléchit un instant. L'instant d'après, sa main droite retira impitoyablement l'épine de la colonne vertébrale de Qing Shui. Le sang noir jaillit et Qing Shui cracha une gorgée de sang sombre. Son dos se bombba avant de reprendre lentement sa forme normale.
+Wang Lin réfléchit un instant. L'instant d'après, sa main droite retira impitoyablement l'épine de la colonne vertébrale de Qing Shui. Le sang noir jaillit et Qing Shui cracha une gorgée de sang sombre. Son dos se bomba avant de reprendre lentement sa forme normale.
 
 Une respiration saccadée s'échappa des lèvres de Qing Shui, et il fallut un long moment pour qu'il retrouve son calme. Ses mains formèrent un sceau et il commença à cultiver.
 
@@ -54,7 +54,7 @@ Le visage de Wang Lin était pâle; après avoir rejeté l'épine, il ferma éga
 
 Après une demi-heure, Wang Lin ouvrit les yeux.
 
-Il dit doucement: « Frère aîné, la dernière... »
+Il dit doucement: « Senior Frère, la dernière... »
 
 Qing Shui expira lentement et se retourna vers lui. Il observa silencieusement son jeune frère du passé. En voyant cet air épuisé et ces traces de sang séché, une lueur de tendresse apparut dans ses yeux.
 

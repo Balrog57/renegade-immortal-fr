@@ -74,7 +74,7 @@ De plus, des gouttes de liquide noir s'égouttaient des squelettes dans la lave,
 
 Au moment où le rayon de lumière rouge représentant Wang Lin pénétra dans la cavité, tous les jades s'effondrèrent brusquement, libérant leur immense intention daoïste dans le magma. Simultanément, les squelettes se désintégrèrent en une masse de liquide noir qui fusionna avec la lave.
 
-En un instant, des bulles encore plus nombreuses jaillirent à la surface. Le magma se mit à tourbillonner et les runes subalternes fondirent, créant une force d'aspiration inimaginable. Dès que Wang Lin entra, il fut commencé à être dévoré.
+En un instant, des bulles encore plus nombreuses jaillirent à la surface. Le magma se mit à tourbillonner et les runes subalternes fondirent, créant une force d'aspiration inimaginable. Dès que Wang Lin entra, il commença à être dévoré.
 
 Le magma tournait de plus en plus vite. En un instant, il sembla percer la grotte pour créer un passage vers un espace connecté!
 
@@ -120,4 +120,4 @@ Au total, 98 ans passèrent...
 
 « Tu m'as autrefois demandé si le feu brûlerait mon doigt. Maintenant, je peux te répondre... Non... » Une voix antique résonna dans le système stellaire...
 
-« Un fruit est sur le point de se former à partir de l'une des Fleurs aux Sept Couleurs... Les six autres ne sont pas loin non plus... Ce vieil homme avait été convaincu par le Souverain, en ce temps-là, de ne pas affronter le royaume de la Tribulation du Vide et d'interrompre sa culture. J'ai choisi de ne pas chercher à savoir si la quatrième étape du piétinement du ciel existait réellement, préférant devenir volontairement le gardien de cette plante rouge, dans l'espoir que son plan céleste aboutisse... Il semble que ce jour soit proche... »
+« Un fruit est sur le point de se former à partir de l'une des Fleurs aux Sept Couleurs... Les six autres ne sont pas loin non plus... Ce vieil homme avait été convaincu par le Souverain, en ce temps-là, de ne pas affronter le royaume du Tribulant du Vide et d'interrompre sa culture. J'ai choisi de ne pas chercher à savoir si la quatrième étape du piétinement du ciel existait réellement, préférant devenir volontairement le gardien de cette plante rouge, dans l'espoir que son plan céleste aboutisse... Il semble que ce jour soit proche... »

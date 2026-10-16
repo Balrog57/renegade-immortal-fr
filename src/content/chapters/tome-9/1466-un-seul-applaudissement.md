@@ -18,7 +18,7 @@ Ce vortex était extrêmement puissant; plus on s'enfonçait, plus la progressio
 
 En raison de l'aura du démon ancien qui rageait ici, tous les sorts utilisés étaient affectés. Cependant, ces deux êtres étaient d'une puissance telle qu'ils franchirent instantanément 7 000 pieds, se rapprochant sans cesse de Wang Lin.
 
-Wang Lin les fixa du regard. Lorsqu'ils ne furent plus qu'à 1 000 pieds de lui, il agita la main droite. Le flacon du démon ancien apparut, et une immense quantité d'âmes de démons anciens s'en déversa!
+Wang Lin les fixa du regard. Lorsqu'ils ne furent plus qu'à 1 000 pieds de lui, il agita la main droite. Le flacon du diable ancien apparut, et une immense quantité d'âmes de diables anciens s'en déversa!
 
 Simultanément, les étoiles du Dieu Ancien de Wang Lin tournèrent rapidement, libérant une masse colossale de puissance de Dieu Ancien qui forma un vortex. L'aura du démon ancien étant déjà omniprésente, les trois forces fusionnèrent instantanément.
 
@@ -92,7 +92,7 @@ La femme en blanc fut la première à battre en retraite, s'éloignant dans la t
 
 Grande Désolation ne fut pas aussi chanceux. Étant le dernier arrivé et le plus proche de l'un des bras, il ne put absolument rien esquiver avant que l'impact ne le percute. Son corps fut réduit en bouillie. Même l'avatar du Maître Dao Miao Yin, un corps de cultivateur de la troisième étape, ne put survivre à un tel coup!
 
-Grande Désolation poussa un cri déchirant et son âme hurla. Il tenta de s'échapper, mais le souffle de l'impact extingnit purement et simplement son âme.
+Grande Désolation poussa un cri déchirant et son âme hurla. Il tenta de s'échapper, mais le souffle de l'impact éteignit purement et simplement son âme.
 
 Tout cela se produisit en un éclair.
 
@@ -102,7 +102,7 @@ Le visage du Maître Démon Neuf Cieux devint instantanément livide. Son appare
 
 Des grondements tonitruants éclatèrent et il cracha du sang. Son visage changea rapidement, passant de vieillard à homme d'âge moyen. Il recracha une autre gorgée de sang et son apparence passa d'homme d'âge moyen à jeune homme!
 
-À ce moment précis, les innombrables avatars du Maître Démon Ne neuf Cieux périrent tous. Leur sacrifice lui offrit une chance de survie.
+À ce moment précis, les innombrables avatars du Maître Démon Neuf Cieux périrent tous. Leur sacrifice lui offrit une chance de survie.
 
 Le Maître Démon Neuf Cieux, redevenu un jeune homme, disparut pour laisser le bras passer. Il réapparut ensuite, du sang coulant au coin de sa bouche, et recula précipitamment, les yeux emplis d'horreur.
 

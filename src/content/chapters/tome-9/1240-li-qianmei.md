@@ -20,13 +20,13 @@ Un éclair de froideur passa dans les yeux de Lu Yuncong. Il pouvait naturelleme
 
 « S'il vient, tu le découvriras! » La voix de Lu Yuncong était glaciale. Outre la compétition, la raison principale de sa venue à la Secte Éternelle était de revoir Wang Lin.
 
-Par conséquent, il accordait une attention particulière à la Secte Originelle.
+Par conséquent, il accordait une attention particulière à la Secte de l'Origine.
 
 Cependant, alors que Lu Yuncong parlait, une voix étrange, semblant sourdre du fond des dents de quelqu'un, enveloppa la zone.
 
 « Je suis également impatient de découvrir cet homme nommé Liu dont tu parles, Lu Yuncong. »
 
-À l'instant même où cette voix apparut, l'expression de Lu Yuncong changea. Non seulement la sienne, mais aussi celle de tous les membres de la Secte Originelle, y compris celle de Lu Yanfei.
+À l'instant même où cette voix apparut, l'expression de Lu Yuncong changea. Non seulement la sienne, mais aussi celle de tous les membres de la Secte de l'Origine, y compris celle de Lu Yanfei.
 
 Cette voix semblait faible, mais dès son apparition, elle affecta les âmes originelles de chacun, provoquant de violentes fluctuations.
 
@@ -38,9 +38,9 @@ L'espace derrière Liu Yingjie se tordit dans un écho d'ondulations tandis qu'u
 
 L'expression de Lu Yuncong changea et, après un long moment, il dit: « Salutations, Senior Zhao de la Secte de la Recherche Montagnarde de rang 7. » Les paroles de Lu Yuncong servaient d'avertissement à Lu Yanfei et aux autres en révélant l'identité de cet homme.
 
-Le visage de Lu Yanfei afficha un instant d'amertume alors qu'elle, ainsi que les autres cultivateurs de la Secte Originelle, saluaient respectueusement cet individu.
+Le visage de Lu Yanfei afficha un instant d'amertume alors qu'elle, ainsi que les autres cultivateurs de la Secte de l'Origine, saluaient respectueusement cet individu.
 
-L'apparition de cet homme refroidit immédiatement l'atmosphère. Certains spectateurs reculèrent sur-le-champ, tandis que d'autres quittèrent purement et simplement les lieux. Ce qui n'était au départ qu'une affaire concernant la Secte Originelle venait de se transformer en un affrontement entre la Secte du Dao Violet, la Secte de la Musique Céleste et la Secte de la Recherche Montagnarde.
+L'apparition de cet homme refroidit immédiatement l'atmosphère. Certains spectateurs reculèrent sur-le-champ, tandis que d'autres quittèrent purement et simplement les lieux. Ce qui n'était au départ qu'une affaire concernant la Secte de l'Origine venait de se transformer en un affrontement entre la Secte du Dao Violet, la Secte de la Musique Céleste et la Secte de la Recherche Montagnarde.
 
 Le point central de leur confrontation semblait être l'énigmatique Liu mentionné par Lu Yuncong.
 
@@ -54,7 +54,7 @@ L'homme d'âge moyen nommé Zhao regarda Lu Yuncong et dit d'un ton sombre: « S
 
 L'expression de Lu Yuncong resta sombre et il garda le silence un long moment. Bien que la Secte de la Recherche Montagnarde ne fût pas la plus puissante des sectes de rang 7, Senior Zhao était un Ancien extérieur ayant de bonnes relations avec la Secte de l'Âme Silencieuse. S'il s'en mêlait, il pourrait faire grand bruit autour de cette affaire.
 
-Lu Yanfei se mordit la lèvre inférieure en voyant que Lu Yuncong se trouvait dans une position embarrassante. Un instant plus tard, elle dit doucement: « Cette affaire n'a rien à voir avec le Compagnon Cultivateur Lu. C'est un différend qui concerne notre Secte Originelle. Si... »
+Lu Yanfei se mordit la lèvre inférieure en voyant que Lu Yuncong se trouvait dans une position embarrassante. Un instant plus tard, elle dit doucement: « Cette affaire n'a rien à voir avec le Compagnon Cultivateur Lu. C'est un différend qui concerne notre Secte de l'Origine. Si... »
 
 Avant que Lu Yanfei ne puisse achever sa phrase, les yeux de l'homme d'âge moyen nommé Zhao devinrent glacials et se fixèrent sur elle. Ce regard était tel une paire d'épées s'élançant pour percuter ses propres yeux.
 
@@ -62,7 +62,7 @@ Lu Yanfei sentit son corps trembler et un rugissement résonna dans son âme ori
 
 « Une gamine comme toi n'est pas qualifiée pour prendre la parole ici! »
 
-Un silence immédiat tomba sur les environs. Les membres de la Secte Originelle étaient furieux, mais aucun n'osait dire un mot. Ils ne purent que ravaler cette humiliation, laissant l'amertume envahir leurs corps.
+Un silence immédiat tomba sur les environs. Les membres de la Secte de l'Origine étaient furieux, mais aucun n'osait dire un mot. Ils ne purent que ravaler cette humiliation, laissant l'amertume envahir leurs corps.
 
 Après une longue réflexion, Lu Yuncong regarda Zhao Long et dit: « Si le Frère Liu ne vient pas ou s'il ne peut pas tuer Liu Yingjie comme on écrase une fourmi, je donnerai naturellement des explications à Senior Zhao! »
 
@@ -104,16 +104,16 @@ Outre ce groupe, plus de dix rayons de lumière convergeaient depuis les confins
 
 « Je suppose que le Compagnon Cultivateur Li revient tout juste de la marée de bêtes. Je vous prie de me suivre vers un lieu préparé par la Secte Éternelle pour votre repos. J'imagine que le Maître de la Secte a également été informé de votre arrivée. C'est un grand honneur que vous ayez accepté de venir. » Feng Hai joignit les mains tandis que son rire résonnait.
 
-Bien qu'elle soit devenue le centre de toutes les attentions, Li Qianmei restait sereine. Elle ne déploya pas précipitamment son Sens Divin pour inspecter les lieux, mais observa d'abord l'assemblée avant de poser son regard sur Feng Hai. Elle dit doucement: « Le repos n'est pas une priorité. Compagnon Cultivateur Feng, la Secte Originelle de rang 5 est-elle présente à cette compétition? »
+Bien qu'elle soit devenue le centre de toutes les attentions, Li Qianmei restait sereine. Elle ne déploya pas précipitamment son Sens Divin pour inspecter les lieux, mais observa d'abord l'assemblée avant de poser son regard sur Feng Hai. Elle dit doucement: « Le repos n'est pas une priorité. Compagnon Cultivateur Feng, la Secte de l'Origine de rang 5 est-elle présente à cette compétition? »
 
-« La Secte Originelle? » Feng Hai fut surpris. Un disciple s'approcha immédiatement pour lui glisser un mot à l'oreille.
+« La Secte de l'Origine? » Feng Hai fut surpris. Un disciple s'approcha immédiatement pour lui glisser un mot à l'oreille.
 
-« La Secte Originelle est bel et bien là. » Après avoir entendu cela, Feng Hai sourit, mais un doute germa dans son esprit. La modeste Secte Originelle pouvait-elle avoir un lien avec Li Qianmei?
+« La Secte de l'Origine est bel et bien là. » Après avoir entendu cela, Feng Hai sourit, mais un doute germa dans son esprit. La modeste Secte de l'Origine pouvait-elle avoir un lien avec Li Qianmei?
 
 Li Qianmei réprima ses émotions avant de demander: « Où sont-ils? »
 
 Le doute de Feng Hai s'intensifia, mais il ne laissa rien paraître. Il regarda le jeune disciple qui l'avait informé et ce dernier répondit rapidement: « Sur la plateforme nord... à la lisière. »
 
-À peine ces mots prononcés, le Sens Divin de Li Qianmei se déploya pour envelopper toute la zone nord. Elle repéra instantanément les membres de la Secte Originelle. Comparé à l'immensité de la plateforme, cet endroit était véritablement insignifiant.
+À peine ces mots prononcés, le Sens Divin de Li Qianmei se déploya pour envelopper toute la zone nord. Elle repéra instantanément les membres de la Secte de l'Origine. Comparé à l'immensité de la plateforme, cet endroit était véritablement insignifiant.
 
-Cependant, dès que Li Qianmei eut localisé la Secte Originelle, elle s'élança vers eux tel un éclair!
+Cependant, dès que Li Qianmei eut localisé la Secte de l'Origine, elle s'élança vers eux tel un éclair!

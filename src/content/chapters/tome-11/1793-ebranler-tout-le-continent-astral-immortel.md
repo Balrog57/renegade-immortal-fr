@@ -36,7 +36,7 @@ La mer redevint calme, comme si rien ne s'était produit. Wang Lin se détourna 
 
 Wang Lin avait tué l'avatar du Maître Ciel Dieu Vide et blessé gravement son corps original. Depuis, ce dernier n'avait jamais réintégré le Royaume Intérieur, mettant ainsi fin à leurs différends.
 
-Cependant, laisser cet homme en vie poserait un problème majeur à l'avenir. Il ne voulait pas abandonner tous ces problèmes à Rêve Bleu et au Maître Sud Nuage. Il allait les résoudre lui-même!
+Cependant, laisser cet homme en vie poserait un problème majeur à l'avenir. Il ne voulait pas abandonner tous ces problèmes à Rêve Bleu et au Maître Nan Yunzi. Il allait les résoudre lui-même!
 
 Son regard balaya les étoiles et son corps disparut.
 
@@ -66,7 +66,7 @@ Cette chevelure d'un blanc immaculé était un cauchemar qui faisait trembler so
 
 Tout en parlant, il se leva et joignit les mains devant Wang Lin en signe de respect.
 
-Wang Lin se tenait sur un rocher à trois cents mètres du Maître Ciel Dieu Vide. Après une courte réflexion silencieuse, il prit la parole lentement.
+Wang Lin se tenait sur un rocher à mille pieds du Maître Ciel Dieu Vide. Après une courte réflexion silencieuse, il prit la parole lentement.
 
 « Tu n'es pas fait pour exister ici. Je me rends au Continent Astral Immortel. De nombreuses personnes ont décidé de s'y réincarner. Tu feras de même, afin que je puisse être tranquille. »
 

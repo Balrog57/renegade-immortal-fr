@@ -46,7 +46,7 @@ Wang Lin réfléchit en silence. Il regarda Qing Shui et dit respectueusement: �
 
 Cette déclaration déclencha immédiatement une onde de choc parmi la foule!
 
-« Grand frère de discipline? C'est... ce Xu Mu est le frère cadet de l'Aîné Qing Shui? »
+« Grand frère de discipline? C'est... ce Xu Mu est le frère cadet de l'Senior Qing Shui? »
 
 « Cette affaire est inconcevable. Je n'aurais jamais cru que Qing Shui et Xu Mu partageaient le même maître. La rumeur prétend que le maître du Seigneur Céleste Qing Shui était l'Empereur Céleste Bai Fan... Ce Xu Mu... est-il lui aussi un disciple de Bai Fan? »
 

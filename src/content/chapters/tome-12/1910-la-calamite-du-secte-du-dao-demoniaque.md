@@ -30,11 +30,11 @@ Au sein du brouillard, Wang Lin, enveloppé dans sa robe blanche, avançait lent
 
 Alors que les dix-huit ombres se rapprochaient, un regard glacial transparaissait sous la capuche de Wang Lin. Il leva sa main droite et fit un geste ample.
 
-Wang Lin déclara calmement: « Déchirure Céleste! »
+Wang Lin déclara calmement: « Déchirure du Ciel! »
 
 À l'instant même où ses mots résonnèrent, le ciel limpide au-dessus de la Secte du Dao Démoniaque libéra un grondement assourdissant.
 
-Tandis que le fracas persistait, une immense fissure apparut dans le ciel. Deux bras gigantesques déchirèrent la faille et s'en dégageèrent. Ces bras étaient colossaux, comme si plusieurs montagnes avaient fusionné pour les former. Une fois sortis de la déchirure, ils s'étendirent vers le brouillard entourant la Secte du Dao Démoniaque.
+Tandis que le fracas persistait, une immense fissure apparut dans le ciel. Deux bras gigantesques déchirèrent la faille et s'en dégagèrent. Ces bras étaient colossaux, comme si plusieurs montagnes avaient fusionné pour les former. Une fois sortis de la déchirure, ils s'étendirent vers le brouillard entourant la Secte du Dao Démoniaque.
 
 Le brouillard n'était pas solide à l'origine, mais sous la prise de ces deux bras géants, il sembla se densifier pour devenir une masse tangible, maintenue en place.
 
@@ -54,7 +54,7 @@ Les dizaines de cultivateurs du troisième stade qui avaient pénétré dans le 
 
 Le vieil homme à la robe dorée qui avait chargé dans le brouillard s'échappa également, dans un état lamentable. Il regardait le ciel, les yeux écarquillés par la peur.
 
-Il connaissait la puissance de cette formation. Elle était capable de bloquer toute la force d'un Grand Exalté, mais à cet instant, elle avait été déchirée aussi facilement. La portée de ce spectacle fit trembler l'homme âgé.
+Il connaissait la puissance de cette formation. Elle était capable de bloquer toute la force d'un Exalté Doré, mais à cet instant, elle avait été déchirée aussi facilement. La portée de ce spectacle fit trembler l'homme âgé.
 
 « Lui... Quel est donc son niveau de culture!?! »
 

@@ -32,7 +32,7 @@ Une fois la compétition des sectes de rang 8 terminée, les trois disciples les
 
 Une part de cette puissance servait d'étalage devant la secte de rang 9. Si le vainqueur final parmi les sectes de rang 8 parvenait à maintenir sa victoire pendant 10 000 ans, il obtiendrait une partie des qualifications nécessaires pour entrer dans la région de rang 9!
 
-Chaque secte de rang 8 commençait ses préparatifs très tôt pour cette compétition capitale. Les trois représentants choisis pour ce combat majeur étaient déjà désignés. Bien qu'ils ne soient pas ramenés à la secte principale, ils recevaient le même traitement que les disciples de base, et des membres de la secte principale se déplaçaient personnellement pour les instruire.
+Chaque secte de rang 8 commençait ses préparatifs très tôt pour cette compétition capitale. Les trois représentants choisis pour ce combat majeur étaient déjà désignés. Bien qu'ils ne soient pas ramenés à la secte principale, ils recevaient le même traitement que les disciples principaux, et des membres de la secte principale se déplaçaient personnellement pour les instruire.
 
 Depuis que la Secte Brise-Ciel avait quitté la région de rang 8, dix-sept compétitions avaient eu lieu, entre victoires et défaites dispersées parmi les sectes. Cependant, il y a 10 000 ans, avec l'ascension de la Secte de l'Âme Silencieuse, celle-ci avait remporté neuf victoires consécutives. Ce cycle marquait la 18e compétition depuis le départ de la Secte Brise-Ciel. Si la Secte de l'Âme Silencieuse l'emportait à nouveau, son passage au rang 9 ne serait qu'une question de temps.
 
@@ -62,21 +62,21 @@ Face à cette puissance, les expressions des trois anciens changèrent radicalem
 
 Simultanément, une voix arrogante émana du jade et résonna dans la salle.
 
-« Zhu Yunming, né sur le continent de la Mer Céleste. Tu as commencé ta culture à l'âge de sept ans en entrant dans la Secte de la Grande Ourse. 200 ans pour atteindre le stade de la Formation du Noyau et plus de 600 ans pour atteindre le stade de l'Âme Naissante... Désormais, après des millénaires de culture, tu as atteint le début du stade de l'Observateur du Nirvana et tu es le maître de la Secte de la Grande Ourse. »
+« Zhu Yunming, né sur le continent de la Mer Céleste. Tu as commencé ta culture à l'âge de sept ans en entrant dans la Secte de la Grande Ourse. 200 ans pour atteindre le stade de la Formation du Noyau et plus de 600 ans pour atteindre le stade de l'Âme Naissante... Désormais, après des millénaires de culture, tu as atteint le début du stade du Scruteur du Nirvana et tu es le maître de la Secte de la Grande Ourse. »
 
-« Luo Conggang, né sur le continent de la Mer Céleste. Ton père est Luo Haitao... Tu as utilisé une quantité massive de pilules pour augmenter ta culture par la force, t'arrêtant au début du stade de l'Observateur du Nirvana. »
+« Luo Conggang, né sur le continent de la Mer Céleste. Ton père est Luo Haitao... Tu as utilisé une quantité massive de pilules pour augmenter ta culture par la force, t'arrêtant au début du stade du Scruteur du Nirvana. »
 
 « Zhou Chen, tu n'es pas né sur le continent de la Mer Céleste, mais sur celui de Zhou Wu. Tu as rejoint la Secte de la Grande Ourse à mi-parcours... et voilà que tu es bloqué au stade du Yang Corporel depuis 735 ans! »
 
 « Ce vieil homme a-t-il prononcé un seul mensonge? »
 
-« Tout ce que l'Aîné a dit est exact. Qui êtes-vous, Aîné? » Les trois étaient sous le choc. Chaque détail prononcé par cette voix était d'une précision chirurgicale; certains faits étaient même des souvenirs qu'ils avaient oubliés, et pourtant cet inconnu les connaissait parfaitement. De plus, l'aura du Briseur du Nirvana les terrassait au point de leur faire perdre la raison.
+« Tout ce que le Senior a dit est exact. Qui êtes-vous, Senior? » Les trois étaient sous le choc. Chaque détail prononcé par cette voix était d'une précision chirurgicale; certains faits étaient même des souvenirs qu'ils avaient oubliés, et pourtant cet inconnu les connaissait parfaitement. De plus, l'aura du Briseur du Nirvana les terrassait au point de leur faire perdre la raison.
 
 « Le nom de ce vieil homme est Liu Jinbiao! Nom Dao: Maître du Tigre d'Or! »
 
 Leurs visages devinrent graves. Bien qu'ils n'eussent jamais entendu ce nom, le simple fragment de jade portait l'aura d'un cultivateur Briseur du Nirvana. Le fait qu'il connaisse leur vie entière imposait un respect immense.
 
-Zhu Yunming prit une profonde inspiration pour réprimer le choc et demanda: « Aîné, pourquoi êtes-vous venu ici...? »
+Zhu Yunming prit une profonde inspiration pour réprimer le choc et demanda: « Senior, pourquoi êtes-vous venu ici...? »
 
 « Un grand désastre vous guette, et vous n'en avez même pas conscience. Il y a trois jours, quelqu'un est venu me voir avec l'intention de me verser 60 000 cristaux d'origine pour que je vous ôte la vie, à vous trois! »
 
@@ -84,7 +84,7 @@ Zhu Yunming prit une profonde inspiration pour réprimer le choc et demanda: « 
 
 « Cependant, je n'ai aucun grief contre votre Secte de la Grande Ourse. Bien que j'aie besoin de cristaux d'origine pour l'alchimie, je suis réticent à accomplir un tel acte. Mais si je n'ai pas le choix, je devrai prendre vos vies. » La voix devint progressivement ténébreuse, fusionnant avec l'aura du Briseur du Nirvana émanant du jade. Les trois hommes devinrent livides.
 
-« Aîné... »
+« Senior... »
 
 « Bien sûr, ce n'est pas ma volonté. Si vous pouvez fournir 60 000 cristaux d'origine ou une valeur équivalente, non seulement je ne vous tuerai pas, mais je vous aiderai également à écarter le danger qui menace la dissolution de votre Secte de la Grande Ourse! »
 

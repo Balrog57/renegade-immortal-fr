@@ -112,7 +112,7 @@ La terre était d'un rouge sombre et exhalait une odeur de sang entêtante. Des 
 
 Plus on s'enfonçait, moins on trouvait de membres sectionnés. Des tombes dévastées se pressaient partout, densément regroupées. Bien que l'expression de Wang Lin restât calme, son cœur était bouleversé.
 
-Ayant pratiqué la méthode de culture de la Secte du Affinement de l'Âme, il était extrêmement sensible aux âmes. Il y avait ici d'innombrables âmes brisées. Même à son apogée, le drapeau des milliards d'âmes contenait bien moins d'âmes que cet endroit.
+Ayant pratiqué la méthode de culture de la Secte de l'Affinement de l'Âme, il était extrêmement sensible aux âmes. Il y avait ici d'innombrables âmes brisées. Même à son apogée, le drapeau des milliards d'âmes contenait bien moins d'âmes que cet endroit.
 
 « Si j'absorbais les âmes d'ici, je pourrais préparer le drapeau des âmes en un instant! » Wang Lin observa les environs et réfléchit silencieusement.
 

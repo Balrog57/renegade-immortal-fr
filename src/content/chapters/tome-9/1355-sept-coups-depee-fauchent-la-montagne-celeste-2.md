@@ -10,7 +10,7 @@ Tout cela se produisit en un instant. Les yeux du Daoïste Esprit Dispersé s'em
 
 Les nuages grondèrent et commencèrent instantanément à s'effondrer!
 
-Lors de leur effondrement, rien ne put empêcher le Cachet d'Inversion Céleste de faire tourbillonner le monde, et il s'abattit avec fracas. Le Grand Ancien recula rapidement, mais fut tout de même frappé par la force de l'impact, et son visage devint aussitôt livide.
+Lors de leur effondrement, rien ne put empêcher le Sceau d'Inversion Céleste de faire tourbillonner le monde, et il s'abattit avec fracas. Le Grand Ancien recula rapidement, mais fut tout de même frappé par la force de l'impact, et son visage devint aussitôt livide.
 
 Alors qu'il tentait de se rétablir, l'Empreinte d'Esprit Guerrier de Wang Lin arriva avec une vitesse inimaginable. Elle percuta immédiatement le Grand Ancien.
 
@@ -24,7 +24,7 @@ Le Ciel était l'étoile, et le Tonnerre Céleste était une planète de culture
 
 Le Tonnerre Terrestre représentait l'innombrable poussière et les fragments de planètes. Ils avaient été raffinés pour se transformer en tonnerre!
 
-Le Tonnerre Originel était le plus simple. Un cultivateur devait rassembler l'énergie originelle avec une ferveur folle jusqu'à ce qu'elle brise son âme originelle. À cet instant, un trou noir capable d'absorber une énergie originelle infinie apparaissaitrait. Tel était le prix pour créer le Tonnerre Originel!
+Le Tonnerre Originel était le plus simple. Un cultivateur devait rassembler l'énergie originelle avec une ferveur folle jusqu'à ce qu'elle brise son âme originelle. À cet instant, un trou noir capable d'absorber une énergie originelle infinie apparaîtrait. Tel était le prix pour créer le Tonnerre Originel!
 
 Quant au Tonnerre Magnétique, il existait des zones spéciales dans l'espace contenant une force magnétique si puissante qu'elle rendait tous les trésors et sorts inutiles. Le Clan du Tonnerre Dispersé utilisait une méthode unique pour faire naître un éclair de tonnerre tous les 3 000 ans. C'était le Tonnerre Magnétique!
 
@@ -72,13 +72,13 @@ Les yeux de Wang Lin s'illuminèrent. La silhouette lumineuse qui le protégeait
 
 S'ils avaient été en dehors des 7 Millions de Mondes et que le Grand Ancien avait été prêt à sacrifier mille ans de vie, Wang Lin n'aurait certainement pas été son égal.
 
-« Pour le blesser maintenant, je dois utiliser les Flammes de Joss! Les Flammes de Joss sont toxiques et inutiles pour moi, mais elles peuvent servir à tuer! » Songeâ Wang Lin rapidement avant d'activer le Monde du Vent et de la Pluie. Son sens divin se propagea et une voix puissante résonna dans ce monde:
+« Pour le blesser maintenant, je dois utiliser les Flammes de Joss! Les Flammes de Joss sont toxiques et inutiles pour moi, mais elles peuvent servir à tuer! » Songea Wang Lin rapidement avant d'activer le Monde du Vent et de la Pluie. Son sens divin se propagea et une voix puissante résonna dans ce monde:
 
 « Vous tous qui avez été tués par moi, adorez-moi et devenez mes disciples. Au prix de vos âmes, consacrez-vous aux Flammes de Joss. Rassemblez-les pour moi! »
 
 Alors que le sens divin de Wang Lin s'étendait, d'immenses quantités de Flammes de Joss jaillirent des têtes des innombrables âmes au sein du Monde du Vent et de la Pluie! Beaucoup d'âmes s'effondrèrent, se sacrifiant pour libérer ces flammes.
 
-Ceux possédant un haut niveau de culture produisaient une grande quantité de Flammes de Joss, mais aucun ne pouvait égaler l'ancienne concubine céleste. Les flammes qu'elle dégageait représentaient la moitié du total!
+Ceux possédant un haut niveau de culture produisaient une grande quantité de Flammes de Joss, mais aucun ne pouvait égaler l'ancienne concubine céleste. Les flammes qu'elle dégageait représentaient le tiers du total!
 
 Wang Lin rassembla ces Flammes de Joss à travers le Monde du Vent et de la Pluie et les condensa en une sphère!
 

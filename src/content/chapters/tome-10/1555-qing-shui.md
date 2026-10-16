@@ -30,7 +30,7 @@ Il vit Qing Shui!!
 
 Au sommet de la montagne, un homme mince à l'expression féroce était cloué à la roche par neuf épines. Ces neuf pointes émettaient une lumière aux sept couleurs, mais ce n'étaient pas les clous aux sept couleurs.
 
-Cet homme au visage farouche était Qing Shui! Bien que son apparence ait radicalement changé, ayant perdu toute sa grâce passée, avec des cheveux en désordre et des yeux rougis par la folie et l'intention meurtrière, Wang Lin le reconnut: c'était son Frère Aîné, Qing Shui!
+Cet homme au visage farouche était Qing Shui! Bien que son apparence ait radicalement changé, ayant perdu toute sa grâce passée, avec des cheveux en désordre et des yeux rougis par la folie et l'intention meurtrière, Wang Lin le reconnut: c'était son Senior Frère, Qing Shui!
 
 Des rugissements semblaient jaillir sans interruption de la bouche de Qing Shui. Il paraissait tenter de briser les neuf épines qui le maintenaient, mais en vain; il ne pouvait que hurler de rage.
 
@@ -74,7 +74,7 @@ Même l'expression de Wang Lin changea face à cette aura de massacre. Elle éta
 
 Un fracas assourdissant retentit et du sang jaillit du coin de la bouche de Wang Lin, le forçant à reculer. Cependant, il ne quitta pas Qing Shui des yeux, la tristesse dans son regard s'intensifiant.
 
-« Frère Aîné Qing Shui!! C'est moi, Wang Lin! Je suis ton frère cadet, Wang Lin!! » Wang Lin se mordit la lèvre inférieure et hurla vers le Qing Shui dément.
+« Senior Frère Qing Shui!! C'est moi, Wang Lin! Je suis ton frère cadet, Wang Lin!! » Wang Lin se mordit la lèvre inférieure et hurla vers le Qing Shui dément.
 
 L'ombre de sang se dissipa sous l'assaut du feu et du tonnerre dorés. L'impact repoussa les cheveux de Qing Shui, révélant ses yeux et son visage.
 
@@ -102,11 +102,11 @@ Cette pointe était dissimulée dans la chevelure, rendant sa découverte extrê
 
 « Cette Tortue Noire n'est pas morte, c'est son véritable corps! Ils utilisent le corps de la Tortue Noire pour piéger l'âme de Qing Shui! »
 
-« Le but de tout cela est de créer l'Essence du Massacre... ou peut-être est-il plus juste de dire que le Frère Aîné Qing Shui sert de fourneau pour la produire!! »
+« Le but de tout cela est de créer l'Essence du Massacre... ou peut-être est-il plus juste de dire que le Senior Frère Qing Shui sert de fourneau pour la produire!! »
 
 « Je comprends maintenant... L'Empereur Divin de la Tortue Noire a trahi les Quatre Sectes Divines parce que l'Alliance de Culture avait découvert ce corps de Tortue Noire. Cette créature était probablement l'un des quatre grands généraux sous l'ancien Empereur Céleste. Elle porte l'aura du clan de la Tortue Noire, et en tant que descendant, l'Empereur Divin n'a eu d'autre choix que de trahir les Quatre Sectes! Seule une telle tentation pouvait le pousser à la trahison! »
 
-« Le Frère Aîné Qing Shui est venu ici pour comprendre l'origine de sa folie. Il a dû découvrir quelque chose qui l'a rendu fou à nouveau! Ce doigt aux sept couleurs est la source de tout cela. Le gaz rouge qu'il absorbe, c'est l'Essence du Massacre! » Wang Lin recula, l'esprit en plein tumulte. Il saisissait enfin la vérité!
+« Le Senior Frère Qing Shui est venu ici pour comprendre l'origine de sa folie. Il a dû découvrir quelque chose qui l'a rendu fou à nouveau! Ce doigt aux sept couleurs est la source de tout cela. Le gaz rouge qu'il absorbe, c'est l'Essence du Massacre! » Wang Lin recula, l'esprit en plein tumulte. Il saisissait enfin la vérité!
 
 Alors qu'il se retirait, le brouillard sanguin des 100 000 cultivateurs se condensa devant Qing Shui. Des images macabres commencèrent à poindre au sein de la brume rouge.
 

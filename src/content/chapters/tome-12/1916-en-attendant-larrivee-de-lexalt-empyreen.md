@@ -10,7 +10,7 @@ Après avoir dévoré le Maître de la Secte Dao Démon, Wang Lin ferma les yeux
 
 Un instant plus tard, Wang Lin ouvrit les yeux et agita sa manche. La terre trembla, tout comme le lac et l'île à moitié effondrés. Tandis qu'une tempête balayait les lieux, ils furent totalement détruits.
 
-La Secte Dao Démon s'était effondré!
+La Secte Dao Démon s'était effondrée!
 
 L'émissaire impérial, baigné dans une lumière dorée, resta là avec une expression embarrassée. Ce n'est que lorsque Wang Lin ouvrit les yeux qu'il joignit les mains avec un sourire amer.
 
@@ -88,7 +88,7 @@ Ce n'est que lorsque l'émissaire fut parti que le sourire de Wang Lin disparut,
 
 Il ne quitta pas les ruines de la Secte Dao Démon mais s'assit sur une pierre verte au sein de la secte, ses yeux brillant d'une lueur étrange.
 
-« Liang Daofei... Sa cupidité et nombre de ses traits négatifs ont été dévorés par le Dao Céleste. Selon cela, sa personnalité devrait être très différente de celle d'autrefois... »
+« Lian Daofei... Sa cupidité et nombre de ses traits négatifs ont été dévorés par le Dao Céleste. Selon cela, sa personnalité devrait être très différente de celle d'autrefois... »
 
 « Les paroles de l'émissaire le révèlent aussi. Sa personnalité a changé, mais en quoi a-t-elle changé... »
 
@@ -104,16 +104,16 @@ Ceux qui reviendraient les premiers seraient ceux ayant un statut élevé; ils u
 
 « L'ancêtre de la Secte Dao Démon doit être en route. C'est un Exalté Empyréen, et pour anéantir le Dao de la Secte Dao Démon, il doit mourir! Et même si je ne le cherche pas, il viendra me trouver de lui-même! »
 
-« Grand Exalté Empyréen... Je me demande comment je me comparerai à un Grand Exalté Empyréen après avoir équipé l'armure de l'âme! » Wang Lin s'assit sur la pierre verte et regarda au loin.
+« Grand Empyréen... Je me demande comment je me comparerai à un Grand Empyréen après avoir équipé l'armure de l'âme! » Wang Lin s'assit sur la pierre verte et regarda au loin.
 
 « Après avoir réglé la question de la Secte Dao Démon, j'aurai deux choix. Aller à la Secte Dong Lin et entrer dans le Bassin Dong Lin pour voir si cela aidera mes autres essences à condenser des corps d'essence véritables... »
 
-« Ou me rendre au Continent Central pour voir de quel genre de tanière de dragon et de grotte de tigre il s'agit. Je verrai si ce Liang Daofei se souvient ne serait-ce que de moi, et ce que son frère aîné, l'Empereur Céleste, lui réserve... »
+« Ou me rendre au Continent Central pour voir de quel genre de tanière de dragon et de grotte de tigre il s'agit. Je verrai si ce Lian Daofei se souvient ne serait-ce que de moi, et ce que son frère aîné, l'Empereur Céleste, lui réserve... »
 
-« Cependant, le Maître a dit un jour qu'il existe cinq Grands Exalté Empyréens, et l'Empereur Céleste Liang Daozhen est l'un d'eux! Si je m'y rends, je pourrais courir de grands dangers... » Wang Lin ferma les yeux et médita dans l'obscurité.
+« Cependant, le Maître a dit un jour qu'il existe cinq Grands Empyréens, et l'Empereur Céleste Liang Daozhen est l'un d'eux! Si je m'y rends, je pourrais courir de grands dangers... » Wang Lin ferma les yeux et médita dans l'obscurité.
 
 À cinq continents du Continent du Démon Vert, un rayon de lumière fendait le ciel. À l'intérieur de cette lumière se trouvait un vieil homme aux cheveux roux à l'expression calme, mais une colère sourde brûlait dans ses yeux!
 
 En un éclair, le monde trembla et il disparut dans une formation de transfert. À grand prix, il enchaînait les transferts pour traverser les continents!
 
-Il était l'ancêtre de la Secte Dao Démon, désormais sous les ordres du Grand Exalté Empyréen Dao Yi!
+Il était l'ancêtre de la Secte Dao Démon, désormais sous les ordres du Grand Empyréen Dao Yi!

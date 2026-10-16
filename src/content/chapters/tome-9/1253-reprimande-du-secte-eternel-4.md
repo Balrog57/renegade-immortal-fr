@@ -30,7 +30,7 @@ Le vieil homme qui avait conduit ses disciples dans le Domaine de la Brume des B
 
 Le vieil homme qui avait aperçu la silhouette de Wang Lin affichait une expression grave. Auparavant, il n'avait pas cru ce qu'on lui racontait, mais désormais, il était convaincu: cet homme possédait le pouvoir de balayer les régions de rang 6 et 7!
 
-Les yeux du Maître de la Secte Éternelle s'illuminèrent. Il était celui dont le niveau de culture était le plus élevé ici. Bien qu'il ne fût pas le plus puissant de la Secte Éternel, il avait atteint le premier stade du Flétrissement Céleste!
+Les yeux du Maître de la Secte Éternelle s'illuminèrent. Il était celui dont le niveau de culture était le plus élevé ici. Bien qu'il ne fût pas le plus puissant de la Secte Éternel, il avait atteint le premier stade du Fléau Céleste!
 
 C'est parce qu'il avait atteint cet état rare qu'il pouvait percevoir ce que nul autre ne voyait. Il fixa l'espace entre les sourcils de Wang Lin et, bien qu'il n'y eût rien de visible, il sentit distinctement la puissance d'une loi résider en ce point!
 
@@ -44,7 +44,7 @@ C'était là sa plus grande crainte. Il n'avait aucune confiance en ses chances 
 
 Lu Yingjie fixait, hébété, la silhouette blanche au cœur du tonnerre. Un sentiment terrifiant surgit soudain en lui et l'engloutit totalement.
 
-Son corps tremblait de peur, surtout lorsqu'il songea qu'il avait offensé la Secte d'Origine, qu'il avait provoqué Lu Yanfei et qu'il avait prétendu vouloir combattre cet homme. Son cuir chevelu s'engourdissait et sa vue se brouillait.
+Son corps tremblait de peur, surtout lorsqu'il songea qu'il avait offensé la Secte de l'Origine, qu'il avait provoqué Lu Yanfei et qu'il avait prétendu vouloir combattre cet homme. Son cuir chevelu s'engourdissait et sa vue se brouillait.
 
 Même ses compagnons de la Secte de la Musique Céleste étaient terrifiés.
 
@@ -78,7 +78,7 @@ Wang Lin regarda la fragile Lu Yanfei d'un air désolé et dit doucement: « Je 
 
 Lu Yanfei ne put plus retenir ses larmes; en regardant Wang Lin, elle secoua la tête. Un sourire radieux éclaira son visage alors qu'elle répondait doucement: « Tu n'es pas en retard. Tant que tu es là, il n'est jamais trop tard. »
 
-« Retourne d'où tu viens. Avec moi ici, personne ne pourra déplacer la Secte d'Origine! Dans cette compétition, qu'il s'agisse des sectes de rang 5, 6 ou 7, je ferai en sorte que la Secte d'Origine soit la première! » Wang Lin agita ses manches et une brise légère emporta Lu Yanfei vers les membres de la Secte d'Origine.
+« Retourne d'où tu viens. Avec moi ici, personne ne pourra déplacer la Secte de l'Origine! Dans cette compétition, qu'il s'agisse des sectes de rang 5, 6 ou 7, je ferai en sorte que la Secte de l'Origine soit la première! » Wang Lin agita ses manches et une brise légère emporta Lu Yanfei vers les membres de la Secte de l'Origine.
 
 Wang Lin tourna le regard vers la Secte Éternelle et joignit les mains à l'adresse du vieil homme qui avait pris la parole. Cependant, il fut surpris en apercevant Li Qianmei et… Mu Bingmei.
 
@@ -112,7 +112,7 @@ Feng Hai hésita un instant avant de joindre les mains pour parler: « Camarade 
 
 Mais Wang Lin agita la main et l'interrompit brutalement!
 
-« Il a humilié ma Secte d'Origine, il doit donc mourir. Quiconque tentera de le sauver subira le même sort! » déclara lentement Wang Lin avant de lever sa main droite. Il était venu à la Secte Éternel pour servir de rempart à la Secte d'Origine et la propulser vers les sommets!
+« Il a humilié ma Secte de l'Origine, il doit donc mourir. Quiconque tentera de le sauver subira le même sort! » déclara lentement Wang Lin avant de lever sa main droite. Il était venu à la Secte Éternel pour servir de rempart à la Secte de l'Origine et la propulser vers les sommets!
 
 À cet instant, d'un simple mouvement de doigt, le monde trembla et le Doigt du Destin Céleste apparut. Des ondulations résonnèrent dans le ciel alors qu'un doigt gigantesque se matérialisait, dégageant une pression monstrueuse. Tous les spectateurs retinrent leur souffle, pétrifiés devant ce doigt colossal qui semblait occuper tout l'espace!
 

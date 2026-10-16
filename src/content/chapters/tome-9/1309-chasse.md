@@ -10,13 +10,13 @@ slug: chasse
 
 « Il est donc bel et bien dans le Royaume Extérieur! » Wang Lin disparut.
 
-Peu après sa disparition, un grondement tonitruant retentit et un corps colossal surgit à l'extérieur de la Formation du Domaine Scellé. Son être exhalait une odeur de sang entêtante. Durant ces dernières années dans le Royaume Extérieur, il avait massacré clan après clan, au point de pousser les cultivateurs du troisième niveau du Système Stellaire Antique à le traquer!
+Peu après sa disparition, un grondement tonitruant retentit et un corps colossal surgit à l'extérieur de la Formation du Royaume Scellé. Son être exhalait une odeur de sang entêtante. Durant ces dernières années dans le Royaume Extérieur, il avait massacré clan après clan, au point de pousser les cultivateurs du troisième niveau du Système Stellaire Antique à le traquer!
 
 S'il n'y avait eu qu'un ou deux cultivateurs du troisième niveau, il ne s'en serait pas inquiété; il est probable qu'il les aurait même éliminés. Cependant, ce n'était pas un ou deux, mais bien trois cultivateurs du troisième niveau qui le poursuivaient!
 
 L'un d'eux se trouvait au stade du Vide Spirituel. Bien qu'il n'ait pas encore subi sa rétribution, il pouvait déjà manier des sorts capables de déchirer les cieux! Cela suffisait à lui seul à donner des maux de tête à Tuo Sen.
 
-Tuo Sen était déjà blessé lorsqu'il avait brisé la Formation du Domaine Scellé, et ayant dû faire exploser les cultivateurs du troisième niveau qu'il avait capturés dans ses étoiles, il se trouvait à son point le plus vulnérable. Toutefois, sa constitution physique était une chose que Wang Lin ne pouvait égaler!
+Tuo Sen était déjà blessé lorsqu'il avait brisé la Formation du Royaume Scellé, et ayant dû faire exploser les cultivateurs du troisième niveau qu'il avait capturés dans ses étoiles, il se trouvait à son point le plus vulnérable. Toutefois, sa constitution physique était une chose que Wang Lin ne pouvait égaler!
 
 Son corps était celui d'un véritable Dieu Ancien, un corps royal de Dieu Ancien ayant survécu durant des éons. Sa puissance était inimaginable.
 
@@ -32,7 +32,7 @@ Trois rayons de lumière le suivaient au loin. Il s'agissait de deux hommes et d
 
 Ils poursuivaient Tuo Sen à distance, sans relâche.
 
-Tuo Sen parvint près de la Formation du Domaine Scellé dans un fracas de tonnerre et frappa le vide de sa main droite. Un rugissement puissant résonna alors qu'il déchirait une faille spatiale. Son corps se rétracta jusqu'à la taille d'un homme ordinaire et disparut dans la brèche.
+Tuo Sen parvint près de la Formation du Royaume Scellé dans un fracas de tonnerre et frappa le vide de sa main droite. Un rugissement puissant résonna alors qu'il déchirait une faille spatiale. Son corps se rétracta jusqu'à la taille d'un homme ordinaire et disparut dans la brèche.
 
 Chasser!!
 
@@ -80,7 +80,7 @@ Cette arme était également un trésor de Dieu Ancien. Bien qu'elle ne fût pas
 
 Plus important encore, grâce à sa sagacité et à sa compréhension de Tuo Sen, il savait que ce dernier ne resterait pas caché. Il avait forcément mené un carnage, ce qui attirerait inévitablement l'attention des cultivateurs du troisième niveau du Système Stellaire Antique, pouvant même mener à une traque!
 
-« Outre la brèche de la Formation du Domaine Scellé, les blessures de Tuo Sen doivent aussi provenir d'une attaque. Il semblait épuisé, je présume donc... qu'il est lui aussi traqué en ce moment! » Les yeux de Wang Lin s'illuminèrent et il se téléporta avec célérité.
+« Outre la brèche de la Formation du Royaume Scellé, les blessures de Tuo Sen doivent aussi provenir d'une attaque. Il semblait épuisé, je présume donc... qu'il est lui aussi traqué en ce moment! » Les yeux de Wang Lin s'illuminèrent et il se téléporta avec célérité.
 
 Sa silhouette traversa l'espace, franchissant à chaque éclat des distances incommensurables. Après un temps, Wang Lin ne détecta aucun signe de la poursuite de Tuo Sen, ce qui confirma ses soupçons.
 

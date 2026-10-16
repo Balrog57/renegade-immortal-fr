@@ -82,7 +82,7 @@ Il craignait non seulement Wang Lin, mais aussi la malédiction ancestrale qui v
 « Essence du commencement absolu, Nuit Brisée! »
 « Vie et mort, karma, vrai et faux, recouvrez le monde! » crièrent en même temps le Wang Lin aux cheveux noirs et le corps véritable des cinq éléments de Wang Lin!
 
-Alors que Dao Yi s'apprêtait à partir, le ciel déchiré au-dessus de lui flascha soudainement et une rune apparut. C'était la puissance de scellement de l'essence de restriction de Wang Lin!
+Alors que Dao Yi s'apprêtait à partir, le ciel déchiré au-dessus de lui flasha soudainement et une rune apparut. C'était la puissance de scellement de l'essence de restriction de Wang Lin!
 
 Après l'essence de restriction, un soleil éclatant apparut. Il dégagea une lumière éblouissante qui fusionna avec la restriction, créant une scène où la lumière scellait le monde entier.
 

@@ -78,7 +78,7 @@ Il abattit une nouvelle fois son épée de sang sans aucune pitié!
 
 L'apparition de cette main sembla figer le monde. Même la lumière faiblit. Tout parut perdre ses couleurs devant cette main! C'était comme si le monde entier avait été remplacé par ce membre! Et tout ce que la main désignait s'effondrait!
 
-Au moment où le doigt s'abaissa, Wang Lin ressentit soudain un sentiment de crise de vie ou de mort d'une puissance bien supérieure à celle éprouvée face au Daoiste Water! Il s'arrêta brusquement et n'hésita pas à agiter la main. Les milliers de Mondes du Vent et de la Pluie fusionnèrent instantanément pour envelopper son corps.
+Au moment où le doigt s'abaissa, Wang Lin ressentit soudain un sentiment de crise de vie ou de mort d'une puissance bien supérieure à celle éprouvée face à Shui Daozi! Il s'arrêta brusquement et n'hésita pas à agiter la main. Les milliers de Mondes du Vent et de la Pluie fusionnèrent instantanément pour envelopper son corps.
 
 À cet instant, Wang Lin utilisa une nouvelle fois le Bouclier de Lumière et d'Ombre. Une masse colossale de lumière convergea pour former une ombre lumineuse gigantesque!
 

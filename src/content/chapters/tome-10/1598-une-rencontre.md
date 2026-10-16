@@ -8,7 +8,7 @@ slug: une-rencontre
 ---
 Sur son lit de mort, il se remémora les paroles de l'érudit anonyme prononcées des centaines d'années auparavant. Ces mots semblaient hanter son esprit jusqu'à ce que sa vie s'éteigne et qu'il devienne l'une des âmes principales du drapeau des âmes.
 
-Son sens divin se déploya une dernière fois à l'instant de son trépas, embrassant tout la Secte de l'Affinement des Âmes. Il aperçut un homme qui s'était enfui d'un lieu lointain pour se fondre parmi les disciples de la Secte. Un homme d'apparence tout à fait ordinaire.
+Son sens divin se déploya une dernière fois à l'instant de son trépas, embrassant toute la Secte de l'Affinement de l'Âme. Il aperçut un homme qui s'était enfui d'un lieu lointain pour se fondre parmi les disciples de la Secte. Un homme d'apparence tout à fait ordinaire.
 
 À cet instant, le sens divin de Nian Tian trembla comme jamais auparavant. Il fut stupéfait de découvrir que cet homme était l'érudit qu'il avait interrogé des siècles plus tôt!
 
@@ -32,7 +32,7 @@ Moins de cinquante personnes dans tout le comté auraient l'opportunité de rejo
 
 En voyant son nom, Wang Lin ne ressentit aucune excitation. Il consulta calmement le classement et partit avec Grande Fortune, qui débordait de fierté et d'enthousiasme. Il se rendit à la mairie pour confirmer son identité, obtenir sa certification pour l'examen suivant et percevoir la prime en argent dévolue par la cour impériale.
 
-Ce qui exaltait tant Grande Fortune n'était pas la présence de Wang Lin au classement, mais bien cette argent.
+Ce qui exaltait tant Grande Fortune n'était pas la présence de Wang Lin au classement, mais bien cet argent.
 
 Ses expériences durant ce court mois avaient transformé Wang Lin sans qu'il s'en aperçoive — ou plutôt, on pourrait dire qu'il avait toujours dû être ainsi. Ces rêves persistaient chaque nuit, et il s'y était désormais habitué.
 
@@ -122,7 +122,7 @@ Wang Lin secoua la tête avec un sourire énigmatique. Il regarda Grande Fortune
 
 « Ah bon? Euh... j'ai oublié... » Grande Fortune cligna des yeux, l'air embarrassé.
 
-« Sors l'argent que tu as caché, achète du vin à l'osmanthus et loue un bateau. Nous séjournerons ici quelques jours. » Wang Lin agita sa manche avec un sourire, ignorant les protestations de son compagnon.
+« Sors l'argent que tu as caché, achète du vin à l'osmanthus et loue un bateau. Nous séjournerons ici quelques jours. » Wang Lin agita sa manche avec un sourire, sans plus regarder Grande Fortune.
 
 Un vent léger souffla, créant des ondulations à la surface de la rivière qui vint effleurer le corps de Wang Lin. C'était une brise douce et chaleureuse. Porté par ce souffle, le son de la cithare s'intensifia.
 

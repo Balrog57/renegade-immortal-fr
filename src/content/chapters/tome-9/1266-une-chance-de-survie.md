@@ -6,27 +6,27 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1266 - A Chance of Survival
 slug: une-chance-de-survie
 ---
-Un courant sous-jacent agitait la Mer des Nuages, provoqué par la Secte Divin. Il interférait avec une série d'individus!
+Un courant sous-jacent agitait la Mer des Nuages, provoqué par la Secte Divine. Il interférait avec une série d'individus!
 
 Li Qianmei était retenue par sa secte et n'avait pas le droit de sortir pendant trois mois. Son maître était sorti de sa culture en isolement prolongé pour empêcher leur disciple la plus importante de s'échapper.
 
 Il traversait ses propres difficultés; il devait agir ainsi pour la sécurité de Li Qianmei!
 
-Mu Bingmei était confuse face à tout cela, mais elle sentait vaguement que quelque chose n'allait pas. Elle s'était rendue à la Secte Divin avec Wang Shanshan, mais elle n'avait pas vu le maître de celle-ci, qui était pourtant la figure la plus puissante de la Secte Divin: le Grand Ancien, le Daoïste Eau!
+Mu Bingmei était confuse face à tout cela, mais elle sentait vaguement que quelque chose n'allait pas. Elle s'était rendue à la Secte Divine avec Wang Shanshan, mais elle n'avait pas vu le maître de celle-ci, qui était pourtant la figure la plus puissante de la Secte Divine: le Grand Ancien, le Shui Daozi!
 
-Dès son entrée à la Secte Divin, elle avait été placée dans une salle de culture isolée. La Secte Divin fournissait toutes les pilules nécessaires, mais elle n'était pas autorisée à sortir!
+Dès son entrée à la Secte Divine, elle avait été placée dans une salle de culture isolée. La Secte Divine fournissait toutes les pilules nécessaires, mais elle n'était pas autorisée à sortir!
 
 Si elle avait su que la compétition entre sectes de rang 8 avait été annulée, son intelligence l'aurait poussée à la suspicion. Même sans trouver la véritable cause, elle aurait perçu des indices.
 
 Cependant, pour l'instant, Mu Bingmei n'en savait rien.
 
-Même Li Qianmei ignorait que la compétition entre sectes de rang 8 avait été annulée par la Secte Divin!
+Même Li Qianmei ignorait que la compétition entre sectes de rang 8 avait été annulée par la Secte Divine!
 
 Ce courant sous-jacent se propageait à travers toute la Mer des Nuages.
 
-Sur le continent de Mo Luo, tous les disciples de la Secte Origin emballaient précipitamment leurs affaires sur ordre de Lu Yanfei. Il leur avait fallu trois jours pour tout ranger. Ils étaient désormais prêts à quitter cette région de rang 5 où ils avaient vécu d'innombrables années pour rejoindre le nouveau siège de la Secte Origin, préparé par la Secte Éternel dans la région de rang 7.
+Sur le continent de Mo Luo, tous les disciples de la Secte de l'Origine emballaient précipitamment leurs affaires sur ordre de Lu Yanfei. Il leur avait fallu trois jours pour tout ranger. Ils étaient désormais prêts à quitter cette région de rang 5 où ils avaient vécu d'innombrables années pour rejoindre le nouveau siège de la Secte de l'Origine, préparé par la Secte Éternelle dans la région de rang 7.
 
-Wang Lin était assis dans une pièce secrète de la Secte Origin. Son esprit était fusionné avec l'âme de l'Omniscient, contenue dans le Sceau Céleste. À cet instant, il semblait être devenu l'Omniscient lui-même.
+Wang Lin était assis dans une pièce secrète de la Secte de l'Origine. Son esprit était fusionné avec l'âme de l'Omniscient, contenue dans le Sceau Céleste. À cet instant, il semblait être devenu l'Omniscient lui-même.
 
 Tout dans le monde semblait être sous son contrôle, mais ce n'était qu'une apparence!
 
@@ -44,7 +44,7 @@ Pourtant, ce genre de prédiction était trop ardu pour lui. Après tout, il n'�
 
 Mais Wang Lin n'abandonna pas; toute son énergie originelle s'agita, le faisant fusionner davantage avec l'Omniscient. À mesure que leur intégration s'approfondissait, il semblait oublier certaines choses.
 
-Il oublia qu'il cultivait et qu'il se trouvait à la Secte Origin, dans la Mer des Nuages. À cet instant, il oublia tout!
+Il oublia qu'il cultivait et qu'il se trouvait à la Secte de l'Origine, dans la Mer des Nuages. À cet instant, il oublia tout!
 
 Le brouillard qui couvrait le monde commença à tourner rapidement, et un grondement tonnerre résonna dans son esprit. C'était comme si une paire de mains gigantesques et invisibles agitait ce brouillard, créant un vortex!
 
@@ -114,7 +114,7 @@ Il était certain que le départ de Li Qianmei était lié à lui. Le départ de
 
 Un cultivateur du troisième stade extrêmement puissant voulait sa mort! Ce n'était pas comme dans le Royaume aux Sept Couleurs, où le cultivateur du troisième stade avait utilisé sa puissance à travers l'espace pour projeter une paume. C'était un cultivateur du troisième stade venant en son corps originel pour lui arracher la vie!
 
-« Moi, Wang Lin, j'ai été un cultivateur défiant les cieux toute ma vie et j'ai affronté d'innombrables crises de vie ou de mort. Quelle que soit l'ampleur de la menace, je devrai y faire face! Je ne crois pas être incapable de trouver un moyen de briser ce piège mortel. S'il n'y a aucune issue, et alors? Qu'importe si je meurs! » Une lueur glaciale passa dans les yeux de Wang Lin tandis qu'il tendait la main. Son espace de stockage s'ouvrit et plusieurs fausses Perles du Défiant en sortirent.
+« Moi, Wang Lin, j'ai été un cultivateur défiant les cieux toute ma vie et j'ai affronté d'innombrables crises de vie ou de mort. Quelle que soit l'ampleur de la menace, je devrai y faire face! Je ne crois pas être incapable de trouver un moyen de briser ce piège mortel. S'il n'y a aucune issue, et alors? Qu'importe si je meurs! » Une lueur glaciale passa dans les yeux de Wang Lin tandis qu'il tendait la main. Son espace de stockage s'ouvrit et plusieurs fausses Perles Défiant le Ciel en sortirent.
 
 Il inspecta les perles, puis en saisit une. Une lumière aux sept couleurs émana de ses yeux et, alors qu'elle enveloppait son corps, elle pénétra dans la perle.
 

@@ -28,7 +28,7 @@ Après avoir saisi le gigantesque os, Wang Lin poussa un rugissement et l'énerg
 
 Au moment où l'os du Serpent aux yeux de lune allait percuter la porte, le bras géant qui appelait Wang Lin l'attrapa avec aisance.
 
-Wang Lin eut un haut-le-cœur et ses yeux se remplirent d'horreur lorsque le bras serra négligemment l'objet. Une aura puissante jaillit instantanément et l'os du Serpent aux yeux de lune s'effrita en poussière!
+Wang Lin eut le souffle coupé et ses yeux se remplirent d'horreur lorsque le bras serra négligemment l'objet. Une aura puissante jaillit instantanément et l'os du Serpent aux yeux de lune s'effrita en poussière!
 
 Cette pression fit trembler le monde entier. D'innombrables fissures apparurent immédiatement, jusque sur la planète où se trouvait Wang Lin. Des grondements sourds ébranlèrent le champ d'astéroïdes tandis qu'une multitude de corps célestes se brisaient.
 
@@ -62,7 +62,7 @@ Il n'était pas difficile de deviner qu'il n'avait pas été le premier à obten
 
 Cependant, après avoir vu cette porte, ces individus avaient probablement choisi d'entrer, que ce soit lors de la première apparition ou des suivantes.
 
-« Ces aînés ont-ils été écrasés par le bras ou sont-ils réellement entrés dans la porte... » Wang Lin fronça les sourcils.
+« Ces Seniors ont-ils été écrasés par le bras ou sont-ils réellement entrés dans la porte... » Wang Lin fronça les sourcils.
 
 Avant que la perle ne soit complète, Wang Lin était déjà perplexe. Mais maintenant que les cinq éléments étaient réunis, non seulement rien n'avait changé, mais il était plus confus encore.
 

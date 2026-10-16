@@ -78,8 +78,8 @@ Wang Lin prit une grande inspiration et observa la Perle Défiant le Ciel qui fu
 
 Il avait l'intuition que, du fait qu'il pouvait voir la tour, il était désormais très proche du secret de la perle!
 
-À cet instant, le regard de Wang Lin devint glacial et se tourna vers l'horizon. C'était la direction de la Secte du Dao Démon!
+À cet instant, le regard de Wang Lin devint glacial et se tourna vers l'horizon. C'était la direction de la Secte du Dao Démoniaque!
 
-« Secte du Dao Démon... Autrefois, j'avais fait la promesse de détruire l'intégralité de la Secte du Dao Démon et son Tao. De faire en sorte qu'il n'y ait plus jamais de Secte du Dao Démon sur le Continent Astral Immortel! » Wang Lin agita sa manche et la tempête autour de lui tourna avec une intensité accrue, formant une tornade noire qui l'emporta au loin.
+« Secte du Dao Démoniaque... Autrefois, j'avais fait la promesse de détruire l'intégralité de la Secte du Dao Démoniaque et son Dao. De faire en sorte qu'il n'y ait plus jamais de Secte du Dao Démoniaque sur le Continent Astral Immortel! » Wang Lin agita sa manche et la tempête autour de lui tourna avec une intensité accrue, formant une tornade noire qui l'emporta au loin.
 
-Le châtiment de la Secte du Dao Démon était arrivé!
+Le châtiment de la Secte du Dao Démoniaque était arrivé!

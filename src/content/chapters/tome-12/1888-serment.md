@@ -10,7 +10,7 @@ La terrifiante force destructrice fut totalement contenue par l'ombre de son Dao
 
 Malgré cela, Wang Lin sentit son âme originelle trembler; repoussé de dizaines de milliers de pieds, du sang s’écoula au coin de sa bouche. Une fissure de la taille d'une paume apparut sur le torse de l'armure de terre, mais celle-ci ne se brisa pas.
 
-« Ils veulent me blesser pour... me retarder! » Wang Lin avait tenté un Repli Spatial, mais la zone était scellée. Même avec l'armure d'âme, il était incapable de franchir cette montagne.
+« Ils veulent me blesser pour... me retarder! » Wang Lin avait tenté un Distorsion Spatiale, mais la zone était scellée. Même avec l'armure d'âme, il était incapable de franchir cette montagne.
 
 Alors que Wang Lin reculait, l'énergie monstrueuse de l'épée se rapprochait. Elle était d'une puissance phénoménale, comme si ce coup allait trancher la terre en deux. Elle convergea instantanément vers lui.
 
@@ -36,9 +36,9 @@ Le visage de Yun Kong pâlit légèrement alors qu'il fixait Wang Lin. Lorsque c
 
 Immédiatement après, il leva la main droite et une épée antique imprégnée d'une aura royale apparut. Il s'en saisit et bondit dans les airs. Après les neuf ombres d'épées, il libéra l'assaut final!
 
-En voyant cette épée antique dégageant une aura royale, Wang Lin perçut instantanément une trace de la puissance d'un Grand Empereur!
+En voyant cette épée antique dégageant une aura royale, Wang Lin perçut instantanément une trace de la puissance d'un Grand Empyréen!
 
-Cette épée était identique à son Sceau Doré. C'était un trésor qu'un Grand Empereur avait formé en condensant un sortilège!
+Cette épée était identique à son Sceau Doré. C'était un trésor qu'un Grand Empyréen avait formé en condensant un sortilège!
 
 Alors que les neuf ombres d'épées convergeaient, les yeux de Wang Lin s'illuminèrent. Il allait partir, et quiconque tenterait de l'en empêcher subirait sa colère. L'armure de son bras droit s'était effondrée, mais il lui restait encore son bras gauche!
 
@@ -48,17 +48,17 @@ Son bras gauche forma un sceau et il décocha neuf coups de poing contre les neu
 
 Un grondement tonitruant déchira les montagnes, créant une tempête qui balaya la région. Les neuf ombres d'épées s'effondrèrent, tout comme l'armure du bras gauche de Wang Lin. Cependant, il parvint à progresser de mille pieds et se retrouva à moins de deux cents pieds de Yun Kong, qui s'apprêtait à porter un ultime coup!
 
-« Un trésor condensé d'un sortilège par un Grand Empereur... j'en possède un aussi! » Wang Lin n'utilisa pas *Nuit Brisée*. Même avec son niveau de culture augmenté par l'armure d'âme, il ne pouvait l'utiliser deux fois de suite.
+« Un trésor condensé d'un sortilège par un Grand Empyréen... j'en possède un aussi! » Wang Lin n'utilisa pas *Nuit Brisée*. Même avec son niveau de culture augmenté par l'armure d'âme, il ne pouvait l'utiliser deux fois de suite.
 
 Il devait le garder pour l'instant critique. Le combat contre Yun Kong semblait difficile, mais pas assez pour justifier l'usage de *Nuit Brisée*!
 
-Il avait percé à jour les intentions de Yun Kong et des deux Messagers du Diable Vert. Cette bataille n'avait pour seul but que de le retarder.
+Il avait percé à jour les intentions de Yun Kong et des deux Messagers du Démon Vert. Cette bataille n'avait pour seul but que de le retarder.
 
 Au moment où les mots de Wang Lin résonnèrent, sa main droite plongea dans le vide et un sceau doré apparut!
 
 Une fois apparu, le sceau percuta l'épée antique. Un fracas tonitruant retentit et Yun Kong cracha du sang. Il paraissait désormais affaibli. L'épée dans sa main vola en éclats et il fut projeté au sol.
 
-Une profonde fissure apparut sur le sceau doré de Wang Lin, mais il ne se brisa pas. Il devint simplement terne, et Wang Lin le rangea. Lorsque deux trésors créés par des Grands Empereurs entrent en collision, la qualité des objets ou des sorts importe peu; l'essentiel réside dans la quantité de puissance de foi utilisée pour les façonner.
+Une profonde fissure apparut sur le sceau doré de Wang Lin, mais il ne se brisa pas. Il devint simplement terne, et Wang Lin le rangea. Lorsque deux trésors créés par des Grands Empyréens entrent en collision, la qualité des objets ou des sorts importe peu; l'essentiel réside dans la quantité de puissance de foi utilisée pour les façonner.
 
 Prendre vie à partir du néant était déjà un prodige en soi. Il était évident que la puissance de foi de l'épée de Yun Kong était bien inférieure à celle du sceau doré de Wang Lin!
 
@@ -66,7 +66,7 @@ Après avoir rangé son sceau, Wang Lin se tint au sommet de la montagne et fixa
 
 Le sang continuait de couler de la bouche de Yun Kong. Il regarda Wang Lin, l'air vaincu.
 
-« J'ai perdu... » Il ne mentionna ni le fait que Wang Lin portait l'armure d'âme du Taureau Céleste, ni l'existence du trésor de Grand Empereur. Une défaite était une défaite!
+« J'ai perdu... » Il ne mentionna ni le fait que Wang Lin portait l'armure d'âme du Taureau Céleste, ni l'existence du trésor de Grand Empyréen. Une défaite était une défaite!
 
 « Mais tu as aussi perdu... » Yun Kong lutta pour se redresser et regarda Wang Lin avec une expression complexe.
 
@@ -76,7 +76,7 @@ Tandis que Yun Kong parlait, Wang Lin chargea vers l'autre versant de la montagn
 
 Il n'y eut ni cri déchirant, ni résistance. L'épée de sang traversa le crâne de Yun Kong avant de revenir vers Wang Lin.
 
-Quant au cadavre de Yun Kong, Wang Lin n'eut pas le temps de vérifier s'il s'agissait du corps original ou d'un avatar. Il sentit une crise grandissante monter en lui, un sentiment similaire à celui qu'il avait éprouvé lors de sa première rencontre avec le Taoïste Water.
+Quant au cadavre de Yun Kong, Wang Lin n'eut pas le temps de vérifier s'il s'agissait du corps original ou d'un avatar. Il sentit une crise grandissante monter en lui, un sentiment similaire à celui qu'il avait éprouvé lors de sa première rencontre avec Shui Daozi.
 
 Depuis la chaîne de montagnes infinie, Wang Lin contemplait un désert sans fin. C'était le paysage le plus courant du continent Terre-Meng; près de 70 % de ce territoire en était ainsi constitué.
 
@@ -84,11 +84,11 @@ La rumeur disait qu'il y a fort longtemps, un cultivateur étranger s'était ren
 
 On racontait que cet homme se nommait « Meng »; ainsi, après d'innombrables années, ce lieu fut nommé le continent Terre-Meng!
 
-L'endroit était saturé de l'aura de l'essence terrestre, semblable au continent du Diable Vert. Le continent du Diable Vert était une terre d'essence terrestre, où vivait le Scorpion du Diable Vert, une bête féroce issue des profondeurs.
+L'endroit était saturé de l'aura de l'essence terrestre, semblable au continent du Démon Vert. Le continent du Démon Vert était une terre d'essence terrestre, où vivait le Scorpion du Démon Vert, une bête féroce issue des profondeurs.
 
 Cependant, cette essence était masquée par son aura démoniaque, ce qui la rendait difficile à percevoir.
 
-Ces rumeurs étaient consignées en détail sur la carapace de tortue confiée à Wang Lin. Ces pensées traversèrent son esprit, mais il n'avait pas le temps de s'y attarder. Il profita de la vitesse de l'armure d'âme pour se précipiter vers le continent Terre-Meng, faute de pouvoir utiliser le Repli Spatial.
+Ces rumeurs étaient consignées en détail sur la carapace de tortue confiée à Wang Lin. Ces pensées traversèrent son esprit, mais il n'avait pas le temps de s'y attarder. Il profita de la vitesse de l'armure d'âme pour se précipiter vers le continent Terre-Meng, faute de pouvoir utiliser le Distorsion Spatiale.
 
 Il se rapprochait inexorablement. Les dizaines de milliers de kilomètres furent franchis rapidement. Il ne lui restait plus qu'un millier de kilomètres; le continent Terre-Meng était en vue!
 
@@ -98,19 +98,19 @@ Les matrices s'activèrent promptement. Alors que Wang Lin observait la scène, 
 
 Plus de cent individus apparurent, dégageant des auras puissantes.
 
-L'activation de ces six matrices coûta un prix exorbitant au continent du Diable Vert, d'autant plus qu'elles téléportaient un si grand nombre de personnes. Plus le niveau de culture était élevé, plus le coût était lourd. Pour un cultivateur de la troisième étape, le tribut était indescriptible.
+L'activation de ces six matrices coûta un prix exorbitant au continent du Démon Vert, d'autant plus qu'elles téléportaient un si grand nombre de personnes. Plus le niveau de culture était élevé, plus le coût était lourd. Pour un cultivateur de la troisième étape, le tribut était indescriptible.
 
-Et ces centaines de cultivateurs étaient tous extrêmement puissants. Leur transfert avait épuisé plus de 100 000 ans d'économies du continent du Diable Vert!
+Et ces centaines de cultivateurs étaient tous extrêmement puissants. Leur transfert avait épuisé plus de 100 000 ans d'économies du continent du Démon Vert!
 
 Ces individus étaient initialement en embuscade aux diverses frontières du continent du Taureau Céleste, attendant Wang Lin. Cependant, suite à une erreur de prédiction, ils furent contraints de téléporter massivement des troupes ici. Ce n'était là qu'une partie d'entre eux; d'autres arrivaient encore par transfert.
 
 Ces cultivateurs portaient tous des vêtements similaires. Bien que les couleurs diffèrent, le motif lunaire noir et blanc sur leurs étoffes était identique!
 
-Wang Lin avait reconnu ce symbole sur la carapace de tortue. Ce motif appartenait à la première secte du continent du Diable Vert: la Secte du Dao Démoniaque!
+Wang Lin avait reconnu ce symbole sur la carapace de tortue. Ce motif appartenait à la première secte du continent du Démon Vert: la Secte du Démon Dao!
 
-Le blocus et la traque visant Wang Lin n'étaient pas l'œuvre de tout le continent du Diable Vert, mais uniquement celle de la Secte du Dao Démoniaque!
+Le blocus et la traque visant Wang Lin n'étaient pas l'œuvre de tout le continent du Démon Vert, mais uniquement celle de la Secte du Démon Dao!
 
-Le continent Terre-Meng était à mille kilomètres, mais la Secte du Dao Démoniaque venait de surgir pour lui barrer la route. Le sentiment qu'une crise imminente approchait devint d'autant plus oppressant!
+Le continent Terre-Meng était à mille kilomètres, mais la Secte du Démon Dao venait de surgir pour lui barrer la route. Le sentiment qu'une crise imminente approchait devint d'autant plus oppressant!
 
 Les pupilles de Wang Lin se contractèrent. Alors qu'il fonçait en avant, les plus de cent cultivateurs sortis des six matrices s'élancèrent. Simultanément, ils projetèrent tous quelque chose vers lui!
 
@@ -126,6 +126,6 @@ Ces voix froides résonnèrent à travers le monde et frappèrent les oreilles d
 
 Il ignorait leurs noms, mais il avait gravé leurs visages dans sa mémoire. Ces centaines de têtes représentaient presque la moitié des survivants de la Prairie du Ciel Extrême...
 
-« Vous n'aimez pas les têtes humaines? Voici le premier cadeau que ma Secte du Dao Démoniaque vous offre! » Une voix venimeuse résonna dans l'air.
+« Vous n'aimez pas les têtes humaines? Voici le premier cadeau que ma Secte du Démon Dao vous offre! » Une voix venimeuse résonna dans l'air.
 
-« Secte du Dao Démoniaque... Si je quitte cet endroit aujourd'hui, je reviendrai et je réduirai votre secte en cendres!! » Les yeux de Wang Lin brillèrent d'une lumière rouge monstrueuse, et il fit ce serment dans son cœur. C'était la première fois qu'il ressentait un désir aussi brûlant de détruire une secte sur le Continent Astral Immortel!
+« Secte du Démon Dao... Si je quitte cet endroit aujourd'hui, je reviendrai et je réduirai votre secte en cendres!! » Les yeux de Wang Lin brillèrent d'une lumière rouge monstrueuse, et il fit ce serment dans son cœur. C'était la première fois qu'il ressentait un désir aussi brûlant de détruire une secte sur le Continent Astral Immortel!

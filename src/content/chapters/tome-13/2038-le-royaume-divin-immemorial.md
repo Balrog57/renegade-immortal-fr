@@ -1,6 +1,6 @@
 ---
 n: 2038
-title: "Le Royaume Divin Immemorial!"
+title: "Le Royaume Divin Immémorial!"
 book: 13
 bookTitle: Light of the coming end
 en: "Chapter 2038 - Immemorial God Realm!"
@@ -96,10 +96,10 @@ La main droite de Massacre marqua un temps d'arrêt. À l'extérieur, Wang Lin o
 
 « Quel lieu cette formation ouvre-t-elle? »
 
-L'Ancien Maître Impérial Dao, dont l'apparence rappelait celle de l'Omniscient et du Souverain Céleste aux Sept Couleurs, réfléchit un instant avant de répondre: « Le Royaume Divin Immemorial! »
+L'Ancien Maître Impérial Dao, dont l'apparence rappelait celle de l'Omniscient et du Souverain Céleste aux Sept Couleurs, réfléchit un instant avant de répondre: « Le Royaume Divin Immémorial! »
 
-« Si vous voulez que Li Muwan s'affranchisse de la réincarnation sans en subir les souffrances, vous devez atteindre le Royaume Divin Immemorial. Là-bas, elle sera protégée du cycle des renaissances, et vous pourrez utiliser votre Dao de la Réincarnation pour briser la barrière onirique de Li Muwan, trouver son essence véritable et transcender ainsi la réincarnation. »
+« Si vous voulez que Li Muwan s'affranchisse de la réincarnation sans en subir les souffrances, vous devez atteindre le Royaume Divin Immémorial. Là-bas, elle sera protégée du cycle des renaissances, et vous pourrez utiliser votre Dao de la Réincarnation pour briser la barrière onirique de Li Muwan, trouver son essence véritable et transcender ainsi la réincarnation. »
 
-« Par le passé, le Royaume Divin Immemorial n'a été que partiellement ouvert, mais avec ma méthode, je peux l'ouvrir totalement! »
+« Par le passé, le Royaume Divin Immémorial n'a été que partiellement ouvert, mais avec ma méthode, je peux l'ouvrir totalement! »
 
 Pourtant, une intention meurtrière traversa les yeux de Massacre. Après avoir hésité un instant, sa main droite se remit en mouvement comme pour raser la formation.

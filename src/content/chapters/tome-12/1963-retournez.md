@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1963 - Send Back!"
 slug: retournez
 ---
-Les Empereurs Ascendants en contrebas étaient plongés dans un silence total. Tous les bouleversements de cette journée avaient fait taire leurs cris; ils se contentaient désormais de fixer le 16e palais, flou, et la silhouette blanche qui se tenait à ses côtés.
+Les Exaltés Empyréens en contrebas étaient plongés dans un silence total. Tous les bouleversements de cette journée avaient fait taire leurs cris; ils se contentaient désormais de fixer le 16e palais, flou, et la silhouette blanche qui se tenait à ses côtés.
 
 Les actions de Wang Lin avaient totalement renversé la situation défavorable d'autrefois. Toutes les questions et tous les doutes avaient été balayés par une force absolue, ne laissant aucune trace derrière eux.
 
@@ -16,7 +16,7 @@ Wang Lin n'avait pas ouvert la bouche une seule fois pour s'expliquer face aux m
 
 C'était bien plus puissant et choquant que dix mille justifications!
 
-L'ensemble de l'Épreuve Empyréenne était plongé dans un silence de mort. Face aux innombrables regards braqués sur lui, Wang Lin restait muet, impassible. Ses yeux étaient clos alors qu'il se tenait au cœur de la lumière dorée. On aurait dit qu'il cultivait en attendant l'Ascendant Empyréen Ming Dao.
+L'ensemble de l'Épreuve Empyrée était plongé dans un silence de mort. Face aux innombrables regards braqués sur lui, Wang Lin restait muet, impassible. Ses yeux étaient clos alors qu'il se tenait au cœur de la lumière dorée. On aurait dit qu'il cultivait en attendant l'Ascendant Empyréen Ming Dao.
 
 Cette scène lui conférait une aura de grand maître, et tous les cultivateurs qui le contemplaient ressentaient un profond respect dans leur cœur.
 
@@ -32,7 +32,7 @@ Avant d'avoir pu achever sa phrase, il s'interrompit brusquement car tout était
 
 Wang Lin dit lentement: « Tu es trop lent. »
 
-« Tu... Tu as franchi le 16e palais? » Le visage de l'Ascendant Empyréen Ming Dao pâlit instantanément. Il fixa Wang Lin, une puissante intention meurtrière brillant dans ses yeux. Il ne tolérerait jamais que quiconque soit plus fort que lui. Il ne pouvait rien contre les Grands Empereurs, mais il se devait d'être le premier parmi les Ascendants!
+« Tu... Tu as franchi le 16e palais? » Le visage de l'Ascendant Empyréen Ming Dao pâlit instantanément. Il fixa Wang Lin, une puissante intention meurtrière brillant dans ses yeux. Il ne tolérerait jamais que quiconque soit plus fort que lui. Il ne pouvait rien contre les Grands Empyréens, mais il se devait d'être le premier parmi les Ascendants!
 
 Pourtant, les acclamations et la gloire qu'il aurait dû obtenir en franchissant le 16e palais venaient d'être usurpées par Wang Lin. En observant ce dernier, il comprit que celui-ci avait probablement mis bien moins de temps que lui.
 
@@ -110,7 +110,7 @@ C'était exactement ce que Ming Dao avait fait à Wang Lin!
 
 « Oh? Ai-je blessé qui que ce soit? Est-il blessé? Puisqu'il n'y a aucune blessure, comment ai-je pu violer une règle? » Wang Lin sourit et répliqua en utilisant les mots mêmes de l'Empereur Céleste!
 
-L'Empereur s'apprêtait à parler, mais Wang Lin fut plus rapide. Il regarda l'Ascendant Empyréen Ming Dao, qui tentait de contenir sa rage, et sa voix résonna à travers toute l'Épreuve Empyréenne.
+L'Empereur s'apprêtait à parler, mais Wang Lin fut plus rapide. Il regarda l'Ascendant Empyréen Ming Dao, qui tentait de contenir sa rage, et sa voix résonna à travers toute l'Épreuve Empyrée.
 
 « On dirait que tu n'as plus d'orgueil et que tu as abandonné ton estime de soi. Je me demandais pourquoi tu étais si pressé de partir sans tenter le 17e palais. Je crains qu'en plus d'avoir perdu ta dignité, tu n'aies aussi perdu ta foi. Tu n'es plus qu'un corps sans âme qui obéit à chaque ordre de l'Empereur Céleste. Il te dit de partir et tu n'oses même pas hésiter. »
 

@@ -66,7 +66,7 @@ Il parvint à entrouvrir le second sceau situé entre ses sourcils!
 
 Mais avant qu'il n'ait pu achever son geste, une paume gigantesque descendit du ciel. Sa vitesse dépassait l'entendement. Elle se mua en un poing massif qui s'écrasa sur le corps de l'Omniscient.
 
-Les grondements tonnerres continuèrent de résonner tandis que la terre tremblait violemment. Après l'impact du premier poing, une paire de poings colossaux s'abattit au sol dans un bruit sourd.
+Les grondements de tonnerre continuèrent de résonner tandis que la terre tremblait violemment. Après l'impact du premier poing, une paire de poings colossaux s'abattit au sol dans un bruit sourd.
 
 Simultanément, un changement inimaginable se produisit dans l'espace surplombant la Terre des Esprits Démoniaques. Le ciel gronda et un vortex immense apparut, tournant à une vitesse prodigieuse.
 

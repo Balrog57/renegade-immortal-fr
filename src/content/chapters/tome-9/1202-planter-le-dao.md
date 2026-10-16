@@ -10,7 +10,7 @@ L'éclair qui jaillissait devant le Maître Pin Cendré était identique à celu
 
 Des grondements tonitruants résonnèrent dans les environs. L'énergie originelle infinie se dissipa, tandis que l'éclair transperçait l'espace pour atteindre Wang Lin. Les yeux de ce dernier s'illuminèrent et il lança un coup de poing impitoyable.
 
-Son pouvoir de Dieu Ancestral s'activa, et l'illusion d'un Dieu Ancestral gigantesque apparut derrière lui. Cette ombre était d'une taille inimaginable, et elle projeta un coup de poing synchronisé avec celui de Wang Lin.
+Son pouvoir d'Ancien Dieu s'activa, et l'illusion d'un Ancien Dieu gigantesque apparut derrière lui. Cette ombre était d'une taille inimaginable, et elle projeta un coup de poing synchronisé avec celui de Wang Lin.
 
 Des bruits de craquements éclatèrent lorsque le coup percuta immédiatement la marque d'éclair.
 
@@ -18,11 +18,11 @@ Le monde changea de couleur! La marque d'éclair trembla puis s'effondra soudain
 
 Les yeux du Maître Pin Cendré étaient empreints de férocité. Dès l'instant de son attaque, il avait utilisé son sort le plus puissant. Il haïssait tant Wang Lin qu'il espérait que ce dernier meure sur-le-champ.
 
-« Tonnerre et éclairs... » Wang Lin afficha un regard de mépris. Un éclair jaillit de son œil droit et un vortex apparut entre ses sourcils. Son âme originelle du Dragon Ancestral du Tonnerre s'élança et poussa un rugissement face aux innombrables éclairs qui saturaient le ciel!
+« Tonnerre et éclairs... » Wang Lin afficha un regard de mépris. Un éclair jaillit de son œil droit et un vortex apparut entre ses sourcils. Son âme originelle du Dragon Ancien du Tonnerre s'élança et poussa un rugissement face aux innombrables éclairs qui saturaient le ciel!
 
-Roar!
+Rugissement!
 
-Le Dragon Ancestral du Tonnerre avait autorité sur le tonnerre! Sous l'effet de ce rugissement, les éclairs jaillirent de l'œil droit de Wang Lin et se propagèrent sur tout son corps. Bientôt, l'espace dans un rayon de milliers de pieds autour de lui devint un lac de tonnerre.
+Le Dragon Ancien du Tonnerre avait autorité sur le tonnerre! Sous l'effet de ce rugissement, les éclairs jaillirent de l'œil droit de Wang Lin et se propagèrent sur tout son corps. Bientôt, l'espace dans un rayon de milliers de pieds autour de lui devint un lac de tonnerre.
 
 La foudre descendant du ciel marqua un temps d'arrêt avant de fusionner avec le lac environnant, formant un enfer de tonnerre sans limites.
 
@@ -36,7 +36,7 @@ Non loin de là, le front de Chen Tianjun était couvert de sueur. Son visage é
 
 Wang Lin ne s'arrêta pas. Après avoir absorbé la foudre, une faible marque d'éclair apparut dans ses yeux. Elle jaillit de son regard comme l'attaque précédente et vola directement vers le Maître Pin Cendré.
 
-Le Maître Pin Cendré recula précipitamment en formant un sceau de ses mains. Ses sept âmes naissantes émettent alors une lumière rouge sang intense, entourant le Maître Pin Cendré pour tenter de bloquer l'éclair!
+Le Maître Pin Cendré recula précipitamment en formant un sceau de ses mains. Ses sept âmes naissantes émettaient alors une lumière rouge sang intense, entourant le Maître Pin Cendré pour tenter de bloquer l'éclair!
 
 Les yeux de Wang Lin brillèrent. Bien qu'il n'ait pas encore véritablement franchi le stade intermédiaire du Purificateur du Nirvana, la percée de son domaine avait rendu ses sorts bien plus puissants. Il était également bien différent de la première fois où il avait combattu le Maître Pin Cendré.
 
@@ -116,7 +116,7 @@ Wang Lin regagna la grotte située dans la vallée et sortit une grande quantit�
 
 « Il y a également cette vieille femme en vert avec sa Restriction de la Vie et de la Mort, ainsi que la Restriction du Temps de Sima Mo... »
 
-Dans l'immensité des étoiles, il existait un système stellaire bien plus vaste qu'Luotian, Vide Brillant, Rivière Invoquée ou Mer de Nuages. Même en combinant ces quatre systèmes, ils ne pourraient égaler ce vaste ensemble stellaire.
+Dans l'immensité des étoiles, il existait un système stellaire bien plus vaste que Luotian, Vide Brillant, Rivière Invoquée ou Mer des Nuages. Même en combinant ces quatre systèmes, ils ne pourraient égaler ce vaste ensemble stellaire.
 
 C'était ce que les habitants du royaume scellé appelaient le royaume extérieur...
 
@@ -124,7 +124,7 @@ Les habitants du royaume extérieur, eux, appelaient cet endroit le Système Ste
 
 Dans une zone interdite du Système Stellaire Primordial se trouvait un palais mystérieux. Aucun signe de vie n'y subsistait, et plusieurs lumières aux sept couleurs flottaient dans l'enceinte. À l'intérieur de chaque lumière reposait un morceau de jade sur lequel un nom était gravé...
 
-Qing Shui, Omniscient, Maître Zhongxuan, Daoïste Water, Sima Mo, Maître Pin Cendré...
+Qing Shui, Omniscient, Maître Zhongxuan, Shui Daozi, Sima Mo, Maître Pin Cendré...
 
 À cet instant, le jade portant le nom du Maître Pin Cendré se brisa en d'innombrables fragments et un soupir résonna dans le palais. Dès l'apparition de ce soupir, le temps commença à refluer et les éclats de jade se reformèrent pour redevenir un bloc intact, comme si rien ne s'était passé.
 

@@ -56,7 +56,7 @@ Sous cette pression, Wang Lin eut l'illusion que son corps était écrasé et qu
 
 La tête saignait de ses orifices, mais ses traits étaient très nets. Lorsque Wang Lin absorbait le filon de feu terrestre sur le continent du Taureau Céleste, il avait vu cette personne sceller le Taureau Céleste!
 
-Lors de l'Essai Éthéré, il avait vu l'ombre de cet être! Dans le palais, il avait vu sa statue. Il avait entendu parler de lui sans cesse au cours des derniers siècles!! Il avait même entendu son véritable nom dans le Bassin Dong Lin!!
+Lors de l'Essai Empyréen, il avait vu l'ombre de cet être! Dans le palais, il avait vu sa statue. Il avait entendu parler de lui sans cesse au cours des derniers siècles!! Il avait même entendu son véritable nom dans le Bassin Dong Lin!!
 
 Il était l'ancêtre de l'Ancêtre Céleste, l'ancêtre de tout le Clan Céleste. Le légendaire membre le plus puissant du Clan Céleste!
 

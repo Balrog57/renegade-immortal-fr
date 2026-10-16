@@ -34,7 +34,7 @@ Les yeux de Na Duo tressaillirent et il bondit vers le neuvième étage sans hé
 
 Na Duo n'osa pas résister, se laissant entraîner par cette main colossale. Une fois entré, il s'agenouilla immédiatement au sol et s'adressa respectueusement à l'occupant:
 
-« Le junior Na Duo salue le Neuvième Ancêtre. »
+« Le Junior Na Duo salue le Neuvième Ancêtre. »
 
 L'homme en robe dorée fixa Na Duo et rugit: « Qui est-il?! Comment as-tu pu provoquer une telle personne?! »
 
@@ -58,17 +58,17 @@ Elles étaient si nombreuses qu'elles suffisaient à couvrir le ciel et la terre
 
 L'expression de Wang Lin resta imperturbable alors qu'il reculait de trois pas. Sa main droite se crispa en un poing et une froideur glaciale envahit son regard. Soudain, il griffa l'espace devant lui!
 
-Déchirement du Ciel!
+Déchirure du Ciel!
 
 Cette déchirure fit se dissiper les nuages, suivie d'un craquement assourdissant. Une faille gigantesque s'ouvrit dans la réalité, reliant le ciel et la terre. On aurait dit que le monde allait être scindé en deux!
 
 En vérité, l'univers devant Wang Lin fut littéralement coupé en deux. Le centre de la faille plongeait dans un vide obscur. À cet instant, elle s'étendit rapidement, telle la nuit dévorant le jour.
 
-Mais cela ne suffisait pas à manifester toute la puissance du Déchirement du Ciel. Les innombrables feuilles furent elles aussi déchirées avec le monde! Chaque feuille fut fendue en deux, révélant les nervures qui reliaient ses deux moitiés.
+Mais cela ne suffisait pas à manifester toute la puissance du Déchirure du Ciel. Les innombrables feuilles furent elles aussi déchirées avec le monde! Chaque feuille fut fendue en deux, révélant les nervures qui reliaient ses deux moitiés.
 
 Toutes les feuilles convergeant de toutes parts furent ainsi déchiquetées!
 
-Lorsque le Déchirement du Ciel jaillit de la main droite de Wang Lin, un grondement tonitruant retentit, comme si la formation du bois était sur le point de s'effondrer.
+Lorsque le Déchirure du Ciel jaillit de la main droite de Wang Lin, un grondement tonitruant retentit, comme si la formation du bois était sur le point de s'effondrer.
 
 Les feuilles qui fonçaient sur Wang Lin furent coupées en deux et dérivèrent sur ses flancs, entrant en collision avec celles venant de la direction opposée.
 

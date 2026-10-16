@@ -8,7 +8,7 @@ slug: les-multiples-tresors-du-maitre-ashen-pine
 ---
 Les yeux du Maître Pin Cendré brillèrent d'une lueur étrange lorsqu'il déclara lentement: « C'est le texte sacré du Dao! Je ne crains pas que le Confrère Cultivateur Zhao ne découvre mon véritable dessein. Les âmes de bêtes ne sont qu'un objectif secondaire; mon véritable but est de contempler le texte sacré du Dao! »
 
-« De nombreux Éclairés sont présents ici, l'accès au texte sacré du Dao ne sera donc pas aisé. Maître Pin Cendré, vous... » La vieille femme en vert fixa le Maître Pin Cendré.
+« De nombreux Éveillés sont présents ici, l'accès au texte sacré du Dao ne sera donc pas aisé. Maître Pin Cendré, vous... » La vieille femme en vert fixa le Maître Pin Cendré.
 
 « Confrère Cultivateur Zhao, vous souvenez-vous de ce qui se murmurait parmi ma génération lorsque l'on ne possédait point de pilule d'Ascension? » Le Maître Pin Cendré leva les yeux vers la statue.
 
@@ -60,7 +60,7 @@ Celle-ci resta silencieuse un instant avant de dire d'une voix rauque: « Le Ma�
 
 La vieille femme ne perdit plus une seconde. Ses mains formèrent des sceaux et des restrictions s'envolèrent. Simultanément, le gaz noir qui l'entourait s'anima au rythme des runes. D'un geste sec du doigt, elle projeta les restrictions vers la première Aiguille Brise-Restriction!
 
-Des craquements retentirent lorsque les restrictions frappèrent l'aiguille, laquelle fut aussitôt imprégnée de gaz noir. L'objet émit une lueur sombre, puis une aura capable de fendre le firmament se déchaîna. Les yeux de la femme brillèrent; elle mordit le bout de sa langue et une flèche de sang jaillit vers l'aiguille. Le projectile percutat l'objet, le propulsant directement contre la restriction temporelle.
+Des craquements retentirent lorsque les restrictions frappèrent l'aiguille, laquelle fut aussitôt imprégnée de gaz noir. L'objet émit une lueur sombre, puis une aura capable de fendre le firmament se déchaîna. Les yeux de la femme brillèrent; elle mordit le bout de sa langue et une flèche de sang jaillit vers l'aiguille. Le projectile percuta l'objet, le propulsant directement contre la restriction temporelle.
 
 À mesure qu'elle s'approchait, la barrière de lumière noire commença à se distordre sous la violence du pouvoir temporel. L'aiguille trembla immédiatement, semblant sur le point de se dissiper.
 

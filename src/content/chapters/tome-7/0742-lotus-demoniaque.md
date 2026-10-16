@@ -30,7 +30,7 @@ Des fissures semblables à des cicatrices marquaient chaque fragment, lui confé
 
 Après l'avoir observé un instant, Wang Lin fit un geste de la main et les fragments se dispersèrent à nouveau. Il les rangea ensuite dans son sac de rangement.
 
-« Ce Xu Fenghan était un cultivateur Illusif Yin, alors pourquoi n'avait-il pas de sac de rangement... » Wang Lin était perplexe après avoir tué l'homme.
+« Ce Xu Fenghan était un cultivateur Yin Illusoire, alors pourquoi n'avait-il pas de sac de rangement... » Wang Lin était perplexe après avoir tué l'homme.
 
 Après la mort de Xu Fenghan, son corps s'était dissipé. Le sens divin de Wang Lin s'était étendu et il avait constaté qu'aucun sac de rangement n'avait été laissé derrière lui. C'était un phénomène très étrange.
 
@@ -106,7 +106,7 @@ Ne voulant aucun conflit, ils partirent rapidement. Wang Lin leur jeta un seul r
 
 Le Royaume Céleste du Tonnerre s'était ouvert de nombreuses fois, la récolte tendait donc à s'amenuiser à chaque occurrence. Cependant, lorsqu'une ressource était trouvée, il y avait de fortes chances qu'il s'agisse d'un trésor de qualité supérieure.
 
-Fort de son expérience dans le Royaume Céleste de la Pluie, Wang Lin progressait avec facilité. En un éclair, le reste du mois passa. Il ne croisa que peu de cultivateurs, à peine trois ou cinq personnes. Parmi eux, aucun cultivateur Illusif Yin; la plupart étaient des Ascendants, et il y avait même un membre de la Transformation de l'Âme.
+Fort de son expérience dans le Royaume Céleste de la Pluie, Wang Lin progressait avec facilité. En un éclair, le reste du mois passa. Il ne croisa que peu de cultivateurs, à peine trois ou cinq personnes. Parmi eux, aucun cultivateur Yin Illusoire; la plupart étaient des Ascendants, et il y avait même un membre de la Transformation de l'Âme.
 
 Wang Lin explora l'intégralité du fragment durant ce mois sans rien trouver. Après réflexion, il cessa ses recherches et reprit sa route à pleine vitesse vers son point de départ.
 

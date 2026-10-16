@@ -94,13 +94,13 @@ Il ressentit une douleur fulgurante dans son esprit alors que sa connexion avec 
 
 Toutefois, comparée à sa propre vie, cette pierre de jade n'était rien. Les yeux de Liu Jinbiao se remplirent de terreur tandis qu'il s'agenouillait et commençait à hurler:
 
-« Aîné, pardonnez-moi! Aîné, pardonnez-moi! Ce junior n'a jamais tué personne, je ne fais que tricher ou effrayer les gens occasionnellement. Au pire, j'ai accaparé quelques biens, mais je n'ai jamais versé le sang. Mon péché ne mérite pas la mort, mon péché ne mérite pas la mort, Aîné! Je vous en supplie, laissez-moi partir! Ce junior ne trichera plus jamais et deviendra un homme de bien. Je ne tricherai plus jamais... »
+« Senior, pardonnez-moi! Senior, pardonnez-moi! Ce junior n'a jamais tué personne, je ne fais que tricher ou effrayer les gens occasionnellement. Au pire, j'ai accaparé quelques biens, mais je n'ai jamais versé le sang. Mon péché ne mérite pas la mort, mon péché ne mérite pas la mort, Senior! Je vous en supplie, laissez-moi partir! Ce junior ne trichera plus jamais et deviendra un homme de bien. Je ne tricherai plus jamais... »
 
 Liu Jinbiao continuait de se prosterner, terrifié par Wang Lin, implorant sa grâce.
 
 « Cette pierre de jade est trop troublante. Huit simples centipèdes ont pu cultiver jusqu'au stade proche du Briseur du Nirvana! Ce Liu Jinbiao a pu agir à sa guise dans la Mer des Nuages. Il a trompé d'innombrables personnes sans jamais être démasqué! » Wang Lin prit une profonde inspiration. Il ne voulait plus entendre les lamentations de Liu Jinbiao. D'un revers de manche, il envoya immédiatement l'homme dans son espace de stockage.
 
-« Le crime de cet homme ne mérite effectivement pas la mort. Il a trompé autrui pendant des années, mais cela ne me concerne pas. Cependant, il a tenté de duper la Secte Originel, il doit donc être puni! Xu Liguo, tu te plains toujours de ta solitude, je te donne donc cet homme. Donne-lui une bonne leçon ou deux! » Le sens divin de Wang Lin se posa sur Xu Liguo, qui ne s'était pas manifesté depuis longtemps.
+« Le crime de cet homme ne mérite effectivement pas la mort. Il a trompé autrui pendant des années, mais cela ne me concerne pas. Cependant, il a tenté de duper la Secte de l'Origine, il doit donc être puni! Xu Liguo, tu te plains toujours de ta solitude, je te donne donc cet homme. Donne-lui une bonne leçon ou deux! » Le sens divin de Wang Lin se posa sur Xu Liguo, qui ne s'était pas manifesté depuis longtemps.
 
 Xu Liguo était déprimé et maudissait en son cœur depuis des centaines d'années. Les beautés lui manquaient, et il pensait surtout aux méfaits qu'il avait commis à Luotian; il aspirait constamment à les revivre.
 

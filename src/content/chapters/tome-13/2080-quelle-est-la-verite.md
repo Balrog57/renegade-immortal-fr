@@ -108,7 +108,7 @@ Ressusciter Li Muwan était sa propre décision, et non le fruit de l'influence 
 
 La destination de cette figure était le Continent Astral Immortel.
 
-« Omniscient, la réponse à tout ne viendra pas de la vérité que vous me direz dans le Royaume Divin Immemorial, mais de la vérité que je vous dirai! Je vous ferai connaître la véritable réalité! » Wang Lin agita sa manche et un crâne apparut.
+« Omniscient, la réponse à tout ne viendra pas de la vérité que vous me direz dans le Royaume Divin Immémorial, mais de la vérité que je vous dirai! Je vous ferai connaître la véritable réalité! » Wang Lin agita sa manche et un crâne apparut.
 
 Ce crâne appartenait à Ji Qiong.
 
@@ -140,6 +140,6 @@ Avant de partir, son Sens Divin balaya le Royaume Céleste; il y vit les cultiva
 
 Il rétracta son Sens Divin et jeta un dernier regard sur le monde des grottes.
 
-Trois mois restaient avant l'ouverture du Royaume Divin Immemorial. Ce lieu serait le champ de la bataille finale de Wang Lin.
+Trois mois restaient avant l'ouverture du Royaume Divin Immémorial. Ce lieu serait le champ de la bataille finale de Wang Lin.
 
-« Quand je quitterai le Royaume Divin Immemorial, Wan Er, tu m'accompagneras... » murmura Wang Lin alors qu'il franchissait la porte du monde des grottes pour disparaître.
+« Quand je quitterai le Royaume Divin Immémorial, Wan Er, tu m'accompagneras... » murmura Wang Lin alors qu'il franchissait la porte du monde des grottes pour disparaître.

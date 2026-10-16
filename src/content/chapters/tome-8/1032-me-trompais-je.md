@@ -48,7 +48,7 @@ Depuis la surface, l'océan paraissait d'un bleu éclatant, mais sous l'eau, l'o
 
 Les yeux de Wang Lin brillaient de calculs mentaux, mais au moment même où il allait atteindre la surface, son expression changea brusquement. Il poussa immédiatement ses deux mains vers les parois.
 
-La bulle dans laquelle il se trouvait s'effondra soudainement et une onde de choc se propagea rapidement. Sous le contrôle de Wang Lin, elle chargea vers le haut. Alors que l'onde de choc montait, un grondement tonnerre résonna, comme si elle avait percuté un obstacle.
+La bulle dans laquelle il se trouvait s'effondra soudainement et une onde de choc se propagea rapidement. Sous le contrôle de Wang Lin, elle chargea vers le haut. Alors que l'onde de choc montait, un grondement de tonnerre résonna, comme si elle avait percuté un obstacle.
 
 Même l'océan fut ébranlé par ce fracas. Wang Lin sentit l'eau près de lui être violemment écrasée par une force puissante.
 

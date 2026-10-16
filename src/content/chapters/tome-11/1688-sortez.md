@@ -12,7 +12,7 @@ Les yeux de Qing Shui s'illuminèrent d'un éclat rouge et une intention meurtri
 
 Qing Shui chargea en avant.
 
-Maître Hong Shan et Maître Nan Yunzi restèrent figés un instant avant que leurs expressions ne changent radicalement. Après une brève hésitation, ils serrèrent les dents et se précipitèrent à son suive!
+Maître Hong Shan et Maître Nan Yunzi restèrent figés un instant avant que leurs expressions ne changent radicalement. Après une brève hésitation, ils serrèrent les dents et se précipitèrent à sa suite!
 
 Qing Lin était stupéfait, et sa lutte intérieure fut la plus violente. Pourtant, il vit les dizaines de Célestes rire sauvagement en déchirant le fleuve argenté. L'ouverture révéla des dizaines de milliers de cultivateurs du Royaume Intérieur pétris de terreur. Qing Lin laissa échapper un rugissement et fit un pas en avant!
 
@@ -22,13 +22,13 @@ Des grondements tonnerreux résonnèrent et une tempête dorée, imprégnée de 
 
 « Quelle audace. Vous osez nous empêcher, nous les Célestes, d'absorber les Flammes Joss? » ricana l'un d'eux. Ses paroles étaient empreintes d'une arrogance infinie et d'un sentiment de supériorité absolue!
 
-Cette tempête dorée, chargée de la force de la lignée céleste, produisait une suppression qui agissait comme l'ennemi naturel des habitants du Royaume Intérieur. Sous ce poids, Qing Lin, Maître Hongshan et Maître Nan Yunzi reculèrent, sous le choc.
+Cette tempête dorée, chargée de la force de la lignée céleste, produisait une suppression qui agissait comme l'ennemi naturel des habitants du Royaume Intérieur. Sous ce poids, Qing Lin, Maître Hong Shan et Maître Nan Yunzi reculèrent, sous le choc.
 
 Cependant, cette force de lignée n'eut aucun effet sur Qing Shui; c'était comme s'il ne la percevait même pas. Il traversa la tempête dorée pour foncer vers les dizaines de Célestes, animé d'une intention meurtrière terrifiante.
 
-Il était néanmoins un peu trop lent. Les douzaine de Célestes sortis en premier étaient déjà arrivés au-dessus du nouveau Royaume Céleste. Ils contemplèrent les dizaines de milliers de cultivateurs qui les observaient avec effroi et éclatèrent de rire.
+Il était néanmoins un peu trop lent. Les douzaines de Célestes sortis en premier étaient déjà arrivés au-dessus du nouveau Royaume Céleste. Ils contemplèrent les dizaines de milliers de cultivateurs qui les observaient avec effroi et éclatèrent de rire.
 
-Quelques-uns libérèrent immédiatement leur suppression de lignée pour que les cultivateurs en bas n'osent plus bouger. Puis, certains d'entre eux descendirent. L'un d'eux saisit une cultivatrice au niveau du Fleuve Invoqué et s'apprêta à l'aspirer.
+Quelques-uns libérèrent immédiatement leur suppression de lignée pour que les cultivateurs en bas n'osent plus bouger. Puis, certains d'entre eux descendirent. L'un d'eux saisit une cultivatrice au niveau de la Rivière Invoquée et s'apprêta à l'aspirer.
 
 Une fois qu'il l'aurait inhalée, il pourrait transformer cette femme en Flammes Joss pour les absorber.
 
@@ -60,7 +60,7 @@ Le firmament se distordit et une silhouette blanche apparut. Cette silhouette é
 
 Avec ce rugissement, une intention meurtrière fulgurante se propagea, réveillant les souvenirs traumatiques de ces dizaines de Célestes. Ils poussèrent des cris et leurs visages pâlirent tandis qu'ils reculaient précipitamment. En un clin d'œil, ils quittèrent le nouveau Royaume Céleste.
 
-À l'extérieur du nouveau Royaume Céleste, parmi les douzaines de Célestes qui s'étaient retirés, se trouvait un vieil homme: l'Dragon Azure. Il affichait une expression sombre en observant ceux qui avaient forcé l'entrée du nouveau Royaume Céleste. Il laissa échapper un reniflement froid avant de faire un pas en avant et de joindre les mains en signe de respect.
+À l'extérieur du nouveau Royaume Céleste, parmi les douzaines de Célestes qui s'étaient retirés, se trouvait un vieil homme: le Dragon Azure. Il affichait une expression sombre en observant ceux qui avaient forcé l'entrée du nouveau Royaume Céleste. Il laissa échapper un reniflement froid avant de faire un pas en avant et de joindre les mains en signe de respect.
 
 « Ce vieux n'a pas été assez strict et est arrivé trop tard. J'espère que, cher Compagnon Cultivateur, vous nous pardonnerez. Ce vieux vous donnera une explication! Heureusement, il n'y a eu aucune victime; alors, cher Compagnon, ne soyez pas en colère... Notre accord tient toujours. Nous, du Royaume Céleste Antique, ne tuerons pas un seul cultivateur du Royaume Intérieur! »
 
@@ -76,7 +76,7 @@ Bien qu'une formation bloquât les bouleversements à l'intérieur du Royaume In
 
 À ce moment-là, non seulement le sien, mais aussi celui de tous les cultivateurs de la troisième étape observant Wang Lin se transformèrent. Ils comprirent tous simultanément l'intention du guerrier!
 
-Wang Lin se déplaçait à pleine vitesse. Depuis sa position, il ne lui fallait qu'un instant pour atteindre n'importe quel point du Système d'Étoiles Antique. Il disparut et, lorsqu'il réapparut, il se trouvait dans un domaine stellaire criblé de failles spatiales!
+Wang Lin se déplaçait à pleine vitesse. Depuis sa position, il ne lui fallait qu'un instant pour atteindre n'importe quel point du Système Stellaire Antique. Il disparut et, lorsqu'il réapparut, il se trouvait dans un domaine stellaire criblé de failles spatiales!
 
 Ce domaine stellaire était alors parcouru d'innombrables déchirures d'où émanaient des grondements tonitruants. Dès l'arrivée de Wang Lin, le domaine sembla s'effondrer et une faille gigantesque se forma.
 
@@ -86,7 +86,7 @@ Ces figures étaient également des anciens Célestes. Ils étaient tous des dis
 
 Sans l'ordre de cette partenaire de dao, ils n'auraient pas suivi les commandements des sept concubines. On pourrait dire que c'était là la cause profonde de la grande guerre du monde caverne!
 
-Ils étaient l'atout ultime dont disposaient les impératrices célestes. Lorsque tout le monde réalisa ce que Wang Lin allait accomplir, l'expression de la septième concubine changea brusquement et elle se précipita vers lui.
+Ils étaient l'atout ultime dont disposaient les concubines impériales célestes. Lorsque tout le monde réalisa ce que Wang Lin allait accomplir, l'expression de la septième concubine changea brusquement et elle se précipita vers lui.
 
 Même la troisième concubine fut secouée et se rua rapidement sur place.
 
@@ -96,7 +96,7 @@ Ils ne reconnurent pas Wang Lin. Bien qu'il possédât un certain niveau de cult
 
 « Nous pouvons enfin sortir! »
 
-« Puisque nous sommes là, les quatre généraux doivent aussi être sortis. Tuez! Tuez-les pour obtenir le Tome du Dao et nous pourrons fonder un nouveau Secte des Sept Dao! »
+« Puisque nous sommes là, les quatre généraux doivent aussi être sortis. Tuez! Tuez-les pour obtenir le Tome du Dao et nous pourrons fonder une nouvelle Secte des Sept Dao! »
 
 « Non seulement nous devons les tuer, mais nous devons anéantir toute vie dans ce monde caverne. Ce n'est qu'ainsi que nous pourrons rouvrir cette caverne! »
 

@@ -18,7 +18,7 @@ C'était cela la force, la cruelle vérité du monde de la culture. La loi de la
 
 Si Wang Lin avait été un cultivateur du troisième niveau, Shui Daozi aurait fait preuve d'une prudence extrême quant à son désir de le tuer. Il n'aurait probablement même pas choisi de combattre, préférant inviter Wang Lin en tant qu'hôte prestigieux. Les deux se seraient alors assis pour échanger ce qu'ils désiraient.
 
-Si Wang Lin avait été un cultivateur du troisième niveau, il aurait pu balayer l'Alliance, la Mer des Nuages et le Tout-Ciel. Même Maître Lu Fu se serait montré très poli et lui aurait témoigné son respect; aucune des deux parties n'aurait provoqué l'autre.
+Si Wang Lin avait été un cultivateur du troisième niveau, il aurait pu balayer l'Alliance, la Mer des Nuages et Luotian. Même Maître Lu Fu se serait montré très poli et lui aurait témoigné son respect; aucune des deux parties n'aurait provoqué l'autre.
 
 La force était tout, et elle était la clé de la survie dans ce monde impitoyable de la culture!
 
@@ -48,7 +48,7 @@ Chaque tatouage sanguin était formé par l'essence de bêtes féroces. Ils cont
 
 En s'élançant vers le garçon, le ciel fut teint de rouge et un hurlement tonitruant couvrit l'étendue.
 
-« Tu connais le sort du Clan des Tatouages, mais ce sort est inutile contre ce vieil homme! » L'expression de Shui Daozi était neutre; au moment où les innombrables tatouages convergèrent vers lui, il agita nonchalamment sa main droite.
+« Tu connais le sort du Clan du Tatouage, mais ce sort est inutile contre ce vieil homme! » L'expression de Shui Daozi était neutre; au moment où les innombrables tatouages convergèrent vers lui, il agita nonchalamment sa main droite.
 
 « Effondrement du Dao Insouciant! » La voix de Shui Daozi était calme, mais elle donnait l'illusion qu'un dieu rugissait. Sa voix devint plus intense alors qu'elle se propageait avec frénésie.
 
@@ -64,7 +64,7 @@ Le corps blanc saisit cette goutte de sang et l'avala, ses yeux commençant à b
 
 « Ce n'est pas sa réincarnation!! »
 
-L'effondrement des tatouages sanguins n'était pas une surprise pour Wang Lin. Ses dix millions d'ombres d'épée avaient réussi à laisser une légère blessure. Cependant, maintenant que l'adversaire utilisait des sorts du troisième niveau, tout autre sort s'effondrerait de toute façon. Le sort du Clan des Tatouages n'était qu'un sort, et il ne pouvait donc naturellement rien faire.
+L'effondrement des tatouages sanguins n'était pas une surprise pour Wang Lin. Ses dix millions d'ombres d'épée avaient réussi à laisser une légère blessure. Cependant, maintenant que l'adversaire utilisait des sorts du troisième niveau, tout autre sort s'effondrerait de toute façon. Le sort du Clan du Tatouage n'était qu'un sort, et il ne pouvait donc naturellement rien faire.
 
 Mais c'était précisément ce que Wang Lin voulait!
 
@@ -110,14 +110,14 @@ Bien que ces trois grandes restrictions aient été détruites, comme elles n'é
 
 Tout ce que Wang Lin avait fait n'était que pour cette fraction de seconde!
 
-Les pupilles de Wang Lin se contractèrent, ses cheveux devinrent ébouriffés et ses yeux virèrent au rouge sang alors qu'il rugissait: « Charriot de Guerre Divin! »
+Les pupilles de Wang Lin se contractèrent, ses cheveux devinrent ébouriffés et ses yeux virèrent au rouge sang alors qu'il rugissait: « Char de Guerre Divin! »
 
-La lance du charriot de guerre formé par la Bête du Tonnerre jaillit comme un rayon de lumière vers Shui Daozi. Elle était d'une puissance telle qu'en traversant les airs, elle fendit la région de rang 5!
+La lance du char de guerre formé par la Bête du Tonnerre jaillit comme un rayon de lumière vers Shui Daozi. Elle était d'une puissance telle qu'en traversant les airs, elle fendit la région de rang 5!
 
-Après la lance, les sept épines du charriot de guerre aux sept couleurs formèrent un arc-en-ciel qui se condensa et s'abattit sur Shui Daozi!
+Après la lance, les sept épines du char de guerre aux sept couleurs formèrent un arc-en-ciel qui se condensa et s'abattit sur Shui Daozi!
 
-À cet instant, toutes les lois s'effondrèrent devant ces Charriots de Guerre Divins! Les lois ne pouvaient les arrêter, le monde ne pouvait les arrêter; aucune puissance ne pouvait stopper ces deux Charriots de Guerre Divins!
+À cet instant, toutes les lois s'effondrèrent devant ces Chars de Guerre Divins! Les lois ne pouvaient les arrêter, le monde ne pouvait les arrêter; aucune puissance ne pouvait stopper ces deux Chars de Guerre Divins!
 
-C'était le véritable Charriot de Guerre Divin! Il possédait le pouvoir d'égorger les dieux!
+C'était le véritable Char de Guerre Divin! Il possédait le pouvoir d'égorger les dieux!
 
 L'expression de Shui Daozi changea pour la toute première fois!

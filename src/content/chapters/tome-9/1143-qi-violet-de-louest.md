@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1143 - Purple Qi From the West
 slug: qi-violet-de-louest
 ---
-La saison des pluies dura plusieurs mois, comme si elle ne devait jamais s'arrêter. Les gouttes de pluie incessantes pesaient sur l'esprit des disciples de la Secte Originel, et ils étaient impuissants à les dissiper.
+La saison des pluies dura plusieurs mois, comme si elle ne devait jamais s'arrêter. Les gouttes de pluie incessantes pesaient sur l'esprit des disciples de la Secte de l'Origine, et ils étaient impuissants à les dissiper.
 
-En un clin d'œil, Wang Lin était déjà à la Secte Originel depuis dix jours.
+En un clin d'œil, Wang Lin était déjà à la Secte de l'Origine depuis dix jours.
 
 Xu Yun était déjà revenue de chez sa maîtresse, et durant ce temps, elle avait secrètement enquêté sur les trente et un mortels ramenés du Nord. Elle avait également observé Wang Lin, mais n'avait rien remarqué d'anormal.
 
@@ -20,15 +20,15 @@ La silhouette aux cheveux blancs ne s'était pas dissipée avec le temps, elle �
 
 Cet après-midi-là, Xu Yun poussa la porte et quelques gouttes de pluie s'écrasèrent sur son visage. Elle fronça les sourcils en levant sa main semblable au jade pour essuyer l'humidité. Son apparence était rafraîchissante, empreinte d'un certain charme, alors qu'elle sortait.
 
-Les gouttes de pluie semblaient heurter une protection invisible lorsqu'elles s'approchaient à moins d'une demi-pied d'elle, avant de s'écouler sur les côtés. En traversant la cour, Xu Yun observa les diverses herbes avant de porter son regard vers la demeure de Wang Lin.
+Les gouttes de pluie semblaient heurter une protection invisible lorsqu'elles s'approchaient à moins d'un demi-pied d'elle, avant de s'écouler sur les côtés. En traversant la cour, Xu Yun observa les diverses herbes avant de porter son regard vers la demeure de Wang Lin.
 
-La première personne qu'elle soupçonnait était Wang Lin! Pourtant, durant ces derniers jours, ce jeune homme nommé Ceng Niu s'était comporté comme un véritable mortel, si l'on excepte sa grande composure et son calme.
+La première personne qu'elle soupçonnait était Wang Lin! Pourtant, durant ces derniers jours, ce jeune homme nommé Ceng Niu s'était comporté comme un véritable mortel, si l'on excepte son grand sang-froid et son calme.
 
 Elle ne parvenait pas à en trouver la raison, mais elle marcha inconsciemment vers la maison de Wang Lin et resta un instant devant l'entrée. Elle arqua les sourcils et poussa la porte.
 
 « Je vous ai laissé ici pour prendre soin des herbes. Durant ces jours, l'avez-vous fait une seule fois? » Xu Yun fixa Wang Lin, qui lisait un rouleau de bois assis près d'une petite table. Pour une raison quelconque, chaque fois qu'elle voyait Wang Lin, elle peinait à contrôler ses émotions et perdait le calme qu'une cultivatrice de l'Yin Illusoire devrait posséder.
 
-Wang Lin posa le rouleau de bois qu'il avait emprunté à la Secte Originel. Il ne contenait aucune information précieuse; c'était un document que tous les nouveaux disciples pouvaient consulter. Il relatait l'histoire du continent de Mo Luo et offrait une brève introduction de la Mer des Nuages.
+Wang Lin posa le rouleau de bois qu'il avait emprunté à la Secte de l'Origine. Il ne contenait aucune information précieuse; c'était un document que tous les nouveaux disciples pouvaient consulter. Il relatait l'histoire du continent de Mo Luo et offrait une brève introduction de la Mer des Nuages.
 
 Ces rouleaux permettaient aux nouveaux disciples de mieux comprendre la Mer des Nuages. Cela leur servait de rappel qu'il y avait toujours des êtres supérieurs à eux, afin qu'ils redoublent d'efforts dans leur culture.
 
@@ -86,7 +86,7 @@ Ce python était d'un violet noirâtre et ses yeux arboraient également un viol
 
 Wang Lin ne daigna même pas un regard au python et passa devant lui. La créature laissa échapper un rugissement sourd, mais la peur se lisait dans ses yeux. Elle commença à reculer pour laisser passer Wang Lin, n'osant point l'attaquer.
 
-En vérité, Wang Lin était arrivé ici il y a quatre jours. En termes de culture, ce python violet pouvait affronter des cultivateurs du stade avancé de la Divination du Nirvana, mais Wang Lin aurait pu l'éliminer sans effort.
+En vérité, Wang Lin était arrivé ici il y a quatre jours. En termes de culture, ce python violet pouvait affronter des cultivateurs du stade avancé du Scruteur du Nirvana, mais Wang Lin aurait pu l'éliminer sans effort.
 
 Il n'avait pas fait de vagues et avait failli tuer le python. Cependant, comme il prévoyait de rester ici quelque temps, il ne lui semblait pas opportun de tuer la bête gardienne de la secte dès son arrivée; il avait donc laissé le python en vie.
 
@@ -96,7 +96,7 @@ Après un nouvel examen, Wang Lin réfléchit. Il reposa le jade et prit la pilu
 
 Mais après avoir médité sur les informations alchimiques contenues dans le jade, il était revenu pour vérifier cette pilule.
 
-D'après le jade, il existait un total de treize rangs de bêtes spirituelles. Les âmes de ces bêtes pouvaient être raffinées en pilules, elles aussi divisées en treize rangs... C'était une pilule transmise de génération en génération au sein de la Secte Originel. Il s'agissait d'une pilule de rang 8, mais malheureusement, c'était une pilule de rang 8 sans âme de bête de rang 8; c'était donc un gaspillage! Une pointe de regret passa dans les yeux de Wang Lin.
+D'après le jade, il existait un total de treize rangs de bêtes spirituelles. Les âmes de ces bêtes pouvaient être raffinées en pilules, elles aussi divisées en treize rangs... C'était une pilule transmise de génération en génération au sein de la Secte de l'Origine. Il s'agissait d'une pilule de rang 8, mais malheureusement, c'était une pilule de rang 8 sans âme de bête de rang 8; c'était donc un gaspillage! Une pointe de regret passa dans les yeux de Wang Lin.
 
 En étudiant le jade ces derniers jours, il avait progressivement saisi certains concepts clés de l'alchimie de la Mer des Nuages. Il était venu au temple aujourd'hui pour vérifier si ses suppositions étaient exactes.
 
@@ -116,8 +116,8 @@ Elle protégeait le continent contre les cultivateurs d'autres sectes, mais surt
 
 À cet instant, la lumière sur la partie occidentale du continent continua de se distordre avant de s'effondrer soudainement dans un fracas retentissant!
 
-Le grondement tonitruant étouffa le tonnerre et la pluie alors qu'il résonnait à travers tout le continent. Il pénétra clairement dans la Secte Originel!
+Le grondement tonitruant étouffa le tonnerre et la pluie alors qu'il résonnait à travers tout le continent. Il pénétra clairement dans la Secte de l'Origine!
 
-Une bête spirituelle, d'un noir absolu et d'environ mille pieds de large, ayant la forme d'une têtard, s'engouffra lentement à travers la barrière brisée. Elle traversa les éclairs et se faufila sur le continent de Mo Luo!
+Une bête spirituelle, d'un noir absolu et d'environ mille pieds de large, ayant la forme d'un têtard, s'engouffra lentement à travers la barrière brisée. Elle traversa les éclairs et se faufila sur le continent de Mo Luo!
 
 Si seule cette bête spirituelle l'avait fait, elle n'aurait pas suffi à briser la barrière protectrice du continent. Cependant, sur le dos de la créature se tenait un vieil homme à l'air arrogant. Il retira lentement sa main droite, laquelle était enveloppée d'un vent violet.

@@ -24,9 +24,9 @@ D'un simple geste de la main, Wang Lin avait provoqué l'accumulation des nuages
 
 Le vieil homme nommé Zhang était livide, en ayant presque cessé de respirer. Il restait hébété, le visage marqué par une horreur inimaginable.
 
-Même Zhong Grand Rouge fut secoué. Bien qu'il eût déjà vu la puissance de Wang Lin au sein du Clan Tonnerre Dispersé, le revoir ici lui faisait ressentir une fois de plus l'infinie majesté de ce dernier.
+Même Zhong Grand Rouge fut secoué. Bien qu'il eût déjà vu la puissance de Wang Lin au sein du Clan du Tonnerre Dispersé, le revoir ici lui faisait ressentir une fois de plus l'infinie majesté de ce dernier.
 
-L'expression de Wang Lin n'avait pas changé, malgré le fait qu'il soit traqué et caché dans les Terres Déchues. Si cela avait été n'importe qui d'autre, il aurait cherché à rester discret et à éviter toute confrontation inutile.
+L'expression de Wang Lin n'avait pas changé, malgré le fait qu'il soit traqué et caché dans la Terre Déchue. Si cela avait été n'importe qui d'autre, il aurait cherché à rester discret et à éviter toute confrontation inutile.
 
 Cependant, la culture de Wang Lin était capable de faire trembler les cieux, et il avait traversé trop de périls dans sa vie. Il avait marché trop souvent sur le fil du rasoir entre la vie et la mort. Qu'importait s'il était découvert par ses poursuivants? Même si cela attirait des ennemis puissants, il ne resterait pas sans réagir face à la blessure de son serviteur!
 
@@ -102,6 +102,6 @@ Ces quatre queues pendaient, dissimulant son visage et lui donnant un air terrif
 
 « Si tel est le cas, l'Empereur de la Terre Déchue ne vous épargnera certainement pas! »
 
-« Un simple cultivateur du Second Ciel de la Fléau Céleste ose-t-il me parler ainsi? » L'expression de Wang Lin resta calme, son regard tranchant comme l'éclair alors qu'il fixait le vieillard. Un éclair jaillit de son œil droit et le monde trembla instantanément.
+« Un simple cultivateur du Second Ciel du Fléau Céleste ose-t-il me parler ainsi? » L'expression de Wang Lin resta calme, son regard tranchant comme l'éclair alors qu'il fixait le vieillard. Un éclair jaillit de son œil droit et le monde trembla instantanément.
 
 L'expression du vieil homme changea radicalement. À ses yeux, l'homme en face de lui avait disparu pour être remplacé par un éclair de tonnerre. Cet éclair descendit du ciel et pénétra ses yeux, s'engouffrant directement dans son esprit.

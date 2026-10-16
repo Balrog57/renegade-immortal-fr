@@ -12,7 +12,7 @@ Tandis que le dragon de mer sous lui rugissait, ils quittèrent la Secte Terrest
 
 « Situ, Qing Shui, Xu Liguo, Liu Jinbiao... Tant d'amis du passé. Je me demande s'ils sont quelque part... sous le même ciel. » Assis sur la tête du dragon de mer, Wang Lin leva les yeux vers l'azur avec un regard mélancolique.
 
-« Je me demande si Situ a pu commencer sa vie de roi. Je me demande où est parti le Frère Aîné Qing Shui. Xu Liguo est rusé et insaisissable. Liu Jinbiao maîtrisait le dao de la tromperie, je me demande s'il l'étudie encore... »
+« Je me demande si Situ a pu commencer sa vie de roi. Je me demande où est parti le Senior Frère Qing Shui. Xu Liguo est rusé et insaisissable. Liu Jinbiao maîtrisait le dao de la tromperie, je me demande s'il l'étudie encore... »
 
 « Et aussi... Li Qianmei. » Après avoir rencontré le premier vieil ami réincarné, Wang Lin sentit des ondes de nostalgie résonner dans son cœur. Leurs visages si vivants défilèrent dans son esprit.
 

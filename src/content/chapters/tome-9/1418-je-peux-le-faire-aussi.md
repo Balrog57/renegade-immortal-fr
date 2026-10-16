@@ -106,4 +106,4 @@ Ces mots parurent résonner aux quatre coins de ce monde. Même l'Oiseau Vermill
 
 « Mon corps de Dieu Ancien est ma paume, et mes cinq essences sont mes doigts! Cinq Plaies Célestes, Cinq Doigts Brise-Vide, cinq essences... les noms diffèrent, mais le sens est identique! »
 
-« J'ai complété une essence, ce qui équivaut à la première Plie Céleste. Une fois que mes cinq essences seront accomplies, je serai l'égal d'un cultivateur au sommet de la cinquième Plie Céleste. Je briserai la Porte du Vide et je tracerai mon propre chemin! »
+« J'ai complété une essence, ce qui équivaut au premier Fléau Céleste. Une fois que mes cinq essences seront accomplies, je serai l'égal d'un cultivateur au sommet du cinquième Fléau Céleste. Je briserai la Porte du Vide et je tracerai mon propre chemin! »

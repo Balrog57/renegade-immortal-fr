@@ -26,9 +26,9 @@ Derrière lui se tenait un homme d'âge mûr, vêtu des habits d'un serviteur de
 
 La feuille de saule tombée dans la main du jeune homme marqua un temps d'arrêt, mais ne sembla pas atteindre son terme. Elle parut pousser un léger soupir avant de s'envoler de sa paume. Elle papillonna au loin avec une pointe de folie, comme si elle connaissait sa destinée et fonçait sans relâche vers son but.
 
-Sur la rive se trouvait une forêt de cerisiers en fleurs. Tandis que les feuilles de saule s'éloignaient, les pétales de cerisier tombaient dans la rivière, créant des ondulations successives.
+Sur la rive se trouvait une forêt de pêchers en fleurs. Tandis que les feuilles de saule s'éloignaient, les pétales de pêcher tombaient dans la rivière, créant des ondulations successives.
 
-« Les saules fous dansent avec le vent, les légers cerisiers flottent au fil de l'eau. » Wang Lin but une gorgée de vin et son rire résonna.
+« Les saules fous dansent avec le vent, les légères fleurs de pêcher flottent au fil de l'eau. » Wang Lin but une gorgée de vin et son rire résonna.
 
 Outre le batelier et ces deux hommes, trois magnifiques femmes se trouvaient également sur le bateau. L'une jouait de la cithare tandis que les deux autres chantaient et dansaient. La barque dérivait le long de la rivière, franchissant un pont de pierre, pour s'éloigner paisiblement vers l'horizon.
 

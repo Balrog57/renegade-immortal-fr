@@ -22,7 +22,7 @@ Cependant, du fond de leur cœur, les cultivateurs du Royaume Intérieur espéra
 
 « Wang Lin, tu dois ouvrir cette porte! » Situ Nan serra les poings, nerveux. Il avait brisé sa propre Porte du Vide et, même avec l'aide de Qing Lin, il en avait souffert. Il savait à quel point la tâche était périlleuse, et la Porte du Vide de Wang Lin était bien plus puissante que la sienne. Cette pensée l'accablait d'inquiétude.
 
-Les yeux du Maître Sud Nuage s'illuminèrent et il prit une profonde inspiration. Il avait déjà pris la décision de déployer toute sa puissance pour aider Wang Lin au moment critique.
+Les yeux du Maître Nan Yunzi s'illuminèrent et il prit une profonde inspiration. Il avait déjà pris la décision de déployer toute sa puissance pour aider Wang Lin au moment critique.
 
 « C'est une porte formée par six essences; nous devons l'aider à la briser à tout prix. Une fois qu'il l'aura ouverte, la culture de Wang Lin deviendra une force d'une puissance extrême pour notre Royaume Intérieur! »
 

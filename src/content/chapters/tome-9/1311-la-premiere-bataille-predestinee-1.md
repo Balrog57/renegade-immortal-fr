@@ -110,4 +110,4 @@ Il se tint près des statues d'Anciens Dieux et inspira profondément. L'aura di
 
 Dans un fracas de craquements, l'ombre vague d'une hache fut violemment expulsée de la poitrine de Wang Lin!
 
-Sans le pouvoir de la Hache Divisatrice du Ciel, la blessure sur sa poitrine se referma rapidement, jusqu'à ce qu'il n'en reste plus aucune trace!
+Sans le pouvoir de la Hache Brise-Ciel, la blessure sur sa poitrine se referma rapidement, jusqu'à ce qu'il n'en reste plus aucune trace!

@@ -60,7 +60,7 @@ Il ne restait plus que treize Pilules d'Âme Sanguine! La plupart étaient entre
 
 À ce moment précis, l'intégralité de l'espace de stockage s'effondra et tout ce qu'il contenait disparut. Il ne fut pas projeté dans le néant, mais totalement annihilé, sans laisser la moindre trace.
 
-Wang Lin se déplaçait à une vitesse prodigieuse sur le fragment où il se cachait. Son corps flascha en rouge sang à neuf reprises alors qu'il fuyait frénétiquement, l'aiguille rouge le talonnant de près.
+Wang Lin se déplaçait à une vitesse prodigieuse sur le fragment où il se cachait. Son corps flasha en rouge sang à neuf reprises alors qu'il fuyait frénétiquement, l'aiguille rouge le talonnant de près.
 
 Cependant, l'instant d'après, l'aiguille rouge cessa sa poursuite et s'effondra couche après couche jusqu'à presque disparaître totalement... Wang Lin ressentit un soulagement et constata que ses vêtements étaient trempés de sueur. Une brise légère le fit instantanément frissonner.
 
@@ -94,7 +94,7 @@ Ces gouttes de sang n'étaient pas totalement immobiles dans le vide, mais conve
 
 Ce processus se poursuivit lentement. Trois mois plus tard, les gouttes de sang initialement dispersées s'étaient rassemblées en un groupe dense. Certaines avaient même commencé à fusionner.
 
-L'âme originelle de l'Ancêtre Sanguin s'éveillait progressivement. Une fois son éveil complet, son taux de récupération augmenterait de façon exponentielle.
+L'âme originelle de l'Ancêtre Sanguin s'éveillait progressivement. Une fois son éveil complet, son taux de récupération augmenterait de plusieurs fois.
 
 Ce jour-là, près de 60 % des gouttes de sang s'étaient rejointes. L'âme originelle de l'Ancêtre Sanguin commença à manifester les signes de son réveil.
 

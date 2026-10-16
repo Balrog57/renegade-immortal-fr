@@ -80,7 +80,7 @@ L'aura de Wang Lin subit une métamorphose radicale. Il ne ressemblait plus à W
 
 En ressentant l'âme de l'Omniscient, Wang Lin perçut clairement son désir pour la brume aux sept couleurs. Cette convoitise était si intense qu'elle expliquait sa tentative de forcer le Sceau Céleste.
 
-« Désir... Je veux voir quelle utilité cette brume peut avoir pour toi! » Les yeux de Wang Lin s'emparent d'un éclat multicolore alors que sa main droite plongeait dans la brume.
+« Désir... Je veux voir quelle utilité cette brume peut avoir pour toi! » Les yeux de Wang Lin révélèrent un éclat multicolore alors que sa main droite plongeait dans la brume.
 
 À cet instant précis, la brume tourbillonna et fut aspirée par la main de Wang Lin. Rapidement, tout le brouillard disparut, mais une nouvelle quantité émana des os de la bête, laquelle fut aussitôt absorbée à son tour.
 
@@ -102,7 +102,7 @@ Quatre rayons de lumière traversèrent le ciel pour atteindre la lisière du Ro
 
 Wang Lin forma un sceau et la méthode de sortie, tirée des souvenirs de Maître Pin Cendré, lui revint en mémoire. Ses mains bougèrent avec une célérité croissante, traçant des runes dans le vide. Une lumière douce émana alors qu'une fissure cachée semblait lentement s'ouvrir.
 
-Cependant, à cet instant même, l'expression de Wang Lin changea. Ses mains se figèrent et il leva la tête vers le ciel ténébreux. Un vortex gigantesque venait d'apparaître de nulle part, semblant provoquer l'effondrement du firmament, les fragments du ciel étant aspirés par la tourbillon.
+Cependant, à cet instant même, l'expression de Wang Lin changea. Ses mains se figèrent et il leva la tête vers le ciel ténébreux. Un vortex gigantesque venait d'apparaître de nulle part, semblant provoquer l'effondrement du firmament, les fragments du ciel étant aspirés par le tourbillon.
 
 Deux regards impitoyables, marqués par les millénaires, émergèrent du vortex et se fixèrent sur Wang Lin!
 

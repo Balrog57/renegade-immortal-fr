@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1518 - Can’t Retreat !!"
 slug: pas-de-retraite-possible
 ---
-Le lieu de la première bataille contre le Royaume Intérieur était le Système d'Étoiles de la Mer Nuageuse! L'endroit qu'ils s'apprêtaient à forcer se trouvait précisément là où Wang Lin passait!
+Le lieu de la première bataille contre le Royaume Intérieur était le Système d'Étoiles de la Mer des Nuages! L'endroit qu'ils s'apprêtaient à forcer se trouvait précisément là où Wang Lin passait!
 
 Les tremblements de la Formation de Scellement du Royaume se propageaient dans le Royaume Intérieur. Wang Lin vit clairement que le réseau qui constituait la formation devenait chaotique, comme si une force tentait de la transpercer!
 
@@ -22,7 +22,7 @@ Cependant, elle jouait un rôle protecteur direct; il était extrêmement diffic
 
 Cependant, Wang Lin n'avait pas de temps à perdre. Il n'était pas nécessaire qu'il prévienne les autres, car les cultivateurs du troisième niveau devaient déjà s'en être rendu compte. Pourtant, il était la personne la plus proche; bien qu'il ne puisse empêcher l'effraction de la formation, il devait se préparer au pire!
 
-Une lueur d'intention meurtrière traversa ses yeux. L'intention meurtrière qu'il avait manifestée en tuant le Daoïste Eau s'était un peu dissipée, mais elle resurgit ici avec force. Son essence de massacre augmentait rapidement!
+Une lueur d'intention meurtrière traversa ses yeux. L'intention meurtrière qu'il avait manifestée en tuant le Shui Daozi s'était un peu dissipée, mais elle resurgit ici avec force. Son essence de massacre augmentait rapidement!
 
 Tuer! Tuer quiconque envahit!
 
@@ -88,7 +88,7 @@ Au moment où l'âme de la formation allait être extraite par le Souverain et q
 
 Des éclairs argentés jaillirent partout, transformant l'ensemble en une formation de foudre. D'innombrables serpents d'argent se rassemblèrent pour former une lance chargée d'une puissance électrique infinie qui fonça vers l'épée de cristal!
 
-Les grondements qui en résultèrent firent trembler les cieux. Lorsque l'épée de cristal percutèrent la lance, une puissance de Flamme Joss infinie jaillit pour contrer l'assaut!
+Les grondements qui en résultèrent firent trembler les cieux. Lorsque l'épée de cristal percuta la lance, une puissance de Flamme Joss infinie jaillit pour contrer l'assaut!
 
 Alors que l'épée et la lance s'affrontaient, un éclat violet surgit. Une lumière pourpre monstrueuse emplit les étoiles; les deux royaumes, intérieur et extérieur, purent la voir distinctement!
 

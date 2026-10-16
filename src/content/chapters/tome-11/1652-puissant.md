@@ -56,7 +56,7 @@ Cela ne prit pas longtemps. Tandis qu'il balayait le système stellaire, de plus
 
 C'était là que se trouvait la femme. Lorsqu'elle remarqua Wang Lin, elle n'osa pas attaquer prématurément mais ne trouva aucun moyen de s'échapper. Elle ne pouvait qu'attendre que Wang Lin arrive pour l'affronter en utilisant cette planète!
 
-La planète était entièrement sous son contrôle grâce à ses âmes de Flamme Originelle. Bien qu'elle ne pût vaincre Wang Lin ici, elle pouvait atteindre son apogée de puissance!
+La planète était entièrement sous son contrôle grâce à ses âmes de Flamme Joss. Bien qu'elle ne pût vaincre Wang Lin ici, elle pouvait atteindre son apogée de puissance!
 
 Un bruit strident retentit sur la planète dès que Wang Lin arriva. À ce signal, les algues commencèrent à croître follement. Elles atteignirent 10 000 pieds, 100 000 pieds, un million, voire dix millions de pieds de long. Et elles continuaient de s'étendre!
 

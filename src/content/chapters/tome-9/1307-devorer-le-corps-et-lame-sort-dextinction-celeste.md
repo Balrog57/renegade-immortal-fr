@@ -40,25 +40,25 @@ Par un immense sacrifice et avec la détermination d'un homme prêt à mourir, i
 
 Au moment où l'attaque arriva, Wang Lin laissa échapper un rire; des éclairs rouges jaillirent de ses yeux pour venir se poser dans sa main droite. Puis, il saisit le Royaume de Ji issu de la divine rétribution.
 
-Dès que l'aura destructrice pénétra son corps, il s'appuya contre la Formation du Domaine Scellé. Il utilisa son corps, extrêmement familier avec le Royaume de Ji, comme un médium pour transférer la puissance du Royaume de Ji sur la Formation du Domaine Scellé.
+Dès que l'aura destructrice pénétra son corps, il s'appuya contre la Formation du Royaume Scellé. Il utilisa son corps, extrêmement familier avec le Royaume de Ji, comme un médium pour transférer la puissance du Royaume de Ji sur la Formation du Royaume Scellé.
 
 La formation gronda et les esprits précieux apparurent pour riposter. À cet instant, une multitude de fils verts surgit et les enchevétra, empêchant les esprits précieux de se manifester!
 
 Le Royaume de Ji provenant de la divine rétribution traversa le corps de Wang Lin et s'engouffra dans la formation avec frénésie. Alors que le corps de Wang Lin était repoussé, la formation agissait comme un filet que Wang Lin était en train d'étirer!
 
-Les yeux de Wang Lin libérèrent des éclairs rouges, puis sa main droite frappa la Formation du Domaine Scellé. Le Royaume de Ji né à l'intérieur de son corps s'échappa et fonça sur la formation.
+Les yeux de Wang Lin libérèrent des éclairs rouges, puis sa main droite frappa la Formation du Royaume Scellé. Le Royaume de Ji né à l'intérieur de son corps s'échappa et fonça sur la formation.
 
 Cette attaque contenait deux Royaumes de Ji. Celui de la divine rétribution et celui de Wang Lin se combinèrent pour créer un impact inimaginable.
 
-À ce moment-là, la quantité de fils verts à l'intérieur de la Formation du Domaine Scellé augmenta. Ils se propagèrent comme des ondulations, causant une destruction massive de la formation.
+À ce moment-là, la quantité de fils verts à l'intérieur de la Formation du Royaume Scellé augmenta. Ils se propagèrent comme des ondulations, causant une destruction massive de la formation.
 
 Les grondements tonitruants continuèrent de résonner. En un instant, la formation en forme de filet, ainsi étirée, montra des signes d'effondrement. Une petite brèche se créa!
 
-Dès l'apparition de l'ouverture, des cris s'élevèrent de la formation. La Hache Divisante du Ciel, que Tuo Sen reconnut comme appartenant à ses ancêtres, apparut!
+Dès l'apparition de l'ouverture, des cris s'élevèrent de la formation. La Hache Brise-Ciel, que Tuo Sen reconnut comme appartenant à ses ancêtres, apparut!
 
 À son apparition, les fils verts sur la formation s'effondrèrent soudainement et commencèrent à résister à la hache.
 
-« Pourquoi ne partez-vous pas? Qu'attendez-vous?! » La voix antique du Seigneur du Domaine Scellé résonna depuis la formation. Au moment où sa voix retentit, la brèche dans la formation se déchira davantage, révélant un trou assez large pour qu'une personne puisse le traverser!
+« Pourquoi ne partez-vous pas? Qu'attendez-vous?! » La voix antique du Seigneur du Royaume Scellé résonna depuis la formation. Au moment où sa voix retentit, la brèche dans la formation se déchira davantage, révélant un trou assez large pour qu'une personne puisse le traverser!
 
 Wang Lin n'hésita pas à réduire la taille de son corps d'Ancien Dieu pour retrouver celle d'un homme ordinaire. Sa main droite saisit Li Qianmei, puis il chargea hors de l'ouverture!
 
@@ -76,7 +76,7 @@ Au moment où l'énergie de la hache se rapprocha, elle trembla comme si elle lu
 
 Le sang jaillit partout et une entaille béante apparut sur sa poitrine. Son visage devint livide et il cracha du sang. Il était déjà gravement blessé par la divine rétribution, et l'impact de la hache aggravait son état. Son âme originelle s'était effondrée et même son corps ne parvenait pas à se régénérer à cause de l'aura d'Ancien Dieu contenue dans la hache!
 
-Le sang continuait de couler et les organes de Wang Lin commençaient à se briser. Sa vision se brouillait, mais il fixa la Formation du Domaine Scellé tout en titubant en arrière.
+Le sang continuait de couler et les organes de Wang Lin commençaient à se briser. Sa vision se brouillait, mais il fixa la Formation du Royaume Scellé tout en titubant en arrière.
 
 À cet instant, la brèche par laquelle Wang Lin était sorti se referma rapidement jusqu'à redevenir parfaite. Cependant, les fils verts chargèrent l'ouverture avec frénésie et semblèrent s'y enraciner!
 
@@ -100,11 +100,11 @@ Ces cultivateurs du Royaume Extérieur possédaient des niveaux de culture vari�
 
 Des centaines de cultivateurs convergèrent!
 
-« Vous cherchez tous la mort! » Wang Lin était très faible et gravement blessé, mais ses yeux restaient glacials. C'était le Royaume Extérieur, un lieu qu'il n'avait jamais visité auparavant. C'était l'endroit que tous les ancêtres du Domaine Scellé voulaient atteindre, d'après ce qu'il avait vu dans le Royaume aux Sept Couleurs!
+« Vous cherchez tous la mort! » Wang Lin était très faible et gravement blessé, mais ses yeux restaient glacials. C'était le Royaume Extérieur, un lieu qu'il n'avait jamais visité auparavant. C'était l'endroit que tous les ancêtres du Royaume Scellé voulaient atteindre, d'après ce qu'il avait vu dans le Royaume aux Sept Couleurs!
 
 « Un jour viendra où une future génération de cultivateurs brisera cette formation et fera disparaître tous vous, les étrangers! Des rivières de sang couleront dans votre Royaume Extérieur! »
 
-Le rugissement de cet être céleste résonna clairement dans les oreilles de Wang Lin, et son regard devint de plus en plus froid. Il observa le système stellaire étranger devant lui et la Formation du Domaine Scellé qui s'estompait derrière lui. Un seul royaume d'écart représentait une éternité pour beaucoup!
+Le rugissement de cet être céleste résonna clairement dans les oreilles de Wang Lin, et son regard devint de plus en plus froid. Il observa le système stellaire étranger devant lui et la Formation du Royaume Scellé qui s'estompait derrière lui. Un seul royaume d'écart représentait une éternité pour beaucoup!
 
 Les cultivateurs du Royaume Extérieur se rapprochèrent en un instant. Leurs expressions féroces et leurs yeux empreints de soif de sang envahirent le champ de vision de Wang Lin.
 
@@ -124,7 +124,7 @@ Les expressions de tous les cultivateurs environnants changèrent à cet instant
 
 Le brouillard noir fusionna avec le monde et disparut, ne laissant derrière lui que le cultivateur qui avait été pris pour cible. Celui-ci n'était plus qu'un sac d'os aux yeux hagards. Une terreur monstrueuse restait figée sur son visage, et son corps était totalement vidé de sa substance. Il s'effondra et se dissipa.
 
-Le cauchemar ne faisait que commencer pour les cultivateurs du Royaume Extérieur qui gardaient la Formation du Domaine Scellé!
+Le cauchemar ne faisait que commencer pour les cultivateurs du Royaume Extérieur qui gardaient la Formation du Royaume Scellé!
 
 Wang Lin, désormais entré dans le Royaume Extérieur et capable d'utiliser la Distorsion Spatiale ainsi que ce sort céleste dévorant, était devenu leur pire cauchemar!
 

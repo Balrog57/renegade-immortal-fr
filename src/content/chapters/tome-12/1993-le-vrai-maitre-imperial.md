@@ -24,6 +24,8 @@ Une quantité massive de sang doré se répandit et forma une rune dorée devant
 
 Au moment où la rune dorée finit de consumer, le Maître Impérial, qui possédait le corps de Wang Lin, trembla. Le sceau qui avait réprimé son clan Dao Wang pendant d'innombrables générations venait de disparaître.
 
+Au moment où le sceau fut levé, des larmes de joie coulèrent des yeux du Maître Impérial. C'était le but de toute sa vie : il avait tout sacrifié pour lever ce sceau, afin que son clan puisse échapper à ce destin scellé dès la naissance!
+
 Dès que le sceau fut levé, la puissance de l'Empereur Céleste s'engouffra en lui. Elle pénétra le corps de Wang Lin et effaça sans effort l'existence du Maître Impérial!
 
 C'était l'ultime atout de l'Empereur Céleste: il ne laisserait pas le Maître Impérial subsister après la levée du sceau. L'instant où le sceau se brisait était celui de la mort du Maître Impérial.
@@ -96,7 +98,7 @@ Pourtant, alors qu'il était sur le point de réussir l'absorption du pouvoir de
 
 « Qu'est-ce que c'est que ce délire? C'est impossible! Si vous êtes vraiment le Maître Impérial, comment avez-vous pu quitter la cité ancestrale?! Jiu Di, répondez-moi! » L'Empereur Céleste prit une profonde inspiration. Bien qu'il fût sur le point de sombrer dans la démence, il parvint à se calmer par la force de sa volonté!
 
-« Ce plan fut conçu par un génie de mon clan. Il n'hésita pas à agir de manière à sembler se séparer du clan. Il multiplia les méthodes jusqu'à réussir à quitter ce lieu et à fonder la Grande Secte de l'Âme... »
+« Ce plan fut conçu par un génie de mon clan. Il n'hésita pas à agir de manière à sembler se séparer du clan. Il multiplia les méthodes jusqu'à réussir à quitter ce lieu et à fonder la Secte de la Grande Âme... »
 
 « Bien qu'il soit mort, il perfectionna le plan et le transmit. Il trouva également la clé de ce dessein: un individu nommé Wang Lin! Un cultivateur d'un monde caverneux... Seul son corps pouvait être parfaitement possédé par un membre de mon clan pour permettre l'exécution parfaite de ce plan... »
 

@@ -1,6 +1,6 @@
 ---
 n: 717
-title: "S'echapper vivant"
+title: "S'échapper vivant"
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 717 - Escaping alive
@@ -13,7 +13,7 @@ Ce doigt illusoire semblait être issu du Dao céleste; il était comme une exte
 
 Ce n'était pas un simple Dao qu'un cultivateur pouvait appréhender. En réalité, il était infiniment plus puissant que tout ce qu'un individu pouvait concevoir!
 
-Bien que le sommet de la culture de Cupidité ne fût que l'Illusion Yin, ses connexions étaient extraordinaires. Il connaissait de nombreux êtres du second échelon, et possédait donc de nombreux secrets sur ce stade de culture.
+Bien que le sommet de la culture de Cupidité ne fût que le Yin Illusoire, ses connexions étaient extraordinaires. Il connaissait de nombreux êtres du second échelon, et possédait donc de nombreux secrets sur ce stade de culture.
 
 Il fut capable de discerner d'un seul regard le Dao terrifiant contenu dans ce doigt.
 

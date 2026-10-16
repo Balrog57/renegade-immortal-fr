@@ -10,9 +10,9 @@ Le regard de Wang Lin devint sérieux alors qu'il fixait la paume géante dans l
 
 Cette empreinte ressemblait énormément à l'Empreinte de l'Esprit Guerrier que Wang Lin connaissait, mais elle présentait des différences subtiles. L'Empreinte de l'Esprit Guerrier qu'il maîtrisait était une paume massive sans contours précis. Dès son apparition, elle absorbait une quantité colossale d'énergie originelle pour grandir démesurément. Elle possédait un pouvoir terrifiant, mais n'était pas facile à contrôler. À mesure que l'Empreinte grandissait et absorbait davantage de puissance, il finissait inévitablement par en perdre le contrôle.
 
-Wang Lin savait que cela était dû au fait qu'il n'avait pas obtenu l'héritage complet, mais qu'il n'avait appris la technique qu'en l'observant. La véritable Empreinte de l'Esprit Guerrier utilisée par le Daoïste Shui ne présentait pas ce défaut.
+Wang Lin savait que cela était dû au fait qu'il n'avait pas obtenu l'héritage complet, mais qu'il n'avait appris la technique qu'en l'observant. La véritable Empreinte de l'Esprit Guerrier utilisée par le Shui Daozi ne présentait pas ce défaut.
 
-Cependant, même celle du Daoïste Shui n'avait pas une empreinte aussi nette que celle de ce fou. Il n'y avait pas non plus de ces étranges ondulations le long de ses bords. Ces vibrations ressemblaient à la technique la plus puissante de la Tortue Noire! Le pouvoir de vibration!
+Cependant, même celle du Shui Daozi n'avait pas une empreinte aussi nette que celle de ce fou. Il n'y avait pas non plus de ces étranges ondulations le long de ses bords. Ces vibrations ressemblaient à la technique la plus puissante de la Tortue Noire! Le pouvoir de vibration!
 
 Tandis qu'il observait, l'expression de Wang Lin se fit grave. Il vit l'Empreinte de l'Esprit Guerrier s'abattre directement sur le sol, faisant trembler la terre. Une onde de choc souleva un nuage de poussière qui enveloppa toute la zone.
 

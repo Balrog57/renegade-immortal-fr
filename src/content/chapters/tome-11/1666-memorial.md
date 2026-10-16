@@ -32,7 +32,7 @@ Bien qu'ils ne fussent pas de véritables êtres célestes du Continent Astral I
 
 Lors des multiples invasions du Royaume Extérieur, beaucoup tombèrent. Bien que Wang Lin gardât la tête inclinée, il pouvait ressentir ces âmes funèbres.
 
-Il se souvenait distinctement de la première fois où il avait vu la statue du Clan de la Foudre Dispersée lors de son entrée dans le Royaume aux Sept Couleurs. En plongeant dans les souvenirs de la statue, il avait vu ces êtres célestes se précipiter contre la Formation de Scellement du Royaume, pour mourir un à un.
+Il se souvenait distinctement de la première fois où il avait vu la statue du Clan du Tonnerre Dispersé lors de son entrée dans le Royaume aux Sept Couleurs. En plongeant dans les souvenirs de la statue, il avait vu ces êtres célestes se précipiter contre la Formation de Scellement du Royaume, pour mourir un à un.
 
 Aujourd'hui, pour la première fois depuis leur trépas, ces âmes célestes étaient rappelées du vide.
 
@@ -92,13 +92,13 @@ Pourtant, au moment même où il s'inclinait, son expression se crispa de douleu
 
 « Je peux vous aider, mais vous ne m'empêcherez pas de saluer ces âmes qui me plongent dans la culpabilité! » Le Vieux Fantôme Zhan serra les dents, prononçant chaque mot avec force. Il ignora la puissance qui tentait de le contraindre et acheva sa révérence.
 
-Simultanément, dans la Rivière des Invocations, sur un météore que même Wang Lin avait remarqué grâce à son Sens Divin, l'Omniscient ouvrit lentement les yeux.
+Simultanément, dans la Rivière Invoquée, sur un météore que même Wang Lin avait remarqué grâce à son Sens Divin, l'Omniscient ouvrit lentement les yeux.
 
 Son expression était sereine. Il nota les âmes invoquées depuis les étoiles et médita en silence. Après un long moment, il sortit du météore et se tint là, contemplant l'innombrable procession.
 
 « Je devrais être le premier à retrouver la mémoire... Pourtant, j'étais aussi un cultivateur du Royaume Intérieur... Vous méritez tous une révérence de la part de ce vieil homme. » L'Omniscient soupira et, d'un mouvement de manche, s'inclina devant les étoiles.
 
-Toujours dans la Rivière des Invocations, il y avait une personne que même l'Omniscient n'avait pas remarquée. C'était le jeune homme issu de la rétribution divine de Wang Lin, provenant de la faille menant au Royaume Céleste Antique.
+Toujours dans la Rivière Invoquée, il y avait une personne que même l'Omniscient n'avait pas remarquée. C'était le jeune homme issu de la rétribution divine de Wang Lin, provenant de la faille menant au Royaume Céleste Antique.
 
 Il était assis, son corps flou et indistinct, impossible à saisir clairement.
 

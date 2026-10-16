@@ -1,6 +1,6 @@
 ---
 n: 1025
-title: "L'Ancêtre Divin du Clan des Tatouages"
+title: "L'Ancêtre Divin du Clan du Tatouage"
 book: 8
 bookTitle: "Alliance's Secret"
 en: Chapter 1025 - Tattoo Clan Divine Ancestor
@@ -110,7 +110,7 @@ Maître du Vide prit une profonde inspiration en fixant l'Omniscient en robe gri
 
 « Ce qui est encore plus effrayant, c'est ce pouvoir terrifiant de la Loi qui lui permet de tout prévoir. S'il est redoutable lorsqu'il massacre, c'est son regard capable de tout percer lorsqu'il ne combat pas qui a captivé l'attention de l'Alliance... » Maître du Vide observa l'Omniscient en robe grise, puis le corps originel de l'Omniscient qui avait sauvé Ling Tianhou.
 
-« C'est uniquement parce que ce Frère Aîné craignait cet homme qu'il a sacrifié sa vie et accepté que son troisième Fléau Céleste arrive prématurément pour lancer un sort puissant utilisant Ling Tianhou afin de briser son cœur Dao. Cela a créé une faille dans son cœur Dao lors de son deuxième Fléau Céleste, faisant éclater son cœur en d'innombrables morceaux et l'empêchant de fusionner!
+« C'est uniquement parce que ce Senior Frère craignait cet homme qu'il a sacrifié sa vie et accepté que son troisième Fléau Céleste arrive prématurément pour lancer un sort puissant utilisant Ling Tianhou afin de briser son cœur Dao. Cela a créé une faille dans son cœur Dao lors de son deuxième Fléau Céleste, faisant éclater son cœur en d'innombrables morceaux et l'empêchant de fusionner!
 
 Sinon, l'Omniscient aurait atteint un niveau terrifiant aujourd'hui. S'il n'est pas encore au troisième stade, il n'en est pas loin! »
 
@@ -128,9 +128,9 @@ Puis l'Omniscient s'éleva du vortex et flotta dans les airs. Hormis ceux qui av
 
 La femme s'arrêta à 2 000 pieds de tout le monde. Elle leva ses orbites vides comme pour sonder l'assemblée. Du sang noir s'écoulait encore de ses yeux et coulait le long de son menton.
 
-« Existe-t-il encore des descendants du clan des Tatouages? » Une voix rauque sortit de sa bouche, empreinte d'un pouvoir mystérieux. Bien que rauque, elle était mélodieuse et semblait résonner longuement à l'oreille.
+« Existe-t-il encore des descendants du clan du Tatouage? » Une voix rauque sortit de sa bouche, empreinte d'un pouvoir mystérieux. Bien que rauque, elle était mélodieuse et semblait résonner longuement à l'oreille.
 
-Face à cette question soudaine, personne n'osa parler. Après un long silence, Maître du Vide prit une expression respectueuse et déclara: « Il reste encore de nombreux membres du clan des Tatouages en vie. »
+Face à cette question soudaine, personne n'osa parler. Après un long silence, Maître du Vide prit une expression respectueuse et déclara: « Il reste encore de nombreux membres du clan du Tatouage en vie. »
 
 La femme resta pensive et poussa un soupir. Elle avait lutté pour sortir des profondeurs du Bassin de l'Enterrement Céleste pour n'autre chose que poser cette question et voir une seule personne. Ses orbites vides semblèrent libérer un regard invisible qui se posa sur Wang Lin.
 

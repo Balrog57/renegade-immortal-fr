@@ -86,7 +86,7 @@ Les yeux du fou brillèrent d'excitation alors qu'il pénétrait dans la pièce.
 
 Le jeune homme fronça les sourcils et répondit froidement: « Ce pauvre taoïste se nomme Fan Huazi. »
 
-À l'extérieur de la pièce, Xu Liguo se frotta les mains, visiblement exalté. Il sourit à Liu Jinbiao: « Vieux Liu, ton stratagème est excellent. Les dizaines de réseaux de transfert précédents nous ont déjà rapporté une fortune en sang. Sois tranquille, selon notre accord, nous partagerons le butin à 7 pour 3! »
+À l'extérieur de la pièce, Xu Liguo se frotta les mains, visiblement exalté. Il sourit à Liu Jinbiao: « Vieux Liu, ton stratagème est excellent. La douzaine de réseaux de transfert précédents nous ont déjà rapporté une fortune en sang. Sois tranquille, selon notre accord, nous partagerons le butin à 7 pour 3! »
 
 Liu Jinbiao sourit en secouant la tête: « Ce n'est pas un stratagème. Ce vieil homme n'a jamais trompé de fou. Les précédents étaient tous des cultivateurs de haut niveau, extrêmement rusés. Pour les duper, il me fallait une machination sans faille. »
 

@@ -1,6 +1,6 @@
 ---
 n: 1740
-title: Frère aîné Ma!
+title: Senior Frère Ma!
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: Senior Brother Ma!
@@ -10,7 +10,7 @@ Les paroles du vieil homme du troisième étage résonnèrent à travers le mond
 
 Il affichait d'ordinaire un air très décontracté, mais ce n'était qu'en apparence. Sa fierté était profondément ancrée en lui, et c'est précisément pour cette raison qu'il ne daignait pas humilier autrui par la parole.
 
-Il considérait de tels agissements comme étant beneath lui.
+Il considérait de tels agissements comme étant indignes de lui.
 
 Yun Yifeng fronça les sourcils en regardant Wang Lin, puis laissa échapper un bâillement. Il recula sur le côté et ignora ce qui se passait.
 
@@ -24,7 +24,7 @@ Une fois sorti, il agita la main droite vers la tour, faisant apparaître un éc
 
 « S'introduire sur la Planète des Cinq Éléments et inverser la Roue du Cœur... Tu as du cran, gamin. Puisque tu es venu aujourd'hui, ne repars pas si vite. Je vais te faire comprendre qu'il y a des lieux où ton clan du Dao Antique ne peut pas pénétrer! » Le vieil homme fixa Wang Lin d'un regard glacial.
 
-« Je te capturerai, puis je laisserai ton aîné venir assumer tes péchés! » Il ignorait que Wang Lin provenait du Monde des Grottes. Après avoir constaté la puissance du Dao Antique de Wang Lin, il supposa que celui-ci venait également du Continent Astral Immortel, tout comme eux!
+« Je te capturerai, puis je laisserai ton Senior venir assumer tes péchés! » Il ignorait que Wang Lin provenait du Monde des Grottes. Après avoir constaté la puissance du Dao Antique de Wang Lin, il supposa que celui-ci venait également du Continent Astral Immortel, tout comme eux!
 
 Il ne pensait pas que Wang Lin soit venu seul; d'autres membres du clan du Dao Antique étaient probablement présents. Il était fort probable qu'ils ne fussent pas là pour le trésor, mais pour trouver Ye Mo!
 
@@ -110,9 +110,9 @@ Ce colosse de bois mesurait des dizaines de milliers de pieds de haut et envelop
 
 La terre forma un vortex sous les pieds de Wang Lin tandis qu'une tempête de sable l'encerclait. D'innombrables grains de sable tourbillonnaient, tentant de déchiqueter son corps!
 
-Au cœur de la tempête, Wang Lin restait calme. Tout cela était prévu. Tandis que le sable l'enveloppait et que le coup du géant approchait, Wang Lin ferma les yeux et se recroquevilla. Le Sortilège Ancestral Immortel enveloppa son corps.
+Au cœur de la tempête, Wang Lin restait calme. Tout cela était prévu. Tandis que le sable l'enveloppait et que le coup du géant approchait, Wang Lin ferma les yeux et se recroquevilla. Le Sort de l'Ancien Immortel enveloppa son corps.
 
-À l'extérieur de la Planète des Cinq Éléments, le Grand Empereur Xuan Luo observait la scène. Il avait lancé le test de Wang Lin depuis longtemps, et à cet instant, il était très satisfait. Une lueur étrange passa dans ses yeux.
+À l'extérieur de la Planète des Cinq Éléments, le Grand Empyréen Xuan Luo observait la scène. Il avait lancé le test de Wang Lin depuis longtemps, et à cet instant, il était très satisfait. Une lueur étrange passa dans ses yeux.
 
 « C'est un sortilège similaire au Corps Céleste Immortel... Que va-t-il bien faire... »
 
@@ -132,7 +132,7 @@ Sa vitesse était prodigieuse. En plus de son propre Dao Ancestral et de sa cult
 
 Cependant, grâce à la protection du Sort de l'Ancien Immortel, tant que la durée ne se prolongeait pas trop, son corps ne serait pas détruit!
 
-En empruntant la puissance de l'adversaire, sa vitesse avait surpassé celle d'un cultivateur du Vide Arcane pour atteindre celle de quelqu'un ayant traversé plusieurs Tribulations Arcanes. La Planète des Cinq Éléments semblait sur le point de s'effondrer; la seule chose visible était le rayon de lumière que Wang Lin formait, comme s'il s'apprêtait à surgir du monde caverneux!
+En empruntant la puissance de l'adversaire, sa vitesse avait surpassé celle d'un cultivateur du Vide Arcanique pour atteindre celle de quelqu'un ayant traversé plusieurs Tribulations Arcanes. La Planète des Cinq Éléments semblait sur le point de s'effondrer; la seule chose visible était le rayon de lumière que Wang Lin formait, comme s'il s'apprêtait à surgir du monde caverneux!
 
 Ce rayon de lumière chargea vers la tour protégée par la barrière lumineuse et percuta l'obstacle. Wang Lin s'était utilisé lui-même comme le trésor le plus puissant pour briser la protection de la tour!
 
@@ -190,13 +190,13 @@ Wang Lin recula rapidement en crachant du sang. L'Épée de Sang était sur le p
 
 C'était le vieil homme du deuxième étage. Il était sorti pour capturer l'épée! Peu importe les efforts de la lame pour se libérer, elle restait prise dans sa poigne!
 
-À l'extérieur de la tour, le vieil homme portant l'armure des éléments bois et terre affichait une expression d'un respect extrême. Il joignit les mains et déclara: « Salutations, Frère Aîné Ma. »
+À l'extérieur de la tour, le vieil homme portant l'armure des éléments bois et terre affichait une expression d'un respect extrême. Il joignit les mains et déclara: « Salutations, Senior Frère Ma. »
 
 « Salutations, Oncle Ma. » Le fier Yun Yifeng était lui aussi sous le choc. Ses yeux brillaient d'une révérence fiévreuse tandis qu'il saluait respectueusement.
 
-« Salutations, Frère Aîné Ma. » Les trois autres personnes, immobilisées par l'explosion de l'Ombre du Dao Ancestral, joignirent également les mains avec déférence.
+« Salutations, Senior Frère Ma. » Les trois autres personnes, immobilisées par l'explosion de l'Ombre du Dao Ancestral, joignirent également les mains avec déférence.
 
-Wang Lin, reculant dans la distance, observa la scène. Il comprit qu'il avait forcé tous les cultivateurs étrangers à se dévoiler. Cet homme nommé Ma ressemblerait exactement à Na Duo s'il était plus jeune. Il était évident qu'il s'agissait de l'individu aperçu au sein du Clan de la Foudre Dispersée; il était le chef de ce groupe de cultivateurs étrangers!
+Wang Lin, reculant dans la distance, observa la scène. Il comprit qu'il avait forcé tous les cultivateurs étrangers à se dévoiler. Cet homme nommé Ma ressemblerait exactement à Na Duo s'il était plus jeune. Il était évident qu'il s'agissait de l'individu aperçu au sein du Clan du Tonnerre Dispersé; il était le chef de ce groupe de cultivateurs étrangers!
 
 Les masques étaient tombés, rien n'était plus caché. Wang Lin ayant tout vu, il n'avait aucune intention de rester!
 
@@ -242,6 +242,6 @@ Cette admission fit froncer les sourcils de l'homme nommé Ma, le plongeant dans
 
 « Rendez l'épée d'ici trois respirations! » Une lueur glaciale passa dans les yeux de Wang Lin.
 
-Trois respirations passèrent en un instant. Finalement, le vieillard retira son pied et projeta l'Épée de Sang vers Wang Lin. Ce dernier ne la rattrapa pas, laissant la Bête du Néant illusoire la dévorer.
+Trois respirations passèrent en un instant. Finalement, le vieillard retira son pied et projeta l'Épée de Sang vers Wang Lin. Ce dernier ne la rattrapa pas, laissant la Bête des Limbes illusoire la dévorer.
 
 « Adieu! » Wang Lin joignit les mains et prit congé. D'un seul pas, il quitta la Planète des Cinq Éléments pour plonger dans le vide!

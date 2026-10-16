@@ -74,7 +74,7 @@ L'homme sembla jeter un dernier regard vers Xu Yun avant de disparaître de son 
 
 Le singe fut totalement raffiné par les flammes et se transforma en une étrange force d'âme. Lorsque cette force pénétra l'âme originelle de Xu Yun, elle ne put plus penser à la silhouette blanche. En absorbant cette puissance, Xu Yun entra progressivement dans un état étrange, semblable au Royaume du Shi.
 
-Dans cet état, la compréhension du Dao et des cieux émanait de cette mystérieuse force d'âme qui infusait son essence. Ce singe n'était pas une bête ordinaire, mais une bête spirituelle unique à la Mer Nuageuse. Ces bêtes cultivaient également le Dao et comprenaient les lois célestes, tout comme les humains.
+Dans cet état, la compréhension du Dao et des cieux émanait de cette mystérieuse force d'âme qui infusait son essence. Ce singe n'était pas une bête ordinaire, mais une bête spirituelle unique à la Mer des Nuages. Ces bêtes cultivaient également le Dao et comprenaient les lois célestes, tout comme les humains.
 
 Grâce à leur longévité naturelle, elles possédaient un avantage sur les cultivateurs pour atteindre l'illumination. Ce singe avait vécu plus de 3 000 ans. En capturant son âme et en la fusionnant avec des techniques d'alchimie, on avait créé cette Pilule de Séparation de l'Âme et de la Mort!
 
@@ -84,13 +84,13 @@ Xu Yun regarda soudainement derrière elle, mais il n'y avait personne. Elle ét
 
 Après avoir médité en silence, l'expression de Xu Yun devint sombre. Elle fixait le vide, hantée par cette image. Elle eut une sensation, non pas celle d'une cultivatrice, mais celle d'une femme: elle semblait... avoir déjà vu cette silhouette auparavant...
 
-« Était-ce une illusion... Cheveux blancs... Cheveux blancs... » Les yeux de Xu Yun s'illuminèrent soudainement. Elle se remémora ce que son maître lui avait dit concernant les derniers mots de l'Ancêtre après l'usage du Grand Sort de Bénéficence Spirituelle.
+« Était-ce une illusion... Cheveux blancs... Cheveux blancs... » Les yeux de Xu Yun s'illuminèrent soudainement. Elle se remémora ce que son maître lui avait dit concernant les derniers mots de l'Ancêtre après l'usage du Grand Sortilège de Bienveillance Spirituelle.
 
 « Le Nord... Cheveux blancs... » La poitrine de Xu Yun se soulevait avec précipitation et sa respiration devint rauque. Elle s'élança immédiatement hors de sa demeure et s'envola vers son maître.
 
 Wang Lin, posté près de la fenêtre, vit le rayon de lumière disparaître dans la nuit. Une illumination traversa son cœur.
 
-« Je ne pensais pas... qu'une telle pilule puisse exister dans la Mer Nuageuse... Cela signifie que plus la bête spirituelle est puissante, plus elle est utile pour aider l'âme à atteindre l'illumination... C'est très différent de Luotian et de l'Alliance. » En réfléchissant, Wang Lin se souvint soudainement de l'âme de bête que le maître de Mo Zhi avait raffinée et lui avait offerte en cadeau lorsqu'il était à la Secte Divine du Oiseau Vermillon...
+« Je ne pensais pas... qu'une telle pilule puisse exister dans la Mer des Nuages... Cela signifie que plus la bête spirituelle est puissante, plus elle est utile pour aider l'âme à atteindre l'illumination... C'est très différent de Luotian et de l'Alliance. » En réfléchissant, Wang Lin se souvint soudainement de l'âme de bête que le maître de Mo Zhi avait raffinée et lui avait offerte en cadeau lorsqu'il était à la Secte Divine du Oiseau Vermillon...
 
 À cet instant, dans la région de rang 5 non loin du Continent de Mo Luo, une créature au corps semblable à un têtard noir, large de mille pieds, volait lentement à travers les brumes stellaires.
 
@@ -100,7 +100,7 @@ Deux personnes se tenaient sur sa tête. L'une était un jeune homme vêtu d'une
 
 Derrière le jeune homme se tenait un vieil homme. Il restait calme avec une expression respectueuse, mais lorsqu'il regardait le jeune homme, on pouvait lire une trace d'affection protectrice dans ses yeux.
 
-« Non seulement je veux que Lu Yanfei devienne ma concubine de culture, mais je vais faire de la Secte Origin mon palais intérieur! Oncle Song, quel est votre degré de confiance? »
+« Non seulement je veux que Lu Yanfei devienne ma concubine de culture, mais je vais faire de la Secte de l'Origine mon palais intérieur! Oncle Song, quel est votre degré de confiance? »
 
 « Si ce vieux taoïste n'était pas mort, je n'en aurais aucune certitude, mais à présent, j'en suis sûr à cent pour cent! » Une lueur de froideur passa dans les yeux du vieil homme.
 

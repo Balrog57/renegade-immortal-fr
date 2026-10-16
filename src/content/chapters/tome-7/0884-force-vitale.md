@@ -14,7 +14,7 @@ Cette onde était d'une puissance phénoménale. Lorsqu'elle atteignit la surfac
 
 Une lueur rouge clignota dans l'œil droit de Qing Shui. Il baissa le regard vers la terre devant lui, mais son expression resta imperturbable.
 
-Le vieil homme Xiang dit respectueusement: « La bataille entre le système stellaire Luotian et le système stellaire de l'Alliance a commencé. Cet individu a remporté le premier rang lors de la compétition des titres célestes et a obtenu une promesse de notre famille Xiang. Cependant, ce qu'il réclame est une chose que ce junior ne peut accomplir. J'espérais que Senior accepterait d'utiliser le sort Qi Xi! »
+Le vieil homme Xiang dit respectueusement: « La bataille entre le système stellaire Luotian et le système stellaire de l'Alliance a commencé. Cet individu a remporté le premier rang lors de la compétition des titres célestes et a obtenu une promesse de notre famille Xiang. Cependant, ce qu'il réclame est une chose que Junior ne peut accomplir. J'espérais que Senior accepterait d'utiliser le sort Qi Xi! »
 
 À peine Xiang Yundong eut-il fini de parler que Wang Lin sentit immédiatement un Sens Divin inimaginable se verrouiller sur lui. Horrifié, il se força à ne pas reculer et tenta de retrouver son calme autant que possible.
 
@@ -32,7 +32,7 @@ Wang Lin acquiesça et lança un regard à Qing Shui.
 
 L'œil droit de Qing Shui brilla d'un rouge éclatant et il déclara calmement: « Si quiconque ose te blesser, alors des rivières de sang issues de ceux nommés Xiang couleront sur la planète Dong Lin. » Bien que sa voix fût légère, elle était empreinte d'une intention meurtrière glaciale. Xiang Yundong fronça les sourcils et ne put que sourire amèrement en silence.
 
-Wang Lin laissa poindre une pointe de gratitude. Dans sa vie, il n'y avait eu peu de personnes envers qui il éprouvait de la reconnaissance. Situ, Zhou Yi, Dun Tian... et maintenant Qing Shui!
+Wang Lin laissa poindre une pointe de gratitude. Dans sa vie, il n'y avait eu peu de personnes envers qui il éprouvait de la reconnaissance. Situ, Zhou Yi, Dun Tian[1]... et maintenant Qing Shui!
 
 Wang Lin prit une profonde inspiration, salua respectueusement Qing Shui et Xiang Yundong en joignant les mains, puis se retourna pour s'enfoncer dans le ravin!
 
@@ -129,3 +129,4 @@ Les yeux de Wang Lin devinrent ternes, et sa faiblesse s'intensifia décuplement
 C'était comme si une puissance lui faisait signe, voulant l'emporter avec elle.
 
 Après avoir pratiqué la culture pendant plus de 1 000 ans, comment Wang Lin aurait-il pu ignorer cette force... C'était le cycle de réincarnation des cieux. Il ne lui restait plus beaucoup de temps, et le cycle de réincarnation céleste commençait à l'appeler. Tout comme ce fut le cas pour Li Muwan. Lorsque sa durée de vie s'éteindrait, il mourrait!
+

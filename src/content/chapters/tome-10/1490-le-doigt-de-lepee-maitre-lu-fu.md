@@ -22,7 +22,7 @@ Au même instant, des éclairs jaillirent de l'œil droit de Wang Lin, brillant 
 
 « Personne sous le troisième pas ne peut résister à un seul coup de cette épée! Puisque tu ne peux quitter ta terre natale, je te donne cette arme pour te protéger! Si quiconque ose te manquer de respect, tranche-le avec elle! » Wang Lin fit un geste de la main droite et l'épée vola vers le corps de Xi Zifeng, devenant son trésor de vie!
 
-« Tea... Maître fera une dernière chose pour toi... Tu as un frère aîné sur la planète Qing Ling. Si tu as besoin d'aide, suis cette épée... Xi Zifeng... » Wang Lin regarda la femme devant lui.
+« Ma... Maître fera une dernière chose pour toi... Tu as un Senior Frère sur la planète Qing Ling. Si tu as besoin d'aide, suis cette épée... Xi Zifeng... » Wang Lin regarda la femme devant lui.
 
 La femme mordit sa lèvre inférieure et leva silencieusement la tête vers lui. Leurs regards se rencontrèrent, et dans ses yeux résidaient huit cents ans d'un amour profondément enfoui... Wang Lin resta silencieux un instant, le regard empreint de gravité. Il poussa un soupir avant de se détourner et de s'éloigner.
 

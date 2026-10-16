@@ -28,9 +28,9 @@ D'une rotation presque imperceptible, elle s'accéléra de plus en plus jusqu'à
 
 Ce changement modifia immédiatement l'expression des cultivateurs aux alentours. Les yeux du Maître Simo se remplirent de terreur alors qu'il levait soudainement les yeux vers le ciel.
 
-La main du Grand Maître Yun Luo était encore en train de former des sceaux quand, dans un fracas assourdissant, sa main droite fut réduite en une masse sanglante. Son corps fut projeté en arrière, son visage pâlit et elle cracha une bouchée de sang.
+La main de la Grande Maîtresse Yun Luo était encore en train de former des sceaux quand, dans un fracas assourdissant, sa main droite fut réduite en une masse sanglante. Son corps fut projeté en arrière, son visage pâlit et elle cracha une bouchée de sang.
 
-« Le soulèvement de la Planète du Grand Empereur... une calamité va s'abattre sur le Système Stellaire Antique! » trembla le Grand Maître Yun Luo, reculant avec effroi dans les yeux.
+« Le soulèvement de la Planète du Grand Empereur... une calamité va s'abattre sur le Système Stellaire Antique! » trembla la Grande Maîtresse Yun Luo, reculant avec effroi dans les yeux.
 
 Sa divination venait d'atteindre un point critique et elle était sur le point de percer la vérité lorsque, surgissant de nulle part, une force fit exploser sa main droite.
 
@@ -50,7 +50,7 @@ Alors que ce cri résonnait, à l'instant de sa mort, la silhouette floue sembla
 
 Ce regard devint son cauchemar!
 
-Le Grand Maître Yun Luo cracha de nouveau du sang et recula de plusieurs centaines de pieds. Elle n'avait jamais ressenti une telle terreur auparavant.
+La Grande Maîtresse Yun Luo cracha de nouveau du sang et recula de plusieurs centaines de pieds. Elle n'avait jamais ressenti une telle terreur auparavant.
 
 Le Maître du Dao Miao Yin bondit également, dissipant le nuage sous ses pieds. Il saisit son éventail et, alors que son sens divin se déployait, son expression changea instantanément.
 
@@ -80,7 +80,7 @@ Les yeux du vieil Oiseau Vermillon se remplirent de choc et il laissa échapper 
 
 « Ceci est... » L'expression du Maître Simo trahissait une terreur pure. Il était hébété, incapable de comprendre ce qui se jouait à l'intérieur de l'encens terrestre!
 
-Quant à la pâle Grand Maître Yun Luo, lorsqu'elle vit le brouillard magnétique pénétrer l'encens, la peur dans ses yeux redoubla d'intensité!
+Quant à la pâle Grande Maîtresse Yun Luo, lorsqu'elle vit le brouillard magnétique pénétrer l'encens, la peur dans ses yeux redoubla d'intensité!
 
 « Serait-ce... serait-il possible que cette silhouette floue soit lui!?! »
 

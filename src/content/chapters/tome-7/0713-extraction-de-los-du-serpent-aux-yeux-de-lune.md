@@ -12,9 +12,9 @@ La valeur de cet objet ne se révélerait qu'au moment où le Serpent aux yeux d
 
 Plus le Serpent aux yeux de lune était grand, plus l'explosion serait dévastatrice!
 
-C'était la raison pour laquelle on ne trouvait jamais de restes de Serpents aux Yeux de Lune morts!
+C'était la raison pour laquelle on ne trouvait jamais de restes de Serpents aux yeux de lune morts!
 
-Cette Fleur de Lune était ce que les Serpents aux Yeux de Lune chérissaient par-dessus tout. Si quoi que ce soit mettait la Fleur de Lune en péril, cela exaspérerait le Serpent au point de vouloir éradiquer toute menace.
+Cette Fleur de Lune était ce que les Serpents aux yeux de lune chérissaient par-dessus tout. Si quoi que ce soit mettait la Fleur de Lune en péril, cela exaspérerait le Serpent au point de vouloir éradiquer toute menace.
 
 « J'ai entendu dire que Cupidité ne va nulle part s'il n'y a pas de trésors à trouver. Se pourrait-il qu'il ait confondu la Fleur de Lune avec un trésor? » L'expression de Wang Lin était sombre.
 

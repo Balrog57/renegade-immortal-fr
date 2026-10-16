@@ -8,7 +8,7 @@ slug: depart
 ---
 « Cher Maître, veuillez accepter ce disciple! »
 
-Le fou s'agenouilla devant Wang Lin, la Bête du Néant à ses côtés. Il continua de se prosterner, les yeux empreints d'une immense révérence.
+Le fou s'agenouilla devant Wang Lin, la Bête des Limbes à ses côtés. Il continua de se prosterner, les yeux empreints d'une immense révérence.
 
 « Par le serment de mon ancêtre céleste, ce roi, Lian Daofei, vous vénère comme son maître et ne se rebellera jamais contre vous de toute sa vie! » Tandis qu'il parlait, le fou leva la main droite et frappa l'endroit entre ses sourcils.
 
@@ -20,7 +20,7 @@ Même Wang Lin fut surpris par ce geste. Il ne cherchait qu'à effrayer ce fou p
 
 Il s'assit sur le côté et pensa: « Humph, humph, ce roi est si intelligent. Non seulement j'ai trouvé un expert pour mon grand frère, mais je peux aussi apprendre des sorts. C'est une excellente affaire, vraiment excellente. Si mon grand frère savait, il me féliciterait sûrement! »
 
-L'expression de Wang Lin devint étrange alors qu'il caressait la Bête du Néant de sa main droite. La bête disparut sans laisser de trace et la planète retrouva son calme, ne laissant plus que les deux hommes.
+L'expression de Wang Lin devint étrange alors qu'il caressait la Bête des Limbes de sa main droite. La bête disparut sans laisser de trace et la planète retrouva son calme, ne laissant plus que les deux hommes.
 
 Wang Lin regarda le fou et esquissa un sourire.
 

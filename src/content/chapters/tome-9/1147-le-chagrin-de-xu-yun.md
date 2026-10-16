@@ -32,7 +32,7 @@ Ce flacon de jade était chaud et animait un cycle thermique interne. Une énerg
 
 Les trois pilules étaient de taille similaire et émettaient toutes une lueur pourpre. Une aura féroce émanait de leur cœur.
 
-Après avoir retiré son sens divin, le regard de Wang Lin se posa sur le troisième objet: un bâton d'encens de la taille d'un bras de nourrisson. Il n'était pas étranger à cet article. Dans l'Alliance, il l'avait vu dans les souvenirs de la bête moustique. Les cultivateurs de la Mer Nuageuse utilisaient cet encens pour confondre les bêtes moustiques et les détourner des Quatre Sectes Divines.
+Après avoir retiré son sens divin, le regard de Wang Lin se posa sur le troisième objet: un bâton d'encens de la taille d'un bras de nourrisson. Il n'était pas étranger à cet article. Dans l'Alliance, il l'avait vu dans les souvenirs de la bête moustique. Les cultivateurs de la Mer des Nuages utilisaient cet encens pour confondre les bêtes moustiques et les détourner des Quatre Sectes Divines.
 
 Le temps s'écoula lentement et la saison des pluies s'estompa, laissant le soleil régner sur le continent de Mo Luo. Wang Lin semblait s'être accoutumé à la vie au sein de la Secte de l'Origine et passait tout son temps à étudier l'alchimie.
 
@@ -40,7 +40,7 @@ Xu Yun se montrait très respectueuse envers cet homme nommé Ceng Niu qui vivai
 
 Chaque fois qu'elle songeait à la silhouette de Wang Lin et à la grâce de ses mouvements, elle se sentait tendue. À cet instant, elle observait Wang Lin avec perplexité.
 
-« Ceci est de l'Herbe Ning Shui. C'est un ingrédient pour la création de pilules. La plupart des pilules de ma Secte de l'Origine nécessitent cela... » Lorsqu'un cultivateur de la Mer Nuageuse atteignait un certain niveau de culture, il acquérait une compréhension certaine de l'alchimie, étroitement liée aux méthodes de la Mer Nuageuse. Ce qui la déconcertait, c'était que Ceng Niu semblait ignorer tout ce qui était pourtant considéré comme du bon sens.
+« Ceci est de l'Herbe Ning Shui. C'est un ingrédient pour la création de pilules. La plupart des pilules de ma Secte de l'Origine nécessitent cela... » Lorsqu'un cultivateur de la Mer des Nuages atteignait un certain niveau de culture, il acquérait une compréhension certaine de l'alchimie, étroitement liée aux méthodes de la Mer des Nuages. Ce qui la déconcertait, c'était que Ceng Niu semblait ignorer tout ce qui était pourtant considéré comme du bon sens.
 
 Pour que Wang Lin puisse affiner des pilules, il devait d'abord mémoriser les noms et les propriétés de toutes les herbes. Certaines plantes qu'il connaissait de l'Alliance portaient des noms différents ici; Xu Yun était donc devenue la cible privilégiée des interrogations de Wang Lin.
 
@@ -82,13 +82,13 @@ Le feu du monde obéissait à sa volonté. À cet instant, des flammes blanches 
 
 Le regard de Wang Lin demeura calme tandis qu'il tendait la main droite. Les herbes en suspension se séparèrent en plusieurs groupes: une partie fut mise de côté, l'autre fut projetée dans la boule de feu.
 
-C'était la première fois que Wang Lin affinait une pilule dans la Mer Nuageuse. Bien qu'il ne s'agisse que d'une pilule de rang 3, il se montrait extrêmement sérieux. Il fixa la sphère de feu et son regard en perça l'intimité.
+C'était la première fois que Wang Lin affinait une pilule dans la Mer des Nuages. Bien qu'il ne s'agisse que d'une pilule de rang 3, il se montrait extrêmement sérieux. Il fixa la sphère de feu et son regard en perça l'intimité.
 
 Les herbes fondirent rapidement au cœur de la flamme, se transformant en poussière. Cependant, grâce au contrôle du feu de Wang Lin, elles ne devinrent pas cendres mais commencèrent à fusionner. Elles absorbèrent les attributs médicinaux uniques les unes des autres pour s'unir.
 
 Peu après, la main droite de Wang Lin s'étira et un espace de stockage apparut. Un rayon de lumière noire jaillit vers sa paume.
 
-À l'intérieur de cette lumière se trouvait une âme de bête spirituelle semblable à une larve. C'était la bête de Lu Di. Cette créature était très arrogante lorsqu'elle suivait Lu Di, dévorant souvent cruellement les mortels et les cultivateurs blessés, savourant la douceur du sang et de la chair.
+À l'intérieur de cette lumière se trouvait une âme de bête spirituelle semblable à un têtard. C'était la bête de Lu Di. Cette créature était très arrogante lorsqu'elle suivait Lu Di, dévorant souvent cruellement les mortels et les cultivateurs blessés, savourant la douceur du sang et de la chair.
 
 Pourtant, en cet instant, l'âme de la bête tremblait de terreur et rugissait sans cesse. Elle tentait désespérément de s'échapper de la paume de Wang Lin, mais ses efforts étaient vains.
 

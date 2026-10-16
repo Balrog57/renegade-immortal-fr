@@ -14,9 +14,9 @@ Les rugissements des bêtes-aigles résonnaient à ses oreilles, mais elles ne p
 
 Wang Lin trouva un refuge caché dans le tunnel et s'assit. Après avoir déployé de nombreuses restrictions, il sortit des pilules, les avala, puis commença à cultiver.
 
-Bien que son corps fût gravement blessé, l'anatomie du Dieu Ancestral ne possédait pas seulement une puissance colossale, elle dotait aussi son porteur d'une capacité de régénération inimaginable. Après plusieurs heures, ses blessures commençaient à cicatriser.
+Bien que son corps fût gravement blessé, l'anatomie de l'Ancien Dieu ne possédait pas seulement une puissance colossale, elle dotait aussi son porteur d'une capacité de régénération inimaginable. Après plusieurs heures, ses blessures commençaient à cicatriser.
 
-Cependant, Wang Lin ne partit pas. Il resta assis, faisant circuler l'énergie du Dieu Ancestral dans chaque fibre de son être. Tandis qu'il guérissait, son énergie originelle circulait avec rapidité à travers son corps.
+Cependant, Wang Lin ne partit pas. Il resta assis, faisant circuler l'énergie de l'Ancien Dieu dans chaque fibre de son être. Tandis qu'il guérissait, son énergie originelle circulait avec rapidité à travers son corps.
 
 Privé du clou aux sept couleurs, rien n'empêchait Wang Lin de recouvrer ses forces.
 
@@ -26,13 +26,13 @@ Il était de nouveau à son apogée. Même si le Maître Pin Cendré n'avait pas
 
 En un éclair, il jaillit du passage et apparut dans la vallée. Il prit une profonde inspiration, songeant aux périls qu'il venait de traverser. D'un revers de main, le clou aux sept couleurs apparut dans sa paume.
 
-Il éprouvait encore une crainte persistante envers cet objet. Il avait eu de la chance de posséder le corps d'un Dieu Ancestral, ce qui avait empêché le clou de transformer instantanément ses os en lumière septicolore. Cela avait permis de retarder la folie, sans quoi les conséquences auraient été incommensurables. C'était aussi grâce à son corps divin qu'il avait pu endurer de telles blessures pour emprunter une force extérieure et forcer l'extraction du clou.
+Il éprouvait encore une crainte persistante envers cet objet. Il avait eu de la chance de posséder le corps d'un Ancien Dieu, ce qui avait empêché le clou de transformer instantanément ses os en lumière septicolore. Cela avait permis de retarder la folie, sans quoi les conséquences auraient été incommensurables. C'était aussi grâce à son corps divin qu'il avait pu endurer de telles blessures pour emprunter une force extérieure et forcer l'extraction du clou.
 
-N'importe quel autre cultivateur n'en aurait pas été capable. Même des experts au stade avancé de la Destruction du Nirvana seraient morts face à ce clou sans le corps d'un Dieu Ancestral.
+N'importe quel autre cultivateur n'en aurait pas été capable. Même des experts au stade avancé du Briseur du Nirvana seraient morts face à ce clou sans le corps d'un Ancien Dieu.
 
 « Cet objet est indubitablement hors du commun. Non seulement il a brisé l'épée de fer, mais il a aussi transpercé mon corps. Je crains que, si l'épée ne l'avait pas partiellement bloqué, il n'aurait directement pénétré mes os pour les transformer en lumière septicolore en un instant. » Wang Lin fixa le clou dans sa main. Son sens divin se déploya pour y laisser sa propre marque.
 
-« Bien que j'aie perdu l'épée de fer, j'ai obtenu ce clou aux sept couleurs, encore plus redoutable. Ce sera mon atout maître à l'avenir. Avec lui, même les cultivateurs du stade avancé de la Destruction du Nirvana succomberont! »
+« Bien que j'aie perdu l'épée de fer, j'ai obtenu ce clou aux sept couleurs, encore plus redoutable. Ce sera mon atout maître à l'avenir. Avec lui, même les cultivateurs du stade avancé du Briseur du Nirvana succomberont! »
 
 Tout en réfléchissant, la main droite de Wang Lin plongea dans le vide pour extraire la bague de Pang Decai et la glissa sur son pouce gauche. La défense de ce trésor était excellente; elle constituerait une protection de choix ici.
 
@@ -102,8 +102,8 @@ Il s'approcha lentement, s'accroupit et l'examina avec soin. Puis il ramassa le 
 
 « Nous sommes entrés dans la faille et avons basculé dans ce cauchemar horrible... Mais à l'époque, je n'avais rien vu venir...
 
-« Nous avons atteint les profondeurs de ce lieu et avons découvert une existence terrifiante. Ce secret pourrait ébranler le monde entier de la culture. Pas seulement la Mer de Nuages, mais aussi le Ciel Tout-Puissant, la Rivière Invoquée et le Vide Brillant!
+« Nous avons atteint les profondeurs de ce lieu et avons découvert une existence terrifiante. Ce secret pourrait ébranler le monde entier de la culture. Pas seulement la Mer des Nuages, mais aussi Luotian, la Rivière Invoquée et le Vide Brillant!
 
-« Cependant, il était trop tard... Nous avons détruit notre propre espoir de nos propres mains... Nous sommes des pécheurs... Le Maître nous a expulsés de la secte. Je sais qu'il n'avait pas d'autre choix. Je suis parti avec mes compagnons et je me suis perdu dans les brumes de la Mer de Nuages. En contemplant ce brouillard, j'ai ressenti la peur... à cause de ce secret...
+« Cependant, il était trop tard... Nous avons détruit notre propre espoir de nos propres mains... Nous sommes des pécheurs... Le Maître nous a expulsés de la secte. Je sais qu'il n'avait pas d'autre choix. Je suis parti avec mes compagnons et je me suis perdu dans les brumes de la Mer des Nuages. En contemplant ce brouillard, j'ai ressenti la peur... à cause de ce secret...
 
 « Je ne m'attendais pas à ce que cette calamité incommensurable revienne au moment même de notre désespoir. Nous avons échappé au destin une fois, pour revenir ici... Peut-être ne pourrai-je plus jamais quitter cet endroit... Est-ce là la justice? Je croyais au destin, et j'ai fini par lui céder... »

@@ -82,7 +82,7 @@ Cependant, au moment où l'étoile quittait la tête de Tuo Sen, la quatrième �
 
 S'il voulait survivre, il devait tout risquer pour sauver Maître Lufu. C'était le prix à payer pour espérer un avenir!
 
-Le vieil homme en noir ne vacilla pas et fit un pas en avant. Des ondulations apparurent devant lui pour former un vortex. À cet instant précis, les yeux de Tuo Sen devinrent glacials; il ignora que la dévoration par sa cinquième étoile avait été entravée. Il leva sa main droite et tira dans le vide. Des éclairs violets apparurent instantanément, formant une lance gigantesque de la taille de plusieurs planètes cultivées!
+Le vieil homme en noir ne vacilla pas et fit un pas en avant. Des ondulations apparurent devant lui pour former un vortex. À cet instant précis, les yeux de Tuo Sen devinrent glacials; il ignora que la dévoration par sa cinquième étoile avait été entravée. Il leva sa main droite et tira dans le vide. Des éclairs violets apparurent instantanément, formant une lance gigantesque de la taille de plusieurs planètes de culture!
 
 La Lance Tueuse de Dieux!
 
@@ -94,7 +94,7 @@ Elle était trop rapide pour que l'œil ou le sens divin puisse la suivre. Des f
 
 L'expression du vieil homme en noir devint sombre. Même s'il parvenait à entrer dans le vortex, il serait inévitablement blessé par la Lance Tueuse de Dieux. S'il était retardé et que la cinquième étoile se libérait de l'emprise de Maître Wuji, il serait alors condamné à rester piégé ici!
 
-Il n'eut cependant pas le temps de trop réfléchir. Ses mains formèrent un sceau et l'épée brisée réapparut devant lui. Il cracha du sang et d'un geste de la main, lança l'épée courte contre la Lance Tueuse de Dieux.
+Il n'eut cependant pas le temps de trop réfléchir. Ses mains formèrent un sceau et l'épée brisée réapparut devant lui. Il cracha du sang et d'un geste de la main, lança l'épée brisée contre la Lance Tueuse de Dieux.
 
 Wang Lin observait silencieusement. Il avait vu la puissance de Tuo Sen; bien qu'il possède les souvenirs de la force de Tu Si, la voir de ses propres yeux était une expérience d'une tout autre dimension.
 
@@ -138,6 +138,6 @@ Lorsqu'il réapparut, il était déjà très loin de la planète Suzaku. Pourtan
 
 « Je garderai la première étoile de l'ancien dieu pour toi! »
 
-« Si j'avais dû affronter Tuo Sen, même si mon corps originel avait traversé les Trois Épreuves et Sept Catastrophes, même si je possédais la lance, je ne survivrais pas à un seul de ses coups... » Wang Lin afficha une expression amère. Il ignorait si Tuo Sen s'était échappé, mais il savait qu'il ne pouvait rester dans le Système Stellaire de l'Alliance. Il devait partir au plus vite et ne jamais... jamais revenir... À moins d'acquérir la puissance nécessaire pour résister à Tuo Sen...
+« Si j'avais dû affronter Tuo Sen, même si mon corps originel avait traversé les Trois Épreuves et Sept Calamités, même si je possédais la lance, je ne survivrais pas à un seul de ses coups... » Wang Lin afficha une expression amère. Il ignorait si Tuo Sen s'était échappé, mais il savait qu'il ne pouvait rester dans le Système Stellaire de l'Alliance. Il devait partir au plus vite et ne jamais... jamais revenir... À moins d'acquérir la puissance nécessaire pour résister à Tuo Sen...
 
 Il disparut une nouvelle fois, le visage marqué par l'amertume, utilisant la Déformation Spatiale pour rejoindre l'endroit où il avait préparé une voie de secours. C'était une planète isolée et désertique... Il y avait installé une formation avant sa rencontre avec l'Empereur Divin du Dragon Azure.

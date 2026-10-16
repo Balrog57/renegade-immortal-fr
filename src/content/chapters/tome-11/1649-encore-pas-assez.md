@@ -30,17 +30,17 @@ Ce ressentiment était la source de son massacre. C'était sa haine envers le Ci
 
 « Trop de gens sont déjà morts dans cette bataille, alors moi, Wang Lin, je ne me soucie pas d'en tuer davantage. Puisque vous cherchez tous à tuer pour une cause précise, alors moi, Wang Lin, je vais vous aider. Je veux voir ce que vous convoitez tant! »
 
-« Le Royaume Intérieur a déjà trop perdu, maintenant c'est au tour du Royaume Extérieur! » Les hurlements incessants résonnaient à ses oreilles. Son expression demeurait calme tandis qu'il avançait vers la Rivière Invocatrice.
+« Le Royaume Intérieur a déjà trop perdu, maintenant c'est au tour du Royaume Extérieur! » Les hurlements incessants résonnaient à ses oreilles. Son expression demeurait calme tandis qu'il avançait vers la Rivière Invoquée.
 
-La Rivière Invocatrice était tombée aux mains du Royaume Extérieur à deux reprises. De nombreux cultivateurs de ce royaume y étaient stationnés.
+La Rivière Invoquée était tombée aux mains du Royaume Extérieur à deux reprises. De nombreux cultivateurs de ce royaume y étaient stationnés.
 
 Ces cultivateurs étaient d'une cruauté extrême. Ils avaient pillé d'immenses quantités de ressources, et de nombreuses cultivatrices étaient capturées pour servir de fours de culture. Le sang d'innombrables cultivateurs était répandu à travers ce système stellaire.
 
-Dès que Wang Lin pénétra dans la Rivière Invocatrice, une odeur de sang entêtante lui monta au nez. L'intention meurtrière dans ses yeux s'intensifia. Sa sixième essence, l'essence du massacre, jaillit de son corps. D'innombrables flocons de neige rouges, tantôt réels, tantôt illusoires, apparurent autour de lui.
+Dès que Wang Lin pénétra dans la Rivière Invoquée, une odeur de sang entêtante lui monta au nez. L'intention meurtrière dans ses yeux s'intensifia. Sa sixième essence, l'essence du massacre, jaillit de son corps. D'innombrables flocons de neige rouges, tantôt réels, tantôt illusoires, apparurent autour de lui.
 
 Ces flocons enveloppèrent la zone et, à mesure que Wang Lin progressait, des craquements se firent entendre. L'espace derrière lui se figea, émettant une lueur rouge, avant qu'un froid monstrueux ne commence à se propager.
 
-Les yeux de Wang Lin prirent une teinte rougeâtre. Son Sens Divin se déploya et enveloppa toute la Rivière Invocatrice. Alors que son Sens Divin couvrait l'intégralité du fleuve, l'aura choc d'un cultivateur du troisième niveau émana des profondeurs de la rivière.
+Les yeux de Wang Lin prirent une teinte rougeâtre. Son Sens Divin se déploya et enveloppa toute la Rivière Invoquée. Alors que son Sens Divin couvrait l'intégralité du fleuve, l'aura choquante d'un cultivateur du troisième niveau émana des profondeurs de la rivière.
 
 Cette aura dégageait une sensation de surprise; il semblait avoir été pris au dépourvu par le Sens Divin de Wang Lin. S'il s'était agi de l'époque précédant le Dao du Rêve, Wang Lin aurait peut-être froncé les sourcils, mais désormais, il ne daignerait même pas regarder cette personne.
 
@@ -98,7 +98,7 @@ Les hurlements misérables recommencèrent à résonner. Ces cris provenant de m
 
 « À peine quelques milliers... ce n'est toujours pas assez! » Wang Lin se retourna et marcha vers une autre planète qu'il avait repérée grâce à son Sens Divin.
 
-Au plus profond de la Rivière Invocatrice, le Sens Divin du cultivateur du troisième niveau stationné dans ce système stellaire jaillit. Il se condensa pour former une ombre, et son corps originel s'élança depuis sa position. Il verrouilla Wang Lin du regard et vola vers lui depuis les lointains.
+Au plus profond de la Rivière Invoquée, le Sens Divin du cultivateur du troisième niveau stationné dans ce système stellaire jaillit. Il se condensa pour former une ombre, et son corps originel s'élança depuis sa position. Il verrouilla Wang Lin du regard et vola vers lui depuis les lointains.
 
 Wang Lin voulait que cette personne vienne; il l'avait laissé le repérer. Autrement, cet individu n'aurait pas été qualifié pour le trouver!
 

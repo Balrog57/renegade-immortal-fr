@@ -8,19 +8,19 @@ slug: veuillez-nous-pardonner
 ---
 Les vêtements sur sa poitrine étaient déchirés et imprégnés d'une brume de sang, créant un contraste saisissant avec l'empreinte de paume noire. Le corps de Zhou Hai fut projeté hors de la cour sud, tandis que des filaments de vitalité s'échappaient de la marque sombre. En un instant, son corps se rétracta jusqu'à ne ressembler qu'à un squelette.
 
-La vitalité qui apparut sembla être mue par une puissance invisible et pénétra le disciple blessé de la Secte Origin. Son corps trembla tandis que la lumière bleue disparaissait, le ramenant à son état normal.
+La vitalité qui apparut sembla être mue par une puissance invisible et pénétra le disciple blessé de la Secte de l'Origine. Son corps trembla tandis que la lumière bleue disparaissait, le ramenant à son état normal.
 
 Le corps de Zhou Hai s'écrasa au sol avec fracas, le visage livide. Ses membres continuaient de convulser et la terreur emplissait ses yeux.
 
 L'environnement était plongé dans un silence absolu, d'un calme terrifiant!
 
-Zhao Yun, de la Secte de la Collection Diabolique, haleta, le choc se lisant dans son regard. Il fixa la cour sud et recula de plusieurs dizaines de pieds. Il ne s'attendait pas à ce que le Grand Oncle-Maître de la Secte Origin soit aussi puissant.
+Zhao Yu, de la Secte de la Collection Démoniaque, haleta, le choc se lisant dans son regard. Il fixa la cour sud et recula de plusieurs dizaines de pieds. Il ne s'attendait pas à ce que le Grand Oncle-Maître de la Secte de l'Origine soit aussi puissant.
 
 En repensant à ses paroles frivoles où il avait taquiné Lu Yanfei, il sentit son cuir chevelu picoter. Ce n'était pas qu'il convoitait Lu Yanfei, c'était simplement sa nature. De plus, toutes les sectes de rang 5 qu'ils avaient rencontrées s'étaient montrées très polies et respectueuses, les laissant agir à leur guise.
 
-« La Secte Origin possède un cultivateur aussi puissant?! » Les pupilles de Feng Peishan se rétractèrent et son expression devint grave. Quelqu'un capable de blesser Zhou Hai si facilement devait être un vieux monstre redoutable.
+« La Secte de l'Origine possède un cultivateur aussi puissant?! » Les pupilles de Feng Peishan se rétractèrent et son expression devint grave. Quelqu'un capable de blesser Zhou Hai si facilement devait être un vieux monstre redoutable.
 
-« Qui vous a donné le droit de blesser les membres de ma Secte Origin?! » Ces paroles glaciales résonnèrent à travers le monde. Elles ne contenaient pas de loi, et n'étaient pas aussi fracassantes que les propos de Feng Peishan, mais ces mots simples étaient comme des lames acérées s'enfonçant dans les cœurs de Feng Peishan, Zhou Hai et Zhao Yun.
+« Qui vous a donné le droit de blesser les membres de ma Secte de l'Origine?! » Ces paroles glaciales résonnèrent à travers le monde. Elles ne contenaient pas de loi, et n'étaient pas aussi fracassantes que les propos de Feng Peishan, mais ces mots simples étaient comme des lames acérées s'enfonçant dans les cœurs de Feng Peishan, Zhou Hai et Zhao Yu.
 
 Tout comme le silence qui les entourait, ces paroles dégageaient une pression terrifiante.
 
@@ -28,7 +28,7 @@ Un bruit de pas se fit entendre depuis la cour sud alors que Wang Lin sortait le
 
 C'était une sensation étrange que nul ne pouvait expliquer, mais que tous ressentaient clairement. C'était comme si tout dans l'univers pouvait basculer par une simple pensée. Le vrai et le faux formaient un cycle éternel.
 
-« Un domaine Dao!!! » Le visage de Feng Peishan devint livide. Il possédait le niveau de culture le plus élevé ici et était un disciple central de la première secte de rang 6; il reconnut immédiatement que ce Grand Oncle-Maître de la Secte Origin utilisait un domaine Dao!
+« Un domaine Dao!!! » Le visage de Feng Peishan devint livide. Il possédait le niveau de culture le plus élevé ici et était un disciple central de la première secte de rang 6; il reconnut immédiatement que ce Grand Oncle-Maître de la Secte de l'Origine utilisait un domaine Dao!
 
 Ce qui l'effrayait davantage, c'était que l'autre partie ne le faisait pas délibérément: le Dao était naturellement infusé dans ses paroles et ses actes. Ce royaume était bien supérieur à celui de la "Parole de Loi".
 
@@ -42,39 +42,39 @@ Le corps de Zhou Hai trembla. Lorsqu'il croisa malgré lui le regard de Wang Lin
 
 Son cœur battait à tout rompre et son esprit était embrumé. Bien qu'il ne puisse percevoir le niveau de culture de l'individu devant lui, il sentait en cet instant qu'aucun des Anciens, ni même le chef de sa propre secte, ne pourrait jamais lui inspirer une telle terreur.
 
-Wang Lin détourna son regard et leva les yeux vers Zhao Yu de la Secte de la Collection Diabolique, demandant calmement: « Ou était-ce toi? »
+Wang Lin détourna son regard et leva les yeux vers Zhao Yu de la Secte de la Collection Démoniaque, demandant calmement: « Où était-ce toi? »
 
 Zhao Yu se lécha nerveusement les lèvres. Il regarda Zhou Hai qui se débattait au sol, puis Wang Lin. Son expression devint soudainement empreinte de respect.
 
-« Le cadet Zhao Yu, de la Secte de la Collection Diabolique, salue l'Aîné. » Ce dernier joignit immédiatement les mains avec une déférence extrême pour masquer sa peur. Cependant, il n'osa pas lever les yeux vers Wang Lin.
+« Le Junior Zhao Yu, de la Secte de la Collection Démoniaque, salue le Senior. » Ce dernier joignit immédiatement les mains avec une déférence extrême pour masquer sa peur. Cependant, il n'osa pas lever les yeux vers Wang Lin.
 
-« Ou était-ce toi? » Le regard de Wang Lin se posa sur Feng Peishan de la Secte des Sorts Dao.
+« Où était-ce toi? » Le regard de Wang Lin se posa sur Feng Peishan de la Secte des Sorts Dao.
 
-Le visage de Feng Peishan pâlit alors qu'il joignit respectueusement les mains et murmura: « Aîné, veuillez nous pardonner. »
+Le visage de Feng Peishan pâlit alors qu'il joignit respectueusement les mains et murmura: « Senior, veuillez nous pardonner. »
 
-« Plus tôt, tu as dit que si l'on vous empêchait de blesser mes disciples de la Secte Origin, nous devrions en subir les conséquences. » Wang Lin lança un regard glacial à Feng Peishan.
+« Plus tôt, tu as dit que si l'on vous empêchait de blesser mes disciples de la Secte de l'Origine, nous devrions en subir les conséquences. » Wang Lin lança un regard glacial à Feng Peishan.
 
 La sueur perla sur le front de Feng Peishan; il n'osait soutenir le regard de Wang Lin. Il avait la certitude que si cet homme s'emportait, il périrait sur l'instant.
 
 Après avoir hésité un moment, Feng Peishan serra les dents et frappa violemment sa propre poitrine de la main droite. Dans un bruit sourd, son corps trembla et il cracha une large bouffée de sang. Son teint devint encore plus blême et son âme d'origine fut blessée.
 
-Feng Peishan ne s'essuya pas le coin de la bouche et dit d'un ton amer: « Cela apaise-t-il la colère de l'Aîné? »
+Feng Peishan ne s'essuya pas le coin de la bouche et dit d'un ton amer: « Cela apaise-t-il la colère du Senior? »
 
 L'expression de Wang Lin resta neutre, puis il tourna son regard vers Zhao Yu.
 
 Zhao Yu esquissa un sourire de détresse. Si Feng Peishan n'osait pas provoquer cet homme, comment pourrait-il en avoir le courage? De plus, il n'avait même pas vu comment cette personne avait attaqué et blessé si gravement Zhou Hai. Même s'il avait tenté de résister, cela aurait été inutile.
 
-Zhao Yu serra les dents, leva sa main droite et frappa impitoyablement sa poitrine. Il toussa du sang en reculant de quelques pas, les mains jointes: « Veuillez ne pas être en colère, Aîné. »
+Zhao Yu serra les dents, leva sa main droite et frappa impitoyablement sa poitrine. Il toussa du sang en reculant de quelques pas, les mains jointes: « Veuillez ne pas être en colère, Senior. »
 
-Cette scène suscita un immense enthousiasme parmi les disciples de la Secte Origin. Tous regardaient Wang Lin avec révérence, tout comme Li Xiangdong et sa compagnie.
+Cette scène suscita un immense enthousiasme parmi les disciples de la Secte de l'Origine. Tous regardaient Wang Lin avec révérence, tout comme Li Xiangdong et sa compagnie.
 
 Wang Lin dit calmement: « Vous pouvez continuer vos recherches. »
 
 « Ce n'est pas nécessaire... » commença rapidement Feng Peishan, mais avant qu'il ne puisse finir, Wang Lin l'interrompit.
 
-« Une fois vos recherches terminées, quittez immédiatement le continent de Mo Lou! »
+« Une fois vos recherches terminées, quittez immédiatement le continent de Mo Luo! »
 
-« À vos ordres. » Feng Peishan eut un sourire amer. Il savait que leurs actes avaient déjà offensé le Grand Oncle-Maître de la Secte Origin. La seule raison pour laquelle il ne les avait pas tués était sa préoccupation pour les sectes dont ils provenaient.
+« À vos ordres. » Feng Peishan eut un sourire amer. Il savait que leurs actes avaient déjà offensé le Grand Oncle-Maître de la Secte de l'Origine. La seule raison pour laquelle il ne les avait pas tués était sa préoccupation pour les sectes dont ils provenaient.
 
 « Si le Maître apprend que nous avons offensé un vieux monstre possédant un domaine Dao, il sera difficile d'éviter la punition. Même notre Maître n'offenserait pas si facilement un cultivateur aussi puissant. Sans parler du fait qu'il a blessé Zhou Hai d'un simple geste; s'il avait voulu le tuer, Zhou Hai serait déjà mort. » En soupirant, Feng Peishan se remémora les paroles de son maître avant son départ.
 
@@ -82,25 +82,25 @@ Son maître lui avait dit qu'il existait de nombreuses personnes au-dessus de lu
 
 C'était pour cette raison qu'il convenait d'expliquer les choses poliment et de ne pas les offenser lors de cette fouille.
 
-Feng Peishan partit respectueusement, mais après réflexion, il continua à explorer minutieusement le continent de Mo Lou. N'ayant rien trouvé, tous les disciples se rassemblèrent et partirent avec lui, tout en aidant Zhou Hai à se déplacer.
+Feng Peishan partit respectueusement, mais après réflexion, il continua à explorer minutieusement le continent de Mo Luo. N'ayant rien trouvé, tous les disciples se rassemblèrent et partirent avec lui, tout en aidant Zhou Hai à se déplacer.
 
 Ce n'est qu'une fois la barrière franchie que Feng Peishan et Zhao Yu poussèrent un soupir de soulagement. Quant à Zhou Hai, il avait avalé quelques pilules et s'était rétabli suffisamment pour voler. Son visage était toujours pâle et une peur résiduelle hantait ses yeux.
 
-Feng Peishan demanda: « Camarade cultivateur Zhou, veuillez essayer de décrire en détail comment cet aîné a attaqué après votre entrée dans la cour sud. »
+Feng Peishan demanda: « Camarade cultivateur Zhou, veuillez essayer de décrire en détail comment ce Senior a attaqué après votre entrée dans la cour sud. »
 
-Zhou Hai ressentait encore un effroi profond. Après un moment de silence, il répondit: « La culture de cet aîné est au moins au stade intermédiaire du Briseur du Nirvana ou supérieur. Je ne l'ai pas vu attaquer. Dès que je suis entré dans la cour sud, j'ai senti une énergie d'origine inimaginable se concentrer en une paume qui s'est abattue sur ma poitrine. » En disant cela, il regarda son torse; l'empreinte de la paume était toujours noire.
+Zhou Hai ressentait encore un effroi profond. Après un moment de silence, il répondit: « La culture de ce Senior est au moins au stade intermédiaire du Briseur du Nirvana ou supérieur. Je ne l'ai pas vu attaquer. Dès que je suis entré dans la cour sud, j'ai senti une énergie d'origine inimaginable se concentrer en une paume qui s'est abattue sur ma poitrine. » En disant cela, il regarda son torse; l'empreinte de la paume était toujours noire.
 
 Zhao Yu demanda soudainement: « S'agit-il d'une attaque empoisonnée? »
 
-Zhou Hai secoua la tête: « Cet aîné ne présentait aucun signe d'utilisation de poison, ce ne peut donc pas être la Vieille Poisonneuse. De plus, elle n'a pas une telle puissance. J'ai également observé discrètement les membres de la Secte Origin. Leur révérence et leur sentiment de gloire n'étaient pas feints; cette personne était bel et bien leur Grand Oncle-Maître. »
+Zhou Hai secoua la tête: « Ce Senior ne présentait aucun signe d'utilisation de poison, ce ne peut donc pas être la Vieille Poisonneuse. De plus, elle n'a pas une telle puissance. J'ai également observé discrètement les membres de la Secte de l'Origine. Leur révérence et leur sentiment de gloire n'étaient pas feints; cette personne était bel et bien leur Grand Oncle-Maître. »
 
 « C'est vrai. » Feng Peishan hocha la tête et ajouta: « Si cette personne était réellement liée à la Vieille Poisonneuse ou connaissait l'affaire du jade, il serait resté caché sans intervenir. Avec sa culture, ce serait un jeu d'enfant. Il n'aurait pas blessé Zhou Hai ni forcé Zhao Yu et moi à payer un tel prix. »
 
-Zhao Yu acquiesça. En repensant aux événements, il dit: « Ce Grand Oncle-Maître de la Secte Origin est trop puissant. Même dans une région de rang 6, il serait une figure de proue. Heureusement qu'il ne l'a blessé que sans le tuer. Sinon... » Il laissa sa phrase en suspens en regardant Zhou Hai.
+Zhao Yu acquiesça. En repensant aux événements, il dit: « Ce Grand Oncle-Maître de la Secte de l'Origine est trop puissant. Même dans une région de rang 6, il serait une figure de proue. Heureusement qu'il ne l'a blessé que sans le tuer. Sinon... » Il laissa sa phrase en suspens en regardant Zhou Hai.
 
 Zhou Hai resta silencieux, le cœur glacé par la peur.
 
-« Plus tôt, en venant ici, nous avons vu les membres de la Secte du Dao Pourpre se diriger vers la Secte Origin; il semble y avoir une rancœur entre eux. On dirait que Lu Yuncong va tomber sur un os! » Zhao Yun sourit, semblant presque se réjouir du malheur d'autrui.
+« Plus tôt, en venant ici, nous avons vu les membres de la Secte du Dao Pourpre se diriger vers la Secte de l'Origine; il semble y avoir une rancœur entre eux. On dirait que Lu Yuncong va tomber sur un os! » Zhao Yu sourit, semblant presque se réjouir du malheur d'autrui.
 
 « Cet homme n'est pas simple! » Feng Peishan ne semblait plus vouloir en parler et conclut: « Oublions cela. Nous trois devrons être plus prudents à l'avenir. Partons vers un autre continent. » Les trois hommes, emmenant les disciples de leurs sectes respectives, s'envolèrent vers l'horizon.
 
@@ -110,7 +110,7 @@ Le regard de Wang Lin se détacha de l'horizon. Sa décision était prise dès l
 
 Il n'avait pas la capacité ni le temps de les effacer. Plus important encore, plus il tenterait d'effacer ses traces, plus il risquait d'en créer de nouvelles.
 
-« L'essentiel pour moi est d'augmenter mon niveau de culture le plus vite possible! Si je suis découvert, je n'aurai d'autre choix que de me rendre dans le Royaume Céleste du Vent! » D'après les souvenirs de la Vieille Poisonneuse et les archives de la Secte Origin, il savait que le Royaume Céleste du Vent était ouvert. L'entrée se trouvait dans la partie nord de la région de rang 8, mais presque personne n'osait s'y aventurer profondément; ils se contentaient de collecter des trésors en périphérie.
+« L'essentiel pour moi est d'augmenter mon niveau de culture le plus vite possible! Si je suis découvert, je n'aurai d'autre choix que de me rendre dans le Royaume Céleste du Vent! » D'après les souvenirs de la Vieille Poisonneuse et les archives de la Secte de l'Origine, il savait que le Royaume Céleste du Vent était ouvert. L'entrée se trouvait dans la partie nord de la région de rang 8, mais presque personne n'osait s'y aventurer profondément; ils se contentaient de collecter des trésors en périphérie.
 
 « Le Royaume Céleste du Vent est mon atout pour éliminer Tuo Sen... » Une lueur de froideur apparut dans les yeux de Wang Lin. S'il accordait tant d'importance à la technique de mutation apprise dans les souvenirs de la vieille femme, c'était parce qu'une fois maîtrisée, son évolution au sein du Royaume Céleste du Vent serait décuplée.
 

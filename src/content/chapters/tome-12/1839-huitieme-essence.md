@@ -96,7 +96,7 @@ Fan Shanmeng était au septième niveau de la Tribulation Arcane, ce qui était 
 
 Pourtant, elle n'était manifestement pas aussi rapide que Yi Si. La marionnette rugit et chargea Fan Shanmeng. Sa langue immense s'abattit vers elle tandis que le brouillard noir lui barrait toute issue.
 
-Des grondements tonitruants résonnèrent à travers la secte. La plupart des membres de la Grande Secte de l'Âme avaient reçu l'ordre de l'Ancien Ancêtre de ne pas s'approcher de la montagne de Wang Lin. À ce signal, tous tournèrent les regards.
+Des grondements tonitruants résonnèrent à travers la secte. La plupart des membres de la Secte de la Grande Âme avaient reçu l'ordre de l'Ancien Ancêtre de ne pas s'approcher de la montagne de Wang Lin. À ce signal, tous tournèrent les regards.
 
 Yan Lu était en pleine culture lorsqu'elle ouvrit les yeux et son expression changea. Elle avait presque oublié qu'elle avait envoyé Fan Shanmeng maudire Wang Lin. Une trace de peur apparut dans ses yeux alors qu'elle se précipitait vers la montagne de Wang Lin.
 

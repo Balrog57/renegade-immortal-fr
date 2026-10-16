@@ -12,7 +12,7 @@ Alors que l'onde de choc balayait tout sur son passage, tout ce qui se trouvait 
 
 Wang Lin flotta dans les airs et contempla la terre devenue un désastre. Des tourbillons de poussière formaient une tempête qui recouvrait le monde.
 
-Ses cheveux blancs flottaient et ses vêtements bruissaient au vent, mais il restait d'un calme absolu, dégageant toute la grâce qu'un cultivateur du troisième pas, au stade intermédiaire de la Transformation de l'Âme, devait posséder.
+Ses cheveux blancs flottaient et ses vêtements bruissaient au vent, mais il restait d'un calme absolu, dégageant toute la grâce qu'un cultivateur du troisième pas, au stade intermédiaire du Vide Spirituel, devait posséder.
 
 D'un geste de la main droite, un cristal doré clair, parsemé de fissures, apparut dans sa paume. Ce cristal contenait les souvenirs de toute une vie.
 

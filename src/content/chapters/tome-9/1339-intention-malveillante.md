@@ -42,9 +42,9 @@ Une force de tonnerre émanant de son âme originelle fut absorbée par Wang Lin
 
 Un laps de temps extrêmement court s'était écoulé depuis qu'il avait attaqué et écrasé l'âme originelle du Maître Zhou Tian!
 
-Après avoir tué le Maître Zhou Tian comme on écrase une fourmi, il se précipita en avant, brisant toutes les barrières sur son passage. Il franchit la sortie et pénétra dans un lieu crucial pour le Clan de la Foudre Dispersée: les 7 Millions de Mondes!
+Après avoir tué le Maître Zhou Tian comme on écrase une fourmi, il se précipita en avant, brisant toutes les barrières sur son passage. Il franchit la sortie et pénétra dans un lieu crucial pour le Clan du Tonnerre Dispersé: les 7 Millions de Mondes!
 
-Depuis la création des 7 Millions de Mondes, hormis les mystérieux cultivateurs ayant aidé l'ancêtre du troisième pas du Clan de la Foudre Dispersée à les façonner, aucun étranger n'y était jamais entré!
+Depuis la création des 7 Millions de Mondes, hormis les mystérieux cultivateurs ayant aidé l'ancêtre du troisième pas du Clan du Tonnerre Dispersé à les façonner, aucun étranger n'y était jamais entré!
 
 Wang Lin serait le premier après ces êtres mystérieux!
 
@@ -110,14 +110,14 @@ L'homme d'âge moyen devint soudainement prudent sous le regard de Wang Lin. Il 
 
 Wang Lin répondit avec un sourire: « Yu Fei! »
 
-« Yu Fei? Ce nom me semble familier... » L'homme réfléchit un instant, puis ses yeux brillèrent d'une lueur étrange. Il joignit les mains et rit: « Alors c'est bien vous, le Compagnon Yu Fei, celui qui vient d'intégrer le Classement de la Foudre Dispersée! »
+« Yu Fei? Ce nom me semble familier... » L'homme réfléchit un instant, puis ses yeux brillèrent d'une lueur étrange. Il joignit les mains et rit: « Alors c'est bien vous, le Compagnon Yu Fei, celui qui vient d'intégrer le Classement du Tonnerre Dispersé! »
 
-L'homme ajouta quelques mots, pensant avoir percé clair à propos de Wang Lin, puis reprit: « Compagnon Yu, ce n'est pas ici qu'il faut discuter, et la formation menant aux 7 Millions de Mondes est sur le point de s'ouvrir. Que diriez-vous d'y aller? »
+L'homme ajouta quelques mots, pensant avoir percé à jour Wang Lin, puis reprit: « Compagnon Yu, ce n'est pas ici qu'il faut discuter, et la formation menant aux 7 Millions de Mondes est sur le point de s'ouvrir. Que diriez-vous d'y aller? »
 
 Après l'accord de Wang Lin, l'homme le guida à travers la foule. Un autre cultivateur, témoin de la scène, secoua discrètement la tête.
 
 « Encore une victime... Quiconque se laisse emmener par ce Zhang Jingyun ne perdra pas seulement son Éclair Spirituel, sa vie elle-même n'est pas garantie... »
 
-Zhang Jingyun connaissait manifestement très bien la place centrale, car ils atteignirent rapidement une grande formation. Des centaines de cultivateurs s'y trouvaient, répartis en groupes. L'un d'eux comptait plus de dix personnes: six nouveaux comme Wang Lin, et quatre autres aux niveaux de culture plus élevés, au stade Yin Ilusoire.
+Zhang Jingyun connaissait manifestement très bien la place centrale, car ils atteignirent rapidement une grande formation. Des centaines de cultivateurs s'y trouvaient, répartis en groupes. L'un d'eux comptait plus de dix personnes: six nouveaux comme Wang Lin, et quatre autres aux niveaux de culture plus élevés, au stade Yin Illusoire.
 
 Zhang Jingyun s'avança avec un sourire: « Tout le monde, j'en ai ramené un de plus. Je parie que vous avez déjà tous entendu parler du nom "Yu Fei". »

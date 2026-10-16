@@ -104,9 +104,9 @@ Le dragon de feu dévora l'Oiseau Vermillon mais afficha une expression de doule
 
 Une fois manifeste, il continua d'absorber le feu provenant du dragon. À mesure qu'il se renforçait, les rugissements du dragon s'affaiblissaient. Cependant, alors qu'il était absorbé, le dragon se débattit avec une violence accrue.
 
-Des grondements tonnantes secouèrent la surface où se trouvait Wang Lin. La terre trembla et se fendit, laissant jaillir des flammes qui consumaient tout sur leur passage.
+Des grondements tonnants secouèrent la surface où se trouvait Wang Lin. La terre trembla et se fendit, laissant jaillir des flammes qui consumaient tout sur leur passage.
 
-Le processus ne dura pas longtemps. Après l'équivalent du temps d'une bâton de cens, le feu qui jaillissait du sol se rétracta brusquement et disparut dans les fissures pour retourner dans les profondeurs. Le dragon avait cessé de lutter et l'Oiseau Vermillon était enfin pleinement manifesté. Il ouvrit les yeux, révélant un regard glacial.
+Le processus ne dura pas longtemps. Après l'équivalent du temps d'un bâton d'encens, le feu qui jaillissait du sol se rétracta brusquement et disparut dans les fissures pour retourner dans les profondeurs. Le dragon avait cessé de lutter et l'Oiseau Vermillon était enfin pleinement manifesté. Il ouvrit les yeux, révélant un regard glacial.
 
 « Après avoir absorbé l'âme d'une branche de la veine de feu, mon essence de feu s'est considérablement renforcée! » L'Oiseau Vermillon se changea en une mer de flammes et chargea vers la surface, retournant dans l'œil gauche de Wang Lin.
 

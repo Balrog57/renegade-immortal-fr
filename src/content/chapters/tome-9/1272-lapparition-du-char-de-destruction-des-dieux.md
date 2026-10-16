@@ -28,9 +28,9 @@ Pourtant, Wang Lin était un cultivateur défiant le ciel et un Dieu Ancien Roya
 
 Alors que les mains de Wang Lin s'agitaient, une tempête de sang se propagea depuis lui comme centre. En un instant, elle s'étendit sur les continents sauvages jusqu'à ce qu'ils fussent tous enveloppés.
 
-Une multitude de bêtes féroces peuisaient ces continents. Lorsque Wang Lin avait déplacé ces terres, il n'avait pas déplacé les bêtes; par conséquent, la concentration de créatures féroces ici était terrifiante.
+Une multitude de bêtes féroces peuplaient ces continents. Lorsque Wang Lin avait déplacé ces terres, il n'avait pas déplacé les bêtes; par conséquent, la concentration de créatures féroces ici était terrifiante.
 
-« L'ancêtre du Clan des Tatouages m'a autrefois enseigné des sorts de tatouage, et Ta Shan m'a également révélé en secret ce qu'il avait appris. Les tatouages sont raffinés à partir de peaux animales, capturant l'essence de la bête pour former un motif. Ils possèdent un pouvoir capable de faire trembler les cieux! »
+« L'ancêtre du Clan du Tatouage m'a autrefois enseigné des sorts de tatouage, et Ta Shan m'a également révélé en secret ce qu'il avait appris. Les tatouages sont raffinés à partir de peaux animales, capturant l'essence de la bête pour former un motif. Ils possèdent un pouvoir capable de faire trembler les cieux! »
 
 « Cependant, ce sort est bien trop terrifiant et exige trop de vies. Je ne voulais pas y avoir recours, mais je suis désormais contraint de le faire! » Une lueur rouge traversa les yeux de Wang Lin alors qu'il entamait un chant complexe. Ce chant se mua en tatouages autour de lui. Ils s'élancèrent dans la tempête de sang et, en un éclair, recouvrirent tous les continents sauvages.
 
@@ -42,7 +42,7 @@ Alors que les bêtes s'effondraient, ces tatouages flottèrent au-dessus des con
 
 « Dix millions d'épées condensées en une seule est la première contre-attaque que j'ai préparée contre ce cultivateur du troisième niveau qui veut me tuer! Cent continents sauvages fusionnés avec les trois grandes restrictions constituent la deuxième! »
 
-« Les innombrables tatouages du Clan des Tatouages, formés par d'innombrables bêtes féroces capables de détruire le monde, seront la troisième contre-attaque! » Les innombrables cristaux originels qui s'entassaient autour de Wang Lin s'effondrèrent et se dissipèrent, l'énergie originelle qu'ils contenaient ayant été drainée.
+« Les innombrables tatouages du Clan du Tatouage, formés par d'innombrables bêtes féroces capables de détruire le monde, seront la troisième contre-attaque! » Les innombrables cristaux originels qui s'entassaient autour de Wang Lin s'effondrèrent et se dissipèrent, l'énergie originelle qu'ils contenaient ayant été drainée.
 
 « Même des êtres au stade du Fléau Céleste mourraient sans aucun doute s'ils étaient frappés par ces trois mouvements mortels! Mais ceci n'est pas la limite de mes 2 000 ans de culture! » Wang Lin avait tout donné pour cette bataille. Il prit une profonde inspiration, tendit la main et ouvrit son espace de stockage. Un éclair de tonnerre s'en échappa.
 
@@ -68,7 +68,7 @@ Une aura capable d'ébranler les cieux explosa du char et frappa le corps de Wan
 
 « Désormais, il est digne d'être appelé "celui qui tue les dieux"! » Les yeux de Wang Lin s'illuminèrent. D'un geste de la main droite, il fit descendre le gigantesque char sur son côté gauche. La lance dégageait une intention meurtrière foudroyante alors qu'elle pointait vers le ciel!
 
-La main droite de Wang Lin s'étira à nouveau et un papillon aux cinq couleurs apparut, tournoyant autour de lui. Un écureuil de sang accompagnait également le papillon.
+La main droite de Wang Lin s'étira à nouveau et un papillon aux cinq couleurs apparut, tournoyant autour de lui. Une hirondelle de sang accompagnait également le papillon.
 
 « Ce troisième Char de Guerre Divin est le plus puissant! Même maintenant, je ne peux l'ouvrir totalement, mais hormis le dernier, je suis confiant dans ma capacité à libérer les autres! » La main de Wang Lin forma un sceau; du sang jaillit et se déposa sur le papillon.
 

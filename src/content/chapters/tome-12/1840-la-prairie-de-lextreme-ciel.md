@@ -12,17 +12,17 @@ Ses cheveux étaient si secs qu'ils paraissaient prêts à tomber. Le corps déc
 
 Sa robe blanche, très ample, semblait envelopper un corps sans vie. L'aura terrifiante qui émanait de Wang Lin fit reculer Yan Lu de plusieurs pas.
 
-Il y avait aussi Fan Shanmeng, qui luttait contre la Poupée Yi Si. Lorsqu'elle aperçut véritablement Wang Lin, elle recula également en laissant échapper un halètement, les yeux emplis de terreur.
+Il y avait aussi Fan Shanmeng, qui luttait contre la marionnette Yi Si. Lorsqu'elle aperçut véritablement Wang Lin, elle recula également en laissant échapper un halètement, les yeux emplis de terreur.
 
 « Que cultive-t-il... pour finir dans un tel état?! »
 
-Alors que la voix rauque de Wang Lin résonnait, la Poupée Yi Si se transforma à nouveau en brume et vola vers lui. Ses yeux féroces et sa langue écarlate complétaient l'apparence actuelle de Wang Lin, lui donnant les traits d'un redoutable cultivateur démoniaque!
+Alors que la voix rauque de Wang Lin résonnait, la marionnette Yi Si se transforma à nouveau en brume et vola vers lui. Ses yeux féroces et sa langue écarlate complétaient l'apparence actuelle de Wang Lin, lui donnant les traits d'un redoutable cultivateur démoniaque!
 
 « Yan Lu, je suis en méditation de retraite. Pourquoi es-tu venue ici? » Wang Lin ressemblait à un mort après avoir perdu toute l'eau de son corps. Même ses yeux avaient perdu la capacité de bouger librement; il dut donc tourner la tête pour regarder Yan Lu.
 
 Cependant, ce mouvement n'affaiblit pas son aura; au contraire, il la rendit plus intense encore. Le cœur de Yan Lu trembla et elle recula de quelques pas supplémentaires.
 
-« Je n'avais pas l'intention de perturber la retraite de l'Ancien Wang. Cependant, Shanmeng était attaquée par votre étrange poupée, alors je suis venue la sauver. »
+« Je n'avais pas l'intention de perturber la retraite de l'Ancien Wang. Cependant, Shanmeng était attaquée par votre étrange marionnette, alors je suis venue la sauver. »
 
 « Cette femme est ma servante. L'Ancienne Yan Lu n'a nul besoin de se soucier d'elle pour moi. » Wang Lin sourit, mais son sourire était terrifiant sur ce visage desséché. Fan Shanmeng frissonna et se réfugia derrière son maître.
 
@@ -44,15 +44,15 @@ Elle lança le jade vers Wang Lin. Il le rattrapa et, après l'avoir scanné de 
 
 *Roar!!*
 
-La Poupée Yi Si suivit Wang Lin et, après avoir fusionné avec la brume, il la rangea. Au même moment, le véritable corps d'essence de feu de Wang Lin leva les yeux; il le suivit et disparut au loin.
+La marionnette Yi Si suivit Wang Lin et, après avoir fusionné avec la brume, il la rangea. Au même moment, le véritable corps d'essence de feu de Wang Lin leva les yeux; il le suivit et disparut au loin.
 
 Ce n'est que lorsque Wang Lin fut parti que Fan Shanmeng put se détendre. L'image de Wang Lin l'avait terrifiée, et il lui serait difficile de l'oublier.
 
 Yan Lu resta là, pensive, avant de pousser un long soupir. Elle n'avait inséré aucune fausse information dans le jade et avait été parfaitement honnête. Sans plus accorder d'attention à Fan Shanmeng, elle s'envola vers sa grotte.
 
-Quant à Wang Lin, après avoir quitté la Grande Secte de l'Âme, il fit un pas et des ondulations résonnèrent dans l'espace avant qu'il ne disparaisse. Il se fondit dans le monde et partit sans laisser de trace.
+Quant à Wang Lin, après avoir quitté la Secte de la Grande Âme, il fit un pas et des ondulations résonnèrent dans l'espace avant qu'il ne disparaisse. Il se fondit dans le monde et partit sans laisser de trace.
 
-Dans une rare prairie du Continent du Taureau Céleste, à cent mille kilomètres de la Grande Secte de l'Âme, des ondulations parcoururent le ciel et Wang Lin en sortit. Son corps ressemblait toujours à celui d'un cadavre desséché alors qu'il contemplait la terre. De nombreuses grottes parsemaient cette prairie infinie; il était évident que de nombreux cultivateurs marginaux y résidaient.
+Dans une rare prairie du Continent du Taureau Céleste, à cent mille kilomètres de la Secte de la Grande Âme, des ondulations parcoururent le ciel et Wang Lin en sortit. Son corps ressemblait toujours à celui d'un cadavre desséché alors qu'il contemplait la terre. De nombreuses grottes parsemaient cette prairie infinie; il était évident que de nombreux cultivateurs marginaux y résidaient.
 
 La raison pour laquelle tant de cultivateurs marginaux vivaient ici était la densité de l'énergie céleste émanant de l'herbe. Bien qu'elle ne puisse rivaliser avec celle de certaines montagnes, elle n'en demeurait pas moins puissante.
 
@@ -98,7 +98,7 @@ Trois gémissements étouffés provinrent du membre noir en lambeaux, et trois s
 
 Leurs expressions changèrent radicalement. Repoussés par l'onde de choc, ils se dispersèrent dans trois directions différentes pour s'enfuir rapidement.
 
-L'expression de Wang Lin restait calme. Puisqu'il avait agi, il ne comptait pas s'arrêter là. Il leva la main droite et fit un geste. Un rugissement retentit et la Poupée Yi Si apparut, le regard exalté, pour poursuivre l'un d'eux.
+L'expression de Wang Lin restait calme. Puisqu'il avait agi, il ne comptait pas s'arrêter là. Il leva la main droite et fit un geste. Un rugissement retentit et la marionnette Yi Si apparut, le regard exalté, pour poursuivre l'un d'eux.
 
 Elle le rattrapa instantanément, et une brume noire enveloppa sa proie. Des cris de douleur résonnèrent avant de s'éteindre lentement.
 

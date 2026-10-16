@@ -8,7 +8,7 @@ slug: qui-est-le-bruant-jaune
 ---
 Contemplant la brume rouge, l'érudit d'âge moyen sourit. De nature prudente, il était aussi rusé qu'un renard; dans l'Ancien Système Stellaire, on le surnommait le Renard Rusé.
 
-Bien qu'il ne fût qu'au troisième niveau de la Peste Céleste, il était convaincu que ses stratagèmes pourraient compenser sa faiblesse. Et c'était en effet le cas; à maintes reprises, il avait dû naviguer entre la vie et la mort grâce à sa ruse, pour finalement en sortir victorieux.
+Bien qu'il ne fût qu'au troisième niveau du Fléau Céleste, il était convaincu que ses stratagèmes pourraient compenser sa faiblesse. Et c'était en effet le cas; à maintes reprises, il avait dû naviguer entre la vie et la mort grâce à sa ruse, pour finalement en sortir victorieux.
 
 Cette fois, il complotait pour s'emparer d'un trésor convoité par l'Estimé Ling Dong; il devait donc redoubler de prudence.
 
@@ -46,7 +46,7 @@ Il avait réussi à éliminer la plupart des présents et à chasser les autres.
 
 « De cette façon, même si tu triches, tu n'as aucune chance de ressusciter! » Il avait depuis longtemps percé à jour les intentions de l'érudit, c'est pourquoi il avait laissé une restriction pour pouvoir téléporter un retour ici.
 
-Grâce à sa maîtrise des restrictions, il ne craignait pas que l'homme ne découvre son piège, compte tenu de son niveau de culture. Après avoir traversé une faille céleste, Wang Lin était revenu via la restriction. Il n'avait pas tué l'érudit, mais celui-ci n'avait pas remarqué qu'en plus de la Restriction de l'Âme Originelle et de la Restriction du Temps, la Restriction de la Vie et de la Mort était également présente dans la brume. Quant à la simulation de sa mort, Wang Lin l'avait bien vue, mais elle était sans effet face à lui.
+Grâce à sa maîtrise des restrictions, il ne craignait pas que l'homme ne découvre son piège, compte tenu de son niveau de culture. Après avoir traversé une faille céleste, Wang Lin était revenu via la restriction. Il n'avait pas tué l'érudit, mais celui-ci n'avait pas remarqué qu'en plus de la Restriction de l'Âme Ancienne et de la Restriction du Temps, la Restriction de la Vie et de la Mort était également présente dans la brume. Quant à la simulation de sa mort, Wang Lin l'avait bien vue, mais elle était sans effet face à lui.
 
 Wang Lin s'approcha de la brume rouge. Cette simple restriction avait coûté tant de vies. Il ressentit une fois de plus la cruauté du monde de la culture.
 

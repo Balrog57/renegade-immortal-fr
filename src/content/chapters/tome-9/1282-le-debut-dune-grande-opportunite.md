@@ -14,7 +14,7 @@ Même le Seigneur du Royaume Scellé avait péri après avoir été transpercé 
 
 En cet instant, si ce clou aux sept couleurs ne s'était pas enfoncé complètement en Shui Daozi, il n'aurait pas été confronté à une telle crise de vie ou de mort.
 
-Cependant, l'avatar du vieil homme du Royaume Céleste du Vent était arrivé, et son doigt impétueux avait poussé le clou de cinq pouces supplémentaires. Cela rendit Shui Daozi presque fou, car il ne parvint pas à contenir la force en lui.
+Cependant, l'avatar du vieil homme du Royaume Céleste du Vent était arrivé, et son doigt impétueux avait poussé le clou de cinq pouces. Cela rendit Shui Daozi presque fou, car il ne parvint pas à contenir la force en lui.
 
 Mobilisant sa puissante culture du troisième niveau, Shui Daozi parvint de justesse à réprimer l'attaque par la force. Il comptait tuer Wang Lin pour ensuite entrer en méditation de porte close afin de guérir.
 
@@ -28,7 +28,7 @@ Cette découverte lui fit perdre la raison. Il n'eut même pas le temps de suppl
 
 À cet instant précis, alors que le clou s'était totalement enfoncé dans le crâne de Shui Daozi, celui-ci commença à fondre. Il dégagea une puissante lueur arc-en-ciel qui envahit son cerveau!
 
-Toutes les orifices de Shui Daozi se mirent à irradier cette lumière aux sept couleurs! Sa tête ressemblait à un bouchon percé de sept trous d'où jaillissait cette lueur spectrale!
+Tous les orifices de Shui Daozi se mirent à irradier cette lumière aux sept couleurs! Sa tête ressemblait à un bouchon percé de sept trous d'où jaillissait cette lueur spectrale!
 
 Poussant des cris de détresse, Shui Daozi sembla perdre la raison et recula précipitamment. Ses yeux étaient empreints d'une lutte monstrueuse alors qu'il tentait de résister à la lumière qui envahissait son esprit. Mais peu importait l'intensité de sa résistance, tout était vain. Le clou aux sept couleurs s'était transformé en liquide en un instant, inondant son esprit.
 
@@ -58,7 +58,7 @@ Simultanément, la pierre de jade qui flottait devant lui fondit également pour
 
 Peu après, non loin de là, là où le trident s'était effondré, apparut un nuage de lumière cristalline. Cette lueur convergea vers Wang Lin et disparut dans sa main droite.
 
-De même, à l'endroit où l'aile papillon du troisième Charriot de la Guerre Divine s'était désintégrée, subsistait une faible lueur aux sept couleurs. Un vague papillon arc-en-ciel se forma et lutta pour battre des ailes. Il vola lentement vers Wang Lin avant de se dissiper en éclats de lumière qui pénétrèrent dans son corps.
+De même, à l'endroit où l'aile papillon du troisième Char de Guerre Divin s'était désintégrée, subsistait une faible lueur aux sept couleurs. Un vague papillon arc-en-ciel se forma et lutta pour battre des ailes. Il vola lentement vers Wang Lin avant de se dissiper en éclats de lumière qui pénétrèrent dans son corps.
 
 Il y eut aussi ces deux épées courtes, l'une noire et l'autre blanche. Elles se reformèrent sous forme de fantômes, comme si une force mystérieuse les avait ramenées à la vie. Elles se changèrent en cerfs noirs et blancs avant d'entrer dans le corps de Wang Lin.
 

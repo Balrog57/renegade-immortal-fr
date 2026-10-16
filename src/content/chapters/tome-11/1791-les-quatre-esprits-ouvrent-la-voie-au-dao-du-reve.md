@@ -48,7 +48,7 @@ Cette figure était floue, imprégnée d'une énergie démoniaque. Cette essence
 
 « Grâce à elle, vous pourrez créer un sceau afin que vos souvenirs ne soient ni endommagés ni perdus lors de votre réincarnation. Ainsi, une fois que vous serez tous éveillés, vos souvenirs seront intégralement restaurés! »
 
-« Cela garantira également qu'à moins qu'un autre Grand Empereur ne fouille votre âme, personne ne pourra découvrir l'identité de votre vie antérieure! »
+« Cela garantira également qu'à moins qu'un autre Grand Empyréen ne fouille votre âme, personne ne pourra découvrir l'identité de votre vie antérieure! »
 
 « Avec cela, la réincarnation sera complète! » Xuan Luo agita sa main droite et la brume noire s'élança vers la porte. Le sentier de glace à l'intérieur fut alors recouvert par ce brouillard sombre.
 
@@ -60,7 +60,7 @@ Ce soleil était initialement invisible, mais sous le regard de Xuan Luo, des cr
 
 On pouvait le toucher, le sentir et le saisir!
 
-« Wang Lin, ceci est forgé à partir de la puissance de Grand Empereur de ce vieil homme; il peut accroître indéfiniment la puissance de tes sorts de Dao. Utilise-le avec ton Dao du Rêve! »
+« Wang Lin, ceci est forgé à partir de la puissance de Grand Empyréen de ce vieil homme; il peut accroître indéfiniment la puissance de tes sorts de Dao. Utilise-le avec ton Dao du Rêve! »
 
 « Emploie cette méthode pour sceller leurs souvenirs dans un rêve jusqu'au jour où tu viendras les éveiller! »
 
@@ -70,7 +70,7 @@ Lorsque Wang Lin toucha l'astre, son cœur trembla. Il percevait clairement une 
 
 « Est-ce là le pouvoir des neuf soleils... » Wang Lin contempla le soleil écarlate dans sa main et médita un instant avant de fermer les yeux. Son Dao du Rêve s'activa dès l'instant où ses paupières se fermèrent.
 
-Le Dao du Rêve était le sort originel de Wang Lin, déjà d'une puissance remarquable. Avec le trésor de Xuan Luo, sa force décupla, atteignant presque un stade où les rêves devenaient réalité!
+Le Dao du Rêve était le sort originel de Wang Lin, déjà d'une puissance remarquable. Avec le trésor de Xuan Luo, sa force se multiplia plusieurs fois, atteignant presque un stade où les rêves devenaient réalité!
 
 Une ondulation invisible se propagea depuis le corps de Wang Lin pour envelopper tout le monde. Lentement, chaque personne, y compris Li Qianmei, ferma les yeux et fut plongée dans un songe.
 
@@ -106,8 +106,8 @@ Zhou Yi acquiesça amèrement et joignit les mains vers Wang Lin. Il marcha vers
 
 Le quatrième à partir fut Qing Shui. Il s'approcha de Wang Lin et lui adressa un sourire.
 
-« Jeune frère, je t'attendrai sur le Continent Astral Immortel. Si tu trouves ma fille la première, prends soin d'elle pour moi. » Qing Shui sourit en regardant Papillon Rouge; son amour paternel était manifeste.
+« Junior Frère, je t'attendrai sur le Continent Astral Immortel. Si tu trouves ma fille la première, prends soin d'elle pour moi. » Qing Shui sourit en regardant Papillon Rouge; son amour paternel était manifeste.
 
 Les yeux de Papillon Rouge devinrent rouges et les larmes coulèrent. Elle fit quelques pas vers la porte, comme pour dire quelque chose, mais elle se mordit la lèvre inférieure et resta silencieuse.
 
-Elle regarda Qing Shui s'avancer vers la porte et disparaître à son tour. Les larmes ne cessaient de couler alors qu'elle se transformait en un rayon de lumière rouge, s'élançant vers la porte telle une papillon.
+Elle regarda Qing Shui s'avancer vers la porte et disparaître à son tour. Les larmes ne cessaient de couler alors qu'elle se transformait en un rayon de lumière rouge, s'élançant vers la porte tel un papillon.

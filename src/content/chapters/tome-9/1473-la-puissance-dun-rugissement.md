@@ -62,11 +62,11 @@ Après un long moment, le Sens Divin quitta lentement son corps pour continuer s
 
 La femme en blanc ne se détendit qu'une fois l'onde disparue, le visage légèrement empourpré. Après un instant, elle regarda dans la direction du passage avec un regard complexe.
 
-Wang Lin était assis dans le palais, et sa Sens Divin se propageait hors de son contrôle. Il voyait tous les cultivateurs du Système Stellaire Antique à l'intérieur du tombeau antique. Il vit la femme charmante et l'avatar de Maître Démon des Neuf Cieux!
+Wang Lin était assis dans le palais, et son Sens Divin se propageait hors de son contrôle. Il voyait tous les cultivateurs du Système Stellaire Antique à l'intérieur du tombeau antique. Il vit la femme charmante et l'avatar de Maître Démon des Neuf Cieux!
 
-À mesure que sa Sens Divin s'étendait, il aperçut Grande Désolation, le corps originel de Maître Démon des Neuf Cieux, Miao Yin, et enfin la femme en blanc!
+À mesure que son Sens Divin s'étendait, il aperçut Grande Désolation, le corps originel de Maître Démon des Neuf Cieux, Miao Yin, et enfin la femme en blanc!
 
-Poussant encore plus loin, sa Sens Divin atteignit la faille spatiale menant au Système Stellaire Antique.
+Poussant encore plus loin, son Sens Divin atteignit la faille spatiale menant au Système Stellaire Antique.
 
 Le Sens Divin de Wang Lin finit par stagner près de cette faille. À ce moment-là, du fait de sa fusion avec le tombeau antique, Wang Lin percevait des choses qu'il ne pouvait voir avec son niveau de culture actuel.
 
@@ -118,11 +118,11 @@ Elle représentait la limite ultime de ce système stellaire!
 
 Pourtant, comment la volonté du tombeau antique et celle résiduelle de Ye Mo pouvaient-elles être si facilement anéanties? Alors que la paume perçait la faille, un rugissement jaillit de la troisième couche du tombeau!
 
-Personne d'autre ne put l'entendre. Seul Wang Lin y assista clairement, car il était lié à la volonté du lieu. Le rugissement pénétra sa Sens Divin et fit briller intensément les yeux de son corps physique!
+Personne d'autre ne put l'entendre. Seul Wang Lin y assista clairement, car il était lié à la volonté du lieu. Le rugissement pénétra son Sens Divin et fit briller intensément les yeux de son corps physique!
 
 Tandis que ses yeux s'illuminaient, le rugissement qui avait pénétré sa conscience sembla s'engouffrer dans sa chair. Une étrange fluctuation parcourut son être, poussant Wang Lin à lâcher un rugissement de démence!
 
-ROAR!!
+RUGISSEMENT!!
 
 La puissance de ce cri fit changer les couleurs du monde et ébranla l'éternité elle-même!
 

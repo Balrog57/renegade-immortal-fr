@@ -112,8 +112,8 @@ Il quitta le siège!
 
 Au moment où il se leva, la connexion entre son cœur et celui de la troisième couche fut rompue! Le trône ne fut plus qu'un amas de décombres.
 
-Le palais retomba dans un silence de mort. Seuls deux respirations rauques continuaient de résonner dans l'immensité de la salle.
+Le palais retomba dans un silence de mort. Seules deux respirations rauques continuaient de résonner dans l'immensité de la salle.
 
 Wang Lin ferma les yeux, et la tête gigantesque qui avait remplacé Tu Si disparut lentement. Après un long moment, il retrouva son calme et ouvrit les yeux.
 
-« Désormais, je ne suis plus un Ancien Dieu issu de l'héritage de Tu Si... Je suis... un Ordre Ancestral! » Wang Lin retira sa main droite de l'Ancien Démon et pointa entre ses sourcils. Il extraya lentement l'héritage mémoriel qu'il avait obtenu dans la Terre de l'Ancien Dieu!
+« Désormais, je ne suis plus un Ancien Dieu issu de l'héritage de Tu Si... Je suis... un Ordre Ancien! » Wang Lin retira sa main droite de l'Ancien Démon et pointa entre ses sourcils. Il extraya lentement l'héritage mémoriel qu'il avait obtenu dans la Terre de l'Ancien Dieu!

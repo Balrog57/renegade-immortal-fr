@@ -8,7 +8,7 @@ slug: royaume-celeste-antique
 ---
 Le dieu antique portait une cicatrice béante sur la poitrine, comme si quelqu'un lui avait ouvert le torse dans des temps immémoriaux. Un dieu antique à 8 étoiles, même dépourvu de lignée royale, possédait déjà une puissance phénoménale. Laisser une marque aussi terrifiante témoignait de l'étendue de leur force.
 
-Roar!
+Rugissement!
 
 Le dieu antique se trouvait à moins de mille pieds de Wang Lin. Bien que cette distance parût considérable, elle n'était qu'une portée de poing comparée au corps d'un dieu antique qui mesurait des dizaines de milliers de pieds. Un grondement sourd retentit alors que le dieu antique à 8 étoiles décocha son coup.
 
@@ -78,11 +78,11 @@ Les yeux de Wang Lin s'ouvrirent.
 
 « En si peu de temps, il... il a réellement réussi à obtenir ce trésor! La probabilité qu'il soit le troisième n'est plus de 30 %, mais de 50 %! »
 
-« J'ai fouillé la grotte intérieure durant d'innombrables années, et Seven-Color a exploré la grotte extérieure pendant des éons. Nous n'avons jamais trouvé le troisième, ignorant totalement où il était passé... »
+« J'ai fouillé la grotte intérieure durant d'innombrables années, et Sept-Couleurs a exploré la grotte extérieure pendant des éons. Nous n'avons jamais trouvé le troisième, ignorant totalement où il était passé... »
 
 « Si je peux le trouver le premier... » Les yeux du Vieux Fantôme Zhan brillèrent de convoitise tandis qu'il serrait les poings.
 
-Quant à Wang Lin, lorsqu'il ouvrit les yeux, la goutte de sang qui constituait son Corps d'Immortal Céleste apparut et parcourut l'anneau une fois. Après ce cycle, l'anneau doré brilla d'un éclat encore plus intense.
+Quant à Wang Lin, lorsqu'il ouvrit les yeux, la goutte de sang qui constituait son Corps d'Immortel Céleste apparut et parcourut l'anneau une fois. Après ce cycle, l'anneau doré brilla d'un éclat encore plus intense.
 
 Cependant, cette fois, cette lumière dorée appartenait à Wang Lin!
 

@@ -8,7 +8,7 @@ slug: bataille-decisive-4
 ---
 Derrière Wang Lin s'étendaient plus de 100 000 têtes. Les hurlements misérables émanant de ces têtes se mêlaient aux bruits de massacre qui résonnaient sur le champ de bataille.
 
-« La Formation de la Vie et de la Mort est achevée, et la Formation du Karma est brisée. Je vais en créer une nouvelle! » Wang Lin, toujours assis sur le Four Impérial, agita sa main droite. Cinquante mille têtes formèrent un vortex géant devant lui.
+« La Formation de la Vie et de la Mort est achevée, et la Formation du Karma est brisée. Je vais en créer une nouvelle! » Wang Lin, toujours assis sur le Fourneau de l'Empereur, agita sa main droite. Cinquante mille têtes formèrent un vortex géant devant lui.
 
 Le vortex se mit soudainement à tourner dans un vacarme de hurlements. Bientôt, sa rotation cessa et la Formation du Karma apparut!
 
@@ -78,6 +78,6 @@ Wang Lin également cracha du sang. Cette roue formée par les trois grandes ess
 
 S'il n'y avait pas eu ces dizaines de milliers de cultivateurs du Royaume Intérieur, il n'aurait jamais pu faire tourner la roue d'essence. De même, si les trois autres cultivateurs du Vide Arcanique n'avaient pas été tués ou capturés par lui, ils auraient uni leurs forces pour résister, et il n'aurait pas pu obtenir l'aide nécessaire pour compléter le cycle de la roue.
 
-« Trois ans... Les trois dernières années! » Wang Lin était épuisé lorsqu'il se redressa du Four Impérial. Il prit le Four et la roue d'essence, puis s'envola vers l'horizon.
+« Trois ans... Les trois dernières années! » Wang Lin était épuisé lorsqu'il se redressa du Fourneau de l'Empereur. Il prit le Four et la roue d'essence, puis s'envola vers l'horizon.
 
 « Vous tous, reposez-vous pendant trois ans. Je veillerai sur vous! »

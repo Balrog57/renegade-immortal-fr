@@ -110,7 +110,7 @@ Simultanément, une voix glaciale résonna:
 
 « Ceci est un lieu interdit. Si tu fais un pas de plus, peu importe ton origine, tu seras détruit! »
 
-Wang Lin fronça les sourcils, s'arrêta et dit: « Je ne suis pas venu pour combattre. Je viens livrer un jade au Royaume du Vide Brillant au nom de l'ancien Empereur Divin Vermillon! »
+Wang Lin fronça les sourcils, s'arrêta et dit: « Je ne suis pas venu pour combattre. Je viens livrer un jade au Royaume du Vide Brillant au nom de l'ancien Empereur Divin de l'Oiseau Vermillon! »
 
 Les auras autour de lui faiblirent légèrement et la voix glaciale résonna de nouveau:
 

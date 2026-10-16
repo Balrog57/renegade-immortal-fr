@@ -88,7 +88,7 @@ Le fracas de la foudre et du tonnerre résonnait entre ciel et terre, comme si l
 
 Les membres de la famille Huan étaient tous livides. Hormis l'ancêtre, tout le monde commençait à paniquer.
 
-Le peuple du Système Stellaire Luotian avait grandi sous l'égide du Temple Céleste du Tonnerre; ils éprouvaient donc une crainte et un respect inimaginables pour les sorts de foudre. Face à l'attaque de la Bête du Tonnerre, qui représentait ce temple sacré, ce n'était pas leur culture qui vacillait, mais leurs cœurs.
+Le peuple du Système Stellaire de Luotian avait grandi sous l'égide du Temple Céleste du Tonnerre; ils éprouvaient donc une crainte et un respect inimaginables pour les sorts de foudre. Face à l'attaque de la Bête du Tonnerre, qui représentait ce temple sacré, ce n'était pas leur culture qui vacillait, mais leurs cœurs.
 
 Les rugissements de la tempête ne s'interrompirent pas et continuèrent de déchaîner des éclairs pour détruire la barrière. Cependant, il s'agissait malgré tout de la grande formation de la famille Huan, et sa puissance était prodigieuse. Même sous un tel assaut, elle tenait bon sans montrer de signe de rupture imminente.
 

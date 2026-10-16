@@ -40,13 +40,13 @@ Alors que la hache descendait, tous les cultivateurs sur son passage poussèrent
 
 Aucun cultivateur ne put résister un seul instant alors que la hache les transperçait. Seuls leurs cris de détresse résonnèrent!
 
-La hache balaya la zone et environ 5 000 cultivateurs périrent! Voyant la hache se lever pour frapper à nouveau, l'expression du Maître Dong Dizi, de l'ancêtre du Clan des Moineaux de Feu et de l'Estimé Nan Zhao changea radicalement, et ils tous se précipitèrent vers la hache sans hésiter!
+La hache balaya la zone et environ 5 000 cultivateurs périrent! Voyant la hache se lever pour frapper à nouveau, l'expression du Maître Dong Dizi, de l'ancêtre du Clan des Moineaux de Feu et de l'Estimé Nan Zhao changea radicalement, et ils se précipitèrent tous vers la hache sans hésiter!
 
 « Entrez plus vite dans le Royaume Intérieur, foncez de toutes vos forces! »
 
-« Nous allons bloquer cette Hache Fende-Ciel pendant que vous tous vous engouffrez à l'intérieur! »
+« Nous allons bloquer cette Hache Brise-Ciel pendant que vous tous vous engouffrez à l'intérieur! »
 
-Le palais géant et noir situé à l'extérieur de la formation s'ouvrit soudainement et un vieil homme chétif en sortit. Son corps n'était qu'une carcasse squelettique. Il fit un pas en avant, se rapprochant instantanément pour tenter d'arrêter la Hache Fende-Ciel. Cependant, à cet instant, le jade émit un éclat et une lumière douce enveloppa le vieil homme!
+Le palais géant et noir situé à l'extérieur de la formation s'ouvrit soudainement et un vieil homme chétif en sortit. Son corps n'était qu'une carcasse squelettique. Il fit un pas en avant, se rapprochant instantanément pour tenter d'arrêter la Hache Brise-Ciel. Cependant, à cet instant, le jade émit un éclat et une lumière douce enveloppa le vieil homme!
 
 L'expression de l'homme changea. Il avait déjà remarqué que l'aura du jade lui était familière. Maintenant qu'elle l'enveloppait, son esprit trembla.
 
@@ -54,11 +54,11 @@ L'expression de l'homme changea. Il avait déjà remarqué que l'aura du jade lu
 
 Alors que tout cela se produisait, une intention meurtrière brilla dans les yeux de Wang Lin. Il avait attendu pour confirmer sa conjecture. Peut-être que, depuis le début, le Seigneur du Royaume Scellé attendait ce moment précis!
 
-Il n'hésita plus et s'avança. Tandis que les cultivateurs aux yeux rouges chargeaient, Wang Lin fit un geste de la main et dix millions de rayons d'énergie de sabre jaillirent!
+Il n'hésita plus et s'avança. Tandis que les cultivateurs aux yeux rouges chargeaient, Wang Lin fit un geste de la main et dix millions de rayons d'énergie d'épée jaillirent!
 
 Derrière ces dix millions de rayons se trouvaient d'innombrables restrictions. Il engageait un combat d'un homme contre des dizaines de milliers!
 
-L'Estimé Ling Dong et Zhou Jin durent attaquer sous les ordres de Wang Lin. Ils foncèrent vers le Maître Dong Dizi et sa compagnie, qui tentaient d'intercepter la Hache Fende-Ciel!
+L'Estimé Ling Dong et Zhou Jin durent attaquer sous les ordres de Wang Lin. Ils foncèrent vers le Maître Dong Dizi et sa compagnie, qui tentaient d'intercepter la Hache Brise-Ciel!
 
 Wang Lin fit un pas en avant et la tempête de feu aux neuf couleurs de son œil gauche jaillit. Le Feu Éthéré se propagea. Les émotions des cultivateurs du Royaume Extérieur alimentèrent son brasier. Toutes ces émotions étaient capables d'embraser le Feu Éthéré!
 
@@ -92,15 +92,15 @@ Tuer, tuer, tuer! Les yeux de Wang Lin étaient injectés de sang à force de ma
 
 Au milieu de ce carnage, Wang Lin en avait oublié le nombre de victimes. De nombreuses blessures apparurent sur son corps, mais elles guérissaient à une vitesse fulgurante!
 
-La Hache Fende-Ciel frappa soudainement le sol. Près de 5 000 cultivateurs furent déchiquetés et pérint misérablement!
+La Hache Brise-Ciel frappa soudainement le sol. Près de 5 000 cultivateurs furent déchiquetés et périrent misérablement!
 
-« Ling Dong, Zhou Jin, vous osez nous barrer la route? Vous êtes des cultivateurs du Royaume Extérieur, seriez-vous en train de devenir des traîtres?! » Le Maître Dong Dizi agita ses manches et repoussa, contre toute attente, Ling Dong et Zhou Jin. Non seulement cela, mais il disposait également d'assez de puissance pour tenter d'empêcher la Hache Fende-Ciel de retomber!
+« Ling Dong, Zhou Jin, vous osez nous barrer la route? Vous êtes des cultivateurs du Royaume Extérieur, seriez-vous en train de devenir des traîtres?! » Le Maître Dong Dizi agita ses manches et repoussa, contre toute attente, Ling Dong et Zhou Jin. Non seulement cela, mais il disposait également d'assez de puissance pour tenter d'empêcher la Hache Brise-Ciel de retomber!
 
 Zhou Jin réfléchit silencieusement, affichant une expression complexe, mais il attaqua tout de même sans hésiter. Ling Dong, quant à lui, était de marbre. Les paroles de l'adversaire n'étaient pas en mesure de provoquer la moindre fluctuation dans son esprit!
 
 La Grand Maître Yun Lou s'était avancée dans la formation. Lorsqu'elle vit Wang Lin, la peur envahit ses yeux. Elle leva sa main semblable au jade et hurla: « Tuez Wang Lin!! »
 
-L'ancêtre du Clan des Moineaux de Feu se retourna soudainement avec une expression féroce. Il ignora carrément la Hache Fende-Ciel et fonça sur Wang Lin!
+L'ancêtre du Clan des Moineaux de Feu se retourna soudainement avec une expression féroce. Il ignora carrément la Hache Brise-Ciel et fonça sur Wang Lin!
 
 Il y avait également l'Estimé Nan Zhao. Ses yeux brillèrent alors qu'il affichait un sourire carnassier, chargeant Wang Lin aux côtés de l'ancêtre du Clan des Moineaux de Feu!
 

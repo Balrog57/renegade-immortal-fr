@@ -8,7 +8,7 @@ slug: leffondrement-du-pilier-spirituel
 ---
 Le tonnerre était assourdissant. C'était comme si un lac de foudre s'animait, avec Wang Lin en son centre. À mesure qu'il progressait, une quantité toujours plus grande de tonnerre convergeait vers lui. La scène était d'une puissance terrifiante!
 
-Lorsque le Daoïste Esprit Dispersé vit Wang Lin, il fut stupéfait. Lors de la bataille contre l'Ancien principal, il avait réalisé la force colossale de ce dernier; ses sorts étaient semblables à des miracles de la création elle-même.
+Lorsque le Daoïste Esprit Dispersé vit Wang Lin, il fut stupéfait. Lors de la bataille contre l'Ancien en chef, il avait réalisé la force colossale de ce dernier; ses sorts étaient semblables à des miracles de la création elle-même.
 
 Maintenant qu'ils avaient quitté les 7 Millions de Mondes, Wang Lin était capable d'invoquer toute cette foudre. Les grondements tonitruants de ce tonnerre dansant le frappèrent une fois de plus de stupeur.
 
@@ -30,21 +30,21 @@ Les étoiles de son Dieu Ancien tournoyaient entre ses sourcils et ses bras se g
 
 C'était comme si l'on redressait un miroir pour le présenter au monde entier!
 
-Les pupilles du Daoïste Esprit Dispersé se rétractèrent; il recula inconsciemment de quelques pas, fixant Wang Lin avec horreur. Il n'était pas le seul: les membres du Clan du Tonnerre Dispersé savaient depuis longtemps qu'un ennemi redoutable approchait. Tous les cultivateurs de la Peste Céleste étaient sortis de la terre sainte pour contempler Wang Lin.
+Les pupilles du Daoïste Esprit Dispersé se rétractèrent; il recula inconsciemment de quelques pas, fixant Wang Lin avec horreur. Il n'était pas le seul: les membres du Clan du Tonnerre Dispersé savaient depuis longtemps qu'un ennemi redoutable approchait. Tous les cultivateurs du Fléau Céleste étaient sortis de la terre sainte pour contempler Wang Lin.
 
 En le voyant, leurs esprits tremblèrent et leurs visages se décomposèrent!
 
 Plus tôt, bien que Wang Lin ait pris possession du corps de Yu Fei, son âme originelle s'était envolée, révélant ainsi sa véritable apparence à tous.
 
-L'Ancien principal n'était pas revenu après avoir poursuivi cet intrus, mais Wang Lin, lui, était de retour. Cela provoqua un choc immense au sein du Clan, et d'innombrables spéculations traversèrent leurs esprits, chacune alimentant leur panique.
+L'Ancien en chef n'était pas revenu après avoir poursuivi cet intrus, mais Wang Lin, lui, était de retour. Cela provoqua un choc immense au sein du Clan, et d'innombrables spéculations traversèrent leurs esprits, chacune alimentant leur panique.
 
-« La culture de l'Ancien principal est capable de faire trembler le ciel, il ne devrait pas avoir de problèmes. Je pense plutôt qu'il a utilisé une méthode inconnue ou qu'un allié l'a piégé pour qu'il puisse venir briser la formation. Ne paniquons pas, tenons bon et l'Ancien principal reviendra bientôt! »
+« La culture de l'Ancien en chef est capable de faire trembler le ciel, il ne devrait pas avoir de problèmes. Je pense plutôt qu'il a utilisé une méthode inconnue ou qu'un allié l'a piégé pour qu'il puisse venir briser la formation. Ne paniquons pas, tenons bon et l'Ancien en chef reviendra bientôt! »
 
 « C'est vrai, avec son niveau de culture, à part les cultivateurs du troisième pas, personne n'est de taille. L'Ancien possède aussi de nombreux sorts et trésors, il ne rencontrera aucune difficulté! »
 
 « Mais... mais l'Éclair Éternel est soudainement parti, et lorsqu'il est revenu, il était bien plus faible. La formation défensive s'est également activée de manière incontrôlée. C'est... »
 
-Les membres du Clan affichaient des visages sombres en observant Wang Lin au-delà de la barrière. Pourtant, ils voulaient croire que l'Ancien principal allait bien et qu'il arriverait sous peu!
+Les membres du Clan affichaient des visages sombres en observant Wang Lin au-delà de la barrière. Pourtant, ils voulaient croire que l'Ancien en chef allait bien et qu'il arriverait sous peu!
 
 Wang Lin leva les bras comme s'il soutenait le gigantesque lac de tonnerre. Une lumière mystérieuse brilla dans ses yeux lorsqu'il déclara d'une voix lente:
 
@@ -72,7 +72,7 @@ Des craquements retentirent et des fissures apparurent sur la barrière. La stru
 
 Un tumulte éclata à l'intérieur de la formation. Les membres du Clan étaient stupéfaits, leurs yeux empreints de peur, de panique, mais surtout d'une incrédulité totale!
 
-« Le corps de votre Ancien principal a péri et son âme originelle est entre mes mains. Même l'Éclair Éternel de votre clan a fui pour revenir ici, et vous pensez qu'une simple formation défensive pourra m'arrêter? » La voix froide de Wang Lin, telle un coup de tonnerre, traversa la barrière pour frapper les oreilles des membres du Clan.
+« Le corps de votre Ancien en chef a péri et son âme originelle est entre mes mains. Même l'Éclair Éternel de votre clan a fui pour revenir ici, et vous pensez qu'une simple formation défensive pourra m'arrêter? » La voix froide de Wang Lin, telle un coup de tonnerre, traversa la barrière pour frapper les oreilles des membres du Clan.
 
 À ces mots, leurs corps tremblèrent de choc!
 
@@ -96,17 +96,17 @@ Le dragon rugit et ne s'arrêta pas après avoir percé la défense. Sa taille �
 
 Le Daoïste Esprit Dispersé suivit le dragon dans l'enceinte du Clan, le visage déformé par une haine profonde.
 
-« Cet homme n'est qu'au stade de Briseur du Nirvana, mais pour une raison inconnue, il déploie la puissance d'un cultivateur de la Peste Céleste! Tout le monde, attaquez en même temps pour l'éliminer! »
+« Cet homme n'est qu'au stade de Briseur du Nirvana, mais pour une raison inconnue, il déploie la puissance d'un cultivateur du Fléau Céleste! Tout le monde, attaquez en même temps pour l'éliminer! »
 
-« Ce moine chauve au quatrième niveau de la Peste Céleste est le véritable ennemi, empêchez-le de progresser! »
+« Ce moine chauve au quatrième niveau du Fléau Céleste est le véritable ennemi, empêchez-le de progresser! »
 
-Le Clan comptait onze personnes au stade de la Peste Céleste. À cet instant, sept d'entre elles chargèrent le Daoïste Esprit Dispersé, menées par l'un des deux cultivateurs du quatrième niveau! L'autre s'élança contre Wang Lin.
+Le Clan comptait onze personnes au stade du Fléau Céleste. À cet instant, sept d'entre elles chargèrent le Daoïste Esprit Dispersé, menées par l'un des deux cultivateurs du quatrième niveau! L'autre s'élança contre Wang Lin.
 
-« Sans l'Ancien principal, personne dans ce clan ne pourra m'arrêter », songea Wang Lin en secouant la tête. Il ne voulait pas s'enliser dans un combat contre ces cultivateurs; il devait pénétrer à l'intérieur pour dévorer l'Éclair Éternel le plus vite possible.
+« Sans l'Ancien en chef, personne dans ce clan ne pourra m'arrêter », songea Wang Lin en secouant la tête. Il ne voulait pas s'enliser dans un combat contre ces cultivateurs; il devait pénétrer à l'intérieur pour dévorer l'Éclair Éternel le plus vite possible.
 
 Le dragon de tonnerre chargea au cœur du Clan. Les grondements résonnèrent et les expressions des cultivateurs qui tentaient de barrer la route de Wang Lin changèrent radicalement avant qu'ils ne reculent!
 
-« L'Ancien principal reviendra bientôt, nous devons faire tout notre possible pour les retarder! »
+« L'Ancien en chef reviendra bientôt, nous devons faire tout notre possible pour les retarder! »
 
 « Dès son retour, ils seront sans aucun doute anéantis! »
 
@@ -114,6 +114,6 @@ Les yeux des membres du Clan étaient injectés de sang alors qu'ils se précipi
 
 Tout cela parce qu'ils refusaient d'admettre la défaite de leur chef. Ils étaient convaincus qu'une fois l'Ancien revenu, le Clan serait hors de danger!
 
-L'Ancien principal était le pilier spirituel de tout le Clan du Tonnerre Dispersé!
+L'Ancien en chef était le pilier spirituel de tout le Clan du Tonnerre Dispersé!
 
-Wang Lin ricana. Tandis que le dragon avançait, il agita sa main droite et le Fouet d'Âme apparut. Le fouet doré se déroula, révélant une âme originelle brisée. C'était l'âme de l'Ancien principal du Clan du Tonnerre Dispersé!!!
+Wang Lin ricana. Tandis que le dragon avançait, il agita sa main droite et le Fouet de l'Âme apparut. Le fouet doré se déroula, révélant une âme originelle brisée. C'était l'âme de l'Ancien en chef du Clan du Tonnerre Dispersé!!!

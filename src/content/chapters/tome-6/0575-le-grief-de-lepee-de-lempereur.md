@@ -48,13 +48,13 @@ Simultanément, le pavillon des épées dans le palais impérial était totaleme
 
 À cet instant, tous les commandants en chef et généraux démons remarquèrent cette énergie. Ils sortirent tous pour scruter le ciel nocturne.
 
-Dans le manoir impérial, un homme d'âge moyen vêtu d'une robe royale observa le ciel. Ses yeux s'illuminèrent et il murmura: « Qui a osé provoquer l'épée de l'Empereur pour qu'elle quitte la formation?! »
+Dans le manoir impérial, un homme d'âge moyen vêtu d'une robe blanche observa le ciel. Ses yeux s'illuminèrent et il murmura: « Qui a osé provoquer l'épée de l'Empereur pour qu'elle quitte la formation?! »
 
 Le général démon Shi Xiao se trouvait également dans son propre domaine en levant les yeux au ciel. L'expression de Sun Tao était grave alors qu'il contemplait la lueur argentée, frappé d'un immense choc.
 
 « L'épée de l'Empereur s'est envolée d'elle-même; il y a quelque chose de suspect là-dedans! » Shi Xiao prit une profonde inspiration, ses yeux brillant d'une lueur mystérieuse.
 
-À Ville de l'Univers, un homme aux cheveux noirs leva les yeux depuis sa cour intérieure. Seule sa silhouette était visible, son visage restant dans l'ombre tandis qu'il observait le flash argenté. Il murmura: « Voici la colère de l'épée de l'Empereur! Comment percevez-vous l'épée de l'Empereur, vous deux? »
+Dans la Ville de l'Univers, un homme aux cheveux noirs leva les yeux depuis sa cour intérieure. Seule sa silhouette était visible, son visage restant dans l'ombre tandis qu'il observait le flash argenté. Il murmura: « Voici la colère de l'épée de l'Empereur! Comment percevez-vous l'épée de l'Empereur, vous deux? »
 
 Deux individus se tenaient derrière lui, portant chacun une épée massive dans le dos. Leurs yeux brillaient d'une lumière mystérieuse alors qu'ils fixaient la lueur argentée s'éloignant au loin.
 

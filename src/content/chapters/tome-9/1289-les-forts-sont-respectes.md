@@ -44,7 +44,7 @@ De vastes fissures apparurent sur la montagne, accompagnées de bruits de ruptur
 
 Tout cela se produisit en un instant. Tandis que Wang Lin absorbait l'aura du dieu ancien, six auras extrêmement puissantes surgirent de toutes parts, dont deux provenaient de la montagne elle-même.
 
-Ces six auras appartenaient à des cultivateurs extrêmement puissants au premier stade de la Flétrissure Céleste!
+Ces six auras appartenaient à des cultivateurs extrêmement puissants au premier stade du Fléau Céleste!
 
 « Li Zhihao!!! C'est toi!! Que fais-tu?! » Un rugissement retentit depuis l'une des deux auras émanant de la montagne. L'homme avait les cheveux blancs et portait une robe noire. Après avoir hurlé, il vit ce que Wang Lin entreprenait et manifesta une intention meurtrière!
 
@@ -70,7 +70,7 @@ Wang Lin réfléchit silencieusement en observant le Maître de la Secte. Après
 
 L'aura du dieu ancien sous Wang Lin s'agita une fois de plus pour charger en lui. Ses vêtements furent secoués par la poussée de l'énergie divine antique qui affluait en son sein. La quatrième étoile se forma entre ses sourcils!
 
-« Une faveur? Pour qui vous prenez-vous? Quelles sont vos qualifications pour devoir un service à la Secte Éternelle? Croyez-vous être le Grand Ancien de la Secte de Dieu?! » L'homme en noir, qui avait lancé l'attaque de foudre, venait de résister à son propre sort. Le visage un peu pâle, il ricana avec sarcasme. Il chargea Wang Lin et ses mains formèrent un sceau. Un sortilège capable de faire trembler les cieux commença à se manifester, entouré d'éclairs violets!
+« Une faveur? Pour qui vous prenez-vous? Quelles sont vos qualifications pour devoir un service à la Secte Éternelle? Croyez-vous être l'Ancien Suprême de la Secte de Dieu?! » L'homme en noir, qui avait lancé l'attaque de foudre, venait de résister à son propre sort. Le visage un peu pâle, il ricana avec sarcasme. Il chargea Wang Lin et ses mains formèrent un sceau. Un sortilège capable de faire trembler les cieux commença à se manifester, entouré d'éclairs violets!
 
 Le Maître de la Secte Éternelle devint encore plus glacial. Lorsqu'il avait appris la disparition et la prétendue mort de Wang Lin, il n'avait pas protégé la Secte Origin comme il l'avait promis; au contraire, il les avait tenus prêts à être livrés à la Secte de Dieu. Il ne deviendrait pas l'ennemi de la Secte de Dieu pour une seule personne ou une simple branche sectaire! Et encore moins pour protéger le petit Secte Origin qui n'avait plus aucune valeur.
 

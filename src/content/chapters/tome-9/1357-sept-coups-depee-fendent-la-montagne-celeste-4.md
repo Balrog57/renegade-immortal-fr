@@ -10,9 +10,9 @@ L'Ancien en chef fut totalement ébranlé par la puissance de cette épée. Il �
 
 « Quel genre d'épée est-ce là?! Même l'armure de tonnerre éternel ne peut y résister, et je suis gravement blessé! » Le visage de l'Ancien était pâle, empreint d'horreur.
 
-L'armure de tonnerre éternel était l'un des trois trésors majeurs du Clan du Tonnerre Dispersé, bien plus puissante que le Miroir du Massacre de Tonnerre. Raffinée par l'ancêtre du troisième pas du Clan du Tonnerre Dispersé, elle avait été transmise de génération en génération pour protéger le clan!
+L'armure de tonnerre éternel était l'un des trois trésors majeurs du Clan du Tonnerre Dispersé, bien plus puissante que le Miroir de Massacre de la Foudre. Raffinée par l'ancêtre du troisième pas du Clan du Tonnerre Dispersé, elle avait été transmise de génération en génération pour protéger le clan!
 
-Seules les personnes ayant atteint le cinquième niveau de la Peste Céleste pouvaient porter cette armure. Même face à des cultivateurs du troisième pas, elle permettait de survivre un instant de plus!
+Seules les personnes ayant atteint le cinquième Fléau Céleste pouvaient porter cette armure. Même face à des cultivateurs du troisième pas, elle permettait de survivre un instant de plus!
 
 Cependant, l'armure avait été détruite en un seul coup, ce qui fit frémir l'Ancien de terreur! Alors qu'il s'apprêtait à battre en retraite, une lueur froide jaillit des yeux de Wang Lin. Il leva lentement son épée de sept pieds!
 
@@ -90,7 +90,7 @@ Le grondement fut si intense qu'on aurait dit que l'espace lui-même s'effondrai
 
 Dans ce vacarme, la carte de la Grande Ourse trembla et se déchira. Les neuf étoiles mortelles se brisèrent et se dissipèrent. Le corps de l'Ancien n'était plus qu'un amas sanglant; ses jambes avaient explosé, ne laissant que son buste. Une peur indescriptible le submergea, le tirant de sa folie. Il recula avec anxiété en formant des sceaux de toutes urgence. La chair de son bas du corps s'agita et il se régénéra rapidement!
 
-« Cet homme possède le Fouet d'Emprisonnement des Âmes du Million de Mondes, je ne peux pas m'échapper avec mon âme originelle! »
+« Cet homme possède le Fouet de Scellement des Âmes des Millions de Mondes, je ne peux pas m'échapper avec mon âme originelle! »
 
 Le corps de Wang Lin trembla lorsque les cinquième et quatrième rayons d'énergie se dissipèrent. D'innombrables vies s'étaient éteintes dans les 7 Millions de Mondes, et il cracha du sang, ses forces et son corps luttant contre l'épuisement.
 

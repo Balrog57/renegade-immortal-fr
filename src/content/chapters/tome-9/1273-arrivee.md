@@ -74,7 +74,7 @@ Au moment où la main descendit, les yeux de Wang Lin brillèrent d'un regard fr
 
 Il ne manquait qu'une seule ombre pour atteindre les dix millions.
 
-À cet instant, l'index droit de Wang Lin devint la ultime ombre d'épée, et le nombre atteignit dix millions: un niveau de complétion parfaite.
+À cet instant, l'index droit de Wang Lin devint l'ultime ombre d'épée, et le nombre atteignit dix millions: un niveau de complétion parfaite.
 
 Dès que cette complétude fut atteinte, les ombres de deux cerfs apparurent et encerclèrent l'index de Wang Lin lors de la collision avec la main!
 
@@ -116,8 +116,8 @@ Ce sort était suffisant pour tuer n'importe quel Briseur du Nirvana, et même l
 
 Il ne restait qu'un point rouge au centre de la paume, et une goutte de sang tomba.
 
-Les sorts de Wang Lin avaient pu détruire quatre doigts du Daoïste Rêve Bleu. Désormais, sa puissance avait considérablement augmenté, et la force des épées déverrouillées n'avait rien d'ordinaire!
+Les sorts de Wang Lin avaient pu détruire quatre doigts du Maître du Dao Rêve Bleu. Désormais, sa puissance avait considérablement augmenté, et la force des épées déverrouillées n'avait rien d'ordinaire!
 
-Lors de son premier échange avec le Daoïste Eau, Wang Lin avait craché du sang. Une douleur intense lui avait déchiré les os et le corps, et il avait été projeté au sol depuis le ciel.
+Lors de son premier échange avec le Shui Daozi, Wang Lin avait craché du sang. Une douleur intense lui avait déchiré les os et le corps, et il avait été projeté au sol depuis le ciel.
 
-Cependant, le Daoïste Eau avait été blessé! Même si ce n'était qu'une légère plaie, il était tout de même touché!
+Cependant, le Shui Daozi avait été blessé! Même si ce n'était qu'une légère plaie, il était tout de même touché!

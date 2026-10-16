@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1209 - Would You
 slug: le-feriez-vous
 ---
-En tant que l'un des sept grands clans de l'Ancien Système Stellaire, le Clan Dévorant la Lune contrôlait un vaste champ stellaire. Leur ancêtre avait autrefois accompli de grands mérites, conférant au Clan Dévorant la Lune un statut extrêmement élevé. De plus, trois d'entre eux étaient devenus des Anciens de l'Union Souveraine, ce qui leur avait permis de connaître d'innombrables années de gloire.
+En tant que l'un des sept grands clans du Système Stellaire Antique, le Clan Dévorant la Lune contrôlait un vaste champ stellaire. Leur ancêtre avait autrefois accompli de grands mérites, conférant au Clan Dévorant la Lune un statut extrêmement élevé. De plus, trois d'entre eux étaient devenus des Anciens de l'Union Souveraine, ce qui leur avait permis de connaître d'innombrables années de gloire.
 
 Dans la partie sud du territoire du Clan Dévorant la Lune, il existait une terre interdite où nul n'était autorisé à pénétrer. Cette zone était protégée par de lourdes mesures de sécurité, et seuls certains membres du clan pouvaient y accéder pour cultiver.
 
@@ -40,7 +40,7 @@ Plusieurs auras puissantes se précipitèrent depuis lointain.
 
 Le vieil homme à la robe lunaire leva les yeux vers le vide et dit, les dents serrées: « Un ancien dieu royal a annulé l'ancien pacte! » Cependant, enfouie au plus profond de son regard, une peur et une panique grandissantes commençaient à poindre...
 
-Wang Lin ignorait ce qui se passait dans l'Ancien Système Stellaire, au-delà du Royaume Scellé. Les lamentations s'atténuèrent progressivement jusqu'à disparaître totalement. Le corps du jeune homme du Clan Dévorant la Lune se changea en sang qui s'écoula du squelette de Zhan Xingye jusqu'au sol.
+Wang Lin ignorait ce qui se passait dans le Système Stellaire Antique, au-delà du Royaume Scellé. Les lamentations s'atténuèrent progressivement jusqu'à disparaître totalement. Le corps du jeune homme du Clan Dévorant la Lune se changea en sang qui s'écoula du squelette de Zhan Xingye jusqu'au sol.
 
 Les os du jeune homme étaient complètement brisés et éparpillés. Il n'en restait que deux fragments, maintenus par les clous aux sept couleurs.
 
@@ -52,7 +52,7 @@ La lumière aux sept couleurs tomba du ciel, mais elle commença immédiatement 
 
 L'œil gauche de Wang Lin dégageait un feu stupéfiant. Ce feu fut d'abord rouge, puis devint rapidement blanc. Cela fit que l'œil gauche de Wang Lin devint presque entièrement blanc!
 
-L'Oiseau Vermillon était sur le point de s'éveiller pour la troisième fois! Après avoir absorbé la plume à Peng Lai et dévoré l'esprit ancestral du phénix invoqué par le membre du Clan des Moineaux de Feu, le troisième éveil de l'Oiseau Vermillon était arrivé!
+L'Oiseau Vermillon était sur le point de s'éveiller pour la troisième fois! Après avoir absorbé la plume à Peng Lai et dévoré l'esprit ancestral de l'oiseau de feu invoqué par le membre du Clan des Moineaux de Feu, le troisième éveil de l'Oiseau Vermillon était arrivé!
 
 À ce moment-là, la lumière aux sept couleurs continuait d'être repoussée et une vague de chaleur se propagea, prenant Wang Lin pour centre. La Restriction Temporelle s'était déjà rétablie, mais à cause du sceau, la température devint ici encore plus élevée!
 
@@ -90,7 +90,7 @@ Tandis que des grondements tonitruants résonnaient, la Restriction Temporelle s
 
 À l'instant de son effondrement, le monde fut ébranlé! Des quantités massives de feu jaillirent et se répandirent dans tout le Royaume aux Sept Couleurs. Dans la montagne située aux profondeurs du royaume, le vieil homme aux cheveux blancs ouvrit soudainement les yeux, frappé par la stupeur. Il se leva précipitamment et regarda vers l'endroit où se trouvait Wang Lin!
 
-Dans l'Ancien Système Stellaire, au sein du palais flottant parmi les étoiles infinies, la lumière n'était plus présente. Seules les pierres de jade flottantes émettaient une douce lueur qui semblait éclairer le temple.
+Dans le Système Stellaire Antique, au sein du palais flottant parmi les étoiles infinies, la lumière n'était plus présente. Seules les pierres de jade flottantes émettaient une douce lueur qui semblait éclairer le temple.
 
 Le temple était plongé dans un silence absolu, d'une tranquillité terrifiante. Pourtant, à cet instant précis, l'un des chandeliers s'alluma soudainement. La flamme vacillait, faisant alterner le temple entre l'ombre et la lumière, ce qui accentuait sa mélancolie sinistre.
 

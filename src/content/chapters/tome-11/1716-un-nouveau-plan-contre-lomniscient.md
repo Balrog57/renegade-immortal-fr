@@ -26,7 +26,7 @@ En contemplant ce lieu, l'expression de Wang Lin perdit sa froideur. C'était un
 
 Beaucoup de personnes qu'il connaissait se trouvaient ici; il ne pouvait donc abandonner cet endroit.
 
-« La rivière argentée du Fleuve Invoqué contient de nombreuses restrictions, mais elle n'est pas assez puissante... » Auparavant, Wang Lin n'avait pas eu la capacité de renforcer ces restrictions, mais désormais, il le pouvait.
+« La rivière argentée de la Rivière Invoquée contient de nombreuses restrictions, mais elle n'est pas assez puissante... » Auparavant, Wang Lin n'avait pas eu la capacité de renforcer ces restrictions, mais désormais, il le pouvait.
 
 Wang Lin ne pénétra pas dans le Royaume Céleste mais resta à l'extérieur, fixant la rivière argentée. Après l'avoir observée un instant, les lignes de sang horizontales qui avaient disparu de son regard réapparurent, émettant une lueur rouge fantomatique.
 
@@ -56,7 +56,7 @@ Son regard balaya l'assemblée et il esquissa un doux sourire.
 
 « Je suis rentré à la maison. »
 
-Ces trois mots déclenchèrent une explosion de acclamations dans le Royaume Céleste. La partie occidentale du royaume était autrefois vide, mais un clan issu du Système Stellaire Antique s'y était installé: le Clan de la Soie Bleue.
+Ces trois mots déclenchèrent une explosion d'acclamations dans le Royaume Céleste. La partie occidentale du royaume était autrefois vide, mais un clan issu du Système Stellaire Antique s'y était installé: le Clan de la Soie Bleue.
 
 Le Maître du Dao Rêve Bleu était assis dans une hutte qu'il avait bâtie lui-même; il leva les yeux vers le ciel et afficha un sourire. Sa fille, Li Qianmei, n'était pas à ses côtés, étant entrée en culture fermée.
 
@@ -78,7 +78,7 @@ Zhou Ru ne partait jamais; elle accompagnait Wang Lin comme une fille. Elle lui 
 
 En voyant la maturité de Zhou Ru, Wang Lin ressentait de la chaleur, mais aussi de la douleur. Cette douleur venait de ses pensées pour Li Muwan et de ce qui s'était passé sur la planète Suzaku.
 
-Il avait le sentiment d'avoir fait du tort à Wan Er. Sa souffrance était un secret qu'il seul portait, une douleur que lui seul pouvait percevoir. Et deux mille ans suffisaient à tout enfouir.
+Il avait le sentiment d'avoir fait du tort à Wan Er. Sa souffrance était un secret qu'il portait seul, une douleur que lui seul pouvait percevoir. Et deux mille ans suffisaient à tout enfouir.
 
 Il y avait aussi Treize et Da Tou. Ils cultivaient ici. Grâce aux conseils occasionnels de Wang Lin, ils avaient acquis de nombreux éveils. Wang Lin avait restitué le sang spirituel de Da Tou et levé le sceau de serviteur, lui offrant ainsi sa liberté.
 
@@ -94,7 +94,7 @@ Zhou Yi vint également une fois. Sa tristesse s'intensifia après avoir partag�
 
 Son allure était désolée. Il cherchait toujours à ce que Qing Shui reconnaisse son existence ou se souvienne de lui. Quel qu'en soit le résultat, il avait choisi d'attendre, même si cela devait durer toute une vie.
 
-Bientôt, un mois s'écoula au nouveau Royaume Céleste. Durant ce temps, Wang Lin sortit le pavillon céleste qu'il avait obtenu dans le Royaume Céleste du Tonnerre. Il en extraira tous les sorts célestes pour les transmettre à Qing Lin et aux autres.
+Bientôt, un mois s'écoula au nouveau Royaume Céleste. Durant ce temps, Wang Lin sortit le pavillon céleste qu'il avait obtenu dans le Royaume Céleste du Tonnerre. Il en extrait tous les sorts célestes pour les transmettre à Qing Lin et aux autres.
 
 Ils organiseraient la transmission de ces sorts, ce qui accroîtrait la puissance globale du Royaume Céleste.
 
@@ -110,7 +110,7 @@ Quant au Daoïste aux Sept Couleurs, après avoir quitté la Mer des Nuages, il 
 
 Ils semblaient employer un type de sort spécifique, né des batailles entre les Royaumes Intérieur et Extérieur. Les morts innombrables de ces cultivateurs semblaient avoir offert une opportunité au Daoïste aux Sept Couleurs.
 
-Wang Lin cherchait lui aussi la troisième âme. Durant ce mois, il passa la majeure partie de son temps à étudier l'usage de la Voile Fantomatique et le contrôle du sort d'illusion qu'elle contenait.
+Wang Lin cherchait lui aussi la troisième âme. Durant ce mois, il passa la majeure partie de son temps à étudier l'usage de la Voile Fantôme et le contrôle du sort d'illusion qu'elle contenait.
 
 Cela exigerait du temps, et malgré son impatience, il n'y avait pas de raccourci possible. Cependant, comparée à la recherche de la troisième âme, une autre épine dans le cœur de Wang Lin devait être retirée en priorité!
 

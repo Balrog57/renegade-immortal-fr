@@ -8,7 +8,7 @@ slug: reprimande-au-secte-everlasting-8
 ---
 « Merci, Compagnon Cultivateur Lu, pour votre clémence! » Le visage de Du Lin était livide alors qu'il joignait les mains. Le sang coulait du coin de sa bouche et il s'éclipsa rapidement sous la pluie, le dos empreint d'une profonde défaite.
 
-En tant que Grand Ancien de la Vallée des Pins Pourpres de rang 7 et l'une des figures centrales de la secte principal, une quantité immense de pilules lui avait été octroyée. Même de puissants cultivateurs étaient venus lui enseigner le Dao; il pensait avoir atteint les sommets. Pourtant, aujourd'hui, son adversaire ne s'était même pas pleinement déployé. Un seul sort capable d'extraire l'âme de la planète l'avait pourtant terrassé!
+En tant que Grand Ancien de la Vallée des Pins Pourpres de rang 7 et l'une des figures centrales de la secte principale, une quantité immense de pilules lui avait été octroyée. Même de puissants cultivateurs étaient venus lui enseigner le Dao; il pensait avoir atteint les sommets. Pourtant, aujourd'hui, son adversaire ne s'était même pas pleinement déployé. Un seul sort capable d'extraire l'âme de la planète l'avait pourtant terrassé!
 
 En vérité, lorsqu'il avait vu Wang Lin extraire l'âme de la planète, il avait su qu'il était perdu. Il espérait néanmoins pouvoir résister un instant ou deux. Mais la réalité était cruelle: ce fut une défaite totale.
 
@@ -94,7 +94,7 @@ Tout cela se produisit en un éclair. Alors que Li Qianmei et Mu Bingmei s'élan
 
 Un cri de choc s'échappa du vieil homme en blanc. Au moment où il se redressa, la pluie se transforma en une vapeur blanche qui s'élança vers les cieux.
 
-« Je peux participer à la compétition entre les sectes de rang 8, mais vous devrez également me fournir une explication pour la Secte Origin! » Wang Lin avait immédiatement percé l'intention du vieil homme: l'intention meurtrière n'était qu'un leurre!
+« Je peux participer à la compétition entre les sectes de rang 8, mais vous devrez également me fournir une explication pour la Secte de l'Origine! » Wang Lin avait immédiatement percé l'intention du vieil homme: l'intention meurtrière n'était qu'un leurre!
 
 Les yeux du vieil homme en blanc brillèrent et il sourit. Alors qu'il s'apprêtait à parler, son expression changea brusquement et il regarda au loin.
 

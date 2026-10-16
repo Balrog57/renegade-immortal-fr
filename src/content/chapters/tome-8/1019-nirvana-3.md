@@ -26,7 +26,7 @@ Son corps vacilla et il chargea Wang Lin. Sa main droite forma un sceau et point
 
 Une lueur glaciale passa dans les yeux de Wang Lin alors qu'il chargeait à son tour, formant un sceau de ses deux mains. Il mordit le bout de sa langue pour cracher une flèche de sang, puis utilisa sa main droite pour tracer une rune sanglante qui vint frapper le papillon aux cinq couleurs!
 
-« Chaque Charriot de Dieu Tueur possède cinq sceaux. Après l'activation du troisième charriot, celui-ci s'est transformé en un cocon qui a donné naissance à ce papillon. Cependant, il reste encore cinq sceaux sur ce papillon. Ce n'est qu'en libérant les cinq que je pourrai prendre le contrôle de ce charriot et utiliser la véritable puissance de ce trésor créé par Maître Tian Bao, capable de terrasser les dieux! »
+« Chaque Chariot de l'Extermination Divine possède cinq sceaux. Après l'activation du troisième chariot, celui-ci s'est transformé en un cocon qui a donné naissance à ce papillon. Cependant, il reste encore cinq sceaux sur ce papillon. Ce n'est qu'en libérant les cinq que je pourrai prendre le contrôle de ce chariot et utiliser la véritable puissance de ce trésor créé par Maître Tian Bao, capable de terrasser les dieux! »
 
 « La transformation en papillon peut être considérée comme le premier sceau. Maintenant, second sceau: libération! » La flèche de sang de Wang Lin percuta le papillon, le faisant trembler violemment. Dans ce frémissement, une sixième couleur apparut soudainement!
 

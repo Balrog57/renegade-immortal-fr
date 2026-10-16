@@ -10,7 +10,7 @@ slug: sous-la-pluie
 
 « Tu me l'as dit personnellement », répondit Wang Lin en prenant une gorgée de vin.
 
-« Impossible! Mon maître est l'Éminent Gu Ya. Je… Je… Si vous me faites du mal, vous mourrez! De plus, je ne vous ai jamais vu et je ne vous ai jamais trompé, que me voulez-vous… » La terreur dans les yeux de Liu Jinbiao s'intensifia jusqu'à ce que ses paroles deviennent incohérentes.
+« Impossible! Mon maître est l'Exalté Empyréen Gu Ya. Je… Je… Si vous me faites du mal, vous mourrez! De plus, je ne vous ai jamais vu et je ne vous ai jamais trompé, que me voulez-vous… » La terreur dans les yeux de Liu Jinbiao s'intensifia jusqu'à ce que ses paroles deviennent incohérentes.
 
 « À moins que… À moins que vous ne soyez quelqu'un qui marche sur le même chemin? » Liu Jinbiao ne savait plus quoi penser en fixant Wang Lin.
 
@@ -96,7 +96,7 @@ Liu Jinbiao hésita, puis murmura: « Maître, dans mes souvenirs de cette vie, 
 
 Il ajouta: « Cela remonte à des centaines d'années… »
 
-Wang Lin réfléchit silencieusement un instant. L'image de Xu Liguo tentant de lui faire la cour apparut dans son esprit, et un sourire se dessina lentement au coin de ses lèvres.
+Wang Lin réfléchit silencieusement un instant. L'image de Xu Liguo tentant de le flatter apparut dans son esprit, et un sourire se dessina lentement au coin de ses lèvres.
 
 « Avec le caractère de Xu Liguo, il ne souffrira pas. S'il est toujours en vie, c'est qu'il a trouvé sa fortune. Je me rendrai au Continent Central plus tard. Si possible, voyons si nous tombons sur lui. »
 

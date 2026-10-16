@@ -14,7 +14,7 @@ Alors que la lumière aux sept couleurs émanait de la faille, un rugissement de
 
 En entendant ce rugissement, Wang Lin se calma. Il observa silencieusement la faille aux sept couleurs et, après un long moment, reporta son regard sur Maître Yan Leizi.
 
-Le regard de Maître Yan Leizi était toujours fixé là où Maître Zhang Xuan avait disparu. La haine qui brûlait dans ses yeux était puissante.
+Le regard de Maître Yan Leizi était toujours fixé là où Maître Zhong Xuan avait disparu. La haine qui brûlait dans ses yeux était puissante.
 
 Wang Lin ignorait tout de la vendetta opposant Maître Yan Leizi à Maître Zhong Xuan. Cependant, à voir comment Maître Yan Leizi déployait tous ses efforts pour lancer une attaque contre l'Alliance après s'être réfugié à Luotian, il était évident que cette rancœur était aussi profonde que l'océan!
 

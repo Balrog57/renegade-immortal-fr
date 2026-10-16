@@ -18,21 +18,21 @@ Cette bataille l'avait rendu célèbre, et chaque secte de la région de rang 6 
 
 « Je ne pensais pas que cette piste soit vraie! » Chaque fois que Noble Argent songeait à cette affaire, son cœur s'emballait. Il y a plusieurs mois, la Secte Qing Hua avait accidentellement découvert des indices liés à la légendaire Pilule du Nirvana Vide ainsi qu'un jade révélant comment devenir un disciple central de la Secte Brise-Ciel.
 
-En tant que cultivateur natif de la Mer de Nuages, Noble Argent connaissait évidemment l'événement cataclysmique qui s'était produit il y a 18 000 ans dans cette région.
+En tant que cultivateur natif de la Mer des Nuages, Noble Argent connaissait évidemment l'événement cataclysmique qui s'était produit il y a 18 000 ans dans cette région.
 
-Il y a 18 000 ans, dans la Mer de Nuages, la Secte Brise-Ciel était une puissance de rang 8 prête à intégrer la mighty région de rang 9. Deux mois avant ce transfert, ils avaient découvert accidentellement une fissure spatiale, un lieu saturé de restrictions et de dangers. La Secte Brise-Ciel avait rassemblé une immense quantité de cultivateurs pour pénétrer dans la faille, y compris des Anciens au stade Fléau des Cieux. Ils s'étaient frayé un passage au prix d'innombrables pertes humaines.
+Il y a 18 000 ans, dans la Mer des Nuages, la Secte Brise-Ciel était une puissance de rang 8 prête à intégrer la puissante région de rang 9. Deux mois avant ce transfert, ils avaient découvert accidentellement une fissure spatiale, un lieu saturé de restrictions et de dangers. La Secte Brise-Ciel avait rassemblé une immense quantité de cultivateurs pour pénétrer dans la faille, y compris des Anciens au stade Fléau Céleste. Ils s'étaient frayé un passage au prix d'innombrables pertes humaines.
 
 Finalement, ils avaient découvert un cadavre dans les profondeurs de la fissure spatiale.
 
 Trois objets reposaient aux côtés du corps: une pilule, une épée brisée et un fragment d'os de bête. Après avoir récupéré ces trois trésors, les Anciens de la Secte Brise-Ciel étaient entrés en transe et avaient quitté précipitamment la fissure pour regagner leur secte.
 
-Leur découverte était trop incroyable; elle pouvait ébranler tout le système stellaire de la Mer de Nuages! Il était possible que la Secte Brise-Ciel supplante la Secte Divin de rang 9!
+Leur découverte était trop incroyable; elle pouvait ébranler tout le système stellaire de la Mer des Nuages! Il était possible que la Secte Brise-Ciel supplante la Secte Divine de rang 9!
 
 Cependant, un traître s'était glissé parmi eux et la nouvelle avait fuité. Ce qui les attendait fut l'hostilité de toute la région de rang 8. D'innombrables vieux monstres, d'ordinaire si discrets, avaient participé à cette bataille qui les avait poussés à bout, les yeux injectés de sang.
 
 Pourtant, la Secte Brise-Ciel, détenant le droit d'entrer dans la région de rang 9, avait la puissance nécessaire pour combattre toute la région de rang 8. Un bain de sang s'était ainsi déversé sur la région de rang 8.
 
-La région de rang 7 fut affectée et envoya ses propres cultivateurs, tandis que la région de rang 6 fut entraînée dans le conflit. Même la région de rang 5 ne fut pas épargnée, déclenchant une catastrophe qui balaya toute la Mer de Nuages.
+La région de rang 7 fut affectée et envoya ses propres cultivateurs, tandis que la région de rang 6 fut entraînée dans le conflit. Même la région de rang 5 ne fut pas épargnée, déclenchant une catastrophe qui balaya toute la Mer des Nuages.
 
 Cet événement fut d'une violence extrême. Même 18 000 ans plus tard, Noble Argent en tremblait encore à l'idée.
 

@@ -50,9 +50,9 @@ Wang Lin vit de ses propres yeux la troisième âme foncer dans la carte stellai
 
 « Le Domaine Intérieur! La troisième âme est allée dans le Domaine Intérieur! » Les yeux de Wang Lin brillèrent d'une lueur étrange et il disparut en un éclair. Le Daoïste aux Sept Couleurs laissa échapper un rugissement et ses mains formèrent un sceau. La carte stellaire commença à s'étendre rapidement, et la troisième âme qui avait disparu fut de nouveau repérée!
 
-La troisième âme perça la Mer de Nuages actuelle et vola vers la Rivière d'Appel.
+La troisième âme perça la Mer des Nuages actuelle et vola vers la Rivière Invoquée.
 
-Peut-être s'arrêterait-elle dans la Rivière d'Appel, ou peut-être traverserait-elle un autre système stellaire. Il ne tarderait pas pour que Wang Lin sache où la troisième âme était partie se réincarner!
+Peut-être s'arrêterait-elle dans la Rivière Invoquée, ou peut-être traverserait-elle un autre système stellaire. Il ne tarderait pas pour que Wang Lin sache où la troisième âme était partie se réincarner!
 
 Cependant, de la même manière, si Wang Lin pouvait la voir, le Daoïste aux Sept Couleurs le pouvait aussi. Le Daoïste était transporté par l'excitation. Bien qu'il ignorât si tout ceci était réel ou si les événements se déroulaient exactement comme autrefois, c'était une chance!
 
@@ -70,7 +70,7 @@ Dès qu'il fut de retour dans son corps, il se leva et marcha vers le Daoïste a
 
 Il n'avait pu stopper le Daoïste dans la seconde illusion, mais il pouvait revenir à la première grâce à la voile. Il pourrait ainsi réveiller le Daoïste ici même pour atteindre son but.
 
-Alors que Wang Lin s'approchait du Daoïste aux Sept Couleurs, les neuf oiseaux de feu ouvrirent soudainement les yeux. Ils dégageèrent une vague de chaleur intense. Cette chaleur n'était pas issue du feu, mais de la lumière!
+Alors que Wang Lin s'approchait du Daoïste aux Sept Couleurs, les neuf oiseaux de feu ouvrirent soudainement les yeux. Ils dégagèrent une vague de chaleur intense. Cette chaleur n'était pas issue du feu, mais de la lumière!
 
 La chaleur de la lumière était des milliers de fois plus puissante que celle du feu. Alors qu'elle enveloppait Wang Lin, il eut l'impression de fondre. Ses cheveux s'enflammèrent et se dissipèrent instantanément.
 

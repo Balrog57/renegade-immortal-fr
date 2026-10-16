@@ -26,7 +26,7 @@ Une faible lueur cristalline apparut sur le corps du trident, puis une empreinte
 
 L'expression du Maître Pin Cendré changea, mais il se précipita aussitôt en avant. Sa main droite forma un sceau et pointa vers l'avant. Un éclat de lumière apparut devant lui et se mua instantanément en une énergie d'épée infinie qui emplissait le ciel et fonçait sur Wang Lin.
 
-Peu après, sa main droite plongea dans son sac de rangement et en sortit trois perles. Il les lança en criant: « Invoquez, Défi! »
+Peu après, sa main droite plongea dans son sac de rangement et en sortit trois perles. Il les lança en criant: « Invoquez, Défieur! »
 
 Toute la lumière aux sept couleurs du monde se rassembla une fois de plus et afflua dans les trois perles. Sous des bruits de craquements successifs, l'une des perles s'effondra rapidement.
 
@@ -44,7 +44,7 @@ Une entité semblable à une Âme Naissante se trouvait dans cette lueur sanglan
 
 Cette Âme Naissante poussa un cri féroce et chargea Wang Lin dans une lueur rouge sang, arborant une férocité indicible sur son visage.
 
-Tout cela se produisit en un instant. Au moment où le trident retourna vers Wang Lin, l'assaut mortel du Maître Pin Cendré atteignit sa cible. Étant au stade intermédiaire de la Briseur du Nirvana, son énergie d'origine dense conférait à ses sorts et trésors magiques une puissance terrifiante.
+Tout cela se produisit en un instant. Au moment où le trident retourna vers Wang Lin, l'assaut mortel du Maître Pin Cendré atteignit sa cible. Étant au stade intermédiaire du Briseur du Nirvana, son énergie d'origine dense conférait à ses sorts et trésors magiques une puissance terrifiante.
 
 L'expression de Wang Lin resta calme, ses yeux brûlant d'intention de combat. Il saisit le trident et le projeta vers la boussole dans le ciel. De son point de vue, c'était l'objet le plus dangereux!
 
@@ -60,7 +60,7 @@ Le corps de Wang Lin trembla lorsqu'il sentit une aura déchaînée s'engouffrer
 
 Maître du Vide, l'Omniscient et Wu Qing apparurent tous et chargèrent l'âpre Âme Naissante sanglante.
 
-En outre, une multitude d'âmes de bataille sortirent du Sceau Céleste: des Célestes, des cultivateurs de le Luotian et de l'Alliance. Cela enveloppa immédiatement la zone d'une aura violente.
+En outre, une multitude d'âmes de bataille sortirent du Sceau Céleste: des Célestes, des cultivateurs de Luotian et de l'Alliance. Cela enveloppa immédiatement la zone d'une aura violente.
 
 Cette scène fit pousser un cri de stupeur chez le Maître Pin Cendré. Il pensait avoir surestimé Wang Lin, mais les quelques trésors que ce dernier avait montrés suffisaient déjà à terrifier des cultivateurs ordinaires.
 

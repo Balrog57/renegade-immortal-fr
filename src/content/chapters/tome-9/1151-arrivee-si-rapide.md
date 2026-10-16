@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1151 - Came So Quickly
 slug: arrivee-si-rapide
 ---
-Wang Lin séjournait sur ce continent sauvage depuis un certain temps déjà. Compte tenu de la situation à la Secte Originel, il ne pouvait pas y rester beaucoup plus longtemps.
+Wang Lin séjournait sur ce continent sauvage depuis un certain temps déjà. Compte tenu de la situation à la Secte de l'Origine, il ne pouvait pas y rester beaucoup plus longtemps.
 
-Bien qu'il ne craignît pas la Secte du Dao Pourpre, s'il n'était pas là, la Secte Originel serait anéanti avec sa force actuelle. Si cela s'était produit dans le passé, Wang Lin ne s'en serait pas soucié, mais puisqu'il avait tué des membres de la Secte du Dao Pourpre, il était désormais impliqué dans cette affaire.
+Bien qu'il ne craignît pas la Secte du Dao Pourpre, s'il n'était pas là, la Secte de l'Origine serait anéantie avec sa force actuelle. Si cela s'était produit dans le passé, Wang Lin ne s'en serait pas soucié, mais puisqu'il avait tué des membres de la Secte du Dao Pourpre, il était désormais impliqué dans cette affaire.
 
 De plus, cette cultivatrice rusée, Lu Yanfei, lui avait respectueusement offert une identité. Il y avait également l'indice de l'Extrême Yin qu'il devait obtenir auprès des membres de la Secte du Dao Pourpre.
 

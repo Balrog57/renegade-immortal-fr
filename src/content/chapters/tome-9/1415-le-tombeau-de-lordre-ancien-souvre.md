@@ -12,11 +12,11 @@ Dès qu'il ouvrit les yeux, un Feu Éthéré jaillit de son corps. Ce Feu Éthé
 
 Les cheveux de Wang Lin s'agitèrent sans qu'aucun vent ne souffle et commencèrent à flotter. Il retira sa main du premier bâton d'encens et observa les alentours!
 
-Le Grand Maître Yun Luo fixait toujours Wang Lin, et lorsqu'il ouvrit les yeux, elle vit clairement son œil gauche. Ses yeux s'écarquillèrent, ses pupilles se rétractèrent et une peur monstrueuse envahit son regard.
+La Grande Maîtresse Yun Luo fixait toujours Wang Lin, et lorsqu'il ouvrit les yeux, elle vit clairement son œil gauche. Ses yeux s'écarquillèrent, ses pupilles se rétractèrent et une peur monstrueuse envahit son regard.
 
 Son corps trembla et elle commença à reculer. C'était comme si des millions d'éclairs avaient traversé son esprit. Elle perdit toute force et son visage devint aussi pâle que celui d'un cadavre!
 
-« Ce regard... Ceci... » Le Grand Maître Yun Luo ne pourrait jamais oublier l'image qu'elle venait de voir. Le regard de la silhouette qui s'était retournée pour la fixer à l'instant même de sa mort!
+« Ce regard... Ceci... » La Grande Maîtresse Yun Luo ne pourrait jamais oublier l'image qu'elle venait de voir. Le regard de la silhouette qui s'était retournée pour la fixer à l'instant même de sa mort!
 
 L'œil gauche de cette silhouette floue abritait un vortex aux neuf couleurs!
 
@@ -36,7 +36,7 @@ La femme derrière le Maître du Dao Rêve Bleu observa silencieusement Wang Lin
 
 Le regard de Wang Lin balaya l'assemblée et il prit une profonde inspiration. Il percevait les émotions qui émanaient de chacun d'eux. S'il le voulait, il pourrait transformer ces émotions en Feu Éthéré.
 
-Lorsque le regard de Wang Lin se posa sur le Grand Maître Yun Luo, celle-ci baissa immédiatement la tête et recula lentement. Pourtant, Wang Lin vit que ses émotions étaient bien plus intenses que celles des autres.
+Lorsque le regard de Wang Lin se posa sur la Grande Maîtresse Yun Luo, celle-ci baissa immédiatement la tête et recula lentement. Pourtant, Wang Lin vit que ses émotions étaient bien plus intenses que celles des autres.
 
 Wang Lin détourna les yeux et joignit les mains devant le vieil Oiseau Vermillon: « Ce junior a eu de la chance et s'est déjà éveillé! »
 
@@ -56,7 +56,7 @@ Wang Lin acquiesça et regarda dans la direction où le dragon s'était envolé.
 
 « Ancêtre Oiseau Vermillon de la première génération... L'Ancêtre du Clan de l'Oiseau Vermillon... L'un des quatre grands généraux sous les ordres du Souverain Céleste Ancien... Un tel être doit connaître de nombreux secrets... »
 
-« Si le Clan de l'Oiseau Vermillon se trouve dans le Système Stellaire Antique, pourquoi le Clan du Moineau de Feu existe-t-il? »
+« Si le Clan de l'Oiseau Vermillon se trouve dans le Système Stellaire Antique, pourquoi le Clan des Moineaux de Feu existe-t-il? »
 
 « Puisque le Clan de l'Oiseau Vermillon a perduré jusqu'à aujourd'hui, je présume que les Clans du Dragon Azure, de la Tortue Noire et du Tigre Blanc sont également vivants. Où sont-ils... »
 
@@ -78,6 +78,6 @@ Avant que cette lumière ne passe, il y avait là une planète abandonnée. Aucu
 
 Si des cultivateurs s'en approchaient, ils ne lui jetteraient même pas un regard. Pourtant, cette planète abandonnée se trouvait sur la trajectoire du rayon fantomatique. Lorsque la lumière passa, la planète se désintégra, ne laissant que les ondulations qui continuaient de se propager lentement.
 
-Cependant, à cet instant précis, une fissure de trente mètres apparut au centre des ondulations. Une aura de mort infinie émana de la faille, la faisant s'élargir sans cesse.
+Cependant, à cet instant précis, une fissure de cent pieds apparut au centre des ondulations. Une aura de mort infinie émana de la faille, la faisant s'élargir sans cesse.
 
 À travers la fissure, on pouvait apercevoir un autre monde, rempli d'innombrables rochers flottants... Sur ces rochers reposaient d'énormes têtes... Certains dieux anciens, certains démons anciens et certains diables anciens... La fissure atteignit mille pieds avant de cesser de s'étendre. Elle ressemblait à une gueule béante attendant que sa proie arrive... Son apparition déclencherait une tempête dans le Système Stellaire Antique, choquant d'innombrables cultivateurs... Le tombeau de l'Ordre Ancien... S'ouvre!

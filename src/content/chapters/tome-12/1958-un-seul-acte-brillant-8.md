@@ -20,7 +20,7 @@ Ce spectacle fut observé par tous les cultivateurs présents. Les Exaltés Empy
 
 Le Grand Empyréen Wu Feng laissa poindre un éclair de froideur et déclara lentement: « Dao Yi, j'ai des vues sur son enfant. Ne te bats pas contre moi! »
 
-Le Grand Empyréen Dao Yi sourit et envoya un message par transmission de sens divin: « Wu Feng, même nous ne pouvons forcer les Ascendant Empyréens. Tout dépend de leur propre choix. Ce n'est pas parce que tu lorgnes sur lui qu'il te suivra! »
+Le Grand Empyréen Dao Yi sourit et envoya un message par transmission de sens divin: « Wu Feng, même nous ne pouvons forcer les Ascendants Empyréens. Tout dépend de leur propre choix. Ce n'est pas parce que tu lorgnes sur lui qu'il te suivra! »
 
 « De plus, il est sur le point de tenter le douzième palais. Une fois ce palais franchi, il sera comparable à l'Ascendant Empyréen Ming Dao. Oublie nous deux, même ce vieux Jiu Di pourrait être tenté de venir... »
 
@@ -30,13 +30,13 @@ Alors que les deux discutaient par sens divin, dans le ciel, Wang Lin prit une p
 
 À l'instant où il pénétra dans le palais, Dao Yi et Wu Feng cessèrent de parler et levèrent la tête. Tous les cultivateurs présents, qu'ils fussent Exaltés Empyréens ou Ascendant Empyréens, levèrent les yeux.
 
-Seules les quelques personnes observant l'Épreuve Empyréenne depuis l'extérieur avaient des pensées différentes. L'homme d'âge mûr de la Secte Yang Pourpre regarda amèrement le miroir et poussa un profond soupir.
+Seules les quelques personnes observant l'Épreuve Empyrée depuis l'extérieur avaient des pensées différentes. L'homme d'âge mûr de la Secte Ziyang regarda amèrement le miroir et poussa un profond soupir.
 
 « Ah, comment a-t-il pu franchir le onzième palais... Le onzième est une chose, mais il ne pourra pas passer le douzième... Une fois qu'il aura percé, que pourrai-je utiliser pour le recruter... »
 
 « Je crains qu'il ne soit immédiatement attiré par l'Empereur Céleste et le Grand Empyréen Jiu Di. Même les Grands Empyréens Dao Yi et Wu Feng auraient du mal à rivaliser avec ces deux-là... »
 
-« Quel dommage. Si le Grand Empyréen Gémeaux de ma Secte Yang Pourpre n'avait pas subi d'accident lors de sa dernière réincarnation, nous pourrions rivaliser avec l'Empereur Céleste et Jiu Di... »
+« Quel dommage. Si le Grand Empyréen Gémeaux de ma Secte Ziyang n'avait pas subi d'accident lors de sa dernière réincarnation, nous pourrions rivaliser avec l'Empereur Céleste et Jiu Di... »
 
 L'homme soupira amèrement, prêt à abandonner toute idée de recruter cet homme. Cependant, à ce moment précis, la porte fut enfoncée et une petite fille en rouge s'y engouffra en courant.
 
@@ -78,7 +78,7 @@ Bien que sa culture fût limitée, lorsque le Grand Empyréen Gémeaux avait sub
 
 À l'époque, il n'était qu'un Exalté Empyréen inconnu sous les ordres du Grand Empyréen Gémeaux, mais aujourd'hui, il était le seul fidèle restant.
 
-Tandis que des rires résonnaient dans la Secte Yang Pourpre, sur le Mont de l'Empereur, dans le Continent Central, le Grand Empyréen Jiu Di, autrefois si nonchalant, fixait intensément une feuille d'automne devant lui.
+Tandis que des rires résonnaient dans la Secte Ziyang, sur le Mont de l'Empereur, dans le Continent Central, le Grand Empyréen Jiu Di, autrefois si nonchalant, fixait intensément une feuille d'automne devant lui.
 
 « Tenter le douzième palais après avoir franchi le onzième... Ce type... Il est à peine digne d'être considéré comme un être humain. Je pourrais lui faire une offre par pure complaisance... Mais avec Hai Zi là, si j'y vais, cela ne correspondrait pas tout à fait à ce que j'ai affirmé auparavant... » Bien qu'il marmonnât ces paroles, le vieil homme ne cillait pas, les yeux rivés sur la feuille.
 
@@ -98,7 +98,7 @@ Un rire sembla résonner, et la voix reprit:
 
 Une pointe de choc se lut dans ses yeux alors qu'il contemplait l'illusion dans le palais. Le douzième palais de l'illusion explosa soudainement dans une lumière dorée aveuglante!
 
-Cette lumière émanait clairement de l'Épreuve Empyréenne, mais elle semblait percer le vide à travers l'illusion pour illuminer le palais!
+Cette lumière émanait clairement de l'Épreuve Empyrée, mais elle semblait percer le vide à travers l'illusion pour illuminer le palais!
 
 « Il a franchi le douzième palais! » L'homme en robe dorée était stupéfait.
 
@@ -126,4 +126,4 @@ En un éclair, sa silhouette disparut dans les nuages alors qu'il fonçait vers 
 
 Cette scène fit lâcher un reniflement glacial à l'Ascendant Empyréen Ming Dao vêtu de noir, une intention meurtrière brillant dans ses yeux.
 
-« Empereur Céleste, je me rends à l'Épreuve Empyréenne pour tenter le seizième palais! »
+« Empereur Céleste, je me rends à l'Épreuve Empyrée pour tenter le seizième palais! »

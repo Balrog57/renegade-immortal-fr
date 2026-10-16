@@ -40,7 +40,7 @@ Au moment où Wang Lin sortit les cristaux de sang, toutes les bêtes féroces e
 
 Alors que les rugissements redoublaient, ces bêtes féroces changèrent immédiatement de direction et chargèrent le continent de Mo Luo. Parmi elles se trouvaient des bêtes de rangs 5, 6 et 7; toutes semblaient avoir perdu la raison dans leur course effrénée.
 
-Les cultivateurs de la Secte Originel furent stupéfaits par ces événements, réveillés en sursaut par la charge des bêtes féroces.
+Les cultivateurs de la Secte de l'Origine furent stupéfaits par ces événements, réveillés en sursaut par la charge des bêtes féroces.
 
 Une fois que le corps original de Wang Lin eut absorbé les cristaux de sang, des lignes de sang apparurent sur ses os. Tandis que l'énergie originelle et le brouillard stellaire affluaient, la chair commença à se former le long de ces tracés écarlates.
 
@@ -58,7 +58,7 @@ Cette énergie invisible était la vitalité de la bête féroce, et c'était pr
 
 Il sentit clairement que la reformation de son corps original s'accélérait dès que cette vitalité pénétrait en lui. Wang Lin se précipita vers une autre bête et frappa. Ses mouvements étaient si rapides qu'ils laissaient des images rémanentes; il faisait pleuvoir le sang sur le continent de Mo Luo!
 
-Ces bêtes féroces voulaient dévorer les cristaux de sang que Wang Lin avait absorbés, mais avant qu'elles ne puissent y parvenir, elles explosèrent toutes l'une après l'autre. Un grondement tonnerrelement assourdissant secoua le ciel.
+Ces bêtes féroces voulaient dévorer les cristaux de sang que Wang Lin avait absorbés, mais avant qu'elles ne puissent y parvenir, elles explosèrent toutes l'une après l'autre. Un grondement tonitruant secoua le ciel.
 
 D'un pas, Wang Lin apparut aux côtés d'un python géant. Alors que la créature ouvrait la gueule pour l'engloutir, le poing de Wang Lin s'écrasa dans sa bouche. Des craquements sinistres retentirent, puis la vitalité du python pénétra le corps de Wang Lin tandis que la gueule de la bête explosait.
 

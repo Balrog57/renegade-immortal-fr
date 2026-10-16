@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1029 - Scattered Like Birds
 slug: disperses-comme-des-oiseaux
 ---
-Le vortex s'élança dans les airs et une force d'aspiration inimaginable éclata. L'Ancêtre Sainte du Clan du Tatou fut incapable de lutter, et les chaînes la tirèrent lentement vers le vortex ascendant.
+Le vortex s'élança dans les airs et une force d'aspiration inimaginable éclata. L'Ancêtre Sainte du Clan du Tatouage fut incapable de lutter, et les chaînes la tirèrent lentement vers le vortex ascendant.
 
 La femme afficha une expression sombre, tandis que le tatouage entre ses sourcils vacillait. Chaque scintillement provoquait un grondement assourdissant et l'une des chaînes autour d'elle se brisait, se transformant en âmes gémissantes qui étaient aspirées dans le Vortex Funéraire Céleste.
 
@@ -20,15 +20,15 @@ Elle esquissa un sourire désolé. Bien qu'elle fût aveugle, une lueur semblait
 
 Elle fixa l'avatar de Qing Lin devant elle et laissa échapper un rire misérable. « La personne que je hais le plus au monde, c'est toi, Qing Lin! »
 
-« À l'époque, mon Clan du Tatou a offensé le Suprême, et nous avons dû fuir vers le royaume scellé, là où le Suprême n'avait aucun contrôle. Nous voulions simplement éviter le conflit et trouver un refuge loin de la mort.
+« À l'époque, mon Clan du Tatouage a offensé le Suprême, et nous avons dû fuir vers le royaume scellé, là où le Suprême n'avait aucun contrôle. Nous voulions simplement éviter le conflit et trouver un refuge loin de la mort.
 
-« La guerre contre votre Royaume Céleste a éclaté parce que vous, les Célestes, convoitiez l'énergie d'origine de mon clan, et vous avez frappé le premier. Le Clan du Tatou devait-il vous obéir?! Cette guerre a duré bien trop longtemps, et votre Royaume Céleste a employé toutes sortes de méthodes contre nous. Pour voler la bouteille sacrée de mon clan, vous avez tué d'innombrables membres puissants des miens!
+« La guerre contre votre Royaume Céleste a éclaté parce que vous, les Célestes, convoitiez l'énergie d'origine de mon clan, et vous avez frappé le premier. Le Clan du Tatouage devait-il vous obéir?! Cette guerre a duré bien trop longtemps, et votre Royaume Céleste a employé toutes sortes de méthodes contre nous. Pour voler la bouteille sacrée de mon clan, vous avez tué d'innombrables membres puissants des miens!
 
 « Si cela s'était arrêté là, j'aurais pu l'accepter. Après tout, les pertes sont inévitables dans une guerre. Cependant, en tant que l'un des quatre Empereurs Célestes et l'être le plus puissant du Royaume Céleste, pourquoi avoir trahi le cœur fragile d'une femme?!
 
-« Tu avais promis que je serais ta Concubine de la Grotte Céleste. Moi, Qiu Yao, j'ai trahi mon clan pour toi, acceptant volontairement de devenir ta concubine en échange d'un lieu où mon Clan du Tatou pourrait vivre dans ce royaume scellé.
+« Tu avais promis que je serais ta Concubine de la Grotte Céleste. Moi, Qiu Yao, j'ai trahi mon clan pour toi, acceptant volontairement de devenir ta concubine en échange d'un lieu où mon Clan du Tatouage pourrait vivre dans ce royaume scellé.
 
-« Tu disais aimer mes yeux; pour te plaire, je les ai moi-même extirpés pour te les offrir. Ces yeux qui avaient accumulé de l'énergie pendant d'innombrables années et qui avaient condensé un fragment d'énergie primordiale... C'était une paire d'yeux que chaque génération d'Ancêtre du Clan du Tatou héritait de la précédente.
+« Tu disais aimer mes yeux; pour te plaire, je les ai moi-même extirpés pour te les offrir. Ces yeux qui avaient accumulé de l'énergie pendant d'innombrables années et qui avaient condensé un fragment d'énergie primordiale... C'était une paire d'yeux que chaque génération d'Ancêtre du Clan du Tatouage héritait de la précédente.
 
 « Te souviens-tu encore de cette scène? Mon sang tachant mes yeux, le sang coulant de mes orbites...
 
@@ -42,9 +42,9 @@ Le sourire sur son visage devint encore plus déchirant. Un sang noir jaillit de
 
 « Ce sont toutes les paroles que tu m'as données. Moi, Qiu Yao, j'ai été assez stupide pour te croire. Je suis restée ici à contenir ces âmes dans le Bassin Funéraire Céleste pour toi, tout en sachant que ton but était de me sceller. Pourtant, j'ai choisi de te faire confiance.
 
-« Si je n'avais pas senti la présence d'un membre de mon clan et ne pas être sortie à tout prix pour le voir, je n'aurais jamais su que mon peuple n'avait jamais obtenu son propre royaume! Que après m'avoir scellée, mon clan est devenu l'esclave de vous, les Célestes!
+« Si je n'avais pas senti la présence d'un membre de mon clan et ne pas être sortie à tout prix pour le voir, je n'aurais jamais su que mon peuple n'avait jamais obtenu son propre royaume! Qu'après m'avoir scellée, mon clan est devenu l'esclave de vous, les Célestes!
 
-« Cela n'a fait qu'accroître ma haine. Qing Lin, es-tu un être sans cœur? Es-tu dépourvu d'émotions? Es-tu un rocher?! Un simple sceau d'esclavage ne peut sceller mon Clan du Tatou pour des générations sans fin. Ce sceau était clairement dérivé de cette énergie primordiale issue de mes yeux. Seul un tel pouvoir pouvait asservir mon clan de la sorte!
+« Cela n'a fait qu'accroître ma haine. Qing Lin, es-tu un être sans cœur? Es-tu dépourvu d'émotions? Es-tu un rocher?! Un simple sceau d'esclavage ne peut sceller mon Clan du Tatouage pour des générations sans fin. Ce sceau était clairement dérivé de cette énergie primordiale issue de mes yeux. Seul un tel pouvoir pouvait asservir mon clan de la sorte!
 
 « Tu as obtenu mes yeux et ce fragment d'énergie primordiale. Puis, tu y as infusé d'innombrables sceaux d'esclavage, transformant mon clan en une nuée d'esclaves insignifiants dans ce royaume scellé! Ils ont été contraints de vous vénérer, vous les Célestes, pendant des générations. »
 
@@ -58,11 +58,11 @@ Cependant, cette souffrance n'était rien comparée à celle de son cœur. Elle 
 
 Ta Shan était encore tout près. Bien que ce qu'il voyait lui donnât quelques indices, son regard restait empreint de confusion. Le tatouage lancé par la femme vola comme un éclair et atteignit Ta Shan, fusionnant entre ses sourcils dans une douleur lancinante.
 
-Après avoir jeté le tatouage, la femme devint extrêmement faible et sombra progressivement dans le Bassin Funéraire Céleste. Le gaz vert dans ses orbites vacilla tandis qu'elle fixait Wang Lin en murmurant: « Tu as aidé mon Clan du Tatou... Moi, Qiu Yao, je n'oublierai jamais ceux qui ont aidé mon clan... »
+Après avoir jeté le tatouage, la femme devint extrêmement faible et sombra progressivement dans le Bassin Funéraire Céleste. Le gaz vert dans ses orbites vacilla tandis qu'elle fixait Wang Lin en murmurant: « Tu as aidé mon Clan du Tatouage... Moi, Qiu Yao, je n'oublierai jamais ceux qui ont aidé mon clan... »
 
 Elle afficha une ultime fois un sourire misérable et se poignarda impitoyablement les deux orbites. Elle en extirpa le gaz vert et le projeta. Celui-ci se transforma en deux rayons de lumière verte qui fusionnèrent pour ne former qu'un seul faisceau, projeté vers Wang Lin.
 
-« Outre le tatouage vital de mon clan, une autre chose qui nous rendait célèbres dans le royaume extérieur était le sortilège du Tatouage Fané. Voici la méthode du Tatouage Fané. Puisque tu as aidé mon Clan du Tatou, tu devrais pouvoir obtenir l'aide d'un descendant pour acquérir le pouvoir des tatouages. »
+« Outre le tatouage vital de mon clan, une autre chose qui nous rendait célèbres dans le royaume extérieur était le sortilège du Tatouage Fané. Voici la méthode du Tatouage Fané. Puisque tu as aidé mon Clan du Tatouage, tu devrais pouvoir obtenir l'aide d'un descendant pour acquérir le pouvoir des tatouages. »
 
 Wang Lin saisit la lumière verte et entendit son message instantanément.
 
@@ -70,7 +70,7 @@ Elle fixa profondément la silhouette glaciale de Qing Lin alors qu'elle s'enfon
 
 Seul le grondement du vortex en rotation subsistait. Le tourbillon descendit lentement, sur le point de disparaître dans le gouffre profond.
 
-En tenant la lumière verte, Wang Lin comprit naturellement les intentions de Qiu Yao. Selon elle, ce sortilège du Tatouage Fané exigeait l'aide du Clan du Tatou, créant ainsi une chaîne invisible liant Wang Lin à ce clan.
+En tenant la lumière verte, Wang Lin comprit naturellement les intentions de Qiu Yao. Selon elle, ce sortilège du Tatouage Fané exigeait l'aide du Clan du Tatouage, créant ainsi une chaîne invisible liant Wang Lin à ce clan.
 
 « Si elle est si confiante, c'est que le Tatouage Fané ne peut pas être un sort ordinaire! » Les yeux de Wang Lin s'illuminèrent alors qu'il se remémorait le talisman jaune capable de sceller l'énergie d'origine à Luotian...
 

@@ -18,7 +18,7 @@ Alors qu'il rugissait, toutes les bêtes-moustiques se dispersèrent, provoquant
 
 Bien qu'ils fussent plus rapides que les moustiques rouges, ils étaient inférieurs aux moustiques bleus! Alors que des milliers de bêtes-moustiques chargeaient, des centaines de moustiques bleus jaillirent du groupe rouge comme des météores lancés vers eux.
 
-« Des moustiques bleus! » Leurs scalpions se hérissèrent et ils coururent de plus belle. Ils n'avaient remarqué que le nuage rouge, ignorant les bêtes-moustiques bleues qui s'y cachaient. Dès qu'ils les aperçurent, ils perdirent presque la raison. La rumeur disait que ces moustiques bleus étaient extrêmement terrifiants et possédaient des capacités comparables à celles de cultivateurs du Purificateur du Nirvana!
+« Des moustiques bleus! » Leurs cuirs chevelus se hérissèrent et ils coururent de plus belle. Ils n'avaient remarqué que le nuage rouge, ignorant les bêtes-moustiques bleues qui s'y cachaient. Dès qu'ils les aperçurent, ils perdirent presque la raison. La rumeur disait que ces moustiques bleus étaient extrêmement terrifiants et possédaient des capacités comparables à celles de cultivateurs du Purificateur du Nirvana!
 
 Pourtant, les moustiques bleus étaient trop rapides, et leur nombre produisait un impact visuel foudroyant. Au moment même où l'effroi les saisit, un grondement tonitruant retentit et les moustiques bleus les rattrapèrent instantanément. Ils les encerclèrent en dégageant une puissante soif de sang. Leur apparence hideuse, leurs gueules béantes et leur lumière bleue intense étaient le véritable cauchemar de ces cultivateurs!
 
@@ -26,7 +26,7 @@ Pourtant, les moustiques bleus étaient trop rapides, et leur nombre produisait 
 
 Ils avaient pourtant été très prudents jusqu'ici. Lorsqu'ils étaient entrés dans cet endroit par le passé, ils n'avaient rencontré que de petits groupes d'une centaine de bêtes-moustiques. Avec leur niveau de culture et la distance qui les séparait de la sortie, il était facile de s'échapper.
 
-C'était la première fois qu'ils se retrouvaient encerclés par des milliers de bêtes-moustiques. À supposer qu'ils ne soient pas seuls, même les Anciens de leurs sectes n'avaient probablement jamais affronté une telle situation.
+C'était la première fois qu'ils se retrouvaient encerclés par des milliers de bêtes-moustiques. Sans parler d'eux, même les Anciens de leurs sectes n'avaient probablement jamais affronté une telle situation.
 
 Dans leur désespoir, les cultivateurs étaient sur le point de lancer une contre-attaque désespérée, mais ils furent stupéfaits de constater que les bêtes-moustiques environnantes ne les attaquaient pas. Au lieu de cela, l'essaim se contenta de les encercler, puis ouvrit un passage vers la porte de pierre.
 
@@ -38,7 +38,7 @@ Après avoir été fixé par le roi moustique, Li Yuanlei trembla et une sueur f
 
 « Le roi moustique! » Si Li Yuanlei et ses compagnons n'étaient pas capables de percer l'identité de cette bête dorée, ils ne méritaient pas d'être considérés comme l'élite de leurs sectes respectives.
 
-Li Yuanlei prit une profonde inspiration. Il n'avait pas l'esprit à s'émerveiller devant la majestueuse porte, et se concentra sur Wang Lin. Il joignit respectueusement les mains: « Le cadet Li Yuanlei salue l'Aîné. Nous avons dérangé l'Aîné involontairement et espérons qu'il ne nous en tiendra pas rigueur. »
+Li Yuanlei prit une profonde inspiration. Il n'avait pas l'esprit à s'émerveiller devant la majestueuse porte, et se concentra sur Wang Lin. Il joignit respectueusement les mains: « Le Junior Li Yuanlei salue le Senior. Nous avons dérangé le Senior involontairement et espérons qu'il ne nous en tiendra pas rigueur. »
 
 Les dix cultivateurs derrière lui firent de même.
 
@@ -52,17 +52,17 @@ Si Li Yuanlei et les autres avaient manifesté une intention meurtrière ou util
 
 Ils n'avaient donc d'autre choix que de patienter.
 
-« Ce second sort s'appellera... le Flux Temporel... » Dans l'esprit de Wang Lin, il était assis sur la porte de pierre et semblait s'adresser à Wang Ping, mais nul ne pouvait entendre ses paroles. Dans son esprit, seul résonnait le fracas des vagues. Après un long moment, Wang Lin leva lentement sa main droite et fit un geste gracieux.
+« Ce second sort s'appellera... le Temps qui S'écoule... » Dans l'esprit de Wang Lin, il était assis sur la porte de pierre et semblait s'adresser à Wang Ping, mais nul ne pouvait entendre ses paroles. Dans son esprit, seul résonnait le fracas des vagues. Après un long moment, Wang Lin leva lentement sa main droite et fit un geste gracieux.
 
 Les vagues s'animèrent soudainement et devinrent impétueuses. La mer se souleva violemment et commença à s'étendre.
 
 Alors que Wang Lin agitait la main dans son esprit, Li Yuanlei et ses compagnons ressentirent immédiatement un impact monstrueux se propager. Sans force pour résister, ils furent instantanément enveloppés par un monde étrange.
 
-Tous, y compris Li Yuanfeng, ne sentirent que leur vision se brouiller; lorsqu'ils retrouvèrent la vue, tout avait disparu, à l'exception de la porte géante. Cette porte s'élevait vers les cieux, dont ils ne pouvaient percevoir le sommet.
+Tous, y compris Li Yuanfei, ne sentirent que leur vision se brouiller; lorsqu'ils retrouvèrent la vue, tout avait disparu, à l'exception de la porte géante. Cette porte s'élevait vers les cieux, dont ils ne pouvaient percevoir le sommet.
 
 Une aura antique émanait de la porte de pierre, se transformant en une force inimaginable qui les submergea. Face à cette aura, Li Yuanlei et ses compagnons n'étaient que de frêles barques perdues dans des vagues déchaînées.
 
-« Le Flux Temporel... » Une voix antique résonna dans le monde. Cette voix semblait empreinte d'une trace de temps, comme si elle émanait des âges primordiaux. Lorsqu'elle atteignit leurs oreilles, c'était comme si elle avait traversé d'innombrables millénaires de changements.
+« Le Temps qui S'écoule... » Une voix antique résonna dans le monde. Cette voix semblait empreinte d'une trace de temps, comme si elle émanait des âges primordiaux. Lorsqu'elle atteignit leurs oreilles, c'était comme si elle avait traversé d'innombrables millénaires de changements.
 
 Au son de cette voix, Li Yuanlei et ses compagnons tremblèrent, les yeux emplis de confusion. Des souvenirs disparates résonnèrent dans leur esprit, remplaçant peu à peu la réalité.
 

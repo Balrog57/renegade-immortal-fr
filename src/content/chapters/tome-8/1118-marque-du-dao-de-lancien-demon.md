@@ -14,7 +14,7 @@ Le désert au sol trembla sous la force de succion. Même les vêtements de Wang
 
 Pourtant, ses cheveux blancs ne bougèrent pas d'un iota. Ses yeux calmes observaient froidement l'Ancien Démon Ta Jia.
 
-Wang Lin n'avait pas empêché Ta Jia de briser ses étoiles. Qing Lin avait rassemblé la puissance de Wang Wei, Hu Juan, Qing Shua et Zhou Yi, ainsi que sa propre culture, pour offrir à Wang Lin cette chance unique.
+Wang Lin n'avait pas empêché Ta Jia de briser ses étoiles. Qing Lin avait rassemblé la puissance de Wang Wei, Hu Juan, Qing Shuang et Zhou Yi, ainsi que sa propre culture, pour offrir à Wang Lin cette chance unique.
 
 Wang Lin n'avait jamais cherché à obtenir une telle fortune. Il la chérirait éternellement, car il devait se battre pour atteindre l'illumination. Plus son éveil serait profond, plus ses gains seraient immenses!
 
@@ -36,9 +36,9 @@ Les quatre filaments fusionnèrent au bout de son doigt, formant une lumière no
 
 Les yeux de Ta Jia devinrent totalement rouges; il fit un pas en avant et pointa sa main gauche vers le ciel en criant: « La fureur des cieux! Quiconque ose se rebeller contre les cieux subira leur courroux! Le Doigt des Quatre Désirs de mon clan absorbe cette fureur pour résister au Dao céleste! »
 
-À peine eut-il fini de parler qu'un grondement tonnerre retentit et qu'un gaz rouge surgit dans le ciel, convergeant vers la lumière noire.
+À peine eut-il fini de parler qu'un grondement de tonnerre retentit et qu'un gaz rouge surgit dans le ciel, convergeant vers la lumière noire.
 
-En un instant, le gaz rouge fusionna avec la lueur noire, décuplant sa puissance. Cette lumière noire couvrit alors une portion entière du monde!
+En un instant, le gaz rouge fusionna avec la lueur noire, décuplant sa puissance. Cette lumière noire couvrit alors une petite portion du monde!
 
 « Les cieux possèdent la tristesse, et cette tristesse est le désir. Absorbez cette tristesse pour parachever mon sortilège d'ancien démon! » Tandis que ce rugissement résonnait, un gaz bleu infini apparut et se condensa rapidement dans la lumière noire.
 
@@ -60,11 +60,11 @@ Des craquements aussi puissants que des coups de tonnerre résonnèrent alors qu
 
 Bien qu'invisible, on pouvait clairement ressentir son existence. Wang Lin agita sa main droite et la vapeur se propagea, prenant Wang Lin comme centre. Elle sembla former quatre épées bleues, nettes et identiques, qui chargèrent les tempêtes.
 
-En un éclair, les épées percutèrent les quatre tempêtes. Un grondement tonnerre retentit et les tempêtes volèrent en éclats. À cet instant, le monde trembla et le désert se tordit jusqu'à l'effondrement. La mer noire réapparut!
+En un éclair, les épées percutèrent les quatre tempêtes. Un grondement de tonnerre retentit et les tempêtes volèrent en éclats. À cet instant, le monde trembla et le désert se tordit jusqu'à l'effondrement. La mer noire réapparut!
 
 Alors que Wang Lin flottait au-dessus de l'océan, sa main droite traça un arc dans les airs. La vapeur d'eau résiduelle se rassembla pour former quatre épées bleues tranchantes!
 
-L'expression de Wang Lin resta neutre. Sa main droite se referma dans un grondement, faisant passer les quatre épées à huit. Elles se multiplièrent encore, et ce processus continua jusqu'à atteindre 128 épées. D'un geste de la main, il lança l'arsen heavy vers l'Ancien Démon Ta Jia!
+L'expression de Wang Lin resta neutre. Sa main droite se referma dans un grondement, faisant passer les quatre épées à huit. Elles se multiplièrent encore, et ce processus continua jusqu'à atteindre 128 épées. D'un geste de la main, il lança ces épées vers l'Ancien Démon Ta Jia!
 
 Tout cela s'était déroulé avec une fluidité déconcertante, et Wang Lin paraissait d'un calme absolu; mais cette aisance fit basculer la peur de l'Ancien Démon Ta Jia dans l'excès! Il n'aurait jamais cru que son Doigt des Quatre Désirs puisse être brisé ainsi!
 

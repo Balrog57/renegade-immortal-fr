@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1361 - Get Down Here
 slug: descendez-dici
 ---
-La lumière dorée et aveuglante brillait intensément, attirant l'attention de tous les membres du Clan du Tonnerre Éparpillé. Lorsque leurs regards se posèrent sur cette lueur, leurs expressions changèrent radicalement!
+La lumière dorée et aveuglante brillait intensément, attirant l'attention de tous les membres du Clan du Tonnerre Dispersé. Lorsque leurs regards se posèrent sur cette lueur, leurs expressions changèrent radicalement!
 
 « Grand Ancien! »
 
@@ -16,21 +16,21 @@ La lumière dorée et aveuglante brillait intensément, attirant l'attention de 
 
 « Qui est cette personne?! Le Grand Ancien est tombé et a été capturé par lui. L'Éclair Éternel est revenu affaibli... »
 
-Un tumulte éclata au sein du Clan du Tonnerre Éparpillé. Le Grand Ancien était le pilier spirituel de tout le clan, leur ancêtre même. Ils n'avaient pas cru les paroles de Wang Lin auparavant, mais maintenant qu'ils avaient vu l'âme originelle du Grand Ancien, leurs yeux étaient emplis de terreur!
+Un tumulte éclata au sein du Clan du Tonnerre Dispersé. Le Grand Ancien était le pilier spirituel de tout le clan, leur ancêtre même. Ils n'avaient pas cru les paroles de Wang Lin auparavant, mais maintenant qu'ils avaient vu l'âme originelle du Grand Ancien, leurs yeux étaient emplis de terreur!
 
 Leurs esprits tremblaient, car leur pilier spirituel s'était totalement effondré! Si même le Grand Ancien était tombé, comment pourraient-ils résister?!
 
 Tout cela se produisit en un instant. Wang Lin se montrait totalement impitoyable envers les habitants du Royaume Extérieur. Lorsqu'il avait annoncé la capture du Grand Ancien, il savait qu'en raison de leur foi, les membres du clan ne le croiraient pas immédiatement, mais il pouvait utiliser cela pour planter une graine!
 
-Puis, il briserait la formation d'un seul coup et, au moment où leurs esprits seraient ébranlés, il sortirait le Fouet de l'Âme. Il n'aurait pas besoin de s'en servir pour attaquer; la simple vue de l'âme originelle du Grand Ancien frapperait comme un coup impitoyable dans les cœurs du Clan du Tonnerre Éparpillé!
+Puis, il briserait la formation d'un seul coup et, au moment où leurs esprits seraient ébranlés, il sortirait le Fouet de l'Âme. Il n'aurait pas besoin de s'en servir pour attaquer; la simple vue de l'âme originelle du Grand Ancien frapperait comme un coup impitoyable dans les cœurs du Clan du Tonnerre Dispersé!
 
-Cela provoquerait l'explosion soudaine de la graine qu'il avait semée. Exactement comme Wang Lin l'avait prévu, tout le Clan du Tonnerre Éparpillé sombra dans le chaos!
+Cela provoquerait l'explosion soudaine de la graine qu'il avait semée. Exactement comme Wang Lin l'avait prévu, tout le Clan du Tonnerre Dispersé sombra dans le chaos!
 
 Alors que le clan s'agitait suite à la capture de leur Grand Ancien, une lueur d'intention meurtrière traversa les yeux de Wang Lin. Tandis que le tonnerre grondait, Wang Lin agita la main et une lueur sanglante jaillit. L'invincible épée de sang fonça directement vers le cultivateur de la quatrième étape du Fléau Céleste!
 
 C'était l'atout que Wang Lin avait préparé! La lumière sanglante se déplaçait à une vitesse inimaginable. Lorsque le cultivateur de la quatrième étape du Fléau Céleste s'en aperçut, l'épée de sang lui avait déjà transpercé le milieu des sourcils!
 
-Un cri misérable résonna, tirant tous les membres du Clan du Tonnerre Éparpillé de leur confusion. Bien qu'ils n'aient été plongés dans le chaos que pendant un court instant, le prix à payer était extrêmement lourd!
+Un cri misérable résonna, tirant tous les membres du Clan du Tonnerre Dispersé de leur confusion. Bien qu'ils n'aient été plongés dans le chaos que pendant un court instant, le prix à payer était extrêmement lourd!
 
 Un large trou béait entre les sourcils du cultivateur de la quatrième étape du Fléau Céleste et son corps s'effondra. Son âme originelle s'échappa en hurlant, mais elle ne put distancer l'épée de sang qui la perça une fois de plus!
 
@@ -38,17 +38,17 @@ Même sans ce choc psychologique, cette bataille aurait été aisée car ce cult
 
 S'il n'avait pas été un cultivateur du tonnerre, Wang Lin aurait affronté une bataille difficile. Après tout, avec sa puissance actuelle, il pouvait vaincre des cultivateurs de la troisième étape du Fléau Céleste, mais il aurait rencontré des difficultés face à ceux de la quatrième étape.
 
-Tout s'était passé trop vite. Avant même que le Clan du Tonnerre Éparpillé n'ait accepté la défaite de leur Grand Ancien, Wang Lin les avait stupéfaits en tuant un ancien de la quatrième étape du Fléau Céleste.
+Tout s'était passé trop vite. Avant même que le Clan du Tonnerre Dispersé n'ait accepté la défaite de leur Grand Ancien, Wang Lin les avait stupéfaits en tuant un ancien de la quatrième étape du Fléau Céleste.
 
 L'expression de Wang Lin restait indifférente et il ne leur prêtait plus aucune attention. L'épée de sang tournait autour de lui tandis que le dragon de tonnerre avançait. Tous les cultivateurs devant lui reculèrent, n'osant pas faire le moindre pas en avant!
 
-« L'esprit de ces gens est confus. Daoïste Esprit Dispersé, votre force devrait suffire à gérer la situation! » Wang Lin se tenait au sommet du dragon de tonnerre alors que celui-ci volait vers la terre sainte du Clan du Tonnerre Éparpillé.
+« L'esprit de ces gens est confus. Daoïste Esprit Dispersé, votre force devrait suffire à gérer la situation! » Wang Lin se tenait au sommet du dragon de tonnerre alors que celui-ci volait vers la terre sainte du Clan du Tonnerre Dispersé.
 
 La terre sainte se situait au centre des seize planètes de culture. C'était la deuxième fois que Wang Lin venait ici. À son arrivée, ses yeux s'illuminèrent et il contempla la terre sainte d'un regard solennel. Assis sur le dragon de tonnerre, ses mains formèrent un sceau. Son corps fusionna avec celui du dragon, ne laissant aucun moyen de les distinguer!
 
 Alors qu'une intention meurtrière brillait dans ses yeux, le dragon de tonnerre laissa échapper un rugissement qui déchira les cieux!
 
-De nombreux cultivateurs du Clan du Tonnerre Éparpillé se trouvaient à l'extérieur de la terre sainte. Cependant, en voyant le géant dragon de tonnerre, ils hurlèrent d'horreur et reculèrent précipitamment.
+De nombreux cultivateurs du Clan du Tonnerre Dispersé se trouvaient à l'extérieur de la terre sainte. Cependant, en voyant le géant dragon de tonnerre, ils hurlèrent d'horreur et reculèrent précipitamment.
 
 Des grondements tonitruants résonnèrent lorsque le dragon de tonnerre fonça sur la terre sainte et la percuta!
 
@@ -102,7 +102,7 @@ Une aura de Dieu Ancien encore plus puissante émana de lui, faisant trembler le
 
 Grâce à cette traction, Wang Lin parvint à arracher l'Éclair Éternel de quelques milliers de pieds supplémentaires au vortex!
 
-Cette scène laissa les innombrables cultivateurs du Clan du Tonnerre Éparpillé totalement stupéfaits!
+Cette scène laissa les innombrables cultivateurs du Clan du Tonnerre Dispersé totalement stupéfaits!
 
 Une voix étouffée sortit du vortex, et même tout le Système Stellaire Antique sembla trembler devant elle! « Lâche prise immédiatement. Ce n'est pas un trésor qu'une seule personne peut posséder. Si tu continues, je te tuerai! »
 

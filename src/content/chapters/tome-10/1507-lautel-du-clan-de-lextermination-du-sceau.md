@@ -6,9 +6,9 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1507 - Seal Extermination Clan Altar
 slug: lautel-du-clan-de-lextermination-du-sceau
 ---
-Même Wang Lin trouva inconfortable d'être ainsi observé par la Bête de l'Inframonde. Il songea à ce pauvre homme qui avait été effrayé à mort deux fois par cette même créature.
+Même Wang Lin trouva inconfortable d'être ainsi observé par la Bête des Limbes. Il songea à ce pauvre homme qui avait été effrayé à mort deux fois par cette même créature.
 
-Cet être pitoyable se trouvait toujours dans le royaume de la Bête de l'Inframonde, et nul ne savait comment il allait... Wang Lin n'avait pas le temps de se soucier d'un inconnu. Sa main droite traça un sceau et pointa vers la Bête de l'Inframonde. Celle-ci se transforma en un rayon de lumière spectrale et s'engouffra dans son corps.
+Cet être pitoyable se trouvait toujours dans le royaume de la Bête des Limbes, et nul ne savait comment il allait... Wang Lin n'avait pas le temps de se soucier d'un inconnu. Sa main droite traça un sceau et pointa vers la Bête des Limbes. Celle-ci se transforma en un rayon de lumière spectrale et s'engouffra dans son corps.
 
 Elle fusionna avec la seconde étoile de Wang Lin avant de disparaître.
 
@@ -16,7 +16,7 @@ Contemplant le Luotian au loin, Wang Lin constata qu'il avait accompli les quatr
 
 Wang Lin ne pouvait espérer davantage et s'enfonça dans l'immensité avec un soupir.
 
-Le royaume à l'intérieur de la Bête de l'Inframonde était sans limites; un chaos capable de s'étendre ou de se contracter à sa guise. En cet instant, l'intérieur était chaotique, et le cultivateur au triste sort explorait ces entrailles depuis des centaines d'années... « Cette bête est vraiment patiente. Elle a attendu des siècles, mais finalement, je n'ai pas pu tenir plus longtemps et je suis parti. Cependant, après l'effondrement du Royaume aux Sept Couleurs, où diable ai-je atterri... »
+Le royaume à l'intérieur de la Bête des Limbes était sans limites; un chaos capable de s'étendre ou de se contracter à sa guise. En cet instant, l'intérieur était chaotique, et le cultivateur au triste sort explorait ces entrailles depuis des centaines d'années... « Cette bête est vraiment patiente. Elle a attendu des siècles, mais finalement, je n'ai pas pu tenir plus longtemps et je suis parti. Cependant, après l'effondrement du Royaume aux Sept Couleurs, où diable ai-je atterri... »
 
 Le cultivateur était confus et perplexe. Il songeait à cela depuis des centaines d'années... « Bon sang, de quel domaine stellaire s'agit-il? Je n'ai rencontré aucune créature vivante depuis des siècles. Pourrais-je être dans une faille spatiale? Je ne le crois pas! Il doit bien y avoir un moyen de sortir! » Le vieux cultivateur s'encourageait ainsi depuis des centaines d'années afin de préserver sa santé mentale tout en poursuivant ses recherches...
 
@@ -106,9 +106,9 @@ Simultanément, la faille se referma et disparut promptement.
 
 Wang Lin agita la main droite et emprisonna l'ancien démon dans son espace de stockage. Il contempla ensuite silencieusement le pavillon rouge. Il en possédait un lui aussi... Après un moment de silence, Wang Lin le rangea et disparut parmi les étoiles d'un seul pas. L'esprit de Wang Lin était celui d'un démon; bien que l'ancien démon fût rusé, il ne faisait pas le poids. Les paroles et les actes de Wang Lin n'étaient que les pièces d'une bataille mentale dont l'ancien démon venait de sortir vaincu.
 
-À la lisière du Système Stellaire Tout-Ciel, là où il rejoint le Système Stellaire de la Mer Nuageuse, Wang Lin apparut. Il observa le vide, maintenant que la barrière entre les deux systèmes avait disparu.
+À la lisière du Système Stellaire de Luotian, là où il rejoint le Système Stellaire de la Mer des Nuages, Wang Lin apparut. Il observa le vide, maintenant que la barrière entre les deux systèmes avait disparu.
 
-« Daoïste Eau! Je prendrai ma revanche sur le passé! »
+« Shui Daozi! Je prendrai ma revanche sur le passé! »
 
 Monde Extérieur, Système Stellaire Antique.
 

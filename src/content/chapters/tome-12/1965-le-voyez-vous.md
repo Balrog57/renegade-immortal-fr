@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1965 - Do You See It
 slug: le-voyez-vous
 ---
-Wang Lin s'en alla, mais un immense bourdonnement s'empara de l'Épreuve Empyréenne. Le fait que Wang Lin ait surmonté les épreuves avait suscité une excitation telle qu'elle changea la perception de tous.
+Wang Lin s'en alla, mais un immense bourdonnement s'empara de l'Épreuve Empyrée. Le fait que Wang Lin ait surmonté les épreuves avait suscité une excitation telle qu'elle changea la perception de tous.
 
 Désormais, ils se souvenaient tous du nom « Wang Lin », ce nom qui avait supplanté l'Ascendant Empyréen Ming Dao pour devenir le numéro un juste après les Grands Empyréens!
 
@@ -34,7 +34,7 @@ Continent Central, au sommet du Mont Empereur. Le Grand Empyréen Jiu Di se tena
 
 « Je n'ai pu recruter l'Ascendant Empyréen Ming Dao, et voilà qu'il nourrit une rancœur envers l'Empereur Céleste. Je veux voir qui pourra rivaliser avec moi! » Le Grand Empyréen Jiu Di se tourna vers l'Exalté Empyréen Hai Zi, qui ouvrait lentement les yeux, et rit.
 
-« Hai Zi, suis le Maître. Le Maître acceptera ce Wang Lin comme disciple et fera de lui ton frère aîné. Qu'en dis-tu? »
+« Hai Zi, suis le Maître. Le Maître acceptera ce Wang Lin comme disciple et fera de lui ton Senior Frère. Qu'en dis-tu? »
 
 L'Exalté Empyréen Hai Zi fut surprise et son cœur se remplit de joie.
 
@@ -42,13 +42,13 @@ Continent Est, au sein de la Secte Yang Pourpre. Les yeux de l'homme d'âge moye
 
 « Le 17e palais... cet homme a réellement franchi le 17e palais. Il sera certainement disputé par les autres Grands Empyréens! Petit Ancêtre, tu dois diviner sa position, nous devons le trouver au plus vite! »
 
-Les deux petites filles à ses côtés clignèrent des yeux et se levèrent aussitôt. À trois, elles se transformèrent en une bourrasque de vent et disparurent. Cependant, juste au moment où elles s'évanouirent, une petite main apparut aux côtés de la joyeuse Gourmandise.
+Les deux petites filles à ses côtés clignèrent des yeux et se levèrent aussitôt. À trois, elles se transformèrent en une bourrasque de vent et disparurent. Cependant, juste au moment où elles s'évanouirent, une petite main apparut aux côtés de la joyeuse Cupidité.
 
 « Ah, j'ai oublié d'emmener Petit Loup. Petit Loup, ne t'inquiète pas, nous ne t'oublierons pas. Ta performance était bonne tout à l'heure, alors viens avec nous. »
 
-Des larmes coulèrent des yeux de la Gourmandise tandis que son cou était saisi par cette petite main et qu'elle disparaissait de la pièce de pierre.
+Des larmes coulèrent des yeux de la Cupidité tandis que son cou était saisi par cette petite main et qu'elle disparaissait de la pièce de pierre.
 
-Sur le Continent du Grand Sage, le corps de Wang Lin était resté assis dans la grotte pendant qu'il participait à l'Épreuve Empyréenne. Le dragon marin avait beaucoup rétréci et se prélassait paresseusement. Liu Jinbiao sautillait autour du corps du dragon. Parfois, il touchait délicatement certains points, d'autres fois il grattait certaines zones comme pour apaiser une démangeaison.
+Sur le Continent du Grand Sage, le corps de Wang Lin était resté assis dans la grotte pendant qu'il participait à l'Épreuve Empyrée. Le dragon marin avait beaucoup rétréci et se prélassait paresseusement. Liu Jinbiao sautillait autour du corps du dragon. Parfois, il touchait délicatement certains points, d'autres fois il grattait certaines zones comme pour apaiser une démangeaison.
 
 Le dragon marin plissait les yeux, semblant très confortablement installé. Il laissait même échapper quelques grognements en tordant son corps.
 

@@ -16,7 +16,7 @@ Au sein de la deuxième illusion, le Daoïste aux Sept Couleurs était transport
 
 Aujourd'hui, grâce au pouvoir du Continent Astral Immortel, il avait enfin trouvé une piste menant à la troisième âme. Il ignorait si cela était réel ou s'il ne faisait que l'imaginer, mais c'était la première fois qu'il se trouvait aussi proche de cette troisième âme!
 
-Sous ses yeux, il vit la troisième âme percer la Rivière des Invocations et se diriger vers ce qui deviendrait plus tard le Vide Brillant. Sa main traça un sceau pour tenter d'observer de plus près, mais à cet instant précis, un changement stupéfiant se produisit!
+Sous ses yeux, il vit la troisième âme percer la Rivière Invoquée et se diriger vers ce qui deviendrait plus tard le Vide Brillant. Sa main traça un sceau pour tenter d'observer de plus près, mais à cet instant précis, un changement stupéfiant se produisit!
 
 Un rugissement tonitruant retentit à ses oreilles. D'abord faible, il monta brusquement en intensité pour devenir le seul son perceptible par le Daoïste aux Sept Couleurs!
 

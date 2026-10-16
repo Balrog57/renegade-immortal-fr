@@ -6,27 +6,27 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1924 - Waiting for the Autumn Wind
 slug: en-attente-du-vent-dautomne
 ---
-Wang Lin fit un pas en avant. Tous les disciples de la Secte Terrestre situés entre lui et l'homme furent écartés par une force invisible. Lorsque le pied de Wang Lin toucha le sol, il se retrouva devant l'homme nommé Qing.
+Wang Lin fit un pas en avant. Tous les disciples de la Secte de la Terre situés entre lui et l'homme furent écartés par une force invisible. Lorsque le pied de Wang Lin toucha le sol, il se retrouva devant l'homme nommé Qing.
 
-« Aîné… » L'homme fut stupéfait en voyant Wang Lin. Il était désemparé. La même expression apparut sur le visage de la femme, doublée de panique. Wang Lin était accompagné de l'Ancien et du Maître de Secte; il devait donc être une personne d'une puissance redoutable!
+« Senior… » L'homme fut stupéfait en voyant Wang Lin. Il était désemparé. La même expression apparut sur le visage de la femme, doublée de panique. Wang Lin était accompagné de l'Ancien et du Maître de Secte; il devait donc être une personne d'une puissance redoutable!
 
 L'Ancien Zheng Tianlin, témoin de la scène, fut choqué. Le doute s'installa dans son cœur, mais peu importait ses réflexions, il ne parvenait pas à trouver la véritable réponse; il refusa donc d'agir avec imprudence.
 
 En voyant cela, une lueur glaciale traversa les yeux du Maître de Secte. Opprimé par l'aura de Wang Lin, il n'osait mot dire. Il ne pouvait non plus percevoir l'expression de Wang Lin, ne voyant que son dos. Cependant, sentant là une opportunité d'agir, il pointa l'homme nommé Qing du doigt et rugit:
 
-« Vous deux avez du cran! Sans même que l'Aîné ait à intervenir, je vous bannirai tous deux de la secte! » Sur ces mots, il s'élança pour faire étalage de sa force.
+« Vous deux avez du cran! Sans même que le Senior ait à intervenir, je vous bannirai tous deux de la secte! » Sur ces mots, il s'élança pour faire étalage de sa force.
 
-« Idiot!! » En entendant cela, l'expression du vieil homme de l'Exaltation Dorée changea radicalement. Il fit un geste de la manche, prêt à stopper le Maître de la Secte Terrestre.
+« Idiot!! » En entendant cela, l'expression du vieil homme de l'Exalté Doré changea radicalement. Il fit un geste de la manche, prêt à stopper le Maître de la Secte de la Terre.
 
 Cependant, avant qu'il ne puisse faire quoi que ce soit, Wang Lin se retourna et la douceur dans ses yeux se mua en un regard glacial.
 
 « Dégage! »
 
-Ce mot fut comme un coup de tonnerre éclatant au sein de la Secte Terrestre, créant d'innombrables échos et une onde de choc puissante. Tout cela frappa le Maître de Secte, faisant trembler son corps; il cracha du sang et fut projeté au loin.
+Ce mot fut comme un coup de tonnerre éclatant au sein de la Secte de la Terre, créant d'innombrables échos et une onde de choc puissante. Tout cela frappa le Maître de Secte, faisant trembler son corps; il cracha du sang et fut projeté au loin.
 
-Un seul mot, un simple son, suffisait à infliger de graves blessures à un Maître de Secte au stade avancé de la Tribulation du Vide. Les pupilles du vieil Ancien de l'Exaltation Dorée se rétractèrent et il joignit immédiatement les mains devant Wang Lin.
+Un seul mot, un simple son, suffisait à infliger de graves blessures à un Maître de Secte au stade avancé de la Tribulation du Vide. Les pupilles du vieil Ancien de l'Exalté Doré se rétractèrent et il joignit immédiatement les mains devant Wang Lin.
 
-« Aîné, je vous en prie, ne soyez pas en colère. Ce descendant est jeune dans sa culture. Bien que talentueux, il est trop téméraire et a été trop gâté par ce junior. Je vais immédiatement le destituer de son poste de Maître de Secte et vous le livrer pour que vous puissiez faire votre justice. Je trouverai une nouvelle personne pour assumer cette fonction! »
+« Senior, je vous en prie, ne soyez pas en colère. Ce descendant est jeune dans sa culture. Bien que talentueux, il est trop téméraire et a été trop gâté par ce junior. Je vais immédiatement le destituer de son poste de Maître de Secte et vous le livrer pour que vous puissiez faire votre justice. Je trouverai une nouvelle personne pour assumer cette fonction! »
 
 Ce revirement soudain stupéfia les près de mille disciples de rang 5. Ils regardèrent Wang Lin avec une terreur indescriptible.
 
@@ -74,7 +74,7 @@ Désormais, vous n'aurez plus les souvenirs de votre vie antérieure. Vous ne po
 
 Il ne l'avait dit à personne, et personne ne l'avait remarqué. Il avait fait cela seul, pour aider Zhou Yi.
 
-Tandis que Wang Lin gardait les yeux clos, l'homme tenant la main de sa bien-aimée hésita et dit: « Aîné… Vous… Votre niveau de culture est immense. Pouvez-vous m'aider à dissiper un doute… »
+Tandis que Wang Lin gardait les yeux clos, l'homme tenant la main de sa bien-aimée hésita et dit: « Senior… Vous… Votre niveau de culture est immense. Pouvez-vous m'aider à dissiper un doute… »
 
 Au moment où il parla, la femme serra sa main si fort qu'il semblait que leurs mains allaient fusionner; même la mort ne saurait les séparer. Elle paraissait nerveuse et triste — elle semblait même avoir oublié sa peur de Wang Lin.
 
@@ -94,7 +94,7 @@ Il semble que le but de mon existence soit tourné vers elle. Attendre qu'elle s
 
 Son expression confuse était la même que celle qu'il arborait lorsqu'il gardait le cadavre pendant mille ans, espérant un miracle...
 
-Le silence devint total, seule la voix de l'homme résonnait encore. Le vieil homme de l'Exaltation Dorée observa la scène, puis regarda Wang Lin. Il nourrissait des conjectures et méditait en silence.
+Le silence devint total, seule la voix de l'homme résonnait encore. Le vieil homme de l'Exalté Doré observa la scène, puis regarda Wang Lin. Il nourrissait des conjectures et méditait en silence.
 
 Wang Lin fixa l'homme sans parler durant un long moment. Il aurait pu effacer la mémoire de Qing Shuang, mais il ne voulait pas altérer celle de cet homme. Car cet homme était son ami, son bienfaiteur.
 
@@ -108,9 +108,9 @@ C'est là ma réponse pour vous. » Les yeux de Wang Lin étaient empreints de n
 
 « Si un jour vous découvrez que ma réponse est la bonne, vous pourrez prendre cette pilule. Elle fera en sorte que vous ne fassiez plus jamais ce rêve. » Wang Lin se retourna et s'avança vers la tête du dragon marin. Il laissa derrière lui une pilule flétrie et jaune, semblable à une feuille d'automne, qui flottait devant l'homme confus.
 
-« Zheng Tianlin, ces deux-là sont mes plus proches amis, et ils sont désormais réincarnés au sein de votre secte. C'est une immense bénédiction pour vous. J'aiderai votre secte à trois reprises!! Si quoi que ce soit leur arrive, je reviendrai vous demander des comptes! » La voix de Wang Lin résonna dans le cœur du vieil homme de l'Exaltation Dorée. Simultanément, Wang Lin agita la main et un jade portant son empreinte vola vers le vieil homme.
+« Zheng Tianlin, ces deux-là sont mes plus proches amis, et ils sont désormais réincarnés au sein de votre secte. C'est une immense bénédiction pour vous. J'aiderai votre secte à trois reprises!! Si quoi que ce soit leur arrive, je reviendrai vous demander des comptes! » La voix de Wang Lin résonna dans le cœur du vieil homme de l'Exalté Doré. Simultanément, Wang Lin agita la main et un jade portant son empreinte vola vers le vieil homme.
 
-« Merci, Très Haut Empyréen!! » Le vieil homme de l'Exaltation Dorée trembla et s'inclina devant Wang Lin. C'était un présent inestimable!!
+« Merci, Exalté Empyréen!! » Le vieil homme de l'Exalté Doré trembla et s'inclina devant Wang Lin. C'était un présent inestimable!!
 
 À cet instant, une brise souffla, faisant flotter les cheveux de l'homme et de la femme. Deux mèches de leurs chevelures s'entrelacèrent comme deux papillons dansants.
 

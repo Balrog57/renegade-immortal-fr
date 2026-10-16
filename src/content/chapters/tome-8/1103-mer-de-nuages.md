@@ -1,6 +1,6 @@
 ---
 n: 1103
-title: Mer de Nuages
+title: Mer des Nuages
 book: 8
 bookTitle: "Alliance's Secret"
 en: Chapter 1103 - Cloud Sea
@@ -12,10 +12,10 @@ Les deux autres étaient également blessés, en particulier celui qui se trouva
 
 Derrière eux, une douzaine de bêtes moustiques les suivaient. Bien que légèrement blessées, leurs blessures n'entravaient pas leur mouvement. Leurs yeux rouges étaient fixés sur les trois individus, mais, sous l'effet de l'encens, elles les suivaient malgré elles.
 
-— Maudit soit cet instant! Nous avons laissé s'échapper la reine des moustiques géantes! grogna le jeune homme à la jambe blessée, rongé par la frustration. Si nous avions pu la ramener à la Mer de Nuages, nous aurions pu l'échanger contre un Élixir de Flétrissement Céleste extrêmement précieux auprès de la Secte de l'Étoile Noire!
+— Maudit soit cet instant! Nous avons laissé s'échapper la reine des moustiques géantes! grogna le jeune homme à la jambe blessée, rongé par la frustration. Si nous avions pu la ramener à la Mer des Nuages, nous aurions pu l'échanger contre un Élixir de Fléau Céleste extrêmement précieux auprès de la Secte de l'Étoile Noire!
 
 Le jeune homme dont la poitrine était percé s'écria:
-— Tais-toi! Cette reine moustique a certainement été élevée par quelqu'un. Seul un puissant cultivateur de l'Alliance serait capable d'apprivoiser ces bêtes géantes qui ravagent la Mer de Nuages. Nous devons rejoindre les Anciens au plus vite; sinon, si ce cultivateur nous découvre, les conséquences seront inimaginables!
+— Tais-toi! Cette reine moustique a certainement été élevée par quelqu'un. Seul un puissant cultivateur de l'Alliance serait capable d'apprivoiser ces bêtes géantes qui ravagent la Mer des Nuages. Nous devons rejoindre les Anciens au plus vite; sinon, si ce cultivateur nous découvre, les conséquences seront inimaginables!
 
 — Tout se passait pourtant si bien... murmurait le troisième. Je ne pensais pas que la reine moustique commencerait soudainement à se débattre après notre départ de la région orientale. Cela a provoqué la rébellion de toute la meute. Si nous n'avions pas utilisé deux encens d'âme de moustique, je crains que nous n'ayons pas pu les détourner et que nous n'ayons pas été dévorés... Hélas, la reine s'est échappée.
 
@@ -26,7 +26,7 @@ Alors qu'ils volaient, ils pénétrèrent progressivement dans les profondeurs d
 À cet instant, les trois jades brillèrent intensément et volèrent vers l'écran protecteur. Des ondulations parcoururent la barrière avant qu'un vortex ne se forme. Les trois jeunes s'engouffrèrent dans le tourbillon, entraînant avec eux la douzaine de bêtes moustiques.
 
 Lorsqu'ils réapparurent, ils se trouvaient tous à l'intérieur de l'écran de lumière. Les trois compères se détendirent visiblement. Celui qui tenait l'encens déclara:
-— Il est en effet étrange que des moustiques géants de mon système stellaire de la Mer de Nuages apparaissent ici. Heureusement qu'ils n'étaient pas plus nombreux. S'il s'était agi d'une horde de dizaines de milliers, comme ce que nous avons vu dans le Royaume Céleste du Vent...
+— Il est en effet étrange que des moustiques géants de mon système stellaire de la Mer des Nuages apparaissent ici. Heureusement qu'ils n'étaient pas plus nombreux. S'il s'était agi d'une horde de dizaines de milliers, comme ce que nous avons vu dans le Royaume Céleste du Vent...
 
 Il trembla, le regard empli de terreur.
 — Oublie cela. Il est inutile d'y songer davantage. Nous avons accompli la mission demandée par la secte. Nous devons partir au plus vite; j'ai un mauvais pressentiment.
@@ -51,10 +51,10 @@ Le jeune homme blessé à la poitrine rapporta respectueusement les faits. Il h�
 En entendant cela, le visage de l'Ancien s'assombrit. Il échangea un regard avec son confrère, et une lueur d'inquiétude mêlée d'ambition brilla dans leurs yeux.
 — Si ces bêtes n'avaient pas de maître, ce ne serait pas un problème... mais les chances sont quasi nulles. Pourrions-nous provoquer quelqu'un capable de dresser de telles créatures?
 
-— Les moustiques géants ont une valeur immense dans le système stellaire de la Mer de Nuages, reprit l'autre. Ils vivent souvent en essaims de centaines de milliers, ce qui les rend extrêmement difficiles à capturer. Même des cultivateurs de rang 6 ou plus rencontreraient d'énormes difficultés pour les saisir. Ces douze bêtes représentent une fortune colossale pour notre Secte de la Porte Céleste...
+— Les moustiques géants ont une valeur immense dans le système stellaire de la Mer des Nuages, reprit l'autre. Ils vivent souvent en essaims de centaines de milliers, ce qui les rend extrêmement difficiles à capturer. Même des cultivateurs de rang 6 ou plus rencontreraient d'énormes difficultés pour les saisir. Ces douze bêtes représentent une fortune colossale pour notre Secte de la Porte Céleste...
 
-Ils se mutuellement l'avidité et la détermination.
-— Grâce à cet écran de lumière verte, il sera difficile pour les cultivateurs de l'Alliance de pénétrer ici. Même si un cultivateur au stade du Briseur du Nirvana arrivait, il lui faudrait plusieurs jours pour briser cette formation offerte par une secte de rang 8. Nous devons simplement gagner du temps pour retourner dans le système de la Mer de Nuages. S'ils osent nous poursuivre jusque-là... Hmph, nous ferons en sorte qu'ils n'en reviennent jamais!
+Ils lurent mutuellement l'avidité et la détermination dans le regard de l'autre.
+— Grâce à cet écran de lumière verte, il sera difficile pour les cultivateurs de l'Alliance de pénétrer ici. Même si un cultivateur au stade du Briseur du Nirvana arrivait, il lui faudrait plusieurs jours pour briser cette formation offerte par une secte de rang 8. Nous devons simplement gagner du temps pour retourner dans le système de la Mer des Nuages. S'ils osent nous poursuivre jusque-là... Hmph, nous ferons en sorte qu'ils n'en reviennent jamais!
 — Accélérez la construction de la formation! conclurent-ils d'un commun accord.
 
 Les trois jeunes qui avaient ramené les bêtes étaient transportés par l'excitation. Puisque les Anciens avaient validé leur coup, ils étaient désormais hors de danger. De retour à la secte, les récompenses ne tarderaient pas.

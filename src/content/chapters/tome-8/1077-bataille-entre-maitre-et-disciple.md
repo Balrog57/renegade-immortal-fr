@@ -10,7 +10,7 @@ Chaque fois que Wang Lin utilisait l'Arsenal Magique, il admirait profondément 
 
 Ce sort défiait déjà les cieux et frôlait la limite de celui qui remplace le ciel en l'acte même de porter jugement!
 
-À cet instant, l'âme du Maître Vide jaillit, imprégnée d'une intention meurtrière. Même l'être sans tête paraissait pâle en comparaison avec l'intention meurtrière du Maître Vide. Il était mort avec un immense ressentiment; c'était un cultivateur au sommet de la destruction du Nirvana qui traversait sa première Affliction Céleste. La puissance de son âme était absolument terrifiante!
+À cet instant, l'âme du Maître du Vide jaillit, imprégnée d'une intention meurtrière. Même l'être sans tête paraissait pâle en comparaison avec l'intention meurtrière du Maître du Vide. Il était mort avec un immense ressentiment; c'était un cultivateur au sommet du stade de Briseur du Nirvana qui traversait son premier Fléau Céleste. La puissance de son âme était absolument terrifiante!
 
 Une fois projetée, son âme entra en combat contre l'être sans tête. D'innombrables autres âmes vinrent prêter main-forte, renversant instantanément la situation.
 
@@ -28,7 +28,7 @@ Le python n'était pas le seul à fondre sur sa proie; une autre créature l'acc
 
 Après le qilin noir, cinq autres êtres sans tête surgirent. C'était comme si des créatures infinies vivaient au sein de ce chaos.
 
-Ces cinq sans-tête suivirent de près le qilin. Ils encerclèrent le Maître Vide et entamèrent l'assaut.
+Ces cinq sans-tête suivirent de près le qilin. Ils encerclèrent le Maître du Vide et entamèrent l'assaut.
 
 Les yeux de Wang Lin s'illuminèrent. Il voulut invoquer les avatars de l'Omniscient qui se trouvaient dans le dix-huitième niveau de l'enfer. Cependant, une pensée traversa son esprit alors qu'il fixait l'Omniscient en ricanant.
 
@@ -96,7 +96,7 @@ Alors que le corps de l'Omniscient était contraint à l'arrêt, l'un des six an
 
 Ceux qui n'appartenaient pas à la secte ne pourraient jamais comprendre la douleur et la frustration accumulées pendant des dizaines de milliers d'années. À cet instant, le vieil homme esquissa un sourire amer et ouvrit les bras. La folie embrasa son regard alors qu'il commençait à détruire son âme d'origine!
 
-L'autodestruction d'un cultivateur du niveau de la destruction du Nirvana!
+L'autodestruction d'un cultivateur du niveau Briseur du Nirvana!
 
 Cette autodestruction fut tellurique, créant une aura de pure destruction. Ce vieil homme était prêt à tout sacrifier, bien que Wang Lin ignore même son nom. Pour l'espoir de la Secte Divine de l'Oiseau Vermillon, il choisissait sa propre fin!
 
@@ -104,13 +104,13 @@ Un grondement assourdissant retentit alors que son corps fut déchiré. Son âme
 
 Alors que l'Omniscient tendait la main vers son front, l'une des marques fut arrachée. À cet instant, le niveau de culture de l'Omniscient augmenta de manière prodigieuse, et cette puissance créa une tempête. Elle bloqua l'Origine Source de Wang Lin et stoppa l'impact de l'autodestruction du cultivateur.
 
-Profitant de la puissance libérée par l'autodestruction du Nirvana, Wang Lin recula rapidement pour finalement rétablir une distance entre lui et l'Omniscient!
+Profitant de la puissance libérée par l'autodestruction du Briseur du Nirvana, Wang Lin recula rapidement pour finalement rétablir une distance entre lui et l'Omniscient!
 
 Les cheveux blancs de l'Omniscient flottaient au vent. Son visage vieilli s'était considérablement rajeuni après la destruction de la marque; il ressemblait désormais à un homme d'âge mûr d'une cinquantaine d'années.
 
 L'aura émanant de son corps fit pousser un cri de stupeur à l'assistance. Même les yeux de l'Ancien Démon Ta Jia se rétrécirent.
 
-« Cela fait presque 20 000 ans que j'ai ouvert ce premier sceau... Wang Lin, tu as réussi à me forcer à briser mon premier sceau et à libérer toute la puissance de la première Affliction Céleste. Je ne t'ai pas pris pour disciple pour rien! »
+« Cela fait presque 20 000 ans que j'ai ouvert ce premier sceau... Wang Lin, tu as réussi à me forcer à briser mon premier sceau et à libérer toute la puissance du premier Fléau Céleste. Je ne t'ai pas pris pour disciple pour rien! »
 
 À ce moment précis, une armée de plus de 10 000 cultivateurs apparut dans l'espace au-delà du nuage de poussière qui recouvrait le Territoire des Esprits Démoniaques. À leur tête se tenait un vieil homme vêtu de blanc, débordant d'énergie spirituelle céleste. Il dégageait l'aura d'un être céleste, et derrière lui marchaient près de cent autres êtres de ce rang.
 

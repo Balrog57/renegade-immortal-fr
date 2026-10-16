@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1741 - Grand Empyrée Xuan Luo!"
 slug: grand-empyrean-xuan-luo
 ---
-Wang Lin s'éleva dans les airs et atterrit sur le dos de la gigantesque Bête du Néant en deux enjambées. La Bête du Néant était restée invisible jusqu'à ce que Wang Lin l'invoque.
+Wang Lin s'éleva dans les airs et atterrit sur le dos de la gigantesque Bête des Limbes en deux enjambées. La Bête des Limbes était restée invisible jusqu'à ce que Wang Lin l'invoque.
 
 Maintenant qu'elle était apparue, Wang Lin s'assit péniblement sur son dos. Il endurait la douleur de ses multiples blessures tout en fixant la planète des Cinq Éléments.
 
@@ -14,9 +14,9 @@ Constatant qu'aucun changement n'intervenait sur la planète des Cinq Éléments
 
 En vérité, même s'ils avaient osé jouer ce coup, Wang Lin disposait encore d'autres options. Il possédait toujours l'Arc de Li Guang. Bien qu'il ne fût pas disposé à l'utiliser pour l'instant, il ne saurait hésiter face à une crise majeure.
 
-Bien que Wang Lin eût été blessé lors de ce voyage sur la planète des Cinq Éléments, ses gains étaient tout aussi considérables. Il pressa plusieurs points de son corps pour réprimer la douleur. La Bête du Néant se retira lentement, quittant l'espace entourant la planète des Cinq Éléments pour réapparaître dans le Vide Brillant.
+Bien que Wang Lin eût été blessé lors de ce voyage sur la planète des Cinq Éléments, ses gains étaient tout aussi considérables. Il pressa plusieurs points de son corps pour réprimer la douleur. La Bête des Limbes se retira lentement, quittant l'espace entourant la planète des Cinq Éléments pour réapparaître dans le Vide Brillant.
 
-« Le niveau de culture de ce vieil homme nommé Ma est encore plus puissant que celui du Souverain. Même s'il n'a pas atteint le stade de la Tribulation du Néant, il doit avoir traversé plusieurs Tribulations Arcanes... »
+« Le niveau de culture de ce vieil homme nommé Ma est encore plus puissant que celui du Souverain. Même s'il n'a pas atteint le stade du Tribulant du Vide, il doit avoir traversé plusieurs Tribulations Arcanes... »
 
 « De plus, le premier étage de la tour ne contenait qu'une armure au lieu d'un être humain... La culture de cette Secte Gui Yi est très étrange, ils dépendent en fait de l'armure... Cette armure du premier étage appartient probablement à ce vieil homme nommé Ma... »
 

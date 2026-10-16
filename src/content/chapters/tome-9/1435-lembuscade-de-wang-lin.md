@@ -30,7 +30,7 @@ De loin, on aurait dit que l'espace lui-même s'effondrait. C'était l'apocalyps
 
 La tempête formée par l'effondrement des six planètes était telle une gueule béante dévorant l'homme costaud. En un éclair, il fut englouti par le chaos.
 
-Rumble, rumble, rumble, rumble!
+Grondement, grondement, grondement, grondement!
 
 Des grondements tonitruants résonnèrent à travers les étoiles, mais à ce moment précis, un hurlement de loup terrifiant retentit. Des décombres des six planètes jaillit un loup féroce. Bien que sa taille n'ait pas changé, son corps était désormais plus éthéré et semblait bien plus faible.
 
@@ -88,7 +88,7 @@ Il ignorait que la véritable raison pour laquelle Wang Lin avait ciblé la jeun
 
 Le Clan de l'Extermination des Sceaux! L'un des petits clans du Système Stellaire Antique! Avec cette femme, tous les sorts de Wang Lin auraient pu être scellés. Et une fois scellés, les conséquences auraient été imprévisibles!
 
-Du point de vue de Wang Lin, bien que son niveau de culture ne fût pas élevé, le danger qu'elle représentait n'était en rien inférieur à celui de cet homme du Vide du Nirvana!
+Du point de vue de Wang Lin, bien que son niveau de culture ne fût pas élevé, le danger qu'elle représentait n'était en rien inférieur à celui de cet homme du Nirvana Vide!
 
 « Quel homme impitoyable... » Un léger soupir s'échappa de l'homme costaud. La lumière revint progressivement dans les yeux de la jeune fille dont le front avait été transpercé par l'épée de sang.
 
@@ -106,10 +106,10 @@ C'était la première fois qu'elle vivait une telle expérience!
 
 « Continuez la poursuite. Même s'il faut le traquer jusqu'au bout du monde, nous devons le tuer! Nord-est, 1 734 532 kilomètres! Les stratagèmes de cet homme sont profonds et tout doit être pris en compte. Je crains que même sa route d'évasion n'ait un sens... Cette direction... Ceci... » murmura la femme tandis que sa main tenant la boussole tremblait. Elle leva soudain les yeux vers le nord-est.
 
-« C'est l'emplacement de la Tombe de l'Ordre Antique!! Pourquoi a-t-il choisi de s'enfuir là-bas?! »
+« C'est l'emplacement de la Tombe de l'Ordre Ancien!! Pourquoi a-t-il choisi de s'enfuir là-bas?! »
 
-L'homme du clan de l'Estimé Loup Céleste déchira silencieusement le vide et s'y engouffra. Après son départ, la faille se referma lentement et le domaine stellaire retrouva son calme, ne laissant derrière lui que les planètes effondrées dont la tempête de débris continuait de se propager... La zone s'étendant de la faille jusqu'à la Tombe de l'Ordre Antique était plongée dans un brouillard dense. Une puissance terrifiante régnait au sein de cette brume, et même les cultivateurs de la troisième étape n'oseraient s'y aventurer imprudemment.
+L'homme du clan de l'Estimé Loup Céleste déchira silencieusement le vide et s'y engouffra. Après son départ, la faille se referma lentement et le domaine stellaire retrouva son calme, ne laissant derrière lui que les planètes effondrées dont la tempête de débris continuait de se propager... La zone s'étendant de la faille jusqu'à la Tombe de l'Ordre Ancien était plongée dans un brouillard dense. Une puissance terrifiante régnait au sein de cette brume, et même les cultivateurs de la troisième étape n'oseraient s'y aventurer imprudemment.
 
 Ce brouillard couvrait une zone d'un million de kilomètres carrés, où se trouvaient de nombreux cultivateurs du Système Stellaire Antique.
 
-Personne n'avait remarqué qu'un bouleversement se préparait à l'intérieur de la Tombe de l'Ordre Antique, dans la faille. Un instant plus tard, elle éclata, ébranlant tout le Système Stellaire Antique!
+Personne n'avait remarqué qu'un bouleversement se préparait à l'intérieur de la Tombe de l'Ordre Ancien, dans la faille. Un instant plus tard, elle éclata, ébranlant tout le Système Stellaire Antique!

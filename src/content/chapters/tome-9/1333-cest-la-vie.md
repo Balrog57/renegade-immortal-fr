@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1333 - This is the Life
 slug: cest-la-vie
 ---
-Le temps s'écoulait lentement sur cette planète du Clan du Tonnerre Éparpillé. En un clin d'œil, cela faisait déjà un mois que Wang Lin était arrivé.
+Le temps s'écoulait lentement sur cette planète du Clan du Tonnerre Dispersé. En un clin d'œil, cela faisait déjà un mois que Wang Lin était arrivé.
 
 Durant ce mois, il n'était pas retourné dans sa grotte, préférant cultiver au sein de la Secte du Tonnerre Céleste. Au cours de cette période, Xu Liguo et Grand Rouge avaient commencé à rassembler une quantité massive d'objets échangeables contre des cristaux de tonnerre, en prenant la Secte du Tonnerre Céleste pour point central.
 
@@ -14,7 +14,7 @@ Grâce à tout ce qui avait été collecté, Wang Lin pouvait désormais obtenir
 
 Xu Liguo, qui avait rarement l'occasion de quitter l'espace de stockage, était transporté par l'excitation et avait lancé une véritable campagne à l'extérieur de la Secte du Tonnerre Céleste. N'aimant pas agir seul, il s'entourait systématiquement d'au moins dix disciples du stade de l'Établissement des Fondations de la Secte du Tonnerre Céleste, se déplaçant tel un essaim de sauterelles. Par une méthode inconnue, il avait également placé sous ses ordres tout cultivateur de la Formation du Noyau qu'il croisait.
 
-En seulement un mois, il commandait près de cent membres du Clan du Tonnerre Éparpillé. Xu Liguo semblait avoir appris cette technique quelque part, mais il avait exigé qu'on lui fabrique un trône géant en bambou. Celui-ci mesurait mille pieds de large et brillait d'un éclat vif sous le siège de Xu Liguo. Il était également escorté par quatre cultivatrices du Clan du Tonnerre Éparpillé. Son arrogance était sans limite!
+En seulement un mois, il commandait près de cent membres du Clan du Tonnerre Dispersé. Xu Liguo semblait avoir appris cette technique quelque part, mais il avait exigé qu'on lui fabrique un trône géant en bambou. Celui-ci mesurait mille pieds de large et brillait d'un éclat vif sous le siège de Xu Liguo. Il était également escorté par quatre cultivatrices du Clan du Tonnerre Dispersé. Son arrogance était sans limite!
 
 Des douzaines de cultivateurs transportaient ce trône, tandis que d'autres formaient une escorte sur tous les flancs.
 
@@ -48,7 +48,7 @@ Alors que le trône approchait, Xu Liguo afficha un air de satisfaction et leva 
 
 Dès qu'il agita la main, le monde trembla et d'innombrables ombres d'épées surgirent dans les airs. À leur apparition, elles entonnèrent des hymnes de sabre infinis, et une énergie tranchante se propagea partout, déchirant les nuages. Même la lumière du monde sembla faiblir.
 
-Xu Liguo était l'esprit de l'épée ayant hérité de l'ancienne intention de l'épée. Bien qu'il fût paresseux, lorsqu'il fut scellé dans les Quatre Sectes Divines par Wang Lin, il avait été contraint de cultiver. Pour ne pas parler d'un simple cultivateur de l'Âme Naissante, même des experts de l'Ascendant, du Yin et du Yang, ou même des Scrutateurs du Nirvana n'étaient pas de taille face à lui!
+Xu Liguo était l'esprit de l'épée ayant hérité de l'ancienne intention de l'épée. Bien qu'il fût paresseux, lorsqu'il fut scellé dans les Quatre Sectes Divines par Wang Lin, il avait été contraint de cultiver. Pour ne pas parler d'un simple cultivateur de l'Âme Naissante, même des experts de l'Ascendant, du Yin et du Yang, ou même des Scruteurs du Nirvana n'étaient pas de taille face à lui!
 
 D'un revers de main, alors que le monde grondait, une énergie d'épée infinie déferla. Cette énergie était si dense qu'elle fit trembler tous les cultivateurs alentour, comme s'ils étaient emprisonnés dans une glace éternelle!
 
@@ -78,7 +78,7 @@ De l'autre côté, Grand Rouge avait également commencé sa collecte frénétiq
 
 Cette épée était ordinaire, mais extrêmement puissante pour un cultivateur du premier niveau. Elle lui permettait de vaincre des experts de la Formation de l'Âme au stade intermédiaire et même de tenir tête à ceux du stade avancé.
 
-Toutefois, contrairement à l'arrogance de Xu Liguo, Grand Rouge se montrait bien plus prudent. Bien qu'accompagné de quelques cultivateurs, il ne s'amusait guère. Il connaissait mieux le Clan du Tonnerre Éparpillé et savait précisément ce qui valait des cristaux de tonnerre. Connaissant l'emplacement de nombreuses grottes et muni de la pilule et de l'épée offertes par Wang Lin, il se sentait confiant. Il avait le sentiment que sa chance tournait: s'il satisfaisait Wang Lin, il obtiendrait peut-être une autre pilule.
+Toutefois, contrairement à l'arrogance de Xu Liguo, Grand Rouge se montrait bien plus prudent. Bien qu'accompagné de quelques cultivateurs, il ne s'amusait guère. Il connaissait mieux le Clan du Tonnerre Dispersé et savait précisément ce qui valait des cristaux de tonnerre. Connaissant l'emplacement de nombreuses grottes et muni de la pilule et de l'épée offertes par Wang Lin, il se sentait confiant. Il avait le sentiment que sa chance tournait: s'il satisfaisait Wang Lin, il obtiendrait peut-être une autre pilule.
 
 Pensant ainsi, Grand Rouge gagna en assurance et en enthousiasme, tout en restant secrètement sur ses gardes face à Xu Liguo. Il sentait que ce dernier était son rival juré!
 
@@ -90,8 +90,8 @@ Grand Rouge ricana tout en dirigeant ses hommes pour piller plusieurs grottes. D
 
 « Mon talent pour l'art invincible est immense. Je ne crois pas être incapable de battre Xu Liguo! »
 
-Pendant que Xu Liguo et Grand Rouge collectaient leurs ressources, Wang Lin était assis dans la Secte du Tonnerre Céleste, une pierre de jade devant lui. Celle-ci contenait un ensemble de méthodes de culture propres au Clan du Tonnerre Éparpillé.
+Pendant que Xu Liguo et Grand Rouge collectaient leurs ressources, Wang Lin était assis dans la Secte du Tonnerre Céleste, une pierre de jade devant lui. Celle-ci contenait un ensemble de méthodes de culture propres au Clan du Tonnerre Dispersé.
 
 Cette technique s'appelait le Grand Sceau du Tonnerre. Elle permettait de compresser tout le tonnerre de son corps pour déclencher une attaque explosive dévastatrice! Toutefois, cela ne fonctionnait qu'avec l'aide de la marque du clan, et sa pratique prolongée aidait à éveiller lentement cette fameuse marque.
 
-Wang Lin étudiait cette méthode afin de comprendre la marque du Clan du Tonnerre Éparpillé. Il pressentait que cet apprentissage serait crucial pour parvenir à absorber l'Éternel Éclat!
+Wang Lin étudiait cette méthode afin de comprendre la marque du Clan du Tonnerre Dispersé. Il pressentait que cet apprentissage serait crucial pour parvenir à absorber l'Éternel Éclat!

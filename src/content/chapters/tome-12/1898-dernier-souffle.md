@@ -10,7 +10,7 @@ slug: dernier-souffle
 
 Quelques jours plus tard, l'âme originelle de l'un des Messagers du Démon Vert recracha les dernières traces de son essence originelle. Son âme originelle se dissipa et son corps s'effondra. Il était mort.
 
-Moins d'une demi-bâton d'encens après sa mort, l'âme originelle de l'autre messager se dissipa également.
+Moins d'un demi-bâton d'encens après sa mort, l'âme originelle de l'autre messager se dissipa également.
 
 La mort des deux Messagers du Démon Vert qui avaient accompagné le vieil homme pendant si longtemps ne fit pas changer l'expression de ce dernier. Le vieil homme dégageait une aura de mort et se trouvait dans un état semi-mort. S'il n'avait pas été soutenu par sa volonté puissante, il serait déjà mort.
 

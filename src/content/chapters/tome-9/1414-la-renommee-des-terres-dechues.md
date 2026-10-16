@@ -40,7 +40,7 @@ Un silence de mort s'installa.
 
 L'encens humain s'était éteint et l'encens de terre était brisé... Seule la baguette d'encens céleste trônait encore, imposante!
 
-Le visage du Grand Maître Yun Luo devint livide. La cassure de l'encens de terre reflétait son propre esprit brisé, et la peur dans ses yeux s'intensifia.
+Le visage de la Grande Maîtresse Yun Luo devint livide. La cassure de l'encens de terre reflétait son propre esprit brisé, et la peur dans ses yeux s'intensifia.
 
 « Ce ne peut pas être lui, ce n'est pas possible... Ce ne peut pas être lui! »
 
@@ -86,7 +86,7 @@ Devant lui, le monde se tordit et Wang Lin en émergea. Il apparut devant l'Oise
 
 L'Oiseau Vermillon de la quatrième génération tourna son regard vers Wang Lin et murmura: « Après ton quatrième éveil, tu devras encore nourrir ton Feu Éthéré pendant un certain temps. Garde cela à l'esprit. »
 
-Wang Lin afficha une expression complexe face à l'homme d'âge mûr devant lui. Il joignit les mains et demanda: « L'Aîné est-il l'Oiseau Vermillon de la quatrième génération? »
+Wang Lin afficha une expression complexe face à l'homme d'âge mûr devant lui. Il joignit les mains et demanda: « Le Senior est-il l'Oiseau Vermillon de la quatrième génération? »
 
 « Je le suis », répondit l'homme en hochant la tête.
 
@@ -100,11 +100,11 @@ Cette statue était formée par le corps du vieux Dieu Empereur Vermillon après
 
 « Le vieux Dieu Empereur Vermillon a vécu pour la Secte Divine de l'Oiseau Vermillon. À mon sens, personne n'est plus qualifié pour porter ce nom! » Tandis que Wang Lin contemplait les restes du vieil Empereur, des souvenirs du passé lui traversèrent l'esprit.
 
-« Tandis que le vieux Dieu Empereur s'inquiétait pour la Secte Divine, vous n'étiez pas là, l'Oiseau Vermillon de la deuxième génération n'était pas là... Au sein des Quatre Sectes Divines, l'Empereur Divin Tigre Blanc est mort, l'Empereur Divin Tortue Noire a fait défection et l'Empereur Divin Dragon Azure est resté piégé. Pendant des dizaines de milliers d'années, seul le vieux Dieu Empereur Vermillon a tenu bon. Même dans la mort, il ne pouvait oublier la Secte Divine... Il ne pouvait oublier son maître... Aujourd'hui, le junior a pu voir l'Aîné, alors je laisserai ses restes ici. Je crois que le vieux Dieu Empereur aurait lui aussi choisi de rester pour accompagner le maître qui l'avait abandonné et n'était jamais revenu. Peut-être est-ce là sa véritable demeure. »
+« Tandis que le vieux Dieu Empereur s'inquiétait pour la Secte Divine, vous n'étiez pas là, l'Oiseau Vermillon de la deuxième génération n'était pas là... Au sein des Quatre Sectes Divines, l'Empereur Divin Tigre Blanc est mort, l'Empereur Divin Tortue Noire a fait défection et l'Empereur Divin Dragon Azure est resté piégé. Pendant des dizaines de milliers d'années, seul le vieux Dieu Empereur Vermillon a tenu bon. Même dans la mort, il ne pouvait oublier la Secte Divine... Il ne pouvait oublier son maître... Aujourd'hui, le junior a pu voir le Senior, alors je laisserai ses restes ici. Je crois que le vieux Dieu Empereur aurait lui aussi choisi de rester pour accompagner le maître qui l'avait abandonné et n'était jamais revenu. Peut-être est-ce là sa véritable demeure. »
 
 Wang Lin recula de quelques pas, s'agenouilla devant la statue et effectua trois prosternations. « Vieux Dieu Empereur Vermillon, ce disciple vous a ramené ici depuis la Secte Divine. Je vous ai conduit auprès de l'Oiseau Vermillon de la quatrième génération, votre foyer... Je ne pourrai jamais rendre tout ce que vous avez fait pour moi, mais ma promesse perdurera. »
 
-Une fois levé, Wang Lin regarda l'Oiseau Vermillon de la quatrième génération avec une expression complexe. Il joignit les mains et dit: « Merci, Aîné, de m'avoir aidé autrefois. Le junior s'en va. » Sur un soupir, Wang Lin s'éloigna.
+Une fois levé, Wang Lin regarda l'Oiseau Vermillon de la quatrième génération avec une expression complexe. Il joignit les mains et dit: « Merci, Senior, de m'avoir aidé autrefois. Le junior s'en va. » Sur un soupir, Wang Lin s'éloigna.
 
 Il pouvait accepter l'Oiseau Vermillon de la deuxième génération, mais il ne pouvait accepter celui de la quatrième... Si ce dernier n'était pas parti, le vieil Empereur aurait déjà accompli son quatrième éveil. Si ce dernier n'était pas parti, le vieil Empereur ne serait pas mort.
 

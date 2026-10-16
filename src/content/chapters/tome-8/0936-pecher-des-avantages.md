@@ -100,7 +100,7 @@ Wang Lin, posté près de l'os du Serpent aux yeux de lune, décida de s'asseoir
 
 Le Sens Divin de Wang Lin enveloppait l'épée qui continuait d'avancer lentement. Elle pénétra sans hésiter dans le trou et poursuivit sa route.
 
-« Pour l'instant, mon Sens Divin est dans l'épée; si elle est détruite, cela n'aura pas d'importance. De plus, lequel de ces êtres ne peut pas effondrer une étoile d'un simple coup de pied? À part le Frère Aîné Qing Shui, je ne suis qu'une fourmi à leurs yeux. »
+« Pour l'instant, mon Sens Divin est dans l'épée; si elle est détruite, cela n'aura pas d'importance. De plus, lequel de ces êtres ne peut pas effondrer une étoile d'un simple coup de pied? À part le Senior Frère Qing Shui, je ne suis qu'une fourmi à leurs yeux. »
 
 « Cependant, ils ignorent que ma puissance d'Ancien Dieu n'est pas affectée ici... Laissons-les se battre d'abord; une fois qu'ils n'auront plus beaucoup d'énergie originelle, moi, la simple fourmi à leurs yeux, je pourrai peut-être pêcher quelques avantages! »
 

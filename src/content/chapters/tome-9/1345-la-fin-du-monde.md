@@ -42,13 +42,13 @@ Le jeune homme murmura doucement: « Je me suis enfui jusqu'ici, au bout des 7 M
 
 « Je n'ai plus fui. J'ai choisi de les affronter, j'ai choisi de résister! Je suis retourné dans les 7 Millions de Mondes et j'ai fondé la Secte de l'Esprit Dispersé. Chaque avatar a déployé son esprit, et mes esprits dispersés contrôlent la majorité des cultivateurs des 7 Millions de Mondes! »
 
-« Je leur ai enseigné la méthode de culture qui leur permettrait d'atteindre le stade de la Formation de l'Âme le plus rapidement possible. J'ai cultivé comme un fou, créant avatar après avatar. Des dizaines de milliers d'années plus tard, j'ai atteint le stade que vous, les êtres célestes, appelez la "Quatrième Affliction Céleste"! » Le jeune homme se tourna vers Wang Lin.
+« Je leur ai enseigné la méthode de culture qui leur permettrait d'atteindre le stade de la Formation de l'Âme le plus rapidement possible. J'ai cultivé comme un fou, créant avatar après avatar. Des dizaines de milliers d'années plus tard, j'ai atteint le stade que vous, les êtres célestes, appelez la "Quatrième Fléau Céleste"! » Le jeune homme se tourna vers Wang Lin.
 
-« Je vais tuer les êtres célestes, je vais subvertir le Clan du Tonnerre Dispersé et arracher mon peuple de cet endroit! Cependant, même après des dizaines de milliers d'années, malgré la puissance que j'ai accumulée, je ne peux toujours pas vaincre l'Ancien principal, qui est au stade de la cinquième Affliction Céleste... »
+« Je vais tuer les êtres célestes, je vais subvertir le Clan du Tonnerre Dispersé et arracher mon peuple de cet endroit! Cependant, même après des dizaines de milliers d'années, malgré la puissance que j'ai accumulée, je ne peux toujours pas vaincre l'Ancien principal, qui est au stade du cinquième Fléau Céleste... »
 
-« Je peux tout tenter, rassembler tous les cultivateurs que je contrôle, et même utiliser la formation de vie et de mort que j'ai mise en place il y a des millénaires, mais je ne peux que le blesser gravement! Pas le tuer! Et cela sans parler du reste des Anciens du Clan... »
+« Je peux tout tenter, rassembler tous les cultivateurs que je contrôle, et même utiliser la formation de vie et de mort que j'ai mise en place il y a des dizaines de milliers d'années, mais je ne peux que le blesser gravement! Pas le tuer! Et cela sans parler du reste des Anciens du Clan... »
 
-« Ma culture a atteint ses limites. Je ne peux pas atteindre le niveau requis pour supporter la calamité de vie et de mort de la cinquième Affliction Céleste! J'ai besoin de votre aide! » Le jeune homme regarda Wang Lin, les yeux suppliants.
+« Ma culture a atteint ses limites. Je ne peux pas atteindre le niveau requis pour supporter la calamité de vie et de mort du cinquième Fléau Céleste! J'ai besoin de votre aide! » Le jeune homme regarda Wang Lin, les yeux suppliants.
 
 « Vous n'êtes pas comme les membres du Clan du Tonnerre Dispersé, vous êtes le premier espoir que j'aie jamais vu. Avec notre puissance combinée, vous pourriez m'aider. Je vois bien que vous aussi, vous n'avez aucune inclination pour le Clan du Tonnerre Dispersé. Si nous coopérons, nous y gagnerons tous les deux! »
 

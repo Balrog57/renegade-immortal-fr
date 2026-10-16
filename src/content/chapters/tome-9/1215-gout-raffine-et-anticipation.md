@@ -64,7 +64,7 @@ Tout cela se produisit en un éclair, dépassant l'entendement. Le feu et la fou
 
 Deux cercles se contractaient: l'un était la mer de feu bleu, l'autre, toute la foudre du monde. Au moment où ces deux cercles fusionnèrent en un point unique, le monde trembla!
 
-Un fracas capable de faire trembler les cieux remplaça tout autre son, provoquant une nouvelle effondrement du Royaume aux Sept Couleurs!
+Un fracas capable de faire trembler les cieux remplaça tout autre son, provoquant un nouvel effondrement du Royaume aux Sept Couleurs!
 
 Un cri strident et déchirant fut englouti par ce tumulte. Un pilier de feu bleu jaillit vers les cieux, comme pour les transpercer! D'innombrables éclairs remplissaient l'intérieur et l'extérieur de ce pilier ardent, formant une colonne de tonnerre qui se superposait au pilier de feu pour percer l'infini!
 
@@ -106,10 +106,10 @@ Il n'était pas pressé. Il gravit lentement la montagne jusqu'à atteindre l'en
 
 De cette position, les gémissements provenant de la grotte étaient encore plus distincts. C'était comme si une multitude de personnes s'y trouvaient, endurant des souffrances insupportables.
 
-À cet instant précis, dans le Système des Étoiles Anciennes, au sein du palais, la flamme de la bougie brûlait intensément et la main flétrie se retira lentement.
+À cet instant précis, dans le Système Stellaire Antique, au sein du palais, la flamme de la bougie brûlait intensément et la main flétrie se retira lentement.
 
 « La chaleur a atteint la température requise... Cependant, ce n'est pas encore le bon type de feu... Car il n'a pas encore fait bouillir l'âme... » dit une voix ancienne émanant de derrière la bougie.
 
-« Un membre du Clan de l'Extermination des Sceaux est mort. Avez-vous des doutes sur les causes de son décès? » demanda une voix indifférente.
+« Un faux membre du Clan de l'Extermination des Sceaux est mort. Avez-vous des doutes sur les causes de son décès? » demanda une voix indifférente.
 
 « Pourquoi douterais-je... Je connaîtrai la réponse une fois que le Dao aura été planté. Ce sera bien plus intéressant... L'inconnu possède le goût le plus délicieux... L'attente est l'anticipation éternelle. Alors, laissez le feu devenir fou... »

@@ -30,7 +30,7 @@ Cette planète était la Planète des Cinq Éléments!
 
 Il n'existait qu'une seule secte sur la Planète des Cinq Éléments: la Secte Gui Yi! Le nom de la secte suggérait l'idée de fusionner les cinq éléments en un seul.
 
-Dans le Vide Brillant, la Planète des Cinq Éléments était une anomalie. Bien qu'elle fût située dans ce système stellaire, elle était difficile à débusquer. Sans les coordonnées exactes de l'Alliance de la Culture, il était presque impossible de la localiser. Même en utilisant son Sens Divin, on n'y percevait que le vide, tout comme pour la Bête du Néant.
+Dans le Vide Brillant, la Planète des Cinq Éléments était une anomalie. Bien qu'elle fût située dans ce système stellaire, elle était difficile à débusquer. Sans les coordonnées exactes de l'Alliance de la Culture, il était presque impossible de la localiser. Même en utilisant son Sens Divin, on n'y percevait que le vide, tout comme pour la Bête des Limbes.
 
 C'est grâce à cela que la planète avait échappé aux deux guerres. Cependant, l'imprévu survient toujours. Lors de la guerre entre les Royaumes Intérieur et Extérieur, un groupe de cultivateurs du Royaume Extérieur pénétra accidentellement sur la planète. Ils n'en ressortirent jamais.
 
@@ -38,11 +38,11 @@ Telle était la Planète des Cinq Éléments: mystérieuse et insondable.
 
 Wang Lin possédait l'emplacement de la Planète des Cinq Éléments. Na Duo lui l'avait transmis autrefois en l'invitant sur sa planète. Wang Lin tenait le jade, déterminant avec précaution ses coordonnées.
 
-« L'invitation de Na Duo remonte à plus de 1 000 ans. Beaucoup de choses peuvent changer en un millénaire... » Le Sens Divin de Wang Lin se retira du jade. La Bête du Néant flottait vers l'avant.
+« L'invitation de Na Duo remonte à plus de 1 000 ans. Beaucoup de choses peuvent changer en un millénaire... » Le Sens Divin de Wang Lin se retira du jade. La Bête des Limbes flottait vers l'avant.
 
 En route vers la Planète des Cinq Éléments, Wang Lin songeait au passé. Il avait rencontré Na Duo à cause d'un sac de rangement, avant d'être traqué par lui. Le danger ne s'était dissipé qu'une fois son Royaume Ji révélé.
 
-« Na Duo possède un Royaume Ji aux cinq couleurs... » murmura Wang Lin alors que la Bête du Néant pénétrait dans un domaine stellaire totalement inconnu.
+« Na Duo possède un Royaume Ji aux cinq couleurs... » murmura Wang Lin alors que la Bête des Limbes pénétrait dans un domaine stellaire totalement inconnu.
 
 Ce domaine était invisible au Sens Divin depuis l'extérieur, quelle que soit la puissance de votre culture. C'était comme si cet endroit était détaché du Vide Brillant.
 
@@ -50,13 +50,13 @@ Soudain, Wang Lin vit la Planète des Cinq Éléments, telle une fleur épanouie
 
 À l'instant où il la vit, les yeux de Wang Lin ne purent s'empêcher de briller d'une pointe d'extase. Les anneaux entourant la planète étaient magnifiques. Wang Lin avait vu bien des mondes, mais celui-ci était le plus beau.
 
-« Cette planète n'appartient pas au Monde des Grottes... » Wang Lin ferma les yeux. En tant que maître du Dao Céleste, il pouvait ressentir les pensées de la Bête du Néant qui flottait sous lui.
+« Cette planète n'appartient pas au Monde des Grottes... » Wang Lin ferma les yeux. En tant que maître du Dao Céleste, il pouvait ressentir les pensées de la Bête des Limbes qui flottait sous lui.
 
 Si cette planète ne pouvait être détectée par le Sens Divin et semblait isolée du Vide Brillant, c'était parce qu'elle n'appartenait pas au Monde des Grottes.
 
 « Après être arrivés ici, ces cultivateurs étrangers ont utilisé une méthode inconnue pour transplanter une planète provenant du Continent Astral Immortel. » Wang Lin ferma les yeux et s'intégra au Dao Céleste. Lorsqu'il les rouvrit lentement, son regard était empreint d'une clarté absolue.
 
-Wang Lin se leva et fit un pas en avant, laissant la Bête du Néant en suspension tandis qu'il marchait vers la planète éblouissante.
+Wang Lin se leva et fit un pas en avant, laissant la Bête des Limbes en suspension tandis qu'il marchait vers la planète éblouissante.
 
 Dès qu'il s'en approcha, les cinq anneaux de la planète brillèrent intensément et se déployèrent vers l'extérieur. Ils tournèrent à une vitesse fulgurante, produisant un hurlement strident qui faisait barrage à Wang Lin.
 

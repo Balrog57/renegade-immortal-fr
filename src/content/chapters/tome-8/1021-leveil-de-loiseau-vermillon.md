@@ -12,7 +12,7 @@ Wang Lin serra les dents et endura la souffrance. Il perdit toute notion du temp
 
 Après un laps de temps indéterminé, la douleur dans son âme originelle s'estompa lentement. L'énergie originelle contenue dans les flammes fusionna progressivement avec son âme originelle et commença à circuler normalement.
 
-Wang Lin ouvrit ses yeux fatigués. Dès qu'il les entrouvrit, la mer de flammes située dans un rayon de dix mètres autour de lui fut aspirée par ses pores pour retourner dans son corps.
+Wang Lin ouvrit ses yeux fatigués. Dès qu'il les entrouvrit, la mer de flammes située dans un rayon de trente pieds autour de lui fut aspirée par ses pores pour retourner dans son corps.
 
 Cependant, cette fois, Wang Lin ne sentit que son corps se réchauffer; les flammes fusionnèrent rapidement avec son énergie originelle.
 
@@ -32,7 +32,7 @@ Ses cheveux étaient totalement ternes et secs, mais ses yeux brillaient de plus
 
 Le phénomène le plus étrange se produisait entre les sourcils de Wang Lin. Il y a quelques jours, après avoir absorbé une certaine quantité de flammes, il avait senti un changement entre ses sourcils. Ce sentiment émanait du marquage de l'Oiseau Vermillon!
 
-« Je ne pensais pas que l'absorption de ces flammes permettrait non seulement de restaurer mon énergie originelle, mais créerait aussi cette chaleur... Pourtant, la chaleur dans mon corps semble différente du sort "Brûler les Cieux" de Qing Lin... » Wang Lin ouvrit les yeux et toucha la zone entre ses sourcils.
+« Je ne pensais pas que l'absorption de ces flammes permettrait non seulement de restaurer mon énergie originelle, mais créerait aussi cette chaleur... Pourtant, la chaleur dans mon corps semble différente du sort "Brûle les Cieux" de Qing Lin... » Wang Lin ouvrit les yeux et toucha la zone entre ses sourcils.
 
 « J'avais initialement l'intention d'absorber les flammes pour restaurer mon énergie originelle, mais il semble que plus j'en absorbe, plus cela me sera bénéfique... » Les yeux de Wang Lin s'illuminèrent alors qu'il se levait et avançait lentement.
 

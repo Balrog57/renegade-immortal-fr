@@ -56,7 +56,7 @@ Les yeux de Wang Lin s'illuminèrent. S'avançant, il pointa le ciel et cria: «
 
 Instantanément, une force mystérieuse sembla surgir au monde et s'élancer. La rivière souterraine apparut au-dessus de Wang Lin, chargée d'un ressentiment monstrueux!
 
-Cette rivière s'enroula autour de lui et bougea à ses côtés. Il fit un pas en avant et étendit son bras. Ses yeux étaient emplis d'une intention de tonnerre tandis qu'un tourbillon apparaissait entre ses sourcils. Son ancienne âme d'origine du Dragon de Tonnerre jaillit en poussant un rugissement!
+Cette rivière s'enroula autour de lui et bougea à ses côtés. Il fit un pas en avant et étendit son bras. Ses yeux étaient emplis d'une intention de tonnerre tandis qu'un tourbillon apparaissait entre ses sourcils. Son âme d'origine du Dragon de Tonnerre antique jaillit en poussant un rugissement!
 
 *ROAR!*
 

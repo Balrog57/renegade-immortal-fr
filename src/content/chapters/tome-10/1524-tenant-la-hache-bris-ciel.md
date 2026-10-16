@@ -1,6 +1,6 @@
 ---
 n: 1524
-title: "Tenant la Hache Bris-Ciel!"
+title: "Tenant la Hache Brise-Ciel!"
 book: 10
 bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1524 - Holding the Heaven Splitting Axe!"
@@ -68,7 +68,7 @@ Ses yeux étaient injectés de sang, son visage marqué par l'épuisement, son �
 
 Les plaies couvraient tout son être!
 
-Pourtant, il était impossible de compter le nombre de cultivateurs du Royaume Extérieur qu'il avait terrassés, et Wang Lin ne cherchait pas à le faire. À cet instant, il ne trouvait aucune raison de partir… La requête du Seigneur du Domaine Scellé, tous ceux qu'il connaissait dans le Royaume Intérieur, son foyer natal, tout cela l'empêchait de battre en retraite… Les yeux de Wang Lin étaient rouges et le monde prit la couleur du sang. Au milieu de ce massacre incessant, un des cultivateurs de la Mer des Nuages qui fuyait s'arrêta.
+Pourtant, il était impossible de compter le nombre de cultivateurs du Royaume Extérieur qu'il avait terrassés, et Wang Lin ne cherchait pas à le faire. À cet instant, il ne trouvait aucune raison de partir… La requête du Seigneur du Royaume Scellé, tous ceux qu'il connaissait dans le Royaume Intérieur, son foyer natal, tout cela l'empêchait de battre en retraite… Les yeux de Wang Lin étaient rouges et le monde prit la couleur du sang. Au milieu de ce massacre incessant, un des cultivateurs de la Mer des Nuages qui fuyait s'arrêta.
 
 C'était un jeune homme, seulement au stade du Scruteur du Nirvana. Il avait eu la chance de survivre à cette bataille tragique. Il se retourna et fixa le dos de Wang Lin au loin. Il regarda Wang Lin charger contre les vagues infinies de cultivateurs, tel deux bras gigantesques bloquant une armée.
 
@@ -86,34 +86,34 @@ Ces mots leur semblaient faibles et ne parvenaient pas à susciter le moindre é
 
 Bien que leur « gloire de la Mer des Nuages » se fût effondrée, Wang Lin leur offrait une autre gloire, celle du combat! Se battre pour la Mer des Nuages, se battre pour leur foyer et pour tout ce qu'ils voulaient protéger!
 
-Précisément à cet instant, la gigantesque Hache Bris-Ciel descendit de nouveau et 5 000 autres cultivateurs du Royaume Extérieur périrent. Wang Lin leva les yeux vers la Hache Bris-Ciel et chargea sous le regard des milliers de cultivateurs de la Mer des Nuages!
+Précisément à cet instant, la gigantesque Hache Brise-Ciel descendit de nouveau et 5 000 autres cultivateurs du Royaume Extérieur périrent. Wang Lin leva les yeux vers la Hache Brise-Ciel et chargea sous le regard des milliers de cultivateurs de la Mer des Nuages!
 
-« Seigneur du Domaine Scellé, aide-moi! »
+« Seigneur du Royaume Scellé, aide-moi! »
 
-Le rugissement de Wang Lin résonna dans la Formation de Scellement du Domaine, jusque dans le jade qui emprisonnait le seigneur du Palais de la Punition Céleste!
+Le rugissement de Wang Lin résonna dans la Formation de Scellement du Royaume, jusque dans le jade qui emprisonnait le seigneur du Palais de la Punition Céleste!
 
-La conscience divine résiduelle du Seigneur du Domaine Scellé jaillit avec toute la force vitale qu'il lui restait. Une douce lumière se propagea dans toute la Formation de Scellement du Domaine.
+La conscience divine résiduelle du Seigneur du Royaume Scellé jaillit avec toute la force vitale qu'il lui restait. Une douce lumière se propagea dans toute la Formation de Scellement du Royaume.
 
-Elle pénétra la Hache Bris-Ciel qui venait de frapper et remontait lentement! La hache trembla soudainement lorsque cette lumière fusionna avec elle!
+Elle pénétra la Hache Brise-Ciel qui venait de frapper et remontait lentement! La hache trembla soudainement lorsque cette lumière fusionna avec elle!
 
 Elle lutta violemment, résistant à la douce clarté. Cependant, alors que la lumière continuait de se fondre en elle, un grondement tonitruant retentit et la grande hache s'immobilisa dans les airs. Des éclats d'aura de Dieu Ancien se propagèrent rapidement depuis l'arme!
 
-« Hache Bris-Ciel, prête ton pouvoir à mon héritier… » Une voix ancienne émana de la formation et parvint aux oreilles de chaque cultivateur!
+« Hache Brise-Ciel, prête ton pouvoir à mon héritier… » Une voix ancienne émana de la formation et parvint aux oreilles de chaque cultivateur!
 
 Une pointe de tristesse brilla dans les yeux du Maître Nan Yunzi. Comment pouvait-il oublier cette voix?
 
 L'expression de la femme en rouge qui combattait contre lui changea, et une rare trace de peur apparut dans son regard. Les souvenirs du passé affluèrent dans son esprit.
 
-Le visage du Maître Hong Shan restait calme, mais ses yeux trahissaient une pointe de nostalgie. C'était comme s'il était retourné dans le passé, à l'époque où il voyageait avec le Seigneur du Domaine Scellé. L'attachement aux vieilles idées du Seigneur du Domaine l'agaçait autrefois, mais ce dernier se contentait alors de secouer la tête en souriant en silence.
+Le visage du Maître Hong Shan restait calme, mais ses yeux trahissaient une pointe de nostalgie. C'était comme s'il était retourné dans le passé, à l'époque où il voyageait avec le Seigneur du Royaume Scellé. L'attachement aux vieilles idées du Seigneur du Domaine l'agaçait autrefois, mais ce dernier se contentait alors de secouer la tête en souriant en silence.
 
-Le garçon au regard froid entendit également cela, et une trace de peur apparut aussi dans ses yeux. La personne qu'il craignait le plus n'était pas le Souverain, ni les concubines impériales célestes, mais le Seigneur du Domaine Scellé!
+Le garçon au regard froid entendit également cela, et une trace de peur apparut aussi dans ses yeux. La personne qu'il craignait le plus n'était pas le Souverain, ni les concubines impériales célestes, mais le Seigneur du Royaume Scellé!
 
-Tandis que la voix ancienne résonnait, la Hache Bris-Ciel cessa de lutter et rétrécit jusqu'à n'atteindre plus que quelques dizaines de pieds. Cependant, l'aura de Dieu Ancien qu'elle émettait augmenta considérablement!
+Tandis que la voix ancienne résonnait, la Hache Brise-Ciel cessa de lutter et rétrécit jusqu'à n'atteindre plus que quelques dizaines de pieds. Cependant, l'aura de Dieu Ancien qu'elle émettait augmenta considérablement!
 
-Wang Lin bondit et saisit la Hache Bris-Ciel devant tout le monde!
+Wang Lin bondit et saisit la Hache Brise-Ciel devant tout le monde!
 
 C'était une arme de Dieu Ancien, l'arme royale la plus puissante. C'était une hache qui fendait les cieux!
 
 Au moment où Wang Lin saisit l'arme, ses étoiles de Dieu Ancien tournèrent rapidement. Une aura similaire à celle qu'il avait ressentie lors de l'obtention de l'héritage de l'Ordre Ancien jaillit de son corps!
 
-D'innombrables années s'étaient écoulées depuis que la hache avait été scellée dans la formation, et Wang Lin était le premier Dieu Ancien à tenir la Hache Bris-Ciel depuis lors!
+D'innombrables années s'étaient écoulées depuis que la hache avait été scellée dans la formation, et Wang Lin était le premier Dieu Ancien à tenir la Hache Brise-Ciel depuis lors!

@@ -96,7 +96,7 @@ Lorsque la lance arriva et que Tuo Sen chargea, nous étions au 44e souffle!
 
 La force de rejet s'engouffra soudainement dans le corps de Wang Lin. Il ferma les yeux et se remémora le coup de poing, la paume et le doigt que Ye Mo avait utilisés autrefois!
 
-« Dieu Tremblant, Formation d'Armée! » Wang Lin inspira profondément tout en subissant l'impact de la force de rejet. Bien que du sang jaillisse de ses orifices, il absorba une quantité massive d'aura d'héritage.
+« Dieu Tremble, Formation d'Armée! » Wang Lin inspira profondément tout en subissant l'impact de la force de rejet. Bien que du sang jaillisse de ses orifices, il absorba une quantité massive d'aura d'héritage.
 
 Il lança avec précaution un coup de poing de sa main gauche. Le vide devant lui se distordit et d'innombrables ondulations commencèrent à se propager depuis lui comme point central!
 
@@ -106,7 +106,7 @@ La naissance de toute étoile nécessite la formation d'un cyclone, lequel doit 
 
 La Lance Tueuse de Dieux était extrêmement rapide et n'était plus qu'à moins de cent pieds. Les cheveux de Wang Lin furent projetés en arrière par le vent, et les innombrables fragments de la plateforme effondrée furent emportés!
 
-« Voie Démoniaque, Inversion de la Vie et de la Mort! » Wang Lin ferma les yeux et pointa sa main gauche vers l'avant. Il visait la Lance Tueuse de Dieuses qui fonçait sur lui!
+« Dao Démoniaque, Inversion de la Vie et de la Mort! » Wang Lin ferma les yeux et pointa sa main gauche vers l'avant. Il visait la Lance Tueuse de Dieux qui fonçait sur lui!
 
 Au moment où son doigt toucha la pointe de la lance, Wang Lin ouvrit brusquement les yeux!
 

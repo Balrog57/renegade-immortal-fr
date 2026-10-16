@@ -114,9 +114,9 @@ Les yeux de Wang Lin trahirent une pointe de confusion. Dès son apparition, il 
 
 Poussé par le brouillard, Wang Lin se retourna lorsqu'il fut sorti et vit la bête inimaginablement gigantesque.
 
-« C'était bien la Bête des Enfers issue des souvenirs de l'ancien dieu Tu Si... Cette créature existe depuis l'ère des anciens dieux et son origine demeure inconnue. Elle n'a aucune capacité offensive et se montre extrêmement timide. Pourtant, il y a quelque chose de mystérieux dans son anatomie; c'est comme si elle contenait un autre monde. Le monde à l'intérieur est bien plus vaste que son propre corps. »
+« C'était bien la Bête des Limbes issue des souvenirs de l'ancien dieu Tu Si... Cette créature existe depuis l'ère des anciens dieux et son origine demeure inconnue. Elle n'a aucune capacité offensive et se montre extrêmement timide. Pourtant, il y a quelque chose de mystérieux dans son anatomie; c'est comme si elle contenait un autre monde. Le monde à l'intérieur est bien plus vaste que son propre corps. »
 
-« Je ne m'attendais pas à ce qu'un vestige des souvenirs de Tu Si subsiste encore. » Wang Lin regarda la Bête des Enfers et soupira.
+« Je ne m'attendais pas à ce qu'un vestige des souvenirs de Tu Si subsiste encore. » Wang Lin regarda la Bête des Limbes et soupira.
 
 La bête remarqua également Wang Lin et sa troupe. Elle referma lentement sa gueule avant de reculer pour disparaître dans les profondeurs. Hormis le tourbillon de brume, sa silhouette était désormais invisible.
 

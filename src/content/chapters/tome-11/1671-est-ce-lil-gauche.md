@@ -16,7 +16,7 @@ Un tremblement issu des souvenirs gravés dans leurs âmes envahit leur esprit. 
 
 À mesure que le corps de la Bête des Limbes se matérialisait lentement, les dizaines de bêtes féroces battirent en retraite. La Bête des Limbes était enfin apparue!
 
-Au moment de son apparition, la moitié de son corps dépassait de la formation. Étant si vaste, elle s'étendait au point de presque toucher les cultivateurs du Royaume Extérieur. Elle ne se trouvait qu'à trois mètres d'un cultivateur!
+Au moment de son apparition, la moitié de son corps dépassait de la formation. Étant si vaste, elle s'étendait au point de presque toucher les cultivateurs du Royaume Extérieur. Elle ne se trouvait qu'à dix pieds d'un cultivateur!
 
 Ce dernier était un homme d'âge moyen dont l'âme originelle était déjà blessée. À cet instant, traumatisé par la vue de la créature gigantesque, il perdit toute capacité de réflexion.
 
@@ -24,7 +24,7 @@ La Bête des Limbes était également stupéfaite, la confusion se lisant dans s
 
 Sa nature timide refusa d'obéir et son corps trembla inconsciemment. Ce tremblement fit vibrer le système stellaire tout entier, propageant une onde à travers la zone.
 
-C’est alors qu’elle aperçut le cultivateur qui n'était qu'à trois mètres d'elle. Elle se figea.
+C’est alors qu’elle aperçut le cultivateur qui n'était qu'à dix pieds d'elle. Elle se figea.
 
 Le visage du cultivateur d'âge moyen devint livide. Après un bref instant de silence, les yeux rivés sur la Bête des Limbes, il poussa un cri terrifiant. Il recula frénétiquement en agitant les mains, comme s'il avait oublié l'usage des sorts ou des sceaux; dans sa terreur, il agit par pur instinct, oubliant tout le reste.
 

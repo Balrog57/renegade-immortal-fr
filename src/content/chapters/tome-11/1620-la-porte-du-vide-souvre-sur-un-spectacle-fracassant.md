@@ -42,7 +42,7 @@ La Porte du Vide s'était effondrée. Lors de sa chute, un vortex géant apparut
 
 Cependant, les yeux de Wang Lin s'illuminèrent et il agita ses manches. Une force puissante repoussa l'énergie de la Porte du Vide à l'intérieur du vortex.
 
-Bien que Wang Lin n'ait pas absorbé la puissance de la Porte du Vide, son niveau de culture augmenta considérablement. Il dépassa les sommets de Briseur du Nirvana et de Fléau des Cieux pour atteindre directement le troisième stade. Il atteignit le stade initial du Vide du Nirvana!
+Bien que Wang Lin n'ait pas absorbé la puissance de la Porte du Vide, son niveau de culture augmenta considérablement. Il dépassa les sommets de Briseur du Nirvana et de Fléau Céleste pour atteindre directement le troisième stade. Il atteignit le stade initial du Vide du Nirvana!
 
 Pourtant, ce n'était pas là le véritable niveau de culture de Wang Lin, mais une aura. L'aura d'un véritable cultivateur du troisième stade!
 
@@ -72,7 +72,7 @@ Le vortex se dissipa pour laisser place à une nouvelle Porte du Vide!
 
 Cette porte était légèrement plus petite que la précédente, mais la pression qu'elle dégageait était encore plus intense!
 
-« Le Seigneur du Royaume Scellé est d'une arrogance extrême! » Les yeux de Maître Céleste Dieu du Vide étaient empreints d'une émotion complexe. C'était la première fois qu'il désignait Wang Lin dans son cœur comme « le Seigneur du Royaume Scellé » et non plus comme un « cadet ».
+« Le Seigneur du Royaume Scellé est d'une arrogance extrême! » Les yeux de Maître Céleste Dieu du Vide étaient empreints d'une émotion complexe. C'était la première fois qu'il désignait Wang Lin dans son cœur comme « le Seigneur du Royaume Scellé » et non plus comme un « Junior ».
 
 « À travers les âges, tous ceux qui ont brisé la Porte du Vide ont absorbé sa puissance pour solidifier leur propre essence afin d'atteindre le troisième stade! Ce processus est très bref, et une fois cette puissance absorbée, la Porte du Vide se dissipe.
 

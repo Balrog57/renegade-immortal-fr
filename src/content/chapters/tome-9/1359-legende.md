@@ -50,7 +50,7 @@ Ses larmes étaient partagées par tous les habitants des 7 Millions de Mondes. 
 
 Wang Lin observa silencieusement le Daoïste Esprit Dispersé et son groupe. En écoutant leurs paroles et en voyant leurs sourires mêlés de larmes, il ne put s'empêcher de pousser un soupir intérieur. Il leva discrètement les yeux, souhaitant posséder ce regard capable de percer le vide pour contempler ce qui se trouvait réellement au-delà des cieux...
 
-Après un long moment, Wang Lin baissa la tête et murmura: « Sommes-nous vraiment sortis...? » Ses pensées dérivèrent vers la Mer de Nuages, lorsqu'il, Li Qianmei et Lu Yuncong avaient discuté du Dao toute une nuit.
+Après un long moment, Wang Lin baissa la tête et murmura: « Sommes-nous vraiment sortis...? » Ses pensées dérivèrent vers la Mer des Nuages, lorsqu'il, Li Qianmei et Lu Yuncong avaient discuté du Dao toute une nuit.
 
 Le ciel était un cercle. Même en s'en échappant, d'innombrables cercles invisibles vous entouraient toujours. Comment s'en sortir véritablement...
 

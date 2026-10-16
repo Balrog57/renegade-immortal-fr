@@ -12,7 +12,7 @@ Wang Lin poussa un soupir de soulagement. Cet endroit ne pouvait être considér
 
 Dès qu'il ferma les yeux, une lueur vacilla dans son ombre et Ta Shan en sortit. Ce dernier s'assit, prêt à agir instantanément si le moindre signe de trouble apparaissait.
 
-Tandis que Wang Lin restait immobile, il ressentit un profond épuisement au fond de son cœur. Depuis son entrée dans le Royaume Céleste du Tonnerre, il était resté en état d'alerte constante. Après avoir quitté ce royaume, il avait été projeté dans la Bête du Néant et n'avait pu s'en extirper qu'au prix d'une bataille sanglante.
+Tandis que Wang Lin restait immobile, il ressentit un profond épuisement au fond de son cœur. Depuis son entrée dans le Royaume Céleste du Tonnerre, il était resté en état d'alerte constante. Après avoir quitté ce royaume, il avait été projeté dans la Bête des Limbes et n'avait pu s'en extirper qu'au prix d'une bataille sanglante.
 
 À l'origine, il avait prévu de retrouver Li Yuan pour étudier les restrictions et se reposer un peu après avoir conduit le Clan Immortel Élu vers la planète Qing Ling. Cependant, les événements qui suivirent forcèrent Wang Lin à faire preuve d'une cruauté implacable et à combattre!
 

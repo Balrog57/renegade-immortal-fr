@@ -54,7 +54,7 @@ Le corps original, porteur de l'héritage du Dao Ancien, s'élança vers le ciel
 
 L'attaque à pleine puissance de l'héritage du Dao Ancien constituait la troisième embuscade!
 
-Après ces trois assauts, le visage de Wang Lin s'assombrit et son souffle devint court. Il se régénéra pendant la durée d'un demi-encens avant de rouvrir les yeux. D'un revers de main, il fit apparaître la Voile Fantomatique. Cet objet issu du Continent Astral Immortel était un trésor puissant! Bien qu'il ne le maîtrisait pas encore totalement, il pouvait l'utiliser pour projeter des illusions. Après une courte réflexion, Wang Lin mordit son index gauche et laissa couler son sang sur le visage spectral.
+Après ces trois assauts, le visage de Wang Lin s'assombrit et son souffle devint court. Il se régénéra pendant la durée d'un demi-encens avant de rouvrir les yeux. D'un revers de main, il fit apparaître la Voile Fantôme. Cet objet issu du Continent Astral Immortel était un trésor puissant! Bien qu'il ne le maîtrisait pas encore totalement, il pouvait l'utiliser pour projeter des illusions. Après une courte réflexion, Wang Lin mordit son index gauche et laissa couler son sang sur le visage spectral.
 
 Le sang fut instantanément absorbé par le visage fantomatique. En seulement trois respirations, la moitié de son sang avait disparu, rendant le teint de Wang Lin livide. À la quatrième respiration, le visage cessa l'absorption et ses yeux brillèrent d'une lueur démoniaque. Wang Lin brandit la voile et l'agita; le visage fantomatique s'envola en poussant un rugissement silencieux, son corps se dilatant jusqu'à engloutir la planète avant de disparaître.
 
@@ -64,7 +64,7 @@ Le front de Wang Lin était trempé de sueur. Il s'essuya et prit une profonde i
 
 Sous l'ordre de Wang Lin, la Bête des Limbes ferma les yeux et son corps s'amincit, se transformant finalement en une brume épaisse qui enveloppa le monde. Tout devint flou dans ce brouillard impénétrable. Cette Bête des Limbes était la cinquième embuscade!
 
-L'avatar de Wang Lin se rassit sur le sable jaune, accablé par la fatigue. C'était la première fois qu'il déployait une telle série de sorts simultanément. Dans un combat ordinaire, il n'aurait jamais eu le temps de les enchaîner ainsi, mais ici, l' circumstances le permettaient.
+L'avatar de Wang Lin se rassit sur le sable jaune, accablé par la fatigue. C'était la première fois qu'il déployait une telle série de sorts simultanément. Dans un combat ordinaire, il n'aurait jamais eu le temps de les enchaîner ainsi, mais ici, les circonstances le permettaient.
 
 « Il reste encore la sixième embuscade... » Songea-t-il silencieusement en levant la main gauche. Le sang qui coulait de son doigt s'était déjà coagulé, mais il rouvrit la plaie pour tracer un cercle de sang autour de lui. Au moment où le cercle fut formé, Wang Lin y cracha une partie de son essence énergétique, imprégnant le périmètre d'une odeur de sang et d'une énergie originelle dense.
 

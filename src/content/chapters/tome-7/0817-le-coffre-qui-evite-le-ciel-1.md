@@ -10,7 +10,7 @@ Une fois le vent apaisé, la robe noire recouvrit à nouveau la silhouette. L'ho
 
 Dès l'apparition de cette lueur noire, elle se transforma en une courte épée sombre qui siffla vers Wang Lin.
 
-Les lèvres de l'homme à la robe noire ne cessèrent pas de s'agiter et il continua de marmonner. Des rayons de lumière noire jaillirent de son entreconch et se changèrent en courtes épées. En un instant, plus d'une dizaine de lames volèrent vers Wang Lin.
+Les lèvres de l'homme à la robe noire ne cessèrent pas de s'agiter et il continua de marmonner. Des rayons de lumière noire jaillirent d'entre ses sourcils et se changèrent en courtes épées. En un instant, plus d'une dizaine de lames volèrent vers Wang Lin.
 
 Wang Lin ne bougea pas. Le niveau de culture de cet homme à la robe noire était extrêmement élevé; il n'appartenait certainement pas aux stades Yin Illusoire ou Corporel Yang.
 
@@ -54,11 +54,11 @@ Le Sceau Céleste vacilla et marqua une pause.
 
 Le visage de l'homme à la robe noire pâlit légèrement. Wang Lin chargea immédiatement, toucha sa sacoche et en sortit l'épée céleste. Il frappa sans hésitation.
 
-Coup Céleste!
+Coupe Céleste!
 
-Les yeux de l'homme se rétractèrent et une lumière noire commença rapidement à s'accumuler. Au moment où le Coup Céleste approchait, deux rayons de lumière jaillirent de ses yeux pour percuter l'attaque.
+Les yeux de l'homme se rétractèrent et une lumière noire commença rapidement à s'accumuler. Au moment où la Coupe Céleste approchait, deux rayons de lumière jaillirent de ses yeux pour percuter l'attaque.
 
-La puissance du Coup Céleste se dissipa dans un fracas!
+La puissance de la Coupe Céleste se dissipa dans un fracas!
 
 « Avec un tel niveau de culture, ce n'est même pas suffisant pour me faire bouger. Si c'est là tout ce que tu as, tu n'es pas digne de posséder le trésor de mon maître! » La voix rauque de l'homme était glaciale.
 
@@ -82,7 +82,7 @@ Une série d'explosions retentit dans le vide. Les dix dragons chargeaient avec 
 
 Pourtant, ils ne réussirent toujours pas à arrêter la descente du Sceau Céleste!
 
-Voyant que le sceau allait s'abattre et qu'il ne restait plus que 30 mètres de distance, l'homme à la robe noire se redressa avec une expression sombre! C'était la première fois qu'il se levait depuis d'innombrables années!
+Voyant que le sceau allait s'abattre et qu'il ne restait plus que 100 pieds de distance, l'homme à la robe noire se redressa avec une expression sombre! C'était la première fois qu'il se levait depuis d'innombrables années!
 
 Sa robe noire s'étala pour recouvrir tout son corps. Seuls ses yeux, cachés dans l'obscurité du tissu, laissaient transparaître un regard glacial.
 
@@ -108,7 +108,7 @@ Un immense fracas retentit. L'autodestruction du dragon noir repoussa les runes 
 
 Simultanément, les huit autres dragons explosèrent à leur tour. Les déflagrations des dix dragons noirs étaient inimaginables. Toutes les runes dorées furent balayées et même le Sceau Céleste fut repoussé en arrière.
 
-Wang Lin recula promptement. Ta Shan abandonna la lutte contre les courtes épées pour rejoindre Wang Lin. Il ouvrit les bras et utilisa son corps de six mètres pour encaisser la force du choc.
+Wang Lin recula promptement. Ta Shan abandonna la lutte contre les courtes épées pour rejoindre Wang Lin. Il ouvrit les bras et utilisa son corps de vingt pieds pour encaisser la force du choc.
 
 Le visage de l'homme à la robe noire était livide. Son corps vacilla, mais il parvint enfin à sortir de la portée du Sceau Céleste!
 

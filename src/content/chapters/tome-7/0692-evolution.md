@@ -54,7 +54,7 @@ Les îles et les vagues défilaient une à une. Il vit des éclairs célestes fr
 
 L'immensité de la mer surpassait de loin celle de la terre. Wang Ping sentait que la vastitude de l'océan était semblable à celle de son père: elle semblait s'étendre à l'infini.
 
-Après s'être intégré à l'immensité de la mer, à la férocité de la montagne et à l'étendue infinie du fleuve, il fut capable de ressentir la puissance du monde. Lorsque Wang Lin et Wang Ping regagnèrent la terre ferme cinq ans plus tard, Wang Ping avait été renaît.
+Après s'être intégré à l'immensité de la mer, à la férocité de la montagne et à l'étendue infinie du fleuve, il fut capable de ressentir la puissance du monde. Lorsque Wang Lin et Wang Ping regagnèrent la terre ferme cinq ans plus tard, Wang Ping était renaît.
 
 Bien qu'il fût toujours mortel, son âme embrassait le monde!
 

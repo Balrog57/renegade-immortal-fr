@@ -22,13 +22,13 @@ Il sentait toutefois que ces deux herbes ne causeraient aucun mal aux enfants et
 
 L'herbe la plus foncée forma un filet à l'intérieur du corps du garçon, dissimulant totalement son véritable talent. L'herbe se mua alors en un talent supérieur qui masquait celui de l'enfant.
 
-Avec le niveau de culture de Wang Lin, il pouvait naturellement voir clair dans ce jeu, mais si un cultivateur du second étape l'avait observé, il aurait eu bien du mal à s'en rendre compte. Seuls les cultivateurs du troisième étape percevraient quelques indices, car le filet formé par l'herbe avait fusionné avec l'enfant. Conjuguée à l'énergie céleste, elle pouvait véritablement se cacher des cieux et traverser les mers.
+Avec le niveau de culture de Wang Lin, il pouvait naturellement voir clair dans ce jeu, mais si un cultivateur de seconde étape l'avait observé, il aurait eu bien du mal à s'en rendre compte. Seuls les cultivateurs de troisième étape percevraient quelques indices, car le filet formé par l'herbe avait fusionné avec l'enfant. Conjuguée à l'énergie céleste, elle pouvait véritablement se cacher des cieux et traverser les mers.
 
 Cela surprit grandement Wang Lin. Il regarda la fille, et il en fut de même pour elle: elle obtint un talent ordinaire qui était bien supérieur à son talent initial.
 
 « Les objets de fortune sont extrêmement imprévisibles... » songea Wang Lin. Cette herbe violette était extraordinaire!
 
-« Mais si Liu Jinbiao continue ainsi, il sera traqué dès qu'il sera découvert... » Wang Lin secoua secrètement la tête. Il existait de nombreuses sectes sur le Continent Astral Immortel, et les cultivateurs du troisième étape n'y manquaient pas. Quant à savoir si Liu Jinbiao serait démasqué avant de pouvoir quitter la Secte du Grand Sage, cela dépendrait de sa chance.
+« Mais si Liu Jinbiao continue ainsi, il sera traqué dès qu'il sera découvert... » Wang Lin secoua secrètement la tête. Il existait de nombreuses sectes sur le Continent Astral Immortel, et les cultivateurs de troisième étape n'y manquaient pas. Quant à savoir si Liu Jinbiao serait démasqué avant de pouvoir quitter la Secte du Grand Sage, cela dépendrait de sa chance.
 
 « Il est très prudent et n'a pas cherché à exploiter tous les enfants par avidité. S'il l'avait fait, le risque d'être exposé aurait augmenté avec le nombre d'enfants. » Wang Lin observa Liu Jinbiao, qui affichait un air fier, et esquissa un sourire amer.
 
@@ -50,7 +50,7 @@ Les cultivateurs ordinaires ne pouvaient pas la détecter, mais Wang Lin pouvait
 
 Et Liu Jinbiao était au centre de ce processus.
 
-« Quelqu'un est en train de diviner l'emplacement de Liu Jinbiao! » Une lueur de froideur passa dans ses yeux. Il fixa les ondulations et son regard les perça, empruntant la puissance de divination de l'autre côté. Il vit alors un magnifique palais où sept ou huit cultivateurs du second étape se tenaient respectueusement. Un garçon était là, les yeux fermés, tandis qu'un vieil homme posait sa main sur sa tête. L'autre main du vieillard formait des sceaux.
+« Quelqu'un est en train de diviner l'emplacement de Liu Jinbiao! » Une lueur de froideur passa dans ses yeux. Il fixa les ondulations et son regard les perça, empruntant la puissance de divination de l'autre côté. Il vit alors un magnifique palais où sept ou huit cultivateurs de seconde étape se tenaient respectueusement. Un garçon était là, les yeux fermés, tandis qu'un vieil homme posait sa main sur sa tête. L'autre main du vieillard formait des sceaux.
 
 Un instant plus tard, le vieil homme ouvrit soudainement les yeux, révélant une lueur glaciale.
 
@@ -74,7 +74,7 @@ Liu Jinbiao était extrêmement nerveux, mais il ne le laissa pas paraître. Au 
 
 « Quatre seniors, je me demande pourquoi vous barrez le chemin de ce junior... » Il était si calme que les quatre individus envoyés pour le capturer ne purent s'empêcher d'être déconcertés.
 
-« Capturez-le! » Le meneur du groupe observa attentivement Liu Jinbiao et agita sa manche. Un cultivateur du second étape s'avança. Un cultivateur de la Formation du Noyau comme Liu Jinbiao ne pouvait absolument pas lui résister.
+« Capturez-le! » Le meneur du groupe observa attentivement Liu Jinbiao et agita sa manche. Un cultivateur de seconde étape s'avança. Un cultivateur de la Formation du Noyau comme Liu Jinbiao ne pouvait absolument pas lui résister.
 
 Le visage de Liu Jinbiao restait impassible, mais il esquissa un sourire froid. Intérieurement, la panique l'envahissait, mais il réfléchit promptement: une secte avait dû remarquer une anomalie.
 
@@ -108,11 +108,11 @@ En entendant cela, le vieil homme éclata soudain de rire, mais dans ce rire, la
 
 « Oh? Et qui donc est ton maître? »
 
-L'expression de Liu Jinbiao était empreinte de fierté lorsqu'il répondit: « Le disciple du Grand Empereur Gémeaux, l'Empereur Exalté Gu Ya! »
+L'expression de Liu Jinbiao était empreinte de fierté lorsqu'il répondit: « Le disciple du Grand Empyréen Gémeaux, l'Exalté Empyréen Gu Ya! »
 
 Son calme et ses paroles assurées stupéfièrent le vieil homme.
 
-« Quelle plaisanterie. Si tu étais vraiment le serviteur de l'Empereur Exalté Gu Ya, tu ne serais pas en train de tromper les gens ici et tu ne serais pas un simple cultivateur de la Formation du Noyau! » Le vieil homme ne le croyait absolument pas.
+« Quelle plaisanterie. Si tu étais vraiment le serviteur de l'Exalté Empyréen Gu Ya, tu ne serais pas en train de tromper les gens ici et tu ne serais pas un simple cultivateur de la Formation du Noyau! » Le vieil homme ne le croyait absolument pas.
 
 Liu Jinbiao agita sa manche et dit froidement: « La voie de la tromperie est mon domaine. Quant à mon niveau de culture, ouvre tes vieux yeux et regarde attentivement. Mon niveau est-il vraiment limité à la Formation du Noyau?! »
 

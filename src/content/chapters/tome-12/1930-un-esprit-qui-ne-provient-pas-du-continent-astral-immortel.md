@@ -50,7 +50,7 @@ Le visage de Wang Lin était pâle. Ce geste contenait toute sa puissance. Aprè
 
 Cependant, maintenant, sans même avoir besoin de ses avatars, il pouvait fusionner neuf sorts dans son propre corps. Puis, grâce au pouvoir de compression mystérieux de ses avatars, il pouvait en fusionner 36, ce qui était bien plus puissant qu'auparavant!
 
-Auparavant, c'était une troupe de soldats dispersés; désormais, il y avait un général. Bien que le général ne fût pas seul à porter la force, la puissance des sorts avait considérablement augmenté!
+Auparavant, c'était une troupe de soldats dispersés; désormais, il y avait un général. Bien que le général ne fût pas particulièrement puissant en soi, la puissance des sorts avait considérablement augmenté!
 
 Après avoir immobilisé l'Exalté Empyréen Hai Zi, Wang Lin savait que cela ne durerait pas longtemps. Il se déplaça avec une vitesse fulgurante vers les abysses.
 
@@ -64,9 +64,9 @@ Wang Lin n'hésita pas. Il avait exploré la Mer de la Montagne pendant les troi
 
 Il s'élança dans le trou noir et disparut sans laisser de trace.
 
-À ce moment, le sixième souffle s'était écoulé! L'octopus était également sous l'effet du sort d'Arrêt et demeurait immobile. La magnifique femme conservait sa posture précédente; même ses paupières ne pouvaient plus se fermer.
+À ce moment, le sixième souffle s'était écoulé! La pieuvre était également sous l'effet du sort d'Arrêt et demeurait immobile. La magnifique femme conservait sa posture précédente; même ses paupières ne pouvaient plus se fermer.
 
-Le dragon marin, sur le côté, affichait de la fierté dans les yeux. Il rugit vers l'octopus dans une langue que seuls les êtres marins comme eux pouvaient comprendre.
+Le dragon marin, sur le côté, affichait de la fierté dans les yeux. Il rugit vers la pieuvre dans une langue que seuls les êtres marins comme eux pouvaient comprendre.
 
 Le temps passa. Au huitième souffle, Wang Lin apparut au fond de la Mer de la Montagne. Dans ce monde situé à l'intérieur du trou noir, se dressait un arbre absolument colossal!
 

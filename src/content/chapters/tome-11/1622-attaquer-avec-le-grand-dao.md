@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1622 - Attacking With Grand Dao
 slug: attaquer-avec-le-grand-dao
 ---
-Wang Lin ignorait qu'il s'agissait de la Porte des Dix Mille Squelettes du Vide, mais il sentit que cette porte était singulière et ses yeux se plissèrent. Il fixa l'immense porte devant lui, une lueur d'intention meurtrière traversant son regard.
+Wang Lin ignorait qu'il s'agissait de la Porte des Dix Mille Os du Vide, mais il sentit que cette porte était singulière et ses yeux se plissèrent. Il fixa l'immense porte devant lui, une lueur d'intention meurtrière traversant son regard.
 
 Peu importe l'étrangeté de cette porte pour Wang Lin, cela ne changeait rien: ce n'était qu'un passage pour atteindre le troisième niveau. Il s'avança et leva la main droite. Les flocons de neige rouges dispersés dans la zone convergèrent rapidement vers sa paume.
 
@@ -14,9 +14,9 @@ Un instant plus tard, la main droite de Wang Lin émit une lumière rouge infini
 
 « Essence de massacre... » murmura Wang Lin en se précipitant vers la porte osseuse. En un éclair, il réduisit la distance et frappa violemment la porte de sa main droite.
 
-Un fracas tonitruant retentit et une immense empreinte de paume sanglante apparut sur la Porte des Dix Mille Squelettes du Vide. Cette empreinte contenait tout le massacre de Wang Lin ainsi que celui de Qing Shui. Ce massacre était devenu une essence à part entière. Il semblait y avoir d'innombrables fantômes hurlant au sein de la paume de sang, cherchant désespérément à s'en échapper. Cependant, ils ne purent franchir l'empreinte et se retournèrent contre la Porte du Vide.
+Un fracas tonitruant retentit et une immense empreinte de paume sanglante apparut sur la Porte des Dix Mille Os du Vide. Cette empreinte contenait tout le massacre de Wang Lin ainsi que celui de Qing Shui. Ce massacre était devenu une essence à part entière. Il semblait y avoir d'innombrables fantômes hurlant au sein de la paume de sang, cherchant désespérément à s'en échapper. Cependant, ils ne purent franchir l'empreinte et se retournèrent contre la Porte du Vide.
 
-Des grondements assourdissants résonnèrent avec fureur. La Porte des Dix Mille Squelettes du Vide n'était effectivement pas ordinaire. Face à l'essence de massacre et à ses innombrables fantômes déchaînés, elle ne fit que trembler. Quelques fissures apparurent, mais elle ne s'effondra pas.
+Des grondements assourdissants résonnèrent avec fureur. La Porte des Dix Mille Os du Vide n'était effectivement pas ordinaire. Face à l'essence de massacre et à ses innombrables fantômes déchaînés, elle ne fit que trembler. Quelques fissures apparurent, mais elle ne s'effondra pas.
 
 Loin de céder, une force de répulsion jaillit brusquement vers Wang Lin.
 
@@ -32,7 +32,7 @@ Une lueur de froideur traversa les yeux de Wang Lin. Plus la porte était diffic
 
 « Dao du Vrai et du Faux! » Wang Lin ferma les yeux, puis lorsqu'il les rouvrit, une aura puissante emplit son corps. C'était l'aura d'un grand érudit. Cette aura fusionna avec son aura de stade initial de Vide Spirituel, puis il fit un pas en avant. Sa main droite se crispa en un poing et il frappa la Porte du Vide.
 
-« Six essences, ouvrez la Porte du Vide! » Wang Lin poussa un rugissement alors qu'il fondait sur la Porte du Vide tel un rayon de lumière. Puis, sa main droite percuta la Porte des Dix Mille Squelettes du Vide dans un fracas monumental.
+« Six essences, ouvrez la Porte du Vide! » Wang Lin poussa un rugissement alors qu'il fondait sur la Porte du Vide tel un rayon de lumière. Puis, sa main droite percuta la Porte des Dix Mille Os du Vide dans un fracas monumental.
 
 Ce coup portait en lui les espoirs de 2 000 ans de culture de Wang Lin.
 
@@ -76,7 +76,7 @@ Enfin, lorsque la vie et la mort suivirent et que les essences du vrai et du fau
 
 La culture de Wang Lin continuait de croître, et la pression qui s'en dégageait attira l'attention de tous. Une intention meurtrière traversa les yeux du Maître Céleste Dieu du Vide qui, dans un rugissement, se précipita en avant.
 
-La Porte du Vide étant présente auparavant, il n'avait pu attaquer, mais maintenant qu'elle avait disparu, il devait tuer Wang Lin. Il sentait que s'il ne l'éliminait pas aujourd'hui, il n'en aurait plus jamais l'occasion. L'apparition de la Porte des Dix Mille Squelettes du Vide lui avait glacé le sang.
+La Porte du Vide étant présente auparavant, il n'avait pu attaquer, mais maintenant qu'elle avait disparu, il devait tuer Wang Lin. Il sentait que s'il ne l'éliminait pas aujourd'hui, il n'en aurait plus jamais l'occasion. L'apparition de la Porte des Dix Mille Os du Vide lui avait glacé le sang.
 
 À cet instant, il engagea toutes ses forces. Même s'il perdait son avatar, peu lui importait. La haine entre lui et Wang Lin était une question de vie ou de mort. Si Wang Lin ne mourait pas aujourd'hui, il mourrait plus tard!
 
@@ -86,11 +86,11 @@ Le jeune homme en robe verte partageait cette pensée. Il était déjà en train
 
 Il y avait aussi Zhou Jin, terrifié au plus haut point. Cependant, il demeurait un cultivateur du troisième niveau et l'ancêtre du Clan du Loup de Sang. Avec une expression désespérée, il poussa un rugissement et un loup de sang de plusieurs dizaines de milliers de pieds apparut.
 
-Ces mouvements poussèrent le Maître des Nuages du Sud et ses compagnons à se précipiter en avant, faisant fi de leurs blessures. Pourtant, à cet instant, une voix douce résonna dans leurs oreilles comme une brise printanière.
+Ces mouvements poussèrent le Maître Nan Yunzi et ses compagnons à se précipiter en avant, faisant fi de leurs blessures. Pourtant, à cet instant, une voix douce résonna dans leurs oreilles comme une brise printanière.
 
 « Aucun problème! »
 
-Bien que suave, cette voix contenait une force incontestable qui stoppa net le Maître des Nuages du Sud et les autres. Ils contemplèrent le vortex apparu après l'effondrement de la Porte du Vide. Wang Lin absorbait la puissance de la Porte tandis que le groupe du Maître Céleste Dieu du Vide se rapprochait de lui.
+Bien que suave, cette voix contenait une force incontestable qui stoppa net le Maître Nan Yunzi et les autres. Ils contemplèrent le vortex apparu après l'effondrement de la Porte du Vide. Wang Lin absorbait la puissance de la Porte tandis que le groupe du Maître Céleste Dieu du Vide se rapprochait de lui.
 
 Wang Lin utilisait la puissance de la Porte pour fusionner la sixième essence, le massacre. Au moment où les trois assaillants furent sur lui, Wang Lin pointa un doigt vers eux.
 

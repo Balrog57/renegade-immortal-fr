@@ -18,13 +18,13 @@ Ce qui se dressait désormais devant Wang Lin était une porte gigantesque!
 
 Cette porte n'était pas celle menant au Continent Astral Immortel, mais celle conduisant au cœur de la caverne. Une fois franchie, on pouvait pénétrer dans le sanctuaire même de la grotte!
 
-Bien que ce fût la première fois qu'il voyait cette porte, elle ne lui était pas étrangère. Sur l'une des plaques qui la composaient, Wang Lin sentit l'aura du Champ de Bataille Étranger de la planète Suzaku!
+Bien que ce fût la première fois qu'il voyait cette porte, elle ne lui était pas étrangère. Sur l'une des plaques qui la composaient, Wang Lin sentit l'aura du Champ de Bataille Extérieur de la planète Suzaku!
 
 Il avait déployé son Sens Divin et avait vu cette scène stupéfiante: un fragment d'une porte brisée!
 
 Aujourd'hui, la porte de la caverne, autrefois brisée par le Dao Céleste, réapparaissait, provoquant une transformation radicale du monde de la grotte!
 
-La porte était d'une taille infinie. De loin, elle paraissait majestueuse. Bien qu'elle fût presque achevée, de nombreuses fissures still marquaient sa surface. Cependant, bientôt, une immense quantité de gravats s'éleva du brouillard.
+La porte était d'une taille infinie. De loin, elle paraissait majestueuse. Bien qu'elle fût presque achevée, de nombreuses fissures marquaient encore sa surface. Cependant, bientôt, une immense quantité de gravats s'éleva du brouillard.
 
 Ces débris, disparus dans le vide lors de la destruction de la porte, venaient combler les lacunes!
 
@@ -100,13 +100,13 @@ L'une d'elles observa Wang Lin avec une expression complexe. C'était la troisi�
 
 Les disciples de la Secte des Sept Dao, échappés de l'Ancien Royaume Céleste dans le Monde Extérieur, arrivèrent avec les concubines. Ils encerclèrent la zone, les yeux rivés sur Wang Lin.
 
-Bientôt, Zi Xia arriva de la Rivière Invocatoire. Après avoir inspecté les lieux, son regard tomba sur Wang Lin, encerclé, et une lueur meurtrière traversa ses yeux.
+Bientôt, Zi Xia arriva de la Rivière Invoquée. Après avoir inspecté les lieux, son regard tomba sur Wang Lin, encerclé, et une lueur meurtrière traversa ses yeux.
 
 Elle le haïssait depuis l'instant où il avait refusé de s'allier à elle; l'intention de tuer avait déjà germé dans son cœur à cette époque. Si elle n'avait pas su qu'elle ne pouvait rivaliser avec lui, elle l'aurait attaqué depuis longtemps. En voyant Wang Lin ainsi acculé, elle laissa échapper un ricanement méprisant.
 
-Un instant plus tard, une lueur bleue jaillit et le Maître Dao Bleu Rêve apparut. Quelque chose avait changé en lui. Le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan tournèrent immédiatement leur attention vers lui.
+Un instant plus tard, une lueur bleue jaillit et le Maître du Dao Rêve Bleu apparut. Quelque chose avait changé en lui. Le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan tournèrent immédiatement leur attention vers lui.
 
-Le Maître Dao Bleu Rêve restait impassible, ignorant superbement les regards du Daoïste aux Sept Couleurs et du Vieux Fantôme Zhan!
+Le Maître du Dao Rêve Bleu restait impassible, ignorant superbement les regards du Daoïste aux Sept Couleurs et du Vieux Fantôme Zhan!
 
 Les derniers à apparaître furent les membres de la planète des Cinq Éléments, menés par le vieil homme nommé Ma. Leur arrivée stupéfia l'assistance. Au moment même où ils se manifestèrent, Wang Lin ouvrit les yeux.
 

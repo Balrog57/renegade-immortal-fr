@@ -72,7 +72,7 @@ Le vieil homme venait d'échapper aux griffes de la mort, mais en entendant ce n
 
 Après un temps indéterminé, un vieillard aux cheveux blancs se trouvait au sein du Clan Ling Dong. Il était totalement décrépit et atteignait l'heure de sa mort.
 
-« L'Affliction du Cinquième Ciel... L'Affliction du Cinquième Ciel... Ma culture s'arrête-t-elle donc ici? » Le vieil homme esquissa un sourire amer alors que la dernière gorgée de sang noir s'échappait de sa bouche, puis il ferma les yeux.
+« Le Fléau Céleste du cinquième niveau... Le Fléau Céleste du cinquième niveau... Ma culture s'arrête-t-elle donc ici? » Le vieil homme esquissa un sourire amer alors que la dernière gorgée de sang noir s'échappait de sa bouche, puis il ferma les yeux.
 
 Cependant, au moment où il ferma les paupières, il sembla pénétrer dans un monde étrange. Cet endroit était d'un flou absolu; il ne percevait rien, si ce n'est le dos d'une silhouette qui lui paraissait limpide.
 
@@ -88,9 +88,9 @@ Chaque fois qu'il faisait face à un danger mortel, quelqu'un se faisant appeler
 
 Toutefois, bien qu'il fût lucide, la confusion persistait dans ses yeux.
 
-Dès qu'il retrouva la conscience dans le fourneau, les huit Dieux Anciens se superposèrent pour ne former qu'un neuvième Dieu Ancien. La dixième hache s'abattit alors vers le vénérable Ling Dong. À moins de trente mètres, il lutta contre la confusion et s'apprêta à résister.
+Dès qu'il retrouva la conscience dans le fourneau, les huit Dieux Anciens se superposèrent pour ne former qu'un neuvième Dieu Ancien. La dixième hache s'abattit alors vers l'estimé Ling Dong. À moins de cent pieds, il lutta contre la confusion et s'apprêta à résister.
 
-Cependant, à ce moment précis, une voix glaciale résonna dans le Fourneau Impérial: « Es-tu Ling Dong ou l'Esclave Ancien... » Le vénérable Ling Dong frémit. Une peur infinie envahit son regard et il rugit: « Qui diable es-tu?! »
+Cependant, à ce moment précis, une voix glaciale résonna dans le Fourneau Impérial: « Es-tu Ling Dong ou l'Esclave Ancien... » L'estimé Ling Dong frémit. Une peur infinie envahit son regard et il rugit: « Qui diable es-tu?! »
 
 « Je suis Wang Lin! » Wang Lin était épuisé à l'extérieur du Fourneau Impérial. Sa voix résonna lentement dans le fourneau, se transformant en un tonnerre incessant dans l'esprit de Ling Dong. Il n'entendit que le nom « Wang Lin » au moment où la hache frappa son crâne. L'arme se mua en une empreinte circulaire sur son front... Puis ses yeux s'éteignirent et il s'effondra. La tempête d'âmes l'emporta.
 
@@ -100,7 +100,7 @@ Cependant, à ce moment précis, une voix glaciale résonna dans le Fourneau Imp
 
 En voyant cela, il ne faudrait pas longtemps pour qu'il retrouve son état initial. Wang Lin ne savait pas exactement ce qu'était un esprit de Dao; c'était la première fois qu'il voyait une telle chose. Constatant la rapidité de sa régénération, les yeux de Wang Lin se plissèrent.
 
-« Je veux voir précisément ce qu'est cet esprit de Dao! » La main de Wang Lin forma un sceau, puis il fit un geste de la main. Une porte de pierre apparut à l'intérieur du Fourneau Impérial. C'était la porte de pierre du Royaume Céleste du Vent. Il s'agissait de son sort original: le Temps Fluide!
+« Je veux voir précisément ce qu'est cet esprit de Dao! » La main de Wang Lin forma un sceau, puis il fit un geste de la main. Une porte de pierre apparut à l'intérieur du Fourneau Impérial. C'était la porte de pierre du Royaume Céleste du Vent. Il s'agissait de son sort original: le Flux Temporel!
 
 Le temps remonta et Wang Lin put voir clairement l'esprit de Dao derrière la porte, comme si des couches de mystère étaient progressivement dépouillées.
 

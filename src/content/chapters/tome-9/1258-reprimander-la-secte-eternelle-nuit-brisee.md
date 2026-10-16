@@ -16,7 +16,7 @@ Alors que cette voix impassible résonnait, un vieil homme aux cheveux blancs ap
 
 Un halo rouge apparut faiblement autour de la peau du vieil homme. En voyant cela, tous furent frappés de stupeur!
 
-Seuls ceux ayant parfaitement surmonté la première Affliction Céleste possédaient un tel halo de loi protecteur. Ce halo était aussi le signe d'une puissance terrifiante!
+Seuls ceux ayant parfaitement surmonté le premier Fléau Céleste possédaient un tel halo de loi protecteur. Ce halo était aussi le signe d'une puissance terrifiante!
 
 Sa silhouette était d'une rapidité telle qu'il était presque impossible de le suivre du regard. Le rayon de lumière fendit le ciel et, dans un souffle, il se retrouva à mille pieds au-dessus de Wang Lin. Telle une divinité, il le surplombait d'un regard glacial.
 
@@ -54,7 +54,7 @@ Plus important encore, si Wang Lin acceptait de gaspiller toute son énergie ori
 
 Il possédait une horde de moustiques!
 
-C'était son atout ultime, son sort de survie. C'est grâce à cela qu'il n'avait pas hésité à aider la Secte Origin à s'élever au sein de la Secte Éternelle!
+C'était son atout ultime, son sort de survie. C'est grâce à cela qu'il n'avait pas hésité à aider la Secte de l'Origine à s'élever au sein de la Secte Éternelle!
 
 À cet instant, alors que le filet de loi se refermait, Wang Lin éclata de rire. Ses mains bougèrent et la terre gronda. Une mer illusionnaire apparut. Bien qu'irréelle, elle était parcourue de vagues déferlantes.
 

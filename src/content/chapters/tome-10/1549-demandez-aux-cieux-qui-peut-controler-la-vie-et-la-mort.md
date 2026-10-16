@@ -24,7 +24,7 @@ Les dizaines de milliers de cultivateurs du Royaume Extérieur étaient tous ner
 
 Wang Lin leur avait laissé une impression indélébile autrefois. C'était un sentiment de folie capable de faire trembler leurs âmes, une aura de gloire et de puissance qui les faisait frémir de peur!
 
-Avant la première bataille, le Système d'Étoiles Anciennes avait désigné Wang Lin comme la cible numéro un à éliminer. La plupart des habitants du Système ressentaient du mépris pour cette décision, mais après la première bataille, plus personne n'en doutait!
+Avant la première bataille, le Système Stellaire Antique avait désigné Wang Lin comme la cible numéro un à éliminer. La plupart des habitants du Système ressentaient du mépris pour cette décision, mais après la première bataille, plus personne n'en doutait!
 
 Wang Lin était un être que les cultivateurs du Royaume Extérieur craignaient profondément. C'était une blessure ouverte, une douleur atroce!
 

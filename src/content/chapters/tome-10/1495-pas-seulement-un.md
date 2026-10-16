@@ -90,7 +90,7 @@ L'élan de Maître Lu Fu atteignit son paroxysme. Il leva soudainement le pied e
 
 Simultanément, d'innombrables ombres de célestes se précipitèrent. C'était comme si le ciel lui-même descendait sur la terre!
 
-Il y avait aussi cette épée brisée. Elle se rapprocha instantanément à moins de trente mètres de Wang Lin. Son énergie d'épée dominante visait précisément l'espace entre les sourcils de Wang Lin!
+Il y avait aussi cette épée brisée. Elle se rapprocha instantanément à moins de cent pieds de Wang Lin. Son énergie d'épée dominante visait précisément l'espace entre les sourcils de Wang Lin!
 
 Maître Lu Fu avait retrouvé son courage après le choc provoqué par Ling Dong. Il venait de prendre la décision irrévocable de combattre Wang Lin!
 
@@ -106,7 +106,7 @@ Cette aura était empreinte de tyrannie et de soif de sang. Conjuguée au torse 
 
 Maître Lu Fu pensait que le choc qu'il avait ressenti auparavant était déjà à son comble, mais comparé à ce qui se passait maintenant, ce n'était rien du tout!?!
 
-Une onde de terreur indescriptible balaya son corps et il n'osa plus avancer. Il recula jusqu'à une distance de plus de trois cents mètres, les yeux écarquillés par la stupeur.
+Une onde de terreur indescriptible balaya son corps et il n'osa plus avancer. Il recula jusqu'à une distance de plus de mille pieds, les yeux écarquillés par la stupeur.
 
 L'épée brisée gronda soudainement en s'approchant de Wang Lin, émettant des roulements tonitruants comme si une force colossale la comprimait. Elle ne pouvait plus progresser et se mit à craquer, comme si elle ne pouvait plus supporter la pression. Une fissure apparut sur sa lame et elle fut contrainte de battre en retraite!
 

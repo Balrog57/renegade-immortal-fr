@@ -68,7 +68,7 @@ En particulier, la disparition de Maître Fu Fengzi et des autres l'avait profon
 
 Lorsqu'il vit Wang Lin s'arrêter, Situ Nan fit de même sans hésiter. Il fixa froidement la femme en blanc qui s'approchait.
 
-Wang Lin joignit les mains et demanda calmement: « L'Aînée nous permet-elle d'entrer? »
+Wang Lin joignit les mains et demanda calmement: « Senior nous permet-elle d'entrer? »
 
 La femme en blanc réfléchit longuement avant de laisser échapper un soupir. Elle se tourna vers le palais et dit: « Suivez-moi. »
 
@@ -102,7 +102,7 @@ Le palais retomba dans le silence. Bien que l'expression de Wang Lin fût neutre
 
 De plus, un troisième œil apparut entre ses sourcils. Bien qu'il ne fût pas ouvert, l'énergie originelle qu'il contenait pouvait se déployer par une simple pensée.
 
-Wang Lin craignait énormément cette femme. Il était au sommet du stade intermédiaire de la Scrutation du Nirvana et pouvait combattre des cultivateurs de la Purification du Nirvana grâce à son corps de Dieu Ancien. Pourtant, il savait qu'il ne faisait pas le poids face à elle.
+Wang Lin craignait énormément cette femme. Il était au sommet du stade intermédiaire de la Scruteur du Nirvana et pouvait combattre des cultivateurs Purificateurs du Nirvana grâce à son corps de Dieu Ancien. Pourtant, il savait qu'il ne faisait pas le poids face à elle.
 
 Toutefois, il y avait des choses qu'il devait accomplir, même au péril de sa vie. C'était là la nature même de Wang Lin.
 

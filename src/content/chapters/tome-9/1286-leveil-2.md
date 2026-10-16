@@ -70,15 +70,15 @@ Wang Lin la regarda et répondit lentement: « Je suis resté dans le coma penda
 
 La vieille femme ricana. Après un long silence, elle reprit: « Tu veux savoir? Très bien, je vais tout te dire! Connais-tu une femme nommée Li Qianmei? Pas besoin de répondre, tu la connais forcément!
 
-« Je ne sais pas comment vous vous êtes rencontrés, mais savais-tu qu'il y a dix ans, Li Qianmei a renoncé à l'immense opportunité de devenir disciple de la Secte Démon pour abandonner ce dernier? Elle fut la première à quitter le champ de bataille, tout cela pour rencontrer quelqu'un à la Secte Éternel!
+« Je ne sais pas comment vous vous êtes rencontrés, mais savais-tu qu'il y a dix ans, Li Qianmei a renoncé à l'immense opportunité de devenir disciple de la Secte Démon pour abandonner ce dernier? Elle fut la première à quitter le champ de bataille, tout cela pour rencontrer quelqu'un à la Secte Éternelle!
 
-« La Secte Démon ne voulait évidemment pas de cela, et même son propre Secte Briseur de Ciel n'était pas satisfait. Une fois un tel précédent établi, d'autres ne respecteraient plus les règles, naturellement! Ce qu'elle a perdu n'a rien à voir avec toi, et même si tu l'ignorais, cela ne te ferait aucun mal! »
+« La Secte Démon ne voulait évidemment pas de cela, et même sa propre Secte Brise-Ciel n'était pas satisfait. Une fois un tel précédent établi, d'autres ne respecteraient plus les règles, naturellement! Ce qu'elle a perdu n'a rien à voir avec toi, et même si tu l'ignorais, cela ne te ferait aucun mal! »
 
-Wang Lin était bouleversé. Il ignorait tout de cela. Lorsqu'il avait rencontré Li Qianmei à la Secte Éternel, elle n'avait jamais mentionné ces faits.
+Wang Lin était bouleversé. Il ignorait tout de cela. Lorsqu'il avait rencontré Li Qianmei à la Secte Éternelle, elle n'avait jamais mentionné ces faits.
 
 « Savais-tu qu'il y a dix ans, Li Qianmei est retournée dans sa secte sur ordre de son maître? Tu devrais le savoir. Savais-tu qu'après son retour, elle fut immédiatement retenue par son maître et n'eut pas le droit de sortir pendant trois mois? Pourquoi l'avoir enfermée ainsi? Parce qu'une certaine personne traversait une crise de vie ou de mort! Cette vieille femme n'en sait pas beaucoup, mais je présume que tu comprends! »
 
-L'esprit de Wang Lin vacilla. Il était au courant de la situation, mais c'était la première fois qu'il apprenait ce qui s'était réellement passé pour Li Qianmei au sein de la Secte Briseur de Ciel.
+L'esprit de Wang Lin vacilla. Il était au courant de la situation, mais c'était la première fois qu'il apprenait ce qui s'était réellement passé pour Li Qianmei au sein de la Secte Brise-Ciel.
 
 « Savais-tu que pour te sauver, Li Qianmei a rompu ses liens avec son maître, qui était pour elle comme un père, en échange d'une chance de partir? Elle est alors devenue une errante, sans secte et sans foyer!
 
@@ -92,7 +92,7 @@ L'esprit de Wang Lin vacilla. Il était au courant de la situation, mais c'étai
 
 « Savais-tu que lorsque son domaine ne fut plus suffisant, elle s'est rendue à la Secte Démon? Puis, à un prix que j'ignore, elle a récupéré son sang d'âme et a supplié cette vieille femme de te l'apporter!
 
-« Savais-tu que même en partant, elle a laissé sa pierre d'âme pour nourrir ton corps? Tout cela, tu l'ignores? Tu l'ignores vraiment??? »
+« Savais-tu que même en partant, elle a laissé son jade d'âme pour nourrir ton corps? Tout cela, tu l'ignores? Tu l'ignores vraiment??? »
 
 La femme regardait Wang Lin avec une expression de profonde tristesse.
 
@@ -106,7 +106,7 @@ Il baissa la tête vers le jade autour de son cou. Sa lueur était très faible,
 
 Wang Lin réfléchit un instant et demanda d'une voix feutrée: « Où est-elle...? »
 
-« Où est-elle? Comment la récupération de son sang d'âme auprès de la Secte Démon aurait-elle pu être facile? Elle a quitté le champ de bataille il y a dix ans et n'est pas revenue pendant dix ans. Elle fut également bannie de la Secte Briseur de Ciel. Comment la Secte Démon aurait-il pu ne pas la punir? Si elle voulait son sang d'âme, elle devait en payer le prix!
+« Où est-elle? Comment la récupération de son sang d'âme auprès de la Secte Démon aurait-elle pu être facile? Elle a quitté le champ de bataille il y a dix ans et n'est pas revenue pendant dix ans. Elle fut également bannie de la Secte Brise-Ciel. Comment la Secte Démon aurait-elle pu ne pas la punir? Si elle voulait son sang d'âme, elle devait en payer le prix!
 
 « Pour l'obtenir, elle a promis à la Secte Démon de s'enfoncer dans les zones les plus reculées du champ de bataille des fissures spatiales. Elle doit explorer ces terres infestées de bêtes féroces pour voir s'il existe un passage vers le Royaume Extérieur!
 

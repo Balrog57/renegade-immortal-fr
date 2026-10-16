@@ -20,7 +20,7 @@ Des ondulations silencieuses résonnèrent, formant une tempête qui balaya la s
 
 Wang Lin poussa un rugissement tout en luttant pour s'arrêter, les yeux fixés sur la statue. À cet instant, il eut l'illusion que la statue était vivante et qu'elle le regardait avec froideur.
 
-Roar!
+Rugissement!
 
 Soudain, Wang Lin leva la tête et libéra le rugissement d'un dieu ancien. Toute forme de vie devait s'incliner devant le rugissement des dieux anciens. Aucune n'était digne de se tenir devant lui!
 
@@ -92,7 +92,7 @@ La femme en blanc réfléchit silencieusement en contemplant la statue. Après u
 
 « À l'origine, il n'y avait pas d'entrée, mais il en a créé quatre. Si les quatre entrées sont ouvertes, une véritable porte apparaîtra dans la Terre des Esprits Démoniaques, menant à l'endroit où il est en culture de porte close... »
 
-« Vous possédez le sortilège Stop, vous avez la dépouille de Qing Shuang et vous portez le nom de Wang, alors je ne vous arrêterai pas... Une fois entré dans le réseau de transfert, vos compagnons apparaîtront dans votre esprit. » La femme soupira en se détournant pour s'enfoncer dans les profondeurs du hall. Wang Lin observa sa silhouette empreinte de solitude et de mélancolie.
+« Vous possédez le sortilège d'Arrêt, vous avez la dépouille de Qing Shuang et vous portez le nom de Wang, alors je ne vous arrêterai pas... Une fois entré dans le réseau de transfert, vos compagnons apparaîtront dans votre esprit. » La femme soupira en se détournant pour s'enfoncer dans les profondeurs du hall. Wang Lin observa sa silhouette empreinte de solitude et de mélancolie.
 
 Wang Lin demanda précipitamment: « Que voulez-vous dire par "portez le nom de Wang"? »
 
@@ -122,7 +122,7 @@ Il entra dans le réseau de transfert qui commença à briller. Puis la silhouet
 
 Lorsqu'il réapparut, il se trouvait dans un espace illusoire où une vaste formation était gravée au sol. Une grande pierre noire trônait au centre.
 
-Après avoir observé attentivement les environs, Wang Lin pénétra dans la grande formation et s'approcha de la pierre noire. Un instant plus tard, il frappa son sac de stockage, et la clé de la grotte céleste qu'il avait obtenue s'envolèrent.
+Après avoir observé attentivement les environs, Wang Lin pénétra dans la grande formation et s'approcha de la pierre noire. Un instant plus tard, il frappa son sac de stockage, et la clé de la grotte céleste qu'il avait obtenue s'envola.
 
 Dès qu'elle fut libérée, elle se transforma en une fumée verte et pénétra dans la pierre noire.
 
@@ -134,9 +134,9 @@ C'était comme si la grotte entière résidait dans son esprit. Par une simple p
 
 À l'exception du palais, sur lequel il n'avait aucun contrôle.
 
-Il vit Situ Nan, Maître Vent Creux et leur compagnie, qui avaient disparu sous la mer de fleurs.
+Il vit Situ Nan, Maître Fu Fengzi et leur compagnie, qui avaient disparu sous la mer de fleurs.
 
-D'une pensée, Maître Vent Creux, les trois frères Chen, Grand Tête et Lei Ji disparurent. Situ Nan resta là, le sourcil froncé. Depuis la disparition de Wang Lin, il était sur ses gardes, et une lueur froide traversa ses yeux.
+D'une pensée, Maître Fu Fengzi, les trois frères Chen, Da Tou et Lei Ji disparurent. Situ Nan resta là, le sourcil froncé. Depuis la disparition de Wang Lin, il était sur ses gardes, et une lueur froide traversa ses yeux.
 
 À cet instant précis, l'expression de Situ Nan changea lorsqu'il sentit un Sens Divin passer près de lui. Ce Sens Divin lui était très familier.
 

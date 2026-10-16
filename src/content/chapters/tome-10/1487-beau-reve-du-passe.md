@@ -24,7 +24,7 @@ Un ancien dieu à 7 étoiles!
 
 Une ancienne déesse à 7 étoiles!
 
-Lorsque son identité d'ancien dieu fut révélée, tout prit sens. Pourquoi le Maître Yi Mu avait-il poursuivi le Serpent Regardeur de Lune!
+Lorsque son identité d'ancien dieu fut révélée, tout prit sens. Pourquoi le Maître Yi Mu avait-il poursuivi le Serpent aux yeux de lune!
 
 Pourquoi Wang Lin avait-il vu toute sa force vitale emportée par l'ancêtre de la famille Xiang! La force vitale qui lui avait été dérobée était celle d'un ancien dieu!
 
@@ -40,7 +40,7 @@ Wang Lin avait appris tout cela en fouillant l'âme de l'ancêtre de la famille 
 
 « La famille antique Dong Ling... » Les yeux de Wang Lin s'illuminèrent et il scruta l'horizon.
 
-« Au sein de cette famille... se cache un ancien dieu! Je ne sais juste pas si cet ancien dieu était originellement tel quel ou s'il est quelqu'un ayant obtenu une héritage, comme moi... » Wang Lin médita silencieusement un long moment avant de détourner le regard et de reprendre sa marche.
+« Au sein de cette famille... se cache un ancien dieu! Je ne sais juste pas si cet ancien dieu était originellement tel quel ou s'il est quelqu'un ayant obtenu un héritage, comme moi... » Wang Lin médita silencieusement un long moment avant de détourner le regard et de reprendre sa marche.
 
 « J'ai déjà transmis mon avertissement, alors ne vous en prenez pas à moi! »
 
@@ -74,7 +74,7 @@ Il était très difficile pour une femme de survivre dans le chaos de Luotian ap
 
 Beaucoup convoitaient sa beauté, et beaucoup lui avaient promis de l'aider dans sa culture. Pour une femme vulnérable, survivre sans subir d'humiliations était ardu, tant son éclat attirait les convoitises.
 
-Elle ressemblait à Lu Feiyan de la Secte Originelle, mais elle était plus décidée encore: elle avait personnellement détruit sa propre beauté pour empêcher quiconque de la convoiter!
+Elle ressemblait à Lu Feiyan de la Secte de l'Origine, mais elle était plus décidée encore: elle avait personnellement détruit sa propre beauté pour empêcher quiconque de la convoiter!
 
 Une beauté est souvent née sous une mauvaise étoile, et peut-être qu'en se privant de cette beauté, le malheur l'abandonnerait.
 

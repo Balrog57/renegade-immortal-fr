@@ -72,7 +72,7 @@ Cependant, il comprit que tout ceci n'était qu'une illusion. Le bassin Dong Lin
 
 Pourtant, cela donnait un espoir à Wang Lin; cela lui faisait réaliser l'importance cruciale du bassin Dong Lin!
 
-« Si je peux atteindre le Continent Astral Immortel, je devrai me rendre au bassin Dong Lin! » Une voix résonnait follement dans son esprit. Il savait que même si son être actuel était une illusion, son niveau de culture avait décuplé!
+« Si je peux atteindre le Continent Astral Immortel, je devrai me rendre au bassin Dong Lin! » Une voix résonnait follement dans son esprit. Il savait que même si son être actuel était une illusion, son niveau de culture s'était multiplié plusieurs fois!
 
 Mais ce n'était pas terminé. Un changement encore plus stupéfiant survint alors qu'il ne restait que 20 % d'eau dans le bassin. Wang Lin n'avait pas seulement sept essences, il en possédait une huitième!
 

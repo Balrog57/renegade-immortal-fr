@@ -26,13 +26,13 @@ Le jeune homme aux cheveux blancs était devenu, pour lui, la créature la plus 
 
 La bête spirituelle noire tremblait sous lui et continuait de reculer. Cette créature avait déjà éveillé son intelligence, et sa crainte envers Wang Lin n'était en rien moindre que celle qu'elle éprouvait pour son maître.
 
-Le jeune homme semblait avoir perdu la raison sous l'effet de la peur et hurla de toutes ses forces: « Si vous osez me blesser le moins que je ne le puisse, ma Secte Dao Pourpre vous traquera jusqu'à la fin de vos jours! » Sa main droite effleura sa sacoche de rangement et il en sortit un lotus noir.
+Le jeune homme semblait avoir perdu la raison sous l'effet de la peur et hurla de toutes ses forces: « Si vous osez me blesser le moins du monde, ma Secte Dao Pourpre vous traquera jusqu'à la fin de vos jours! » Sa main droite effleura sa sacoche de rangement et il en sortit un lotus noir.
 
 Le lotus était d'un noir absolu et fleurissait d'une manière démoniaque. Il émettait une lumière étrange qui enveloppait le visage tordu du jeune homme. Juste au moment où il allait utiliser ce trésor que son père lui avait offert, un doigt apparut devant lui. Ce doigt semblait empreint de douceur, mais il s'abattit instantanément entre ses sourcils.
 
 Dans un fracas assourdissant, le jeune homme cracha du sang et sa vision se troubla. Deux filets de sang jaillirent de ses yeux. Son corps fut projeté en arrière comme un cerf-volant à la dérive, tandis que des bruits d'éclatement résonnaient dans sa chair. Une immense brume de sang jaillit de lui, teintant le ciel de rouge. C'était une scène atroce.
 
-Son âme originelle s'effondra. À cet instant, il sentit son cœur cogner violemment, comme si son corps flottait dans les airs. Ses battements devinrent de plus en plus faibles, comme s'il et son cœur appartenaient à deux mondes différents. Le son s'estompa progressivement jusqu'à ce qu'il ne puisse plus l'entendre.
+Son âme originelle s'effondra. À cet instant, il sentit son cœur cogner violemment, comme si son corps flottait dans les airs. Ses battements devinrent de plus en plus faibles, comme si lui et son cœur appartenaient à deux mondes différents. Le son s'estompa progressivement jusqu'à ce qu'il ne puisse plus l'entendre.
 
 À ce moment précis, les disciples directs des quatre grands anciens arrivèrent, et ce qu'ils virent fut un corps ensanglanté projeté hors de la bête spirituelle noire. L'individu explosa en un amas de chair et de sang avant de chuter du ciel.
 
@@ -44,9 +44,9 @@ Lu Di était mort. Son corps s'était effondré et son âme originelle avait dis
 
 Si la personne que Lu Di avait menacée n'avait pas été Wang Lin, mais un natif de la région de rang 5, cela aurait pu avoir un certain effet. Ce serait particulièrement vrai pour les sectes plus faibles que la Secte Dao Pourpre. Sous l'impulsion du moment, ils auraient hésité et se seraient contentés de capturer Lu Di au lieu de le tuer.
 
-Après tout, au sein de la région de rang 5, la Secte Dao Pourpre était assez puissant pour figurer parmi les dix premiers. Plus important encore était le nom de « Lu Yuncong! » Il était extrêmement talentueux et jouissait d'une immense renommée dans cette région.
+Après tout, au sein de la région de rang 5, la Secte Dao Pourpre était assez puissante pour figurer parmi les dix premiers. Plus important encore était le nom de « Lu Yuncong! » Il était extrêmement talentueux et jouissait d'une immense renommée dans cette région.
 
-Cependant, toutes ces menaces étaient vaines face à Wang Lin. Un simple Lu Yuncong ou un simple Secte Dao Pourpre n'étaient pas dignes, aux yeux de Wang Lin, de constituer une menace pour son existence!
+Cependant, toutes ces menaces étaient vaines face à Wang Lin. Un simple Lu Yuncong ou une simple Secte Dao Pourpre n'étaient pas dignes, aux yeux de Wang Lin, de constituer une menace pour son existence!
 
 Qu'il s'agisse du Céleste du Tonnerre de Luotian, de l'Empereur Divin de l'Oiseau Vermillon, du disciple de la génération suivante du Céleste Empereur Bai Fang, du jeune apprenti du Seigneur Céleste Qing Shui ou du disciple de l'actuel Céleste Empereur Qing Lin, chacun de ces titres pesait bien plus lourd que tout ce que la Secte Dao Pourpre pouvait offrir.
 

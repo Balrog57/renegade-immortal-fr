@@ -14,7 +14,7 @@ Son cuir chevelu était engourdi et son cœur était rongé par la peur. Il avai
 
 À l'origine, il ne s'en serait aucunement soucié, mais au fil du temps, à mesure que le nom de « Ceng Niu » gagnait en renommée, il en eut le frisson. Il avait reconnu Ceng Niu comme étant ce junior qui avait sauvé la cultivatrice et s'était enfui dans la Mer des Démons!
 
-Ce qui le glaça davantage fut la série d'événements qui suivirent. Ce Ceng Niu avait brillé lors de la guerre entre le Clan Immortel Délaissé et le pays de Suzaku. Par la suite, il apprit que la position actuelle de Suzaku avait été offerte à Zhou Wutai par Ceng Niu, qui n'était autre que Wang Lin. Tout cela l'avait rendu extrêmement méfiant, et ce n'est qu'après le départ de Wang Lin de la planète Suzaku qu'il s'était enfin détendu.
+Ce qui le glaça davantage fut la série d'événements qui suivirent. Ce Ceng Niu avait brillé lors de la guerre entre le Clan des Immortels Délaissés et le pays de Suzaku. Par la suite, il apprit que la position actuelle de Suzaku avait été offerte à Zhou Wutai par Ceng Niu, qui n'était autre que Wang Lin. Tout cela l'avait rendu extrêmement méfiant, et ce n'est qu'après le départ de Wang Lin de la planète Suzaku qu'il s'était enfin détendu.
 
 Cependant, il n'aurait jamais imaginé croiser la route de Wang Lin aujourd'hui!
 
@@ -48,7 +48,7 @@ La planète trembla violemment. Un instant plus tard, une aura antique émana de
 
 Extraction de l'Âme Planétaire!
 
-Wang Lin ne l'exécuta pas totalement et s'arrêta après en avoir extrait une partie. Bien que la perte d'une fraction de l'âme planétaire affecterait l'astre, cela ne serait pas trop radical.
+Wang Lin ne l'exécuta pas totalement et s'arrêta après en avoir extrait un tiers. Bien que la perte d'un tiers de l'âme planétaire affecterait l'astre, cela ne serait pas trop radical.
 
 En chemin, Wang Lin extirpa les âmes de plusieurs planètes. Malgré sa culture, il ressentit de la fatigue. Malheureusement, le garçon à la grosse tête ne pouvait pas fusionner avec le monde; seul lui pouvait accomplir un tel exploit.
 

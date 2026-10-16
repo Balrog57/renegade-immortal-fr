@@ -6,21 +6,21 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1726 - Reforming Essences
 slug: reformer-les-essences
 ---
-Wang Lin était épuisé sur le dos de la Bête du Néant. Si l'entièreté de la Bête du Néant avait été déployée, elle aurait été immense, mais pour l'instant, elle s'était considérablement contractée pour ne mesurer plus que 10 000 pieds de large. Néanmoins, dans sa progression, elle dégageait une pression colossale pour quiconque la contemplait.
+Wang Lin était épuisé sur le dos de la Bête des Limbes. Si l'entièreté de la Bête des Limbes avait été déployée, elle aurait été immense, mais pour l'instant, elle s'était considérablement contractée pour ne mesurer plus que 10 000 pieds de large. Néanmoins, dans sa progression, elle dégageait une pression colossale pour quiconque la contemplait.
 
-Cette pression émanait du corps de la Bête du Néant et de son regard froid et impitoyable. Cette cruauté découlait de son indifférence totale envers la vie et la mort, la réincarnation, le temps et toute forme d'existence!
+Cette pression émanait du corps de la Bête des Limbes et de son regard froid et impitoyable. Cette cruauté découlait de son indifférence totale envers la vie et la mort, la réincarnation, le temps et toute forme d'existence!
 
-Il semblait que rien n'eût d'importance aux yeux de la Bête du Néant. Elle était le Dao Céleste, et tout dans le monde des grottes en émanait. Qu'il s'agisse de cultivateurs ou de bêtes féroces, ils n'étaient rien pour elle!
+Il semblait que rien n'eût d'importance aux yeux de la Bête des Limbes. Elle était le Dao Céleste, et tout dans le monde des grottes en émanait. Qu'il s'agisse de cultivateurs ou de bêtes féroces, ils n'étaient rien pour elle!
 
-De même, cette pression provenait de Wang Lin, assis sur le dos de la Bête du Néant. Bien qu'il restât immobile et silencieux, l'aura qu'il dégageait était celle d'un dieu céleste!
+De même, cette pression provenait de Wang Lin, assis sur le dos de la Bête des Limbes. Bien qu'il restât immobile et silencieux, l'aura qu'il dégageait était celle d'un dieu céleste!
 
 Wang Lin possédait la lignée du Dao Ancien. Cette lignée était assez noble pour rivaliser avec celle du Fou. Bien qu'il fût encore un habitant du monde des grottes, sa lignée lui permettait de regarder de haut la plupart des êtres, même sur le Continent Astral Immortel!
 
-La Bête du Néant se déplaçait en silence. Plus précisément, elle ne bougeait pas du tout; c'était le monde qui se mouvait. Elle pouvait atteindre n'importe quel lieu en un instant, car tout ici lui appartenait!
+La Bête des Limbes se déplaçait en silence. Plus précisément, elle ne bougeait pas du tout; c'était le monde qui se mouvait. Elle pouvait atteindre n'importe quel lieu en un instant, car tout ici lui appartenait!
 
-Tandis que Wang Lin restait assis calmement, sa main droite effleura doucement la Bête du Néant. Les scènes de sa rencontre avec l'Omniscient traversèrent son esprit.
+Tandis que Wang Lin restait assis calmement, sa main droite effleura doucement la Bête des Limbes. Les scènes de sa rencontre avec l'Omniscient traversèrent son esprit.
 
-« Je ne m'attendais pas à ce que la Bête du Néant que j'ai capturée fasse partie du Dao Céleste... L'Omniscient faisait également partie du Dao Céleste. Pas étonnant qu'il ait cru au destin céleste... Le destin auquel il croyait était, en fait, lui-même. » Wang Lin regarda la Bête du Néant en contrebas d'un air profond, ému par ses pensées.
+« Je ne m'attendais pas à ce que la Bête des Limbes que j'ai capturée fasse partie du Dao Céleste... L'Omniscient faisait également partie du Dao Céleste. Pas étonnant qu'il ait cru au destin céleste... Le destin auquel il croyait était, en fait, lui-même. » Wang Lin regarda la Bête des Limbes en contrebas d'un air profond, ému par ses pensées.
 
 « Le fragment provenant du Royaume Divin Immémorial que le Souverain Céleste aux Sept Couleurs avait obtenu servait au stockage. À l'intérieur, il a trouvé le Dao Céleste... Il semble qu'il y ait également trouvé la Perle Défiant le Ciel.
 
@@ -34,9 +34,9 @@ Ce Dao Céleste doit être complet; il a même pu dévorer Lian Daofei autrefois
 
 Un puissant sentiment de confiance s'éleva dans le corps de Wang Lin. Il scruta l'horizon et ses yeux brillèrent intensément!
 
-Il ne déploya pas son Sens Divin; il laissa simplement la Bête du Néant errer parmi les étoiles. Il ferma les yeux et ses mains formèrent un sceau. Après s'être réajusté, il rouvrit les yeux et mordit le bout de sa langue pour cracher du sang.
+Il ne déploya pas son Sens Divin; il laissa simplement la Bête des Limbes errer parmi les étoiles. Il ferma les yeux et ses mains formèrent un sceau. Après s'être réajusté, il rouvrit les yeux et mordit le bout de sa langue pour cracher du sang.
 
-Cette bouchée de sang était d'un rouge vif et flottait devant lui, suivant le rythme de la Bête du Néant en contrebas. Le sang s'anima et émit une lumière éblouissante, tandis que des effluves parfumées se propageaient.
+Cette bouchée de sang était d'un rouge vif et flottait devant lui, suivant le rythme de la Bête des Limbes en contrebas. Le sang s'anima et émit une lumière éblouissante, tandis que des effluves parfumées se propageaient.
 
 « Puisque l'avatar s'est dissipé, je vais en former un autre! Cet avatar prendra mon sang pour noyau et suivra le chemin du Grand Dao! » murmura Wang Lin en pointant le sang du doigt.
 
@@ -58,7 +58,7 @@ Au moment même où son corps original fermait les yeux, ceux de son avatar s'ou
 
 « Essence du feu que j'ai comprise et qui fut dispersée dans le vide, reviens! »
 
-Dès qu'il prononça ces mots, des graines de feu commencèrent à apparaître autour de la Bête du Néant. De plus en plus de graines surgissaient; de loin, on aurait dit que le système stellaire était en flammes. Une mer de feu s'étendait à travers les étoiles!
+Dès qu'il prononça ces mots, des graines de feu commencèrent à apparaître autour de la Bête des Limbes. De plus en plus de graines surgissaient; de loin, on aurait dit que le système stellaire était en flammes. Une mer de feu s'étendait à travers les étoiles!
 
 Cette mer de feu se mua en un anneau tourbillonnant autour de Wang Lin. Un feu infini convergeait depuis tout le système stellaire, tel une immense vague en perpétuel mouvement.
 
@@ -100,11 +100,11 @@ Après avoir parlé, son corps devint immédiatement illusoire, comme s'il n'ét
 
 En particulier, ses yeux ressemblaient à des étoiles. Quiconque les fixait tombait dans un état de confusion mentale.
 
-« Je ferme les yeux et tout est faux. J'ouvre les yeux et tout est vrai », murmura Wang Lin avant de fermer les paupières. Les cieux et la terre se dissipèrent. Le monde des grottes, la troisième âme et même la Bête du Néant n'existaient plus. À cet instant, tout n'était qu'illusion pour Wang Lin.
+« Je ferme les yeux et tout est faux. J'ouvre les yeux et tout est vrai », murmura Wang Lin avant de fermer les paupières. Les cieux et la terre se dissipèrent. Le monde des grottes, la troisième âme et même la Bête des Limbes n'existaient plus. À cet instant, tout n'était qu'illusion pour Wang Lin.
 
 Au moment où il rouvrit les yeux, l'essence du Vrai et du Faux se rassembla.
 
-Pendant que Wang Lin reformait les essences de son avatar de cultivateur, la Bête du Néant dérivait lentement en dessous de lui. Elle avait quitté la Rivière des Appels pour atteindre la Mer des Nuages.
+Pendant que Wang Lin reformait les essences de son avatar de cultivateur, la Bête des Limbes dérivait lentement en dessous de lui. Elle avait quitté la Rivière Invoquée pour atteindre la Mer des Nuages.
 
 À cet instant, dans la Mer des Nuages, un groupe de personnes traversait le système stellaire.
 

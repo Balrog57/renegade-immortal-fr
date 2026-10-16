@@ -10,7 +10,7 @@ L’empreinte de la paume ne put opposer la moindre résistance et s'effondra co
 
 Après avoir brisé l'empreinte, le rugissement jaillit de la faille spatiale et percuta l'homme en robe noire qui flottait à l'extérieur de celle-ci!
 
-ROAR!!
+RUGISSEMENT!!
 
 « C’est... » L'expression de l'homme en robe noire changea radicalement. Son corps trembla et il cracha un flot de sang, reculant frénétiquement. Cependant, il n'eut le temps de faire que trois pas avant que ses jambes n'explosent!
 
@@ -74,7 +74,7 @@ Tout en restant assis, Wang Lin laissait son énergie démoniaque inonder le cor
 
 Outre sa propre fierté, la raison pour laquelle Wang Lin accordait ce répit à Tuo Sen était qu'il avait lui-même besoin de temps. Il ne pouvait pas quitter le trône pour combattre! Bien que la force de rejet ait disparu, l'aura d'héritage qui avait jusqu'alors fait rougir les yeux de Wang Lin s'était également évanouie!
 
-Wang Lin avait compris, par une intuition mystérieuse, que s'il se levait à ce moment-là, même en se rasseoyant plus tard, il n'y aurait plus d'héritage possible. C'était une illumination qu'il avait acquise lors de la fusion de son Sens Divin avec la volonté de la tombe.
+Wang Lin avait compris, par une intuition mystérieuse, que s'il se levait à ce moment-là, même en se rasseyant plus tard, il n'y aurait plus d'héritage possible. C'était une illumination qu'il avait acquise lors de la fusion de son Sens Divin avec la volonté de la tombe.
 
 C'est pourquoi il ne pouvait pas bouger! L'héritage nécessaire pour devenir un Dieu Antique à 7 étoiles ne lui suffisait pas!
 

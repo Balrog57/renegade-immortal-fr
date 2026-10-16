@@ -40,13 +40,13 @@ De plus, après l'avoir examinée longuement, il ne put identifier aucun autre m
 
 Il semblait que l'origine de cet objet remontait à une époque très reculée...
 
-Après réflexion, Wang Lin retira l'os et son regard se posa sur l'os du Serpent de Lune, non loin de là.
+Après réflexion, Wang Lin retira l'os et son regard se posa sur l'os du Serpent aux yeux de lune, non loin de là.
 
-L'élément métallique contenu dans l'os du Serpent de Lune diminuait progressivement après des jours d'absorption par la perle défiant le ciel...
+L'élément métallique contenu dans l'os du Serpent aux yeux de lune diminuait progressivement après des jours d'absorption par la perle défiant le ciel...
 
 Le temps passa lentement. Wang Lin était resté vigilant durant toute cette période, refusant que quiconque ne vienne perturber ce processus. Bien que cet endroit fût reculé, il devait rester prudent.
 
-Trois mois passèrent en un éclair. Personne n'était venu durant ce laps de temps. À cet instant, tout l'élément métallique avait disparu de l'os du Serpent de Lune.
+Trois mois passèrent en un éclair. Personne n'était venu durant ce laps de temps. À cet instant, tout l'élément métallique avait disparu de l'os du Serpent aux yeux de lune.
 
 Wang Lin craignait initialement que la moitié de l'os ne suffise pas à achever la perle défiant le ciel, mais désormais, l'image représentant l'élément métallique était complète.
 
@@ -112,7 +112,7 @@ Sentant sa propre crainte, les yeux de Wang Lin trahirent une lutte intérieure.
 
 C'était comme si ce qui se dressait devant lui appartenait à un niveau totalement différent, un gouffre impossible à franchir!
 
-Wang Lin n'avait pas ressenti cela depuis très longtemps. Même face au Serpent de Lune, il n'avait éprouvé que de la surprise. Il n'avait jamais connu ce tremblement de l'âme qui lui donnait l'impression de ne pouvoir opposer la moindre résistance.
+Wang Lin n'avait pas ressenti cela depuis très longtemps. Même face au Serpent aux yeux de lune, il n'avait éprouvé que de la surprise. Il n'avait jamais connu ce tremblement de l'âme qui lui donnait l'impression de ne pouvoir opposer la moindre résistance.
 
 C'était comme s'il redevenait l'adolescent mortel debout au pied du pic de la Secte Heng Yue, levant les yeux vers cette immense secte de culture. Il ressentait ce genre de crainte révérencieuse qui vient du plus profond du cœur!
 

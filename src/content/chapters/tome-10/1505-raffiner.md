@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1505 - Refine!"
 slug: raffiner
 ---
-Tout cela se produisit en un éclair. Dès que les Êtres Éclairés apparurent et commencèrent leurs chants, une gigantesque tablette de pierre surgit au-dessus de l'Âme de la Bête du Néant.
+Tout cela se produisit en un éclair. Dès que les Êtres Éclairés apparurent et commencèrent leurs chants, une gigantesque tablette de pierre surgit au-dessus de l'Âme de la Bête des Limbes.
 
 Les caractères rouge sang étaient imprégnés d'une intention démente. Sous cette influence, les Êtres Éclairés semblèrent perdre la raison, leurs chants se muant en cris stridents. Comme s'ils étaient sous contrôle, ils pivotèrent rapidement pour former un vortex.
 
@@ -14,27 +14,27 @@ Ce vortex dégageait une force destructrice qui se propageait dans toutes les di
 
 Le parchemin se rapprocha instantanément de Wang Lin. Ayant déjà exploré le Royaume aux Sept Couleurs, il savait à quel point cela était terrifiant. À mesure que l'écrit approchait, il commença à percevoir une voix ténue murmurant le contenu du parchemin taoïste!
 
-« Éclairé, prisonnier du Dao Céleste... » Tandis que le vortex tournait, l'intention démente se répandait avec fureur. À cet instant, parmi les quatre étoiles restantes de l'Âme de la Bête du Néant, deux autres s'éteignirent.
+« Éclairé, prisonnier du Dao Céleste... » Tandis que le vortex tournait, l'intention démente se répandait avec fureur. À cet instant, parmi les quatre étoiles restantes de l'Âme de la Bête des Limbes, deux autres s'éteignirent.
 
-Simultanément, la gueule de l'Âme de la Bête du Néant se rétracta dans son corps. Sous la rotation du vortex, la Bête du Néant recula précipitamment, les yeux empreints de terreur.
+Simultanément, la gueule de l'Âme de la Bête des Limbes se rétracta dans son corps. Sous la rotation du vortex, la Bête des Limbes recula précipitamment, les yeux empreints de terreur.
 
 Elle avait peur!
 
 La puissance du Royaume aux Sept Couleurs avait altéré sa personnalité, mais il était difficile d'oublier sa nature initialement timorée. De plus, le sceau sur son âme ne s'était pas dissipé, ce qui lui infligeait une peur indicible.
 
-Alors que le parchemin taoïste repoussait Wang Lin, la gigantesque Bête du Néant utilisa son autre sort!
+Alors que le parchemin taoïste repoussait Wang Lin, la gigantesque Bête des Limbes utilisa son autre sort!
 
 Mode Éthéré!
 
-Le corps de la Bête du Néant devint flou et, en l'espace de quelques milliers de pieds, elle disparut complètement! Les Êtres Éclairés, le vortex et le parchemin taoïste qui fonçait sur Wang Lin disparurent avec elle!
+Le corps de la Bête des Limbes devint flou et, en l'espace de quelques milliers de pieds, elle disparut complètement! Les Êtres Éclairés, le vortex et le parchemin taoïste qui fonçait sur Wang Lin disparurent avec elle!
 
-Tout s'était volatilisé avec la Bête du Néant!
+Tout s'était volatilisé avec la Bête des Limbes!
 
-Les yeux de Wang Lin devinrent rouge sang et il poussa un rugissement de rage. Ling Dong, Zhou Jin, le Serpent aux yeux de lune et les Feuilles Anciennes se trouvaient tous à l'intérieur de la Bête du Néant. Si elle s'échappait, le prix à payer serait trop lourd!
+Les yeux de Wang Lin devinrent rouge sang et il poussa un rugissement de rage. Ling Dong, Zhou Jin, le Serpent aux yeux de lune et les Feuilles Anciennes se trouvaient tous à l'intérieur de la Bête des Limbes. Si elle s'échappait, le prix à payer serait trop lourd!
 
-La chasse à la Bête du Néant avait pris un tournant imprévu suite à sa dévoration du Royaume aux Sept Couleurs. Bien que Wang Lin l'eût anticipé, il n'aurait jamais pu imaginer qu'un événement aussi absurde se produirait!
+La chasse à la Bête des Limbes avait pris un tournant imprévu suite à sa dévoration du Royaume aux Sept Couleurs. Bien que Wang Lin l'eût anticipé, il n'aurait jamais pu imaginer qu'un événement aussi absurde se produirait!
 
-Un Royaume aux Sept Couleurs était apparu dans cette région brumeuse et avait été dévoré par la Bête du Néant!
+Un Royaume aux Sept Couleurs était apparu dans cette région brumeuse et avait été dévoré par la Bête des Limbes!
 
 « Je ne peux pas la laisser s'échapper! » La folie se lut dans les yeux de Wang Lin. Il fit un pas en avant, surgissant au-dessus du domaine stellaire, puis abattit sa main sur celui-ci!
 
@@ -64,7 +64,7 @@ L'infini domaine stellaire fut enveloppé par la foudre et devint un immense lac
 
 « Même si tu dévores le Royaume aux Sept Couleurs, tu resteras ma bête d'essence vitale! Tu as peut-être fui et je ne peux plus te localiser, mais je vais raffiner l'intégralité de ces 800 millions de pieds en un grain de poussière pour te forcer à sortir! »
 
-Bien que la Bête du Néant soit devenue éthérée et se soit enfuie rapidement, le sceau de Wang Lin était toujours sur elle. Il sentait qu'elle s'échappait à toute vitesse, mais elle n'avait pas encore quitté cette zone de 800 millions de pieds!
+Bien que la Bête des Limbes soit devenue éthérée et se soit enfuie rapidement, le sceau de Wang Lin était toujours sur elle. Il sentait qu'elle s'échappait à toute vitesse, mais elle n'avait pas encore quitté cette zone de 800 millions de pieds!
 
 Wang Lin percevait clairement que ses sceaux sur son corps et son âme se dissipaient rapidement. Bientôt, ils disparaîtraient totalement et son lien avec la créature serait rompu!
 
@@ -80,9 +80,9 @@ Vu d'en haut, cette zone de 800 millions de pieds semblait s'être détachée de
 
 Wang Lin était déjà en proie à la démence. Ses mains ne cessaient de bouger, plaçant des restrictions dans cet espace de 800 millions de pieds, accélérant sans cesse le raffinage!
 
-Le temps pressait; il ne pouvait plus attendre. Une fois les sceaux sur la Bête du Néant dissipés, tout serait perdu! Wang Lin n'avait pas de second Serpent aux yeux de lune, ni de second Ling Dong, ni de second Zhou Jin pour traquer à nouveau la Bête du Néant!
+Le temps pressait; il ne pouvait plus attendre. Une fois les sceaux sur la Bête des Limbes dissipés, tout serait perdu! Wang Lin n'avait pas de second Serpent aux yeux de lune, ni de second Ling Dong, ni de second Zhou Jin pour traquer à nouveau la Bête des Limbes!
 
-Cependant, la zone de 800 millions de pieds était trop vaste pour être raffinée en si peu de temps. À cet instant, Wang Lin sentit nettement que son lien avec la Bête du Néant s'affaiblissait considérablement!
+Cependant, la zone de 800 millions de pieds était trop vaste pour être raffinée en si peu de temps. À cet instant, Wang Lin sentit nettement que son lien avec la Bête des Limbes s'affaiblissait considérablement!
 
 Bien qu'il ne puisse la voir, il pouvait deviner que sur les deux étoiles restantes, une seule subsistait encore!
 
@@ -96,7 +96,7 @@ Tout en réfléchissant, Wang Lin agita sa main droite et des centaines de milli
 
 Un puissant parapluie antique, capable de consumer le monde, surgit au-dessus de l'espace en cours de raffinage. Un sentiment de majesté infinie se propagea!
 
-« Parapluie Brûleur de Royaume, détruis ce royaume! » Wang Lin leva sa main droite comme pour saisir le gigantesque parapluie, tandis que sa main gauche le déployait!
+« Ombrelle Brûlante du Royaume, détruis ce royaume! » Wang Lin leva sa main droite comme pour saisir le gigantesque parapluie, tandis que sa main gauche le déployait!
 
 Des grondements tonitruants éclatèrent. Le parapluie antique trembla et s'ouvrit à dix pour cent!
 
@@ -108,14 +108,14 @@ La zone de 700 millions de pieds se mit à trembler et à rétrécir rapidement:
 
 Le vide ainsi créé révélait le réseau de la Formation de Scellement du Royaume, parsemé de multiples brèches.
 
-« Toujours pas sortie? » Wang Lin sentait que la Bête du Néant se trouvait dans ce périmètre de 60 millions de pieds. Il agita la main et le Fourneau de l'Empereur apparut. Les neuf gouttes de poison fusionnèrent avec le feu et le tonnerre.
+« Toujours pas sortie? » Wang Lin sentait que la Bête des Limbes se trouvait dans ce périmètre de 60 millions de pieds. Il agita la main et le Fourneau de l'Empereur apparut. Les neuf gouttes de poison fusionnèrent avec le feu et le tonnerre.
 
-Cette méthode ne gaspillerait pas son précieux poison, mais elle donnerait à Wang Lin le temps nécessaire pour forcer la Bête du Néant éthérée à se manifester!
+Cette méthode ne gaspillerait pas son précieux poison, mais elle donnerait à Wang Lin le temps nécessaire pour forcer la Bête des Limbes éthérée à se manifester!
 
 Les grondements continuèrent, tout comme le raffinage. L'espace de 60 millions de pieds fut réduit à 30 millions. Simultanément, un brouillard noir empoisonné se répandit rapidement dans la zone.
 
-C’est à cet instant qu’un rugissement anxieux retentit. Le corps de la Bête du Néant apparut soudainement dans une zone sur le point d'être submergée par le brouillard toxique.
+C’est à cet instant qu’un rugissement anxieux retentit. Le corps de la Bête des Limbes apparut soudainement dans une zone sur le point d'être submergée par le brouillard toxique.
 
-Dès son apparition, Wang Lin s'élança. Avant que la Bête du Néant ne puisse ouvrir la gueule, sa main s'abattit lourdement sur le dernier fragment de sceau subsistant sur la tête de la créature.
+Dès son apparition, Wang Lin s'élança. Avant que la Bête des Limbes ne puisse ouvrir la gueule, sa main s'abattit lourdement sur le dernier fragment de sceau subsistant sur la tête de la créature.
 
-Des gémissements étouffés s'échappèrent de la gueule de la Bête du Néant, qui resta close.
+Des gémissements étouffés s'échappèrent de la gueule de la Bête des Limbes, qui resta close.

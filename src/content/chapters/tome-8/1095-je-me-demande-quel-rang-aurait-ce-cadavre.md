@@ -26,9 +26,9 @@ Une fois les parchemins rangés, le regard de Wang Lin s'anima et il dit d'un to
 
 Le cœur de Lie Yunzi sombra tandis qu'il fixait Wang Lin en serrant les dents. « Vous avez déjà pris les Parchemins de Bataille et j'ai déjà payé le prix! Que voulez-vous de plus?! »
 
-L'expression de Wang Lin demeura calme lorsqu'il reprit lentement: « Vous avez prétendu que j'avais dérobé un trésor important de votre famille Zhan. Vous devez m'en fournir une explication! » Wang Lin le dévisagea. Il aurait voulu tuer cet homme, mais cela ne ferait qu'aggraver les tensions entre Luotian et les Quatre Sectes Divins.
+L'expression de Wang Lin demeura calme lorsqu'il reprit lentement: « Vous avez prétendu que j'avais dérobé un trésor important de votre famille Zhan. Vous devez m'en fournir une explication! » Wang Lin le dévisagea. Il aurait voulu tuer cet homme, mais cela ne ferait qu'aggraver les tensions entre Luotian et les Quatre Sectes Divines.
 
-Le tuer n'entrait pas dans le plan de Wang Lin pour traiter avec Tuo Sen. Plus important encore, si les relations entre les Quatre Sectes Divins et Luotian se détérioraient, ce sont la Secte des Cadavres et l'Alliance qui en profiteraient.
+Le tuer n'entrait pas dans le plan de Wang Lin pour traiter avec Tuo Sen. Plus important encore, si les relations entre les Quatre Sectes Divines et Luotian se détérioraient, ce sont la Secte des Cadavres et l'Alliance qui en profiteraient.
 
 Qing Shui se trouvait très probablement au quartier général de l'Alliance, sans compter la bienveillance de l'ancien Empereur Divin. Tous ces paramètres empêchaient Wang Lin de tuer Lie Yunzi pour le moment.
 
@@ -46,7 +46,7 @@ Lie Yunzi ferma les yeux et tendit la main vers le vide. Six Lou Fu, exhalant un
 
 Wang Lin agita ses manches et les six Lou Fu furent aspirés dans son sac de rangement. Il saisit ensuite le jade et, après l'avoir inspecté, le rangea.
 
-« Je m'en vais! » Lie Yunzi se retourna pour partir. Il ne pouvait plus supporter de rester au sein de la Secte Divin de l'Oiseau Vermillon.
+« Je m'en vais! » Lie Yunzi se retourna pour partir. Il ne pouvait plus supporter de rester au sein de la Secte Divine de l'Oiseau Vermillon.
 
 « Ne partez pas si vite. J'ai une chose que je dois demander à Lie Yunzi de transmettre au Senior Maître Yan Leizi! » Wang Lin agita la main droite et un morceau de jade vola vers Lie Yunzi.
 
@@ -54,7 +54,7 @@ Lie Yunzi fronça les sourcils et son Sens Divin scruta le jade. Soudain, son ex
 
 « Cette affaire... »
 
-Wang Lin sourit sans rien ajouter. « Si le Senior Maître Yan Leizi est intéressé, il pourra venir me trouver à la Secte Divin de l'Oiseau Vermillon! »
+Wang Lin sourit sans rien ajouter. « Si le Senior Maître Yan Leizi est intéressé, il pourra venir me trouver à la Secte Divine de l'Oiseau Vermillon! »
 
 Lie Yunzi rangea soigneusement le jade. Puis, il regarda Wang Lin. Il avait l'impression de ne plus pouvoir percer l'âme de l'homme devant lui. Il poussa un soupir et partit précipitamment.
 
@@ -66,7 +66,7 @@ Sa main droite s'avança pour extraire un objet d'une fissure devant lui. C'éta
 
 En un instant, la vitesse de Lie Yunzi fut décuplée et il disparut sans laisser de trace.
 
-Quelques jours plus tard, après avoir quitté la région Est contrôlée par les Quatre Sectes Divins à sa vitesse maximale, Lie Yunzi se précipitait vers la région Nord sous l'égide de Luotian.
+Quelques jours plus tard, après avoir quitté la région Est contrôlée par les Quatre Sectes Divines à sa vitesse maximale, Lie Yunzi se précipitait vers la région Nord sous l'égide de Luotian.
 
 Le deuxième jour de son entrée dans la région Nord, alors qu'il fonçait tête baissée, un rayon de lumière jaillit vers lui. Ce trait lumineux était d'une rapidité fulgurante et portait une puissance capable de fendre la terre.
 
@@ -92,7 +92,7 @@ Ce n'est que lorsque Lie Yunzi fut loin qu'une silhouette masculine apparut. L'h
 
 « Attaquer un junior par surprise avec un poison extrait de Situ Nan... Cette affaire... Ah, peu importe. Nous devons trop à Wang Lin... » L'homme soupira et s'évanouit dans l'air.
 
-Laissons de côté le sort de Lie Yunzi pour l'instant. Après avoir quitté la Secte Divin de l'Oiseau Vermillon, la femme de la Secte des Cadavres s'apprêtait à présenter ses hommages. Après avoir exprimé son souhait de former une alliance avec les Quatre Sectes Divins, elle allait prendre congé.
+Laissons de côté le sort de Lie Yunzi pour l'instant. Après avoir quitté la Secte Divine de l'Oiseau Vermillon, la femme de la Secte des Cadavres s'apprêtait à présenter ses hommages. Après avoir exprimé son souhait de former une alliance avec les Quatre Sectes Divines, elle allait prendre congé.
 
 Cependant, Wang Lin lui demanda de rester pour assister à la cérémonie d'investiture qui aurait lieu dans quelques jours.
 

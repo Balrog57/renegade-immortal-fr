@@ -26,7 +26,7 @@ Qing Hong regarda Wang Lin et dit doucement: « Je vous ai rencontré dans mon r
 
 « Je... » La voix de Wang Lin se brisa, puis, après un long silence, il hocha la tête. « J'y crois. »
 
-La femme tourna les yeux vers la pluie et murmura: « Si même l'Ascendant Céleste aux Cheveux Blancs y croit, alors moi aussi j'y crois. J'ai toujours eu l'impression d'attendre qu'on me donne une réponse... Dès que j'ai atteint le troisième niveau, j'ai su que la personne que j'attendais, c'était vous. »
+La femme tourna les yeux vers la pluie et murmura: « Si même l'Ascendant Empyréen aux Cheveux Blancs y croit, alors moi aussi j'y crois. J'ai toujours eu l'impression d'attendre qu'on me donne une réponse... Dès que j'ai atteint le troisième niveau, j'ai su que la personne que j'attendais, c'était vous. »
 
 « La réincarnation... Je me suis toujours demandé si j'avais eu une vie antérieure. Sinon, pourquoi aimerais-je le rouge ou les papillons? Je m'interrogeais aussi sur l'origine de mes préférences. Rien ne surgit du néant; si cela ne vient pas de cette vie, c'est qu'il vient de la précédente. »
 
@@ -54,9 +54,9 @@ Wang Lin resta pensif, puis fit volte-face pour s'éloigner.
 
 « J'ai déjà oublié tant de choses de cette vie. Je ne me souviens que de vous et de cette question... Et d'une autre... Il vous a dit quelque chose. »
 
-Qing Hong ferma les yeux et sa voix fut suave: « Quelle chose? »
+« Je me souviens encore de cette phrase. » Qing Hong ferma les yeux, et sa voix fut suave.
 
-« Quelle chose? » répéta Wang Lin sans s'arrêter, s'enfonçant dans la pluie.
+« Quelle phrase? » demanda Wang Lin sans s'arrêter, s'enfonçant dans la pluie.
 
 « Cœurs morts, déjà oubliés... »
 

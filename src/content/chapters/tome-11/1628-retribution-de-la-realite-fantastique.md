@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1628 - Fantasy Reality Retribution
 slug: retribution-de-la-realite-fantastique
 ---
-Sa paume ouverte représentait la cause karmique, et sa paume fermée l'effet karmique. L'Empreinte du Karma jaillit, faisant trembler l'autel. Les deux pans surgissant de la faille libérèrent un fracas tonnerre.
+Sa paume ouverte représentait la cause karmique, et sa paume fermée l'effet karmique. L'Empreinte du Karma jaillit, faisant trembler l'autel. Les deux pans surgissant de la faille libérèrent un fracas de tonnerre.
 
 De nombreuses fissures apparurent sur ces deux sections avant qu'elles ne s'effondrent soudainement. D'innombrables fragments se dispersèrent et furent réduits en cendres par les flammes.
 

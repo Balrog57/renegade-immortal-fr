@@ -40,11 +40,11 @@ Cependant, les deux autres dragons noirs ne s'arrêtèrent pas et chargèrent di
 
 Un rire s'éleva de la brume rouge, qui se dissipa pour révéler l'homme d'âge moyen. Ses yeux étaient brillants et il se déplaçait comme une illusion. Il passa inopinément entre les deux dragons et chargea Wang Lin.
 
-« Xu Mu, ne cherche plus à cacher ton niveau de culture! Pour traverser sans dommage un tel nombre de cultivateurs Illusoire Ying, Corporel Yang et Scrutateur du Nirvana, tu dois être un cultivateur du Purificateur du Nirvana! »
+« Xu Mu, ne cherche plus à cacher ton niveau de culture! Pour traverser sans dommage un tel nombre de cultivateurs Illusoire Ying, Corporel Yang et Scruteur du Nirvana, tu dois être un cultivateur du Purificateur du Nirvana! »
 
-Les yeux de Wang Lin s'illuminèrent. Il se demandait pourquoi aucun cultivateur du Purificateur du Nirvana ne se trouvait dans le Royaume de la Massacre. Cependant, son Sens Divin n'étant qu'au stade de Scrutateur du Nirvana, il ne pouvait les détecter.
+Les yeux de Wang Lin s'illuminèrent. Il se demandait pourquoi aucun cultivateur du Purificateur du Nirvana ne se trouvait dans le Royaume de la Massacre. Cependant, son Sens Divin n'étant qu'au stade de Scruteur du Nirvana, il ne pouvait les détecter.
 
-Pourtant, après avoir vu cet homme, Wang Lin sentit une aura plus faible que celle des vieux monstres du Briseur du Nirvana, mais bien plus puissante que celle des cultivateurs Scrutateurs du Nirvana!
+Pourtant, après avoir vu cet homme, Wang Lin sentit une aura plus faible que celle des vieux monstres du Briseur du Nirvana, mais bien plus puissante que celle des cultivateurs Scruteurs du Nirvana!
 
 « Purificateur du Nirvana! » Wang Lin prit une profonde inspiration et l'intention de combat remplit son regard. Plus précisément, c'était la deuxième fois qu'il affrontait un cultivateur du Purificateur du Nirvana. La première fois fut l'Ancêtre de Sang, et cet homme était le second!
 
@@ -54,7 +54,7 @@ Alors que l'homme d'âge moyen se rapprochait, il agita la main et les neuf ép�
 
 « Utilisons cet homme pour tester ma véritable force! » Les yeux de Wang Lin s'illuminèrent et il ne recula plus. Sa main droite se serra en un poing et il chargea droit devant lui.
 
-Bien que l'expression de l'homme d'âge moyen fût calme, son cœur était troublé. Il ne parvenait pas à percer la nature de l'individu face à lui. En apparence, ce Xu Mu n'était qu'au stade initial du Scrutateur du Nirvana, et la différence entre eux aurait dû être aussi vaste que le ciel et la terre.
+Bien que l'expression de l'homme d'âge moyen fût calme, son cœur était troublé. Il ne parvenait pas à percer la nature de l'individu face à lui. En apparence, ce Xu Mu n'était qu'au stade initial du Scruteur du Nirvana, et la différence entre eux aurait dû être aussi vaste que le ciel et la terre.
 
 Pourtant, il ignorait pourquoi il ressentait une telle peur dès qu'il apercevait Xu Mu. C'était comme si une aura puissante émanait de lui, une force qui le rendait lui-même méfiant.
 
@@ -90,7 +90,7 @@ Le corps de Wang Lin trembla également; un engourdissement se propagea dans son
 
 « C'est donc cela, un cultivateur du Purificateur du Nirvana! » Les yeux de Wang Lin devinrent glacials.
 
-L'homme d'âge moyen était désormais certain que ce Xu Mu cachait sa culture. Si ce dernier n'était réellement qu'un Scrutateur du Nirvana, il n'aurait jamais pu résister à cette illusion de vérité.
+L'homme d'âge moyen était désormais certain que ce Xu Mu cachait sa culture. Si ce dernier n'était réellement qu'un Scruteur du Nirvana, il n'aurait jamais pu résister à cette illusion de vérité.
 
 Les mains de l'homme frappèrent le vide devant lui tandis que l'énergie originelle de son corps déferlait. Le sable repoussé se rassembla instantanément pour former une grue de sable gigantesque. Elle poussa un cri capable de secouer les cieux et chargea vers Wang Lin en pleine retraite.
 

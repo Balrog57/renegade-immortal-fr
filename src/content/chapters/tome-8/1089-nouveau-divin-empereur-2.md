@@ -34,7 +34,7 @@ La combustion de son corps ne l'empêcha pas de lutter. Il pointa l'espace entre
 
 Son âme originelle surgit de son front dans un rugissement qui fit trembler les cieux!
 
-*Roar!*
+*Rugissement!*
 
 L'ancien dragon de tonnerre utilisa son pouvoir pour commander aux éclairs, et le tonnerre commença à se manifester au sein de ce champ d'étoiles ardent. Bientôt, le tonnerre emplit le ciel étoilé.
 
@@ -58,25 +58,25 @@ Les flammes qui avaient toujours existé et ne s'éteindraient jamais se mirent 
 
 Les flammes qui embrasaient les 30 % de la région orientale de l'Alliance éclatèrent. Elles commencèrent à pénétrer dans les champs d'étoiles environnants.
 
-Dans la Secte Divin du Dragon Azure, un groupe de moustiques féroces semblables à des bêtes bourdonnait entre des arbres géants. En tête de groupe se trouvait une créature-moustique pourpre de la taille d'une petite montagne. Ce moustique tourna soudain son regard vers le lointain Secte Divin de l'Oiseau Vermillon, ses yeux froids brillant d'excitation.
+Dans la Secte Divine du Dragon Azure, un groupe de moustiques féroces semblables à des bêtes bourdonnait entre des arbres géants. En tête de groupe se trouvait une créature-moustique pourpre de la taille d'une petite montagne. Ce moustique tourna soudain son regard vers le lointain Secte Divine de l'Oiseau Vermillon, ses yeux froids brillant d'excitation.
 
-Non seulement lui, mais presque tous les membres de la Secte Divin du Dragon Azure perçurent les changements survenant dans la Secte Divin de l'Oiseau Vermillon. Au centre de la Secte Divin du Dragon Azure, sur une planète verdoyante, un arbre perçant le ciel abritait trois Anciens.
+Non seulement lui, mais presque tous les membres de la Secte Divine du Dragon Azure perçurent les changements survenant dans la Secte Divine de l'Oiseau Vermillon. Au centre de la Secte Divine du Dragon Azure, sur une planète verdoyante, un arbre perçant le ciel abritait trois Anciens.
 
 À cet instant, les trois Anciens ouvrirent les yeux simultanément.
 
-« Le nouveau Divin Empereur de la Secte Divin de l'Oiseau Vermillon est sur le point de naître! » Les trois se regardèrent avec excitation et s'élancèrent immédiatement vers la Secte Divin de l'Oiseau Vermillon.
+« Le nouveau Divin Empereur de la Secte Divine de l'Oiseau Vermillon est sur le point de naître! » Les trois se regardèrent avec excitation et s'élancèrent immédiatement vers la Secte Divine de l'Oiseau Vermillon.
 
-La scène provoqua également une immense onde de choc dans la Secte Divin de la Tortue Noire. Dans le marécage du secteur, un grand crapaud était assis. Cette créature était très paresseuse, lançant parfois sa langue pour capturer une petite bête de passage.
+La scène provoqua également une immense onde de choc dans la Secte Divine de la Tortue Noire. Dans le marécage du secteur, un grand crapaud était assis. Cette créature était très paresseuse, lançant parfois sa langue pour capturer une petite bête de passage.
 
-Cependant, à cet instant précis, les yeux léthargiques du crapaud s'ouvrirent brusquement et la foudre jaillit de son corps. Cela transforma tout ce qui se trouvait dans un rayon de mille pieds autour de lui en un enfer de tonnerre. Il leva ensuite la tête vers la Secte Divin de l'Oiseau Vermillon, l'excitation brillant également dans ses yeux, tout comme chez la créature-moustique.
+Cependant, à cet instant précis, les yeux léthargiques du crapaud s'ouvrirent brusquement et la foudre jaillit de son corps. Cela transforma tout ce qui se trouvait dans un rayon de mille pieds autour de lui en un enfer de tonnerre. Il leva ensuite la tête vers la Secte Divine de l'Oiseau Vermillon, l'excitation brillant également dans ses yeux, tout comme chez la créature-moustique.
 
-Au même moment, au sein de la Secte Divin de la Tortue Noire, plusieurs Anciens s'élancèrent dans les airs en direction de la Secte Divin de l'Oiseau Vermillon.
+Au même moment, au sein de la Secte Divine de la Tortue Noire, plusieurs Anciens s'élancèrent dans les airs en direction de la Secte Divine de l'Oiseau Vermillon.
 
-« La naissance d'un nouveau Divin Empereur de l'Oiseau Vermillon est un événement crucial pour nos Quatre Sectes Divins! » Les Anciens volaient à toute vitesse, se transformant en rayons de lumière.
+« La naissance d'un nouveau Divin Empereur de l'Oiseau Vermillon est un événement crucial pour nos Quatre Sectes Divines! » Les Anciens volaient à toute vitesse, se transformant en rayons de lumière.
 
-Plusieurs silhouettes souriantes s'envolèrent vers les étoiles depuis la Secte Divin du Tigre Blanc.
+Plusieurs silhouettes souriantes s'envolèrent vers les étoiles depuis la Secte Divine du Tigre Blanc.
 
-L'ensemble de la Secte Divin de l'Oiseau Vermillon semblait entrer en ébullition alors que d'innombrables personnes quittaient leurs planètes pour rejoindre l'espace. La plupart étaient transportées par l'excitation, mais certains affichaient des expressions sombres et incertaines.
+L'ensemble de la Secte Divine de l'Oiseau Vermillon semblait entrer en ébullition alors que d'innombrables personnes quittaient leurs planètes pour rejoindre l'espace. La plupart étaient transportées par l'excitation, mais certains affichaient des expressions sombres et incertaines.
 
 Parmi eux se trouvaient les trois prétendants au titre de prochain Divin Empereur: deux hommes et une femme. Leur apparence importait peu; ils se situaient tous entre les stades Scruteur du Nirvana et Purificateur du Nirvana.
 
@@ -88,15 +88,15 @@ L'expression de Ren Tao était aussi sombre que l'eau. Il pouvait clairement sen
 
 Les deux autres futurs candidats au titre de Divin Empereur réfléchissaient en silence.
 
-« Frère aîné Ren, j'ai participé à la bataille des Terres de l'Esprit Démon il y a trois ans... Ce Wang Lin est quelqu'un que je ne provoquerai pas! » Liao Yun leva la tête, le regard ferme. Il lança un regard teinté de moquerie à Ren Tao.
+« Senior Frère Ren, j'ai participé à la bataille des Terres de l'Esprit Démon il y a trois ans... Ce Wang Lin est quelqu'un que je ne provoquerai pas! » Liao Yun leva la tête, le regard ferme. Il lança un regard teinté de moquerie à Ren Tao.
 
-Liao Yun était à l'origine une personne arrogante dotée d'un talent exceptionnel. Au sein de la Secte Divin de l'Oiseau Vermillon, son prestige n'était surpassé que par celui de Ren Tao. S'il n'était pas convaincu par Wang Lin au début, depuis la bataille des Terres de l'Esprit Démon, chaque pensée concernant ce dernier le faisait suer à froid.
+Liao Yun était à l'origine une personne arrogante dotée d'un talent exceptionnel. Au sein de la Secte Divine de l'Oiseau Vermillon, son prestige n'était surpassé que par celui de Ren Tao. S'il n'était pas convaincu par Wang Lin au début, depuis la bataille des Terres de l'Esprit Démon, chaque pensée concernant ce dernier le faisait suer à froid.
 
 Il était passé d'un scepticisme teinté d'arrogance à une peur profonde en un instant. Durant ces trois années, il avait appris à connaître Wang Lin par l'intermédiaire de Da Tou et avait même fini par éprouver du respect pour lui!
 
 À ses yeux, le plan de Ren Tao ressemblait à celui d'une mante essayant d'arrêter un char: Ren Tao se surestimait!
 
-La seule femme du groupe, Feng Shan, réfléchit un instant avant de secouer la tête. Elle dit doucement: « S'il parvient à achever sa transformation, je le respecterai comme Divin Empereur. S'il échoue, je suivrai les ordres du Frère aîné. »
+La seule femme du groupe, Feng Shan, réfléchit un instant avant de secouer la tête. Elle dit doucement: « S'il parvient à achever sa transformation, je le respecterai comme Divin Empereur. S'il échoue, je suivrai les ordres du Senior Frère. »
 
 Les yeux de Ren Tao s'assombrirent et il s'apprêtait à parler quand, soudain, l'intensité des flammes augmenta encore. Un grondement plus puissant résonna alors que le feu fusionnait avec le tonnerre, décuplant leur vitesse!
 
@@ -128,8 +128,8 @@ Ce regard portait également une puissance de tonnerre extrême. Partout où Wan
 
 « Divin Empereur! »
 
-« Divin Empereur!! » Le sentiment unique que ressentaient les membres de la Secte Divin de l'Oiseau Vermillon lors de l'apparition d'un nouveau souverain poussa tous les fidèles à hurler de joie!
+« Divin Empereur!! » Le sentiment unique que ressentaient les membres de la Secte Divine de l'Oiseau Vermillon lors de l'apparition d'un nouveau souverain poussa tous les fidèles à hurler de joie!
 
 Seul Ren Tao réprima la panique qui lui nouait le cœur, son visage devenant plus sombre encore.
 
-C'est à ce moment précis que l'Alliance, Luotian, la Secte des Corps et les diverses forces composées des vestiges de l'Alliance furent toutes alertées!
+C'est à ce moment précis que l'Alliance, Luotian, la Secte des Cadavres et les diverses forces composées des vestiges de l'Alliance furent toutes alertées!

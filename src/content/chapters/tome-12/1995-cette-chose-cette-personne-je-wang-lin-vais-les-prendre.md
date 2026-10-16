@@ -10,7 +10,7 @@ L'expression de Wang Lin était grave. Dissimulé à l'intérieur de la tête, p
 
 Les yeux de Wang Lin s'illuminèrent et son esprit se concentra intensément.
 
-L'Empereur Céleste souleva la tête de l'Ancêtre Céleste de trente mètres de haut. Lorsqu'elle flotta devant lui, il leva soudainement le regard, l'air résolu.
+L'Empereur Céleste souleva la tête de l'Ancêtre Céleste de cent pieds de haut. Lorsqu'elle flotta devant lui, il leva soudainement le regard, l'air résolu.
 
 Sa main gauche s'éleva et sa paume se mua en une lame tranchante. Une lumière dorée jaillit tandis que les veines de son visage gonflaient sous l'effort. Le sang dans son corps sembla bouillir, convergeant vers sa main gauche. Il frappa la tête et, après un fracas assourdissant, une fissure apparut sur le crâne de l'Ancêtre Céleste!
 
@@ -42,7 +42,7 @@ Tandis que Jiu Di approchait, un loup blanc se matérialisa autour de lui, prêt
 
 Ses yeux, baignés de sang, ne reflétaient plus que la folie.
 
-« C'est malheureux! » L'expression de Jiu Di changea et il sel tenta d'interrompre son assaut, mais il était trop tard. L'Empereur Céleste n'avait absolument pas absorbé la fumée dorée. Tout ce qu'il avait fait jusqu'alors n'était qu'une mise en scène; la fumée qu'il prétendait avoir inhalée se répandit en réalité tout autour de lui.
+« C'est malheureux! » L'expression de Jiu Di changea et il tenta d'interrompre son assaut, mais il était trop tard. L'Empereur Céleste n'avait absolument pas absorbé la fumée dorée. Tout ce qu'il avait fait jusqu'alors n'était qu'une mise en scène; la fumée qu'il prétendait avoir inhalée se répandit en réalité tout autour de lui.
 
 L'Empereur Céleste laissa échapper un rire hystérique et son corps gonfla visiblement. Il avait choisi l'autodestruction! Cela dépassait toutes les prévisions. Jiu Di pensait qu'ils n'avaient pas encore poussé l'Empereur Céleste à une telle extrémité!
 
@@ -92,7 +92,7 @@ Wang Lin n'était absolument pas affecté par la malédiction ancestrale. À cet
 
 En voyant Wang Lin, Gémeaux afficha immédiatement une expression de joie pure!
 
-L'Exaltée Empyréenne Hai Zi également: des ondulations parcoururent son regard, traversé par un éclair d'excitation.
+L'Exalté Empyréen Hai Zi également: des ondulations parcoururent son regard, traversé par un éclair d'excitation.
 
 Wang Lin se déplaça avec une rapidité extrême et pénétra dans l'œil gauche en un éclair. C'était précisément le moment où l'Empereur Céleste, assiégé par la malédiction et l'âme brûlante, était sur le point de posséder Lian Daofei.
 

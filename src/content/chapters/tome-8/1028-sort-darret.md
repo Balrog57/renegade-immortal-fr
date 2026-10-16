@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1028 - Stop Spell
 slug: sort-darret
 ---
-L'Ancêtre Saint du Clan des Tatouages remarqua également le léger changement dans le tatouage de l'Oiseau Vermillon de Wang Lin, mais elle n'en eut cure. Elle ne pouvait percevoir l'apparence de Qing Lin, mais elle pouvait clairement le ressentir.
+L'Ancêtre Sainte du Clan du Tatouage remarqua également le léger changement dans le tatouage de l'Oiseau Vermillon de Wang Lin, mais elle n'en eut cure. Elle ne pouvait percevoir l'apparence de Qing Lin, mais elle pouvait clairement le ressentir.
 
 Elle était présente en ce lieu depuis des dizaines de milliers d'années; comment pourrait-elle ignorer le Sens Divin laissé ici au sein du sceau? Son unique but était de la maintenir scellée ici éternellement.
 
@@ -20,7 +20,7 @@ L'énergie originelle de Wang Lin circula rapidement et la chaleur de son Feu Di
 
 « La Paire de la Déchéance du Dao? » Wang Lin regarda le dos de sa main droite. L'apparence féroce de la Paire de la Déchéance du Dao y était tracée.
 
-« Le sort utilisé par l'Ancêtre Saint du Clan des Tatouages ressemble étonnamment à la Paire de la Déchéance du Dao. Bien que la couleur diffère et que l'effet ne soit pas identique. »
+« Le sort utilisé par l'Ancêtre Sainte du Clan du Tatouage ressemble étonnamment à la Paire de la Déchéance du Dao. Bien que la couleur diffère et que l'effet ne soit pas identique. »
 
 L'avatar de Sens Divin de Qing Lin, formé de grains de lumière, regarda froidement la femme et la pointa du doigt!
 
@@ -34,15 +34,15 @@ Il ne fallut que quelques instants pour qu'un cristal brillant, de la taille d'u
 
 À l'instant où le cristal apparut, il libéra un éclat fulgurant. La lumière jaillissait comme des dizaines de milliers d'épées perçant vers l'extérieur, faisant suffoquer l'assistance.
 
-« Quelle méthode de scellement tyrannique. Elle ne consomme pas le moindre fragment de l'avatar de Sens Divin. Au lieu de cela, elle extrait la puissance des lois du sort de l'adversaire pour sceller complètement l'attaque. Même un Frère Aîné ne pourrait accomplir cela si aisément! » Maître du Vide haleta, les pupilles rétractées. Bientôt, une trace d'avidité apparut dans son regard.
+« Quelle méthode de scellement tyrannique. Elle ne consomme pas le moindre fragment de l'avatar de Sens Divin. Au lieu de cela, elle extrait la puissance des lois du sort de l'adversaire pour sceller complètement l'attaque. Même un Senior Frère ne pourrait accomplir cela si aisément! » Maître du Vide haleta, les pupilles rétractées. Bientôt, une trace d'avidité apparut dans son regard.
 
 « Bien que Qing Lin soit très puissant, selon les observations et les informations de l'Alliance, je suis sûr à 90 % qu'il est sur son lit de mort. Si je peux le capturer et le contrôler par une méthode spéciale, alors l'Alliance de Culture n'aura plus aucun ennemi! »
 
-Un grondement tonnerre résonna et l'os de bête trembla tandis que la lumière en perçait la structure. Lorsque la lumière jaillit enfin, l'os se brisa en d'innombrables fragments.
+Un grondement de tonnerre résonna et l'os de bête trembla tandis que la lumière en perçait la structure. Lorsque la lumière jaillit enfin, l'os se brisa en d'innombrables fragments.
 
 Bien qu'il ait semblé s'y passer une éternité, tout cela ne prit qu'un instant. Alors que la lumière vive se propageait, elle provoqua une douleur fulgurante dans les yeux de chacun, les forçant à reculer.
 
-Qing Lin regarda froidement l'Ancêtre Saint du Clan des Tatouages. Il leva une nouvelle fois sa main droite et une rune mystérieuse apparut. La rune siffla dans les airs jusqu'à planer au-dessus de la femme avant de libérer une lumière verte.
+Qing Lin regarda froidement l'Ancêtre Sainte du Clan du Tatouage. Il leva une nouvelle fois sa main droite et une rune mystérieuse apparut. La rune siffla dans les airs jusqu'à planer au-dessus de la femme avant de libérer une lumière verte.
 
 Au moment où la rune apparut, un rugissement jaillit du Vortex Funéraire Céleste que la femme avait partiellement extrait du sol.
 
@@ -52,7 +52,7 @@ Le vortex gigantesque se libéra rapidement du contrôle de la femme. Après un 
 
 L'incroyable quantité d'âmes s'éleva avec le vortex. Leurs regards féroces et leurs cris lugubres donnaient l'impression que les portes de l'enfer s'étaient ouvertes.
 
-Il y avait tout simplement trop d'âmes. Wang Lin n'eut besoin que d'un seul regard pour en avoir le vertige. Il y avait des êtres célestes, des membres du Clan des Tatouages, d'anciens cultivateurs de Qi et même des bêtes que Wang Lin n'avait jamais vues auparavant.
+Il y avait tout simplement trop d'âmes. Wang Lin n'eut besoin que d'un seul regard pour en avoir le vertige. Il y avait des êtres célestes, des membres du Clan du Tatouage, d'anciens cultivateurs de Qi et même des bêtes que Wang Lin n'avait jamais vues auparavant.
 
 Chaque âme dégageait une pression terrifiante. Bien qu'elles fussent mortes depuis longtemps, cette pression prouvait que chacune de ces âmes était extrêmement puissante de son vivant!
 

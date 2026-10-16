@@ -42,13 +42,13 @@ Une lumière dorée émana du cercle formé par sa main. Cette lumière sembla e
 
 Les perles dorées au poignet de Tang Shan brillèrent et sept portes dorées apparurent pour résister à la lumière aux sept couleurs. Des grondements tonitruants retentirent alors que du sang s'écoulait du coin de sa bouche, et elle battit en retraite rapidement.
 
-« Même blessé, tu oses m'attaquer par surprise?! » Le Souverain s'avança, mais à cet instant, la main de Wang Lin saisit le vide. Il utilisa le Sort Briseur de Ciel, et la faille reliant le ciel et la terre réapparut. Elle chargea vers le Souverain!
+« Même blessé, tu oses m'attaquer par surprise?! » Le Souverain s'avança, mais à cet instant, la main de Wang Lin saisit le vide. Il utilisa le Déchirure du Ciel, et la faille reliant le ciel et la terre réapparut. Elle chargea vers le Souverain!
 
 Tout cela se produisit en un éclair. Au moment même où le Souverain tentait de contrer les attaques de Tang Shan et de Yun Yifeng, la faille se rapprocha.
 
-Le Souverain pouvait ignorer l'injured Yun Yifeng et la troisième concubine, mais il ne pouvait ignorer le sort de Wang Lin. La puissance du Sort Briseur de Ciel était terrifiante. Les pupilles du Souverain se rétractèrent et les cercles formés par ses mains firent face à Wang Lin. Sa puissance, forgée au travers de plusieurs Tribulations Arcane, éclata soudainement.
+Le Souverain pouvait ignorer Yun Yifeng blessé et la troisième concubine, mais il ne pouvait ignorer le sort de Wang Lin. La puissance du Déchirure du Ciel était terrifiante. Les pupilles du Souverain se rétractèrent et les cercles formés par ses mains firent face à Wang Lin. Sa puissance, forgée au travers de plusieurs Tribulations Arcane, éclata soudainement.
 
-« Trois Dao Souverains Destructeurs! Premier Dao de Destruction de l'Esprit! » Le cercle doré devant le Souverain brilla et percuta le Sort Briseur de Ciel.
+« Trois Dao Souverains Destructeurs! Premier Dao de Destruction de l'Esprit! » Le cercle doré devant le Souverain brilla et percuta le Déchirure du Ciel.
 
 « Deuxième Dao de Destruction du Fantôme! » La robe du Souverain s'étendit et un soleil apparut devant lui. La loi d'origine se propagea depuis son corps, lui donnant l'apparence d'un dieu céleste!
 
@@ -56,9 +56,9 @@ Le Souverain pouvait ignorer l'injured Yun Yifeng et la troisième concubine, ma
 
 Des grondements tonitruants secouèrent l'air lorsque la lumière dorée infinie des cercles toucha la faille. Les cercles s'effondrèrent soudainement, puis le soleil derrière lui vola vers la brèche.
 
-Simultanément, l'empreinte dorée fonça en avant. Dans un fracas de tonnerre, le Sort Briseur de Ciel de Wang Lin se brisa.
+Simultanément, l'empreinte dorée fonça en avant. Dans un fracas de tonnerre, le Déchirure du Ciel de Wang Lin se brisa.
 
-Cependant, le soleil se dissipa également face au Sort Briseur de Ciel. Seule l'empreinte dorée parvint à tout percer pour s'abattre sur Wang Lin.
+Cependant, le soleil se dissipa également face au Déchirure du Ciel. Seule l'empreinte dorée parvint à tout percer pour s'abattre sur Wang Lin.
 
 « Sans l'Arc Li Guang, je veux voir comment tu vas me résister! » Le Souverain, la respiration saccadée, chargea Wang Lin.
 

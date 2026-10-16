@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1429 - Fishing the Moon in the Well!"
 slug: pecher-la-lune-dans-le-puits
 ---
-Dans les terres sacrées du Clan de l'Oiseau Vermillon, Liu Jinbiao était entravé par d'innombrables filaments, poussant des cris plaintifs. Xu Liguo, terrifié, ne cessait d'appeler Wang Lin.
+Dans les terres sacrées du Clan des Moineaux de Feu, Liu Jinbiao était entravé par d'innombrables filaments, poussant des cris plaintifs. Xu Liguo, terrifié, ne cessait d'appeler Wang Lin.
 
 La silhouette à l'intérieur de la flamme aux sept couleurs ne s'arrêta pas pour Xu Liguo et ne prononça qu'un seul mot:
 
@@ -36,7 +36,7 @@ La silhouette au cœur des flammes ne tenta pas d'arrêter Wang Lin.
 
 « C'est exact! » Une lueur d'intention meurtrière jaillit des yeux de Wang Lin alors que son visage se durcissait. Il fit un pas en avant et chargea la flamme aux sept couleurs. Le feu aux neuf couleurs de son œil gauche jaillit, formant un brasier éthéré qui bombarda les flammes septicolores.
 
-Dans son œil droit, la foudre éclata tandis que le tatouage de tonnerre apparaissait. Les neuf éclairs accompagnateurs se métamorphosèrent en neuf anciens dragons de tonnerre. Une légère fissure apparut sur l'essence du tonnerre, ouvrant un passage vers le Royaume de l'Ancien Tonnerre!
+Dans son œil droit, la foudre éclata tandis que le tatouage de tonnerre apparaissait. Les neuf éclairs accompagnateurs se métamorphosèrent en neuf anciens dragons de tonnerre. Une légère fissure apparut sur l'essence du tonnerre, ouvrant un passage vers le Royaume du Tonnerre Ancien!
 
 Sa main gauche traça un sceau et pointa vers le ciel. Instantanément, un parfum d'herbe fraîche emplit le monde. Les fantômes d'innombrables arbres surgirent et l'esprit de la forêt antique se redressa. Il poussa un rugissement et bondit sur la flamme aux sept couleurs.
 
@@ -48,7 +48,7 @@ Tout se déroula en un éclair, avec une rapidité dépassant l'imagination. En 
 
 La silhouette au cœur des flammes rit, un rire empreint de désolation.
 
-« Ton jugement est juste, ce seigneur est gravement blessé et n'a pas guéri. Cependant, tu as apporté la Perle de la Transgression Céleste, m'offrant l'espoir de me rétablir! » La silhouette leva sa main droite, mais son bras semblait flou; on pouvait néanmoins distinguer qu'il était recouvert d'une armure.
+« Ton jugement est juste, ce seigneur est gravement blessé et n'a pas guéri. Cependant, tu as apporté la Perle Défiant le Ciel, m'offrant l'espoir de me rétablir! » La silhouette leva sa main droite, mais son bras semblait flou; on pouvait néanmoins distinguer qu'il était recouvert d'une armure.
 
 « Ce seigneur a cultivé pendant une éternité, et beaucoup me haïssent, mais aucun n'a réussi à me tuer. Au contraire, ils ont tous été terrassés par moi... Tu es excellent, mais tu n'es pas qualifié... Ce seigneur n'utilisera qu'un seul sort! »
 
@@ -116,7 +116,7 @@ Le monde trembla et, au moment où les paroles de Wang Lin résonnèrent, l'homm
 
 « Ce vieil homme t'a effectivement sous-estimé. Tu as tout préparé avant de venir ici. Tu as remplacé ton corps originel par une âme démoniaque... Bien, très bien! »
 
-Wang Lin resta silencieux. Avant de venir, il s'était fusionné avec l'âme de l'Omniscient et avait pratiqué la divination frénétiquement. Tout comme lors de son combat contre le Daoïste Water, il avait entrevu une vision floue.
+Wang Lin resta silencieux. Avant de venir, il s'était fusionné avec l'âme de l'Omniscient et avait pratiqué la divination frénétiquement. Tout comme lors de son combat contre le Shui Daozi, il avait entrevu une vision floue.
 
 Cette scène était une crise de vie ou de mort impliquant l'âme!
 

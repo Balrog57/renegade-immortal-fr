@@ -140,7 +140,7 @@ Durant ces plusieurs dizaines d'années, les Royaumes Intérieur et Extérieur s
 
 La barrière que Qing Lin avait érigée en empruntant la puissance de l'Ancien Royaume Céleste s'était effondrée il y a plus de 30 ans. D'innombrables cultivateurs du Royaume Extérieur s'étaient précipités, et la bataille faisait rage sans relâche. Les deux camps subissaient de lourdes pertes et le ciel était saturé de sang. L'odeur de la mort était d'une densité inimaginable et les quatre grands systèmes stellaires étaient devenus un véritable enfer.
 
-Alors que la situation devenait de plus en plus désespérée, les cultivateurs du troisième niveau du Royaume Intérieur abandonnèrent la Rivière des Invocations et la Mer Nuageuse. Ils concentrèrent leurs forces à Luotian et dans le Vide Brillant pour leur ultime lutte.
+Alors que la situation devenait de plus en plus désespérée, les cultivateurs du troisième niveau du Royaume Intérieur abandonnèrent la Rivière Invoquée et la Mer des Nuages. Ils concentrèrent leurs forces à Luotian et dans le Vide Brillant pour leur ultime lutte.
 
 Alors que l'agonie s'accentuait, la rumeur de la mort du Seigneur du Royaume Scellé s'enracina. Bien que Qing Shui se soit transformé en Wang Lin, il avait été gravement blessé par le Maître Céleste Dieu du Vide et avait failli mourir il y a plus de 10 ans.
 

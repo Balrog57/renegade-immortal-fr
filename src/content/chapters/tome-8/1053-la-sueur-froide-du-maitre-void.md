@@ -14,7 +14,7 @@ Au moment où retentit un rire strident, Wang Lin aperçut une silhouette chauve
 
 « Tu as réussi à arriver jusqu'ici! » Une lueur étrange passa dans le regard de Bei Lou.
 
-Un éclair de froideur traversa les yeux de Wang Wei. Il laissa échapper un grognement glacial et fit un pas en avant. Sa main droite forma un sceau, et instantanément, une ride d'eau apparut et se projeta vers Bei Lou.
+Un éclair de froideur traversa les yeux de Wang Wei. Il laissa échapper un grognement glacial et fit un pas en avant. Sa main droite forma un sceau, et instantanément, un rideau de pluie apparut et se projeta vers Bei Lou.
 
 Hu Juan entra dans la restriction sur le côté et mordit la pointe de son doigt droit. Elle traça alors rapidement une rune étrange dans l'air. Dès son apparition, la rune émit des ondes de lumière fantomatique.
 
@@ -34,7 +34,7 @@ Ils avaient livré une bataille acharnée, mais aucune des deux parties n'avait 
 
 Il n'était pas venu ici pour poursuivre le combat, mais pour s'allier.
 
-Les yeux de Hu Juan s'illuminèrent et elle regarda Wang Wei. Tandis que Wang Wei fixait Bei Lou, la froideur dans son regard disparut lentement. Il agita la main pour dissiper la ride d'eau avant de dire calmement: « D'accord! »
+Les yeux de Hu Juan s'illuminèrent et elle regarda Wang Wei. Tandis que Wang Wei fixait Bei Lou, la froideur dans son regard disparut lentement. Il agita la main pour dissiper le rideau de pluie avant de dire calmement: « D'accord! »
 
 Bei Lou se détendit légèrement et atterrit au sol, tout en maintenant une certaine distance avec le couple. Son regard se posa sur Wang Lin et il rit: « Petit frère Wang, ton niveau de culture s'est étonnamment encore amélioré. Cependant, si tu ne guéris pas cette blessure rapidement, elle affectera ta culture à l'avenir. Peu importe, ce démon n'a pu venir ici que grâce à toi; je ne pense pas que quiconque d'autre m'aurait laissé entrer. »
 
@@ -62,7 +62,7 @@ Bientôt, le brouillard sombre apparut devant eux. Bei Lou le regarda avec haine
 
 « Cependant, ce n'est pas une mauvaise chose. Comment Qing Lin aurait-il pu être si facile à vaincre? Ta Jia n'a certainement pas réussi, sinon il aurait quitté cet endroit depuis longtemps. »
 
-Après avoir pénétré dans le palais, Wang Lin vit immédiatement une stèle de pierre au sol. Elle mesurait environ six mètres de haut et ne portait qu'une seule empreinte de main.
+Après avoir pénétré dans le palais, Wang Lin vit immédiatement une stèle de pierre au sol. Elle mesurait environ vingt pieds de haut et ne portait qu'une seule empreinte de main.
 
 Wang Wei regarda Bei Lou et dit: « Les trois derniers étages sont les quartiers privés de Maître. J'ignore si ces lieux ont changé. Pour maximiser nos chances, nous devrions attendre que d'autres personnes arrivent! Wang Lin, prends le temps de te soigner pour avoir la force de te protéger. »
 

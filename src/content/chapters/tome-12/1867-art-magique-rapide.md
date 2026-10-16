@@ -72,7 +72,7 @@ Mais Wang Lin se rétablit vite, ses yeux brillant d'une lueur étrange mêlée 
 
 « Une âme fantôme est apparue! » Ayant cultivé le sort d'illusion multicouche, Wang Lin comprenait parfaitement la nature des âmes fantômes et leur création. Cela n'avait rien à voir avec la culture et c'était extrêmement rare!
 
-La seule façon d'en créer une était via la méthode du Grand Secte des Âmes, mais la qualité restait médiocre. Au mieux, on ne pouvait produire que des Voiles Fantômes de qualité moyenne.
+La seule façon d'en créer une était via la méthode de la Secte de la Grande Âme, mais la qualité restait médiocre. Au mieux, on ne pouvait produire que des Voiles Fantômes de qualité moyenne.
 
 Il comprit qu'un mort ou une bête capable de former sa propre âme fantôme représentait une fortune inestimable pour un cultivateur du sort d'illusion multicouche!
 
@@ -106,7 +106,7 @@ Plusieurs jours s'étaient écoulés, mais une intention meurtrière intense ré
 
 Dans la brume, les cultivateurs ordinaires étaient presque devenus fous, les yeux injectés de sang, lançant divers sorts de toutes parts. Deux cultivateurs du stade intermédiaire de la Tribulation du Vide se défendaient contre l'attaque combinée de Lu Wenran et de plusieurs cultivateurs du stade initial de la Tribulation du Vide.
 
-Non loin de là, les deux dernières femmes du stade initial de la Tribulation du Vide du Continent du Démon Vert affrontaient les Anciens Yan Lu et Xu Dongde du Grand Secte des Âmes.
+Non loin de là, les deux dernières femmes du stade initial de la Tribulation du Vide du Continent du Démon Vert affrontaient les Anciens Yan Lu et Xu Dongde de la Secte de la Grande Âme.
 
 La puissance du Continent du Démon Vert avait été considérablement affaiblie par la perte de ses deux cultivateurs de stade initial. La pression sur les deux vieux monstres du stade intermédiaire devenait de plus en plus lourde, car ils devaient faire face à un nombre croissant d'adversaires.
 

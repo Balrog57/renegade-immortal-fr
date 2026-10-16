@@ -1,40 +1,40 @@
 ---
 n: 1964
-title: "Numéro Un sous les Grands Empereurs Célestes!"
+title: "Numéro Un sous les Grands Empyréens!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1964 - Number One Under the Grand Empyreans!"
 slug: numero-un-sous-les-grands-empereurs-celestes
 ---
-Alors qu'ils se trouvaient devant le 17e palais, Wang Lin dit lentement: « Ascendant Empereur Ming Dao, attends-moi à l'extérieur. Ne t'en va pas avant que je ne sois sorti. »
+Alors qu'ils se trouvaient devant le 17e palais, Wang Lin dit lentement: « Ascendant Empyréen Ming Dao, attends-moi à l'extérieur. Ne t'en va pas avant que je ne sois sorti. »
 
-Ses paroles étaient d'une cruauté extrême. Non seulement il avait souligné que l'Ascendant Empereur Ming Dao ne pourrait pas franchir ce palais, mais il lui avait également coupé toute voie de fuite. Si Ming Dao échouait et partait, cela laisserait un démon intérieur dans son cœur!
+Ses paroles étaient d'une cruauté extrême. Non seulement il avait souligné que l'Ascendant Empyréen Ming Dao ne pourrait pas franchir ce palais, mais il lui avait également coupé toute voie de fuite. Si Ming Dao échouait et partait, cela laisserait un démon intérieur dans son cœur!
 
 Mais s'il partait réellement pour attendre, bien qu'il n'y aurait pas de démon intérieur, il subirait un coup terrible si Wang Lin réussissait véritablement. Ce choc serait l'équivalent d'un arc qui se brise!
 
 Après ces paroles, les deux disparurent dans le 17e palais.
 
-Les Empereurs Célestes ne purent entendre cela, et les Ascendants étaient trop loin pour l'entendre clairement, mais les trois Grands Empereurs Célestes, eux, l'entendirent distinctement!
+Les Exaltés Empyréens ne purent entendre cela, et les Ascendants étaient trop loin pour l'entendre clairement, mais les trois Grands Empyréens, eux, l'entendirent distinctement!
 
-Les yeux du Grand Empereur Céleste Dao Yi se rétrécirent comme si c'était la première fois qu'il rencontrait Wang Lin. Il regarda le 17e palais avec une expression sérieuse.
+Les yeux du Grand Empyréen Dao Yi se rétrécirent comme si c'était la première fois qu'il rencontrait Wang Lin. Il regarda le 17e palais avec une expression sérieuse.
 
 « Ce Wang Lin est très rusé! »
 
-Les yeux du Grand Empereur Céleste Wu Feng s'illuminèrent également alors qu'il contemplait le ciel, et un sourire se dessina progressivement sur son visage.
+Les yeux du Grand Empyréen Wu Feng s'illuminèrent également alors qu'il contemplait le ciel, et un sourire se dessina progressivement sur son visage.
 
-« On dirait qu'il est déterminé à briser l'Ascendant Empereur Ming Dao! »
+« On dirait qu'il est déterminé à briser l'Ascendant Empyréen Ming Dao! »
 
-Quant à l'Empereur Céleste, son expression était extrêmement sombre. D'un revers de manche, il fit mine de ne plus vouloir regarder. Son ombre autour de l'Ascendant disparut progressivement et il quitta l'Épreuve Céleste.
+Quant à l'Empereur Céleste, son expression était extrêmement sombre. D'un revers de manche, il fit mine de ne plus vouloir regarder. Son ombre autour de l'Ascendant disparut progressivement et il quitta l'Épreuve Empyrée.
 
 Dans le palais impérial de la capitale, un rire glacial résonna!
 
-Au même moment, au Continent Central, le Grand Empereur Céleste Jiu Di se redressa, contemplant une feuille d'automne avec une expression solennelle. Ses yeux brillaient d'une lueur étrange.
+Au même moment, au Continent Central, le Grand Empyréen Jiu Di se redressa, contemplant une feuille d'automne avec une expression solennelle. Ses yeux brillaient d'une lueur étrange.
 
 « Quel personnage! Non seulement son éveil du Dao est élevé et sa puissance de combat extraordinaire, mais il est aussi très rusé... Bien, bien, cet enfant n'est pas sans valeur; c'est une pousse encore plus prometteuse que Ming Dao... »
 
-Dans l'Épreuve Céleste, trois respirations après l'entrée de Wang Lin et Ming Dao dans le 17e palais, une silhouette projetée hors du palais cracha un brouillard de sang.
+Dans l'Épreuve Empyrée, trois respirations après l'entrée de Wang Lin et Ming Dao dans le 17e palais, une silhouette projetée hors du palais cracha un brouillard de sang.
 
-Cette silhouette fut repoussée sur des milliers de pieds avant de s'arrêter. Il s'agissait de l'Ascendant Empereur Ming Dao, vêtu de noir. Son visage était pâle et, une fois immobilisé, il recracha une autre bouchée de sang. Son corps tremblait, incapable de rester stable.
+Cette silhouette fut repoussée sur des milliers de pieds avant de s'arrêter. Il s'agissait de l'Ascendant Empyréen Ming Dao, vêtu de noir. Son visage était pâle et, une fois immobilisé, il recracha une autre bouchée de sang. Son corps tremblait, incapable de rester stable.
 
 La lumière dans ses yeux s'était éteinte, comme s'il avait perdu toute vitalité. Il fixa le 17e palais situé à quelques milliers de pieds de lui et resta silencieux.
 
@@ -44,7 +44,7 @@ Dès son entrée, il avait échoué et avait été gravement blessé lorsqu'il f
 
 Le temps passa. La quatrième respiration, la cinquième, la sixième... Jusqu'à ce qu'une demi-heure s'écoule.
 
-L'Ascendant Empereur Ming Dao endura tout cela, les yeux fixés sur le 17e palais. Il attendait que Wang Lin soit lui aussi expulsé.
+L'Ascendant Empyréen Ming Dao endura tout cela, les yeux fixés sur le 17e palais. Il attendait que Wang Lin soit lui aussi expulsé.
 
 Plus le temps passait, plus son attente grandissait. Finalement, cette attente atteignit un paroxysme pour devenir sa seule foi!
 
@@ -62,27 +62,27 @@ Son fragile espoir était la dernière barrière de sa fierté. Si celle-ci se b
 
 Le temps s'étirait trop. Les cultivateurs silencieux en contrebas étaient stupéfaits et commençaient à spéculer.
 
-Le Grand Empereur Céleste Dao Yi fronça également les sourcils. Il regarda le 17e palais, l'hésitation envahissant son cœur. Au cours de cette courte journée, il avait changé d'avis plusieurs fois. Ce genre de doute ne devrait pas l'affecter, et pourtant c'était le cas.
+Le Grand Empyréen Dao Yi fronça également les sourcils. Il regarda le 17e palais, l'hésitation envahissant son cœur. Au cours de cette courte journée, il avait changé d'avis plusieurs fois. Ce genre de doute ne devrait pas l'affecter, et pourtant c'était le cas.
 
-« L'Épreuve Céleste ne compte que 19 palais et il a déjà franchi le 16e. Même s'il n'atteint pas le 17e, cela suffit à démontrer sa puissance... Mais s'il passe le 17e, alors... je crains que même le Grand Empereur Céleste Jiu Di ne vienne se disputer son ralliement! »
+« L'Épreuve Empyrée ne compte que 19 palais et il a déjà franchi le 16e. Même s'il n'atteint pas le 17e, cela suffit à démontrer sa puissance... Mais s'il passe le 17e, alors... je crains que même le Grand Empyréen Jiu Di ne vienne se disputer son ralliement! »
 
 « Des êtres comme lui n'apparaissent qu'une fois tous les dizaines de milliers d'années! De plus, cet Ascendant Ming Dao a subi des coups successifs de la part de Wang Lin. S'il peut se relever, tant mieux, mais s'il échoue... son cœur du Dao sera anéanti. »
 
-Le Grand Empereur Céleste Wu Feng affichait également une expression complexe en observant le 17e palais, mais contrairement à Dao Yi, il gardait une certaine confiance.
+Le Grand Empyréen Wu Feng affichait également une expression complexe en observant le 17e palais, mais contrairement à Dao Yi, il gardait une certaine confiance.
 
 « Je l'ai aidé auparavant. Cette aide peut être jugée mineure ou non, mais même lorsqu'il était opprimé, je lui ai tendu la main... Par conséquent, il me choisira certainement! »
 
 « Ce Dao Yi hésite. C'est lié à sa personnalité. Ce genre de tempérament n'attire que les faibles. Les êtres dotés d'une véritable force ont leur propre fierté; à moins que nous ne fassions preuve de noblesse, comment accepteraient-ils de nous suivre? »
 
-« Cependant, si ce Wang Lin franchit réellement le 17e palais, il sera très difficile pour moi de le recruter... S'il n'y a pas d'imprévu, il aura 80 % de chances de devenir un Grand Empereur Céleste à l'avenir! »
+« Cependant, si ce Wang Lin franchit réellement le 17e palais, il sera très difficile pour moi de le recruter... S'il n'y a pas d'imprévu, il aura 80 % de chances de devenir un Grand Empyréen à l'avenir! »
 
 Dans la capitale impériale, le palais était plongé dans un silence de mort, enveloppé d'une pression écrasante chargée d'une colère infinie. Sur le trône du dragon, l'Empereur Céleste observait l'Ascendant Ming Dao au visage livide. Une lueur étrange brillait dans ses yeux.
 
-« J'aurais dû écouter le Maître Impérial et tuer ce Wang Lin! Mais j'ai pensé qu'avec mon statut de Grand Empereur, que j'agisse moi-même ou par procuration, je ne devais pas faire d'une petite affaire un problème majeur... Je lui ai laissé l'opportunité de grandir, pensant que tout était sous mon contrôle! »
+« J'aurais dû écouter le Maître Impérial et tuer ce Wang Lin! Mais j'ai pensé qu'avec mon statut de Grand Empyréen, que j'agisse moi-même ou par procuration, je ne devais pas faire d'une petite affaire un problème majeur... Je lui ai laissé l'opportunité de grandir, pensant que tout était sous mon contrôle! »
 
 « Peu importe sa progression, une fois qu'il arrivera dans la capitale impériale, je trouverai un prétexte pour le capturer et le livrer au Maître Impérial. »
 
-« Mais je ne m'attendais pas à ce qu'il atteigne un tel niveau, capable d'attirer l'attention des autres Grands Empereurs... Il a même dû détruire Ming Dao, que j'ai recruté à grand prix... » L'Empereur Céleste murmurait seul face à l'illusion, mais ses lèvres esquissaient un léger sourire en contradiction avec ses paroles.
+« Mais je ne m'attendais pas à ce qu'il atteigne un tel niveau, capable d'attirer l'attention des autres Grands Empyréens... Il a même dû détruire Ming Dao, que j'ai recruté à grand prix... » L'Empereur Céleste murmurait seul face à l'illusion, mais ses lèvres esquissaient un léger sourire en contradiction avec ses paroles.
 
 « S'il passe le 17e palais, il attirera sans aucun doute l'attention de ce vieux Jiu Di. Une fois qu'il sera recruté par lui... » L'Empereur Céleste ferma les yeux.
 
@@ -92,13 +92,13 @@ Dans la capitale impériale, le palais était plongé dans un silence de mort, e
 
 « Ming Dao, tu ne peux pas décevoir cet Empereur. Ce Roi a tant fait pour toi... Il a même permis à ce Wang Lin de grandir... »
 
-Continent Central, Montagne de l'Empereur. Jiu Di contemplait intensément la feuille d'automne devant lui. En réfléchissant, il perçut un problème que les autres Grands Empereurs semblaient ignorer.
+Continent Central, Montagne de l'Empereur. Jiu Di contemplait intensément la feuille d'automne devant lui. En réfléchissant, il perçut un problème que les autres Grands Empyréens semblaient ignorer.
 
-« S'il franchit le 17e palais, non seulement il sera célèbre, mais surtout... sa puissance de combat sera révélée. Avec une telle force, il deviendra numéro un des Ascendants sous les Grands Empereurs du clan céleste... Même si un Grand Empereur s'acharne contre lui, il pourrait réussir à s'échapper... »
+« S'il franchit le 17e palais, non seulement il sera célèbre, mais surtout... sa puissance de combat sera révélée. Avec une telle force, il deviendra numéro un des Ascendants sous les Grands Empyréens du clan céleste... Même si un Grand Empyréen s'acharne contre lui, il pourrait réussir à s'échapper... »
 
 « Combien coûterait le recrutement d'un tel être? Je préférerais qu'il ne passe pas ce 17e palais. » Jiu Di médita et, pour la première fois, regarda la feuille avec une expression complexe.
 
-Dans l'Épreuve Céleste, alors que tous les regards étaient rivés sur le 17e palais, certains attendaient avec impatience tandis que d'autres espéraient l'échec de Wang Lin après le passage d'une autre baguette d'encens.
+Dans l'Épreuve Empyrée, alors que tous les regards étaient rivés sur le 17e palais, certains attendaient avec impatience tandis que d'autres espéraient l'échec de Wang Lin après le passage d'une autre baguette d'encens.
 
 Après ce long silence sans aucun changement, le visage de Ming Dao n'était plus pâle; il était empreint d'espoir et de confiance. Cependant, juste au moment où son espoir atteignait son apogée et qu'il s'apprêtait à reprendre force, tout son corps trembla violemment, comme s'il avait été frappé par la foudre.
 
@@ -110,7 +110,7 @@ Wang Lin sortit sans même accorder un regard à l'Ascendant Ming Dao. Sous les 
 
 Une indifférence totale!
 
-Il ne tenta pas le 18e palais mais descendit les marches une à une. Il s'arrêta devant les Grands Empereurs Dao Yi et Wu Feng pour leur faire une révérence respectueuse. Après avoir salué Wu Feng du regard, il vola vers l'ancien réseau de transfert pour partir.
+Il ne tenta pas le 18e palais mais descendit les marches une à une. Il s'arrêta devant les Grands Empyréens Dao Yi et Wu Feng pour leur faire une révérence respectueuse. Après avoir salué Wu Feng du regard, il vola vers l'ancien réseau de transfert pour partir.
 
 En partant, il croisa le regard de Hai Zi dans la foule, lui adressa un sourire et hocha la tête.
 
@@ -120,12 +120,12 @@ Alors que l'essence se dissipait, Ming Dao semblait avoir perdu toute vie. Sa fi
 
 Son Dao avait été impitoyablement anéanti par Wang Lin. Il repartit en silence, arborant un sourire misérable.
 
-Mais à cet instant, personne ne se soucia de l'Ascendant Ming Dao. Dès le départ de Wang Lin, un tumulte sans précédent secoua l'Épreuve Céleste!
+Mais à cet instant, personne ne se soucia de l'Ascendant Ming Dao. Dès le départ de Wang Lin, un tumulte sans précédent secoua l'Épreuve Empyrée!
 
-« Numéro Un sous les Grands Empereurs! Wang Lin! »
+« Numéro Un sous les Grands Empyréens! Wang Lin! »
 
 « Aujourd'hui, la hiérarchie des Ascendants a changé. Ce Wang Lin a stupéfié le monde en un instant! »
 
-« Désormais, notre clan céleste compte un nouveau cultivateur suprême! Le premier des Ascendants, le plus puissant sous les Grands Empereurs! »
+« Désormais, notre clan céleste compte un nouveau cultivateur suprême! Le premier des Ascendants, le plus puissant sous les Grands Empyréens! »
 
-« Il peut même être considéré comme le sixième soleil de notre clan céleste! Le cultivateur le plus apte à devenir un Grand Empereur! »
+« Il peut même être considéré comme le sixième soleil de notre clan céleste! Le cultivateur le plus apte à devenir un Grand Empyréen! »

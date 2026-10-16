@@ -18,7 +18,7 @@ Quant au prince, pour la seule raison qu'il ne s'était pas agenouillé, il s'ap
 
 Une telle situation ne pouvait survenir que lorsque le pouvoir impérial avait atteint un paroxysme extrême. Plus important encore, tous ceux qui étaient agenouillés regardaient le prince avec une révérence et une exaltation sincères. C'était comme s'ils étaient prêts à tout exécuter sur ordre du prince, fût-ce se donner la mort.
 
-« Si l'Shi Antique est ainsi, alors l'Dao Antique doit l'être aussi... Peut-être ne suis-je pas fait pour cet endroit... » Wang Lin réfléchit silencieusement et fit un pas en avant. Lorsqu'il entama son troisième pas, les griffes du démon ancien se refermèrent sur lui. Tout le monde vit les griffes de la créature percuter la silhouette de Wang Lin!
+« Si le Shi Antique est ainsi, alors le Dao Antique doit l'être aussi... Peut-être ne suis-je pas fait pour cet endroit... » Wang Lin réfléchit silencieusement et fit un pas en avant. Lorsqu'il entama son troisième pas, les griffes du démon ancien se refermèrent sur lui. Tout le monde vit les griffes de la créature percuter la silhouette de Wang Lin!
 
 On aurait dit que Wang Lin avait été pris au piège!
 
@@ -28,7 +28,7 @@ Leurs yeux semblaient condenser une seule pensée:
 
 « Quiconque manque de respect au pouvoir impérial doit mourir... » La voix de Wang Lin résonna dans le monde. Les griffes du démon ancien, qui semblaient avoir percuté son corps, devinrent transparentes et il traversa l'attaque avec calme.
 
-Ou plutôt, on pourrait dire que Wang Lin était devenu transparent, les griffes n'ayant rien saisi. Un grondement sourd retentit alors que Wang Lin marchait vers le diable ancien sur lequel se tenaient les ambassadeurs de l'Dao Antique.
+Ou plutôt, on pourrait dire que Wang Lin était devenu transparent, les griffes n'ayant rien saisi. Un grondement sourd retentit alors que Wang Lin marchait vers le diable ancien sur lequel se tenaient les ambassadeurs du Dao Antique.
 
 Voyant qu'il n'avait rien capturé, la folie dans les yeux du démon ancien devint plus intense encore. Sa main droite s'élança vers le dos de Wang Lin, mais les yeux du prince se plissèrent. Il fixa Wang Lin avec une expression grave.
 
@@ -40,9 +40,9 @@ Cependant, le cœur de Kong Shi était en plein chaos. Au moment où Wang Lin é
 
 « Il... Qui est-il?! »
 
-Le jeune homme en noir fut le plus choqué. C'était un Seigneur Démon et il pensait avoir percé à jour Wang Lin. Pourtant, après avoir vu Wang Lin sortir si calmement de l'emprise des griffes, il prit une profonde inspiration, ses yeux brillant d'une intention de combat.
+Le jeune homme en noir fut le plus choqué. C'était un Seigneur Diable et il pensait avoir percé à jour Wang Lin. Pourtant, après avoir vu Wang Lin sortir si calmement de l'emprise des griffes, il prit une profonde inspiration, ses yeux brillant d'une intention de combat.
 
-Les sept personnes sur le diable ancien étaient venues de l'Dao Antique sur ordre de l'Empereur de l'Dao Antique. En voyant Wang Lin refuser de s'agenouiller, ils pensaient assister à un divertissement. Bien qu'ils fussent surpris par sa survie, ils n'y accordèrent pas d'importance; après tout, il ne s'agissait que d'une affaire interne au clan Antique qui ne les concernait pas.
+Les sept personnes sur le diable ancien étaient venues du Dao Antique sur ordre de l'Empereur du Dao Antique. En voyant Wang Lin refuser de s'agenouiller, ils pensaient assister à un divertissement. Bien qu'ils fussent surpris par sa survie, ils n'y accordèrent pas d'importance; après tout, il ne s'agissait que d'une affaire interne au clan Antique qui ne les concernait pas.
 
 Toutefois, lorsqu'ils virent Wang Lin marcher vers eux, ils furent perplexes.
 
@@ -58,7 +58,7 @@ Face à cette scène, l'assistance haleta de stupeur et d'horreur. L'intention d
 
 L'homme massif en armure dorée frissonna également. Il repensa à ses menaces de tuer Wang Lin et ne s'était jamais attendu à ce que celui-ci terrifie un démon ancien par un simple regard.
 
-Le prince et la femme à ses côtés s'élevèrent dans les airs, observant la scène avec effroi. Le prince connaissait parfaitement la puissance de ce démon ancien: il pouvait même combattre un Exalté Céleste au sein du clan céleste!
+Le prince et la femme à ses côtés s'élevèrent dans les airs, observant la scène avec effroi. Le prince connaissait parfaitement la puissance de ce démon ancien: il pouvait même combattre un Exalté Empyréen au sein du clan céleste!
 
 Pourtant, ce puissant démon était désormais terrifié à ce point. Cela prouvait que cet homme qui n'avait pas cédé possédait une force terrifiante.
 
@@ -78,7 +78,7 @@ Un total de 27 étoiles! Ces 27 étoiles émettaient une lueur spectrale, et tro
 
 Ces trois ombres restèrent là, fixant intensément Wang Lin qui avançait.
 
-« Quels que soient tes griefs envers l'Shi Antique, cela ne concerne pas notre Dao Antique! » Le vieil homme ressentait une amertume profonde. Il ignorait pourquoi Wang Lin marchait vers eux.
+« Quels que soient tes griefs envers le Shi Antique, cela ne concerne pas notre Dao Antique! » Le vieil homme ressentait une amertume profonde. Il ignorait pourquoi Wang Lin marchait vers eux.
 
 « Le groupe de trois de Liang Yun possède une culture équivalente au Vide Arcanique. Peut-être que la différence de lignée crée des disparités. Quant à ce vieil homme aux 27 étoiles, sa culture équivaut au niveau du Tribulant du Vide. »
 
@@ -92,11 +92,11 @@ Ces trois ombres restèrent là, fixant intensément Wang Lin qui avançait.
 
 Si le plus fort avait réagi ainsi, il n'était même pas nécessaire de mentionner les six autres qui reculèrent tous, le visage pâle.
 
-« Êtes-vous tous venus de la cité impériale de l'Dao Antique? » demanda Wang Lin d'un ton calme. Il dégageait l'aura d'un grand maître, exerçant une pression invisible qui asséchait la bouche du vieil homme et faisait accélérer son rythme cardiaque. Il n'avait ressenti cela que face à l'Empereur Antique, mais ce qui causait cette sensation était l'héritage de l'Empereur lui-même.
+« Êtes-vous tous venus de la cité impériale du Dao Antique? » demanda Wang Lin d'un ton calme. Il dégageait l'aura d'un grand maître, exerçant une pression invisible qui asséchait la bouche du vieil homme et faisait accélérer son rythme cardiaque. Il n'avait ressenti cela que face à l'Empereur Antique, mais ce qui causait cette sensation était l'héritage de l'Empereur lui-même.
 
 L'homme devant lui répondit par sa propre force!
 
-« Oui... L'Empereur Antique m'a donné le nom de Ye Hai, et c'est mon sixième voyage au sein de l'Shi Antique pour aider l'Empereur à trouver une concubine. » Le vieil homme prit une profonde inspiration et cessa de lutter contre la pression de Wang Lin, affichant plutôt un profond respect.
+« Oui... L'Empereur Antique m'a donné le nom de Ye Hai, et c'est mon sixième voyage au sein du Shi Antique pour aider l'Empereur à trouver une concubine. » Le vieil homme prit une profonde inspiration et cessa de lutter contre la pression de Wang Lin, affichant plutôt un profond respect.
 
 « Des centaines d'années pour choisir une concubine? » répéta Wang Lin, toujours surpris.
 
@@ -104,13 +104,13 @@ Le vieil homme sourit amèrement et hocha la tête.
 
 Wang Lin demanda avec désinvolture: « C'est assez intrigant. En a-t-on déjà choisi une? »
 
-« Cette fois, sous la conduite du prince Ji Du, nous avons parcouru six pays et sélectionné trois femmes. La dernière se trouve à Ville de la Pierre Noire. Après cela, nous retournerons à l'Dao Antique. » Le vieil homme répondit promptement, n'osant rien lui cacher. Il frappa rapidement le diable ancien sous ses pieds.
+« Cette fois, sous la conduite du prince Ji Du, nous avons parcouru six pays et sélectionné trois femmes. La dernière se trouve à Ville de la Pierre Noire. Après cela, nous retournerons au Dao Antique. » Le vieil homme répondit promptement, n'osant rien lui cacher. Il frappa rapidement le diable ancien sous ses pieds.
 
 Le corps du diable ancien trembla et, dans un effet d'ondulation, deux magnifiques femmes en sortirent. Leurs yeux étaient emplis de peur lorsqu'elles s'inclinèrent devant Wang Lin.
 
 Le vieil homme dit respectueusement: « Ce sont les deux qui ont été choisies. »
 
-Le regard de Wang Lin balaya les deux femmes, puis il déclara calmement: « Puisque vous venez de l'Dao Antique, donnez-moi une carte de la cité impériale de l'Dao Antique. »
+Le regard de Wang Lin balaya les deux femmes, puis il déclara calmement: « Puisque vous venez du Dao Antique, donnez-moi une carte de la cité impériale du Dao Antique. »
 
 Le vieil homme fut surpris. Après une hésitation, il sortit un jade et le tendit respectueusement à Wang Lin.
 
@@ -118,15 +118,15 @@ Après avoir pris le jade, Wang Lin y jeta un œil et descendit de la tête du d
 
 « Senior, veuillez attendre! » s'exclama immédiatement le prince en apparaissant devant lui. Il fit une révérence profonde, l'air très sincère.
 
-« Le jeune Ji Du a offensé le Senior plus tôt. J'espère que vous ne lui en tiendrez pas rigueur. Veuillez accorder au cadet une chance de se racheter. »
+« Le Junior Ji Du a offensé le Senior plus tôt. J'espère que vous ne lui en tiendrez pas rigueur. Veuillez accorder au Junior une chance de se racheter. »
 
 « Oh? Et comment comptez-vous vous racheter? » Wang Lin esquissa un sourire qui n'en était pas un.
 
 Voyant Wang Lin s'exprimer, le prince retrouva de l'entrain et joignit rapidement les mains.
 
-« Je demande au Senior de bien vouloir patienter un instant. Une fois que j'aurai fait partir les ambassadeurs de l'Dao Antique, je saurai certainement me montrer à la hauteur de vos attentes. » Après que Wang Lin eut acquiescé, le prince envoya immédiatement un message à l'homme massif en armure dorée situé plus bas:
+« Je demande au Senior de bien vouloir patienter un instant. Une fois que j'aurai fait partir les ambassadeurs du Dao Antique, je saurai certainement me montrer à la hauteur de vos attentes. » Après que Wang Lin eut acquiescé, le prince envoya immédiatement un message à l'homme massif en armure dorée situé plus bas:
 
-« Veuillez inviter Lady Song Zhi à accompagner les ambassadeurs de l'Dao Antique. »
+« Veuillez inviter Lady Song Zhi à accompagner les ambassadeurs du Dao Antique. »
 
 Peu après, une femme vêtue de bleu sortit de la porte de la ville. Son apparence n'était pas parfaite, mais elle dégageait un tempérament d'une grande pureté. En sortant, elle leva la tête, et c'est à cet instant précis que le regard de Wang Lin se posa sur elle.
 

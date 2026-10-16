@@ -66,7 +66,7 @@ L'attention de Wang Lin se détourna de lui pour se poser sur le Patriarche du R
 
 Le cœur de ce dernier rata un battement et son visage devint livide.
 
-Wang Lin pointa le 13e Ancien Déchu du doigt et dit lentement au messager: « Déchouez-le de son rang d'Ancien Déchu, et forcez-le à s'agenouiller sur la Planète des Scorpions Noirs pendant cent ans! »
+Wang Lin pointa le 13e Ancien Déchu du doigt et dit lentement au messager: « Déchouez-le de son rang d'Ancien Déchu, et forcez-le à s'agenouiller sur la Planète du Scorpion Obscur pendant cent ans! »
 
 Le messager hésita un instant, mais face à la froideur qui brillait dans les yeux de Wang Lin, il acquiesça.
 
@@ -76,7 +76,7 @@ Le Patriarche de l'Évasion Nuageuse sentit la sueur perler sur son front. Il sa
 
 À cet instant, il serra les dents, sa main droite prit la forme d'une épée et il pointa son épaule gauche sans hésiter. Dans un craquement sinistre, tous les méridiens de son bras gauche furent brisés.
 
-Le visage du Patriarche de l'Évasion Nuageuse était d'une pâleur mortelle lorsqu'il murmura: « Merci, Jeune Empereur, pour votre clémence. Ce junior reconnaît sa faute. »
+Le visage du Patriarche de l'Évasion Nuageuse était d'une pâleur mortelle lorsqu'il murmura: « Merci, Jeune Empereur, pour votre clémence. Ce Junior reconnaît sa faute. »
 
 Wang Lin se détourna et entra calmement dans le passage.
 
@@ -114,7 +114,7 @@ L'expression de Wang Lin resta calme alors qu'il disait lentement: « Perdant! T
 
 « Toi! Osas-tu me défier?! » La chose que Maître Simo détestait le plus était la destruction de son avatar. Maintenant que Wang Lin l'avait mentionné, sa soif de sang devint monstrueuse.
 
-Wang Lin sourit, une pointe de moquerie dans les yeux: « Oserez-vous entrer dans cette brume magnétique pour détruire votre culture jusqu'à retomber au cinquième niveau de la Flétrissure Céleste afin de me combattre? »
+Wang Lin sourit, une pointe de moquerie dans les yeux: « Oserez-vous entrer dans cette brume magnétique pour détruire votre culture jusqu'à retomber au cinquième niveau du Fléau Céleste afin de me combattre? »
 
 À ces mots, l'atmosphère explosa en un tumulte général! Maître Simo fut stupéfait et resta muet, le visage extrêmement sombre. Il n'osait pas!
 

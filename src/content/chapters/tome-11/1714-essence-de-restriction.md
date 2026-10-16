@@ -70,9 +70,9 @@ En conséquence, en seulement quelques respirations, le nombre de ces dix millio
 
 Les yeux de Wang Lin brillèrent d'une lueur déterminée. S'il n'arrêtait pas cela immédiatement, sa tentative échouerait! Son corps original sortit de son état de méditation, laissant son avatar en place.
 
-À la sortie de son corps original, l'aura du Dao Ancien jaillit. Son corps trembla et son corps de démon ancien apparut d'un côté, tandis que son corps de démon apparut de l'autre.
+À la sortie de son corps original, l'aura du Dao Ancien jaillit. Son corps trembla et son corps de diable ancien apparut d'un côté, tandis que son corps de démon ancien apparut de l'autre.
 
-Son corps de dieu ancien recula pour former un triangle autour de son avatar, avec ses corps de démon ancien et de démon.
+Son corps de dieu ancien recula pour former un triangle autour de son avatar, avec ses corps de diable ancien et de démon ancien.
 
 « Restrictions, fusionnez!! » L'expression de l'avatar de Wang Lin devint féroce alors qu'il poussait un rugissement. Son Sens Divin gagna en puissance tandis que ses trois corps du Dao Ancien y injectaient leur propre force. La vitesse de fusion des restrictions s'accéléra brusquement.
 

@@ -46,7 +46,7 @@ Toutes les forces situées à l'extérieur de la planète Suzaku ressentirent ce
 
 Dans un éclair rouge, la lance perça le palais. Celui-ci trembla et vola en éclats. La Lance de l’Extermination Divine ne s'arrêta pas là; elle transperça tous les palais de Luotian, provoquant leur effondrement total.
 
-Même la Secte des Corps subit un coup terrible. Tous les cercueils s'écroulèrent un à un devant le passage de la lance. Même les marionnettes de cadavres à l'intérieur furent réduites en poussière!
+Même la Secte des Cadavres subit un coup terrible. Tous les cercueils s'écroulèrent un à un devant le passage de la lance. Même les marionnettes de cadavres à l'intérieur furent réduites en poussière!
 
 Les forces de l'Alliance furent lourdement touchées. La Lance de l’Extermination Divine faucha les foules, et des cris déchirants résonnèrent. Quiconque s'approchait était instantanément tué!
 
@@ -54,7 +54,7 @@ Parmi eux se trouvait une vieille femme au stade Briseur du Nirvana du côté de
 
 Celle-ci pensait pouvoir stopper la lance un instant grâce à sa culture de début de stade Briseur du Nirvana en utilisant un sortilège. Cependant, la Lance de l’Extermination Divine ignora tous les sorts et lui transperça directement la poitrine. Ses yeux se remplirent d'incrédulité lorsqu'elle regarda le trou béant dans son torse. Un instant plus tard, son corps s'effondra et même son âme originelle se dissipa.
 
-Les pupilles de Maître Yan Leizi se rétractèrent. Lui et les autres Anciens s'élancèrent. La Secte des Corps envoya également des cultivateurs pour attaquer la Lance de l’Extermination Divine!
+Les pupilles de Maître Yan Leizi se rétractèrent. Lui et les autres Anciens s'élancèrent. La Secte des Cadavres envoya également des cultivateurs pour attaquer la Lance de l’Extermination Divine!
 
 Mais juste au moment où ces derniers allaient frapper, la lance fit demi-tour et retourna vers la planète Suzaku. Elle regagna la Mer des Démons et disparut à nouveau dans le Pays de l'Ancien Dieu.
 
@@ -70,9 +70,9 @@ Un silence de mort s'installa alors que Maître Yan Leizi et les Anciens afficha
 
 Après une courte réflexion, Maître Yan Leizi cria: « Tous les cultivateurs, suivez-moi vers la planète Suzaku! » Sur ce, il s'élança vers la planète. Les Anciens et d'innombrables cultivateurs l'emboîtèrent!
 
-La Secte des Corps marqua une pause avant qu'une voix semblable au frottement de pierres ne résonne:
+La Secte des Cadavres marqua une pause avant qu'une voix semblable au frottement de pierres ne résonne:
 
-« Secte des Corps, en marche! » L'ensemble de la secte se mit en mouvement. Une nuée de cultivateurs transportant des cercueils vola vers la planète Suzaku. Les huit individus en tête étaient entourés d'une brume noire et dégageaient une pression colossale!
+« Secte des Cadavres, en marche! » L'ensemble de la secte se mit en mouvement. Une nuée de cultivateurs transportant des cercueils vola vers la planète Suzaku. Les huit individus en tête étaient entourés d'une brume noire et dégageaient une pression colossale!
 
 Les forces de l'Alliance hésitèrent et ne déployèrent pas toute leur puissance. La moitié resta sur place, tandis que le reste suivit ses Anciens respectifs vers la planète Suzaku!
 
@@ -80,7 +80,7 @@ Au même moment, l'entité qui reposait au fond de l'abîme du Pays de l'Ancien 
 
 Sa silhouette floue se dévoilait progressivement!
 
-Sa stature n'était pas très imposante, seulement six mètres de haut. Elle avait une forme humaine, semblable à un homme robuste. Mais ce qui allait provoquer le saisissement de quiconque était son cou!
+Sa stature n'était pas très imposante, seulement vingt pieds de haut. Elle avait une forme humaine, semblable à un homme robuste. Mais ce qui allait provoquer le saisissement de quiconque était son cou!
 
 Ce cou possédait dix-huit branches aussi épaisses que des pythons; c'était comme si l'organe était composé de dix-huit serpents entrelacés!
 
@@ -96,7 +96,7 @@ Le niveau de culture du groupe de Wang Lin avait totalement dépassé ce que le 
 
 Wang Lin se tenait sur une hauteur et contemplait les fragments familiers du Royaume Céleste de la Pluie. Ses yeux brillèrent en se remémorant le passé, tandis qu'il cherchait progressivement le fragment où il avait autrefois entendu cet appel à l'aide!
 
-Une douzaine de personnes l'entouraient et tous les regards étaient tournés vers lui. Ils devaient suivre les directives de Wang Lin pour cette mission de sauvetage de l'Empereur Divin Dragon Azure. Après tout, il était l'Empereur Divin Oiseau Vermillon et, surtout, seul Wang Lin savait où l'Empereur Divin Dragon Azure était emprisonné!
+Des dizaines de personnes l'entouraient et tous les regards étaient tournés vers lui. Ils devaient suivre les directives de Wang Lin pour cette mission de sauvetage de l'Empereur Divin Dragon Azure. Après tout, il était l'Empereur Divin Oiseau Vermillon et, surtout, seul Wang Lin savait où l'Empereur Divin Dragon Azure était emprisonné!
 
 Le corps de Wang Lin s'élança. Un grondement tonitruant se fit entendre lorsqu'il plongea vers le bas. Personne n'hésita à le suivre.
 

@@ -46,7 +46,7 @@ La marionnette du gardien céleste émit une lueur orange et lança un coup de p
 
 L'expression du Daoïste du Tonnerre devint sombre. Tout au long de son trajet, cette bête et cette marionnette l'avaient attaqué sans relâche, rendant toute fuite à pleine vitesse impossible. De plus, bien qu'il puisse voyager dans l'espace sans la Bête du Tonnerre, sa vitesse était manifestement plus lente.
 
-À cet instant, la formation d'épée aux sept étoiles arriva et encercla le Daoïste du Tonnerre. Alors que l'énergie d'épée se précipitait sur lui, le Daoïste sortit un jade et le broya. Une explosion de tonnerre et d'éclairs jaillit alors tout autour de lui, formant une barrière.
+À cet instant, la formation d'épée aux sept étoiles arriva et encercla le Daoïste du Tonnerre. Alors que l'énergie d'épée se précipitait sur lui, le Daoïste sortit un jade et le broya. Une explosion de tonnerre et d'éclairs jaillit alors tout autour de lui, formant une barrière. La formation d'épée aux sept étoiles transperça la barrière, provoquant une série d'explosions.
 
 La barrière de foudre trembla violemment. À l'intérieur, le Daoïste du Tonnerre fixa Wang Lin et s'exclama avec urgence: « Cher collègue cultivateur Xu, j'ai été imprudent dans cette affaire, mais pourquoi aller si loin?! Je suis un membre du Temple Céleste du Tonnerre; si vous me tuez, il vous sera difficile de circuler dans le Système Stellaire de Luotian! »
 
@@ -60,7 +60,7 @@ D'innombrables fragments d'âmes s'élancèrent et encerclèrent la zone. Puis, 
 
 La première âme primaire était un immense Qilin noir, dont le regard froid était d'une férocité extrême.
 
-La deuxième était un géant noir de neuf mètres de haut. Son corps dégageait une riche énergie d'âme et une aura capable de terrasser les esprits.
+La deuxième était un géant noir de trente pieds de haut. Son corps dégageait une riche énergie d'âme et une aura capable de terrasser les esprits.
 
 La troisième était une petite aiguille noire, presque invisible; même en utilisant le Sens Divin, il était difficile d'en percevoir l'existence. Son corps principal constituait la quatrième âme, la plus mystérieuse!
 

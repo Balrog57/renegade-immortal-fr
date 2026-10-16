@@ -32,7 +32,7 @@ Wang Lin resta silencieux, mais la froideur et l'intention meurtrière dans son 
 
 Une expression de dérision traversa les yeux du jeune homme aux cheveux blancs alors qu'il fonçait sur Wang Lin.
 
-Les deux entrèrent en collision dans un fracas violent. Ils lancèrent divers sorts, leurs paumes se heurtant au prix d'injures mutuelles. Pourtant, après s'être repoussés, Wang Lin laissa échapper un rugissement et chargea une fois de plus.
+Les deux entrèrent en collision dans un fracas violent. Ils lancèrent divers sorts, leurs paumes se heurtant au prix de blessures identiques. Pourtant, après s'être repoussés, Wang Lin laissa échapper un rugissement et chargea une fois de plus.
 
 Ce cycle se répéta une, deux, trois fois... Jusqu'à ce qu'après plus de dix affrontements, il n'y ait plus aucune pensée dans leurs esprits, hormis le désir de massacre. Les yeux de Wang Lin étaient injectés de sang, tout comme ceux du jeune homme aux cheveux blancs.
 

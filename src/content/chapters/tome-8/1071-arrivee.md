@@ -62,7 +62,7 @@ Sans obstacle, le Maître du Vide bondit vers Wang Lin, la bouche dégoulinante 
 
 En voyant le Maître du Vide, Wang Lin fut frappé de stupeur. Non pas par l'arrivée de l'homme, mais par les cinq Afflictions Célestes dont il avait tant entendu parler récemment!
 
-« C'est la première Affliction Céleste... »
+« C'est le premier Fléau Céleste... »
 
 Une fois le deuxième stade atteint, la longévité devient presque illimitée. Si les cultivateurs absorbent l'énergie d'origine du monde, celle-ci peut être transformée en une vitalité infinie. Pourtant, comment les cieux pourraient-ils permettre à une existence de perdurer aussi longtemps qu'eux? Les cinq Afflictions Célestes étaient les calamités sans fin que les cultivateurs du Briseur du Nirvana devaient affronter!
 

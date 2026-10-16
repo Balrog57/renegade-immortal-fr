@@ -8,7 +8,7 @@ slug: tumulte
 ---
 Un ancien monstre au stade intermédiaire de la Tribulation du Vide sur le Continent Astral Immortel pouvait établir sa propre secte!
 
-Le Souverain Céleste aux Sept Couleurs était un cultivateur au stade intermédiaire de la Tribulation du Vide à l'époque. Il avait fondé sa propre secte et recruté des disciples. Même la Grande Secte de l'Âme se montrait très respectueuse envers lui, car ce genre de cultivateurs méritait le respect.
+Le Souverain Céleste aux Sept Couleurs était un cultivateur au stade intermédiaire de la Tribulation du Vide à l'époque. Il avait fondé sa propre secte et recruté des disciples. Même la Secte de la Grande Âme se montrait très respectueuse envers lui, car ce genre de cultivateurs méritait le respect.
 
 Avec la force de Wang Lin, il pouvait combattre des cultivateurs au stade précoce de la Tribulation du Vide. Les tuer serait difficile, mais pas impossible. Cependant, s'il devait affronter un ancien monstre comme le Souverain Céleste aux Sept Couleurs au sommet de sa puissance, l'écart serait trop grand.
 

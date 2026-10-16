@@ -106,7 +106,7 @@ Il n'y avait plus place pour la réflexion: Lu Wenran allait tout donner!
 
 « S'il meurt, il ne pourra plus rivaliser avec moi pour l'armure. Au pire, je ferai preuve d'héroïsme sur le champ de bataille pour obtenir des mérites avant de retourner à la secte pour accepter ma punition! Je suis certain que l'Ancêtre ne m'exécutera pas pour un homme mort! » Lu Wenran poussa un rugissement et chargea Wang Lin.
 
-Wang Lin était resté sur ses gardes durant tout ce temps. Dès que Lu Wenran s'élança, il recula immédiatement. La première veine spirituelle de son corps lui conférait une vitesse d'incantation extrêmement rapide!
+Wang Lin était resté sur ses gardes durant tout ce temps. Dès que Lu Wenran s'élança, il recula immédiatement. La première veine de sorts de son corps lui conférait une vitesse d'incantation extrêmement rapide!
 
 Simultanément, l'armure de l'âme derrière Wang Lin émit une lumière spectrale infinie. Sous l'impulsion du vieil homme nommé Zhou, les cultivateurs en contrebas commencèrent rapidement à trancher entre Wang Lin et Lu Wenran!
 

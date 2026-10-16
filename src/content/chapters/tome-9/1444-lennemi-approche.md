@@ -8,7 +8,7 @@ slug: lennemi-approche
 ---
 Le regard indifférent de Wang Lin balaya les cultivateurs qui battaient en retraite. Des fluctuations émotionnelles intenses émanaient d'eux. Tant qu'il parviendrait à attiser leurs émotions, il pourrait leur infliger de lourds dommages.
 
-Cependant, la Tombe de l'Ordre Ancestral était un lieu très dangereux; tant qu'il n'en aurait pas percé les mystères, il ne les tuerait pas tous. Ce qu'il désirait, c'était afficher sa puissance!
+Cependant, la Tombe de l'Ordre Ancien était un lieu très dangereux; tant qu'il n'en aurait pas percé les mystères, il ne les tuerait pas tous. Ce qu'il désirait, c'était afficher sa puissance!
 
 Certains des cultivateurs présents étaient puissants. S'il les acculait et qu'ils décidaient de s'allier, cela ne profiterait pas à Wang Lin.
 
@@ -52,7 +52,7 @@ La vieille femme en vert fixa Wang Lin avec un regard démoniaque. Nul ne savait
 
 L'expression de la vieille femme devint grave et elle recula rapidement. Ses mains formèrent un sceau et l'énergie originelle jaillit, déformant l'espace environnant.
 
-Wang Lin s'approcha en un éclair et fendit la zone déformée. Il leva calmement la main droite et l'agita. Un grondement tonnerre résonna dans toute la zone.
+Wang Lin s'approcha en un éclair et fendit la zone déformée. Il leva calmement la main droite et l'agita. Un grondement de tonnerre résonna dans toute la zone.
 
 En peu de temps, les fracas du tonnerre se multiplièrent alors que les attaques de Wang Lin et de la vieille femme s'entrechoquaient des dizaines de fois. Les grondements devinrent plus intenses et l'énergie originelle autour d'eux forma une tempête qui balaya les environs.
 
@@ -60,7 +60,7 @@ Les autres cultivateurs reculèrent tous, tandis que la vieille femme cracha du 
 
 Un doigt du temps. La porte désolée du Royaume Céleste du Vent apparut dans l'esprit de Wang Lin. Ce doigt agita le monde et une aura antique emplit la terre. Cette aura pénétra les doigts de Wang Lin et fut projetée vers la vieille femme.
 
-L'expression de la vieille femme changea radicalement. Bien qu'elle ait pensé avoir surestimé la force de Wang Lin, elle ne s'attendait pas à ce qu'il soit aussi puissant qu'un cultivateur de la cinquième calamité céleste, et que ses sorts soient si prodigieusement dévastateurs!
+L'expression de la vieille femme changea radicalement. Bien qu'elle ait pensé avoir surestimé la force de Wang Lin, elle ne s'attendait pas à ce qu'il soit aussi puissant qu'un cultivateur du cinquième Fléau Céleste, et que ses sorts soient si prodigieusement dévastateurs!
 
 Face au danger, elle ne put plus dissimuler ses techniques. Elle cessa sa retraite, pointa ses tempes, puis ouvrit la bouche pour cracher une bouffée de brume rose.
 
@@ -74,7 +74,7 @@ Wang Lin n'était pas le seul; la confusion se lisait dans les yeux de tous les 
 
 Tout cela se produisit en un instant. Voyant que les cultivateurs environnants étaient affectés, Wang Lin projeta son doigt contre la brume rose.
 
-Des grondements tonnerre secouèrent la zone et la brume fut repoussée. Elle semblait incapable de résister à l'attaque de Wang Lin et fut balayée par celle-ci. La brume se dissipa sous la puissance du temps, permettant au doigt de Wang Lin de frapper entre les sourcils de la vieille femme.
+Des grondements de tonnerre secouèrent la zone et la brume fut repoussée. Elle semblait incapable de résister à l'attaque de Wang Lin et fut balayée par celle-ci. La brume se dissipa sous la puissance du temps, permettant au doigt de Wang Lin de frapper entre les sourcils de la vieille femme.
 
 Le corps de la vieille femme trembla et elle fut projetée en arrière dans un jet de sang. Les émotions qu'elle avait si soigneusement cachées ne purent plus être contenues, et le Feu Éthéré éclata en elle. La marque entre ses sourcils fut détruite, remplacée par l'image vacillante du dos d'une femme!
 
@@ -94,9 +94,9 @@ Une fois le Feu Éthéré éteint, la vieille femme resta livide. Elle regarda W
 
 Les autres cultivateurs, tremblants, sortirent également leurs trésors pour compenser l'irrespect de leurs propos. Même la jeune femme du Clan de l'Extermination des Sceaux tendit timidement son butin.
 
-Seule la femme aux longs cheveux blancs regarda Wang Lin avec profondeur et sourit. En un instant, la plateforme sous ses pieds s'éleva dans le ciel.
+Seule la femme aux longs cheveux regarda Wang Lin avec profondeur et sourit. En un instant, la plateforme sous ses pieds s'éleva dans le ciel.
 
-« Il y a un trésor à l'intérieur de cette terre scellée. Puisque vous êtes intéressé, je m'en vais. Je suis convaincue que nous nous reverrons ici, au sein de cette Tombe de l'Ordre Ancestral... » La voix de la femme flotta doucement aux oreilles de Wang Lin tandis que sa silhouette disparaissait dans une faille spatiale.
+« Il y a un trésor à l'intérieur de cette terre scellée. Puisque vous êtes intéressé, je m'en vais. Je suis convaincue que nous nous reverrons ici, au sein de cette Tombe de l'Ordre Ancien... » La voix de la femme flotta doucement aux oreilles de Wang Lin tandis que sa silhouette disparaissait dans une faille spatiale.
 
 Les yeux de Wang Lin se rétrécirent, mais il ne dit mot.
 

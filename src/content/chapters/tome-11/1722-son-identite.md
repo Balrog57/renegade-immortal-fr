@@ -38,7 +38,7 @@ En voyant cela, l'esprit de Wang Lin trembla violemment. Il fixa la planète ter
 
 Alors que le corps original de Wang Lin était immergé dans la réincarnation de l'Omniscient dans le monde extérieur, tous les avatars de l'Omniscient levèrent leur main droite et pointèrent l'espace entre leurs sourcils!
 
-Les yeux du premier Omniscient apparu dans la partie orientale de la Rivière des Invocations brillèrent d'une lueur étrange. Il leva également sa main droite et pointa son propre front.
+Les yeux du premier Omniscient apparu dans la partie orientale de la Rivière Invoquée brillèrent d'une lueur étrange. Il leva également sa main droite et pointa son propre front.
 
 « Ce vieil homme dormira pour la dernière fois et s'éveillera pour la dernière fois. Cette fois, je mènerai à bien le plan que j'ai commencé il y a d'innombrables années! » Il ferma les yeux et son doigt pénétra lentement son crâne.
 
@@ -62,7 +62,7 @@ Les dévorations répétées, parfois multiples, parfois uniques, furent toutes 
 
 « Quelle est donc l'identité de l'Omniscient pour dépendre de la dévoration pour s'éveiller? Et que cherche-t-il à éveiller? »
 
-À l'extérieur, dans la Rivière des Invocations, les centaines d'avatars de l'Omniscient convergèrent vers Wang Lin et pénétrèrent dans son avatar.
+À l'extérieur, dans la Rivière Invoquée, les centaines d'avatars de l'Omniscient convergèrent vers Wang Lin et pénétrèrent dans son avatar.
 
 L'expression de l'avatar de Wang Lin restait calme; il demeurait assis là, comme s'il ne se souciait guère de leur intrusion. L'âme de l'avatar de l'Omniscient devint de plus en plus puissante jusqu'à occuper la quasi-totalité du corps de Wang Lin.
 

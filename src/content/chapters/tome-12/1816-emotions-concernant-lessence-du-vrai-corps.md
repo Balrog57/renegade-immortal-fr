@@ -28,7 +28,7 @@ Des grondements tonitruants résonnèrent alors que l'âme du dragon de feu, amp
 
 La boule de feu absorba cette section de l'âme du dragon et devint encore plus intense. L'essence du vrai corps, dont les membres s'étaient déjà formés, commença à montrer des signes de formation pour son torse.
 
-Wang Lin se déplaça comme l'éclair, parcourant 10 000 pieds pour apparaître au-dessus de l'âme du dragon. Ses mouvements étaient fluides comme les nuages et, bien qu'il ne pût supprimer l'âme du dragon avec une seule essence comme Du Qing, son épée était d'une tranchance prodigieuse.
+Wang Lin se déplaça comme l'éclair, parcourant 10 000 pieds pour apparaître au-dessus de l'âme du dragon. Ses mouvements étaient fluides comme les nuages et, bien qu'il ne pût supprimer l'âme du dragon avec une seule essence comme Du Qing, son épée était d'un tranchant prodigieux.
 
 À cet instant, au-dessus de l'âme du dragon de feu, Wang Lin leva la main droite et une lumière dorée apparut dans sa paume. Cette lueur dorée fit trembler le cœur de Du Qing.
 
@@ -40,11 +40,11 @@ Wang Lin resta calme et pointa le dragon qui fuyait. L'empreinte dorée brilla i
 
 Wang Lin ne daigna même pas un regard au résultat avant de se retourner vers le dragon de feu qui était réprimé par Du Qing.
 
-Au moment où il se retourna, un grondement tonnerre retentit au loin. Un éclair de lumière dorée jaillit et l'empreinte vola vers Wang Lin. La présence du dragon de feu pouvait être ressentie à l'intérieur, et celui-ci poussa un rugissement désespéré.
+Au moment où il se retourna, un grondement de tonnerre retentit au loin. Un éclair de lumière dorée jaillit et l'empreinte vola vers Wang Lin. La présence du dragon de feu pouvait être ressentie à l'intérieur, et celui-ci poussa un rugissement désespéré.
 
 Cette scène fit rater un battement au cœur de Du Qing.
 
-« Pas étonnant que ce soit un trésor créé par le Grand Empereur... À en juger, il n'en a même pas utilisé toute la puissance... » Les yeux de Du Qing s'illuminèrent tandis qu'il souriait à Wang Lin.
+« Pas étonnant que ce soit un trésor créé par le Grand Empyréen... À en juger, il n'en a même pas utilisé toute la puissance... » Les yeux de Du Qing s'illuminèrent tandis qu'il souriait à Wang Lin.
 
 « Félicitations, Camarade Cultivateur, pour avoir obtenu les deux veines de feu terrestre enfantines. Votre essence du vrai corps sera bientôt complète. »
 
@@ -82,7 +82,7 @@ Après avoir bougé la tête, Wang Lin avança. À chacun de ses pas, une ombre 
 
 Ce changement soudain fit haleter Du Qing.
 
-« Serait-ce le changement qui survient après l'obtention d'une essence du vrai corps, une ombre? J'ai vu l'ancêtre du Grand Secte de l'Âme à plusieurs reprises; on aurait toujours dit qu'une ombre le suivait. Peu importe ce que vous faites, elle vous imite. C'est particulièrement vrai lors de l'utilisation de sorts. »
+« Serait-ce le changement qui survient après l'obtention d'une essence du vrai corps, une ombre? J'ai vu l'ancêtre de la Secte de la Grande Âme à plusieurs reprises; on aurait toujours dit qu'une ombre le suivait. Peu importe ce que vous faites, elle vous imite. C'est particulièrement vrai lors de l'utilisation de sorts. »
 
 Wang Lin fronça les sourcils. Il semblait avoir remarqué la modification de son corps après la formation de son essence. Après une courte réflexion, l'ombre derrière lui commença à s'estomper jusqu'à disparaître.
 
@@ -96,7 +96,7 @@ Dans la Secte du Taureau Céleste, deux rayons de lumière traversèrent rapidem
 
 « Quel est le niveau de culture de cet homme... Il semble être au sommet du Vide Spirituel, mais il a pu encaisser deux de mes attaques sans que cela ne semble être son plein potentiel... Bien que le niveau de culture puisse être dissimulé, la vitesse est aussi un bon indicateur... Voyons à quelle vitesse il est capable d'aller! » Du Qing réfléchit silencieusement et augmenta lentement sa cadence. Il dépassa Wang Lin, creusant la distance entre eux.
 
-« Je ne dois pas être trop évident, j'ai juste besoin d'en voir un peu. Après tout, j'ai besoin de lui pour entrer en contact avec ce Grand Empereur... » Du Qing n'osait pas aller trop loin. Lorsqu'il vit que Wang Lin peinait à suivre, il s'apprêtait à ralentir quand ses pupilles se contractèrent.
+« Je ne dois pas être trop évident, j'ai juste besoin d'en voir un peu. Après tout, j'ai besoin de lui pour entrer en contact avec ce Grand Empyréen... » Du Qing n'osait pas aller trop loin. Lorsqu'il vit que Wang Lin peinait à suivre, il s'apprêtait à ralentir quand ses pupilles se contractèrent.
 
 Car le regard froid de Wang Lin pesait sur les yeux de Du Qing. Wang Lin agita la main droite et un brouillard noir apparut. Un rugissement strident retentit de l'intérieur de cette brume noire.
 

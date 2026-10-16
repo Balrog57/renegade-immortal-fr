@@ -30,7 +30,7 @@ L'expression de Wang Lin était calme, ne laissant paraître aucune émotion alo
 
 Il se tenait là, semblant fusionner avec le monde lui-même. Il était le Ciel! Il était la Terre!
 
-L'enfant d'il y a deux mille ans était devenu un homme et se dressait désormais au sommet de la culture. Il osait même défier des cultivateurs du troisième pas! Même si ce dernier n'était présent que par son avatar et ne possédait que la culture de la Cinquième Affliction Céleste!
+L'enfant d'il y a deux mille ans était devenu un homme et se dressait désormais au sommet de la culture. Il osait même défier des cultivateurs du troisième pas! Même si ce dernier n'était présent que par son avatar et ne possédait que la culture du Cinquième Fléau Céleste!
 
 Cependant, dans ce monde, tant dans le Royaume Intérieur que dans le Royaume Extérieur, à part Wang Lin, combien osaient défier des cultivateurs du troisième pas?
 

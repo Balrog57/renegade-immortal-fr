@@ -42,7 +42,7 @@ Les sens divins des cultivateurs du troisième stade du Système Stellaire Antiq
 
 Si Wang Lin n'avait pas su qu'il s'agissait d'un monde de grotte, il aurait tout de même capturé ce dragon, mais il n'aurait pas agi avec une telle célérité, sans perdre un instant.
 
-Ce dragon différait de toutes les bêtes démoniaques que Wang Lin avait rencontrées jusqu'alors. Non seulement il pouvait parler, mais il faisait preuve d'une grande intelligence; même la Bête des Enfers ne lui arrivait pas à la cheville.
+Ce dragon différait de toutes les bêtes démoniaques que Wang Lin avait rencontrées jusqu'alors. Non seulement il pouvait parler, mais il faisait preuve d'une grande intelligence; même la Bête des Limbes ne lui arrivait pas à la cheville.
 
 Il se surnommait lui-même « Dragon Céleste » et avait fondé la Secte du Dragon Céleste. Il avait également asservi des cultivateurs pour les servir; cela prouvait déjà son caractère extraordinaire!
 

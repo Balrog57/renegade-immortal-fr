@@ -60,7 +60,7 @@ En chemin, ses blessures s'aggravèrent et son niveau de culture chuta du stade 
 
 Lorsque Wang Lin atteignit le septième étage, une lave infinie s'abattit sur lui. Son corps reprit rapidement sa forme ordinaire. Le visage pâle, il cracha du sang tandis que des douleurs fulgurantes le déchiraient. Il ne put s'empêcher de ralentir légèrement. Bien qu'il fût sous sa forme de Dieu Ancestral, il restait gravement blessé par l'énergie de la lame malgré la présence de la Lance Tueuse de Dieux.
 
-Cependant, s'il ne l'avait pas fait, il aurait été impossible pour Wang Wei ou Hu Juan de s'échapper. Même lui n'aurait eu aucune chance d'atteindre le septième étage. Après tout, Wang Lin n'était qu'au sommet du stade de l'Observateur de Nirvana.
+Cependant, s'il ne l'avait pas fait, il aurait été impossible pour Wang Wei ou Hu Juan de s'échapper. Même lui n'aurait eu aucune chance d'atteindre le septième étage. Après tout, Wang Lin n'était qu'au sommet du stade de Scruteur du Nirvana.
 
 À cet instant précis, Hu Juan saisit Wang Lin et Wang Wei pour s'élancer vers le haut. Elle dévora également la seule pilule verte dont elle disposait. Une fois ses forces retrouvées, elle progressa rapidement à travers le magma avec les deux hommes.
 
@@ -76,7 +76,7 @@ Une fois seule, les yeux de Wang Lin s'illuminèrent. Il était déterminé à c
 
 À l'intérieur du magma, Wang Lin absorba l'énergie sans le moindre ménagement. La lave sembla couler à contre-courant alors que l'énergie d'origine du feu pénétrait son corps avec frénésie. L'énergie parcourut ses méridiens, permettant à son corps gravement blessé de se rétablir partiellement.
 
-Wang Lin ne faisait preuve d'aucune prudence comme lors de ses absorptions précédentes; il était d'une imprudence extrême. L'Oiseau Vermillon sur son corps apparut autour de lui, provoquant une réaction de l'énergie d'origine du feu qui s'engouffra vers lui. Tandis que cette énergie se précipitait vers Wang Lin, des quantités massives de magma tombèrent du septième étage vers le huitième. L'Ancien Démon Bei Lou et Maître du Vide chargeaient dans la lave, poursuivis par le Démon Ancestral Ta Jia. À cet instant, tout cela, combiné à l'agitation frénétique de Wang Lin, fit s'effondrer toute la masse de magma à l'intérieur du volcan.
+Wang Lin ne faisait preuve d'aucune prudence comme lors de ses absorptions précédentes; il était d'une imprudence extrême. L'Oiseau Vermillon sur son corps apparut autour de lui, provoquant une réaction de l'énergie d'origine du feu qui s'engouffra vers lui. Tandis que cette énergie se précipitait vers Wang Lin, des quantités massives de magma tombèrent du septième étage vers le huitième. L'Ancien Démon Bei Lou et le Maître du Vide chargeaient dans la lave, poursuivis par le Démon Ancestral Ta Jia. À cet instant, tout cela, combiné à l'agitation frénétique de Wang Lin, fit s'effondrer toute la masse de magma à l'intérieur du volcan.
 
 C'est alors qu'un rugissement assourdissant, qui fit trembler le magma même, retentit des profondeurs du volcan. Une tête de dragon gigantesque émergea de la lave. À ce moment-là, tout le magma que Wang Lin n'avait pas absorbé ou qui était tombé au huitième étage commença à bouger comme s'il possédait une intelligence propre, chargeant tous vers le dragon.
 

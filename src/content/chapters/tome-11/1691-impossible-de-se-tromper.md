@@ -104,7 +104,7 @@ Quant au soleil, il ne put rien pour entraver la trajectoire du projectile. La f
 
 Le Maître Dao Miao Yin et le Maître Démon Neuf Cieux crachèrent du sang et leurs corps s'effondrèrent. Leurs âmes originelles étaient sur le point de s'échapper lorsque Wang Lin, d'un revers de manche, les captura.
 
-Seule la septième concubine ne fit que recracher une grande quantité de sang, gravement blessée par le passage de la flèche. En tant qu'impératrice céleste, elle possédait un trésor salvateur qui lui permit de survivre miraculeusement.
+Seule la septième concubine ne fit que recracher une grande quantité de sang, gravement blessée par le passage de la flèche. En tant que concubine impériale céleste, elle possédait un trésor salvateur qui lui permit de survivre miraculeusement.
 
 Après le sifflement de la flèche, la chair et le sang du Souverain se reformèrent rapidement, lui permettant de ressusciter une fois de plus. Il était pâle et regardait Wang Lin avec une terreur qu'il n'avait jamais manifestée auparavant. À cet instant, il n'osait même plus chercher à calculer combien de tirs Wang Lin pouvait encore décocher!
 

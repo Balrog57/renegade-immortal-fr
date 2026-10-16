@@ -48,7 +48,7 @@ Wang Lin se gratta la tête et salua l'assemblée avant de se diriger vers le vi
 
 « C'est vraiment étrange. Ce rêve était trop réel. Papillon Rouge, Li Muwan, Liu Mei, Mu Bingmei, Lu Yanfei, Li Qianmei... Il y avait aussi Yunque Zi, Zhuque Zi, Situ Nan, l'Omniscient, et bien d'autres encore. Ainsi que l'Empereur Divin de l'Oiseau Vermillon, l'Empereur Divin du Dragon Azure, Tuo Sen, Tu Si... Je me souviens avoir pris deux disciples. L'un s'appelait Treize et l'autre Xie Qing... » Tandis qu'il marchait, son esprit restait embrumé.
 
-« Il y a un Dieu Ancien sur la planète Suzaku? Et hors de la planète Suzaku, il existe aussi la Secte des Corpses? Et l'Alliance de Culture? Les Quatre Sectes Divines? L'endroit où je me trouve s'appelle le Système Stellaire de l'Alliance. Dans mon rêve, je suis aussi allé dans le Système Stellaire de Luotian et celui de Mer de Nuages... Je suis même allé dans le Royaume Céleste... » Wang Lin resta hébété un long moment. Lorsqu'il leva la tête, il était déjà devant sa maison. Il secoua la tête et poussa un soupir en marmonnant: « Ce rêve était très étrange. On aurait dit que mon père et ma mère étaient morts dans mon rêve... »
+« Il y a un Dieu Ancien sur la planète Suzaku? Et hors de la planète Suzaku, il existe aussi la Secte des Cadavres? Et l'Alliance de Culture? Les Quatre Sectes Divines? L'endroit où je me trouve s'appelle le Système Stellaire de l'Alliance. Dans mon rêve, je suis aussi allé dans le Système Stellaire de Luotian et celui de la Mer des Nuages... Je suis même allé dans le Royaume Céleste... » Wang Lin resta hébété un long moment. Lorsqu'il leva la tête, il était déjà devant sa maison. Il secoua la tête et poussa un soupir en marmonnant: « Ce rêve était très étrange. On aurait dit que mon père et ma mère étaient morts dans mon rêve... »
 
 Il cessa de songer à ce songe bizarre et poussa la porte qui menait à la cour. En entrant, il vit son père tenant une pipe. Ce dernier la secoua sur le sol avant de fixer Wang Lin du regard.
 
@@ -88,7 +88,7 @@ Au moment où sa main droite toucha l'objet, un cri éclata à ses oreilles.
 
 Cette voix était terriblement familière. C'était comme s'il l'avait déjà entendue. Mais malgré tous ses efforts, il ne parvenait pas à se souvenir de l'origine de ce son.
 
-Cependant, ce cri fut remplacé par un gémissement misérable. C'était encore cette voix familière, qui semblait endurée une douleur inimaginable. Tandis que ce cri déchirant résonnait, le monde de Wang Lin sembla s'effondrer et une lumière aux sept couleurs apparut inopinément.
+Cependant, ce cri fut remplacé par un gémissement misérable. C'était encore cette voix familière, qui semblait endurer une douleur inimaginable. Tandis que ce cri déchirant résonnait, le monde de Wang Lin sembla s'effondrer et une lumière aux sept couleurs apparut inopinément.
 
 En un instant, sa vision se troubla, comme si la puissance contrôlant ses propres souvenirs avait échappé à tout contrôle pour bondir plusieurs années en avant. Son environnement changea radicalement; il était en pleine fuite. La forêt apparut au coin de son regard. Il courait à une vitesse folle, le sentiment d'une crise de vie ou de mort emplissant son esprit.
 

@@ -40,7 +40,7 @@ L'esprit de Wang Lin trembla face au spectacle. L'arbre était d'une démesure t
 
 « Tu es le troisième cultivateur à entrer ici. Que désires-tu...? »
 
-Wang Lin réfléchit en silence. Après un long moment, il leva les yeux vers l'arbre et demanda lentement: « Avez-vous forcé le Daoïste Shui à battre en retraite? »
+Wang Lin réfléchit en silence. Après un long moment, il leva les yeux vers l'arbre et demanda lentement: « Avez-vous forcé le Shui Daozi à battre en retraite? »
 
 « Si tu n'avais pas trouvé mon jade, je n'aurais pu t'aider. Mais puisque tu l'as trouvé, je peux m'en servir pour t'épauler un peu... Cet esclave m'a trahi, mais je lui avais offert un talisman pour le protéger à trois reprises. La dernière protection a été utilisée, et c'est pourquoi j'ai attaqué... »
 
@@ -86,7 +86,7 @@ Wang Lin leva soudainement la tête et fixa l'arbre géant. Il resta silencieux.
 
 « Cet être m'observe depuis longtemps et connaît tout de moi. Il sait mon désir de ressusciter Wan Er. Il utilise cela pour me soumettre à ce prétendu Empereur Céleste!
 
-« Il veut que je remette la Perle Défiant le Ciel une fois l'Empereur Céleste éveillé. Si j'obéis, je serai totalement sous le contrôle de l'Empereur Céleste. Tout sera entre ses mains. S'il est de bonne humeur, il pourra ressusciter Wan Er; sinon, il pourrait nous tuer tous les deux. Comment pourrais-je accepter une telle chose? Pourtant, si je veux partir, je dois régler ma dette avec cet être. Il n'a pas d'intentions malveillantes à mon égard, il est simplement extrêmement attaché aux traditions. Même après la trahison du Daoïste Shui, il a tenu sa promesse de le protéger trois fois, manquant l'occasion de tuer le traître jusqu'à aujourd'hui! »
+« Il veut que je remette la Perle Défiant le Ciel une fois l'Empereur Céleste éveillé. Si j'obéis, je serai totalement sous le contrôle de l'Empereur Céleste. Tout sera entre ses mains. S'il est de bonne humeur, il pourra ressusciter Wan Er; sinon, il pourrait nous tuer tous les deux. Comment pourrais-je accepter une telle chose? Pourtant, si je veux partir, je dois régler ma dette avec cet être. Il n'a pas d'intentions malveillantes à mon égard, il est simplement extrêmement attaché aux traditions. Même après la trahison du Shui Daozi, il a tenu sa promesse de le protéger trois fois, manquant l'occasion de tuer le traître jusqu'à aujourd'hui! »
 
 Wang Lin réfléchit un instant et demanda lentement: « Que pouvez-vous m'offrir? »
 

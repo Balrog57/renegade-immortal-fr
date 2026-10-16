@@ -10,7 +10,7 @@ Les ondulations causées par l'effondrement de la pilule dorée étaient encore 
 
 Il reculait comme un fou, envahi par un sentiment de mort imminente. C'était comme une pression invisible qui cherchait à broyer tout son corps!
 
-L'effondrement du Cristal de Mutation de Feu Ardant fut encore plus intense que celui de la Pilule d'Effondrement du Dragon. Il contenait le feu céleste et, sous le contrôle de Wang Lin, avait été compressé d'innombrables fois. Sa puissance était suffisante pour menacer un cultivateur du Cinquième Fléau Céleste.
+L'effondrement du Cristal de Mutation de Feu Déchaîné fut encore plus intense que celui de la Pilule d'Effondrement du Dragon. Il contenait le feu céleste et, sous le contrôle de Wang Lin, avait été compressé d'innombrables fois. Sa puissance était suffisante pour menacer un cultivateur du Cinquième Fléau Céleste.
 
 Alors que le blessé Maître Simo reculait, le rugissement de Wang Lin résonna et le cristal émit soudain une lumière aveuglante. Cette lueur enveloppa la planète entière et illumina le monde.
 
@@ -24,7 +24,7 @@ Cette épée était d'une rapidité telle qu'il était impossible de la suivre �
 
 Le gravement blessé Maître Simo ne put esquiver alors que l'épée de sang lui transperçait la poitrine. Des bruits de craquements résonnèrent dans son corps, mais il ne mourut toujours pas!
 
-L'avatar de Maître Simo était, après tout, celui d'un cultivateur du Cinquième Fléau Céleste; il n'était donc pas aisé de le tuer. Wang Lin s'y était pleinement préparé: Pilule d'Effondrement du Dragon, Cristal de Mutation de Feu Ardant, quarante millions de rayons d'énergie d'épée et, au moment critique, l'épée de sang. En un laps de temps très court, Wang Lin avait déployé tous ses coups mortels, mais il n'avait tout de même pas réussi à terrasser un cultivateur du Cinquième Fléau Céleste.
+L'avatar de Maître Simo était, après tout, celui d'un cultivateur du Cinquième Fléau Céleste; il n'était donc pas aisé de le tuer. Wang Lin s'y était pleinement préparé: Pilule d'Effondrement du Dragon, Cristal de Mutation de Feu Déchaîné, quarante millions de rayons d'énergie d'épée et, au moment critique, l'épée de sang. En un laps de temps très court, Wang Lin avait déployé tous ses coups mortels, mais il n'avait tout de même pas réussi à terrasser un cultivateur du Cinquième Fléau Céleste.
 
 Cependant, le blesser à ce point ferait de Wang Lin une légende dans les Royaumes Intérieur et Extérieur. Après tout, il n'avait accompli qu'une seule essence. S'il complétait sa deuxième, troisième, quatrième et cinquième essence, même s'il n'avait pas encore ouvert la Porte du Vide, il pourrait affronter un cultivateur de la troisième étape!
 
@@ -48,7 +48,7 @@ Le vent souffla et l'odeur du sang persista longtemps dans l'air.
 
 La voix venue du vide ne réapparut plus jamais. Le doigt retourna dans le vortex et disparut sans laisser de trace, comme si rien ne s'était produit.
 
-La planète de culture était plongée dans un silence de mort. Les anciens du Clan de l'Hirondelle de Feu fixaient la scène, hébétés. Ils étaient terrifiés et frappés d'incrédulité.
+La planète de culture était plongée dans un silence de mort. Les anciens du Clan des Moineaux de Feu fixaient la scène, hébétés. Ils étaient terrifiés et frappés d'incrédulité.
 
 Le visage du jeune maître du Clan du Dragon Blindé était extrêmement disgracieux, marqué par la panique et le regret. Il recula nerveusement pour se poster aux côtés de son père.
 
@@ -60,7 +60,7 @@ Son père, le Patriarche du Dragon Blindé, affichait un visage sombre. Il inter
 
 Wang Lin flottait dans les airs et poussa un profond soupir. Bien que son combat contre l'avatar de Maître Simo eût été bref, il avait été chargé de danger et il était blessé. Ce qui le rendait encore plus prudent était l'attitude du Grand Empereur.
 
-« Bien que Maître Simo ait été gravement blessé, pouvoir tuer son avatar d'un seul doigt signifie qu'il est bien plus fort que le Daoïste Eau. J'ignore seulement comment il se compare au Maître du Dao Bleu Rêve. De plus, il m'aide manifestement... » Les yeux de Wang Lin s'illuminèrent. Il devait partir maintenant; après tout, il était blessé et devait trouver un lieu pour récupérer.
+« Bien que Maître Simo ait été gravement blessé, pouvoir tuer son avatar d'un seul doigt signifie qu'il est bien plus fort que le Shui Daozi. J'ignore seulement comment il se compare au Maître du Dao Rêve Bleu. De plus, il m'aide manifestement... » Les yeux de Wang Lin s'illuminèrent. Il devait partir maintenant; après tout, il était blessé et devait trouver un lieu pour récupérer.
 
 Cependant, lorsque le regard de Wang Lin retomba sur la planète, ses yeux devinrent glacials.
 

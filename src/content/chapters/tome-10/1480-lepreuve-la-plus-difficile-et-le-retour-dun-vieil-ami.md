@@ -26,7 +26,7 @@ La voix de cet homme d'âge mûr tonna comme le tonnerre, résonnant dans l'espr
 
 « Normalement, être envoyé en culture isolée est une punition, mais les préparatifs de bataille ont déjà commencé. Je ne veux pas subir une telle punition alors que la guerre est sur le point d'éclater! »
 
-« Frère Zhan, j'ai entendu dire que les quatre grands systèmes stellaires se préparent pour la bataille, mais que la Mer de Nuages mène la marche. Beaucoup d'entre nous sont perplexes quant à cette direction, as-tu appris quoi que ce soit? »
+« Frère Zhan, j'ai entendu dire que les quatre grands systèmes stellaires se préparent pour la bataille, mais que la Mer des Nuages mène la marche. Beaucoup d'entre nous sont perplexes quant à cette direction, as-tu appris quoi que ce soit? »
 
 Des rires éclatèrent. Chacun utilisait son énergie originelle pour tirer lentement la planète hors de son orbite. L'astre était progressivement entraîné vers l'avant.
 
@@ -112,7 +112,7 @@ Tout cela en raison des paroles de son Maître.
 
 Le vieil homme ouvrit lentement les yeux. Il ne regarda pas les trois cultivateurs de la Transformation de l'Âme devant lui, mais fixa silencieusement les nuages à l'horizon.
 
-« Vous pouvez partir... Cet endroit appartient au Maître... Jusqu'à ce que le Maître revienne, nul ne peut prélever une seule brin d'herbe, un morceau de bois ou une seule goutte d'eau de cette planète. »
+« Vous pouvez partir... Cet endroit appartient au Maître... Jusqu'à ce que le Maître revienne, nul ne peut prélever un seul brin d'herbe, un morceau de bois ou une seule goutte d'eau de cette planète. »
 
 « Cependant, en raison des préparatifs de guerre, le Temple Céleste du Tonnerre a envoyé un ordre. Ils viendront réclamer la planète dans trois jours. Nous... » L'un des Anciens de la Transformation de l'Âme s'exprima avec anxiété, et le vieil homme tourna la tête vers lui.
 

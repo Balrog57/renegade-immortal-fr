@@ -6,11 +6,11 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1396 - Waves Surges
 slug: vagues-de-deferlement
 ---
-La planète Scorpion Obscur était toujours enveloppée d'une couche d'énergie démoniaque. De loin, elle paraissait extrêmement étrange, et même les créatures de la planète en étaient affectées.
+La planète des Scorpions Noirs était toujours enveloppée d'une couche d'énergie démoniaque. De loin, elle paraissait extrêmement étrange, et même les créatures de la planète en étaient affectées.
 
 Ce jour-là, il ne restait que six jours avant la Sélection des Anciens Délaissés, et l'énergie démoniaque qui drapait la planète commença à changer. Cette énergie gronda bruyamment et commença toutes à se condenser vers un point unique!
 
-Ce changement soudain attira l'attention du Clan Scorpion Obscur et du Clan de l'Évasion Nuageuse. Alors qu'ils déployaient leur Sens Divin pour observer, ils remarquèrent que la dense énergie démoniaque convergeait toute vers la grotte de Wang Lin!
+Ce changement soudain attira l'attention du Clan des Scorpions Noirs et du Clan de l'Évasion Nuageuse. Alors qu'ils déployaient leur Sens Divin pour observer, ils remarquèrent que la dense énergie démoniaque convergeait toute vers la grotte de Wang Lin!
 
 C'était comme si un vortex s'était formé à l'intérieur de la grotte, aspirant toute l'énergie démoniaque!
 
@@ -32,7 +32,7 @@ Alors qu'il s'élançait, Wang Lin ouvrit soudain les yeux, révélant un regard
 
 « Je t'ai créé, je peux donc te détruire aussi facilement! » Wang Lin se redressa et tendit la main vers la créature.
 
-La peur se lut sur le visage du petit être. Lorsque la main droite de Wang Lin s'approcha, il trembla avant de se dissiper en brouillard. D'innombrables filaments de brume s'échappèrent dans toutes les directions et, après avoir échappé à l'emprise de Wang Lin, se reformèrent à l'extérieur de la grotte.
+La peur se lisait sur le visage du petit être. Lorsque la main droite de Wang Lin s'approcha, il trembla avant de se dissiper en brouillard. D'innombrables filaments de brume s'échappèrent dans toutes les directions et, après avoir échappé à l'emprise de Wang Lin, se reformèrent à l'extérieur de la grotte.
 
 Dès son apparition, elle se transforma en un nuage et s'enfuit. Elle se déplaçait avec une rapidité extrême, sur le point de disparaître.
 
@@ -44,13 +44,13 @@ Le regard de Wang Lin était glacial lorsqu'il dit lentement: « Un seul souffle
 
 La petite âme démoniaque frissonna et se prosterna rapidement, comme si elle implorait la pitié.
 
-Wang Lin leva sa main droite vers le vide. La Lance du Brouillard Démoniaque apparut soudainement, pointée vers l'âme démoniaque. L'âme démoniaque et l'esprit de Wang Lin étant liés, elle afficha un regard d'hésitation.
+Wang Lin leva sa main droite vers le vide. La Lance du Démon de Brume apparut soudainement, pointée vers l'âme démoniaque. L'âme démoniaque et l'esprit de Wang Lin étant liés, elle afficha un regard d'hésitation.
 
 Wang Lin laissa échapper un froid reniflement.
 
-L'âme démoniaque trembla et se transforma en un rayon de lumière noire. Elle fonça vers la Lance du Brouillard Démoniaque pour s'y intégrer. Dès qu'elle pénétra dans l'arme, la lance sembla acquérir une âme et dégagea une aura terrifiante. Elle se métamorphosa en un python noir et jaillit de la grotte. S'étirant dans le ciel, elle poussa un rugissement qui ébranla les cieux!
+L'âme démoniaque trembla et se transforma en un rayon de lumière noire. Elle fonça vers la Lance du Démon de Brume pour s'y intégrer. Dès qu'elle pénétra dans l'arme, la lance sembla acquérir une âme et dégagea une aura terrifiante. Elle se métamorphosa en un python noir et jaillit de la grotte. S'étirant dans le ciel, elle poussa un rugissement qui ébranla les cieux!
 
-Les membres du Clan Scorpion Obscur restèrent stupéfaits devant ce python noir qui dégageait une pression infinie. Ils étaient totalement ébranlés.
+Les membres du Clan des Scorpions Noirs restèrent stupéfaits devant ce python noir qui dégageait une pression infinie. Ils étaient totalement ébranlés.
 
 Les membres du Clan de l'Évasion Nuageuse éprouvèrent le même sentiment, fixant le python céleste avec terreur. Une sensation d'effroi envahit leurs cœurs.
 
@@ -100,7 +100,7 @@ Parallèlement au Conseil Souverain, le Conseil Déchu envoyait également des i
 
 Le Grand Empereur ignorait tout cela. Pour lui, la Sélection des Anciens Délaissés n'était qu'une simple festivité.
 
-Wang Lin se rendit sur la Planète du Grand Empereur avec le Clan Scorpion Obscur et le Clan de l'Évasion Nuageuse.
+Wang Lin se rendit sur la Planète du Grand Empereur avec le Clan des Scorpions Noirs et le Clan de l'Évasion Nuageuse.
 
 Une femme aux longs cheveux se tenait sur une gigantesque boussole octogonale à l'extérieur de la Terre Déchue. Elle fronçait les sourcils, plongée dans ses pensées.
 
@@ -116,7 +116,7 @@ Li Qianmei le suivait silencieusement.
 
 Plus loin encore, dans un domaine stellaire presque désert, une bête de la taille d'une planète de culture se déplaçait lentement. Cette créature avait la forme d'une ellipse et d'innombrables tentacules longs de dizaines de milliers de pieds ondulaient sur tout son corps.
 
-Le Serpent Regardant la Lune!
+Le Serpent aux yeux de lune!
 
 Un vieil homme vêtu d'une robe blanche se tenait là. Son apparence était extrêmement bizarre, la moitié de son visage étant noire. Son visage rappelait le symbole du Yin et du Yang.
 

@@ -14,15 +14,15 @@ Au moment où Wang Lin vit la planète tourner, au neuvième étage de la tour, 
 
 « Plus une personne est intelligente, plus il lui est difficile de s’en libérer! Ce n'est que le premier cycle; plus on avance, plus son potentiel destructeur est grand. Une fois qu'il atteindra les neuf cycles, il sera piégé là pour la vie, jusqu'à ce que son énergie mentale soit épuisée et qu'il meure! »
 
-En entendant cela, Na Dou sourit. Il joignit les mains en signe de respect envers le vieil homme et dit: « Avec l'Ancêtre ici, cet homme ne pourra pas s'échapper. »
+En entendant cela, Na Duo sourit. Il joignit les mains en signe de respect envers le vieil homme et dit: « Avec l'Ancêtre ici, cet homme ne pourra pas s'échapper. »
 
 Le vieil homme en robe dorée rit et regarda son bras droit. Une pointe de cruauté perçait son regard. Même à présent, son bras droit ressentait encore une douleur lancinante. Même lorsqu'il utilisait son énergie céleste, celle-ci ne parvenait pas à apaiser toute la souffrance.
 
-À l'extérieur de la planète, le Grand Empereur Xuan Luo, qui observait la scène depuis le début, plissa les yeux.
+À l'extérieur de la planète, le Grand Empyréen Xuan Luo, qui observait la scène depuis le début, plissa les yeux.
 
 « La puissance de cette Roue Cœur des Neuf Cycles est moyenne, mais elle est difficile à briser pour ceux qui n'en comprennent pas la nature... Je crains que cet enfant ne puisse s'en sortir... Peu importe, je vais observer encore un peu. S'il est vraiment piégé, je le sauverai. »
 
-Le Grand Empereur Xuan Luo secoua doucement la tête. Il ne s'attendait pas à ce que Wang Lin brise la célèbre formation de la Secte Gui Yi, mais une infime lueur d'espoir subsistait dans son cœur.
+Le Grand Empyréen Xuan Luo secoua doucement la tête. Il ne s'attendait pas à ce que Wang Lin brise la célèbre formation de la Secte Gui Yi, mais une infime lueur d'espoir subsistait dans son cœur.
 
 Cependant, cette attente était très ténue. Lorsqu'il nota cette légère espérance, il ne put s'empêcher de rire.
 
@@ -76,13 +76,13 @@ Au neuvième étage de la tour, le vieil homme en robe dorée rit en voyant cela
 
 « Cet homme veut s'introduire sur ma planète des Cinq Éléments? Il est bien trop arrogant! »
 
-Na Dou sourit également, mais une peur persistante demeurait dans ses yeux. Il ne comprenait pas la Roue Cœur des Neuf Cycles aussi bien que le vieil homme, mais il l'avait lui-même expérimentée il y a longtemps.
+Na Duo sourit également, mais une peur persistante demeurait dans ses yeux. Il ne comprenait pas la Roue Cœur des Neuf Cycles aussi bien que le vieil homme, mais il l'avait lui-même expérimentée il y a longtemps.
 
 Il connaissait parfaitement la terreur de cette formation. Il était tombé dans le coma lors du troisième cycle et n'avait été sauvé que par l'Ancêtre. Il lui avait fallu un temps considérable pour s'en remettre. Depuis, il ne ressentait envers cette formation qu'une crainte révérencielle.
 
-À l'extérieur de la planète, le Grand Empereur Xuan Luo secoua doucement la tête avec un soupir.
+À l'extérieur de la planète, le Grand Empyréen Xuan Luo secoua doucement la tête avec un soupir.
 
-« Toujours pas aussi impressionnant que prévu. Même une faible attente peut se transformer en déception. Il est déjà rare qu'il tienne jusqu'au cinquième cycle... Je vais le laisser expérimenter encore un peu, et lorsqu'il atteindra le neuvième cycle, j'interviendrai. » Le Grand Empereur Xuan Luo ressentait une certaine déception, mais il comprenait que s'il avait tenté de pénétrer cette célèbre formation sans préparation avant de devenir un Grand Empereur, il aurait été dans un état similaire.
+« Toujours pas aussi impressionnant que prévu. Même une faible attente peut se transformer en déception. Il est déjà rare qu'il tienne jusqu'au cinquième cycle... Je vais le laisser expérimenter encore un peu, et lorsqu'il atteindra le neuvième cycle, j'interviendrai. » Le Grand Empyréen Xuan Luo ressentait une certaine déception, mais il comprenait que s'il avait tenté de pénétrer cette célèbre formation sans préparation avant de devenir un Grand Empyréen, il aurait été dans un état similaire.
 
 Le visage de Wang Lin était d'une pâleur mortelle. À la neuvième respiration du neuvième cycle, il cracha du sang. Cela était dû à l'épuisement de son esprit. Son corps commença à tourner lentement, mais il parvint à stopper le mouvement par la force.
 
@@ -100,15 +100,15 @@ Il fixait le vortex, et plus il peinait à se calmer, plus il pensait. Il devait
 
 Bientôt, la sixième série de neuf respirations passa, puis la septième, et la huitième... tout s'enchaîna en un éclair!
 
-Au neuvième étage de la tour, le vieil homme rit en agitant sa manche. Il emmena Na Dou hors de la tour pour se tenir dans les cieux.
+Au neuvième étage de la tour, le vieil homme rit en agitant sa manche. Il emmena Na Duo hors de la tour pour se tenir dans les cieux.
 
 « Le neuvième cycle... cet homme est mort à coup sûr! Na Duo, suis ce vieil homme pour récupérer son corps! » Le vieil homme en robe dorée rit et s'apprêtait à avancer. Cependant, son rire s'interrompit brusquement et ses yeux se remplirent d'incrédulité.
 
 « Ça a ralenti! La rotation a ralenti! Impossible, c'est le neuvième tour, cela... cela... »
 
-Na Dou était également terrifié; son sourire initial s'était rapidement mué en une peur pure.
+Na Duo était également terrifié; son sourire initial s'était rapidement mué en une peur pure.
 
-De même, à l'extérieur de la planète, le Grand Empereur Xuan Luo secouait la tête, réprimant sa déception. Il s'apprêtait à agiter sa main droite, mais au moment où il allait le faire, il s'arrêta. Ses yeux brillèrent et il abaissa sa main. Son cœur ancien commença à battre.
+De même, à l'extérieur de la planète, le Grand Empyréen Xuan Luo secouait la tête, réprimant sa déception. Il s'apprêtait à agiter sa main droite, mais au moment où il allait le faire, il s'arrêta. Ses yeux brillèrent et il abaissa sa main. Son cœur ancien commença à battre.
 
 À l'intérieur de la formation, lorsque la première respiration du neuvième cycle arriva, Wang Lin ferma soudainement les yeux.
 

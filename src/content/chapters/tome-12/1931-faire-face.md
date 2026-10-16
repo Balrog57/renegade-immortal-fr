@@ -44,7 +44,7 @@ Cette paume ne contenait qu'une fraction du tonnerre de la boucherie, car si l'a
 
 À cet instant, bien que la paume se soit brisée, le tonnerre de la boucherie ne fut pas dissipé; il retourna intact dans le corps de Wang Lin.
 
-Libéré de toute entrave, le visage rugit et chargea vers Wang Lin. Il semblait refusera de céder tant qu'il n'aurait pas dévoré Wang Lin, un cultivateur non issu du Continent Astral Immortel!
+Libéré de toute entrave, le visage rugit et chargea vers Wang Lin. Il semblait refuser de céder tant qu'il n'aurait pas dévoré Wang Lin, un cultivateur non issu du Continent Astral Immortel!
 
 En un éclair, il se trouva à moins de cent pieds de lui. Peu importe la distance parcourue par Wang Lin en reculant, le visage, drapé de strates de restrictions, le poursuivait sans relâche!
 
@@ -83,7 +83,7 @@ Wang Lin ne jouerait pas ainsi; il préférait maîtriser son propre destin!
 
 Toutefois, la majeure partie de son cou était pétrifiée. Bien qu'il se régénère, il lui faudrait encore quelques respirations pour tourner la tête.
 
-Wang Lin poussa un rugissement. Alors que la tête s'apprêtait à pivoter, il leva la main droite. Il ressentit une douleur aiguë alors que la Lame Yin grandissait de neuf mètres depuis sa main!
+Wang Lin poussa un rugissement. Alors que la tête s'apprêtait à pivoter, il leva la main droite. Il ressentit une douleur aiguë alors que la Lame Yin grandissait de trente pieds depuis sa main!
 
 À l'instant où la Lame Yin apparut, les eaux environnantes gelèrent instantanément!
 
@@ -95,9 +95,9 @@ Des grondements tonitruants secouèrent toute la Mer Montagneuse. Le cou montra 
 
 Le cou reliant le visage fut tranché en deux par la lame!
 
-De violentes vibrations remontèrent des profondeurs, faisant bouillonner toute la mer et créant un vortex. Le dragon marin tordit son corps dans des mouvements provocateurs et rugit vers l'octopus dans une langue que seuls eux pouvaient comprendre.
+De violentes vibrations remontèrent des profondeurs, faisant bouillonner toute la mer et créant un vortex. Le dragon marin tordit son corps dans des mouvements provocateurs et rugit vers la pieuvre dans une langue que seuls eux pouvaient comprendre.
 
-On ignorait si l'octopus pouvait l'entendre, mais à voir ses yeux écarquillés et la colère folle qui se lisait en lui, il semblait avoir compris.
+On ignorait si la pieuvre pouvait l'entendre, mais à voir ses yeux écarquillés et la colère folle qui se lisait en lui, il semblait avoir compris.
 
 Cependant, les vibrations provenant des abysses terrifièrent le dragon marin un instant. Sentant un danger imminent, il s'enfuit promptement sans hésiter.
 

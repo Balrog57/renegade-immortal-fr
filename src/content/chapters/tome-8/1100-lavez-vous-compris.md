@@ -78,11 +78,11 @@ C'était une forme d'espoir spirituel, une sorte de persévérance et de lutte, 
 
 « Wan Er, souviens-toi que même si les cieux veulent ta mort, je te ramènerai!!! » déclara Wang Lin avec une détermination défiant le ciel.
 
-Les volcans étaient la seule chose qui ne manquait pas sur ces planètes appartenant à la Secte Divin de l'Oiseau Vermillon. Ces volcans s'étaient formés dans des conditions particulières, faisant jaillir très fréquemment d'épaisses coulées de magma.
+Les volcans étaient la seule chose qui ne manquait pas sur ces planètes appartenant à la Secte Divine de l'Oiseau Vermillon. Ces volcans s'étaient formés dans des conditions particulières, faisant jaillir très fréquemment d'épaisses coulées de magma.
 
 Chaque éruption faisait trembler la terre. Le grondement assourdissant était tellurique. La fumée noire emplissait le ciel et la lave pleuvait, donnant l'impression de la fin du monde!
 
-Les disciples de la Secte Divin de l'Oiseau Vermillon avaient vu trop d'éruptions volcaniques. Cependant, Wang Lin, lui, en avait vu peu.
+Les disciples de la Secte Divine de l'Oiseau Vermillon avaient vu trop d'éruptions volcaniques. Cependant, Wang Lin, lui, en avait vu peu.
 
 À cet instant, des bruits sourds provenant du volcan sur lequel il se trouvait s'intensifièrent. Mais Wang Lin ignorait tout cela. À présent, Li Muwan était la seule chose qu'il voyait.
 
@@ -92,7 +92,7 @@ Peu après, le rugissement du volcan atteignit son paroxysme et, soudain, un ray
 
 De loin, la scène était terrifiante. À cet instant, Wang Lin était assis à l'embouchure du volcan. Certains rochers sur les bords furent aspirés par la lave et projetés dans les airs.
 
-Le magma jaillit dans l'air juste devant le visage de Wang Lin, à moins de trois mètres! Les vagues de chaleur denses et le magma s'élancèrent comme un dragon de feu avant de se disperser partout.
+Le magma jaillit dans l'air juste devant le visage de Wang Lin, à moins de dix pieds! Les vagues de chaleur denses et le magma s'élancèrent comme un dragon de feu avant de se disperser partout.
 
 C'était comme si le monde s'effondrait autour de lui, mais cela ne suffisait pas à le faire lever les yeux une seule fois... Il fixait silencieusement le cercueil, indifférent au chaos.
 
@@ -114,4 +114,4 @@ Wang Lin ferma lentement les yeux, et les scènes de Qing Shui utilisant l'Effon
 
 En vérité, dans la Terre des Esprits Démoniaques, Wang Lin avait entrevu une trace de compréhension de ce sort lors d'une éruption volcanique, mais le sentiment était resté ténu. En raison des dangers qu'il affrontait, il n'avait pas eu le temps d'approfondir sa réflexion.
 
-Cependant, la Secte Divin de l'Oiseau Vermillon ne manquait pas de volcans. Maintenant qu'il possédait davantage d'énergie originelle du feu, il comprenait de plus en plus le sort de l'Effondrement des Montagnes que Qing Shui lui avait laissé.
+Cependant, la Secte Divine de l'Oiseau Vermillon ne manquait pas de volcans. Maintenant qu'il possédait davantage d'énergie originelle du feu, il comprenait de plus en plus le sort de l'Effondrement des Montagnes que Qing Shui lui avait laissé.

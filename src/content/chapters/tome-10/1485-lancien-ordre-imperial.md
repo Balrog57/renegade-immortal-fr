@@ -12,7 +12,7 @@ La puissance d'un seul coup de poing avait pulvérisé toutes les montagnes de l
 
 Le gouffre béant et l'effondrement des terres du nord donnaient l'impression que la pluie était composée des larmes de la planète Dong Ling.
 
-L'Ancien Ordre Divin ne faisait pas seulement trembler la terre, il faisait aussi trembler les cœurs!
+Le Tremblement Divin de l'Ordre Antique ne faisait pas seulement trembler la terre, il faisait aussi trembler les cœurs!
 
 Dans le sud, la famille Xu était sous le choc. La panique et le désespoir se lisaient dans leurs yeux. Même le chef de la famille et les différents Anciens étaient stupéfaits.
 
@@ -54,9 +54,9 @@ Le tournesol géant libéra une lumière dorée mêlée d'un éclat rouge sang. 
 
 Une force destructrice se propagea rapidement depuis l'intérieur du pilier. Puis, une ombre sans tête apparut vaguement dans la lumière. Cette ombre, vêtue d'une armure et tenant une lance, chargea à travers le pilier!
 
-Par quelque méthode inconnue, cette puissance surpassait les limites des cultivateurs de la cinquième étape de la Peste Céleste et se rapprochait infiniment des sorts de Flamme Divine des cultivateurs du troisième pas! On pourrait même dire que l'aura de ce pilier de lumière était presque identique à celle d'un cultivateur du Vide du Nirvana au début du troisième pas! Tout cela était dû à cette ombre sans tête nichée dans la lumière!
+Par quelque méthode inconnue, cette puissance surpassait les limites des cultivateurs de la cinquième étape du Fléau Céleste et se rapprochait infiniment des sorts de Flamme Divine des cultivateurs du troisième pas! On pourrait même dire que l'aura de ce pilier de lumière était presque identique à celle d'un cultivateur du Vide du Nirvana au début du troisième pas! Tout cela était dû à cette ombre sans tête nichée dans la lumière!
 
-Wang Lin se retourna brusquement, son regard fulgurant balayant la zone. Il vit l'ombre sans tête. Le pilier de lumière était trop rapide; il se trouvait désormais à moins de dix mètres de Wang Lin! C'était comme s'il ne lui laissait aucune chance d'esquiver!
+Wang Lin se retourna brusquement, son regard fulgurant balayant la zone. Il vit l'ombre sans tête. Le pilier de lumière était trop rapide; il se trouvait désormais à moins de trente pieds de Wang Lin! C'était comme s'il ne lui laissait aucune chance d'esquiver!
 
 Mais Wang Lin n'avait nullement l'intention de l'esquiver. Ses yeux brillèrent et il leva sa main droite. Alors que le pilier de lumière se refermait sur lui, il projeta sa paume en avant!
 
@@ -82,7 +82,7 @@ D'un seul mouvement, le Feu Éthéré commença à consumer l'intérieur des cor
 
 Alors que la mer de feu s'étendait, le ciel entier fut recouvert d'une brume blanche. Wang Lin marcha lentement vers la partie occidentale de la planète, là où l'ancêtre de la famille Xiang lui avait dérobé sa vitalité!
 
-Au fil de son avancée, les hurlements de douleur continua ne cessaient de résonner. Tous les cultivateurs qui s'approchaient de lui étaient réduits en cendres. Personne ne pouvait entraver sa marche. Bientôt, Wang Lin atteignit la partie ouest, où la terre était d'un rouge sombre. Devant lui s'étendait le gouffre profond menant à la grotte de l'ancêtre Xiang!
+Au fil de son avancée, les hurlements de douleur ne cessaient de résonner. Tous les cultivateurs qui s'approchaient de lui étaient réduits en cendres. Personne ne pouvait entraver sa marche. Bientôt, Wang Lin atteignit la partie ouest, où la terre était d'un rouge sombre. Devant lui s'étendait le gouffre profond menant à la grotte de l'ancêtre Xiang!
 
 Wang Lin fit un pas en avant et pénétra dans la faille. À peine eut-il franchi le seuil qu'un rugissement jaillit du cercueil jaune. Une masse de liquide visqueux et jaunâtre fut projetée, formant une vague qui s'élança vers lui! L'odeur de chair putréfiée et l'aura de mort se mêlèrent à ce liquide pour former une tempête grondante. Wang Lin resta serein; au moment où la tempête allait l'atteindre, il fit un geste de la main. La tempête s'effondra instantanément, et le liquide jaune émit des crépitements en frappant les rochers environnants.
 

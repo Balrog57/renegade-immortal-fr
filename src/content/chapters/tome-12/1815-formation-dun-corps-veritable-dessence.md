@@ -8,7 +8,7 @@ slug: formation-dun-corps-véritable-dessence
 ---
 « Avec mon sceau doré, il devrait s'en sortir dans les terres célestes... Maintenant qu'il est arrivé, il n'y a pas d'urgence à aller le chercher... Laissons-le perfectionner ses compétences afin qu'il puisse devenir encore plus puissant à l'avenir! » murmura Xuan Luo pour lui-même. Il ne se rendrait pas dans les terres des Cieux. Après tout, avec son statut, il n'était pas opportun d'y aller trop souvent, au risque de provoquer des ennuis inutiles.
 
-Tout comme si le Grand Empereur céleste continuait de fréquenter les Anciens Pays, il finirait par être expulsé ou même assiégé.
+Tout comme si le Grand Empyréen céleste continuait de fréquenter les Anciens Pays, il finirait par être expulsé ou même assiégé.
 
 Lors de son précédent voyage, bien qu'il fût parti, il avait subi des blessures, ce qui l'avait contraint à une culture en porte fermée. L'autre raison pour laquelle il s'était retiré était le regret qu'il ressentait de ne pas avoir pu attendre Wang Lin.
 
@@ -30,7 +30,7 @@ Le corps véritable d'essence était en pleine formation!
 
 Du Qing, témoin de cette scène, resta stupéfait. C'était la première fois qu'il assistait à la formation d'un corps véritable d'essence. Un tel spectacle lui apportait des bénéfices immenses et ouvrait même une voie pour sa future culture. Ce chemin, autrefois flou, devenait désormais limpide.
 
-« Un corps véritable! C'est un corps véritable! J'ai réellement pu observer le processus. Une telle chose est extrêmement rare, et moi, Du Qing, j'en suis le témoin! » Du Qing était exalté. Il avait traversé sept Tribulations Arcane, mais il n'aurait jamais osé, ni n'aurait eu la confiance nécessaire pour affronter la huitième ou la neuvième. Ce qu'il venait de voir aidait son essence de feu à croître!
+« Un corps véritable! C'est un corps véritable! J'ai réellement pu observer le processus. Une telle chose est extrêmement rare, et moi, Du Qing, j'en suis le témoin! » Du Qing était exalté. Il avait traversé sept Tribulations Arcanes, mais il n'aurait jamais osé, ni n'aurait eu la confiance nécessaire pour affronter la huitième ou la neuvième. Ce qu'il venait de voir aidait son essence de feu à croître!
 
 La scène paraissait simple, mais en vérité, la pression que subissait Wang Lin était monstrueuse. La sueur couvrait son front et se transformait instantanément en vapeur, lui donnant l'apparence d'être caché dans un brouillard épais.
 

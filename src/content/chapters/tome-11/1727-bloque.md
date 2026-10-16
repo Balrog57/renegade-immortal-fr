@@ -6,21 +6,21 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1727 - Blocked!"
 slug: bloque
 ---
-Après avoir dévoré l'Omniscient, la Bête des Profondeurs était devenue le Dao Céleste. Si elle ne souhaitait pas que d'autres détectent son aura, il serait extrêmement difficile de la trouver.
+Après avoir dévoré l'Omniscient, la Bête des Limbes était devenue le Dao Céleste. Si elle ne souhaitait pas que d'autres détectent son aura, il serait extrêmement difficile de la trouver.
 
 Si elle se trouvait à l'extérieur du monde caverneux, le Dao Céleste présenterait certaines failles, mais à l'intérieur du monde caverneux, il était absolu!
 
-À l'époque, même Lian Daofei n'avait pas été capable de détecter le Dao Céleste avant d'être dévoré. Bien que la Bête des Profondeurs ait séjourné dans la Mer Nuageuse depuis longtemps, même le Vieux Fantôme Zhan ne l'avait pas remarquée.
+À l'époque, même Lian Daofei n'avait pas été capable de détecter le Dao Céleste avant d'être dévoré. Bien que la Bête des Limbes ait séjourné dans la Mer des Nuages depuis longtemps, même le Vieux Fantôme Zhan ne l'avait pas remarquée.
 
 Quant aux quatre généraux, ils ne l'avaient pas non plus perçue.
 
-Leurs Sens Divins étaient assez puissants pour couvrir toute la Mer Nuageuse, mais ils ne pouvaient pas voir la Bête des Profondeurs. Ils n'avaient même pas remarqué Wang Lin, assis sur le dos de la créature.
+Leurs Sens Divins étaient assez puissants pour couvrir toute la Mer des Nuages, mais ils ne pouvaient pas voir la Bête des Limbes. Ils n'avaient même pas remarqué Wang Lin, assis sur le dos de la créature.
 
-C'est ainsi que l'Omniscient avait pu demeurer dans la Rivière des Invocations pendant des centaines d'années sans jamais être détecté.
+C'est ainsi que l'Omniscient avait pu demeurer dans la Rivière Invoquée pendant des centaines d'années sans jamais être détecté.
 
-Le corps original de Wang Lin était assis sur le dos de la Bête des Profondeurs, tandis que son avatar condensait ses essences à ses côtés. Les ondulations qui se propageaient à travers la Mer Nuageuse ne pouvaient être dissimulées et furent détectées par les quatre généraux ainsi que par d'autres êtres célestes.
+Le corps original de Wang Lin était assis sur le dos de la Bête des Limbes, tandis que son avatar condensait ses essences à ses côtés. Les ondulations qui se propageaient à travers la Mer des Nuages ne pouvaient être dissimulées et furent détectées par les quatre généraux ainsi que par d'autres êtres célestes.
 
-Cependant, peu importe la manière dont ils sondaient l'espace avec leur Sens Divin, ils ne trouvaient rien. Dans leur perception, la Bête des Profondeurs n'existait pas; il n'y avait que le calme de l'espace.
+Cependant, peu importe la manière dont ils sondaient l'espace avec leur Sens Divin, ils ne trouvaient rien. Dans leur perception, la Bête des Limbes n'existait pas; il n'y avait que le calme de l'espace.
 
 Le Vieux Fantôme Zhan, qui les suivait, fronça également les sourcils en scrutant l'horizon. Il chercha longuement, mais finit par ne rien trouver.
 
@@ -54,7 +54,7 @@ Ces intrus étaient le deuxième clou! Il allait les exposer à la lumière!
 
 C'était aussi un jeu, une lutte pour la suprématie. C'est ainsi que Wang Lin percevait les choses. Tout dépendrait de qui trouverait la troisième âme en premier!
 
-Tandis que Wang Lin réfléchissait, la Bête des Profondeurs sous lui avança lentement et atteignit bientôt les profondeurs de la Mer Nuageuse. Sous les ordres de Wang Lin, la Bête des Profondeurs ferma ses yeux terrifiants et s'apprêta à se diriger vers le Vide Brillant.
+Tandis que Wang Lin réfléchissait, la Bête des Limbes sous lui avança lentement et atteignit bientôt les profondeurs de la Mer des Nuages. Sous les ordres de Wang Lin, la Bête des Limbes ferma ses yeux terrifiants et s'apprêta à se diriger vers le Vide Brillant.
 
 Cependant, à cet instant précis, Wang Lin laissa échapper une exclamation étouffée. Il regarda au loin et ses yeux s'illuminèrent.
 
@@ -62,17 +62,17 @@ Peu de temps après, plus de cent rayons de lumière apparurent à l'horizon, se
 
 Les quatre personnes en tête portaient une gourde au-dessus de leurs têtes. Celle-ci dégageait un gaz vert semblable à une tempête.
 
-L'expression de Wang Lin resta calme alors qu'il siégeait sur le dos de la Bête des Profondeurs. Il observa froidement les rayons de lumière qui approchaient, sans leur accorder la moindre attention.
+L'expression de Wang Lin resta calme alors qu'il siégeait sur le dos de la Bête des Limbes. Il observa froidement les rayons de lumière qui approchaient, sans leur accorder la moindre attention.
 
 « Wang Lin!! » Les cent rayons de lumière s'arrêtèrent soudainement. Une voix choquée retentit parmi les quatre vieillards qui menaient le groupe.
 
 L'homme qui avait parlé était le général du Dragon Azure!
 
-Il fixait Wang Lin, et plus particulièrement la Bête des Profondeurs sous ses pieds. Le cœur du général du Dragon Azure manqua un battement.
+Il fixait Wang Lin, et plus particulièrement la Bête des Limbes sous ses pieds. Le cœur du général du Dragon Azure manqua un battement.
 
-« Quelle sorte de bête est-ce là? » Il ignorait qu'il s'agissait de la Bête des Profondeurs et ne savait pas qu'elle était le Dao Céleste. Après tout, à l'exception du Souverain aux Sept Couleurs, personne n'avait jamais vu le véritable corps du Dao Céleste; on ne savait que c'était une masse de brume.
+« Quelle sorte de bête est-ce là? » Il ignorait qu'il s'agissait de la Bête des Limbes et ne savait pas qu'elle était le Dao Céleste. Après tout, à l'exception du Souverain aux Sept Couleurs, personne n'avait jamais vu le véritable corps du Dao Céleste; on ne savait que c'était une masse de brume.
 
-L'Oiseau Vermillon, la Tortue Noire et le Tigre Blanc étaient tous sous le choc. Leurs regards se verrouillèrent sur la Bête des Profondeurs.
+L'Oiseau Vermillon, la Tortue Noire et le Tigre Blanc étaient tous sous le choc. Leurs regards se verrouillèrent sur la Bête des Limbes.
 
 S'ils étaient si stupéfaits, c'était parce que leurs Sens Divins étaient déployés depuis tout ce temps sans qu'ils ne remarquent absolument Wang Lin. S'ils ne l'avaient pas vu de leurs propres yeux, ils n'auraient jamais cru sa présence.
 
@@ -90,11 +90,11 @@ En balayant l'assemblée du regard, il remarqua la gourde géante qui flottait a
 
 Le général du Dragon Azure réprima le choc dans son cœur. Ses yeux brillèrent et il dit lentement: « Nous n'avons pas revu le Compagnon de Culture Wang depuis notre séparation. Maintenant que nous nous croisons, je me demande bien où le Compagnon de Culture compte se rendre. »
 
-« Le Vide Brillant! » Wang Lin ne perdit pas de temps. À peine eut-il prononcé ces mots que la Bête des Profondeurs glissa silencieusement vers l'avant.
+« Le Vide Brillant! » Wang Lin ne perdit pas de temps. À peine eut-il prononcé ces mots que la Bête des Limbes glissa silencieusement vers l'avant.
 
 Il n'avait pas le temps de perdre son temps avec eux. Ni les quatre généraux, ni le Vieux Fantôme Zhan n'étaient assez importants pour faire halte. Cependant, bien qu'il veuille partir, les autres ne l'en laisseraient pas ainsi.
 
-Les quatre généraux se regardèrent et fixèrent tous la Bête des Profondeurs sous Wang Lin. Leurs yeux brillaient d'une lueur étrange.
+Les quatre généraux se regardèrent et fixèrent tous la Bête des Limbes sous Wang Lin. Leurs yeux brillaient d'une lueur étrange.
 
 Le général du Dragon Azure s'interposa devant Wang Lin et déclara avec lenteur: « Pourquoi le Compagnon de Culture Wang Lin part-il si précipitamment? Nous avions un accord, et depuis notre arrivée, nous n'avons causé aucun trouble à votre Royaume Céleste et n'avons tué personne dans le monde caverneux. Si le Compagnon de Culture est si pressé de partir, y aurait-il une affaire urgente? »
 
@@ -106,13 +106,13 @@ Wang Lin fronça les sourcils, fixa froidement l'autre et, après un long silenc
 
 Simultanément, la Tortue Noire s'avança également pour se positionner à sa gauche. Le général de l'Oiseau Vermillon hésita un instant, mais décida tout de même de bloquer la voie de retraite de Wang Lin.
 
-Peu après, les cent et un anciens êtres célestes se rapprochèrent silencieusement, encerclant Wang Lin et la Bête des Profondeurs.
+Peu après, les cent et un anciens êtres célestes se rapprochèrent silencieusement, encerclant Wang Lin et la Bête des Limbes.
 
 « Compagnon de Culture Wang Lin, j'ai parfaitement respecté notre accord, il n'est donc pas nécessaire de nuire à nos relations. Sinon, quelque chose pourrait arriver à votre petit Royaume Céleste », dit le général de la Tortue Noire d'un ton sombre.
 
 Wang Lin observa les êtres célestes qui l'encerclaient, mais son regard resta impassible.
 
-« Compagnon de Culture Wang, vous possédez l'Arc Li Guang, nous ne souhaitons donc pas être vos ennemis. Il vous suffit de nous dire où vous avez obtenu cette bête. » Le général du Dragon Azure fixait la Bête des Profondeurs, la cupidité transparaissant dans ses yeux.
+« Compagnon de Culture Wang, vous possédez l'Arc Li Guang, nous ne souhaitons donc pas être vos ennemis. Il vous suffit de nous dire où vous avez obtenu cette bête. » Le général du Dragon Azure fixait la Bête des Limbes, la cupidité transparaissant dans ses yeux.
 
 « Je crois que le Compagnon de Culture Zhan est également intéressé par l'origine de cette créature. » Le général de la Tortue Noire était le plus rusé. À cet instant, il jeta un coup d'œil au Vieux Fantôme Zhan, qui flottait seul au loin.
 
@@ -126,4 +126,4 @@ Dans sa jeunesse, il avait souvent emprunté le pouvoir d'autrui pour faire pres
 
 « Même si vous refusez de nous la prêter, puisque nous sommes tous amis, je ne vous bloquerai pas naturellement. Cependant, il pourrait y avoir un problème avec notre coopération passée. Il ne reste plus beaucoup de cultivateurs dans le monde caverneux », ajouta lentement le général du Dragon Azure avec un sourire.
 
-« Au lieu de chercher la troisième âme, vous venez me chercher des ennuis! On dirait que la douleur passée n'était pas assez profonde. Très bien, aujourd'hui, je vais vous faire ressentir une douleur telle qu'elle sera gravée dans vos os! » L'expression de Wang Lin était de marbre alors qu'il se redressait. Sa main gauche s'élança vers le vide et la Hache Brise-Ciel apparut!
+« Au lieu de chercher la troisième âme, vous venez me chercher des ennuis! On dirait que la douleur passée n'était pas assez profonde. Très bien, aujourd'hui, je vais vous faire ressentir une douleur telle qu'elle sera gravée dans vos os! » L'expression de Wang Lin était de marbre alors qu'il se redressait. Sa main gauche s'élança vers le vide et la Hache Divisant le Ciel apparut!

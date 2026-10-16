@@ -38,7 +38,7 @@ Aucun cultivateur dans tout le Monde des Grottes ne remarquerait cette aura, car
 
 Cette aura semblait appeler les membres de la Race Ancienne. À mesure qu'elle se répandait, quiconque possédait une lignée ancienne dans le Monde des Grottes la ressentit, percevant une puissance émanant de son propre sang.
 
-Dans le Royaume Intérieur, le démon ancien de la Mer Nuageuse, qui avait survécu à tant de batailles, ouvrit les yeux avec stupeur. Fixant l'horizon, il sentit cette aura et éprouva un instinct profond de vénération envers elle.
+Dans le Royaume Intérieur, le démon ancien de la Mer des Nuages, qui avait survécu à tant de batailles, ouvrit les yeux avec stupeur. Fixant l'horizon, il sentit cette aura et éprouva un instinct profond de vénération envers elle.
 
 Dans la faille invisible entourant la planète effondrée Dong Lin, une femme, également un dieu ancien, ouvrit les yeux. Son regard se remplit d'horreur; elle fut saisie d'effroi avant que son corps ne se mette à trembler de manière incontrôlable.
 
@@ -78,19 +78,19 @@ Sa présence commanda à près d'un million de cultivateurs du pays ancien de s'
 
 Seul le jeune homme aux cheveux noirs resta droit, fixant toujours calmement la statue. L'homme en robe royale ne sembla nullement offensé. Il passa devant la foule inclinée pour rejoindre le jeune homme. Souriant, il joignit les mains et s'adressa à lui avec respect, sans pour autant perdre sa dignité:
 
-« Ye Su salue le Grand Empereur Xuan Luo. »
+« Ye Su salue le Grand Empyréen Xuan Luo. »
 
-Le jeune homme aux cheveux noirs était l'un des neuf soleils: le Grand Empereur Xuan Luo!
+Le jeune homme aux cheveux noirs était l'un des neuf soleils: le Grand Empyréen Xuan Luo!
 
 Ce dernier répondit lentement: « Le moment approche, vous êtes un peu tard. »
 
-« J'espère que le Grand Empereur pourra me pardonner. Les empereurs Ji et Shi sont très préoccupés par ce qui se passe ici; je communiquais avec eux via mon Sens Divin. » L'homme en robe royale afficha un sourire amer en hochant la tête.
+« J'espère que le Grand Empyréen pourra me pardonner. Les empereurs Ji et Shi sont très préoccupés par ce qui se passe ici; je communiquais avec eux via mon Sens Divin. » L'homme en robe royale afficha un sourire amer en hochant la tête.
 
 Le jeune homme laissa échapper un reniflement froid.
 
 « Les trois empereurs: Ji, Dao et Shi. Vous êtes l'empereur du royaume de Dao; il y a des moments où vous n'avez pas besoin de leur accorder l'ombre d'une attention. Mais cet événement est majeur pour mon royaume, il est donc naturel qu'ils s'en inquiètent. »
 
-« Comme le dit mon oncle. » L'homme en robe royale changea alors son mode d'adresse. En entendant ce terme, l'expression du Grand Empereur Xuan Luo s'adoucit légèrement.
+« Comme le dit mon oncle. » L'homme en robe royale changea alors son mode d'adresse. En entendant ce terme, l'expression du Grand Empyréen Xuan Luo s'adoucit légèrement.
 
 « Oncle, cette affaire est bien étrange. Je me demande quelles sont les chances de succès? » L'homme regarda la statue de son ancêtre qui lui ressemblait tant.
 

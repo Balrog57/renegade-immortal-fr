@@ -10,7 +10,7 @@ Au moment où le fouet frappa son corps, Xu Fenghan sentit un froid glacial l’
 
 Ses pas ralentirent involontairement et même son Dao devint instable.
 
-Il ne pouvait imaginer quel genre de fouet possédédait une puissance aussi terrifiante. À cet instant, Wang Lin s'élança. Il ne chargea pas vers Xu Fenghan, mais vers le lotus de celui-ci.
+Il ne pouvait imaginer quel genre de fouet possédait une puissance aussi terrifiante. À cet instant, Wang Lin s'élança. Il ne chargea pas vers Xu Fenghan, mais vers le lotus de celui-ci.
 
 Prendre sa place!
 
@@ -128,4 +128,4 @@ L'Ancêtre de Sang serra le poing et déclara: « Grand-père!! Ma fille unique,
 
 La voix rauque se tut. Après un long silence, un soupir antique s'en échappa.
 
-« Yao Xixue... » La voix était devenue très douce. Puis, après un moment, elle reprit lentement: « J'ai calculé qu'elle se trouve dans le Royaume Céleste du Tonnerre. Va la chercher et ramène ma petite-fille. Présente-toi au Temple Céleste du Tonnerre avec mon jeton, ils te laisseront entrer. Si tu es en retard, même eux ne pourront pas te faire pénétrer dans le Royaume Céleste. »
+« Yao Xixue... » La voix était devenue très douce. Puis, après un moment, elle reprit lentement: « J'ai calculé qu'elle se trouve dans le Royaume Céleste du Tonnerre. Va la chercher et ramène mon arrière-petite-fille. Présente-toi au Temple Céleste du Tonnerre avec mon jeton, ils te laisseront entrer. Si tu es en retard, même eux ne pourront pas te faire pénétrer dans le Royaume Céleste. »

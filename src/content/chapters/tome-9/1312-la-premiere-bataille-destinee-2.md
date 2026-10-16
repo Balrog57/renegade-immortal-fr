@@ -18,7 +18,7 @@ L'aura de la Hache Brise-Ciel éclata, dégageant une aura d'Ancien Dieu capable
 
 Des bruits de craquements retentirent. Bien que Tuo Sen fût puissant, l'épée de sang avait blessé l'Empereur Céleste Antique et possédait une origine mystérieuse; depuis que Wang Lin l'avait obtenue, elle était devenue indestructible!
 
-Le corps de Tuo Sen ne pouvait rivaliser avec la tranchant de l'épée. Lorsque son poing la percuta, le sang jaillit de toutes parts, tandis que l'aura de la Hache Brise-Ciel s'engouffrait dans son bras. Une série de grondements résonna alors qu'elle entamait une destruction dévastatrice à l'intérieur du membre de Tuo Sen. Le fatigué Tuo Sen laissa paraître sa colère; son corps fut inopinément stoppé et il recula d'un pas!
+Le corps de Tuo Sen ne pouvait rivaliser avec le tranchant de l'épée. Lorsque son poing la percuta, le sang jaillit de toutes parts, tandis que l'aura de la Hache Brise-Ciel s'engouffrait dans son bras. Une série de grondements résonna alors qu'elle entamait une destruction dévastatrice à l'intérieur du membre de Tuo Sen. Le fatigué Tuo Sen laissa paraître sa colère; son corps fut inopinément stoppé et il recula d'un pas!
 
 Au moment où son mouvement fut interrompu, les craquements à l'intérieur de son bras droit devinrent encore plus stridents, comme si une aura destructrice s'apprêtait à jaillir de son membre!
 
@@ -48,7 +48,7 @@ De plus, Tuo Sen était un génie capable de sceller des cultivateurs du troisi�
 
 En conséquence, il n'était pas un adversaire auquel Wang Lin pouvait simplement résister!
 
-Après tout, Wang Lin n'avait obtenu que l'héritage de la mémoire, tandis que Tuo Sen avait obtenu l'héritage du pouvoir. Le corps physique de Tu Si terrurrait quiconque le contemplait!
+Après tout, Wang Lin n'avait obtenu que l'héritage de la mémoire, tandis que Tuo Sen avait obtenu l'héritage du pouvoir. Le corps physique de Tu Si terrorisait quiconque le contemplait!
 
 « Une fois que nous fusionnerons, ce dieu atteindra le sommet que j'ai touché par le passé. Tu... ne peux pas résister à cela! » rugit Tuo Sen avant de s'élancer. Il agita la main et lança un coup de poing vers les sept phantoms planétaires.
 
@@ -74,7 +74,7 @@ Puis, l'empreinte se solidifia et chargea vers Tuo Sen!
 
 « Tu n'es qu'un démon de Tu Si, et tu oses te prétendre un dieu?! » rugit Wang Lin alors que l'empreinte fonçait sur lui. Tuo Sen grogna et leva la main, tentant impitoyablement de déchirer l'empreinte en deux.
 
-Des grondements tonitruants résonnèrent et le vide trembla. Le domaine stellaire du Clan Lunaire sembla sur le point de s'effondrer. L'empreinte de paume fut inopinément fendue en deux par Tuo Sen.
+Des grondements tonitruants résonnèrent et le vide trembla. Le domaine stellaire du Clan de la Lune sembla sur le point de s'effondrer. L'empreinte de paume fut inopinément fendue en deux par Tuo Sen.
 
 Après avoir utilisé l'Empreinte de l'Esprit Guerrier, Wang Lin ne pensait pas que cela suffirait à arrêter Tuo Sen. Simultanément, il leva sa main gauche pour la plaquer contre le bras droit de Tuo Sen, tel Maître Lu Fu autrefois. Il pointa le dos de sa main gauche avec sa main droite. C'était comme si une énergie originelle infinie était aspirée dans sa paume, entamant ainsi une confrontation frontale avec Tuo Sen.
 

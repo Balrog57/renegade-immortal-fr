@@ -6,11 +6,11 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1384 - Frightened Bird (1)
 slug: loiseau-effraye-1
 ---
-Wang Lin traversa rapidement l'espace. Il avait quitté le Clan du Dragon Blindé après avoir emporté de nombreux trésors qu'ils avaient accumulés: une grande quantité de Pilules d'Effondrement du Dragon et de Cristaux de Mutation du Feu remplissaient son espace de stockage.
+Wang Lin traversa rapidement l'espace. Il avait quitté le Clan du Dragon Blindé après avoir emporté de nombreux trésors qu'ils avaient accumulés: une grande quantité de Pilules d'Effondrement du Dragon et de Cristaux de Mutation de Feu Déchaîné remplissaient son espace de stockage.
 
-Il y avait également de nombreux automates, dont le plus puissant atteignait le premier stade de la Peste Céleste. Tout cela constituait les économies du Clan du Dragon Blindé, et tout lui avait été remis par le nouveau patriarche.
+Il y avait également de nombreux automates, dont le plus puissant atteignait le premier stade du Fléau Céleste. Tout cela constituait les économies du Clan du Dragon Blindé, et tout lui avait été remis par le nouveau patriarche.
 
-En volant, l'esprit de Wang Lin s'anima. Il était plongé dans ses pensées. Lors de son combat contre Maître Simo, l'énigmatique Grand Empereur était apparu soudainement pour finalement lui accorder le titre d'Empereur Cadet.
+En volant, l'esprit de Wang Lin s'anima. Il était plongé dans ses pensées. Lors de son combat contre Maître Simo, l'énigmatique Grand Empereur était apparu soudainement pour finalement lui accorder le titre de Jeune Empereur.
 
 « Ce Grand Empereur a-t-il un lien avec les Quatre Sectes Divines... Si oui, qui est-il? Si non, pourquoi me traite-t-il ainsi... De plus, il s'est contenté de m'envoyer ce jade sans manifester l'intention de me rencontrer... Quelle est la signification de tout cela... » Wang Lin fronça les sourcils et accéléra sa course.
 
@@ -26,7 +26,7 @@ Wang Lin médita encore un instant avant de s'arrêter net. Une possibilité lui
 
 Peut-être que ces deux hypothèses sont les véritables raisons de son revirement! Cependant, ce ne sont que des spéculations. Je ne sais pas si l'une d'elles est vraie.
 
-De plus, il a puni le Patriarche du Dragon Blindé en envoyant son messager pour me faire étalage de sa puissance... Et enfin, il m'ordonne de participer à la sélection des Anciens Délaissés dans trois mois... Cette affaire est étrange. Je n'aurai qu'à m'y rendre dans trois mois pour découvrir les objectifs de ce Grand Empereur! » Les yeux de Wang Lin s'illuminèrent et il se concentra. Il utilisa la Courbure Spatiale pour se diriger vers le Clan du Scorpion Noir.
+De plus, il a puni le Patriarche du Dragon Blindé en envoyant son messager pour me faire étalage de sa puissance... Et enfin, il m'ordonne de participer à la sélection des Anciens Déchus dans trois mois... Cette affaire est étrange. Je n'aurai qu'à m'y rendre dans trois mois pour découvrir les objectifs de ce Grand Empereur! » Les yeux de Wang Lin s'illuminèrent et il se concentra. Il utilisa la Courbure Spatiale pour se diriger vers le Clan du Scorpion Noir.
 
 Le groupe de Cupidité progressait à une vitesse fulgurante et convergeait rapidement vers le Clan du Scorpion Noir. Ces mille cultivateurs traversaient l'espace, créant d'immenses ondulations alors qu'ils approchaient de la planète du clan.
 
@@ -52,7 +52,7 @@ Mais avant qu'il ne puisse terminer, son expression changea radicalement et il l
 
 Le Patriarche du Clan du Scorpion Noir, qui siégeait dans la vallée à l'extérieur de la grotte de Wang Lin, ouvrit soudainement les yeux avec horreur et s'élança dans les airs.
 
-Zhong Grand Rouge fut également saisi de stupeur en levant le regard. Son visage devint livide, pétrifié par l'effroi. Le vieil homme nommé Zhang eut également un haut-le-cœur, totalement stupéfait.
+Zhong Grand Rouge fut également saisi de stupeur en levant le regard. Son visage devint livide, pétrifié par l'effroi. Le vieil homme nommé Zhang eut également un sursaut, totalement stupéfait.
 
 Des ondulations couvraient le ciel comme la surface d'une mer déchaînée, et des vagues monstrueuses se formaient. Les rayons d'énergie de l'épée produisaient un hurlement puissant à mesure qu'ils approchaient!
 

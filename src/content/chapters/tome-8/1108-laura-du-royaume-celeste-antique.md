@@ -80,9 +80,9 @@ C'est là que la lumière vert-noir était apparue!
 
 « Un fragment d'aura du Royaume Céleste Antique... » Le vieil homme réfléchit un instant avant de faire demi-tour et de partir.
 
-Quant à Wang Lin, il regagna rapidement la zone contrôlée par les Quatre Sectes Divins avant de ralentir sa course. Il ne cessait de rejouer la scène qu'il venait de vivre, et plus particulièrement l'image de ce jeune homme qui l'avait tant troublé.
+Quant à Wang Lin, il regagna rapidement la zone contrôlée par les Quatre Sectes Divines avant de ralentir sa course. Il ne cessait de rejouer la scène qu'il venait de vivre, et plus particulièrement l'image de ce jeune homme qui l'avait tant troublé.
 
-« Qui est-il...? » Les yeux de Wang Lin trahissaient une crainte alors qu'il scrutait le ciel sombre derrière lui. Il s'élança et des ondulations apparurent avant qu'il ne disparaisse. Lorsqu'il réapparut, il se trouvait déjà à l'extérieur de la Secte Divin de l'Oiseau Vermillon.
+« Qui est-il...? » Les yeux de Wang Lin trahissaient une crainte alors qu'il scrutait le ciel sombre derrière lui. Il s'élança et des ondulations apparurent avant qu'il ne disparaisse. Lorsqu'il réapparut, il se trouvait déjà à l'extérieur de la Secte Divine de l'Oiseau Vermillon.
 
 Il n'entra pas dans le champ d'étoiles ardent mais choisit une planète abandonnée. Wang Lin s'installa sur une montagne de cette planète.
 
@@ -90,23 +90,23 @@ Une fois assis, il laissa échapper un soupir de soulagement, mais plus il y pen
 
 Le Sens Divin de Wang Lin se projeta sans hésiter vers la tête de l'âme originelle inconsciente. Rapidement, il en extirpa une immense quantité de souvenirs.
 
-« Le Système d'Étoiles de la Mer Nuageuse du Royaume Céleste du Vent!!! » Les yeux de Wang Lin s'illuminèrent. Après réflexion, une pointe de joie apparut dans son regard!
+« Le Système d'Étoiles de la Mer des Nuages du Royaume Céleste du Vent!!! » Les yeux de Wang Lin s'illuminèrent. Après réflexion, une pointe de joie apparut dans son regard!
 
-« Le Système d'Étoiles de la Mer Nuageuse... » Après avoir approfondi ses recherches, Wang Lin explora à nouveau les souvenirs de cette âme originelle pour trouver le passage vers ce système.
+« Le Système d'Étoiles de la Mer des Nuages... » Après avoir approfondi ses recherches, Wang Lin explora à nouveau les souvenirs de cette âme originelle pour trouver le passage vers ce système.
 
 Quinze minutes plus tard, Wang Lin retira son Sens Divin et sourit.
 
-« La structure de ce Système d'Étoiles de la Mer Nuageuse est radicalement différente de celle de l'Alliance et de Luotian, elle me convient parfaitement... De plus, ce Royaume Céleste du Vent est en fait rempli de bêtes moustiques... Je ne pensais pas que la barrière entourant la Mer Nuageuse serait la plus faible des quatre systèmes stellaires. Il suffira d'une formation spéciale pour la briser. » Les yeux de Wang Lin brillèrent alors qu'il regardait l'âme originelle dans sa main, avant de la ranger soigneusement dans son espace de stockage.
+« La structure de ce Système d'Étoiles de la Mer des Nuages est radicalement différente de celle de l'Alliance et de Luotian, elle me convient parfaitement... De plus, ce Royaume Céleste du Vent est en fait rempli de bêtes moustiques... Je ne pensais pas que la barrière entourant la Mer des Nuages serait la plus faible des quatre systèmes stellaires. Il suffira d'une formation spéciale pour la briser. » Les yeux de Wang Lin brillèrent alors qu'il regardait l'âme originelle dans sa main, avant de la ranger soigneusement dans son espace de stockage.
 
-« Je peux utiliser cette âme originelle comme guide en employant le sortilège du Frère Aîné Qing Shui. Maintenant, il ne me manque que la formation. Heureusement, les matériaux nécessaires pour celle-ci ne sont pas trop difficiles à trouver. Il me suffit de comprendre pleinement la structure pour pouvoir en créer une. Si tout ce que j'ai préparé pour Tuo Sen s'avère insuffisant, alors le Système d'Étoiles de la Mer Nuageuse sera mon ultime recours! »
+« Je peux utiliser cette âme originelle comme guide en employant le sortilège du Frère Senior Qing Shui. Maintenant, il ne me manque que la formation. Heureusement, les matériaux nécessaires pour celle-ci ne sont pas trop difficiles à trouver. Il me suffit de comprendre pleinement la structure pour pouvoir en créer une. Si tout ce que j'ai préparé pour Tuo Sen s'avère insuffisant, alors le Système d'Étoiles de la Mer des Nuages sera mon ultime recours! »
 
-Wang Lin réfléchit un instant avant de se lever et de prendre une profonde inspiration. Il regarda la Secte Divin de l'Oiseau Vermillon et murmura: « Très bien, il ne me reste plus qu'à attendre que le vieux Empereur Divin revienne avec le Cristal du Royaume Céleste de la Pluie... Luotian, la Secte des Cadavres et les forces de l'Alliance ont tous supposé que j'avais envoyé les jades pour pouvoir pêcher en pleine tempête... »
+Wang Lin réfléchit un instant avant de se lever et de prendre une profonde inspiration. Il regarda la Secte Divine de l'Oiseau Vermillon et murmura: « Très bien, il ne me reste plus qu'à attendre que le vieux Empereur Divin revienne avec le Cristal du Royaume Céleste de la Pluie... Luotian, la Secte des Cadavres et les forces de l'Alliance ont tous supposé que j'avais envoyé les jades pour pouvoir pêcher en eau trouble... »
 
-« En vérité, vous n'avez deviné que la moitié. Mon autre objectif est de vous conduire tous vers la Terre du Dieu Antique, afin qu'aucun d'entre vous ne puisse saboter le plan des Quatre Sectes Divins visant à sauver l'Empereur Divin du Dragon Azure dans le Royaume Céleste de la Pluie! »
+« En vérité, vous n'avez deviné que la moitié. Mon autre objectif est de vous conduire tous vers la Terre du Dieu Antique, afin qu'aucun d'entre vous ne puisse saboter le plan des Quatre Sectes Divines visant à sauver l'Empereur Divin du Dragon Azure dans le Royaume Céleste de la Pluie! »
 
-« Je me demande combien d'entre vous ont percé à jour mon stratagème! » Wang Lin, animé par une pointe de fierté, se dirigea vers la Secte Divin de l'Oiseau Vermillon.
+« Je me demande combien d'entre vous ont percé à jour mon stratagème! » Wang Lin, animé par une pointe de fierté, se dirigea vers la Secte Divine de l'Oiseau Vermillon.
 
-Il allait retrouver Wang Wei et Hu Juan, ainsi que le Démon Ancien Ta Jia, qui était scellé par le trésor sacré.
+Il allait retrouver Wang Wei et Hu Juan, ainsi que l'Ancien Démon Ta Jia, qui était scellé par le trésor sacré.
 
 À cet instant précis, un événement bouleversant secoua le quartier général de l'Alliance, dans sa zone centrale. Même la formation extérieure trembla violemment, comme sur le point de s'effondrer!
 

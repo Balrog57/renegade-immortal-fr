@@ -58,7 +58,7 @@ Wang Lin resta silencieux et leva la main droite. À ce geste, l'ombre de l'Anc�
 
 Le visage de l'Empereur devint cendré et il poussa un cri déchirant: « NON! »
 
-« Grand Empereur Gu Dao, sauvez-moi! Père, sauvez-moi! Ancêtre, sauvez-moi! Maître Impérial, sauvez-moi! » rugissait l'Empereur de terreur.
+« Grand Empyréen Gu Dao, sauvez-moi! Père, sauvez-moi! Ancêtre, sauvez-moi! Maître Impérial, sauvez-moi! » rugissait l'Empereur de terreur.
 
 Alors qu'il implorait son ancêtre, profondément sous le palais, dans une chambre secrète recouverte de runes, un cercueil violet reposait dans les profondeurs de la terre.
 
@@ -74,7 +74,7 @@ Le vieil homme agenouillé dans le palais trembla lorsque l'Empereur l'appela. I
 
 Après cet acte, le visage de Wang Lin pâlit légèrement et l'ombre de l'Ancêtre commença à se dissiper. Avant qu'elle ne disparaisse totalement, Wang Lin tourna soudainement le regard vers l'horizon, en direction d'une montagne désertique située hors de la cité impériale.
 
-Celui qui était responsable du vol de l'âme de Wan Er n'était pas l'Empereur du Dao Ancestral, mais la silhouette enveloppée d'une lumière aux sept couleurs que Wang Lin avait aperçue grâce au jade du Grand Secte des Âmes. Le mystérieux Maître Impérial du Dao Ancestral!
+Celui qui était responsable du vol de l'âme de Wan Er n'était pas l'Empereur du Dao Ancestral, mais la silhouette enveloppée d'une lumière aux sept couleurs que Wang Lin avait aperçue grâce au jade de la Secte de la Grande Âme. Le mystérieux Maître Impérial du Dao Ancestral!
 
 C'était lui qui avait dérobé le fragment d'âme de Li Muwan pour le donner à l'Empereur du Dao Ancestral. C'était aussi lui qui avait conseillé à l'Empereur de trouver un être capable de fusionner avec cette âme.
 

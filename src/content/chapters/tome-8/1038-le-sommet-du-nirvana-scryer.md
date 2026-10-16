@@ -16,13 +16,13 @@ Les Quatre Grandes Sectes étaient encore plus puissantes et mystérieuses que l
 
 En conséquence, ils avaient formé une alliance avec l'Alliance de Culture. Après de multiples complots, ils parvinrent à mener les Quatre Grandes Sectes vers leur point de faiblesse le plus critique.
 
-L'Empereur Divin du Dragon Azure, le plus puissant d'entre eux, disparut, et la nouvelle de l'entrée de l'Empereur Divin de l'Oiseau Vermillon — le plus craint de tous — dans sa troisième Affliction Céleste fut divulguée. Cela plongea les Quatre Grandes Sectes dans une crise sans précédent!
+L'Empereur Divin du Dragon Azure, le plus puissant d'entre eux, disparut, et la nouvelle de l'entrée de l'Empereur Divin de l'Oiseau Vermillon — le plus craint de tous — dans son troisième Fléau Céleste fut divulguée. Cela plongea les Quatre Grandes Sectes dans une crise sans précédent!
 
 Néanmoins, les Quatre Grandes Sectes étaient encore assez fortes pour lutter contre l'Alliance de Culture et ne craignaient pas le Royaume du Vide Brillant. Après tout, pour diverses raisons, le Royaume du Vide Brillant ne pouvait intervenir qu'en secret. Même s'ils s'étaient manifestés ouvertement, les Quatre Grandes Sectes auraient pu activer les Quatre Trésors Divins pour mener bataille.
 
 Cependant, au moment le plus crucial de l'affrontement entre les Quatre Grandes Sectes et l'Alliance, un événement cataclysmique se produisit, causant finalement le déclin définitif des Quatre Grandes Sectes!
 
-L'Empereur Divin de la Tortue Noire, ses trois principaux disciples ainsi qu'une majorité de sa secte trahirent les Quatre Grandes Sectes! Non seulement cela, mais durant cette trahison, il lança une attaque surprise contre l'Empereur Divin de l'Oiseau Vermillon. Bien qu'il ait finalement échoué, il provoqua l'éruption de la troisième Affliction Céleste que l'Empereur Divin de l'Oiseau Vermillon était en train de réprimer.
+L'Empereur Divin de la Tortue Noire, ses trois principaux disciples ainsi qu'une majorité de sa secte trahirent les Quatre Grandes Sectes! Non seulement cela, mais durant cette trahison, il lança une attaque surprise contre l'Empereur Divin de l'Oiseau Vermillon. Bien qu'il ait finalement échoué, il provoqua l'éruption du troisième Fléau Céleste que l'Empereur Divin de l'Oiseau Vermillon était en train de réprimer.
 
 Une telle chose était absolument inconcevable pour les Quatre Grandes Sectes, qui reposaient sur des héritages de lignée sanguine. La trahison de l'Empereur Divin de la Tortue Noire et d'une grande partie de sa secte infligea un bouleversement inimaginable à cette guerre.
 
@@ -32,7 +32,7 @@ Jusqu'à ce jour, personne n'a su pourquoi l'Empereur Divin de la Tortue Noire, 
 
 La trahison de l'Empereur Divin de la Tortue Noire renforça l'Alliance de Culture. Cette bataille ébranla tout le système stellaire et laissa des cadavres ensanglantés partout sur son passage.
 
-Pourtant, l'Alliance de Culture sous-estima encore les Quatre Grandes Sectes. Suite à la trahison, l'Empereur Divin de l'Oiseau Vermillon risqua d'échouer lors de sa troisième Affliction Céleste et inonda les étoiles d'une mer de flammes. Il se divisa ensuite en dix avatars et lança une contre-attaque effrénée.
+Pourtant, l'Alliance de Culture sous-estima encore les Quatre Grandes Sectes. Suite à la trahison, l'Empereur Divin de l'Oiseau Vermillon risqua d'échouer lors de son troisième Fléau Céleste et inonda les étoiles d'une mer de flammes. Il se divisa ensuite en dix avatars et lança une contre-attaque effrénée.
 
 Cette bataille fut une tragédie. Les rares cultivateurs qui survécurent frémissaient à chaque fois qu'ils s'en remémoraient.
 
@@ -44,9 +44,9 @@ La Secte Divine du Dragon Azure subit de lourdes pertes; un ou deux membres seul
 
 L'Empereur Divin du Tigre Blanc tua de nombreux Anciens de la première vague de l'Alliance ainsi que de nombreux membres du Royaume du Vide Brillant. Même à la fin, alors qu'il rendait l'âme, son corps ne s'effondra pas mais resta debout, faisant barrage à l'armée de l'Alliance de Culture. L'intention meurtrière monstrueuse qu'il dégageait choqua d'innombrables personnes, les empêchant de faire un pas de plus.
 
-Cette guerre tragique prit fin là, et on peut dire que les deux camps en sortirent épuisés. Les Quatre Grandes Sectes avaient perdu, mais la puissance de l'Alliance de Culture en fut également gravement affectée. Même le Royaume du Vide Brillant dut renoncer à ses plans d'extermination totale. Ce n'était pas par manque de volonté, mais si ils avaient persisté, le prix de la victoire aurait été quelque chose que ni l'Alliance ni le Royaume du Vide Brillant ne pourraient supporter.
+Cette guerre tragique prit fin là, et on peut dire que les deux camps en sortirent épuisés. Les Quatre Grandes Sectes avaient perdu, mais la puissance de l'Alliance de Culture en fut également gravement affectée. Même le Royaume du Vide Brillant dut renoncer à ses plans d'extermination totale. Ce n'était pas par manque de volonté, mais s'ils avaient persisté, le prix de la victoire aurait été quelque chose que ni l'Alliance ni le Royaume du Vide Brillant ne pourraient supporter.
 
-Après tout, la rumeur des Quatre Trésors Divins capables de fendre les cieux subsistait. Si ils avaient réellement acculé les Quatre Grandes Sectes à une situation désespérée, ces dernières auraient pu facilement sacrifier l'intégralité de leur secte pour les emporter dans leur chute.
+Après tout, la rumeur des Quatre Trésors Divins capables de fendre les cieux subsistait. S'ils avaient réellement acculé les Quatre Grandes Sectes à une situation désespérée, ces dernières auraient pu facilement sacrifier l'intégralité de leur secte pour les emporter dans leur chute.
 
 Dès lors, les Quatre Grandes Sectes disparurent sans laisser de trace. Durant ces dizaines de milliers d'années, elles n'apparurent presque jamais, et même lorsqu'elles le faisaient, elles n'occupaient qu'un nombre restreint de planètes. De cette manière, elles s'intégrèrent également à l'Alliance; la planète Suzaku en est un parfait exemple.
 
@@ -72,7 +72,7 @@ Une énergie originelle infinie émanait des âmes originelles dévorées par Wa
 
 Cependant, l'énergie originelle de Wang Lin était imprégnée de flammes; l'énergie qu'il dévorait devait donc être transformée. Elle était raffinée à l'intérieur même de son âme originelle.
 
-Bien que ce processus fût plus laborieux, une fois accompli, la force de Wang Lin s'en trouverait décuplée.
+Bien que ce processus fût plus laborieux, une fois accompli, la force de Wang Lin s'en trouverait multipliée plusieurs fois.
 
 D'immenses quantités d'énergie originelle se chargeaient de puissantes flammes, provoquant une chaleur intense qui se dégageait du corps de Wang Lin au fur et à mesure que l'énergie circulait. Les parois de la grotte devinrent rouges avant de s'effondrer, comme si ces roches avaient été enfouies dans un volcan depuis des éternités.
 
@@ -106,6 +106,6 @@ Tandis qu'il méditait, le corps de Wang Lin vacilla et son avatar s'en extirpa.
 
 L'avatar affichait un visage calme. Après avoir quitté le corps original, il sortit de la grotte. Il flotta dans les airs tandis que l'Oiseau Vermillon planait rapidement au-dessus de lui. Wang Lin prit une grande inspiration et l'énergie originelle dans son corps atteignit son apogée. Une sphère de flammes s'alluma dans son œil gauche, tandis que son œil droit contenait une sphère de tonnerre bleu.
 
-Puis, son âme originelle jaillit de son entrecorps. Le rugissement antique du dragon de tonnerre, capable de commander à tout le tonnerre du monde, résonna dans la cavité.
+Puis, son âme originelle jaillit d'entre ses sourcils. Le rugissement antique du dragon de tonnerre, capable de commander à tout le tonnerre du monde, résonna dans la cavité.
 
 À cet instant précis, la manière dont Wang Lin percevait le monde changea radicalement.

@@ -34,7 +34,7 @@ Un rayon de lumière jaune fonça vers le vortex en décomposition. En y pénét
 
 Les dizaines d'ombres féroces poussèrent des cris avant d'exploser en d'innombrables particules noires qui se dissipèrent instantanément.
 
-La lumière jaune jaillit du vortex et percuta de plein fouet le bouclier azur. Cependant, elle le traversa comme si elle était immatérielle et fondit sur le visage de Wang Lin en un éclair. La lueur s'arrêta à peine à trois centimètres de son nez.
+La lumière jaune jaillit du vortex et percuta de plein fouet le bouclier azur. Cependant, elle le traversa comme si elle était immatérielle et fondit sur le visage de Wang Lin en un éclair. La lueur s'arrêta à peine à trois pouces de son nez.
 
 À cet instant, le vortex disparut et le calme revint dans la tour noire.
 
@@ -106,7 +106,7 @@ Wang Lin frappa son corps de sa main droite et son sac de rangement vola dans un
 
 À l'instant où la flamme pénétra en lui, une chaleur infernale éclata dans ses entrailles. La température était inimaginable; le corps de Wang Lin devint rouge vif. Il ouvrit la bouche et un rugissement de douleur résonna dans toute la tour.
 
-Simultanément, une quantité massive de flammes jaillit de ses pores et ses vêtements furent instantanément réduits en cendres. Le feu s'étendit vers l'extérieur, consummant tout dans un rayon de dix mètres autour de lui.
+Simultanément, une quantité massive de flammes jaillit de ses pores et ses vêtements furent instantanément réduits en cendres. Le feu s'étendit vers l'extérieur, consumant tout dans un rayon de trente pieds autour de lui.
 
 Sa sueur se transforma immédiatement en une vapeur blanche qui enveloppa son corps.
 

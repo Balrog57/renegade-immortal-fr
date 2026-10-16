@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1179 - Crowd of Devils Gathers
 slug: le-rassemblement-des-demons
 ---
-« Nirvana Briseur de stade intermédiaire! » Lorsque Wang Lin s'approcha, il observa le vieil homme coiffé d'une couronne et ressentit l'intention meurtrière monstrueuse qui émanait de lui. Cet homme utilisait également les âmes pour ses sorts; c'était manifestement un célèbre cultivateur maléfique de la Mer Nuageuse.
+« Nirvana Briseur de stade intermédiaire! » Lorsque Wang Lin s'approcha, il observa le vieil homme coiffé d'une couronne et ressentit l'intention meurtrière monstrueuse qui émanait de lui. Cet homme utilisait également les âmes pour ses sorts; c'était manifestement un célèbre cultivateur maléfique de la Mer des Nuages.
 
 À ce moment-là, alors que Maître Nuage d'Âme agita ses manches, une marée infinie de fragments d'âmes chargea vers Wang Lin pour le dévorer.
 
@@ -30,7 +30,7 @@ Maître Pin Cendré ricana intérieurement. Lui et Maître Nuage d'Âme échang�
 
 Maître Nuage d'Âme envoya un message sonore à l'oreille de Maître Pin Cendré: « Cet homme a bien la capacité de tuer Wu Qing, mais il subsiste un fossé entre lui et les cultivateurs Nirvana Briseur de stade intermédiaire comme nous. Si j'attaque seul, je peux le tuer en dix respirations! Si nous unissons nos forces, nous pouvons l'éliminer instantanément! »
 
-Maître Pin Cendré ferma les yeux et répondit par message: « Ce qui m'effraie le plus n'est pas son identité potentielle de membre de la Secte Divin. C'est qu'il est manifestement un cultivateur Nirvana Purificateur, et pourtant ses sorts ont pu tuer Wu Qing instantanément. Il cache clairement son niveau de culture. Si je ne connais pas sa véritable puissance, cela pourrait compromettre nos plans. Cependant, après avoir vu votre combat, je suis rassuré. Mais cet homme est extrêmement rusé; une fois que nous serons engagés, essayez de le tester encore quelques fois! »
+Maître Pin Cendré ferma les yeux et répondit par message: « Ce qui m'effraie le plus n'est pas son identité potentielle de membre de la Secte Divine. C'est qu'il est manifestement un cultivateur Nirvana Purificateur, et pourtant ses sorts ont pu tuer Wu Qing instantanément. Il cache clairement son niveau de culture. Si je ne connais pas sa véritable puissance, cela pourrait compromettre nos plans. Cependant, après avoir vu votre combat, je suis rassuré. Mais cet homme est extrêmement rusé; une fois que nous serons engagés, essayez de le tester encore quelques fois! »
 
 Les yeux de Maître Nuage d'Âme brillèrent d'assentiment.
 

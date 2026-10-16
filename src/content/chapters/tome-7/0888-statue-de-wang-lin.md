@@ -67,7 +67,7 @@ Lors de la compétition pour le titre céleste, il avait obtenu le rang de Céle
 
 Ils pestèrent intérieurement. Leur arrogance et leur intention meurtrière s'étaient évanouies, remplacées par la panique. Sans hésiter, les deux s'enfuirent avec précipitation. Ils savaient trop bien ce que le nom de Maître Démon Xu Mu représentait: le massacre, un massacre sans fin. S'opposer à cet homme signifiait une mort certaine!
 
-Le frère cadet du Seigneur Céleste Qing Shui, un Céleste du Tonnerre, numéro un des jeunes de le Luotian, bienfaiteur d'innombrables familles de culture, et celui qui avait infligé de lourdes pertes à la famille Yao après avoir été traqué par eux! Chacune de ces prouesses suffisait à faire mourir ces deux frères mille fois!
+Le frère cadet du Seigneur Céleste Qing Shui, un Céleste du Tonnerre, numéro un des jeunes du Luotian, bienfaiteur d'innombrables familles de culture, et celui qui avait infligé de lourdes pertes à la famille Yao après avoir été traqué par eux! Chacune de ces prouesses suffisait à faire mourir ces deux frères mille fois!
 
 À cet instant, ils ne cherchèrent même pas à comprendre ce qui se passait. Perdus dans leur effroi, ils ne voulaient qu'une chose: partir le plus vite possible. Avec leur intelligence, ils étaient sûrs de ne pas s'être trompés. Cette statue était Xu Mu!
 

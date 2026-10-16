@@ -10,7 +10,7 @@ Sa voix n'était ni forte, ni tonnante. Cependant, lorsqu'elle retentit, une pre
 
 Cette pression était suffisante pour terrasser quiconque la ressentait!
 
-Il faut dire que la pression du Mont Gu Dao provenait du Grand Empereur Gu Dao, l'être le plus puissant du Continent Astral Immortel! Pourtant, l'aura que dégageait Wang Lin était comparable à celle du Grand Empereur Gu Dao!
+Il faut dire que la pression du Mont Gu Dao provenait du Grand Empyréen Gu Dao, l'être le plus puissant du Continent Astral Immortel! Pourtant, l'aura que dégageait Wang Lin était comparable à celle du Grand Empyréen Gu Dao!
 
 Une telle révélation suffisait à glacer le sang de n'importe qui!
 
@@ -26,7 +26,7 @@ Le Mont Gu Dao gronda, et depuis la tour au sommet, une immense main noire surgi
 
 Cette montagne de jade noir percuta la puissance fusionnée, céleste et ancienne, de Wang Lin.
 
-Un rugissement tonnerre résonna, et la montagne noire trembla violemment avant d'être repoussée. Elle se dissipa dans le ciel. Simultanément, le corps de Wang Lin frémit et sa puissance fusionnée se scinda à nouveau en forces célestes et anciennes. Le fragment de puissance fusionnée entama un second cycle, mais avec une lenteur telle qu'il semblait qu'il faudrait des décennies pour achever un nouveau cycle complet.
+Un rugissement tonitruant résonna, et la montagne noire trembla violemment avant d'être repoussée. Elle se dissipa dans le ciel. Simultanément, le corps de Wang Lin frémit et sa puissance fusionnée se scinda à nouveau en forces célestes et anciennes. Le fragment de puissance fusionnée entama un second cycle, mais avec une lenteur telle qu'il semblait qu'il faudrait des décennies pour achever un nouveau cycle complet.
 
 Xuan Luo, témoin de cette scène, laissa échapper un halètement.
 
@@ -36,19 +36,19 @@ Xuan Luo, témoin de cette scène, laissa échapper un halètement.
 
 Le visage de Wang Lin était pâle alors qu'il atteignait la 300e marche. Sans mot dire, il leva le pied pour franchir l'étape suivante. Lorsque son pied se posa sur la 301e marche, le sang de l'âme à l'intérieur de son corps fondit soudainement, fusionnant totalement avec sa chair.
 
-Il n'avait plus besoin de l'aide du Grand Empereur Gu Dao pour que le sang de l'âme s'intègre à son être. L'héritage de la lignée se révéla progressivement.
+Il n'avait plus besoin de l'aide du Grand Empyréen Gu Dao pour que le sang de l'âme s'intègre à son être. L'héritage de la lignée se révéla progressivement.
 
 Immobile, Wang Lin médita silencieusement et joignit les mains en direction du sommet du Mont Gu Dao.
 
-« Merci, Grand Empereur Gu Dao, pour votre aide », dit-il. Wang Lin n'était pas un homme imprudent. L'écart entre lui et Gu Dao était immense. Même si Gu Dao avait eu l'intention de le renvoyer après les 300 marches, il mit de côté son indifférence habituelle pour lui présenter ses respects.
+« Merci, Grand Empyréen Gu Dao, pour votre aide », dit-il. Wang Lin n'était pas un homme imprudent. L'écart entre lui et Gu Dao était immense. Même si Gu Dao avait eu l'intention de le renvoyer après les 300 marches, il mit de côté son indifférence habituelle pour lui présenter ses respects.
 
-De plus, il avait pu fusionner sa puissance céleste et ancienne grâce à la pression exercée par Gu Dao. Peut-être était-ce un accident, ou peut-être s'agissait-il d'une reconnaissance silencieuse de la part du Grand Empereur.
+De plus, il avait pu fusionner sa puissance céleste et ancienne grâce à la pression exercée par Gu Dao. Peut-être était-ce un accident, ou peut-être s'agissait-il d'une reconnaissance silencieuse de la part du Grand Empyréen.
 
-Quoi qu'il en soit, Wang Lin savait que le Grand Empereur Gu Dao était l'être le plus puissant du Continent Astral Immortel; il se devait donc de lui témoigner son respect.
+Quoi qu'il en soit, Wang Lin savait que le Grand Empyréen Gu Dao était l'être le plus puissant du Continent Astral Immortel; il se devait donc de lui témoigner son respect.
 
-Après un long moment, la voix froide du Grand Empereur résonna depuis la tour: « Sois sans crainte, j'ai dit que si tu parvenais à franchir les 300 marches, tu pourrais partir... Maintenant que c'est fait, va-t'en! »
+Après un long moment, la voix froide du Grand Empyréen résonna depuis la tour: « Sois sans crainte, j'ai dit que si tu parvenais à franchir les 300 marches, tu pourrais partir... Maintenant que c'est fait, va-t'en! »
 
-On aurait dit que le Grand Empereur Gu Dao avait pesé ses mots avant de parler.
+On aurait dit que le Grand Empyréen Gu Dao avait pesé ses mots avant de parler.
 
 Wang Lin ne répondit plus et entama la descente. Lorsqu'il rejoignit Xuan Luo, il remarqua les ondulations invisibles qui l'entouraient. Il était évident que si Gu Dao avait manqué à sa parole, Xuan Luo serait intervenu.
 
@@ -74,7 +74,7 @@ Tout cela paraissait ordinaire, mais Wang Lin seul savait qu'en une seule pensé
 
 Cette force et cette pression étaient comparables à celles du Mont Gu Dao!
 
-À mesure que ses essences et sa puissance ancienne augmenteraient, la durée de la fusion deviendrait toujours plus longue! Jusqu'au jour où il pourrait les intégrer totalement, non plus comme une simple fusion éphémère, mais pour acquérir une puissance égale à celle du Grand Empereur Gu Dao.
+À mesure que ses essences et sa puissance ancienne augmenteraient, la durée de la fusion deviendrait toujours plus longue! Jusqu'au jour où il pourrait les intégrer totalement, non plus comme une simple fusion éphémère, mais pour acquérir une puissance égale à celle du Grand Empyréen Gu Dao.
 
 Pour l'instant, le fragment de puissance fusionnée circulait lentement dans son corps. Il semblerait qu'il faille encore beaucoup de temps pour achever un cycle complet.
 

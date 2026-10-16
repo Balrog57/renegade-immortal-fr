@@ -10,11 +10,11 @@ slug: sept-coups-depee-fauchent-la-montagne-celeste-1
 
 L'éclair éternel frappa immédiatement le réseau de lumière, et un grondement tonitruant résonna à travers les 7 Millions de Mondes. Le réseau vacilla frénétiquement avant de s'effondrer.
 
-Au moment où le réseau se brisa, les dizaines de milliers de membres du Clan de la Foudre Dispersée présents dans les 7 Millions de Mondes saignèrent abondamment par tous leurs orifices et périrent instantanément!
+Au moment où le réseau se brisa, les dizaines de milliers de membres du Clan du Tonnerre Dispersé présents dans les 7 Millions de Mondes saignèrent abondamment par tous leurs orifices et périrent instantanément!
 
 Le Daoïste Esprit Dispersé avait capturé tous les membres du clan ici après le départ de Wang Lin. Il ne les avait pas tués, mais les avait scellés dans ce réseau de lumière pour qu'ils servent de bouclier.
 
-À cet instant, le réseau s'effondra et tous les membres du Clan de la Foudre Dispersé présents moururent!
+À cet instant, le réseau s'effondra et tous les membres du Clan du Tonnerre Dispersé présents moururent!
 
 L'éclair éternel trembla également. La protection du réseau avait été si puissante qu'elle avait considérablement affaibli l'éclair. Alors que celui-ci s'apprêtait à poursuivre Wang Lin, une silhouette illusoire surgit du vide!
 
@@ -28,7 +28,7 @@ Le Daoïste Esprit Dispersé poussa un rugissement et serra l'éclair plus fort,
 
 Un fracas assourdissant retentit et, grâce à leur attaque combinée, l'éclair éternel finit par se briser!
 
-Une onde de choc dévastatrice projeta Wang Lin et le Daoïste Esprit Dispersé en arrière. Tout cela se produisit en un éclair. Tandis qu'ils reculaient, l'Ancien suprême apparut non loin de là.
+Une onde de choc dévastatrice projeta Wang Lin et le Daoïste Esprit Dispersé en arrière. Tout cela se produisit en un éclair. Tandis qu'ils reculaient, l'Ancien en chef apparut non loin de là.
 
 Dès son apparition, son expression changea!
 
@@ -36,13 +36,13 @@ Dès son apparition, son expression changea!
 
 Il vit immédiatement le Daoïste Esprit Dispersé, et ses pupilles se rétractèrent.
 
-Le Daoïste Esprit Dispersé fixa l'Ancien et dit d'une voix lente: « Ancien suprême du Clan de la Foudre Dispersée, vous vous souvenez encore de moi? »
+Le Daoïste Esprit Dispersé fixa l'Ancien et dit d'une voix lente: « Ancien en chef du Clan du Tonnerre Dispersé, vous vous souvenez encore de moi? »
 
 L'Ancien affichait une expression extrêmement grave; grâce à son intelligence, il comprit instantanément la situation. Wang Lin avait voulu l'attirer ici, mais craignant ses soupçons, il avait provoqué un combat pour ensuite s'échapper au moment crucial, espérant qu'il le poursuive dans les 7 Millions de Mondes afin d'en finir avec lui.
 
 En entrant dans les 7 Millions de Mondes, il était tombé dans le piège de l'autre! Cependant, sa culture était colossale, n'étant surpassée que par les cultivateurs de la troisième étape. Bien qu'il sût que Wang Lin devait être préparé, il ne paniqua pas. Il observa le Daoïste Esprit Dispersé en fronçant légèrement les sourcils.
 
-« C'est toi! Cette fourmi d'autrefois. Si je ne t'avais pas laissé la vie sauve, tu aurais péri sous la divine tribulation! » Bien que l'Ancien parût imperturbable, il était profondément choqué intérieurement. Il reconnut cet homme et ne pouvait imaginer comment un tel individu avait pu apparaître parmi les insectes des 7 Millions de Mondes pour atteindre un tel niveau de culture. Pourtant, personne dans le Clan de la Foudre Dispersée ne s'en était aperçu auparavant!
+« C'est toi! Cette fourmi d'autrefois. Si je ne t'avais pas laissé la vie sauve, tu aurais péri sous la divine tribulation! » Bien que l'Ancien parût imperturbable, il était profondément choqué intérieurement. Il reconnut cet homme et ne pouvait imaginer comment un tel individu avait pu apparaître parmi les insectes des 7 Millions de Mondes pour atteindre un tel niveau de culture. Pourtant, personne dans le Clan du Tonnerre Dispersé ne s'en était aperçu auparavant!
 
 Une telle chose dépassait l'entendement, et il ne comprenait pas comment cela avait été possible. Mais désormais qu'il l'avait découvert, il devait impérativement tuer cet homme!
 
@@ -54,7 +54,7 @@ D'un revers de main, le monde trembla et une foudre infinie apparut devant l'Anc
 
 Le Daoïste Esprit Dispersé esquissa un sourire, révélant une pointe d'excitation et de folie. Il avait enduré, subi et caché sa présence pendant d'innombrables années; aujourd'hui, il allait enfin pouvoir tout déchaîner!
 
-Sa haine envers le Royaume Céleste et le Clan de la Foudre Dispersée le fit éclater d'un rire tonitruant!
+Sa haine envers le Royaume Céleste et le Clan du Tonnerre Dispersé le fit éclater d'un rire tonitruant!
 
 « Aujourd'hui, moi, Esprit Dispersé, je vengerai les générations de mon clan mortes par votre faute. Je veux... tuer les cieux! » Il fit un pas en avant, ses mains traçant des sceaux qu'il projeta sur le côté.
 
@@ -80,11 +80,11 @@ L'expression de l'Ancien changea. S'il n'y avait eu que le Daoïste Esprit Dispe
 
 Bien que Wang Lin n'eût pas encore attaqué, son regard était semblable à une lame verrouillée sur l'Ancien.
 
-L'Ancien ne pouvait se permettre la moindre distraction. Ses yeux brillaient de détermination alors qu'il s'apprêtait à utiliser son cinquième sortilège du Flétrissement Céleste pour les éliminer tous deux instantanément. Il ressentit un léger sentiment de crise, le convainquant que s'il continuait à ménager sa vitalité, il serait trop tard!
+L'Ancien ne pouvait se permettre la moindre distraction. Ses yeux brillaient de détermination alors qu'il s'apprêtait à utiliser son cinquième sortilège du Fléau Céleste pour les éliminer tous deux instantanément. Il ressentit un léger sentiment de crise, le convainquant que s'il continuait à ménager sa vitalité, il serait trop tard!
 
 Une fois sa décision prise, ses mains formèrent rapidement un sceau et ses vêtements se gonflèrent. Ses longs cheveux ondulaient sans qu'aucun vent ne souffle, et une culture extrêmement puissante jaillit de son corps!
 
-« Je vais vous montrer la véritable puissance du cinquième Flétrissement Céleste! Je sacrifie mille ans de ma vie en échange des nuages de tonnerre célestes. Formation des Nuages de Tonnerre! » Le marquage de l'Ancien brilla intensément et, dans un fracas, le compas géant réapparut dans les 7 Millions de Mondes!
+« Je vais vous montrer la véritable puissance du cinquième Fléau Céleste! Je sacrifie mille ans de ma vie en échange des nuages de tonnerre célestes. Formation des Nuages de Tonnerre! » Le marquage de l'Ancien brilla intensément et, dans un fracas, le compas géant réapparut dans les 7 Millions de Mondes!
 
 Le compas pivota silencieusement, puis le visage de l'Ancien devint instantanément livide et hideux. Il leva la main et des nuages commencèrent à émerger du vide. En un instant, d'innombrables nuages envahirent l'espace!
 

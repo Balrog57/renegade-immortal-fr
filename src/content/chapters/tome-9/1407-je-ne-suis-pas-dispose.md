@@ -34,7 +34,7 @@ Devant l'expression terrifiée de la jeune fille, le cœur de Wang Lin trembla. 
 
 La petite bête, désormais guérie, bondit hors des bras de la jeune fille. Après avoir atterri sur une branche, elle leur jeta un dernier regard avant de disparaître.
 
-La jeune fille prit une grande inspiration et se tapota la poitrine pour se calmer. Elle observa Wang Lin avec curiosité et dit doucement: « La junior Li Muwan salue l'Aîné. De quel pic l'Aîné vient-il pour chercher mon maître? »
+La jeune fille prit une grande inspiration et se tapota la poitrine pour se calmer. Elle observa Wang Lin avec curiosité et dit doucement: « La Junior Li Muwan salue le Senior. De quel pic le Senior vient-il pour chercher mon maître? »
 
 Wang Lin secoua la tête. Son regard devint plus tendre encore lorsqu'il répondit: « Je ne suis pas venu chercher ton maître, je vis ici. »
 
@@ -46,17 +46,17 @@ Une grotte venait d'apparaître là, comme par enchantement.
 
 Les yeux de Li Muwan s'écarquillèrent devant la demeure, et il lui fallut un long moment pour reprendre ses esprits. Elle regarda ensuite Wang Lin, les yeux brillants d'émerveillement.
 
-« L'Aîné doit être un vieux monstre de ma Secte Luo He... Euh, pas un vieux monstre, mais un expert caché. » Li Muwan sourit tout en reculant de quelques pas, une pointe de prudence dans le regard.
+« Le Senior doit être un vieux monstre de ma Secte Luo He... Euh, pas un vieux monstre, mais un expert caché. » Li Muwan sourit tout en reculant de quelques pas, une pointe de prudence dans le regard.
 
 Se retrouver seule ici, transportée soudainement par Wang Lin, la rendait naturellement nerveuse. Bien que l'homme ne paraisse pas malveillant, le cœur de Li Muwan battait la chamade.
 
-« La junior... La junior est venue ici sur ordre de son Maître pour cueillir des herbes. Je suis partie depuis longtemps... Mon Maître pourrait s'inquiéter et venir me chercher. La junior doit partir maintenant. » Li Muwan continuait de reculer, soulignant que son maître pouvait surgir à tout moment.
+« La Junior... La Junior est venue ici sur ordre de son Maître pour cueillir des herbes. Je suis partie depuis longtemps... Mon Maître pourrait s'inquiéter et venir me chercher. La Junior doit partir maintenant. » Li Muwan continuait de reculer, soulignant que son maître pouvait surgir à tout moment.
 
 Wang Lin sourit. Il n'avait jamais vu une telle expression sur le visage de Li Muwan. Il hocha la tête.
 
 Li Muwan prit rapidement la fuite et descendit la montagne. Ce n'est qu'une fois hors de la montagne qu'elle se détendit et regarda une dernière fois le sommet.
 
-« Ma Sœur Aînée avait dit que tous ces vieux monstres ont des manies bizarres, certains aiment même cultiver dans des fours de culture... Il m'a fait mourir de peur! Ce vieux monstre est apparu sans un bruit et m'a emmenée au sommet. Humph, si je n'avais pas réagi vite en mentionnant mon Maître, j'aurais pu être en danger... Pourtant, ce vieux monstre avait l'air très jeune et ne semblait pas méchant... Je réfléchis peut-être trop. »
+« Ma Senior Sister avait dit que tous ces vieux monstres ont des manies bizarres, certains aiment même cultiver dans des fours de culture... Il m'a fait mourir de peur! Ce vieux monstre est apparu sans un bruit et m'a emmenée au sommet. Humph, si je n'avais pas réagi vite en mentionnant mon Maître, j'aurais pu être en danger... Pourtant, ce vieux monstre avait l'air très jeune et ne semblait pas méchant... Je réfléchis peut-être trop. »
 
 Après avoir marmonné ces mots, Li Muwan partit rapidement.
 
@@ -80,7 +80,7 @@ Wang Lin regarda calmement Li Muwan avec une expression empreinte de douceur.
 
 Pourtant, aux yeux de la jeune fille, cette douceur la fit instinctivement reculer de quelques pas, augmentant sa méfiance.
 
-« Aîné... Aîné, pourriez-vous sauver ceci... » Li Muwan mordilla sa lèvre inférieure et sortit avec précaution une petite bête de la taille d'une paume.
+« Senior... Senior, pourriez-vous sauver ceci... » Li Muwan mordilla sa lèvre inférieure et sortit avec précaution une petite bête de la taille d'une paume.
 
 Cette créature ressemblait à un chaton. Elle tremblait dans les mains de Li Muwan, ses yeux ne s'ouvrant qu'à peine; elle semblait vouloir les ouvrir, mais n'en avait plus la force.
 
@@ -88,7 +88,7 @@ Wang Lin rit doucement et hocha la tête. Il leva la main droite et toucha l'ani
 
 Surprise, Li Muwan caressa tendrement le pelage de la créature. Elle regarda Wang Lin, et sa prudence s'estompa peu à peu, bien qu'un reste de réserve subsistât.
 
-« Merci infiniment, Aîné. » Le visage de Li Muwan rayonnait de joie lorsqu'elle s'inclina devant lui. Elle redescendit rapidement la montagne. Il était évident qu'elle restait sur ses gardes face à ce "vieux monstre"; si ce n'avait été une nécessité absolue, elle ne serait jamais revenue.
+« Merci infiniment, Senior. » Le visage de Li Muwan rayonnait de joie lorsqu'elle s'inclina devant lui. Elle redescendit rapidement la montagne. Il était évident qu'elle restait sur ses gardes face à ce "vieux monstre"; si ce n'avait été une nécessité absolue, elle ne serait jamais revenue.
 
 Une fois descendue, elle regarda en arrière et murmura: « Ce vieux monstre n'est probablement pas une mauvaise personne... »
 
@@ -126,7 +126,7 @@ Au moment même où son cri s'éteignait, la voix de Wang Lin pénétra dans le 
 
 Sur la Planète du Grand Empereur, le vieux Oiseau Vermillon retira sa main. Il regarda Wang Lin et poussa un soupir.
 
-Bien que Maître Simo ne sût pas ce qui se jouait au sein de l'Épreuve Humaine, il semblait avoir perçu quelques éléments. Il ne put s'empêcher de ricaner: « Aîné, cela fait longtemps. Il semble que le troisième Jeune Empereur ait rencontré un incident lors de l'épreuve... »
+Bien que Maître Simo ne sût pas ce qui se jouait au sein de l'Épreuve Humaine, il semblait avoir perçu quelques éléments. Il ne put s'empêcher de ricaner: « Senior, cela fait longtemps. Il semble que le troisième Jeune Empereur ait rencontré un incident lors de l'épreuve... »
 
 Avant qu'il n'ait pu achever sa phrase, le vieux Oiseau Vermillon se retourna brusquement et agita la main, frappant Maître Simo une fois de plus.
 

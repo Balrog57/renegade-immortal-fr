@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: "Chapter 2063 - Removing the Fog!"
 slug: dissipation-du-brouillard
 ---
-Le Grand Empereur Gu Dao, l'être le plus puissant du Continent Astral Immortel!
+Le Grand Empyréen Gu Dao, l'être le plus puissant du Continent Astral Immortel!
 
 Sa culture était mystérieuse et il n'avait pas fait mouvement depuis d'innombrables années. D'un simple doigt, le monde changea de couleur et le ciel montra des signes d'effondrement. Même la muraille marine fut repoussée, comme si elle ne pouvait supporter une telle force.
 
@@ -14,9 +14,9 @@ La chevelure blanche de Wang Lin s'agita. Le doigt illusoire de Gu Dao contenait
 
 Au sein du vent, du tonnerre et de la pluie, la puissance des cinq éléments apparut. Métal, bois, eau, feu et terre; rien n'était moins puissant que les essences des cinq éléments de Wang Lin!
 
-En conséquence, ce doigt semblait dérober la fortune des cieux et possédait une puissance suffisante pour tuer un Grand Empereur!
+En conséquence, ce doigt semblait dérober la fortune des cieux et possédait une puissance suffisante pour tuer un Grand Empyréen!
 
-Les pupilles de Wang Lin se rétractèrent. Il s'était déjà préparé à la puissance de Gu Dao. Ce simple geste était capable d'assassiner un Grand Empereur, mais il n'en fut pas surpris.
+Les pupilles de Wang Lin se rétractèrent. Il s'était déjà préparé à la puissance de Gu Dao. Ce simple geste était capable d'assassiner un Grand Empyréen, mais il n'en fut pas surpris.
 
 « Gu Dao... » Les yeux de Wang Lin s'illuminèrent, mais il garda ses mains derrière le dos. Ses cheveux flottaient et il dégageait un tempérament indescriptible. Il ne bougea pas et, alors que le doigt descendait, il leva la main droite pour pointer soudainement le doigt illusoire.
 
@@ -74,7 +74,7 @@ Les Huit Dao Extrêmes de Wang Lin étaient désormais complets, à l'exception 
 
 La bête de brouillard à neuf têtes rugit et une lumière multicolore jaillit, formant un arc-en-ciel de neuf couleurs autour d'elle. Cet arc-en-ciel se dispersa pour résister au sort des Huit Dao Extrêmes de Wang Lin.
 
-Peu après, au cœur du brouillard, les bras de Gu Dao s'ouvrirent et des centaines de sphères de brume s'échappèrent des neuf têtes de la bête. Chaque sphère contenait assez de puissance pour tuer un Empereur Ascendant; même des Grands Empereurs auraient été alarmés face à une telle multitude.
+Peu après, au cœur du brouillard, les bras de Gu Dao s'ouvrirent et des centaines de sphères de brume s'échappèrent des neuf têtes de la bête. Chaque sphère contenait assez de puissance pour tuer un Ascendant Empyréen; même des Grands Empyréens auraient été alarmés face à une telle multitude.
 
 Lorsque ces centaines de sphères apparurent, elles se divisèrent soudainement en des centaines de milliers. Elles flottèrent aux côtés de la bête de brouillard et, avec l'arc-en-ciel de neuf couleurs, firent barrage aux Huit Dao Extrêmes de Wang Lin!
 
@@ -92,13 +92,13 @@ Ce poing semblait fusionner avec celui porté à la bête depuis l'extérieur. L
 
 Cependant, Gu Dao demeurait le plus puissant du Continent Astral Immortel. Dès qu'il eut agité sa manche, les innombrables sphères de brume entourant la bête se précipitèrent toutes vers Wang Lin. Incapable d'esquiver, il fut percuté de plein fouet par la multitude de sphères.
 
-Une seule sphère pouvait tuer un Empereur Ascendant, et des centaines de milliers suffisaient à anéantir le monde. Alors qu'elles convergeaient vers lui, Wang Lin ferma les yeux et pointa l'espace entre ses sourcils.
+Une seule sphère pouvait tuer un Ascendant Empyréen, et des centaines de milliers suffisaient à anéantir le monde. Alors qu'elles convergeaient vers lui, Wang Lin ferma les yeux et pointa l'espace entre ses sourcils.
 
 « Dao de la Vie Extrême! » Les yeux de Wang Lin s'ouvrirent soudainement, révélant deux étranges rayons de lumière. Cette clarté se propagea autour de lui telle une aura sombre, formant une barrière protectrice.
 
 Des grondements tonitruants résonnèrent comme si des millions d'éclairs explosaient simultanément. Cette onde de choc fit trembler l'intégralité du vaste bassin et affecta jusqu'aux lois du monde. Le Continent Astral Immortel tout entier ressentit cette collision.
 
-Dans la Secte Dao Yi, au Mont Empereur, dans la Secte Ziyang et sur le glacier du Continent Nord — les quatre Grands Empereurs présents sentirent tous ce bouleversement planétaire et leurs cœurs tremblèrent. Ils percevaient tous la collision des deux auras provenant du vaste bassin.
+Dans la Secte Dao Yi, au Mont Empereur, dans la Secte Ziyang et sur le glacier du Continent Nord — les quatre Grands Empyréens présents sentirent tous ce bouleversement planétaire et leurs cœurs tremblèrent. Ils percevaient tous la collision des deux auras provenant du vaste bassin.
 
 « Gu Dao a fait mouvement! »
 
@@ -110,4 +110,4 @@ Dans la Secte Dao Yi, au Mont Empereur, dans la Secte Ziyang et sur le glacier d
 
 Quatre rayons de lumière jaillirent du clan Céleste en direction du vaste bassin.
 
-Simultanément, au sein du clan Ancien, Xuan Luo, Song Tian et le mystérieux Grand Empereur Ancien Ji ressentirent tous le changement du monde et les tremblements de la terre. Sans plus attendre, les trois se précipitèrent vers le vaste bassin.
+Simultanément, au sein du clan Ancien, Xuan Luo, Song Tian et le mystérieux Grand Empyréen Ancien Ji ressentirent tous le changement du monde et les tremblements de la terre. Sans plus attendre, les trois se précipitèrent vers le vaste bassin.

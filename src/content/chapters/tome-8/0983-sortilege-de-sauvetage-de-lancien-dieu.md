@@ -70,7 +70,7 @@ Il n'était pas seul; une femme l'accompagnait. Elle était d'une beauté saisis
 
 « Cette maudite planète Tian Yun, pourquoi est-elle si difficile à trouver? Si je n'avais pas rencontré la petite sœur fée ici, je ne l'aurais jamais débusquée. » On ignorait si Situ Nan disait vrai, mais cela fit rire la magnifique femme.
 
-D'un regard enjôleur, elle demanda: « Pourquoi l'Aîné Situ vient-il sur la planète Tian Yun? »
+D'un regard enjôleur, elle demanda: « Pourquoi l'Senior Situ vient-il sur la planète Tian Yun? »
 
 « Haha, je suis venu chercher un frère. Cela fait de nombreuses années que nous ne nous sommes pas vus; je me demande où en est sa culture. » Situ Nan laissa paraître une trace de nostalgie et poussa un soupir intérieur.
 

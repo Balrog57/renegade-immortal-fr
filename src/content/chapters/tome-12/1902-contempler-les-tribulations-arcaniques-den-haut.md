@@ -18,7 +18,7 @@ Il gardait des souvenirs flous de ce qui se trouvait dans la direction d'où ém
 
 « Cet endroit doit être celui du Gardien... » Après une courte réflexion, l'homme d'âge moyen se redressa lentement. Lorsqu'il se leva, une lumière spectrale brilla et une robe noire apparut. La robe recouvrait son visage, ne laissant apparaître que ses cheveux d'une longueur déconcertante qui perçaient le tissu par une méthode spéciale.
 
-Il marcha vers les cieux, ses longs cheveux flottant derrière lui tels un dragon noir. À mesure qu'il s'élevait, sa silhouette se transformait en celle d'un dragon noir, donnant l'impression que cet homme était lui-même une créature mythique. Il vola en direction du Continent Astral Immortel, situé à une distance infinie de cet endroit.
+Il marcha vers les cieux, ses longs cheveux flottant derrière lui tels un dragon noir. À mesure qu'il s'élevait, sa silhouette se transformait en celle d'un dragon noir, donnant l'impression que cet homme était lui-même une créature mythique. Il vola en direction du Continent Astral Immortel, situé à une distance extrême de cet endroit.
 
 À sa vitesse, il lui faudrait des centaines d'années pour atteindre le Continent Astral Immortel!
 
@@ -106,7 +106,7 @@ Peu après, il agita de nouveau la main et le terrifiant corps véritable d'esse
 
 Dès que le corps véritable du tonnerre fut intégré, le corps de Wang Lin dégagea une aura choquante. Il sentit sa force croître de manière exponentielle. À ce stade, il pouvait affronter des cultivateurs du stade avancé de la Tribulation du Vide, même sans l'armure d'âme du Taureau Céleste!
 
-Et cela, sans même utiliser le Tonnerre de la Destruction. S'il risquait d'employer ce tonnerre terrifiant, lui-même ignorait à quel point cette puissance serait dévastatrice...
+Et cela, sans même utiliser le tonnerre de massacre. S'il risquait d'employer ce tonnerre terrifiant, lui-même ignorait à quel point cette puissance serait dévastatrice...
 
 Ce tonnerre était une force qu'il avait créée par inadvertance et qu'il ne parvenait pas à contrôler!
 
@@ -114,7 +114,7 @@ Ce sentiment de puissance lui insuffla une confiance absolue en lui-même. Cela 
 
 Wang Lin se leva, les mains derrière le dos, et leva les yeux. Son regard perçait le toit du temple pour atteindre le ciel. Son Sens Divin s'étendit, embrassant l'intégralité du temple.
 
-Le groupe de Yun Yifeng n'était plus là. Apparemment, ils étaient restés trop longtemps et n'osaient plus défier l'endroit.
+Le groupe de trois personnes de Yun Yifeng n'était plus là. Apparemment, ils étaient restés trop longtemps et n'osaient plus défier l'endroit.
 
 Cela n'avait plus d'importance. Pour Wang Lin, Bord-des-Nuages n'était plus qu'une fumée du passé. Ce qu'il devait affronter désormais, c'étaient les neuf Tribulations Arcaniques!
 
@@ -126,4 +126,4 @@ Il attendait l'arrivée des Tribulations Arcaniques qui feraient de lui un culti
 
 Il n'avait jamais vu de Tribulations Arcaniques, mais il était assez confiant pour se tenir haut et contempler la beauté de ces tribulations!
 
-Depuis les temps anciens, tous ceux qui étaient qualifiés pour affronter les Tribulations Arcaniques faisaient preuve d'une prudence et d'une nervosité extrêmes. Même les Grands Empereurs l'étaient avant d'atteindre ce rang. Des individus comme Wang Lin étaient extrêmement rares!
+Depuis les temps anciens, tous ceux qui étaient qualifiés pour affronter les Tribulations Arcaniques faisaient preuve d'une prudence et d'une nervosité extrêmes. Même les Grands Empyréens l'étaient avant d'atteindre ce rang. Des individus comme Wang Lin étaient extrêmement rares!

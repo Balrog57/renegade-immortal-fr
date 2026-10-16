@@ -10,7 +10,7 @@ L'expression du vieil homme se ternit et il s'écria: « Quel tueur Xu Fei? Xu M
 
 Le visage de Wang Lin demeura impassible; il ne daigna même pas regarder le vieil homme. Au lieu de cela, son regard se posa sur Maître Yan Leizi.
 
-Tandis que Maître Yan Leizi fixait Wang Lin, la froideur de ses traits s'adoucit et il dit: « L'Alliance de Culture possède bel et bien un Domaine de l'Abattage, et le Duo Assassin de l'Âme y existe réellement. Cependant, as-tu la preuve que tu l'as tué? »
+Tandis que Maître Yan Leizi fixait Wang Lin, la froideur de ses traits s'adoucit et il dit: « L'Alliance de Culture possède bel et bien un Domaine de l'Abattage, et le Duo Tueur d'Âmes y existe réellement. Cependant, as-tu la preuve que tu l'as tué? »
 
 Dès que Maître Yan Leizi prit la parole, le vieil homme à ses côtés se tut immédiatement.
 

@@ -122,7 +122,7 @@ Juste à ce moment-là, le papillon multicolore à côté de Wang Lin battit dou
 
 L'homme d'âge mûr qui s'enfuyait rapidement venait de franchir le seuil de l'autel. Soudain, son corps trembla et ses yeux se remplirent d'incrédulité. Son être commença à se dissiper en partant de ses pieds et, en un instant, il disparut totalement.
 
-L'homme aux robes bleues était mort. Quelque part dans la Bête du Néant, au sein d'un vide noir infini, une personne était assise dans l'obscurité, exhalant une brume noire. Ce qui était étrange, c'est que de l'énergie spirituelle céleste émanait de cette brume.
+L'homme aux robes bleues était mort. Quelque part dans la Bête des Limbes, au sein d'un vide noir infini, une personne était assise dans l'obscurité, exhalant une brume noire. Ce qui était étrange, c'est que de l'énergie spirituelle céleste émanait de cette brume.
 
 À cet instant, il ouvrit soudainement les yeux et regarda droit devant lui, le regard chargé de choc.
 

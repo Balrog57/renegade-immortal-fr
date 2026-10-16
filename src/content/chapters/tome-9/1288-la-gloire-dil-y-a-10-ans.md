@@ -16,7 +16,7 @@ Un réseau de transfert se trouvait sur un continent de la région de rang 6. Pl
 
 L'homme cessa de parler et tourna les yeux vers lui.
 
-« Je me demande quelle région de rang inférieur a activé le réseau de transfert », dit-il avec morgue. Il était un disciple de la Secte de la Musique Céleste. Il était chargé de la garde du réseau, et chaque fois que quelqu'un arrivait, les voyageurs offraient des cristaux d'origine au gardien. C'était devenue une règle établie dans la Mer des Nuages.
+« Je me demande quelle région de rang inférieur a activé le réseau de transfert », dit-il avec morgue. Il était un disciple de la Secte de la Musique Céleste. Il était chargé de la garde du réseau, et chaque fois que quelqu'un arrivait, les voyageurs offraient des cristaux d'origine au gardien. C'était devenu une règle établie dans la Mer des Nuages.
 
 Cependant, à cet instant précis, le réseau de transfert brilla avec encore plus d'intensité, sa lumière atteignant son apogée. Le monde trembla, le vent hurla et les couleurs du ciel changèrent. Des grondements incessants émanèrent du réseau et des craquements résonnèrent alors qu'une fissure apparut sur la structure!
 
@@ -98,7 +98,7 @@ Il y a dix ans, la renommée de Wang Lin avait laissé une trace indélébile ch
 
 À cet instant, toute la Secte de la Musique Céleste s'activait pour ouvrir le passage au plus vite. Le nouveau Maître de secte pleurait amèrement intérieurement; il ne voulait qu'une chose: renvoyer ce démon le plus rapidement possible. Il craignait de provoquer Wang Lin. Autrefois, Wang Lin avait tué le précédent Maître de secte, et aujourd'hui, il était fort probable qu'il recommence.
 
-Après avoir récupéré la sacoche contenant tous les cristaux d'origine, Wang Lin entra dans la formation avec la vieille femme. Cette dernière était profondément bouleversée par tout ce spectacle. Elle avait passé tout son temps sur le champ de bataille de la Secte Démonique et ignorait ce qui s'était passé dix ans auparavant. En voyant la scène, elle n'en croyait pas ses yeux.
+Après avoir récupéré la sacoche contenant tous les cristaux d'origine, Wang Lin entra dans la formation avec la vieille femme. Cette dernière était profondément bouleversée par tout ce spectacle. Elle avait passé tout son temps sur le champ de bataille de la Secte Démon et ignorait ce qui s'était passé dix ans auparavant. En voyant la scène, elle n'en croyait pas ses yeux.
 
 Elle pouvait voir que les Anciens et le Maître de secte de la Musique Céleste regardaient Wang Lin avec une terreur indicible. C'était comme s'ils tentaient d'éloigner une divinité colérique.
 

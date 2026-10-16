@@ -92,7 +92,7 @@ Cette aura était si puissante que même Wang Lin en fut stupéfait.
 
 C'était le Palais Terrestre que Wang Lin avait découvert dans la Tombe Antique!
 
-Ce pavillon possédait plusieurs fenêtres. À l'époque, Wang Lin y avait aperçu trois âmes puissantes. À moins d'un recours ultime, il ne fallait pas l'ouvrir. Cet instant, Wang Lin fixa le Palais Terrestre et les trois âmes qu'il renfermait. Après réflexion, plutôt que d'agir avec imprudence, il rangea le pavillon.
+Ce pavillon possédait plusieurs fenêtres. À l'époque, Wang Lin y avait aperçu trois âmes puissantes. À moins d'un recours ultime, il ne fallait pas l'ouvrir. À cet instant, Wang Lin fixa le Palais Terrestre et les trois âmes qu'il renfermait. Après réflexion, plutôt que d'agir avec imprudence, il rangea le pavillon.
 
 « Ces trois âmes sont trop puissantes; ce sont des ennemis de Ye Mo qu'il avait scellés dans sa patrie. Si je les libère maintenant, ma puissance actuelle ne suffirait pas à en subir les conséquences. »
 
@@ -114,4 +114,4 @@ L'attention de Wang Lin ayant été totalement focalisée sur la porte, il n'ava
 
 Son regard suivit la fissure et il entrevit un vide sombre au-delà. L'aura qui s'échappait de la faille était extrêmement familière pour lui.
 
-Wang Lin murmura: « Le Champ de Bataille Étranger! »
+Wang Lin murmura: « Le Champ de Bataille Extérieur! »

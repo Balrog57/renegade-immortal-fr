@@ -56,7 +56,7 @@ Cette fissure était l'ouverture que Maître Pin Cendré et la vieille femme en 
 
 Wang Lin ne cilla même pas, étendant son Sens Divin pour observer attentivement. Peu après, ses yeux se rétrécirent lorsqu'il retrouva l'ouverture d'autrefois!
 
-Bien que cette fissure se soit refermée, la Restriction Temporelle n'avait que quelques mois d'existence. À moins que des millénaires ne s'écoulent, ce défaut subsisterait.
+Bien que cette fissure se soit refermée, la Restriction Temporelle n'avait que quelques mois d'existence. À moins que d'innombrables années ne s'écoulent, ce défaut subsisterait.
 
 C'était là l'un des inconvénients d'une Restriction Temporelle.
 

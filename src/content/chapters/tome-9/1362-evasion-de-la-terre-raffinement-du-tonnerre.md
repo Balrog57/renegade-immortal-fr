@@ -86,7 +86,7 @@ Un cri étouffé monta du vortex et le bras se retira précipitamment. Cependant
 
 Le coup fit vaciller le vortex, mais celui-ci ne fut pas endommagé. Au contraire, la force de l'impact l'avait fait tourner encore plus vite. Le bras se retira et le vortex disparut comme s'il n'avait jamais existé!
 
-Juste au moment où il allait s'évanouir, Wang Lin fit un pas en avant, l'Épée de Sang levée, et chargea les yeux injectés de sang. Bien que son épée fût invincible, peu importaient ses assauts, le vortex restait de marbre.
+Juste au moment où il allait disparaître, Wang Lin fit un pas en avant, l'Épée de Sang levée, et chargea les yeux injectés de sang. Bien que son épée fût invincible, peu importaient ses assauts, le vortex restait de marbre.
 
 Il regarda le vortex disparaître lentement tout en entendant le rugissement furieux qui en émanait!
 
@@ -136,7 +136,7 @@ Zhong Grand Rouge s'élança rapidement pour éviter d'être tué par les siens.
 
 Les yeux de Wang Lin s'illuminèrent en observant Zhong Grand Rouge. Puis il se retourna et agita ses manches. Un courant d'air enveloppa Zhong Grand Rouge et l'envoya dans l'espace de stockage de Wang Lin pour rejoindre Xu Liguo. D'un pas, Wang Lin franchit une distance incommensurable pour réapparaître là où le Daoïste Esprit Dispersé combattait les cultivateurs du Fléau Céleste du Clan du Tonnerre Dispersé.
 
-Les sortsily fusaient de toutes parts. À l'apparition de Wang Lin, ses yeux brillèrent d'un rouge vif. Son Royaume Ji jaillit comme un éclair rouge, d'une rapidité fulgurante. Il transperça le crâne d'un premier cultivateur du Fléau Céleste, faisant imploser son âme originelle. Puis il frappa un second cultivateur, faisant exploser sa tête.
+Les sortilèges fusaient de toutes parts. À l'apparition de Wang Lin, ses yeux brillèrent d'un rouge vif. Son Royaume Ji jaillit comme un éclair rouge, d'une rapidité fulgurante. Il transperça le crâne d'un premier cultivateur du Fléau Céleste, faisant imploser son âme originelle. Puis il frappa un second cultivateur, faisant exploser sa tête.
 
 « Compagnon Daoïste Esprit Dispersé, prends soin de toi. Je m'en vais! » Wang Lin fit un pas de plus, rétracta son Royaume Ji et disparut sans laisser de trace!
 

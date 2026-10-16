@@ -30,7 +30,7 @@ Wang Lin ne put faire un pas de plus. Bien qu'il fût encore à la périphérie 
 
 « Mon âme originelle a dévoré la moitié d'un ancien dragon de tonnerre et mon corps est fait de foudre. Mon être est presque indiscernable du véritable tonnerre, et pourtant, je dois m'arrêter ici. La puissance de ce tonnerre est tout simplement trop immense! » Wang Lin ressentit une pointe de frustration et se mit à méditer.
 
-Non loin de là, Shengong Hu fronça les sourcils, une lueur de déception dans le regard. Le respect qu'il éprouvait s'estompa tandis qu'il observait Wang Lin: « Ce n'est pas normal. Avec la culture de mon Aîné, pourquoi s'est-il arrêté là? Se pourrait-il que... » Ses yeux s'illuminèrent d'un espoir soudain.
+Non loin de là, Shengong Hu fronça les sourcils, une lueur de déception dans le regard. Le respect qu'il éprouvait s'estompa tandis qu'il observait Wang Lin: « Ce n'est pas normal. Avec la culture de mon Senior, pourquoi s'est-il arrêté là? Se pourrait-il que... » Ses yeux s'illuminèrent d'un espoir soudain.
 
 Même la Bête du Tonnerre à ses côtés observait attentivement, et la peur qui l'habitait se dissipa légèrement. La Bête du Tonnerre aux cornes argentées restait immobile, continuant sa culture comme si elle avait déjà prédit ce résultat.
 
@@ -38,7 +38,7 @@ Alors que Wang Lin restait immobile, la déception de Shengong Hu s'accentua et 
 
 Ce contraste brutal éroda la profonde révérence qu'il portait à Wang Lin. Son cœur dao, qui s'était éteint, commença également à se régénérer lentement.
 
-« Bien que cent pas soient un gouffre infranchissable pour moi actuellement, une fois que ma culture aura atteint le stade du Scruteur du Nirvana, je serai capable de franchir ces cent pas sans peine. Cependant, en tant qu'Aîné, comment peut-il n'être qu'aussi puissant... » L'expression de Shengong Hu devint sombre alors qu'il reprenait ses observations.
+« Bien que cent pas soient un gouffre infranchissable pour moi actuellement, une fois que ma culture aura atteint le stade du Scruteur du Nirvana, je serai capable de franchir ces cent pas sans peine. Cependant, en tant que Senior, comment peut-il n'être qu'aussi puissant... » L'expression de Shengong Hu devint sombre alors qu'il reprenait ses observations.
 
 Wang Lin contemplait le lac de tonnerre devant lui. À cet instant, il semblait avoir tout oublié. Tout ce qui l'entourait disparut; seul le lac de tonnerre subsistait.
 

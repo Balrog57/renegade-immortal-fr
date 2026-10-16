@@ -30,7 +30,7 @@ L'arbre était si vaste qu'il comblait l'intégralité du vide. Un visage sécul
 
 « Maître de Secte! » Le Grand Ancien de la Secte Démon regarda l'arbre gigantesque avec exaltation, ses yeux empreints d'une révérence extrême.
 
-L'apparition de l'arbre provoqua un immense tumulte dans la région de rang 9. Au sein de la Secte Divin, le Daoïste Eau arborait une expression hideuse et hurlait sans relâche. Cependant, à cet instant, son corps fut parcouru de tremblements et son visage se mua en un masque de terreur.
+L'apparition de l'arbre provoqua un immense tumulte dans la région de rang 9. Au sein de la Secte Divine, le Shui Daozi arborait une expression hideuse et hurlait sans relâche. Cependant, à cet instant, son corps fut parcouru de tremblements et son visage se mua en un masque de terreur.
 
 « Maître... »
 
@@ -38,7 +38,7 @@ Il y avait également ce démon ancien à neuf étoiles qui dévorait secrèteme
 
 « Seigneur du Royaume Scellé... »
 
-Parmi les étoiles, le Maître de la Secte Briseur de Ciel progressait, mais il s'arrêta net. Son visage devint grave alors qu'il fixait l'avant, plongé dans ses pensées.
+Parmi les étoiles, le Maître de la Secte Brise-Ciel progressait, mais il s'arrêta net. Son visage devint grave alors qu'il fixait l'avant, plongé dans ses pensées.
 
 Dans le vide, le visage apparu sur l'arbre dégageait une aura antique. Il contempla son environnement avec nostalgie avant de poser enfin son regard sur la Formation du Royaume Scellé.
 
@@ -60,7 +60,7 @@ Le corps du Grand Ancien de la Secte Démon frémit et il leva les yeux. Une lue
 
 Le visage antique sur l'arbre gigantesque regarda au loin et, après un long silence, murmura: « Esclave Dao... si tu peux aider la Secte Démon dans cette affaire, ce vieil homme ne te tuera pas... »
 
-Dans la chambre secrète de la Secte Divin, le Daoïste Eau tremblait, le front perlant de sueur. Il s'agenouilla et se prosterna avec ferveur.
+Dans la chambre secrète de la Secte Divine, le Shui Daozi tremblait, le front perlant de sueur. Il s'agenouilla et se prosterna avec ferveur.
 
 « Maître Démon, vous avez fui le Royaume Extérieur et je vous ai offert l'intégralité de la Secte Fantôme comme disciple pour vous aider à guérir. Maintenant que vous êtes rétabli et devenu un démon ancien à neuf étoiles, il est temps d'honorer notre pacte! »
 

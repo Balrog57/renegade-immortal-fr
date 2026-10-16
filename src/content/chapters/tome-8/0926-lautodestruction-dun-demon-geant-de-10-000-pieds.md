@@ -20,7 +20,7 @@ Grâce à la robustesse de son corps, il ne craignait guère la plupart des tré
 
 Wang Lin hocha la tête et observa l'âme originelle de Lie Yunzi. Celle-ci était en pleine récupération pour invoquer une autre silhouette de sang. Lie Yunzi ne pouvait être dérangé pour l'instant.
 
-Toutefois, Wang Lin ne croyait pas que Lie Yunzi manqué de ressources, mais ce n'était pas le moment de le tester. Alors que le membre du clan des Démons Géants se rapprochait, les yeux de Wang Lin s'illuminèrent et il dit calmement: « Laisse-moi faire! »
+Toutefois, Wang Lin ne croyait pas que Lie Yunzi manque de ressources, mais ce n'était pas le moment de le tester. Alors que le membre du clan des Démons Géants se rapprochait, les yeux de Wang Lin s'illuminèrent et il dit calmement: « Laisse-moi faire! »
 
 Sur ces mots, il fit un pas et chargea droit vers le géant.
 

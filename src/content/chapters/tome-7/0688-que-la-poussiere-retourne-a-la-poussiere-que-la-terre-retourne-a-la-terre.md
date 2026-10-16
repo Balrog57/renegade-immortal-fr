@@ -10,7 +10,7 @@ Huan Wuqing leva les yeux vers l'écran de lumière et dit brusquement: « Parle
 
 Liu Mei dit doucement: « La première chose à faire est de m'aider à tuer Wang Lin! » Son regard transperça l'écran de lumière pour se poser sur Wang Lin, ses yeux trahissant une haine d'une complexité indicible.
 
-Même à présent, sa haine envers Wang Lin emplissait encore son cœur. C'était une haine telle qu'elle la trouvait elle-même presque irréelle. Pourtant, au plus profond de son âme, elle ne pouvait oublier le jeune homme qu'elle avait vu plusieurs centaines d'années auparavant à la Secte Heng Yue.
+Même à présent, sa haine envers Wang Lin emplissait encore son cœur. C'était une haine telle qu'elle la trouvait elle-même presque irréelle. Pourtant, au plus profond de son âme, elle ne pouvait oublier le jeune homme qu'elle avait vu plusieurs centaines d'années auparavant à la Secte Heng Yue [1. Première secte que Wang Lin a rejointe].
 
 Ce qu'elle n'oubliait pas davantage, c'était la tendresse que Wang Lin témoignait envers Li Muwan.
 

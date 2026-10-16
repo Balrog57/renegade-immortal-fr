@@ -16,7 +16,7 @@ La goutte de sang pénétra la brume noire et atterrit sur la tête du dragon d�
 
 Dans son élan, le corps du dragon démoniaque se tordit et balaya les environs dans un grondement assourdissant. Comme si des mains gigantesques remuaient le sol, tous les édifices s'effondrèrent et l'ensemble du plancher fut réduit en ruines.
 
-Les yeux de Wang Lin s'illuminèrent; il en extraisit une nouvelle dose du sang de Qing Shuang et la lança sans ménagement. D'un geste de la main, il projeta l'énergie d'origine puissante qui bouillonnait en lui. Le sang explosa aussitôt en un brouillard écarlate qui fonça droit devant.
+Les yeux de Wang Lin s'illuminèrent; il en extrait une nouvelle dose du sang de Qing Shuang et la lança sans ménagement. D'un geste de la main, il projeta l'énergie d'origine puissante qui bouillonnait en lui. Le sang explosa aussitôt en un brouillard écarlate qui fonça droit devant.
 
 Ce nuage de sang percuta le dragon démoniaque. Au contact renouvelé du sang, le dragon lutta avec une intensité accrue. Les rugissements se succédèrent et le corps du dragon commença à se contracter rapidement. Tel un tourbillon, après la retraite complète du brouillard noir, l'ancien démon apparut devant tous.
 
@@ -34,7 +34,7 @@ Quoi que faisait l'ancien démon, il ne parvenait pas à les expulser. Même en 
 
 Le visage de Wang Lin pâlit. L'énergie de cette lame était immense; même le vieil homme sur la gourde ne pourrait y échapper. L'esprit de Wang Lin resta d'une clarté absolue alors que le fourneau du dieu antique se matérialisait autour de lui. Il pointa du doigt l'homme en noir qui observait la scène à distance.
 
-Il n'avait pas choisi Maître du Vide car le danger était imminent et il devait impérativement réussir. Bien que le Maître du Vide fût gravement blessé, il demeurait au stade du Briseur du Nirvana; Wang Lin ne pouvait donc compter sur lui avec certitude!
+Il n'avait pas choisi le Maître du Vide car le danger était imminent et il devait impérativement réussir. Bien que le Maître du Vide fût gravement blessé, il demeurait au stade du Briseur du Nirvana; Wang Lin ne pouvait donc compter sur lui avec certitude!
 
 L'expression de l'homme en noir changea radicalement lorsqu'il sentit une lumière l'envelopper. L'énergie de la lame approchait si près que Wang Lin pouvait ressentir l'oppressante acuité qui s'en dégageait.
 
@@ -48,7 +48,7 @@ Si cette attaque atteignait sa cible, même le corps de dieu antique de Wang Lin
 
 Au moment où l'énergie de la lame descendit, l'œil droit de Wang Lin brilla d'un éclat bleu et un bouclier de lumière azur apparut pour entrer en collision avec l'attaque.
 
-Un fracas tonnerre retentit et une fissure fendit le milieu du bouclier azur. Bien qu'il ne se soit pas brisé, il fut endommagé.
+Un fracas de tonnerre retentit et une fissure fendit le milieu du bouclier azur. Bien qu'il ne se soit pas brisé, il fut endommagé.
 
 Bien que Wang Lin ne le possédât que depuis peu, ce bouclier avait résisté à toutes les attaques jusqu'ici. Même un être aussi puissant que le Maître du Vide n'avait pu que le repousser sans le fissurer.
 
@@ -72,21 +72,21 @@ Toutefois, alors que son corps volait en éclats, son âme originelle s'échappa
 
 Mais le danger n'était pas écarté. L'énergie de la lame qui avait pulvérisé son corps fonça droit sur son âme originelle, sur le point de la transpercer.
 
-L'homme en noir diffusa précipitamment un message par sens divin, empreint d'angoisse et d'horreur: « Seigneur Démon Ancestral, je suis Lou Hou, le septième disciple du Suprême! »
+L'homme en noir diffusa précipitamment un message par sens divin, empreint d'angoisse et d'horreur: « Seigneur Ancien Démon, je suis Lou Hou, le septième disciple du Suprême! »
 
 Dès que l'homme en noir envoya ce message, l'énergie de la lame dévia soudainement sur le côté, contournant l'homme pour de nouveau poursuivre Wang Lin.
 
 Tout cela se produisit en un laps de temps extrêmement court. Wang Wei et Hu Juan s'élancèrent simultanément, utilisant leurs sorts pour tenter de contrer l'énergie qui traquait Wang Lin.
 
-Wang Lin avait survécu par miracle, mais il affichait une expression féroce en fixant le démon ancestral.
+Wang Lin avait survécu par miracle, mais il affichait une expression féroce en fixant l'ancien démon.
 
-Le Démon Ancestral Ta Jia s'avança, mais non vers Wang Lin; il se dirigea plutôt vers l'âme originelle de l'homme en noir. Après avoir saisi l'âme, il fit un nouveau pas pour rejoindre Wang Wei et Hu Juan qui luttaient contre la lame.
+L'Ancien Démon Ta Jia s'avança, mais non vers Wang Lin; il se dirigea plutôt vers l'âme originelle de l'homme en noir. Après avoir saisi l'âme, il fit un nouveau pas pour rejoindre Wang Wei et Hu Juan qui luttaient contre la lame.
 
-En s'approchant, le Démon Ancestral Ta Jia ouvrit la gueule et poussa un rugissement!
+En s'approchant, l'Ancien Démon Ta Jia ouvrit la gueule et poussa un rugissement!
 
-ROAR!
+RUGISSEMENT!
 
-Les rugissements des membres de l'Ordre Ancestral étaient tous puissants mais, à l'instar des sorts, ils possédaient des propriétés distinctes. Bien que le cri d'un démon ancestral ne fût pas aussi fort que celui d'un dieu antique, il produisait un son maléfique qui envahissait l'esprit.
+Les rugissements des membres de l'Ordre Ancestral étaient tous puissants mais, à l'instar des sorts, ils possédaient des propriétés distinctes. Bien que le cri d'un ancien démon ne fût pas aussi fort que celui d'un dieu antique, il produisait un son maléfique qui envahissait l'esprit.
 
 Alors qu'il rugissait, une ombre noire gigantesque à corne unique apparut derrière lui. Cette silhouette colossale semblait être la source de tous les démons. Tandis que Ta Jia rugissait, son ombre ouvrit également la bouche pour pousser un cri.
 
@@ -94,7 +94,7 @@ Le corps de Hu Juan trembla et elle cracha immédiatement du sang. Wang Wei fut 
 
 En cette période de crise, Wang Wei se donnait corps et âme. Les piliers d'eau se succédaient si vite qu'en un clin d'œil, des milliers d'entre eux étaient apparus.
 
-Pourtant, face au Démon Ancestral Ta Jia, tout cela n'était qu'un jeu d'enfant. D'un seul rugissement, tous les piliers s'effondrèrent. Tandis que l'eau s'écrasait, Wang Wei et Hu Juan crachèrent davantage de sang et chargèrent vers Wang Lin pour le soutenir.
+Pourtant, face à l'Ancien Démon Ta Jia, tout cela n'était qu'un jeu d'enfant. D'un seul rugissement, tous les piliers s'effondrèrent. Tandis que l'eau s'écrasait, Wang Wei et Hu Juan crachèrent davantage de sang et chargèrent vers Wang Lin pour le soutenir.
 
 Le visage livide, Hu Juan maniait ses mains avec rapidité pour créer des restrictions fusionnant avec les piliers d'eau. Mais la puissance du cri de Ta Jia continuait de faire s'écrouler leurs défenses.
 
@@ -104,7 +104,7 @@ Seul Bei Lou parvint à peine à résister; en tant que membre de l'Ordre Ancest
 
 Quant à Wang Lin, des craquements résonnaient dans son corps sous la pression du rugissement de Ta Jia. Il cracha du sang, mais son expression devint plus féroce encore.
 
-ROAR!
+RUGISSEMENT!
 
 Wang Lin laissa également échapper un rugissement de rage pure. C'était le cri d'un dieu antique. Le corps de Wang Lin grandit de manière prodigieuse; à cet instant, il ne se souciait plus de dissimuler sa nature divine. Sa stature atteignit des milliers de pieds de haut, comme s'il pouvait soutenir la voûte céleste!
 

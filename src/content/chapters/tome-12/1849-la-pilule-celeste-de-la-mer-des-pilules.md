@@ -22,7 +22,7 @@ Dès que la goutte apparut, une puissante vague d'essence aquatique se manifesta
 
 « Le Liquide de Corruption des Dix Mille Raffinements! » Les yeux de la femme étaient empreints de choc.
 
-Profitant de cet instant de stupéfaction, l'homme contrôlé par Wang Lin vola encore plusieurs milliers de pieds. Il n'était plus qu'à quelques milliers de pieds de sa cible. Cependant, alors qu'il entrait dans un rayon de 1 000 pieds, les trois drapeaux provoquèrent des ondulations et émit un sifflement strident. Simultanément, la boussole dans la main de la femme montra clairement la scène où Wang Lin se transformait en brume pour s'infiltrer dans l'oreille de l'homme d'âge moyen!
+Profitant de cet instant de stupéfaction, l'homme contrôlé par Wang Lin vola encore plusieurs milliers de pieds. Il n'était plus qu'à quelques milliers de pieds de sa cible. Cependant, alors qu'il entrait dans un rayon de 1 000 pieds, les trois drapeaux provoquèrent des ondulations et émirent un sifflement strident. Simultanément, la boussole dans la main de la femme montra clairement la scène où Wang Lin se transformait en brume pour s'infiltrer dans l'oreille de l'homme d'âge moyen!
 
 « Arrêtez! » Le cœur de la femme trembla et elle poussa un cri. Elle s'apprêtait à battre en retraite, tandis que le jeune homme au visage de jade blanc était également saisi par la terreur.
 

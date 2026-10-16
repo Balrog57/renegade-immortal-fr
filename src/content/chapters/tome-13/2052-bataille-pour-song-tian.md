@@ -8,23 +8,23 @@ slug: bataille-pour-song-tian
 ---
 « Wang Lin!! C'est bel et bien Wang Lin!!! » Un rugissement jaillit de la Secte Dao Yi, et la colère contenue dans ce cri résonna à travers le monde.
 
-Outre la colère, une sensation de peur et d'effroi imprégnait l'air. Face à Wang Lin, la Secte Dao Yi ne pouvait oublier tout ce qui s'était produit dans le palais de la cité ancestrale. À l'époque, Wang Lin était déjà extrêmement puissant, et désormais, il était un Grand Empereur Céleste. Il n'osait même pas imaginer à quel point sa force avait augmenté!
+Outre la colère, une sensation de peur et d'effroi imprégnait l'air. Face à Wang Lin, la Secte Dao Yi ne pouvait oublier tout ce qui s'était produit dans le palais de la cité ancestrale. À l'époque, Wang Lin était déjà extrêmement puissant, et désormais, il était un Grand Empyréen. Il n'osait même pas imaginer à quel point sa force avait augmenté!
 
-Le gigantesque Soleil de Grand Empereur Céleste, second seulement à celui de Gu Dao, témoignait lui aussi de la puissance de Wang Lin!
+Le gigantesque Soleil de Grand Empyréen, second seulement à celui de Gu Dao, témoignait lui aussi de la puissance de Wang Lin!
 
-« Il n'est même pas encore parvenu au royaume du Dieu Immémorial et pourtant... Il est devenu un Grand Empereur Céleste par sa propre force!! » Dans le Continent Nordique, Wu Feng resta en transe, les yeux rivés sur le ciel pendant un long moment.
+« Il n'est même pas encore parvenu au Royaume Divin Immémorial et pourtant... Il est devenu un Grand Empyréen par sa propre force!! » Dans le Continent Nordique, Wu Feng resta en transe, les yeux rivés sur le ciel pendant un long moment.
 
 Dans la Secte Yang Pourpre, les deux petites filles étaient transportées par la joie. Elles se tenaient par la main tout en contemplant le firmament.
 
-« Il est devenu un Grand Empereur Céleste... »
+« Il est devenu un Grand Empyréen... »
 
-Sur le Mont de l'Empereur, dans la cité ancestrale, le Grand Empereur Ji Du regardait en direction du clan Antique. Son cœur trembla, son visage pâlit légèrement et une incertitude l'envahit.
+Sur le Mont de l'Empereur, dans la cité ancestrale, le Grand Empyréen Ji Du regardait en direction du clan Ancien. Son cœur trembla, son visage pâlit légèrement et une incertitude l'envahit.
 
 « Lorsqu'il était au palais, il avait déjà formé l'esquisse d'un soleil, puis il a obtenu la tête de l'Ancêtre Céleste... Ce soleil possède trois couleurs: noir, blanc et or. L'or doit provenir de la fusion avec la tête de l'Ancêtre Céleste... »
 
-« Normalement, le fait qu'il devienne un Grand Empereur Céleste ne serait pas une surprise totale, mais c'est... cela ne fait que cent ans et il a déjà raffiné la tête de l'Ancêtre Céleste!! »
+« Normalement, le fait qu'il devienne un Grand Empyréen ne serait pas une surprise totale, mais c'est... cela ne fait que cent ans et il a déjà raffiné la tête de l'Ancêtre Céleste!! »
 
-« Et le moment où il est devenu un Grand Empereur Céleste... » Le cœur de Ji Du tressaillit. Il était le seul à connaître la vérité sur les 72 âmes qui avaient causé ce tumulte. Il repensa au regard échangé plus tôt et ne put s'empêcher de faire le lien avec l'ascension de Wang Lin.
+« Et le moment où il est devenu un Grand Empyréen... » Le cœur de Ji Du tressaillit. Il était le seul à connaître la vérité sur les 72 âmes qui avaient causé ce tumulte. Il repensa au regard échangé plus tôt et ne put s'empêcher de faire le lien avec l'ascension de Wang Lin.
 
 Ji Du laissa paraître son effroi et murmura pour lui-même: « Ce doit être... impossible!! »
 
@@ -32,17 +32,17 @@ Hai Zi, assise à l'angle du Mont de l'Empereur, levait les yeux vers le ciel av
 
 Également dans la cité ancestrale, sous le palais, Lian Daofei, qui s'était métamorphosé en montagne, demeurait immobile.
 
-Au sein du clan Antique, un tollé éclata sur la Montagne de l'Origine du clan Antique. Song Tian affichait une expression amère. Bien qu'il se soit préparé en envoyant le démon ancien, son cœur ne put s'empêcher de trembler.
+Au sein du clan Ancien, un tollé éclata sur la Montagne de l'Origine du clan Ancien. Song Tian affichait une expression amère. Bien qu'il se soit préparé en envoyant le démon ancien, son cœur ne put s'empêcher de trembler.
 
-Dans la cité impériale de l'Dao Antique, Xuan Luo ressentit l'aura de Wang Lin. Un sourire apparut sur ses lèvres; il était ivre de joie et éclata d'un rire sonore.
+Dans la cité impériale de l'Ancien Dao, Xuan Luo ressentit l'aura de Wang Lin. Un sourire apparut sur ses lèvres; il était ivre de joie et éclata d'un rire sonore.
 
-Dans le pays de Luo Huo, dans le ciel surplombant le palais, Wang Lin fit un geste de la main et son Soleil de Grand Empereur Céleste aux trois couleurs disparut. Cependant, l'ombre de ce soleil resterait à jamais gravée dans le ciel, tel un symbole de son ascension au rang de Grand Empereur Céleste.
+Dans le pays de Luo Huo, dans le ciel surplombant le palais, Wang Lin fit un geste de la main et son Soleil de Grand Empyréen aux trois couleurs disparut. Cependant, l'ombre de ce soleil resterait à jamais gravée dans le ciel, tel un symbole de son ascension au rang de Grand Empyréen.
 
 Le monde retrouva son calme tandis que la puissance des lois se dissipait lentement. Plusieurs rayons de lumière s'élancèrent du palais, et le premier en vue était celui du Prince Ji Du.
 
 Réprimant l'excitation qui agitait son cœur, il s'agenouilla immédiatement à mille pieds de Wang Lin et s'exclama d'une voix forte:
 
-« Félicitations, parrain, pour votre accession au rang de Grand Empereur Céleste!! »
+« Félicitations, parrain, pour votre accession au rang de Grand Empyréen!! »
 
 « Salutations, Seigneur Wang! » Derrière Ji Du, la jeune femme et son époux, le jeune homme vêtu de pourpre, s'adressèrent à lui avec respect. Ils ne purent cacher le choc dans leurs yeux et tombèrent à genoux devant Wang Lin.
 
@@ -58,21 +58,21 @@ Devant la créature, Wang Lin leva la main droite et pointa l'espace entre les s
 
 Le corps de Ji Du frémit et il leva brusquement les yeux. Incapable de contenir son émotion, il regarda Wang Lin avec une immense gratitude.
 
-« Merci, parrain, pour votre aide!! » Ji Du prit une profonde inspiration et rejoignit la tête du démon ancien. Il se tint respectueusement derrière Wang Lin, contemplant son dos. Ce n'était pas un dos imposant, mais il lui semblait aussi vaste qu'une montagne. Tant qu'il pouvait s'appuyer sur ce rempart, il pourrait devenir l'empereur de l'Shi Antique!!
+« Merci, parrain, pour votre aide!! » Ji Du prit une profonde inspiration et rejoignit la tête du démon ancien. Il se tint respectueusement derrière Wang Lin, contemplant son dos. Ce n'était pas un dos imposant, mais il lui semblait aussi vaste qu'une montagne. Tant qu'il pouvait s'appuyer sur ce rempart, il pourrait devenir l'empereur des Anciens Shi!!
 
 Le colossal démon ancien n'attendit aucun ordre de Wang Lin. Il poussa un hurlement, fit volte-face avec Wang Lin et Ji Du sur son dos, et déchira la faille par laquelle il était apparu. Il s'engouffra dans le gouffre et disparut.
 
 Une fois la créature partie, la déchirure dans le ciel se referma lentement jusqu'à ne devenir qu'une ligne blanche avant de s'effacer totalement.
 
-À l'extérieur de l'Shi Antique, sur la Montagne de l'Origine, au moment où Wang Lin avait effacé le sens divin de Song Tian sur le démon ancien, ce dernier trembla. Son visage devint livide, mais il reprit vite contenance.
+À l'extérieur des Anciens Shi, sur la Montagne de l'Origine, au moment où Wang Lin avait effacé le sens divin de Song Tian sur le démon ancien, ce dernier trembla. Son visage devint livide, mais il reprit vite contenance.
 
 L'expression sombre, il serra la gigantesque hache de guerre dans sa main. Il leva les yeux vers le ciel et sa respiration se régularisa. Il savait que ses actes forceraient Wang Lin à venir ici.
 
-« Même si je n'avais pas tenté de tester Wang Lin plus tôt, il serait venu de toute façon pour faire de Ji Du le prochain empereur! » soupira Song Tian. Il n'avait aucune confiance en sa victoire, mais en tant que Grand Empereur Céleste, il ne pouvait se résoudre à céder sans combattre!
+« Même si je n'avais pas tenté de tester Wang Lin plus tôt, il serait venu de toute façon pour faire de Ji Du le prochain empereur! » soupira Song Tian. Il n'avait aucune confiance en sa victoire, mais en tant que Grand Empyréen, il ne pouvait se résoudre à céder sans combattre!
 
 Sur la Montagne de l'Origine, un grondement de tonnerre retentit et une brume enveloppa le sommet. On aurait dit qu'une armée immense se tapissait dans la brume, dégageant une intention meurtrière redoutable.
 
-« Avec la formation d'origine et cette hache de guerre imprégnée de lois, offerte par le Grand Empereur Céleste Gu Dao, même s'il possède le pouvoir de manipuler les lois, je devrais être capable de tenir tête! » Song Tian prit une grande inspiration et observa calmement le ciel, guettant l'arrivée de Wang Lin.
+« Avec la formation d'origine et cette hache de guerre imprégnée de lois, offerte par le Grand Empyréen Gu Dao, même s'il possède le pouvoir de manipuler les lois, je devrais être capable de tenir tête! » Song Tian prit une grande inspiration et observa calmement le ciel, guettant l'arrivée de Wang Lin.
 
 Derrière lui, Chi Man affichait un visage amer et méditait en silence.
 
@@ -90,7 +90,7 @@ Wang Lin sourit, joignit les mains et répondit: « Salutations, Seigneur Song. 
 
 Au même instant, Song Tian saisit sa hache et frappa Wang Lin de toutes ses forces!
 
-Le Grand Empereur Céleste Song Tian était plus puissant que Dao Yi, presque autant qu'Wu Feng. Si Wang Lin avait voulu affronter Song Tian il y a cent ans, la victoire aurait été incertaine; il aurait dû déployer toute sa puissance, en dehors de son avatar dans le vide, pour l'emporter.
+Le Grand Empyréen Song Tian était plus puissant que Dao Yi, presque autant que Wu Feng. Si Wang Lin avait voulu affronter Song Tian il y a cent ans, la victoire aurait été incertaine; il aurait dû déployer toute sa puissance, en dehors de son avatar dans le vide, pour l'emporter.
 
 Mais aujourd'hui...
 
@@ -100,7 +100,7 @@ Au premier geste, un grondement tonitruant s'éleva de l'armée qui se précipit
 
 Pour Chi Man et Ji Du, tel fut l'effet produit, mais aux yeux de Song Tian, les lois du monde s'étaient matérialisées devant les troupes.
 
-Une fois l'armée dissipée, le second geste de Wang Lin fit éclater la brume entourant la Montagne de l'Origine. Le brouillard fut déchiré en d'innombrables fragments avant de s'évaporer. Toute la montagne trembla, et les membres puissants du clan Shi Antique qui maintenaient la formation crachèrent du sang, affaiblis par le choc.
+Une fois l'armée dissipée, le second geste de Wang Lin fit éclater la brume entourant la Montagne de l'Origine. Le brouillard fut déchiré en d'innombrables fragments avant de s'évaporer. Toute la montagne trembla, et les membres puissants des Anciens Shi qui maintenaient la formation crachèrent du sang, affaiblis par le choc.
 
 Song Tian sentit son cuir chevelu picoter, mais il endura la douleur, le regard glacial. Il brandit à nouveau sa hache de guerre pour frapper Wang Lin.
 

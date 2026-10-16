@@ -66,7 +66,7 @@ Simultanément, neuf points blancs apparurent sur le corps de Wang Lin. Ces neuf
 
 À l'arrivée des neuf palais, les neuf points provoquèrent une douleur insupportable. C'était comme si neuf clous avaient transpercé son corps. Cela aurait suffi à le rendre fou.
 
-Le corps de Wang Lin trembla et il poussa un rugissement en fixant les neuf palais. La douleur devint encore plus intense! Cependant, cette souffrance ne fit qu'attiser sa volonté indomptable. Il avait été un cultivateur défiant le ciel toute sa vie. Les cieux ne pouvaient le faire plier et le destin ne pouvait lui imposer l'obéissance, alors que cette rétribution divine le pourrait!
+Le corps de Wang Lin trembla et il poussa un rugissement en fixant les neuf palais. La douleur devint encore plus intense! Cependant, cette souffrance ne fit qu'attiser sa volonté indomptable. Il avait été un cultivateur défiant le ciel toute sa vie. Les cieux ne pouvaient le faire plier et le destin ne pouvait lui imposer l'obéissance, et encore moins cette rétribution divine!
 
 Dès l'instant où il avait choisi de devenir un cultivateur défiant le ciel, il était voué à lutter contre les cieux et à se battre contre le destin! À cet instant, des craquements retentirent dans son corps et celui-ci commença à gonfler!
 

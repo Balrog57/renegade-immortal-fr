@@ -80,7 +80,7 @@ Après avoir poussé ce cri, il se retourna précipitamment. Il s'inclina, les m
 
 « Hehe, hehe... Je vous ai dérangés, je vous ai dérangés. Je m'en vais, ces petits ne savent pas ce qu'ils disent. Ce petit dragon n'est pas puissant du tout et n'est certainement pas un être céleste. Je suis un serpent, voilà tout, juste un serpent... Je ressemble simplement un peu à un dragon. Hehe, hehe... » Le dragon de feu frissonnait, ses paroles devenant totalement décousues.
 
-« Hehe, hehe, je ne viendrai pas perturber votre réunion, mes chers aînés. Vous êtes tous occupés, ne faites donc aucun cas de moi. Je m'en vais tout seul... Ne vous donnez pas la peine de m'escorter... » Le dragon de feu tremblait et abandonna même la plateforme en pierre spirituelle pour s'enfuir avec anxiété.
+« Hehe, hehe, je ne viendrai pas perturber votre réunion, mes chers Seniors. Vous êtes tous occupés, ne faites donc aucun cas de moi. Je m'en vais tout seul... Ne vous donnez pas la peine de m'escorter... » Le dragon de feu tremblait et abandonna même la plateforme en pierre spirituelle pour s'enfuir avec anxiété.
 
 Cependant, alors qu'il battait en retraite, il s'arrêta net. Cette fois, il était véritablement sur le point de pleurer: une silhouette aux cheveux blancs apparut devant lui. Wang Lin sortit de l'ombre et regarda le dragon de feu avec un sourire qui n'en était pas un.
 

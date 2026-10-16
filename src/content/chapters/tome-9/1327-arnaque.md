@@ -78,7 +78,7 @@ D'une simple pression, le fil doré se mua en une brume dorée et pénétra dans
 
 Wang Lin plissa les yeux en observant la scène. Il s'était longtemps interrogé sur son identité, mais les indices étaient trop rares pour deviner qui elle était.
 
-Cependant, à voir le choc et la peur de Shui Daozi en la voyant, Wang Lin savait que l'identité du Cadavre Argenté n'avait rien de commun!
+Cependant, à voir le choc et la peur de Shui Daozi en la voyant, Wang Lin savait que l'identité du Cadavre Argenté n'était pas simple!
 
 « Comment une telle personne a-t-elle pu devenir un cadavre raffiné par l'Alliance de Culture… Comment l'Alliance a-t-elle pu obtenir son corps… » Wang Lin regarda le familier Cadavre Argenté. Ses yeux fixaient toujours l'horizon avec confusion. Nul ne savait ce qu'elle pensait.
 

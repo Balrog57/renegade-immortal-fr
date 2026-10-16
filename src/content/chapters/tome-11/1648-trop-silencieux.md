@@ -8,7 +8,7 @@ slug: trop-silencieux
 ---
 Alors que Wang Lin se tenait au sommet de la statue, son regard balaya le monde. Il vit les visages familiers parmi les rayons de lumière qui fonçaient vers lui. Il vit la détermination sur ces traits connus et sentit, dans leurs rugissements, leur volonté de sacrifier leur vie.
 
-Il y avait là des personnes que Wang Lin connaissait, notamment son disciple Treize, son serviteur Da Tou, son frère Situ, son aîné Nan Yunzi et bien d'autres encore. Les regards de ces milliers de cultivateurs convergeaient comme si un même sang bouillonnant les reliait.
+Il y avait là des personnes que Wang Lin connaissait, notamment son disciple Treize, son serviteur Da Tou, son frère Situ, son Senior, Maître Nan Yunzi et bien d'autres encore. Les regards de ces milliers de cultivateurs convergeaient comme si un même sang bouillonnant les reliait.
 
 Ce sentiment de sang chaud ne disparaîtrait pas; au plus, il se stabiliserait avec le passage des années. Cependant, à l'instant de la crise, cette ferveur jaillissait de nouveau.
 
@@ -44,7 +44,7 @@ De nombreux cultivateurs du Royaume Extérieur étaient déjà morts sous les fl
 
 Pour lui, les survivants du Royaume Extérieur n'avaient nulle part où se cacher.
 
-Alors que des grondements monstrueux résonnaient, une douzaine de cultivateurs du Royaume Extérieur furent détectés à plusieurs millions de kilomètres devant lui. Chacun d'eux portait une marque entre les sourcils et ils fuyaient en panique.
+Alors que des grondements monstrueux résonnaient, plusieurs dizaines de cultivateurs du Royaume Extérieur furent détectés à plusieurs millions de kilomètres devant lui. Chacun d'eux portait une marque entre les sourcils et ils fuyaient en panique.
 
 Ils se dirigeaient vers Luotian, car la plupart des envahisseurs du Royaume Extérieur s'y trouvaient. Les autres systèmes stellaires ne comptaient que peu de présence.
 
@@ -96,10 +96,10 @@ Plus tard, ils avaient été recueillis par une famille de cultivateurs-loups qu
 
 Au moment où le cri retentit, une tête fut tranchée et le sang jaillit partout. Une tête s'envola dans les airs.
 
-« Votre amour fraternel est respectable, mais puisque vous avez tué mes cultivateurs du Royaume Intérieur, vous devez mourir! » Wang Lin avança, et deux autres têtes féroces rejoignirent la centaine de trophées derrière lui.
+« Votre amour fraternel est respectable, mais puisque vous avez tué mes cultivateurs du Royaume Intérieur, vous devez mourir! » Wang Lin avança, et deux autres têtes féroces rejoignirent les centaines de trophées derrière lui.
 
 Wang Lin balaya le Vide Brillant. Lorsqu'il eut terminé, aucun survivant du Royaume Extérieur ne subsistait! Les lieux qu'il traversait étaient ensanglantés, les passages qu'il laissait derrière lui n'étaient que massacres.
 
 Les centaines de têtes qui le suivaient avaient leurs âmes originelles scellées. C'était comme si elles avaient été plongées en enfer, incapables de s'en libérer, condamnées à suivre Wang Lin dans sa course.
 
-Après avoir quitté le Vide Brillant pour atteindre les abords de la Rivière des Invocations, Wang Lin murmura lentement: « Trop silencieux... »
+Après avoir quitté le Vide Brillant pour atteindre les abords de la Rivière Invoquée, Wang Lin murmura lentement: « Trop silencieux... »

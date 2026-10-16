@@ -8,23 +8,23 @@ slug: secte-dong-ling
 ---
 Grâce à l'utilisation du fou comme bouclier, la force destructrice fut affaiblie au point que l'héritage du Dao Antique de Wang Lin put y résister.
 
-Alors que le fou retombait dans son sommeil, Wang Lin se retira rapidement vers les neuf Poissons aux Yeux.
+Alors que le fou retombait dans son sommeil, Wang Lin se retira rapidement vers les neuf Poissons-Œil.
 
-Se déplaçant à une vitesse fulgurante, Wang Lin arriva près des neuf Poissons aux Yeux tout en portant le fou endormi. Lorsqu'il jeta un coup d'œil, ses pupilles se rétractèrent.
+Se déplaçant à une vitesse fulgurante, Wang Lin arriva près des neuf Poissons-Œil tout en portant le fou endormi. Lorsqu'il jeta un coup d'œil, ses pupilles se rétractèrent.
 
-Il vit qu'il ne restait plus que quatre des neuf Poissons aux Yeux!
+Il vit qu'il ne restait plus que quatre des neuf Poissons-Œil!
 
 Les cinq autres avaient disparu!
 
 Wang Lin n'eut pas le temps de réfléchir et agita sa manche. Il parvint à en capturer trois. Mais alors qu'il s'apprêtait à saisir le quatrième, celui-ci disparut sous ses yeux.
 
-Le cuir chevelu de Wang Lin devint engourdi et il regarda dans la direction où le Poisson aux Yeux s'était volatilisé. Il n'y avait rien; seul l'écho de l'effondrement des 300 mondes détruits résonnait encore.
+Le cuir chevelu de Wang Lin devint engourdi et il regarda dans la direction où le Poisson-Œil s'était volatilisé. Il n'y avait rien; seul l'écho de l'effondrement des 300 mondes détruits résonnait encore.
 
 Xuan Luo se tenait là, observant le Wang Lin prudent et surpris, affichant un sourire fier. En voyant l'expression de Wang Lin, son sourire s'élargit davantage.
 
-Les yeux de Wang Lin brillèrent d'une lueur indéchiffrable. Il connaissait un secret concernant les Poissons aux Yeux, une révélation que le Souverain aux Sept Couleurs avait découverte en commençant à les élever dans les 300 mondes détruits. Wang Lin l'avait appris à travers les souvenirs de la troisième âme.
+Les yeux de Wang Lin brillèrent d'une lueur indéchiffrable. Il connaissait un secret concernant les Poissons-Œil, une révélation que le Souverain aux Sept Couleurs avait découverte en commençant à les élever dans les 300 mondes détruits. Wang Lin l'avait appris à travers les souvenirs de la troisième âme.
 
-S'il y avait deux Poissons aux Yeux, un mâle et une femelle, un lien se tissait entre eux. Ce lien persistait même si l'un d'eux était placé dans un espace de stockage ou derrière une barrière. Ce lien durait jusqu'à la mort.
+S'il y avait deux Poissons-Œil, un mâle et une femelle, un lien se tissait entre eux. Ce lien persistait même si l'un d'eux était placé dans un espace de stockage ou derrière une barrière. Ce lien durait jusqu'à la mort.
 
 Wang Lin analysa rapidement la situation et se retira sans hésiter.
 

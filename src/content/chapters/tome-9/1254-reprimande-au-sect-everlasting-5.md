@@ -50,7 +50,7 @@ Le Maître de la Secte Recherchant la Montagne était livide. Bien qu'il fût un
 
 « Dans la région de rang 7, la Secte Recherchant la Montagne n'est qu'une petite secte. Il ne serait pas sage pour un simple Ancien de s'opposer à un tel être! » Ses yeux brillèrent et il se tourna vers l'Ancien principal. Ce dernier possédait une culture profonde, étant au stade intermédiaire du Briseur du Nirvana.
 
-Même l'Ancien principal perdit presque la raison en réalisant que Wang Lin était l'individu terrifiant qui avait dévasté la région de rang 7. Il avait vu personnellement Wang Lin utiliser l'Empreinte Spirituelle de la Guerre et savait qu'il n'était pas de taille. Sentant le regard de son Maître de Secte, ils comprirent instantanément leur situation, mais hésitèrent.
+Même l'Ancien principal perdit presque la raison en réalisant que Wang Lin était l'individu terrifiant qui avait dévasté la région de rang 7. Il avait vu personnellement Wang Lin utiliser l'Empreinte de l'Esprit Guerrier et savait qu'il n'était pas de taille. Sentant le regard de son Maître de Secte, ils comprirent instantanément leur situation, mais hésitèrent.
 
 Cependant, cette hésitation vola en éclats alors que Wang Lin avançait. La tragédie de la Secte Musique Céleste était encore fraîche sous leurs yeux. Le Maître de la Secte serra les dents et s'écarta sur le côté. Simultanément, l'Ancien principal fit de même.
 
@@ -108,7 +108,7 @@ Les yeux du vieil homme en blanc brillèrent intensément. La Secte Musique Cél
 
 Wang Lin se retourna pour faire face aux cultivateurs présents. Sa voix était neutre, mais chacun put l'entendre distinctement.
 
-« Je représente la Secte Origin et je défie toutes les sectes de rang 6 et 7. Qui ose venir le premier? » La voix de Wang Lin était comme un vent glacial qui fit taire l'assistance une nouvelle fois.
+« Je représente la Secte de l'Origine et je défie toutes les sectes de rang 6 et 7. Qui ose venir le premier? » La voix de Wang Lin était comme un vent glacial qui fit taire l'assistance une nouvelle fois.
 
 Lu Yuncong prit une profonde inspiration pour réprimer le choc dans son cœur. Il regarda Yuan Fei parmi la foule et esquissa un sourire qui n'en avait guère le goût.
 

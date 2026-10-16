@@ -16,7 +16,7 @@ Au milieu du chaos de la bataille, la femme en robe bleue vit clairement les man
 
 Wang Lin accéléra de plus en plus en se faufilant parmi les cultivateurs. Un instant plus tard, il se trouvait déjà à moins de mille pieds de la femme. Tout en laissant échapper un rire, sa main droite se serra en un poing et il lança un coup de poing impitoyable!
 
-Ce coup frappa le vide, provoquant un rugissement tonnerre tandis qu'innombrables ondulations se propageaient. Il créa une puissante onde de choc qui chargea droit sur la femme en robe bleue.
+Ce coup frappa le vide, provoquant un rugissement de tonnerre tandis qu'innombrables ondulations se propageaient. Il créa une puissante onde de choc qui chargea droit sur la femme en robe bleue.
 
 La silhouette de Wang Lin ne s'arrêta pas; il chargea dans la foulée de l'onde de choc.
 

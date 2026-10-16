@@ -74,7 +74,7 @@ Au moment où les âmes tourmentées jaillirent, les pupilles de Wang Lin se con
 
 À cet instant, il pointa le ciel. Une gourde apparut soudainement dans sa main. Elle contenait 30 millions d'âmes du Dao; si elle explosait, elle pourrait menacer un cultivateur du milieu de la Tribulation du Vide, mais il ne commanda pas son explosion. Il cracha un jet de sang qui disparut rapidement dans la gourde, puis les rugissements de 30 millions d'âmes du Dao retentirent. Ces âmes s'envolèrent et formèrent une route de sang derrière Wang Lin!
 
-« J'utilise mon essence sanguine pour invoquer l'ancêtre du Grand Secte des Âmes. Brisez le vide!! Origine de la Fantaisie de l'Âme! » La voix de Wang Lin était calme, mais imprégnée d'une force étrange.
+« J'utilise mon essence sanguine pour invoquer l'ancêtre de la Secte de la Grande Âme. Brisez le vide!! Origine de la Fantaisie de l'Âme! » La voix de Wang Lin était calme, mais imprégnée d'une force étrange.
 
 Au bout de cette route de sang, un vortex gigantesque semblait fusionner avec le brouillard environnant. Tandis que Wang Lin parlait, une silhouette de sang sortit lentement du vortex. Chaque pas qu'elle faisait faisait trembler le monde.
 
@@ -82,7 +82,7 @@ La monstruosité de la rancune invoquée par le trésor de Liu Zhiyuan montra de
 
 Dès que la silhouette prit forme, elle ouvrit la bouche pour tenter de dévorer Wang Lin.
 
-À ce moment précis, la figure du neuvième ancêtre du Grand Secte des Âmes, Luo Yunhai, sortit également du vortex de sang. Il leva la main et une intention meurtrière monstrueuse se matérialisa sous la forme d'une lance rouge. Il saisit la lance et la lança. Le projectile percuta la silhouette formée par les innombrables âmes tourmentées.
+À ce moment précis, la figure du neuvième ancêtre de la Secte de la Grande Âme, Luo Yunhai, sortit également du vortex de sang. Il leva la main et une intention meurtrière monstrueuse se matérialisa sous la forme d'une lance rouge. Il saisit la lance et la lança. Le projectile percuta la silhouette formée par les innombrables âmes tourmentées.
 
 Lors de l'impact, la lance libéra une lumière souveraine, comme pour les purifier. La silhouette gigantesque s'effondra instantanément tandis que les âmes à l'intérieur poussaient des sifflements stridents.
 

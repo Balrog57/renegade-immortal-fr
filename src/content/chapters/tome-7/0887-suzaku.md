@@ -78,7 +78,7 @@ Le plus étrange était qu'au-delà de ces 500 kilomètres, tout semblait normal
 
 « Le sort utilisé par l'ancêtre de la famille Xiang doit être similaire au Doigt de la Mort, leur permettant d'absorber la force vitale pour s'en nourrir. Il a été trop imprudent en pensant que je ne verrais pas clair dans son jeu! » Wang Lin eut un sourire narquois.
 
-« Comment ma propre vitalité aurait-elle pu être si facile à dévorer? Viendra un jour où je la reprendrai tout entière! Je peux moi aussi dévorer la force vitale! » Une lueur de froideur passa dans les yeux de Wang Lin avant qu'il ne les ferme. La lumière noire s'étendit alors avec une fureur folle.
+« Comment la moitié de ma propre vitalité aurait-elle pu être si facile à dévorer? Viendra un jour où je la reprendrai tout entière! Je peux moi aussi dévorer la force vitale! » Une lueur de froideur passa dans les yeux de Wang Lin avant qu'il ne les ferme. La lumière noire s'étendit alors avec une fureur folle.
 
 1 000 kilomètres, 1 500 kilomètres… En un instant, elle engloba une zone de 2 500 kilomètres.
 

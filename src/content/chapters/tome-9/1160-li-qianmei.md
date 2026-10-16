@@ -12,7 +12,7 @@ Même dans la Mer des Nuages, un cultivateur capable d'éliminer instantanément
 
 Li Xiangdong et ses compagnons contemplèrent la scène avec stupéfaction. Ils avaient l'impression que ce Grand Oncle-Maître, qu'ils n'avaient jamais vu auparavant, était empreint de mystère et de majesté. Bien qu'ils aient eu des doutes sur l'identité de Wang Lin, ils choisirent de les ignorer sans la moindre hésitation.
 
-« Avec un cultivateur aussi puissant au sein de ma Secte Originelle, il ne sera qu'une question de temps avant que celle-ci ne domine la région de rang 5! » Li Xiangdong et les deux anciens se regardèrent, l'esprit exalté!
+« Avec un cultivateur aussi puissant au sein de ma Secte de l'Origine, il ne sera qu'une question de temps avant que celle-ci ne domine la région de rang 5! » Li Xiangdong et les deux anciens se regardèrent, l'esprit exalté!
 
 S'ils avaient su que Wang Lin avait tué un cultivateur Briseur du Nirvana de la région de rang 6, ils en auraient été encore plus choqués.
 
@@ -28,7 +28,7 @@ En un instant, Wang Lin les traqua au-delà des limites du continent de Mo Luo. 
 
 Ce carnage dura environ sept minutes avant de s'estomper progressivement. Finalement, plus aucune bête féroce ne se trouvait dans un rayon de 5 000 kilomètres du continent de Mo Luo. Les rares survivantes gardèrent en elles le souvenir terrifiant d'un être qu'elles ne pourraient jamais oublier: un cultivateur sur le continent de Mo Luo qui était semblable à un dieu.
 
-La barrière protectrice entourant le continent de Mo Luo fut réparée et tout sembla revenir à la normale, comme si rien n'avait changé. Pourtant, le choc ressenti par les cultivateurs de la Secte Originelle demeurait intact.
+La barrière protectrice entourant le continent de Mo Luo fut réparée et tout sembla revenir à la normale, comme si rien n'avait changé. Pourtant, le choc ressenti par les cultivateurs de la Secte de l'Origine demeurait intact.
 
 À cet instant, devant la cour sud, Li Xiangdong, Lu Yanfei et les deux autres anciens se tenaient là. Bien qu'ils fussent présents depuis un long moment, ils ne manifestaient aucune impatience.
 
@@ -100,13 +100,13 @@ La prairie était plongée dans un silence absolu, seuls quelques petits êtres 
 
 Une femme se trouvait à l'intérieur de ce rayon. Elle était magnifique, mais arborait une couleur de cheveux singulière: une chevelure d'un bleu profond. Dans toute la Mer des Nuages, une seule personne possédait cette parure!
 
-Il s'agissait de Li Qianmei, de la Secte Céleste Brisée de rang 9!
+Il s'agissait de Li Qianmei, de la Secte Brise-Ciel de rang 9!
 
 Elle commença sa culture à l'âge de cinq ans, atteignit l'Établissement des Fondations à sept ans, la Formation du Noyau à 19 ans, l'Âme Naissante à 26 ans, la Formation de l'Âme à 37 ans, la Transformation de l'Âme à 45 ans et l'Ascendant à 61 ans. Après cent ans de culture, elle atteignit le sommet du stade Yin Illusoire.
 
-Puis, toute la Secte Céleste Brisée consacra ses efforts à sa progression. Après plus de 400 ans, elle atteignit le sommet du stade Scrutateur du Nirvana. Puis, trois cents ans plus tard, elle devint une cultivatrice au milieu du stade Purificateur du Nirvana.
+Puis, toute la Secte Brise-Ciel consacra ses efforts à sa progression. Après plus de 400 ans, elle atteignit le sommet du stade Scruteur du Nirvana. Puis, trois cents ans plus tard, elle devint une cultivatrice au milieu du stade Purificateur du Nirvana.
 
-Après 500 ans d'entraînement extérieur, elle devint la plus jeune cultivatrice Briseur du Nirvana de la Secte Céleste Brisée! À ce jour, après plus de 1 300 ans de culture, elle avait atteint le stade avancé du Briseur du Nirvana.
+Après 500 ans d'entraînement extérieur, elle devint la plus jeune cultivatrice Briseur du Nirvana de la Secte Brise-Ciel! À ce jour, après plus de 1 300 ans de culture, elle avait atteint le stade avancé du Briseur du Nirvana.
 
 Dans la Mer des Nuages, le nom de « Li Qianmei » était une légende!
 
@@ -118,4 +118,4 @@ Li Qianmei inclina respectueusement la tête et partit.
 
 À l'intérieur de la statue siégeait un vieil homme aux cheveux blancs. Son corps en décomposition était marqué par de nombreuses taches, et une profonde nostalgie habitait son regard. Après un long moment, il secoua la tête et poussa un soupir.
 
-« Frère aîné Sima, autrefois, peut-être est-ce le Maître qui s'est trompé... »
+« Senior Frère Sima, autrefois, peut-être est-ce le Maître qui s'est trompé... »

@@ -28,7 +28,7 @@ Tous les cultivateurs du Système Stellaire de Luotian étaient saisis par l'eff
 
 Certaines bêtes sauvages n'osaient même plus bouger face à cette aura. C'était comme si, par une simple volonté de cet être, leurs corps pouvaient s'effondrer en tas de sang en guise de sacrifice.
 
-Cet être était semblable à un dieu! Huit étoiles ornaient son entreceil, mais seules quatre étaient brillantes; les quatre autres étaient noires, comme desséchées... Pourtant, elles ne s'étaient pas dissipées.
+Cet être était semblable à un dieu! Huit étoiles ornaient entre ses sourcils, mais seules quatre étaient brillantes; les quatre autres étaient noires, comme desséchées... Pourtant, elles ne s'étaient pas dissipées.
 
 Il était l'existence la plus puissante, le souverain de ce champ stellaire. Après un long moment, la mélancolie fut remplacée par la confusion.
 
@@ -48,25 +48,25 @@ Tuo Sen se leva et marcha vers l'horizon...
 
 Les barrières des quatre royaumes célestes étaient insignifiantes pour lui. Il semblait qu'il n'existait rien au monde capable de l'arrêter.
 
-Sa démarche n'était pas rapide, mais ses enjambées étaient immenses. D'un seul pas, il franchissait une distance incommensurable. Un vortex géant rempli de brouillard apparut devant lui. C'était la Mer Nuageuse!
+Sa démarche n'était pas rapide, mais ses enjambées étaient immenses. D'un seul pas, il franchissait une distance incommensurable. Un vortex géant rempli de brouillard apparut devant lui. C'était la Mer des Nuages!
 
-S'avançant vers le vortex, Tuo Sen disparut de Luotian pour s'enfoncer... dans la Mer Nuageuse!
+S'avançant vers le vortex, Tuo Sen disparut de Luotian pour s'enfoncer... dans la Mer des Nuages!
 
-À l'instant où il pénétra dans la Mer Nuageuse, tous les cultivateurs des sectes de rang 9 ressentirent instantanément une aura qui les ébranla jusqu'à la moelle.
+À l'instant où il pénétra dans la Mer des Nuages, tous les cultivateurs des sectes de rang 9 ressentirent instantanément une aura qui les ébranla jusqu'à la moelle.
 
 Même les bêtes féroces dans la brume commencèrent à trembler et reculèrent toutes, n'osant s'approcher. Même la marée de bêtes provenant de la fissure trembla de peur et battit en retraite frénétiquement. Cela provoqua une interruption inattendue du massacre qui durait depuis près de cent ans.
 
-Un Sens Divin inimaginable balaya la Mer Nuageuse comme une tempête. Tout le brouillard fut repoussé, comme s'il tremblait devant cette puissance mentale.
+Un Sens Divin inimaginable balaya la Mer des Nuages comme une tempête. Tout le brouillard fut repoussé, comme s'il tremblait devant cette puissance mentale.
 
-Simultanément, plusieurs Sens Divins jaillirent de la Mer Nuageuse et entrèrent en collision impitoyable avec celui de Tuo Sen.
+Simultanément, plusieurs Sens Divins jaillirent de la Mer des Nuages et entrèrent en collision impitoyable avec celui de Tuo Sen.
 
-Un rugissement, silencieux mais capable de pénétrer l'esprit comme d'innombrables éclats de tonnerre, se propagea follement à travers la Mer Nuageuse.
+Un rugissement, silencieux mais capable de pénétrer l'esprit comme d'innombrables éclats de tonnerre, se propagea follement à travers la Mer des Nuages.
 
 En temps normal, Tuo Sen aurait tué tout le monde. Cependant, en cet instant, ses yeux se rétrécirent. Il avait cherché dans les quatre royaumes sans trouver la moindre trace de Wang Lin. Pourtant, il savait que Wang Lin n'était pas mort, car sinon il aurait senti l'héritage se dissiper.
 
-« Si les quatre systèmes stellaires ne possèdent pas son aura, alors... il n'y a qu'une seule possibilité! » D'un coup de pied puissant, il fit trembler la Mer Nuageuse; des ondulations résonnèrent dans l'espace, provoquant l'apparition d'une immense fissure. Son corps s'enfonça dans la brèche et disparut.
+« Si les quatre systèmes stellaires ne possèdent pas son aura, alors... il n'y a qu'une seule possibilité! » D'un coup de pied puissant, il fit trembler la Mer des Nuages; des ondulations résonnèrent dans l'espace, provoquant l'apparition d'une immense fissure. Son corps s'enfonça dans la brèche et disparut.
 
-Après sa disparition, des Sens Divins arrivèrent, stupéfaits, pour inspecter les environs avant de repartir, ébranlés. Hormis quelques vieux monstres, personne ne connaissait la véritable raison de ce bouleversement de la Mer Nuageuse.
+Après sa disparition, des Sens Divins arrivèrent, stupéfaits, pour inspecter les environs avant de repartir, ébranlés. Hormis quelques vieux monstres, personne ne connaissait la véritable raison de ce bouleversement de la Mer des Nuages.
 
 Il existait un vide sous les quatre systèmes stellaires. C'était là que se trouvait la Formation de Scellement du Royaume. On pouvait pénétrer dans le Système Stellaire Antique en perçant à cet endroit.
 

@@ -16,7 +16,7 @@ Les mécanismes des cieux et de la terre étaient extrêmement difficiles à ma�
 
 Si quelqu'un avait été témoin de cette scène, il en aurait été profondément stupéfait.
 
-« Les sorts que le clan Dao Wang utilisait pour créer des grottes, ainsi que le pouvoir des Grands Empereurs à engendrer la matière à partir du vide... En y ajoutant mon sort de Flux Temporel, je peux recréer le mouvement même du monde... »
+« Les sorts que le clan Dao Wang utilisait pour créer des grottes, ainsi que le pouvoir des Grands Empyréens à engendrer la matière à partir du vide... En y ajoutant mon sort de Flux Temporel, je peux recréer le mouvement même du monde... »
 
 « Et comme je ne raffine qu'un seul mur de cette chambre, cela reste sous mon contrôle. » Wang Lin leva les yeux vers le plafond et constata que le cycle du jour et de la nuit avait déjà alterné plus d'une douzaine de fois en un laps de temps très court.
 
@@ -60,27 +60,27 @@ Ce n'était pas la première fois qu'il procédait ainsi; la première fois, il 
 
 Le temps passa. Le temps ne laissait aucune trace et, sans que rien ne soit ressenti, les années s'écoulèrent une à une.
 
-Lorsque le Royaume Divin Immemorial apparut, les courants sous-jacents qui traversaient le Continent Astral Immortel devinrent plus silencieux. Cependant, cela ne fit qu'accentuer la pression qui enveloppait désormais l'intégralité du continent.
+Lorsque le Royaume Divin Immémorial apparut, les courants sous-jacents qui traversaient le Continent Astral Immortel devinrent plus silencieux. Cependant, cela ne fit qu'accentuer la pression qui enveloppait désormais l'intégralité du continent.
 
-Les sectes des divers clans célestes s'étaient tues, instaurant un rare moment de paix. Toutes rassemblaient leurs forces en prévision de l'ouverture du Royaume Divin Immemorial.
+Les sectes des divers clans célestes s'étaient tues, instaurant un rare moment de paix. Toutes rassemblaient leurs forces en prévision de l'ouverture du Royaume Divin Immémorial.
 
 Toute secte dotée d'une puissance ressentait qu'après cette période de latence, une guerre interminable débuterait entre les clans célestes et les clans Anciens, une guerre qui durerait des centaines d'années!
 
-Au cours de ce conflit, même des Grands Empereurs pourraient tomber. Quant aux Ascendants et aux Empereurs Exaltés des diverses sectes, certains disparaîtraient tandis que d'autres entreraient dans la légende.
+Au cours de ce conflit, même des Grands Empyréens pourraient tomber. Quant aux Ascendants Empyréens et aux Exaltés Empyréens des diverses sectes, certains disparaîtraient tandis que d'autres entreraient dans la légende.
 
-Dans le clan Ancien, le constat était identique. Les trois familles royales suivaient les ordres du Grand Empereur Gu Dao pour se préparer au combat. Tous ressentaient cette pression, et leurs Grands Empereurs respectifs s'étaient retirés en culture fermée.
+Dans le clan Ancien, le constat était identique. Les trois familles royales suivaient les ordres du Grand Empyréen Gu Dao pour se préparer au combat. Tous ressentaient cette pression, et leurs Grands Empyréens respectifs s'étaient retirés en culture fermée.
 
 Dans le Dao Ancien, Luo Chen était devenu le nouvel empereur. Cependant, en tant que nouveau souverain, il ne maîtrisait pas encore l'ensemble du Dao Ancien. Il lui faudrait du temps pour s'adapter avant de véritablement tout posséder.
 
 Pendant ce processus, l'Empereur Saint Ye Wei remplaçait temporairement l'empereur dans la gestion du Dao Ancien. Quant à Xuan Luo, après avoir nommé Luo Chen, il s'était également retiré en culture fermée.
 
-Il approchait de sa réincarnation et devait faire face à l'ouverture du Royaume Divin Immemorial. Ce n'était pas le moment idéal pour se réincarner; il devait contenir cette pulsion et attendre que les choses s'apaisent.
+Il approchait de sa réincarnation et devait faire face à l'ouverture du Royaume Divin Immémorial. Ce n'était pas le moment idéal pour se réincarner; il devait contenir cette pulsion et attendre que les choses s'apaisent.
 
-Le clan Ancien Shi faisait face à un problème similaire. Le vieil empereur déclinait, et selon l'accord ancestral, à moins que le Grand Empereur Gu Dao ne l'autorise, il devrait abdiquer en faveur de ses descendants.
+Le clan Ancien Shi faisait face à un problème similaire. Le vieil empereur déclinait, et selon l'accord ancestral, à moins que le Grand Empyréen Gu Dao ne l'autorise, il devrait abdiquer en faveur de ses descendants.
 
-Il restait environ cent ans avant cette abdication. Il demeurait silencieux, n'ayant aucun droit de choisir, ce qui poussait tous les princes à concentrer leurs espoirs sur le Grand Empereur Song Tian.
+Il restait environ cent ans avant cette abdication. Il demeurait silencieux, n'ayant aucun droit de choisir, ce qui poussait tous les princes à concentrer leurs espoirs sur le Grand Empyréen Song Tian.
 
-Ji Du avait tenté de rencontrer le Grand Empereur Song Tian à maintes reprises, mais s'était vu systématiquement refoulé devant la Montagne d'Origine. L'échéance approchait et, une fois la décision de Song Tian prise, il serait trop tard.
+Ji Du avait tenté de rencontrer le Grand Empyréen Song Tian à maintes reprises, mais s'était vu systématiquement refoulé devant la Montagne d'Origine. L'échéance approchait et, une fois la décision de Song Tian prise, il serait trop tard.
 
 À cet instant, trois personnes se trouvaient dans le palais du Prince Ji Du. L'un d'eux était Ji Du lui-même, le sourcil froncé par l'anxiété.
 

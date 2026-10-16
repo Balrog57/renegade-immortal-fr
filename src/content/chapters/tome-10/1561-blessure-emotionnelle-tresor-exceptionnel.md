@@ -10,11 +10,11 @@ slug: blessure-emotionnelle-tresor-exceptionnel
 
 « Cependant, pourquoi la figure aux sept couleurs n'a-t-elle pas pris l'essence de massacre... Quel est son dessein? Ne cherchait-il pas l'essence de massacre comme je le pensais... Si ce n'est pas pour cela, à quoi bon a-t-il fait cela... »
 
-« Que veut-il de mon frère aîné Qing Shui?! » Les yeux de Wang Lin brillèrent. Plus il réfléchissait, plus il sentait que quelque chose clochait. Soudain, une pensée lui traversa l'esprit. Il se souvint de l'épine qui avait transpercé la tête de Qing Shui, mais qui était décalée de plusieurs centimètres!
+« Que veut-il de mon Senior Frère Qing Shui?! » Les yeux de Wang Lin brillèrent. Plus il réfléchissait, plus il sentait que quelque chose clochait. Soudain, une pensée lui traversa l'esprit. Il se souvint de l'épine qui avait transpercé la tête de Qing Shui, mais qui était décalée de plusieurs pouces!
 
-« La zone entre les sourcils est le carrefour de la vie et de la mort, mais l'épine était décalée de plusieurs centimètres. La figure aux sept couleurs a dit que cela ouvrirait la réincarnation... La réincarnation... La réincarnation est éthérée. Le but de cette figure serait-il de permettre au frère aîné Qing Shui d'entrer dans le cycle de la réincarnation grâce à l'essence de massacre... Mais même ainsi, à quoi bon... »
+« La zone entre les sourcils est le carrefour de la vie et de la mort, mais l'épine était décalée de plusieurs pouces. La figure aux sept couleurs a dit que cela ouvrirait la réincarnation... La réincarnation... La réincarnation est éthérée. Le but de cette figure serait-il de permettre au Senior Frère Qing Shui d'entrer dans le cycle de la réincarnation grâce à l'essence de massacre... Mais même ainsi, à quoi bon... »
 
-« Il y avait aussi cette remarque où il affirmait être certain que je n'avais aucun lien avec lui. Cela signifie-t-il qu'il existe un lien entre lui et le frère aîné Qing Shui...? Si c'est le cas, quelle est cette connexion... » Plus Wang Lin réfléchissait, plus il avait l'impression de toucher au but, tout en restant dans le flou.
+« Il y avait aussi cette remarque où il affirmait être certain que je n'avais aucun lien avec lui. Cela signifie-t-il qu'il existe un lien entre lui et le Senior Frère Qing Shui...? Si c'est le cas, quelle est cette connexion... » Plus Wang Lin réfléchissait, plus il avait l'impression de toucher au but, tout en restant dans le flou.
 
 Depuis sa rencontre avec Cupidité dans les Terres Déchues et l'obtention de la statue aux sept couleurs, Wang Lin percevait vaguement un voile de mystère. Derrière ce voile se cachait un grand secret concernant les Royaumes Intérieur et Extérieur!
 
@@ -72,7 +72,7 @@ Il regarda la femme s'éloigner lentement à travers ses bras, comme si une forc
 
 « Han Yan!!! » Qing Shui laissa échapper un rugissement qui fit trembler les cieux. À cet instant, il avait oublié qu'il venait d'ouvrir la Porte du Vide, oublié tout le reste. La seule chose qui importait à ses yeux était cette femme!
 
-Sa femme, Han Yan! Pour récupérer les appartenances de son épouse, il avait détruit tout le Royaume de la Massacre. Son amour pour elle était son monde, sa joie, mais aussi la source de toute sa souffrance.
+Sa femme, Han Yan! Pour récupérer les appartenances de son épouse, il avait détruit tout le Royaume du Massacre. Son amour pour elle était son monde, sa joie, mais aussi la source de toute sa souffrance.
 
 Sa femme était apparue parce qu'il avait ouvert la Porte du Vide et complété son essence de massacre. Mais voyant qu'elle allait disparaître une fois de plus, il poussa un cri déchirant. Il s'élança en avant, voulant capturer l'âme de sa femme!
 
@@ -92,7 +92,7 @@ Le corps de la femme s'immobilisa soudainement. L'aura dorée l'enveloppa tandis
 
 Qing Shui saisit la femme. Des larmes coulaient sur son visage alors qu'il lui murmurait quelques mots. La femme le tenait également en silence, et cet instant sembla durer une éternité.
 
-Après un long moment, Qing Shui leva la tête et agita la main. Une ancienne épingle à cheveux apparut. C'était l'objet que sa femme avait laissé derrière elle et qu'il avait récupéré du Royaume de la Massacre. Il plaça délicatement l'épingle dans les cheveux de la femme.
+Après un long moment, Qing Shui leva la tête et agita la main. Une ancienne épingle à cheveux apparut. C'était l'objet que sa femme avait laissé derrière elle et qu'il avait récupéré du Royaume du Massacre. Il plaça délicatement l'épingle dans les cheveux de la femme.
 
 En la regardant, la tristesse dans ses yeux devint plus intense encore. Un instant plus tard, il se tourna vers Wang Lin. La gratitude dans son regard était indescriptible.
 
@@ -108,7 +108,7 @@ Cette épée était une essence de massacre complète!
 
 On pourrait dire que cette arme était le trésor le plus puissant de Qing Shui et son premier Trésor d'Essence! Tous les cultivateurs de la troisième étape ne parviennent pas forcément à former un tel trésor en brisant la Porte du Vide; ceux qui y parviennent sont extrêmement rares!
 
-L'ancêtre du Clan de l'Hirondelle de Feu, l'Estimé Nan Zhao, l'Estimé Maître Tian Zhao, Zhou Jin, Ling Dong... aucun d'eux n'y était parvenu. Même les Maîtres Hong Shan et Nan Yunzi n'avaient pu le faire.
+L'ancêtre du Clan des Moineaux de Feu, l'Estimé Nan Zhao, l'Estimé Maître Tian Zhao, Zhou Jin, Ling Dong... aucun d'eux n'y était parvenu. Même les Maîtres Hong Shan et Nan Yunzi n'avaient pu le faire.
 
 Cela démontrait à quel point ce trésor était précieux!
 

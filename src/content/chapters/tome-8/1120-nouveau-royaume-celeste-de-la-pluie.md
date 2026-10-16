@@ -46,7 +46,7 @@ Sur ces mots, Qing Lin secoua la tête avec bienveillance. Il se leva et posa sa
 
 Soudain, une puissante force de succion émana de la main droite de Qing Lin, et un mince filet d'énergie d'origine céleste se détacha de Qing Shuang pour rejoindre sa paume.
 
-Ce n'était qu'une infime quantité, un simple éclat argenté. C'était si peu que même le maigre peu de Qi d'origine que Wang Wei possédait autrefois en contenait plusieurs fois davantage. Pourtant, ce fragment d'énergie brillait intensément dans la main de Qing Lin.
+Ce n'était qu'une infime quantité, un simple éclat argenté. C'était si peu que même le maigre peu de Qi d'origine que Wang Lin possédait autrefois en contenait plusieurs fois davantage. Pourtant, ce fragment d'énergie brillait intensément dans la main de Qing Lin.
 
 Bien que cette lueur ne fût pas aveuglante, elle illumina tout le temple. Ce sanctuaire verdoyant n'était plus vert; il rayonnait comme un soleil.
 

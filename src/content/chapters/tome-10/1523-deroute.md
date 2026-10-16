@@ -20,11 +20,11 @@ Ils ne comprenaient pas quel genre de cultivateur pouvait posséder un corps aus
 
 En particulier, le vieil homme au bras brisé fut envahi par une peur infinie et n'hésita pas une seconde à battre en retraite. Cela entraîna la fuite désordonnée de ces dix mille cultivateurs!
 
-Leur retraite fit pousser des cris de joie chez les cultivateurs de la Mer Nuageuse! Cette scène agissait comme une dose d'adrénaline injectée dans leurs veines!
+Leur retraite fit pousser des cris de joie chez les cultivateurs de la Mer des Nuages! Cette scène agissait comme une dose d'adrénaline injectée dans leurs veines!
 
-« Gloire à la Mer Nuageuse! Gloire au Seigneur du Royaume Scellé! »
+« Gloire à la Mer des Nuages! Gloire au Seigneur du Royaume Scellé! »
 
-« Gloire à la Mer Nuageuse! Gloire au Seigneur du Royaume Scellé! » Les acclamations résonnèrent avec ferveur. À cet instant, tous les regards se tournèrent vers Wang Lin, qui sortait de la tempête pour poursuivre le massacre!
+« Gloire à la Mer des Nuages! Gloire au Seigneur du Royaume Scellé! » Les acclamations résonnèrent avec ferveur. À cet instant, tous les regards se tournèrent vers Wang Lin, qui sortait de la tempête pour poursuivre le massacre!
 
 Alors qu'il émergeait des tourbillons, ses yeux étaient habités par une intention meurtrière monstrueuse. D'un revers de la main droite, il fit s'effondrer la tempête, la dispersant dans toutes les directions!
 
@@ -36,7 +36,7 @@ Au milieu du carnage incessant, Wang Lin était épuisé. Ses blessures étaient
 
 Ses yeux étaient injectés de sang à force de tuer. Il savait que cette bataille était loin d'être terminée, mais il ne pouvait pas reculer!
 
-Grâce à l'intervention de Wang Lin, le moral des cultivateurs de la Mer Nuageuse avait connu un regain insensé. Bien qu'ils aient subi de lourdes pertes, ils lancèrent à cet instant une contre-attaque frénétique. Les formations que le Maître Hong Shan leur avait transmises étaient gravées dans leurs esprits.
+Grâce à l'intervention de Wang Lin, le moral des cultivateurs de la Mer des Nuages avait connu un regain insensé. Bien qu'ils aient subi de lourdes pertes, ils lancèrent à cet instant une contre-attaque frénétique. Les formations que le Maître Hong Shan leur avait transmises étaient gravées dans leurs esprits.
 
 À ce moment précis, les 30 000 cultivateurs restants commencèrent tous à ériger une formation!
 
@@ -44,9 +44,9 @@ Juste au moment où ils touchaient au but, les cultivateurs du Royaume Extérieu
 
 Une fois pouvait être une coïncidence, deux fois aussi. Cependant, trois, quatre, cinq et six fois... ce n'était plus une coïncidence!
 
-La formation de la Mer Nuageuse ne parvenait pas à se stabiliser, peu importe le nombre de morts!
+La formation de la Mer des Nuages ne parvenait pas à se stabiliser, peu importe le nombre de morts!
 
-Les cultivateurs du Royaume Extérieur étaient habités par une soif de sang. Bien que certains craignaient Wang Lin, la majorité restait déchaînée. Ils chargeaient depuis le Royaume Extérieur sans aucune retenue!
+Les cultivateurs du Royaume Extérieur étaient habités par une soif de sang. Bien que certains craignent Wang Lin, la majorité restait déchaînée. Ils chargeaient depuis le Royaume Extérieur sans aucune retenue!
 
 Tout cela était dû à une seule personne!
 
@@ -56,7 +56,7 @@ Elle se trouvait au cœur d'une masse compacte de cultivateurs du Royaume Extér
 
 Les ordres pleuvaient. L'armée fut scindée en quatre sections pour progresser vers le Royaume Intérieur! Sous son commandement, l'armée semblait avoir acquis une âme!
 
-Yun Luo continuait ses divinations pour anticiper chaque danger potentiel. Cela empêchait les cultivateurs de la Mer Nuageuse de finaliser leur formation pour éliminer l'ennemi!
+Yun Luo continuait ses divinations pour anticiper chaque danger potentiel. Cela empêchait les cultivateurs de la Mer des Nuages de finaliser leur formation pour éliminer l'ennemi!
 
 Chaque fois qu'une formation était sur le point d'être achevée, la femme pointait du doigt une cible, et une vague de cultivateurs chargeait pour interrompre le processus!
 
@@ -88,13 +88,13 @@ La glace frémit et disparut sans laisser de trace. L'instant d'après, elle ré
 
 Alors que le Maître Hong Shan était sur le point d'abattre Yun Luo, une énergie glaciale jaillit de la faille de la formation. Le bloc de glace gigantesque ne se contenta pas de traverser la formation: il en agrandit l'ouverture et pénétra dans le Royaume Intérieur!
 
-Une fois à l'intérieur, la glace vola en éclats innombrables. Ces fragments se transformèrent en une tempête de givre inimaginable qui s'abattit sur les 30 000 cultivateurs de la Mer Nuageuse!
+Une fois à l'intérieur, la glace vola en éclats innombrables. Ces fragments se transformèrent en une tempête de givre inimaginable qui s'abattit sur les 30 000 cultivateurs de la Mer des Nuages!
 
 Simultanément, le garçon dans la glace afficha un regard féroce et se rapprocha du Maître Hong Shan!
 
 « Enfant à la chemise rouge, autrefois nous étions tous deux des enfants. Nous nous sommes affrontés maintes fois, mais ce n'était guère satisfaisant. Aujourd'hui, nous allons combattre à nouveau! Retourne dans ton corps originel, cette simple incarnation ne suffit pas pour affronter ce vieil homme! » déclara le garçon au visage froid d'une voix indifférente. Tandis que sa voix se propageait, il avait déjà atteint le Maître Hong Shan!
 
-L'expression du Maître Hong Shan devint extrêmement grave, mais il resta silencieux. Il fit un pas de recul et se posta face à la tempête de glace qui s'abattait sur la Mer Nuageuse. D'un revers de manche, il brisa la tempête.
+L'expression du Maître Hong Shan devint extrêmement grave, mais il resta silencieux. Il fit un pas de recul et se posta face à la tempête de glace qui s'abattait sur la Mer des Nuages. D'un revers de manche, il brisa la tempête.
 
 Cependant, au moment même où il la dissipait, le visage du Maître Hong Shan se décomposa!
 
@@ -106,23 +106,23 @@ Le visage du Maître Hong Shan pâlit et il recula de quelques pas. Une marque d
 
 « Tu es aussi méprisable qu'autrefois, tu n'as pas changé d'un iota! » lança le Maître Hong Shan en fixant le garçon glacial et la femme en rouge.
 
-Du fait de l'apparition de la femme en rouge, la tempête de glace ne se désintégra pas totalement. Les restes du blizzard enveloppèrent les cultivateurs de la Mer Nuageuse dans un fracas de craquements.
+Du fait de l'apparition de la femme en rouge, la tempête de glace ne se désintégra pas totalement. Les restes du blizzard enveloppèrent les cultivateurs de la Mer des Nuages dans un fracas de craquements.
 
 Les cultivateurs furent recouverts de givre et transformés en sculptures de glace qui s'effondrèrent. En un éclair, près de 10 000 hommes périrent!
 
-La mort brutale de ces 10 000 cultivateurs sema la terreur parmi les survivants de la Mer Nuageuse. Face à une telle mortalité, aussi simple que terrifiante, même leur gloire vacilla et commença à chanceler!
+La mort brutale de ces 10 000 cultivateurs sema la terreur parmi les survivants de la Mer des Nuages. Face à une telle mortalité, aussi simple que terrifiante, même leur gloire vacilla et commença à chanceler!
 
 Ce fut la parole suivante de la femme en rouge qui acheva de briser ce moral fragile!
 
-« Cette petite fille, Yun Luo, a tout calculé. Le but de cette bataille est de vous éliminer, vous et le Maître Nan Yunzi! Le garçon glacial avait deviné que vous tenteriez de sauver ces fourmis de la Mer Nuageuse en stoppant la tempête. Yun Luo a compris que vous ne me remarqueriez pas dans l'urgence, alors je me suis cachée à l'intérieur pour porter un coup décisif! »
+« Cette petite fille, Yun Luo, a tout calculé. Le but de cette bataille est de vous éliminer, vous et le Maître Nan Yunzi! Le garçon glacial avait deviné que vous tenteriez de sauver ces fourmis de la Mer des Nuages en stoppant la tempête. Yun Luo a compris que vous ne me remarqueriez pas dans l'urgence, alors je me suis cachée à l'intérieur pour porter un coup décisif! »
 
-Ces mots plongèrent les derniers cultivateurs de la Mer Nuageuse dans le désespoir. Tout n'était qu'un rouage du plan ennemi. Que valait leur gloire désormais?
+Ces mots plongèrent les derniers cultivateurs de la Mer des Nuages dans le désespoir. Tout n'était qu'un rouage du plan ennemi. Que valait leur gloire désormais?
 
 Même le Maître Hong Shan était tombé dans leur piège. Que restait-il pour maintenir leur dignité? Que restait-il de force pour poursuivre le combat?
 
 Au moment où leur espoir s'effondra, le mépris dans les yeux de la Grande Maîtresse Yun Luo s'intensifia. Elle leva sa main de jade et lança l'assaut final!
 
-Les innombrables cultivateurs se précipitèrent vers les rangs de la Mer Nuageuse, désormais dépourvus de toute volonté!
+Les innombrables cultivateurs se précipitèrent vers les rangs de la Mer des Nuages, désormais dépourvus de toute volonté!
 
 Le carnage fut effroyable!
 
@@ -132,10 +132,10 @@ Sa vitesse était fulgurante. Le Maître Nan Yunzi poussa un soupir et abandonna
 
 Le corps glacial ne laissa aucun répit au Maître Hong Shan. Tel un bloc de glace éternelle, il chargea le Maître Hong Shan, rejoignant les cinq autres cultivateurs du troisième stade pour l'assaillir de toutes parts!
 
-Ce revirement soudain ébranla tout le système stellaire. Si la Mer Nuageuse ne recevait pas de renforts, elle était perdue!
+Ce revirement soudain ébranla tout le système stellaire. Si la Mer des Nuages ne recevait pas de renforts, elle était perdue!
 
 La troisième armée du Royaume Extérieur, composée de plus de 60 000 cultivateurs issus de dix clans, chargea vers la Formation de Scellement du Royaume!
 
-Wang Lin observait la scène. Il réfléchit en silence et recula jusqu'à se placer devant les cultivateurs de la Mer Nuageuse. Ses yeux brûlaient d'une intention de combat monstrueuse. Alors que le désespoir gagnait ses alliés, il lâcha un rugissement qui fit trembler les cieux!
+Wang Lin observait la scène. Il réfléchit en silence et recula jusqu'à se placer devant les cultivateurs de la Mer des Nuages. Ses yeux brûlaient d'une intention de combat monstrueuse. Alors que le désespoir gagnait ses alliés, il lâcha un rugissement qui fit trembler les cieux!
 
 « Les cultivateurs comme nous ne reculent jamais devant le combat! Il n'y a que la mort! »

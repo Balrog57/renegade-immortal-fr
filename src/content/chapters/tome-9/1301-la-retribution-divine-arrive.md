@@ -74,7 +74,7 @@ Un cri de détresse monta de la foule. En entendant cela, les visages des cultiv
 
 « La Rétribution Divine, c'est vraiment elle! » Les trois membres de la Secte Démon tremblaient, la peur lisible dans leurs yeux. Ils n'hésitèrent pas un instant à battre en retraite.
 
-Soudain, un rugissement tonnerre retentit.
+Soudain, un rugissement de tonnerre retentit.
 
 Un fracas assourdissant jaillit des nuages magnifiques et secoua le champ d'étoiles. Des centaines de cultivateurs crachèrent du sang et s'effondrèrent.
 

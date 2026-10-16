@@ -46,7 +46,7 @@ De nombreux pays de culture sur la planète Suzaku avaient disparu; désormais, 
 
 Ces neuf grandes sectes occupaient la majeure partie du territoire.
 
-En avançant, Wang Lin aperçut la Secte de l'Affinement de l'Âme. Le souvenir de Du Tian était toujours là, mais la Secte de l'Affinement de l'Âme n'était plus le même. La montagne avait disparu, remplacée par un lac entouré de nombreux pavillons d'où émanaient des ondes d'énergie spirituelle, mais il s'agissait désormais d'une autre secte.
+En avançant, Wang Lin aperçut la Secte de l'Affinement de l'Âme. Le souvenir de Du Tian était toujours là, mais la Secte de l'Affinement de l'Âme n'était plus la même. La montagne avait disparu, remplacée par un lac entouré de nombreux pavillons d'où émanaient des ondes d'énergie spirituelle, mais il s'agissait désormais d'une autre secte.
 
 C'était ici que Situ Nan s'était réveillé. Ses paroles dominantes résonnaient encore aux oreilles de Wang Lin, mais il ne décelait plus aucune aura familière.
 

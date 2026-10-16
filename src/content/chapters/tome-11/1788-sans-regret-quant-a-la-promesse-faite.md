@@ -18,7 +18,7 @@ Les paroles de Xuan Luo résonnaient encore dans ses oreilles, persistant longte
 
 Wang Lin comprit vaguement que pour défier ainsi les lois du Continent Astral Immortel, Xuan Luo devait en payer un prix considérable.
 
-« Ce junior ignore qui décidera de quitter le monde des grottes et combien ils seront. Cependant, quoi qu'il advienne, ce junior n'oubliera jamais la bonté dont le Senior a fait preuve envers lui aujourd'hui! »
+« Ce Junior ignore qui décidera de quitter le monde des grottes et combien ils seront. Cependant, quoi qu'il advienne, ce Junior n'oubliera jamais la bonté dont le Senior a fait preuve envers lui aujourd'hui! »
 
 Wang Lin s'inclina devant Xuan Luo. Une connexion invisible semblait se former entre eux; une chose impossible à expliquer ou à concevoir, mais qui était bien là.
 
@@ -40,7 +40,7 @@ Il avait laissé d'innombrables ombres délicates danser autour de lui telles de
 
 C'était un amour qui entravait Wang Lin depuis plus de deux mille ans, et il ne s'évanouirait pas avant le jour de sa propre mort! Ils préféraient mourir ensemble plutôt que de vivre l'un sans l'autre!
 
-Ces mots parvinrent aux oreilles du Maître Dao Bleu Rêve, dont le regard s'assombrit. Il fixa la direction du Royaume Céleste et médita en silence.
+Ces mots parvinrent aux oreilles du Maître du Dao Rêve Bleu, dont le regard s'assombrit. Il fixa la direction du Royaume Céleste et médita en silence.
 
 Les yeux de Xuan Luo brillèrent tandis qu'il observait Wang Lin, qui lui rendit son regard. Ayant entendu les paroles de Wang Lin sur l'absence de regret, il hocha la tête.
 
@@ -54,7 +54,7 @@ Les yeux de Xuan Luo brillèrent tandis qu'il observait Wang Lin, qui lui rendit
 
 « Un être aussi noble et sentimental... Si je ne l'abandonne pas, il fera tout ce qui est en son pouvoir pour protéger mon Clan du Dao Antique pour l'éternité une fois que nous lui aurons témoigné notre gratitude! » Une lueur mystérieuse traversa le regard de Xuan Luo, et il prit sa décision.
 
-Wang Lin fixa profondément Xuan Luo et s'inclina une troisième fois. Il se détourna et partit. Le Maître Dao Bleu Rêve le suivit tout en restant plongé dans ses pensées.
+Wang Lin fixa profondément Xuan Luo et s'inclina une troisième fois. Il se détourna et partit. Le Maître du Dao Rêve Bleu le suivit tout en restant plongé dans ses pensées.
 
 Quant à Tuo Sen, après avoir salué Wang Lin, il marcha machinalement vers l'horizon, son esprit occupé par la question de savoir s'il devait quitter le monde des grottes pour se réincarner sur le Continent Astral Immortel ou non.
 

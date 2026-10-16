@@ -26,13 +26,13 @@ Wang Lin bondit et resta en lévitation à quelques centimètres du pont, dériv
 
 Wang Lin ne laissa rien paraître de ses pensées et dit d'un ton lent: « Il n'est pas nécessaire de précipiter l'échange du Serment de Sang. Je suis très intéressé par votre Navire Démon des Âmes. Trois jours devraient me suffire pour l'étudier. »
 
-« Vous voulez étudier les restrictions de ce navire? » Fan Shanmeng fut stupéfaite. Que ce soit elle ou sa sœur, aucune n'ignorait le talent exceptionnel de Wang Lin pour les restrictions, mais ses paroles la laissèrent perplexe. Après un long silence, elle reprit:
+« Vous voulez étudier les restrictions de ce navire? » Fan Shanmeng fut stupéfaite. Ni elle ni sa sœur ne connaissaient le talent exceptionnel de Wang Lin pour les restrictions, et ses paroles la laissèrent perplexe. Après un long silence, elle reprit:
 
-« Ce Navire Démon des Âmes est un trésor de mon Grand Secte des Âmes. Bien qu'il ne soit pas de rang suprême, il demeure un trésor de rang moyen. Même moi, je ne l'ai pas encore pleinement maîtrisé, sans parler de vous.
+« Ce Navire Démon des Âmes est un trésor de mon Secte de la Grande Âme. Bien qu'il ne soit pas de rang suprême, il demeure un trésor de rang moyen. Même moi, je ne l'ai pas encore pleinement maîtrisé, sans parler de vous.
 
 « Cher Cultivateur Wang, je vous conseille d'utiliser ces trois jours pour tenter d'atteindre l'autel. Si vous parvenez à absorber la puissance qu'il renferme, votre niveau de culture progressera sûrement. » Les paroles de Fan Shanmeng étaient douces, mais son intention était limpide. Elle ne pensait pas que Wang Lin fût qualifié pour étudier ce navire et jugeait même ses propos parfaitement absurdes.
 
-« Ce n'est qu'un simple cultivateur insecte du monde des grottes, et il prétend vouloir étudier un trésor de mon Grand Secte des Âmes? C'est ridicule! Il se surestime totalement! »
+« Ce n'est qu'un simple cultivateur insecte du monde des grottes, et il prétend vouloir étudier un trésor de mon Secte de la Grande Âme? C'est ridicule! Il se surestime totalement! »
 
 « Oh? Se pourrait-il que le Cultivateur craigne que je ne prenne le contrôle du navire une fois que j'aurai compris ses restrictions? » Wang Lin afficha un sourire qui n'en était pas un en fixant Fan Shanmeng.
 
@@ -86,7 +86,7 @@ Ce n'est qu'une fois protégé par ce pouvoir ancien que Wang Lin se détendit, 
 
 Cette force invisible était générée par les restrictions du pont. Elle permettait à Wang Lin de l'observer de l'extérieur, mais lui interdisait de percevoir sa structure interne.
 
-Fan Shanmeng ricana intérieurement. Ce Navire Démon des Âmes étant le trésor de son Grand Secte des Âmes, elle en connaissait parfaitement les rouages.
+Fan Shanmeng ricana intérieurement. Ce Navire Démon des Âmes étant le trésor de son Secte de la Grande Âme, elle en connaissait parfaitement les rouages.
 
 « Sans une compréhension profonde des restrictions, la simple force de rejet suffira à... » Alors qu'elle pensait cela, elle fut saisie de stupeur et fixa Wang Lin.
 

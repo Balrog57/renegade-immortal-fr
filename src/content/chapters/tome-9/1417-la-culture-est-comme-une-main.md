@@ -30,7 +30,7 @@ Dès que son Sens Divin y pénétra, sa voix tonna à l'intérieur de l'Épreuve
 
 « Ancêtre!!! Quel est le sens de tout cela!?! Ne pourrait-il pas être un membre de mon clan de l'Oiseau Vermillon?! Pourrait-il avoir été créé par quelqu'un d'autre?! »
 
-« Toi, pars! » Une voix bourdonnante gronda, formant une force invisible qui frappa le Sens Divin du vieil Oiseau Vermillon, le expulsant de force de l'Épreuve Céleste.
+« Toi, pars! » Une voix bourdonnante gronda, formant une force invisible qui frappa le Sens Divin du vieil Oiseau Vermillon, l'expulsant de force de l'Épreuve Céleste.
 
 « J'ai mon propre plan! »
 
@@ -48,7 +48,7 @@ Sa voix devint de plus en plus forte, jusqu'à devenir fracassante. Dès qu'il e
 
 Le monde trembla et commença à tourbillonner. Une gigantesque faille spatiale de 10 000 pieds de long s'ouvrit. Des rugissements incessants émanèrent de la brèche, où l'on pouvait apercevoir les corps colossaux de plusieurs anciens dragons du tonnerre s'agitant à l'intérieur.
 
-Ouvrir l'Ancien Royaume du Tonnerre était le sort de l'Ancien de la lignée du Clan du Tonnerre Éparpillé. Cependant, après avoir sondé l'âme de cet Ancien et grâce à son essence de tonnerre, Wang Lin pouvait également utiliser ce sort extrêmement puissant!
+Ouvrir l'Ancien Royaume du Tonnerre était le sort de l'Ancien de la lignée du Clan du Tonnerre Dispersé. Cependant, après avoir sondé l'âme de cet Ancien et grâce à son essence de tonnerre, Wang Lin pouvait également utiliser ce sort extrêmement puissant!
 
 Les dragons du tonnerre poussèrent des rugissements de colère en sortant de la faille spatiale. Mais à ce moment précis, la voix de la première génération de l'Oiseau Vermillon retentit:
 

@@ -120,7 +120,7 @@ L'empreinte du sens divin sur ce trésor s'était depuis longtemps effondrée so
 
 Il commença à affiner cet objet en utilisant le tonnerre de son âme originelle.
 
-Le dernier trésor magique était la couronne. Wang Lin avait constaté personnellement que, sous la puissance du doigt du Dieu Ancien du Serpent Regardant la Lune, pas une seule fissure n'était apparue sur la couronne!
+Le dernier trésor magique était la couronne. Wang Lin avait constaté personnellement que, sous la puissance du doigt du Dieu Ancien du Serpent aux yeux de lune, pas une seule fissure n'était apparue sur la couronne!
 
 Tenant l'objet de la main gauche, Wang Lin le scruta avec son sens divin et ne trouva rien d'anormal. Elle ressemblait à la couronne d'un empereur mortel, sans particularité apparente.
 

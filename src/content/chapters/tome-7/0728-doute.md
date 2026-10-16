@@ -40,9 +40,9 @@ Zhan Konglie fronça les sourcils et regarda inconsciemment Wang Lin. Il dit len
 
 Shengong Hu ricana sans toutefois s'expliquer. Il dit froidement: « Si tu ne pars pas dans trois respirations, alors autant ne plus repartir du tout! » Il détestait profondément cet homme talentueux de la famille Zhan. Si leurs forces n'étaient pas si proches, les deux se seraient déjà affrontés.
 
-Si ce Zhan Konglie persistait dans son ingratitude et perturbait la culture de son Aîné, il l'attaquerait, même avec une culture endommagée. Tant que l'Aîné jetterait ce regard sur Zhan Konglie, cela suffirait à faire s'effondrer ce dernier!
+Si ce Zhan Konglie persistait dans son ingratitude et perturbait la culture de son Senior, il l'attaquerait, même avec une culture endommagée. Tant que le Senior jetterait ce regard sur Zhan Konglie, cela suffirait à faire s'effondrer ce dernier!
 
-Après tout, cet homme n'était pas un messager du Temple Céleste du Tonnerre. Bien que le tuer soit problématique, tant que l'Aîné était là, ce ne serait qu'une mince affaire.
+Après tout, cet homme n'était pas un messager du Temple Céleste du Tonnerre. Bien que le tuer soit problématique, tant que le Senior était là, ce ne serait qu'une mince affaire.
 
 Les yeux de Zhan Konglie se plissèrent et il recula immédiatement. Homme prudent, ses yeux tombèrent en reculant sur Wang Lin, qui se trouvait dans les profondeurs du lac de tonnerre. Le doute dans son cœur s'intensifia.
 
@@ -108,4 +108,4 @@ Bien qu'il ne fût pas aussi grandiose que celui du fourneau, il était encore p
 
 L'expression de Zhan Konglie changea et il recula une nouvelle fois. Simultanément, son pied bougea et l'épée de bois s'envola. Il pointa l'arme du doigt et elle fut projetée en avant. L'épée de bois, enveloppée d'une lumière pourpre, s'élança dans un grondement violent.
 
-Les yeux de Shengong Hu brillaient d'intention de combat. Il voulait déployer toute sa puissance dans ce duel, car l'Aîné regardait!
+Les yeux de Shengong Hu brillaient d'intention de combat. Il voulait déployer toute sa puissance dans ce duel, car le Senior regardait!

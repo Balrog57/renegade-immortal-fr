@@ -52,7 +52,7 @@ Ce qui était impossible auparavant l'était désormais: elle sombrait peu à pe
 
 « Encore trois sauts et je serai en sécurité, juste trois! » La femme en blanc apparut dans l'espace, le visage livide. À peine eut-elle surgi que des ondulations se formèrent sous ses pieds pour son départ, mais des grondements assourdissants retentirent. Un tonnerre incessant surgit de toutes parts, formant un vortex qui déformait l'énergie originelle du lieu, l'empêchant de s'enfuir!
 
-Tandis que son expression se décomposait, Wang Lin sortit du vide avec un regard glacial. Sans dire un mot, il agita la main droite. Les nuages se rassemblèrent pour former le ciel et la terre. Le Sceau de l'Inversion Céleste!
+Tandis que son expression se décomposait, Wang Lin sortit du vide avec un regard glacial. Sans dire un mot, il agita la main droite. Les nuages se rassemblèrent pour former le ciel et la terre. Le Sceau d'Inversion Céleste!
 
 Alors que le monde s'inversait, le ciel et la terre se superposèrent dans un fracas de tonnerre. La femme en blanc cracha du sang sous ce choc. Elle tenta de reculer rapidement, mais une lueur de sang jaillit et l'épée de sang lui transperça le dos!
 
@@ -62,13 +62,13 @@ Au sein de ces visions, on voyait une femme agenouillée au sol, tandis qu'une m
 
 Il ne fallut qu'un instant pour que ces images tourmentées s'effondrent, laissant émaner de sa tête une riche aura laiteuse. Cette aura était presque solide et révélait une ténue ligne dorée!
 
-Wang Lin ne connaissait pas cette lueur blanche laiteuse: c'était la Flamme Joss!
+Wang Lin connaissait bien cette lueur blanche laiteuse: c'était la Flamme Joss!
 
 Cependant, la Flamme Joss de cette femme était d'une richesse extrême, ce qui surprit Wang Lin. Sa seule flamme suffisait à égaler 30 % des Flammes Joss présentes dans le Monde du Vent et de la Pluie!
 
 Alors que l'aura laiteuse enveloppait son corps, le sang cessa de couler de sa blessure. Une fois l'hémorragie stoppée, elle recula avec anxiété. Protégée par cette aura, elle ignora l'énergie originelle déformée et fusionna à nouveau avec le monde!
 
-« Si cette femme peut devenir une âme dans mon Monde du Vent et de la Pluie... » Le cœur de Wang Lin battait la chamade. Dès que la femme disparut, il s'évanouit presque simultanément pour reprendre la chasse!
+« Si cette femme peut devenir une âme dans mon Monde du Vent et de la Pluie... » Le cœur de Wang Lin battait la chamade. Dès que la femme disparut, il disparut presque au même instant pour reprendre la chasse!
 
 Dans le domaine nord-ouest du Système Stellaire Antique se trouvait une planète de culture. C'était là le fief du Clan des Scorpions Démoniaques. Bien qu'il ne fût pas un grand clan, ils étaient célèbres pour leur cruauté!
 

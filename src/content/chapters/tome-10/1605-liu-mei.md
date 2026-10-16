@@ -80,13 +80,13 @@ Un son léger émana des rayons de lumière. Il provenait d'une femme magnifique
 
 Elle s'arrêta en plein vol et observa Wang Lin qui s'éloignait. Ses sourcils se froncèrent et ses yeux se remplirent de confusion.
 
-« Qu'y a-t-il, Sœur Junior Liu? » s'étonna un cultivateur à ses côtés.
+« Qu'y a-t-il, Junior Sister Liu? » s'étonna un cultivateur à ses côtés.
 
 « Rien. Retournez d'abord à la secte. J'ai quelques affaires personnelles à régler », dit doucement la belle femme. Elle ne leur prêta plus attention et redescendit vers le sol.
 
 Le cultivateur surpris s'apprêta à la suivre.
 
-« Frère Aîné, je souhaite être seule. » La voix de la femme, douce mais déterminée, résonna. Le cultivateur s'arrêta, hésita un instant, puis partit avec le reste du groupe, tout aussi étonné.
+« Senior Frère, je souhaite être seule. » La voix de la femme, douce mais déterminée, résonna. Le cultivateur s'arrêta, hésita un instant, puis partit avec le reste du groupe, tout aussi étonné.
 
 Wang Lin s'arrêta et se retourna. Il leva les yeux vers le ciel alors que le magnifique rayon de lumière se rapprochait. La lumière se stabilisa à cent pieds de lui et se mua en une femme sublime vêtue de pourpre.
 

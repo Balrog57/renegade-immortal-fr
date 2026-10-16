@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1929 - Hai Zi
 slug: hai-zi
 ---
-Wang Lin ne tenta pas immédiatement de franchir les autres palais, bien que le moyen le plus rapide d'attirer l'attention des Grands Empereurs fût de passer par le Sentier Empyréen.
+Wang Lin ne tenta pas immédiatement de franchir les autres palais, bien que le moyen le plus rapide d'attirer l'attention des Grands Empyréens fût de passer par l'Épreuve Céleste.
 
 Mais pour l'instant, il avait encore une autre tâche à accomplir. Après avoir réfléchi un instant, alors que la lumière dorée émanant des quatre palais inondait toujours les environs, Wang Lin descendit vers le sol sous les regards des Exaltés Empyréens environnants.
 
@@ -30,7 +30,7 @@ Ce n'est qu'après sa disparition que les Exaltés Empyréens environnants déto
 
 « Ce n'est pas si sûr, je l'ai combattu il y a trente ans. Quatre niveaux devraient être sa limite! »
 
-« Difficile à dire. Bien que trente ans soit une courte période, avec un peu de chance, les Exaltés Empyréens peuvent progresser. Attendons, il reviendra sûrement au Sentier Empyréen une seconde fois. »
+« Difficile à dire. Bien que trente ans soit une courte période, avec un peu de chance, les Exaltés Empyréens peuvent progresser. Attendons, il reviendra sûrement à l'Épreuve Céleste une seconde fois. »
 
 À l'intérieur d'une grotte, près de la Mer Montagneuse, Wang Lin ouvrit soudainement les yeux. Une lueur jaillit de son regard.
 
@@ -38,7 +38,7 @@ Dès qu'il ouvrit les yeux, le dragon marin doré qui le gardait manifesta une j
 
 Wang Lin leva la main droite et tapota la tête du dragon. Il inspecta les restrictions qui l'entouraient; il avait délibérément laissé une restriction temporelle pour pouvoir évaluer le temps de son absence.
 
-« Pareil que pour le temps passé au Sentier Empyréen, rien n'a changé. » Wang Lin se leva et s'avança. Le dragon marin le suivit immédiatement.
+« Pareil que pour le temps passé à l'Épreuve Céleste, rien n'a changé. » Wang Lin se leva et s'avança. Le dragon marin le suivit immédiatement.
 
 Un homme et un dragon apparurent à l'extérieur de la grotte. À cet instant, la lune trônait haut dans le ciel et une douce lumière lunaire baignait la mer en contrebas. Les vagues déferlantes scintillaient comme de l'argent.
 
@@ -46,7 +46,7 @@ Le ressac résonnait aux oreilles de Wang Lin tandis que la brise marine caressa
 
 Contemplant la Mer Montagneuse, Wang Lin réfléchit un instant, puis monta sur son dos. Le dragon marin poussa un rugissement et fonça vers la mer.
 
-Les Exaltés Empyréens ne se situaient qu'en dessous des Grands Empereurs et des quarante-huit Ascendants Empyréens. Ils pouvaient presque aller partout, et quatre-vingt-dix-neuf pour cent des sectes étaient à leurs pieds. Ils étaient au sommet du clan céleste!
+Les Exaltés Empyréens ne se situaient qu'en dessous des Grands Empyréens et des quarante-huit Ascendants Empyréens. Ils pouvaient presque aller partout, et quatre-vingt-dix-neuf pour cent des sectes étaient à leurs pieds. Ils étaient au sommet du clan céleste!
 
 Même ces âmes anciennes pouvaient être combattues lorsqu'elles étaient scellées! Tout comme en ce moment même: Wang Lin se dirigeait vers l'Arbre de la Mer Montagneuse qui était scellé ici. Avant d'acquérir la puissance d'un Exalté Empyréen, une telle entreprise lui aurait été impossible.
 
@@ -86,8 +86,8 @@ L'expression de Wang Lin resta sereine. Au moment où la femme leva son doigt se
 
 L'armure d'âme du Taureau Céleste réapparaissait après plus de cinquante ans!
 
-Dès que l'armure prit forme, l'aura de culture de Wang Lin déferla. Il sauta du dos du dragon marin et fixa l'Exaltée Empyréen Hai Zi, qui fut stupéfaite par cette apparition.
+Dès que l'armure prit forme, l'aura de culture de Wang Lin déferla. Il sauta du dos du dragon marin et fixa l'Exalté Empyréen Hai Zi, qui fut stupéfaite par cette apparition.
 
-« Messager d'Âme! » Les pupilles de l'Exaltée Empyréen Hai Zi se rétractèrent. Elle savait que Wang Lin s'était retenu lors de leur dernier combat, mais elle ne s'attendait pas à ce qu'il soit un Messager d'Âme, dont le nombre est encore plus restreint que celui des Ascendants Empyréens!
+« Messager d'Âme! » Les pupilles de l'Exalté Empyréen Hai Zi se rétractèrent. Elle savait que Wang Lin s'était retenu lors de leur dernier combat, mais elle ne s'attendait pas à ce qu'il soit un Messager d'Âme, dont le nombre est encore plus restreint que celui des Ascendants Empyréens!
 
 « Un Exalté Empyréen et aussi un Messager d'Âme... Cependant, même ainsi, tu ne peux me vaincre en peu de temps. Toutes les armures d'âme ont une limite. Je veux voir combien de temps tu pourras tenir avec elle! » La belle femme saisit l'air d'un geste vif et balaya le ciel de sa main.

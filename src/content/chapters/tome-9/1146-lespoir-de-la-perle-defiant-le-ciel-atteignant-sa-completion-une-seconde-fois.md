@@ -18,17 +18,17 @@ L'homme à ses côtés était pétrifié. Il regarda le Maître de Secte et son 
 
 « Où est passé Lu Di? » Après un long moment, l'homme d'âge moyen ouvrit les yeux. Une trace de tristesse brûlait dans son regard, mais sa voix était d'un calme terrifiant.
 
-Le vieil homme s'inclina et dit respectueusement: « Jeune Maître… le Jeune Maître est allé sur le continent de Mo Luo. » Il était encore sous le choc et n'avait pas retrouvé son calme. Il ne comprenait pas qui, dans la région de rang 5, oserait tuer le Jeune Maître Lu Di au risque d'offenser Lu Yuncong, le Maître de la Secte du Dao Violet!
+Le vieil homme s'inclina et dit respectueusement: « Jeune Maître… le Jeune Maître est allé sur le continent de Mo Luo. » Il était encore sous le choc et n'avait pas retrouvé son calme. Il ne comprenait pas qui, dans la région de rang 5, oserait tuer le Jeune Maître Lu Di au risque d'offenser Lu Yuncong, le Maître de la Secte du Dao Pourpre!
 
-« Le continent de Mo Luo, la Secte Origin… Pourquoi personne ne m'en a parlé? » La voix de l'homme d'âge moyen était calme, mais lorsqu'elle parvint aux oreilles du vieil homme, ce dernier en frémit. Il se souvint soudain de quelque chose et son visage pâlit.
+« Le continent de Mo Luo, la Secte de l'Origine… Pourquoi personne ne m'en a parlé? » La voix de l'homme d'âge moyen était calme, mais lorsqu'elle parvint aux oreilles du vieil homme, ce dernier en frémit. Il se souvint soudain de quelque chose et son visage pâlit.
 
 « Jeune Maître, il… »
 
-« En tant que cultivateur, il était encore en proie à la luxure des beautés et faisait preuve d'arrogance. Il a utilisé son statut de Jeune Maître de la Secte du Dao Violet pour ruiner de nombreuses disciples féminines de diverses sectes. Il a même commis des actes odieux, comme absorber leur énergie Yin originelle… » Sans attendre que le vieil homme finisse, l'homme d'âge moyen secoua la tête et sembla murmurer pour lui-même.
+« En tant que cultivateur, il était encore en proie à la luxure des beautés et faisait preuve d'arrogance. Il a utilisé son statut de Jeune Maître de la Secte du Dao Pourpre pour ruiner de nombreuses disciples féminines de diverses sectes. Il a même commis des actes odieux, comme absorber leur énergie Yin originelle… » Sans attendre que le vieil homme finisse, l'homme d'âge moyen secoua la tête et sembla murmurer pour lui-même.
 
 « Maître de Secte… » Le visage du vieil homme était livide.
 
-« Qui est allé avec lui sur le continent de Mo Luo? Cela aurait dû être Song Wude. Cet enfant a grandi sous sa protection. Peut-être que, pour lui, Song Wude était comme un second père. Il est allé sur le continent de Mo Luo parce qu'il courtise Lu Yanfei de la Secte Origin. Il profitait de la mort de ce vieux sac d'os pour vouloir faire de la Secte Origin son palais intérieur… »
+« Qui est allé avec lui sur le continent de Mo Luo? Cela aurait dû être Song Wude. Cet enfant a grandi sous sa protection. Peut-être que, pour lui, Song Wude était comme un second père. Il est allé sur le continent de Mo Luo parce qu'il courtise Lu Yanfei de la Secte de l'Origine. Il profitait de la mort de ce vieux sac d'os pour vouloir faire de la Secte de l'Origine son palais intérieur… »
 
 Le vieil homme réfléchit silencieusement. D'après ce qu'il savait, tout ce que le Maître de Secte disait était vrai.
 
@@ -38,7 +38,7 @@ L'homme d'âge moyen leva la tête et regarda la brume stellaire devant lui. Apr
 
 « Il n'était pas comme ça auparavant… » Cette silhouette semblait plus sombre encore.
 
-L'expression du vieil homme devint de plus en plus pâle. Après avoir hésité un instant, il serra les dents et dit: « Maître de Secte, avant que le Jeune Maître ne parte, ce vieil homme a entendu Song Wude dire… dire que le Jeune Maître se rendait à la Mer des Nuages Violets pour s'emparer de l'Étendard Yin Céleste que la Secte du Dao Violet y avait laissé. Après avoir pris l'âme originelle de Lu Yanfei, il comptait utiliser toutes les âmes originelles féminines qu'il avait collectées pour nourrir un Céleste Yin. »
+L'expression du vieil homme devint de plus en plus pâle. Après avoir hésité un instant, il serra les dents et dit: « Maître de Secte, avant que le Jeune Maître ne parte, ce vieil homme a entendu Song Wude dire… dire que le Jeune Maître se rendait à la Mer des Nuages Violets pour s'emparer de l'Étendard Yin Céleste que la Secte du Dao Pourpre y avait laissé. Après avoir pris l'âme originelle de Lu Yanfei, il comptait utiliser toutes les âmes originelles féminines qu'il avait collectées pour nourrir un Céleste Yin. »
 
 La silhouette de l'homme d'âge moyen s'arrêta net et le calme dans ses yeux vola en éclats. Une rage monstrueuse se manifesta, mais un sentiment de peur et de panique envahit également son corps.
 
@@ -46,7 +46,7 @@ La silhouette de l'homme d'âge moyen s'arrêta net et le calme dans ses yeux vo
 
 ***
 
-Continent de Mo Luo, Secte Origin.
+Continent de Mo Luo, Secte de l'Origine.
 
 Lu Yanfei regardait silencieusement la demeure ordinaire. Après avoir hésité, elle entra dans la cour. Xu Yun la suivait, très tendue; elle pouvait distinctement entendre les battements rapides de son cœur.
 
@@ -58,7 +58,7 @@ Après un long moment, Lu Yanfei mordit sa lèvre inférieure et demanda douceme
 
 En vérité, il y a fort longtemps dans le Système Stellaire de l'Alliance, une femme avait posé la même question et reçu la même réponse. Après tout, que ce soit le corps original ou l'avatar, les deux étaient Wang Lin.
 
-Lu Yanfei laissa échapper un sourire d'une grande beauté. Elle s'inclina vers la maison et dit doucement: « Maître avait un oncle-maître nommé Lu Zihao. Selon Maître, le Grand Oncle-maître Lu Zihao était obsédé par le Dao. Hormis lors de sa disparition, il n'avait jamais quitté le continent de Mo Luo. Il ne se rendait même jamais à la secte principale et n'avait guère d'amis. Avec le temps, peu de gens au sein de la Secte Origin se souviennent de lui. »
+Lu Yanfei laissa échapper un sourire d'une grande beauté. Elle s'inclina vers la maison et dit doucement: « Maître avait un oncle-maître nommé Lu Zihao. Selon Maître, le Grand Oncle-maître Lu Zihao était obsédé par le Dao. Hormis lors de sa disparition, il n'avait jamais quitté le continent de Mo Luo. Il ne se rendait même jamais à la secte principale et n'avait guère d'amis. Avec le temps, peu de gens au sein de la Secte de l'Origine se souviennent de lui. »
 
 « Même mes trois frères apprentis ne l'ont jamais vu. Je n'ai vu qu'un portrait de lui, que Maître m'a montré. Il me l'a confié… car ce Grand Oncle-maître Lu est un ancêtre de ma famille Lu. Ce portrait était très ancien et en lambeaux. En revenant à l'instant, il a été détruit. »
 
@@ -70,9 +70,9 @@ Le corps de Lu Yanfei trembla, mais elle ne s'arrêta pas. Elle maintint son cal
 
 « Quelle femme intelligente! » Wang Lin détourna le regard. À part leur échange sur la montagne, ils n'avaient eu aucun autre contact. Pourtant, cette femme avait été capable d'une analyse aussi remarquable en se basant uniquement sur le récit de sa disciple, leur conversation passée et le fait qu'il ait tué Song Wude et Lu Di.
 
-Xu Yun ne comprenait pas ses paroles, mais avec l'esprit sagace de Wang Lin, il comprit parfaitement. Lu Yanfei était certaine qu'il était l'homme aux cheveux blancs. Dans son esprit, pour quelqu'un de son niveau de culture, se cacher dans la Secte Origin signifiait soit chercher quelque chose ici, soit fuir des ennemis.
+Xu Yun ne comprenait pas ses paroles, mais avec l'esprit sagace de Wang Lin, il comprit parfaitement. Lu Yanfei était certaine qu'il était l'homme aux cheveux blancs. Dans son esprit, pour quelqu'un de son niveau de culture, se cacher dans la Secte de l'Origine signifiait soit chercher quelque chose ici, soit fuir des ennemis.
 
-Cependant, Lu Yanfei ne voyait rien que Wang Lin puisse convoiter, elle fut donc convaincue qu'il fuyait ses ennemis. Par conséquent, si Wang Lin voulait rester à la Secte Origin, il lui fallait une identité pour ne éveiller aucun soupçon. Ce que Lu Yanfei venait de faire, c'était de lui offrir cette identité. Quant aux ennemis de Wang Lin, elle choisissait évidemment d'ignorer leur existence.
+Cependant, Lu Yanfei ne voyait rien que Wang Lin puisse convoiter, elle fut donc convaincue qu'il fuyait ses ennemis. Par conséquent, si Wang Lin voulait rester à la Secte de l'Origine, il lui fallait une identité pour ne éveiller aucun soupçon. Ce que Lu Yanfei venait de faire, c'était de lui offrir cette identité. Quant aux ennemis de Wang Lin, elle choisissait évidemment d'ignorer leur existence.
 
 Wang Lin avait rencontré d'innombrables personnes au cours de sa vie, mais peu de femmes étaient aussi intelligentes. Différente de l'humeur changeante de Liu Mei, différente de l'arrogance de Papillon Rouge, différente de la douceur de Li Muwan. C'était là de la sagesse, une sagesse inégalée!
 
@@ -90,7 +90,7 @@ Le sac contenait de nombreux objets divers. Outre les armes et pilules éparpill
 
 « Malheureusement, après avoir atteint le stade du Purificateur du Nirvana, on n'utilise plus de sac de rangement. Un espace de stockage personnel est impossible à trouver pour un étranger, même après la mort. Sinon, ce cultivateur du Purificateur du Nirvana m'aurait peut-être laissé de meilleurs trésors et pilules. » Wang Lin secoua la tête en saisissant le drapeau doré. Après l'avoir scanné avec son Sens Divin, son expression devint sombre.
 
-Ce petit drapeau était saturé d'énergie Yin. En déployant son Sens Divin à travers lui, il découvrit immédiatement les âmes Yin de plus de cent femmes. Toutes étaient belles, certaines même d'une beauté incomparable. Cependant, elles semblaient toutes miserables, enfermées dans le sceau sans pouvoir s'échapper. Une âme de serpent résidait à l'intérieur et semblait dévorer ces femmes. Au moment où le Sens Divin de Wang Lin l'effleura, la créature sembla être réveillée de son sommeil et libéra une aura terrifiante. Même les yeux de Wang Lin se contractèrent face à cette aura.
+Ce petit drapeau était saturé d'énergie Yin. En déployant son Sens Divin à travers lui, il découvrit immédiatement les âmes Yin de plus de cent femmes. Toutes étaient belles, certaines même d'une beauté incomparable. Cependant, elles semblaient toutes misérables, enfermées dans le sceau sans pouvoir s'échapper. Une âme de serpent résidait à l'intérieur et semblait dévorer ces femmes. Au moment où le Sens Divin de Wang Lin l'effleura, la créature sembla être réveillée de son sommeil et libéra une aura terrifiante. Même les yeux de Wang Lin se contractèrent face à cette aura.
 
 « C'est… » L'esprit de Wang Lin fut secoué et son Sens Divin recula devant l'attaque de l'âme de la bête. Il fixa le drapeau doré, les pupilles rétractées.
 

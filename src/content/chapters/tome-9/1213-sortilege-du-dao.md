@@ -10,7 +10,7 @@ Le vieil homme aux cheveux blancs n'avait pas maîtrisé l'essence de l'Empreint
 
 Bien qu'il ne pût être comparé à la véritable Empreinte de l'Esprit Guerrier, il en épousait la forme et en contenait 30 % de la puissance. De plus, il avait utilisé sa culture au stade avancé du Briseur du Nirvana pour forcer le déploiement de ce sort, le rendant presque impossible à distinguer de l'original!
 
-L'Empreinte de l'Esprit Guerrier de Wang Lin provenait du Royaume Céleste de la Pluie. Après l'avoir contemplée et comprise maintes fois, il avait enfin pu s'en servir. Lui aussi n'en avait appris que la surface, mais la puissance de l'être ayant laissé cette empreinte dans le Royaume Céleste de la Pluie était capable de faire trembler les cieux. Autrement, cette empreinte n'aurait pas dégagé une telle aura des millénaires plus tard, et n'aurait pas laissé de si fines fissures sur le sol.
+L'Empreinte de l'Esprit Guerrier de Wang Lin provenait du Royaume Céleste de la Pluie. Après l'avoir contemplée et comprise maintes fois, il avait enfin pu s'en servir. Lui aussi n'en avait appris que la surface, mais la puissance de l'être ayant laissé cette empreinte dans le Royaume Céleste de la Pluie était capable de faire trembler les cieux. Autrement, cette empreinte n'aurait pas dégagé une telle aura d'innombrables années plus tard, et n'aurait pas laissé de si fines fissures sur le sol.
 
 Par conséquent, bien que la culture de Wang Lin fût encore insuffisante, son Empreinte de l'Esprit Guerrier intégrait sa puissance du tonnerre ainsi que sa puissance de Dieu Ancien. Cela rendait son empreinte presque indiscernable de la véritable!
 
@@ -34,7 +34,7 @@ Cette paume contenait une immense quantité de sa puissance du tonnerre.
 
 Le vieil homme aux cheveux blancs n'était pas mieux loti. Il recula, chaque pas creusant une empreinte profonde dans le sol. Son visage était livide et du sang s'échappait du coin de sa bouche, mais son expression demeurait d'une férocité extrême. D'un coup de pied impétueux, il s'élança à travers la poussière, visant droit sur Wang Lin.
 
-« Disperse le tatouage du Clan du Tonnerre, je vais te sceller à nouveau! Je ne crois pas que tu auras un troisième tatouage après que j'aurai scellé tes tatouages de feu et de foudre!!! » Le corps du vieil homme fut tel un éclair traversant la poussière. Sa main droite frappa sans pitié le point entre les sourcils de Wang Lin, et la fissure réapparut. Une seconde rune, émettant une puissante lueur noire, s'en échappa.
+« Tatouage du Clan du Tonnerre Dispersé, je vais te sceller à nouveau! Je ne crois pas que tu auras un troisième tatouage après que j'aurai scellé tes tatouages de feu et de foudre!!! » Le corps du vieil homme fut tel un éclair traversant la poussière. Sa main droite frappa sans pitié le point entre les sourcils de Wang Lin, et la fissure réapparut. Une seconde rune, émettant une puissante lueur noire, s'en échappa.
 
 Après avoir utilisé deux sceaux, le vieil homme avait perdu la majeure partie de sa vitalité. Il ressemblait à un mort sortant de sa tombe, exhalant une odeur de décomposition.
 
@@ -56,7 +56,7 @@ Son corps droit et sa colonne vertébrale inflexible semblaient pouvoir soutenir
 
 « Impossible!! » Le choc ressenti par le vieil homme était bien plus grand qu'auparavant. Chaque assaut de Wang Lin surpassait le précédent, dépassant de loin tout ce qu'il aurait pu imaginer!
 
-Le feu bleu surpuissant l'avait déjà stupéfié. Après avoir scellé ce feu avec son sort de scellement céleste, le tatouage de foudre était apparu de manière inattendue. Il pensait que l'Empreinte de l'Esprit Guerrier suffirait à achever Wang Lin, mais il ne s'était pas attendu à ce que celui-ci possède également cette empreinte. Puis, il s'était dit qu'en utilisant à nouveau le scellement céleste pour verrouiller la foudre, Wang Lin n'aurait plus de moyens de riposter. Pourtant, il avait encore mal calculé: un tatouage de bataille, dont il n'avait jamais vu la couleur, venait d'apparaître!
+Le feu bleu surpuissant l'avait déjà stupéfié. Après avoir scellé ce feu avec son sort de scellement céleste, le tatouage de foudre était apparu de manière inattendue. Il pensait que l'Empreinte de l'Esprit Guerrier suffirait à achever Wang Lin, mais il ne s'était pas attendu à ce que celui-ci possède également cette empreinte. Puis, il s'était dit qu'en utilisant à nouveau le scellement céleste pour verrouiller la foudre, Wang Lin n'aurait plus de moyens de riposter. Pourtant, il avait encore mal calculé: un tatouage de bataille, qu'il n'avait jamais vu auparavant, venait d'apparaître!
 
 Il pressentait que même s'il était prêt à sacrifier davantage de vitalité pour sceller ce tatouage de bataille, une autre force surgirait!
 

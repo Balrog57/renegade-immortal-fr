@@ -20,7 +20,7 @@ Le sentiment était radicalement distinct. Certes, ils étaient la même personn
 
 Elle n'était pas la seule à être terrifiée. Chaque cultivateur croisant le regard de Wang Lin sentait son esprit vaciller et reculait instinctivement. Ils ressentaient tous cette sensation terrifiante que leur âme originelle allait être arrachée de leur corps.
 
-Quel que soit leur niveau de culture, qu'il s'agisse des plus jeunes disciples, des anciens du secteur ou même de ces vieux monstres, tout le monde ressentait la même chose: l'imminence de la séparation entre leur âme originelle et leur enveloppe charnelle.
+Quel que soit leur niveau de culture, qu'il s'agisse des plus jeunes disciples, des anciens de la secte ou même de ces vieux monstres, tout le monde ressentait la même chose: l'imminence de la séparation entre leur âme originelle et leur enveloppe charnelle.
 
 Tout cela était dû au regard terrifiant de Wang Lin!
 
@@ -38,15 +38,15 @@ Dans le ciel, l'ombre gigantesque de Wang Lin retira son regard et ferma les yeu
 
 Dès que Wang Lin ferma les yeux, il leva le pied et fit un pas avec calme. Lorsque son pied toucha la marche, un grondement de tonnerre résonna. L'illusion des escaliers trembla comme si elle ne pouvait supporter son poids.
 
-C'était comme si le pas de Wang Lin émergeait directement du vide lointain. Oubliez le Pavillon des Écritures de l'Âme, il semblait que même le Grand Secte de l'Âme ou le Continent entier du Taureau Vert ne pourraient supporter un tel pas!
+C'était comme si le pas de Wang Lin émergeait directement du vide lointain. Oubliez le Pavillon des Écritures de l'Âme, il semblait que même la Secte de la Grande Âme ou le Continent entier du Taureau Vert ne pourraient supporter un tel pas!
 
 Alors que le fracas tonitruant résonnait, Wang Lin fit un autre pas. Il ne s'arrêtait pas, mais ne se précipitait pas non plus. D'un calme olympien, il gravissait les marches comme s'il était chez lui.
 
-La troisième marche, la quatrième, la cinquième... Tous les membres du Grand Secte de l'Âme observaient en silence alors qu'il franchissait les 15 premières marches!
+La troisième marche, la quatrième, la cinquième... Tous les membres de la Secte de la Grande Âme observaient en silence alors qu'il franchissait les 15 premières marches!
 
 Il avait gravi ces 15 marches sans la moindre pause, comme si les restrictions imposées par l'escalier n'avaient aucune importance pour lui.
 
-Cette scène fit pâlir les disciples du Grand Secte de l'Âme. Elle stupéfia tous les vieux monstres en culture fermée. L'Ancien Taureau Vert eut un souffle coupé!
+Cette scène fit pâlir les disciples de la Secte de la Grande Âme. Elle stupéfia tous les vieux monstres en culture fermée. L'Ancien Taureau Vert eut un souffle coupé!
 
 Le sens divin de Yan Lu, logé dans la disciple, frémit et elle faillit perdre le contrôle. Elle serra les poings si fort que ses ongles s'enfoncèrent dans sa chair, faisant perler le sang.
 
@@ -58,7 +58,7 @@ Une pression céleste jaillit de son regard et enveloppa la terre en contrebas. 
 
 À l'instant où ses paroles retentirent, le sens divin de Yan Lu qui occupait la disciple frémit, puis se dissipa lentement. La disciple recula de quelques pas, les yeux embués de confusion.
 
-À cet instant, tout le Grand Secte de l'Âme fut plongé dans un silence de mort... Puis, bientôt, un immense tumulte éclata dans tout le secteur.
+À cet instant, tout la Secte de la Grande Âme fut plongé dans un silence de mort... Puis, bientôt, un immense tumulte éclata dans tout le secteur.
 
 « Il... il a réussi!! »
 
@@ -82,7 +82,7 @@ Le craquement des pas résonna dans le Pavillon des Écritures de l'Âme. Wang L
 
 Les pupilles de Yan Lu se rétractèrent lorsqu'elle vit le pied droit de Wang Lin se poser sur l'escalier. De sa position, elle ne pouvait pas voir son visage, seulement ce pied. Lorsque celui-ci toucha la marche, Yan Lu eut l'impression d'être face au monde entier.
 
-« Êtes-vous sûre de vouloir rompre ce pari? » Wang Lin descendait lentement, sa voix empreinte d'une majesté absolue. Ses paroles semblaient outrepasser les restrictions du lieu et transcender les lois du Continent Astral Immortel pour s'abattre sur le Grand Secte de l'Âme.
+« Êtes-vous sûre de vouloir rompre ce pari? » Wang Lin descendait lentement, sa voix empreinte d'une majesté absolue. Ses paroles semblaient outrepasser les restrictions du lieu et transcender les lois du Continent Astral Immortel pour s'abattre sur la Secte de la Grande Âme.
 
 Au fur et à mesure qu'il descendait, ses jambes et son corps apparurent progressivement sous ses yeux.
 
@@ -114,4 +114,4 @@ Ce n'est que lorsque Wang Lin disparut du champ de vision de Yan Lu que la sensa
 
 Wang Lin retourna lentement au huitième étage. Cet endroit était couvert de poussière, comme si personne n'y avait mis les pieds depuis des éternités. La pièce n'était pas vaste; elle abritait neuf corps d'âmes de sept pouces qui émettaient une lueur douce.
 
-Ces neuf corps contenaient neuf sorts de Dao extrêmement puissants du Grand Secte de l'Âme. Chacun d'eux possédait le pouvoir de détruire le monde!
+Ces neuf corps contenaient neuf sorts de Dao extrêmement puissants de la Secte de la Grande Âme. Chacun d'eux possédait le pouvoir de détruire le monde!

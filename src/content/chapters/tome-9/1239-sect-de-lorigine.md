@@ -100,7 +100,7 @@ Le corps de Lu Yanfei trembla et son regard devint glacial lorsqu'elle se tourna
 
 Lu Yingjie sourit et dit d'un ton suave: « Compagnon cultivateur Lu, ne m'en voulez pas. Je n'ai fait que répéter ce que j'ai entendu concernant les fours de culture, je ne faisais que taquiner. Cependant, mes intentions sont bonnes. Si la Secte de l'Origine devait disparaître, Lady Lu aurait au moins un endroit convenable où se réfugier. »
 
-« Oublie la dissolution de la Secte de l'Origine! Même s'il venait à disparaître, ma Secte du Dao Pourpre les accueillerait tous! » Ces paroles glaciales vinrent d'une autre direction alors qu'un homme vêtu de violet s'avançait. Il lança un regard froid à Lu Yingjie avant de se tourner vers Lu Yanfei et de joindre poliment les mains. « Salutations, Compagnon cultivateur Lu. »
+« Oublie la dissolution de la Secte de l'Origine! Même s'il venait à disparaître, ma Secte du Dao Violet les accueillerait tous! » Ces paroles glaciales vinrent d'une autre direction alors qu'un homme vêtu de violet s'avançait. Il lança un regard froid à Lu Yingjie avant de se tourner vers Lu Yanfei et de joindre poliment les mains. « Salutations, Compagnon cultivateur Lu. »
 
 Lu Yanfei fut surprise.
 

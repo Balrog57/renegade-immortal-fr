@@ -20,7 +20,7 @@ L'éclair rouge descendit avec un élan terrifiant, provoquant des ondulations d
 
 En un instant, l'éclair fulminant s'effondra sous la pression de Wang Lin et se transforma en d'innombrables arcs électriques qui se dispersèrent autour de lui.
 
-Cette scène fit haleter les deux anciens en pourpre. Leurs yeux étaient empreints de choc et d'incrédulité. À cet instant, les trois jeunes arrivèrent et virent Wang Lin écraser l'éclair de la rétribution divine. Leurs scalpings picotèrent et ils furent presque terrassés par la peur.
+Cette scène fit haleter les deux anciens en pourpre. Leurs yeux étaient empreints de choc et d'incrédulité. À cet instant, les trois jeunes arrivèrent et virent Wang Lin écraser l'éclair de la rétribution divine. Leur cuir chevelu picota et ils furent presque terrassés par la peur.
 
 L'un d'eux se mit à trembler, la terreur atteignant son apogée dans ses yeux.
 

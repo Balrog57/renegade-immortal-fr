@@ -52,7 +52,7 @@ Cependant, la ligne était faite d'un matériau inconnu d'une robustesse extrêm
 
 Tout cela se produisit en un éclair, avec une rapidité dépassant l'entendement!
 
-À cet instant, le dragon rouge sembla comprendre que toute lutte était vaine. Il poussa un cri strident et chargea le vieil homme. Avant même qu'il ne soit à portée, une bourrasque de vent s'engouffra dans la zone.
+À cet instant, le dragon rouge sembla comprendre que toute lutte était vaine. Il poussa un cri strident et chargea le vieil homme. Avant même qu'il ne soit à portée, une bourrasque de vent à l'odeur de poisson s'engouffra dans la zone.
 
 Alors que le dragon approchait, une aura indescriptible éclata soudainement de sa créature. Elle était d'une puissance phénoménale!
 

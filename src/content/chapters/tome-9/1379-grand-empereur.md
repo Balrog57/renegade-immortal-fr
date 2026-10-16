@@ -50,27 +50,27 @@ Tout cela se produisit en un instant. En un clin d'œil, le doigt chargé de 40 
 
 Lorsqu'il se matérialisa à nouveau, une scène extrêmement étrange se déroulait devant lui!
 
-Il y avait un autre ciel au-dessus du ciel et une autre terre sous la terre. Le Sort Briseur de Ciel créait un autre monde servant de prison. Il pouvait également fusionner avec l'ennemi; briser la peinture revenait donc à briser le monde lui-même pour les anéantir!
+Il y avait un autre ciel au-dessus du ciel et une autre terre sous la terre. Le Déchirure du Ciel créait un autre monde servant de prison. Il pouvait également fusionner avec l'ennemi; briser la peinture revenait donc à briser le monde lui-même pour les anéantir!
 
-Wang Lin était désormais encerclé par le monde formé par le Sort Briseur de Ciel et ne pouvait plus en sortir!
+Wang Lin était désormais encerclé par le monde formé par le Déchirure du Ciel et ne pouvait plus en sortir!
 
 L'expression de Maître Simo devint féroce. Ses mains formèrent un sceau et il ouvrit brusquement les bras, avant de les refermer aussitôt en rugissant: « Brisez les cieux! »
 
 À ce cri, le monde dans lequel se trouvait Wang Lin trembla et la peinture céleste commença à se déchirer. La silhouette de Wang Lin à l'intérieur du tableau se déforma davantage encore.
 
-À cet instant précis, tous les cultivateurs sur la planète de culture furent ébranlés. Le vieil homme du Clan Feu-Goupillon et ses compagnons observaient la bataille depuis longtemps grâce à leur Sens Divin. En voyant la scène se dérouler, la peur envahit son regard et une expression complexe marqua son visage.
+À cet instant précis, tous les cultivateurs sur la planète de culture furent ébranlés. Le vieil homme du Clan des Moineaux de Feu et ses compagnons observaient la bataille depuis longtemps grâce à leur Sens Divin. En voyant la scène se dérouler, la peur envahit son regard et une expression complexe marqua son visage.
 
-« Cet homme va mourir sans aucun doute! Le Sort Briseur de Ciel est véritablement digne de son nom! Maître Simo... Maître Simo... Je ne m'attendais pas à ce qu'il vienne. L'identité de la personne qui m'a échangé les pilules est donc évidente! »
+« Cet homme va mourir sans aucun doute! Le Déchirure du Ciel est véritablement digne de son nom! Maître Simo... Maître Simo... Je ne m'attendais pas à ce qu'il vienne. L'identité de la personne qui m'a échangé les pilules est donc évidente! »
 
-« Malheureusement, j'ignore d'où provient le sang contenu dans ces pilules de l'âme! » Le vieil homme du Clan Feu-Goupillon secoua la tête. Il avait déjà conclu que Wang Lin était condamné.
+« Malheureusement, j'ignore d'où provient le sang contenu dans ces pilules de l'âme! » Le vieil homme du Clan des Moineaux de Feu secoua la tête. Il avait déjà conclu que Wang Lin était condamné.
 
 Dans la terre sainte du Clan du Dragon Blindé, le jeune maître avait également déployé son Sens Divin pour observer et finit par se détendre un peu.
 
-« Cet homme est très puissant, mais hélas, il ne peut échapper au sort de Maître Simo. Le Sort Briseur de Ciel est prodigieux, capable de créer son propre monde pour l'anéantir! »
+« Cet homme est très puissant, mais hélas, il ne peut échapper au sort de Maître Simo. Le Déchirure du Ciel est prodigieux, capable de créer son propre monde pour l'anéantir! »
 
 Le Patriarche du Clan du Dragon Blindé détourna également son regard du ciel et se calma légèrement.
 
-« Il ignore ses propres limites. Maître Simo est un cultivateur du troisième niveau; même si ce n'est que son avatar, il reste un être avec lequel on ne peut rivaliser. Bien qu'il ait tué l'Ancien du Clan Tonnerre Dispersé, il est impuissant face à Maître Simo! »
+« Il ignore ses propres limites. Maître Simo est un cultivateur du troisième niveau; même si ce n'est que son avatar, il reste un être avec lequel on ne peut rivaliser. Bien qu'il ait tué l'Ancien du Clan du Tonnerre Dispersé, il est impuissant face à Maître Simo! »
 
 « Cependant, le simple fait qu'il puisse blesser Maître Simo prouve qu'il n'est pas un être ordinaire. Heureusement, il n'a aucune chance de survie, sinon, s'il venait chercher les ennuis, il serait difficile de s'en défaire. »
 
@@ -86,13 +86,13 @@ La tempête d'énergie qui l'entourait dégageait une aura destructrice et propu
 
 Les 40 millions de rayons commencèrent à marteler la peinture, provoquant des grondements incessants à travers le monde.
 
-« Brisez-vous! » La voix de Wang Lin était rauque alors que la douleur l'assaillait par vagues. Il cracha du sang et son expression devint féroce. Il agita sa main droite et les rayons d'énergie d'épée devinrent encore plus violents. Dans un fracas de tonnerre, le monde formé par le Sort Briseur de Ciel vola en éclats!
+« Brisez-vous! » La voix de Wang Lin était rauque alors que la douleur l'assaillait par vagues. Il cracha du sang et son expression devint féroce. Il agita sa main droite et les rayons d'énergie d'épée devinrent encore plus violents. Dans un fracas de tonnerre, le monde formé par le Déchirure du Ciel vola en éclats!
 
 Le monde s'effondra et se transforma en une onde de choc qui balaya toute la planète!
 
 Wang Lin s'était libéré!
 
-Au moment où il brisa ses chaînes, le vieil homme du Clan Feu-Goupillon ouvrit les yeux avec incrédulité et prit une inspiration saccadée.
+Au moment où il brisa ses chaînes, le vieil homme du Clan des Moineaux de Feu ouvrit les yeux avec incrédulité et prit une inspiration saccadée.
 
 Non seulement lui, mais même le jeune maître du Clan du Dragon Blindé était terrifié. Il recula inconsciemment en s'exclamant: « Ceci... ceci est... »
 

@@ -68,7 +68,7 @@ Wang Lin savait que même s'il brisait toutes ses étoiles restantes, il ne pour
 
 « Père, Mère, s'il y a une autre vie, Tie Zhu ne cultivera pas! Je passerai un siècle à sourire avec vous deux!
 « Situ, toi et moi ne pourrons plus jamais nous revoir.
-« Frère Aîné Qing Shui, ton frère cadet n'a pas pu te sauver.
+« Senior frère Qing Shui, ton Junior frère n'a pas pu te sauver.
 « Wan Er, je viens pour t'accompagner!
 « Mu Bingmei, notre rancune est terminée!
 « Wang Ping, notre famille peut enfin se réunir...

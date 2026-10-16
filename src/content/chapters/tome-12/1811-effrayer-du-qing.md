@@ -42,9 +42,9 @@ Lorsque l'Oiseau Vermillon poussa ce cri, une puissante vague de feu terrestre j
 
 Wang Lin leva la main droite et l'abattit violemment dans le vide devant lui!
 
-Ce mouvement contenait son essence de feu, dont la puissance avait décuplé. La force de cette essence était désormais égale à la pleine puissance de toutes les essences de Wang Lin dans le monde de la grotte!
+Ce mouvement contenait son essence de feu, dont la puissance avait été multipliée plusieurs fois. La force de cette essence était désormais égale à la pleine puissance de toutes les essences de Wang Lin dans le monde de la grotte!
 
-Une seule essence valait désormais sept fois ce qu'elle était auparavant!
+Une seule essence équivalait désormais aux sept précédentes!
 
 Cette croissance fulgurante de son essence de feu était ce qui enthousiasmait tant Wang Lin tout au long de son parcours!
 
@@ -104,7 +104,7 @@ Dès l'apparition de cette empreinte, le monde changea de couleur et elle fondit
 
 En voyant cette paume, l'expression de Du Qing se décomposa!
 
-« La grande empreinte de la Secte Mondiale, l'Empreinte de l'Esprit Guerrier!! Vous êtes un membre de la Secte Mondial du Continent des Nuages Spirituels! »
+« La grande empreinte de la Secte Mondiale, l'Empreinte de l'Esprit Guerrier!! Vous êtes un membre de la Secte Mondiale du Continent des Nuages Spirituels! »
 
 À ces mots, le cœur de Wang Lin manqua un battement. Tandis que l'Empreinte de l'Esprit Guerrier descendait, il forma un autre sceau et pointa à nouveau vers les cieux.
 
@@ -112,12 +112,12 @@ Une lumière aux sept couleurs se rassembla instantanément devant lui, envelopp
 
 À l'apparition de la lance, les pupilles de Du Qing se contractèrent, remplies d'horreur. Il cessa sa charge et recula précipitamment de plusieurs pas.
 
-« Le sort aux Sept Couleurs de la Secte Dong Lin, vous... vous êtes... Êtes-vous un membre de la Secte Mondial ou un disciple de la Secte Dong Lin?! »
+« Le sort aux Sept Couleurs de la Secte Dong Lin, vous... vous êtes... Êtes-vous un membre de la Secte Mondiale ou un disciple de la Secte Dong Lin?! »
 
 « Qu'en pensez-vous... » Après avoir utilisé deux sorts différents, Wang Lin leva la main droite et des millions de restrictions s'envolèrent vers le ciel. Le monde changea de teinte alors qu'un immense parapluie antique apparut soudainement sous les yeux de Du Qing.
 
 Le corps de Du Qing trembla et il afficha un regard d'incrédulité totale. Il recula inconsciemment, fixant Wang Lin avec une peur extrême.
 
-« La secte la plus puissante des 72 continents, personnellement désignée par l'Empereur Céleste, la Secte des Trois Dao... Le sort non transmis de Song Yun Dao... Le Parapluie Brûlant le Royaume... » Le visage de Du Qing devint livide et son cuir chevelu en eut des frissons. Il ne pouvait imaginer que Wang Lin ait appris ces techniques en secret. Ces sorts semblaient d'une authenticité absolue, et ce n'étaient pas des choses que l'on pouvait apprendre clandestinement!
+« La secte la plus puissante des 72 continents, personnellement désignée par l'Empereur Céleste, la Secte des Trois Dao... Le sort non transmis de Song Yun Dao... L'Ombrelle Brûlante du Royaume... » Le visage de Du Qing devint livide et son cuir chevelu en eut des frissons. Il ne pouvait imaginer que Wang Lin ait appris ces techniques en secret. Ces sorts semblaient d'une authenticité absolue, et ce n'étaient pas des choses que l'on pouvait apprendre clandestinement!
 
 « Qui diable êtes-vous?! »

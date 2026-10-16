@@ -30,9 +30,9 @@ Un moment plus tard, Wang Lin réapparut là où il avait disparu. Ses yeux trah
 
 Wang Lin murmura pour lui-même en levant les yeux vers le ciel. Son regard semblait percer la voûte céleste pour atteindre les confins du Clan de la Soie Bleue. Après un long moment, il retira son attention du ciel.
 
-Le sort d'Arrêt l'avait accompagné durant la majeure partie de sa vie, et les six sorts de Bai Fan l'avaient sauvé à plusieurs reprises. En plus de ses deux sorts personnels, il possédait également le Sceau d'Inversion Céleste du Maître Dao Bleu Rêve ainsi que le Bouclier de Lumière et d'Ombre.
+Le sort d'Arrêt l'avait accompagné durant la majeure partie de sa vie, et les six sorts de Bai Fan l'avaient sauvé à plusieurs reprises. En plus de ses deux sorts personnels, il possédait également le Sceau d'Inversion Céleste du Maître du Dao Rêve Bleu ainsi que le Bouclier de Lumière et d'Ombre.
 
-« Avec l'aide du Maître Dao Bleu Rêve, "Appeler le Vent" et "Invoquer la Pluie" ont été fusionnés en un monde propre capable d'attaquer et de défendre... Mais ce n'est là que la fusion de deux sorts... Si je pouvais y fusionner l'Arsenal Magique, sa puissance... » Les yeux de Wang Lin s'illuminèrent et son cœur se mit à battre la chamade.
+« Avec l'aide du Maître du Dao Rêve Bleu, “Appeler le Vent” et “Invoquer la Pluie” ont été fusionnés en un monde propre capable d'attaquer et de défendre... Mais ce n'est là que la fusion de deux sorts... Si je pouvais y fusionner l'Arsenal Magique, sa puissance... » Les yeux de Wang Lin s'illuminèrent et son cœur se mit à battre la chamade.
 
 Il leva la main droite et pointa le ciel. Ses yeux libérèrent une lumière étrange, et le vortex formé par la fusion d'Appeler le Vent et Invoquer la Pluie apparut.
 
@@ -40,11 +40,11 @@ Cette sphère tourbillonnante n'était pas grande, mais si un cultivateur l'avai
 
 Une fois activée, elle deviendrait un monde en soi!
 
-Le Maître Dao Bleu Rêve avait aidé Wang Lin à créer cela. C'était parfait, sans la moindre faille, et porteur d'une puissance immense!
+Le Maître du Dao Rêve Bleu avait aidé Wang Lin à créer cela. C'était parfait, sans la moindre faille, et porteur d'une puissance immense!
 
 « Arsenal Magique! » Wang Lin ouvrit la bouche et cracha le Sceau de Scellement Céleste. Un rugissement tonitruant résonna tandis que Wang Lin agitait ses manches. Dans un éclat de lumière, d'innombrables âmes de combat apparurent.
 
-Des vagues de hurlements lugubres résonnèrent dans le ciel. Ces âmes guerrières dégageaient toutes une aura féroce. Beaucoup appartenaient au Système Stellaire Antique. Outre les centaines de cultivateurs à l'extérieur de la Formation de Scellement, il y avait un grand nombre de membres du Clan Lunaire et tous les autres que Wang Lin avait dévorés en chemin!
+Des vagues de hurlements lugubres résonnèrent dans le ciel. Ces âmes guerrières dégageaient toutes une aura féroce. Beaucoup appartenaient au Système Stellaire Antique. Outre les centaines de cultivateurs à l'extérieur de la Formation de Scellement, il y avait un grand nombre de membres du Clan de la Lune et tous les autres que Wang Lin avait dévorés en chemin!
 
 Les cultivateurs du Système Stellaire Antique portaient tous une marque clignotant entre leurs sourcils. Qu'ils apparaissent ainsi sous forme d'âmes de combat offrait une scène terrifiante à quiconque la contemplait!
 
@@ -82,7 +82,7 @@ S'il abandonnait maintenant, ce serait un gâchis. Wang Lin fixa la sphère vort
 
 Simultanément, une lumière spectrale enveloppa le corps de Wang Lin. D'une seule pensée, cette lumière jaillit et se propagea furieusement autour de lui. En un clin d'œil, elle s'était étendue sur 10 000 pieds!
 
-Tout ce qui se trouvait dans ce rayon de 10 000 pieds semblait coupé du monde extérieur, comme s'il s'agissait d'une autre dimension! C'était précisément le cas: "Appeler le Vent" avait formé le ciel et "Invoquer la Pluie" avait formé la terre pour créer un monde propre!
+Tout ce qui se trouvait dans ce rayon de 10 000 pieds semblait coupé du monde extérieur, comme s'il s'agissait d'une autre dimension! C'était précisément le cas: « Appeler le Vent » avait formé le ciel et « Invoquer la Pluie » avait formé la terre pour créer un monde propre!
 
 Il n'y avait aucune énergie originelle dans cette zone de 10 000 pieds, seulement la volonté de Wang Lin! Dans cet espace, il était le seigneur de ce monde!
 
@@ -96,7 +96,7 @@ Ce Sceau de Scellement Céleste, composé d'un fragment du Royaume Céleste du T
 
 Cela choqua profondément Wang Lin! Il sentait clairement que la force de rejet causant l'effondrement du sceau n'était pas extrêmement puissante, mais qu'il existait une sorte de limite. Cette limite empêchait le Sceau de Scellement Céleste d'exister ici, et encore moins de fusionner!
 
-« Le monde de "Appeler le Vent" et "Invoquer la Pluie" contient ma volonté, tout comme le Sceau de Scellement Céleste contient la mienne, mais ils ne peuvent pas fusionner! Je ne peux pas le croire! » Le regard de Wang Lin était déterminé; il n'hésita pas et fit rétrécir le monde!
+« Le monde de “Appeler le Vent” et “Invoquer la Pluie” contient ma volonté, tout comme le Sceau de Scellement Céleste contient la mienne, mais ils ne peuvent pas fusionner! Je ne peux pas le croire! » Le regard de Wang Lin était déterminé; il n'hésita pas et fit rétrécir le monde!
 
 Des grondements tonitruants résonnèrent rapidement. Tandis que le monde se contractait, de nouvelles fissures apparurent sur le Sceau de Scellement Céleste jusqu'à ce qu'il vole en éclats.
 

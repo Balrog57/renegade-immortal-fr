@@ -28,7 +28,7 @@ La dernière à partir fut Li Qianmei. Elle sourit à Wang Lin sans dire grand-c
 
 Ses paroles étaient douces, mais la détermination qui les soustendait révélait sa véritable nature. Li Qianmei avait fait un choix, et elle ne le regretterait jamais!
 
-De l'autre côté de la porte, seuls Wang Lin et Xuan Luo restèrent.
+De ce côté de la porte, seuls Wang Lin et Xuan Luo restèrent.
 
 Xuan Luo regarda Wang Lin et dit d'une voix lente: « Ils sont tous passés de l'autre côté. Ce vieux va activer ses sorts pour résister aux lois du Continent Astral Immortel. Quand comptes-tu entrer? »
 
@@ -42,13 +42,13 @@ Il y avait quelques individus que Wang Lin n'avait pas encore amenés pour ne pa
 
 Wang Lin salua Xuan Luo d'un geste respectueux, puis fit un pas en avant. Sa silhouette se déforma et disparut. Lorsqu'il réapparut, il se trouvait à la lisière de la formation séparant les Royaumes Intérieur et Extérieur.
 
-Cette nouvelle formation était une création personnelle de Wang Lin. Familier avec ses mécanismes, il n'hésita pas à la franchir. Il ne lui fallut qu'une demi-encens pour pénétrer dans le Système Stellaire Antique!
+Cette nouvelle formation était une création personnelle de Wang Lin. Familier avec ses mécanismes, il n'hésita pas à la franchir. Il ne lui fallut qu'un demi-bâton d'encens pour pénétrer dans le Système Stellaire Antique!
 
 « Les cinq Maîtres du Système Stellaire Antique... Le Souverain a été scellé par moi et Rêve Bleu s'est déplacé vers le Royaume Intérieur. Il ne reste que Miao Yin, Dieu du Vide et Neuf Cieux. Si je les laisse tranquilles, ces trois-là deviendront un problème. Puisqu'ils sont affaiblis, je vais les traquer un par un pour les envoyer à la réincarnation! » Le regard de Wang Lin était glacial alors qu'il pénétrait dans le Système Stellaire Antique. Son Sens Divin se déploya soudainement dans toutes les directions.
 
-Depuis les événements au cœur du monde des grottes, il avait atteint le sommet du stade Vide Spirituel et son héritage de l'Dao Antique était presque complet. À cet instant, Wang Lin possédait la puissance nécessaire pour affronter des cultivateurs de stade Vide Arcanique tardif!
+Depuis les événements au cœur du monde des grottes, il avait atteint le sommet du stade Vide Spirituel et son héritage du Dao Antique était presque complet. À cet instant, Wang Lin possédait la puissance nécessaire pour affronter des cultivateurs de stade Vide Arcanique tardif!
 
-Avec un tel niveau de culture, ses sept essences et ses sorts de l'Dao Antique, ces trois maîtres blessés du Système Stellaire Antique n'étaient plus à sa mesure!
+Avec un tel niveau de culture, ses sept essences et ses sorts du Dao Antique, ces trois maîtres blessés du Système Stellaire Antique n'étaient plus à sa mesure!
 
 Alors que le puissant Sens Divin de Wang Lin balayait les environs, ses yeux brillèrent. Il fit un pas en avant et disparut.
 

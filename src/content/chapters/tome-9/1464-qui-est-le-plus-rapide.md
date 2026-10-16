@@ -110,7 +110,7 @@ Wang Lin ricana alors que sa plateforme cessait soudainement sa montée. Au lieu
 
 Le brouillard gronda et une mer de feu surgit derrière Wang Lin. Un immense parapluie apparut au cœur de ce brasier.
 
-« Parapluie Brûlant du Royaume! » rugit Wang Lin alors que l'objet gigantesque se matérialisait dans la brume!
+« Ombrelle Brûlante du Royaume! » rugit Wang Lin alors que l'objet gigantesque se matérialisait dans la brume!
 
 « Parapluie, déploie-toi pour détruire le monde! » Wang Lin cracha un jet de sang qui s'enflamma aussitôt en volant vers l'artefact. Le parapluie commença à s'ouvrir; il s'était déployé à 20 %!
 

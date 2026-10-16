@@ -62,7 +62,7 @@ Cela lui donnait un air très mignon. En l'observant, Wang Lin songea à l'appar
 
 « Petit Wang Lin, je t'ai sauvé! Tu te souviens? Tu te souviens? Hmph, hmph, si tu es ingrat, je vais te frapper! » Sur le côté, Wa Wa avait les yeux écarquillés et semblait furieuse.
 
-Wang Lin sourit amèrement. Devant lui, l'expression de Gu Ya trahissait son embarras. Il savait qu'aucun Empyréen Ascendant ne se laisserait recruter avec un tel ton, surtout pas quelqu'un comme Wang Lin. Lequel de ces Grands Empyréens n'avait pas proposé d'immenses avantages?
+Wang Lin sourit amèrement. Devant lui, l'expression de Gu Ya trahissait son embarras. Il savait qu'aucun Ascendant Empyréen ne se laisserait recruter avec un tel ton, surtout pas quelqu'un comme Wang Lin. Lequel de ces Grands Empyréens n'avait pas proposé d'immenses avantages?
 
 « Cela... Senior Wang... » Gu Ya s'apprêtait à parler pour détendre l'atmosphère.
 
@@ -130,7 +130,7 @@ Wang Lin regarda les deux fillettes jouer au loin, tapotant la tête de Cupidit�
 
 « Bien! » Le visage de Gu Ya rayonna d'excitation et il prit une profonde inspiration. À ses yeux, c'était une issue magnifique. Même s'il n'était qu'un disciple de nom, c'était bien mieux que de ne rien obtenir du tout.
 
-Après tout, un être qui était le premier des Empyeans Ascendants, le numéro un sous les Grands Empyréens, serait difficile à retenir en permanence.
+Après tout, un être qui était le premier des Ascendants Empyréens, le numéro un sous les Grands Empyréens, serait difficile à retenir en permanence.
 
 « Senior, retournons à la Secte Yang Pourpre. Vous pourrez partir quand bon vous semble. Vous pouvez aller partout dans la Secte Yang Pourpre, y compris dans le lieu de culture fermée que le Grand Empyréen Gémeaux utilisait avant son accident! » Gu Ya joignit les mains avec un immense respect.
 

@@ -1,6 +1,6 @@
 ---
 n: 1724
-title: "Le Corps Originel du Voyant!"
+title: "Le Corps Originel de l'Omniscient!"
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1724 - The Omniscient’s Original Body!"
@@ -10,7 +10,7 @@ Le corps originel de Wang Lin traversait les étoiles, se déplaçant à une vit
 
 La main droite de Wang Lin lacérait l'espace devant lui à chaque foulée. Un grondement tonitruant résonnait tandis que le vide se fracturait sous ses pas.
 
-Il s'engouffrait instantanément dans la faille et, lorsqu'il réapparaissait, il avait déjà quitté la Rivière des Appels!
+Il s'engouffrait instantanément dans la faille et, lorsqu'il réapparaissait, il avait déjà quitté la Rivière Invoquée!
 
 Grâce à cette méthode prodigieuse, la vitesse de Wang Lin atteignait les limites extrêmes de ce que son corps pouvait supporter!
 
@@ -18,7 +18,7 @@ Dans l'intégralité du monde caverneux, seul Wang Lin osait un tel mouvement. L
 
 Même les démons anciens et les diables antiques auraient eu du mal à résister à une telle tempête dévastatrice. Un Dieu Ancien pourrait survivre quelques fois, mais il ne tiendrait pas longtemps.
 
-Seul un Corps Dao Antique, des milliers de fois plus puissant qu'un corps de Dieu Ancien, pouvait accomplir cela! Seul Wang Lin, détenteur de la lignée du Dao Antique, pouvait pénétrer calmement dans ces failles spatiales et avancer d'une manière aussi incroyable sans se soucier des turbulences internes!
+Seul un Corps Dao Antique, d'innombrables fois plus puissant qu'un corps de Dieu Ancien, pouvait accomplir cela! Seul Wang Lin, détenteur de la lignée du Dao Antique, pouvait pénétrer calmement dans ces failles spatiales et avancer d'une manière aussi incroyable sans se soucier des turbulences internes!
 
 La tempête destructrice s'abattait sur le corps de Wang Lin, mais ne lui infligeait aucun dommage. Au contraire, la tempête elle-même semblait pousser un gémissement de défaite avant de s'effondrer.
 
@@ -28,15 +28,15 @@ Peu après, Wang Lin ouvrit soudainement les yeux et s'élança vers l'horizon.
 
 Il ne s'était écoulé que quelques respirations depuis qu'il s'était éveillé de son Dao du Rêve.
 
-Alors que Wang Lin traversait les failles, dans la Rivière des Appels, toutes les âmes des avatars du Voyant arrivèrent à destination. Dès que la dernière âme pénétra dans l'avatar de Wang Lin, celui-ci ouvrit brusquement les yeux.
+Alors que Wang Lin traversait les failles, dans la Rivière Invoquée, toutes les âmes des avatars de l'Omniscient arrivèrent à destination. Dès que la dernière âme pénétra dans l'avatar de Wang Lin, celui-ci ouvrit brusquement les yeux.
 
-Son regard était empreint de lutte et de douleur. L'âme du Voyant était en train de prendre le contrôle de son esprit et de son corps. En raison du sortilège d'Intégration de la Réincarnation, il était impossible pour quiconque d'interférer avec cette possession.
+Son regard était empreint de lutte et de douleur. L'âme de l'Omniscient était en train de prendre le contrôle de son esprit et de son corps. En raison du sortilège d'Intégration de la Réincarnation, il était impossible pour quiconque d'interférer avec cette possession.
 
-Une lueur bleue enveloppa l'avatar de Wang Lin. Le Maître Dao Bleu Rêve se tenait là, calme, observant l'avatar. Qing Lin et le Maître Hong Shan étaient également présents, fixant Wang Lin. Contrairement au Maître Dao Bleu Rêve, ils n'étaient pas sereins et regardaient l'avatar de Wang Lin avec nervosité.
+Une lueur bleue enveloppa l'avatar de Wang Lin. Le Maître du Dao Rêve Bleu se tenait là, calme, observant l'avatar. Qing Lin et le Maître Hong Shan étaient également présents, fixant Wang Lin. Contrairement au Maître du Dao Rêve Bleu, ils n'étaient pas sereins et regardaient l'avatar de Wang Lin avec nervosité.
 
 « Wang Lin, serais-tu plus rapide que ce vieil homme? » La lutte dans les yeux de Wang Lin devint plus intense encore; son corps tremblait et ses veines gonflaient. Des paroles antiques s'échappèrent de sa bouche, étranges et imprégnées d'un sentiment de décrépitude.
 
-Au moment où l'avatar de Wang Lin parla, son œil droit se déforma pour laisser place à une ombre. Il tourna la tête vers le Maître Dao Bleu Rêve et ses compagnons d'un mouvement de la main droite, affichant un sourire méprisant.
+Au moment où l'avatar de Wang Lin parla, son œil droit se déforma pour laisser place à une ombre. Il tourna la tête vers le Maître du Dao Rêve Bleu et ses compagnons d'un mouvement de la main droite, affichant un sourire méprisant.
 
 « Vous trois n'êtes pas faibles. Puisque vous voulez m'empêcher de partir, je vais vous laisser assister à mon 99e éveil! » L'œil gauche de l'avatar de Wang Lin tressaillit avant de se calmer lentement, dégageant une lueur spectrale. Il s'assit et ferma les yeux.
 
@@ -80,7 +80,7 @@ Les yeux de Wang Lin se posèrent sur l'objet et brillèrent d'un éclat vif.
 
 « Lequel de nous deux sera le plus rapide? »
 
-Dans la Rivière des Appels, après que l'avatar de Wang Lin eut fermé les yeux, son visage changea radicalement. En un instant, il ne ressemblait plus à Wang Lin, mais au Voyant aux cheveux blancs!
+Dans la Rivière Invoquée, après que l'avatar de Wang Lin eut fermé les yeux, son visage changea radicalement. En un instant, il ne ressemblait plus à Wang Lin, mais à l'Omniscient aux cheveux blancs!
 
 Cette possession s'apparentait à une dévoration, mais différait de ses méthodes habituelles. Cette absorption était cruciale; il avait donc choisi de dévorer de l'intérieur pour ne laisser aucune place à l'erreur!
 
@@ -94,26 +94,26 @@ Il connaîtrait les sorts et pourrait croître sans dépendre des autres! Ce ne 
 
 S'il le désirait, il pourrait même dévorer tout ce qui émanait du Dao Céleste. À ce stade, la seule chose qu'il resterait serait ce qui n'est pas né ici: les trois âmes et sept fragments, ainsi que les habitants du Continent Astral Immortel!
 
-En peu de temps, plus de la moitié de la fusion était accomplie. Quelques respirations plus tard, le processus prit fin et le Voyant ouvrit les yeux!
+En peu de temps, plus de la moitié de la fusion était accomplie. Quelques respirations plus tard, le processus prit fin et l'Omniscient ouvrit les yeux!
 
 À l'instant même, il esquissa un sourire. Il leva la tête et éclata d'un rire.
 
-« 99 éveils... ce vieil homme a enfin achevé son ultime réveil. Dao Céleste, ce vieil homme est le Dao Céleste lui-même! » Le Voyant se redressa, ses cheveux blancs flottant au vent. Une aura antique émana de son corps tandis qu'un brouillard l'enveloppait!
+« 99 éveils... ce vieil homme a enfin achevé son ultime réveil. Dao Céleste, ce vieil homme est le Dao Céleste lui-même! » L'Omniscient se redressa, ses cheveux blancs flottant au vent. Une aura antique émana de son corps tandis qu'un brouillard l'enveloppait!
 
 Wang Lin avait déjà vu ce brouillard dans les cycles de réincarnation: c'était la forme même du Dao Céleste!
 
-« Wang Lin, ton avatar est conquis. Peu importe que ton corps originel soit encore en vie, ce vieil homme n'a pas de temps à perdre avec toi! » L'expression du Voyant était féroce. Il ne daigna même pas regarder le Maître Dao Bleu Rêve et ses compagnons. Il s'apprêtait à partir.
+« Wang Lin, ton avatar est conquis. Peu importe que ton corps originel soit encore en vie, ce vieil homme n'a pas de temps à perdre avec toi! » L'expression de l'Omniscient était féroce. Il ne daigna même pas regarder le Maître du Dao Rêve Bleu et ses compagnons. Il s'apprêtait à partir.
 
-Cependant, alors qu'il allait faire un mouvement, un rayon de lumière bleue jaillit devant lui. Le Maître Dao Bleu Rêve apparut, lui barrant la route.
+Cependant, alors qu'il allait faire un mouvement, un rayon de lumière bleue jaillit devant lui. Le Maître du Dao Rêve Bleu apparut, lui barrant la route.
 
 « Je lui ai promis que je ne te laisserais pas quitter cet endroit. »
 
 Qing Lin et le Maître Hong Shan se rapprochèrent également.
 
-Les yeux du Voyant s'illuminèrent et il agita sa manche. Il ouvrit la bouche pour inspirer. Le monde trembla comme s'il s'inversait, et un brouillard infini envahit le système stellaire, occultant toute vision.
+Les yeux de l'Omniscient s'illuminèrent et il agita sa manche. Il ouvrit la bouche pour inspirer. Le monde trembla comme s'il s'inversait, et un brouillard infini envahit le système stellaire, occultant toute vision.
 
 Pourtant, au moment où le brouillard se matérialisait et qu'une gueule illusoire surgissait pour dévorer les trois prétendants, une explosion de lumière bleue jaillit. Une aura d'une puissance inouïe jaillit de la lumière et percuta la gueule monstrueuse.
 
 Au même instant, une voix glaciale chargée d'intentions meurtrières retentit au loin!
 
-« Voyant! J'ai amené ton corps originel ici! »
+« Omniscient! J'ai amené ton corps originel ici! »

@@ -82,7 +82,7 @@ Ce n'est que lorsque tout fut terminé que la foule recommença à bavarder et q
 
 — Non, dans notre Grande Dynastie Wang, la famille Wang est le ciel même. Même les immortels sont leurs serviteurs; qui oserait les défier?
 
-— Ne parlons pas de ça. Il y a quelques mois, le Maître National contemplait le ciel nocturne et a perçu un signe funeste venant du nord-ouest. En conséquence, des centaines de milliers de personnes y ont été massacrées. On dit que même aujourd'hui, le nord-ouest est jonché de cadavres.
+— Ne parlons pas de ça. Il y a quelques mois, le Professeur National contemplait le ciel nocturne et a perçu un signe funeste venant du nord-ouest. En conséquence, des centaines de milliers de personnes y ont été massacrées. On dit que même aujourd'hui, le nord-ouest est jonché de cadavres.
 
 — Ne parlons plus de cela. Frère Li, changeons de sujet pour ne pas attirer le malheur sur nous.
 

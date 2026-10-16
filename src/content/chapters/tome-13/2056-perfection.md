@@ -8,7 +8,7 @@ slug: perfection
 ---
 Le lien entre maître et disciple était une évidence qui n'avait nul besoin d'être formulée. Bien que Wang Lin et Xuan Luo ne fussent plus maître et disciple, dans le cœur de Wang Lin, Xuan Luo serait à jamais son maître.
 
-Et dans le cœur de Xuan Luo, son unique disciple restait cet enfant qu'il avait ramené du monde des cavernes vers le clan Shi Antique.
+Et dans le cœur de Xuan Luo, son unique disciple restait cet enfant qu'il avait ramené du monde des cavernes vers le clan Ancien.
 
 Dans le temple ancestral, bien que Wang Lin subisse une douleur atroce, il ressentait une forme de chaleur. Il prit une profonde inspiration, ferma les yeux et s'immergea pleinement dans son âme originelle alors qu'elle se scindait.
 
@@ -20,9 +20,9 @@ Cette ombre était parcourue de fissures dont le nombre ne cessait d'augmenter. 
 
 Cette ombre était la projection externe de l'âme originelle de Wang Lin.
 
-Si d'autres membres du clan Shi Antique avaient été à sa place, ils n'auraient sans doute pas pu endurer une telle souffrance et auraient choisi de fusionner après trois jours. Cependant, pour Wang Lin, ce n'était là que le début, et non la fin du processus.
+Si d'autres membres des Anciens Shi avaient été à sa place, ils n'auraient sans doute pas pu endurer une telle souffrance et auraient choisi de fusionner après trois jours. Cependant, pour Wang Lin, ce n'était là que le début, et non la fin du processus.
 
-Trois autres jours s'écoulèrent. Les habitants de la cité impériale Shi Antique remarquèrent qu'un phénomène étrange se produisait: les halos entourant la statue de l'Ancêtre Antique semblaient persister plus longtemps que d'habitude.
+Trois autres jours s'écoulèrent. Les habitants de la cité impériale des Anciens Shi remarquèrent qu'un phénomène étrange se produisait: les halos entourant la statue de l'Ancêtre Ancien semblaient persister plus longtemps que d'habitude.
 
 « Cela fait six jours au total, soit quelques jours de plus que la normale. Il semble que parmi ceux qui traversent la calamité, certains fassent preuve d'une immense persévérance! »
 
@@ -32,9 +32,9 @@ Trois autres jours s'écoulèrent. Les habitants de la cité impériale Shi Anti
 
 Pourtant, bien que cela ait attiré l'attention, six jours n'étaient pas une période si longue. Les gens finirent peu à peu par oublier cette anomalie.
 
-Jusqu'au neuvième jour, au quinzième, au trentième... et après deux mois, les halos autour de la statue de l'Ancêtre Antique entouraient toujours la cité impériale.
+Jusqu'au neuvième jour, au quinzième, au trentième... et après deux mois, les halos autour de la statue de l'Ancêtre Ancien entouraient toujours la cité impériale.
 
-À ce stade, de plus en plus de membres du clan Shi Antique contemplaient la statue avec stupeur. Ils avaient le sentiment que cette génération d'initiés résistait bien trop longtemps.
+À ce stade, de plus en plus de membres des Anciens Shi contemplaient la statue avec stupeur. Ils avaient le sentiment que cette génération d'initiés résistait bien trop longtemps.
 
 « Deux mois et personne n'est sorti du temple ancestral. À moins que... à moins que... »
 
@@ -44,11 +44,11 @@ Jusqu'au neuvième jour, au quinzième, au trentième... et après deux mois, le
 
 Le temps s'écoulait sans que l'on s'en aperçoive, et six autres mois passèrent. En incluant les deux mois précédents, la première division de l'âme de Wang Lin durait désormais depuis huit mois!
 
-Durant ces huit mois, presque chaque habitant de la cité impériale Shi Antique scrutait la statue de l'Ancêtre Antique au début de chaque journée pour vérifier si les halos étaient toujours là.
+Durant ces huit mois, presque chaque habitant de la cité impériale des Anciens Shi scrutait la statue de l'Ancêtre Ancien au début de chaque journée pour vérifier si les halos étaient toujours là.
 
 Les discussions se multipliaient dans toute la ville, devenant le sujet de toutes les conversations. Le sentiment de la population oscillait entre le choc et l'horreur, puis de l'horreur à l'excitation. À présent, leur excitation était à son comble.
 
-Car il ne restait plus que quatre mois avant d'atteindre le record d'un an, la plus longue première division de l'âme enregistrée chez les Shi Antique!
+Car il ne restait plus que quatre mois avant d'atteindre le record d'un an, la plus longue première division de l'âme enregistrée chez les Anciens Shi!
 
 « Peut-il tenir un an? Il faut dire que le record absolu pour une première division est d'un an! S'il ne meurt pas lors de la seconde division, il pourrait devenir un Grand Empyréen! »
 
@@ -56,13 +56,13 @@ Car il ne restait plus que quatre mois avant d'atteindre le record d'un an, la p
 
 « Les rumeurs disent que le Seigneur Song avait tenu onze mois autrefois! »
 
-Tandis que le peuple Shi Antique débattait, Wang Lin restait assis, immobile. Pourtant, l'ombre autour de lui n'était plus qu'un amas de fragments. Les jambes de l'ombre avaient disparu, ne laissant subsister que la moitié de la silhouette.
+Tandis que le peuple des Anciens Shi débattait, Wang Lin restait assis, immobile. Pourtant, l'ombre autour de lui n'était plus qu'un amas de fragments. Les jambes de l'ombre avaient disparu, ne laissant subsister que la moitié de la silhouette.
 
 Cette silhouette était devenue totalement diffuse, comme si elle allait se dissiper à tout instant. Bien que les yeux de Wang Lin fussent clos, il endurait une agonie indescriptible. Voir son âme originelle se fragmenter petit à petit revenait à être lacéré par des milliers de lames. Il devait rester conscient durant tout le processus.
 
 Huit mois de souffrance n'avaient pas entamé sa détermination. Il allait attendre que son âme originelle soit totalement brisée avant de procéder à la fusion!
 
-Le rugissement de l'Ancêtre Antique était la seule chose qui résonnait encore dans son esprit.
+Le rugissement de l'Ancêtre Ancien était la seule chose qui résonnait encore dans son esprit.
 
 « Si je veux que le ciel s'effondre, il s'effondrera! Si je veux que cette terre se brise, elle se brisera! Si je veux qu'un être meure, personne n'osera m'arrêter! Si je veux qu'aucun céleste ne survive, qui oserait les sauver... »
 
@@ -72,7 +72,7 @@ Song Tian était assis devant le temple ancestral, montant la garde pour le onzi
 
 « En vérité, une année suffit à peine pour permettre à l'âme originelle de se fragmenter. Seul cet insensé d'il y a des éons avait tenu vingt-huit mois pour que les fragments deviennent poussière! » Song Tian ne regarda pas le temple ancestral et calcula mentalement le temps écoulé.
 
-Lorsque le douzième mois passa, suivi de deux autres, toute la cité Shi Antique fut en émoi. Tous fixaient la statue de l'Ancêtre Antique, se demandant qui était cet individu et jusqu'où il pourrait tenir!
+Lorsque le douzième mois passa, suivi de deux autres, toute la cité des Anciens Shi fut en émoi. Tous fixaient la statue de l'Ancêtre Ancien, se demandant qui était cet individu et jusqu'où il pourrait tenir!
 
 « Quatorze mois... Vraiment digne du Seigneur Wang! » Dans le palais, le vieil empereur poussa un soupir.
 
@@ -84,13 +84,13 @@ Une fois la tête de l'ombre brisée, il ne sembla plus y avoir d'ombre au-dessu
 
 Sa seule existence résidait dans une volonté: la volonté d'endurer jusqu'au bout pour fusionner à nouveau. S'il réussissait, il renaîtrait; s'il échouait, il disparaîtrait à jamais.
 
-« Vais-je échouer? Non! Je n'échouerai jamais! » Dans son esprit, le rugissement de l'Ancêtre Antique résonnait encore.
+« Vais-je échouer? Non! Je n'échouerai jamais! » Dans son esprit, le rugissement de l'Ancêtre Ancien résonnait encore.
 
 Ces fragments invisibles se brisaient lentement tandis que quatre mois supplémentaires s'écoulaient. Wang Lin avait enduré la première division de son âme pendant un total de dix-huit mois.
 
 Cette fois, même Song Tian fut ému. Il se tourna vers le temple et l'observa avec gravité.
 
-Si lui était ainsi bouleversé, on ne peut imaginer l'état des habitants de Shi Antique. Les dix-huit mois les avaient habitués à la présence constante de ces halos, mais leur incrédulité rendait toute accoutumance impossible.
+Si lui était ainsi bouleversé, on ne peut imaginer l'état des habitants des Anciens Shi. Les dix-huit mois les avaient habitués à la présence constante de ces halos, mais leur incrédulité rendait toute accoutumance impossible.
 
 Le dix-neuvième mois, le vingtième... jusqu'au vingt-septième mois! Wang Lin résistait depuis plus de deux ans, et à l'intérieur du temple ancestral, environ 80 % de ces fragments invisibles s'étaient totalement désintégrés.
 
@@ -100,27 +100,27 @@ Le trentième mois passa. Durant ces deux ans et demi, si ce n'était la capacit
 
 « Fou! Pour posséder une telle force, cela doit être lié à cette folie. Ne sait-il pas qu'une désintégration complète mène à la mort? » Song Tian s'était déjà levé. Il se tenait devant le temple, l'expression incertaine.
 
-Lorsque le trentième mois arriva, un changement s'opéra dans le cœur de l'Empereur Shi Antique. Bien qu'il ait convoqué Ji Du comme à son habitude, une ombre passait dans ses yeux. Lui seul en connaissait la raison.
+Lorsque le trentième mois arriva, un changement s'opéra dans le cœur de l'Empereur des Anciens Shi. Bien qu'il ait convoqué Ji Du comme à son habitude, une ombre passait dans ses yeux. Lui seul en connaissait la raison.
 
 Cependant, ce que l'Empereur ignorait, c'est que Ji Du avait également remarqué ce changement, mais il s'en souciait peu. À cet instant, il était anxieux — non pas pour sa position d'empereur, mais pour la sécurité de son parrain.
 
 Lorsque le trente-cinquième mois passa, même Xuan Luo, qui veillait sur Wang Lin depuis les cieux, devint inquiet. Il brûlait d'envie de prévenir Wang Lin, mais craignait qu'une telle intervention ne provoque un accident fatal.
 
-Au trente-sixième mois, alors que Xuan Luo hésitait, les neuf halos brillèrent soudainement d'un éclat fulgurant. La lumière se propagea dans toutes les directions, balayant la capitale impériale Shi Antique. Toute la cité fut plongée dans le silence tandis que tous les membres du clan Shi Antique tournaient leurs regards vers la statue de l'Ancêtre Antique.
+Au trente-sixième mois, alors que Xuan Luo hésitait, les neuf halos brillèrent soudainement d'un éclat fulgurant. La lumière se propagea dans toutes les directions, balayant la capitale impériale des Anciens Shi. Toute la cité fut plongée dans le silence tandis que tous les membres des Anciens Shi tournaient leurs regards vers la statue de l'Ancêtre Ancien.
 
 Xuan Luo se redressa et observa la scène avec excitation.
 
 Song Tian eut un haut-le-cœur, puis recula de dix mille pieds pour mieux voir.
 
-Dans le palais, l'Empereur Shi Antique, nerveux, se tenait près de la fenêtre, les yeux rivés vers le temple ancestral.
+Dans le palais, l'Empereur des Anciens Shi, nerveux, se tenait près de la fenêtre, les yeux rivés vers le temple ancestral.
 
 Ji Du arriva personnellement à dix mille pieds du temple et observa avec anxiété.
 
 Dans le temple ancestral, la lumière inondait le corps immobile de Wang Lin. D'innombrables particules lumineuses se condensèrent sur lui, formant une ombre bien plus imposante qu'auparavant. Elle rayonnait intensément, dégageant une pression écrasante.
 
-Alors que l'ombre se condensait, les neuf halos entourant la statue de l'Ancêtre Antique fusionnèrent soudainement en un seul. Ils libérèrent une clarté telle qu'elle fit paraître la nuit aussi lumineuse que le jour!
+Alors que l'ombre se condensait, les neuf halos entourant la statue de l'Ancêtre Ancien fusionnèrent soudainement en un seul. Ils libérèrent une clarté telle qu'elle fit paraître la nuit aussi lumineuse que le jour!
 
-À cet instant même, les halos ainsi réunis se divisèrent en dix-huit nouveaux halos qui flottèrent autour de la statue de l'Ancêtre Antique!
+À cet instant même, les halos ainsi réunis se divisèrent en dix-huit nouveaux halos qui flottèrent autour de la statue de l'Ancêtre Ancien!
 
 « La première division de l'âme est achevée! »
 

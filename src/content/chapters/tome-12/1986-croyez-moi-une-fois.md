@@ -46,7 +46,7 @@ Le temps passa, seconde après seconde. Pour la première fois, l'Enseignant Imp
 
 « Mais mon clan n'a pas la force de résister! Wang Lin, vous êtes le seul espoir du mien. Aidez mon clan une fois, aidez-moi une seule fois! » L'Enseignant Impérial paraissait sincère et était empreint d'une profonde tristesse. Il joignit les mains et s'inclina profondément devant Wang Lin.
 
-Cependant, l'expression de Wang Lin demeurait froide et imperturbable, révélant une cruauté latente. Son être aux cheveux noirs représentait le massacre et la destruction; ainsi, même si cette affaire était d'une tristesse infinie, il n'en serait pas affecté. De plus, il ne prêterait pas foi à ces paroles aussi facilement.
+Cependant, l'expression de Wang Lin demeurait froide et imperturbable, révélant une cruauté latente. Son être aux cheveux noirs représentait le massacre et la destruction; ainsi, même si cette affaire était plusieurs fois plus triste, il n'en serait pas affecté. De plus, il ne prêterait pas foi à ces paroles aussi facilement.
 
 Wang Lin observa l'Ascendant Empyréen Ming Dao qui se débattait dans le bassin et sentit la folie émaner de son corps.
 
@@ -64,7 +64,7 @@ Le temps s'écoulait lentement. L'Enseignant Impérial attendit amèrement un lo
 
 « Cet objet est le cœur de toutes les Flammes Joss fournies par les mondes caverneux du Continent Astral Immortel. Grâce à lui, l'ensemble du continent vous alimentera sans cesse en Flammes Joss!
 
-« L'Ancêtre Céleste est né du vide et, contrairement à ma famille, il ne pouvait pas les absorber lui-même; il était donc nécessaire que mon clan les transforme au préalable. Beaucoup de gens dans ce monde absorbent les Flammes Joss, mais comme elles ne sont pas pures, ils deviennent des réceptacles pour le clan de mon clan une fois l'absorption faite!
+« L'Ancêtre Céleste est né du vide et, contrairement à ma famille, il ne pouvait pas les absorber lui-même; il était donc nécessaire que mon clan les transforme au préalable. Beaucoup de gens dans ce monde absorbent les Flammes Joss, mais comme elles ne sont pas pures, ils deviennent une source de Flammes Joss pour mon clan une fois l'absorption faite!
 
 « Mais vous êtes différent. Vous êtes né dans un monde caverneux de Flammes Joss. Pour vous, il n'est pas nécessaire que mon clan les transforme. Votre âme et votre corps peuvent les absorber directement! » Le regard de l'Enseignant Impérial devint résolu et il agita la main. Le cristal noir vola vers Wang Lin!
 

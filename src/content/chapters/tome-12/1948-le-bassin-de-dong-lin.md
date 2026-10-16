@@ -66,7 +66,7 @@ Wang Lin regarda le ciel au loin et resta pensif un long moment. La lumière qu'
 
 « Mon œil gauche pouvait voir, mais pas le droit... Ce bassin de Dong Lin est plus complexe que je ne l'imaginais. » Wang Lin regarda le bassin. Il restait désormais moins de 30 % d'eau.
 
-« Je me demande si l'eau réapparaîtra une fois épuisée... De plus, j'ai tenté de comprendre deux fois et j'ai échoué à chaque fois. Lors de la troisième tentative, je me demande quel danger m'attend. » Wang Lin réfléchit, puis fit un geste de la main droite. Le Dragon de Mer de l'Exaltation Dorée apparut et plana autour de lui; il avait beaucoup rétréci.
+« Je me demande si l'eau réapparaîtra une fois épuisée... De plus, j'ai tenté de comprendre deux fois et j'ai échoué à chaque fois. Lors de la troisième tentative, je me demande quel danger m'attend. » Wang Lin réfléchit, puis fit un geste de la main droite. Le Dragon de Mer Exalté Doré apparut et plana autour de lui; il avait beaucoup rétréci.
 
 Le dragon tourna immédiatement un regard féroce vers Liu Jinbiao, poussant un grognement sourd avec un air de fierté.
 

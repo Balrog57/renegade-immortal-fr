@@ -66,7 +66,7 @@ Les cultivateurs restèrent perplexes un instant, puis, après avoir débattu, i
 
 Continent Est, dans le continent Nan Ni, Wang Lin passa brièvement près d'une petite secte. Elle ne comptait pas beaucoup de cultivateurs, environ mille âmes seulement. L'emplacement de la secte n'était guère propice et l'énergie spirituelle y était peu dense.
 
-Depuis que l'édit des Grands Empereurs avait annoncé l'ouverture du Royaume Divin Immémorial, des courants sous-jacents agitaient le continent. Cela signifiait que les petites sectes ne pouvaient plus vivre en paix et devaient désormais s'en remettre aux grandes puissances pour survivre.
+Depuis que l'édit des Grands Empyréens avait annoncé l'ouverture du Royaume Divin Immémorial, des courants sous-jacents agitaient le continent. Cela signifiait que les petites sectes ne pouvaient plus vivre en paix et devaient désormais s'en remettre aux grandes puissances pour survivre.
 
 La guerre était imminente, et une modeste secte comme celle-ci aurait du mal à subsister dans l'affrontement entre les Anciens et les Célestes.
 
@@ -94,7 +94,7 @@ Il y a des centaines d'années, elle était devenue disciple de la Secte Soleil 
 
 Cela était dû en grande partie au fait que la Secte Soleil et Lune l'avait formée de manière optimale, mais cela témoignait aussi de son importance cruciale pour l'organisation.
 
-L'Ancien de haut rang, l'Exaltée Dorée, restait en retraite perpétuelle. La rumeur disait qu'elle possédait la puissance d'une Exaltée Céleste, bien qu'elle n'ait jamais passé l'Épreuve Céleste.
+L'Ancien de haut rang, l'Exalté Doré, restait en retraite perpétuelle. La rumeur disait qu'elle possédait la puissance d'un Exalté Empyréen, bien qu'elle n'ait jamais passé l'Épreuve Céleste.
 
 Cette dernière avait personnellement accepté cette femme comme disciple et, tous les quelques années, elle sortait pour lui prodiguer ses conseils. Parfois, elle l'emmenait même avec elle durant ses retraites.
 
@@ -110,7 +110,7 @@ Elle resta devant sa propre grotte, observant les cieux noirs et la lueur rouge 
 
 Un magnifique papillon vola au loin, bravant les vents violents. Il flotta devant elle et attira son attention.
 
-Elle aimait le rouge et les papillons. Les membres de la secte ne connaissaient que sa première passion, mais personne n'ignorait la seconde.
+Elle aimait le rouge et les papillons. Les membres de la secte ne connaissaient que sa première passion, mais personne ne connaissait la seconde.
 
 En observant l'insecte ailé, la confusion dans le regard de la belle femme s'intensifia. Comme pour ceux qui avaient réincarné, ses rêves étaient empreints d'incertitude.
 

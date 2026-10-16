@@ -72,7 +72,7 @@ L'Empereur Dao Antique dit: « Impératrice, reconnaissez-vous le futur gardien 
 
 La femme en robe de phénix baissa la tête et secoua négativement.
 
-« Le Maître Impérial a déclaré que ce fragment d'âme avait été scellé par lui, de sorte qu'aucune fluctuation ne puisse se propager. Même si les êtres les plus proches du fragment apparaissaient, ils seraient incapables de le détecter. À moins que cette personne ne possède un pouvoir de divination dépassant celui du Maître Impérial, même les Grands Empereurs ne pourraient le percevoir. » L'Empereur Dao Antique esquissa un léger sourire.
+« Le Maître Impérial a déclaré que ce fragment d'âme avait été scellé par lui, de sorte qu'aucune fluctuation ne puisse se propager. Même si les êtres les plus proches du fragment apparaissaient, ils seraient incapables de le détecter. À moins que cette personne ne possède un pouvoir de divination dépassant celui du Maître Impérial, même les Grands Empyréens ne pourraient le percevoir. » L'Empereur Dao Antique esquissa un léger sourire.
 
 « Intéressant. Ce fragment d'âme pourrait-il vraiment être lié à ce Wang Lin? » L'Empereur était agréablement surpris, tout en conservant son sourire insaisissable.
 
@@ -80,7 +80,7 @@ Il poursuivit lentement: « Peut-être vous connaissez-vous réellement. Mon Imp
 
 La femme en robe de phénix se leva avec grâce et regarda Wang Lin avant de descendre lentement les marches. Wang Lin la fixa et, pendant un instant, il eut l'impression que c'était Li Muwan qui marchait vers lui. Son cœur et son corps tout entiers tremblèrent.
 
-La femme s'arrêta à dix pieds de Wang Lin, et l'indignation dans ses yeux s'intensifia. Wang Lin ressentit une sensation glaciale mais familière. Cela lui fit oublier le palais de l'Dao Antique, oublier le clan ancestral, oublier le Continent Astral Immortel; il se croyait de retour dans le monde des grottes. Tandis qu'ils se défiaient du regard, la tristesse dans ses yeux semblait capable de faire fondre le monde entier.
+La femme s'arrêta à dix pieds de Wang Lin, et l'indignation dans ses yeux s'intensifia. Wang Lin ressentit une sensation glaciale mais familière. Cela lui fit oublier le palais du Dao Antique, oublier le clan ancestral, oublier le Continent Astral Immortel; il se croyait de retour dans le monde des grottes. Tandis qu'ils se défiaient du regard, la tristesse dans ses yeux semblait capable de faire fondre le monde entier.
 
 Voyant cette tristesse, la femme ressentit soudain une douleur au cœur. La confusion traversa son regard, mais elle fut vite balayée par une nouvelle vague d'indignation.
 
@@ -96,9 +96,9 @@ Wang Lin pleurait rarement, mais tandis qu'il buvait, des larmes coulèrent au c
 
 La femme en robe de phénix retourna aux côtés de l'Empereur et retrouva son calme. Elle garda la tête basse sans dire un mot. Le sourire de l'Empereur Dao Antique s'élargit, son regard se posant par intermittence sur Wang Lin avec des éclairs de fierté et de joie.
 
-« Il semble fort probable que Wang Lin connaisse ce fragment d'âme... Et la confusion qui est apparue était sans doute due à lui... Malheureusement, peu importe votre niveau de culture, peu importe la quantité de sang spirituel que vous possédez, et même avec Xuan Luo pour maître, le plus grand des tourments est de ne pas pouvoir se reconnaître alors que l'on est l'un face à l'autre... Mais cela m'excite au plus haut point... » L'Empereur Dao Antique leva son coupe et but avec les cent mille convives du banquet.
+« Il semble fort probable que Wang Lin connaisse ce fragment d'âme... Et la confusion qui est apparue était sans doute due à lui... Malheureusement, peu importe votre niveau de culture, peu importe la quantité de sang spirituel que vous possédez, et même avec Xuan Luo pour maître, le plus grand des tourments est de ne pas pouvoir se reconnaître alors que l'on est l'un face à l'autre... Mais cela m'excite au plus haut point... » L'Empereur Dao Antique leva sa coupe et but avec les cent mille convives du banquet.
 
-Selon la tradition de l'Dao Antique, il aurait dû laisser partir la femme, mais il choisit de la faire rester. Il continuait d'observer Wang Lin, comme si cela lui procurait le plus grand des plaisirs.
+Selon la tradition du Dao Antique, il aurait dû laisser partir la femme, mais il choisit de la faire rester. Il continuait d'observer Wang Lin, comme si cela lui procurait le plus grand des plaisirs.
 
 Sous l'impulsion de l'Empereur, le banquet atteignit son apogée. La foule exultait dans un concert de félicitations; l'ambiance était à la fête.
 

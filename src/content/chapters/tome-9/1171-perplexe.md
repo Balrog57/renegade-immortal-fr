@@ -82,7 +82,7 @@ Au crépuscule du troisième jour, Wang Lin retourna à l'auberge et s'assit sur
 
 Peu après, son expression changea légèrement et il leva les yeux vers le haut de la pièce.
 
-Un instant plus tard, on fraqua à la porte.
+Un instant plus tard, on frappa à la porte.
 
 « Il est enfin venu... » Wang Lin esquissa un sourire et fit un signe de la main droite. La porte s'ouvrit sur un homme d'âge mûr, robuste, à l'allure héroïque.
 

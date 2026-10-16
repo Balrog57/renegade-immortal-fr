@@ -12,7 +12,7 @@ Cette femme avait demandé le nom de Wang Lin à deux reprises, ce qui avait dé
 
 En songeant à la manière dont elle avait pu calculer sa position comme si elle l'avait vu de ses propres yeux, Wang Lin ne put s'empêcher de se remémorer une autre personne dont le souvenir était profondément ancré en lui... l'Omniscient!
 
-En vérité, durant toute son existence de cultivateur, l'Omniscient était la seule personne que Wang Lin n'avait jamais pu percer à jour et celle qui inspirait chez lui la plus grande crainte. Même le Taoïste Eau ne parvenait pas à susciter un tel sentiment d'effroi.
+En vérité, durant toute son existence de cultivateur, l'Omniscient était la seule personne que Wang Lin n'avait jamais pu percer à jour et celle qui inspirait chez lui la plus grande crainte. Même Shui Daozi ne parvenait pas à susciter un tel sentiment d'effroi.
 
 À cet instant, l'expression de Wang Lin demeurait sereine, mais son cœur était en alerte. Il regarda la femme et prononça lentement: « Xu Mu! » Son nom n'était pas un secret pour quiconque souhaitait le connaître. Cependant, Wang Lin sentait vaguement que le fait qu'elle l'ait découvert et qu'il le lui dise de sa propre voix étaient deux choses bien distinctes.
 
@@ -22,13 +22,13 @@ Les yeux de la femme s'illuminèrent. Après avoir répété silencieusement le 
 
 Wang Lin se détourna. Sans un regard pour la femme ou Maître Simo, il s'enfonça plus profondément dans le tunnel. Le messager le suivit promptement, et les deux disparurent au loin.
 
-Tout en progressant, le regard de Wang Lin devint vif. Ce qu'il avait infligé au Clan de River Creek et au Clan du Serpent d'Âme n'était qu'un test destiné au Grand Empereur. Ce dernier était bien trop mystérieux; après lui avoir soudainement accordé de nombreux bénéfices, il ne pouvait s'empêcher de rester prudent.
+Tout en progressant, le regard de Wang Lin devint vif. Ce qu'il avait infligé au Clan de River Creek et au Clan du Serpent de l'Âme n'était qu'un test destiné au Grand Empereur. Ce dernier était bien trop mystérieux; après lui avoir soudainement accordé de nombreux bénéfices, il ne pouvait s'empêcher de rester prudent.
 
-Pour déceler les desseins de l'autre partie, il devait la mettre à l'épreuve. La situation avec le Clan du Dragon Blindé suivait la même logique, tout comme celle des clans de River Creek et du Serpent d'Âme. Ce n'était qu'en poussant sans cesse ses limites que Wang Lin pourrait découvrir la véritable nature de son interlocuteur!
+Pour déceler les desseins de l'autre partie, il devait la mettre à l'épreuve. La situation avec le Clan du Dragon Blindé suivait la même logique, tout comme celle des clans de River Creek et du Serpent de l'Âme. Ce n'était qu'en poussant sans cesse ses limites que Wang Lin pourrait découvrir la véritable nature de son interlocuteur!
 
 « Il a dépouillé deux Anciens Délaissés de leurs titres, il m'a laissé choisir le patriarche du Clan du Dragon Blindé, et il m'a même permis de révoquer les droits de deux clans à participer à la Sélection des Anciens Délaissés. Tout cela dépasse ses propres limites... Peut-être que le Conseil des Déchus n'a aucune importance pour le Grand Empereur! » Wang Lin réfléchit un instant, les yeux brillants. Il lança soudain une directive au messager qui le suivait:
 
-« Le Patriarche du Clan du Scorpion Noir est digne de confiance; j'ai l'intention de le nommer Ancien Déchu. »
+« Le Patriarche du Clan du Scorpion Obscur est digne de confiance; j'ai l'intention de le nommer Ancien Déchu. »
 
 Le messager fut surpris et hésita un instant. Le regard de Wang Lin balaya le serviteur, et ses pupilles se rétractèrent. Il pressentit vaguement que le messager utilisait une méthode spéciale pour transmettre un message à quelqu'un.
 

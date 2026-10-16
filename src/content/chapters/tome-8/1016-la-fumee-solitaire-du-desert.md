@@ -94,7 +94,7 @@ Les quatre dragons démoniaques le poursuivirent de près. Leurs têtes massives
 
 Une intention meurtrière embrasa les yeux de Wang Lin alors qu'il volait vers la tour noire, derrière les dragons. Cependant, il veillait à ne jamais dépasser les deux cents pieds d'altitude, tout comme ses poursuivants.
 
-La peur envahit le regard du vieil homme alors qu'il s'enfuyait comme un fou vers la tour noire. Mais sa culture n'était qu'au stade initial de l'Observateur de Nirvana, il ne pouvait donc en aucun cas échapper aux dragons démoniaques. Alors que les créatures se rapprochaient, le vieil homme hurla désespérément: « Seigneur Démon Déchu, sauvez-moi! »
+La peur envahit le regard du vieil homme alors qu'il s'enfuyait comme un fou vers la tour noire. Mais sa culture n'était qu'au stade initial du Scruteur du Nirvana, il ne pouvait donc en aucun cas échapper aux dragons démoniaques. Alors que les créatures se rapprochaient, le vieil homme hurla désespérément: « Seigneur Démon Déchu, sauvez-moi! »
 
 À peine eut-il crié que sa vision s'obscurcit et qu'une douleur intense lui traversa le corps, lui faisant perdre connaissance.
 

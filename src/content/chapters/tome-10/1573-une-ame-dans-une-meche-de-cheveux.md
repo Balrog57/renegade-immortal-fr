@@ -116,7 +116,7 @@ C'était un chemin sans retour! Une fois que l'on y avait posé le pied, il fall
 
 « Il reste un dernier endroit où je dois me rendre sur la planète Suzaku! » Wang Lin fendit les airs avec le fou, son regard porté vers l'horizon.
 
-C'était là que se trouvait la profonde cavité du clan de la Tatouage. L'endroit même où l'ancien Empereur Divin Vermillon avait voulu s'aventurer!
+C'était là que se trouvait la profonde cavité du Clan du Tatouage. L'endroit même où l'ancien Empereur Divin Oiseau Vermillon avait voulu s'aventurer!
 
 Le secret qui se cachait dans la dix-neuvième couche tourmentait Wang Lin depuis longtemps.
 

@@ -15,7 +15,7 @@ Des bruits d'explosions résonnèrent de l'intérieur et le nuage noir commença
 
 Le rugissement de l'Ancêtre Sanguin retentit: « Espèce de gamin, Wang Lin, tu n'es pas digne de sceller ce vieil homme! » Les nuages noirs denses se contractèrent à nouveau; ils étaient désormais très fins et sur le point de disparaître.
 
-Une fois les nuages noirs dissipés, cela signifierait que le drapeau des un milliard d'âmes était détruit!
+Une fois les nuages noirs dissipés, cela signifierait que le drapeau du milliard d'âmes était détruit!
 
 Wang Lin cria: « Trois âmes primaires, apparaissez! » À l'intérieur du nuage, les trois âmes primaires, incluant le Qilin et la quatrième âme, se condensèrent immédiatement et lancèrent leur attaque contre l'Ancêtre Sanguin.
 
@@ -63,7 +63,7 @@ La silhouette de l'Ancêtre Sanguin était saisissante, avec le Fouet du Karma a
 
 C'est ainsi que l'image sur le drapeau prit forme.
 
-En contemplant le drapeau des un milliard d'âmes, Wang Lin resta silencieux. Il ne ressentit aucune fierté d'avoir vaincu l'Ancêtre Sanguin; son cœur était empreint de mélancolie.
+En contemplant le drapeau du milliard d'âmes, Wang Lin resta silencieux. Il ne ressentit aucune fierté d'avoir vaincu l'Ancêtre Sanguin; son cœur était empreint de mélancolie.
 
 Il avait dû lutter acharnement pour vaincre l'Ancêtre Sanguin et n'était pas aussi calme qu'il en avait l'air. Ce combat avait été jalonné de moments de vie ou de mort, et le moindre instant d'inattention aurait signifié la fin. Cette bataille n'avait rien été de moins que sa fuite face au Serpent aux yeux de lune. En réalité, elle était même un peu plus périlleuse.
 
@@ -81,7 +81,7 @@ Il savait que l'Ancêtre Sanguin pouvait entendre!
 
 « Est-il possible que votre fille, Yao Xixue, soit autorisée à comploter contre moi, mais que je ne sois pas autorisé à riposter?! Vous aimez votre fille, alors vous ne distinguez plus le bien du mal et ignorez les causes de vos actes. Bien que ce soit de l'amour, c'est un amour gâté!
 
-« Je vous ai donné une chance, mais le senior Ancêtre Sanguin n'avait qu'une idée en tête: me tuer. À mes yeux, vos actions ne sont pas différentes de celles de Yao Xixue. J'ai compris le rôle d'un père il y a mille ans, mais vous ne le comprenez toujours pas aujourd'hui! » Wang Lin leva les yeux vers l'horizon et rangea le drapeau. Il ne se souciait plus de savoir si l'Ancêtre Sanguin comprenait.
+« Je vous ai donné une chance, mais le Senior Ancêtre Sanguin n'avait qu'une idée en tête: me tuer. À mes yeux, vos actions ne sont pas différentes de celles de Yao Xixue. J'ai compris le rôle d'un père il y a mille ans, mais vous ne le comprenez toujours pas aujourd'hui! » Wang Lin leva les yeux vers l'horizon et rangea le drapeau. Il ne se souciait plus de savoir si l'Ancêtre Sanguin comprenait.
 
 Il avait seulement besoin d'avoir la conscience tranquille, et cela suffisait!
 

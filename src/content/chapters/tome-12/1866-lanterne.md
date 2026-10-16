@@ -44,7 +44,7 @@ Tout cela se produisit en un éclair. Xu Decai retrouva soudainement ses esprits
 
 Cette fois, Wang Lin cracha une bouchée de sang; son visage était pâle mais d'une férocité extrême. Xu Decai, qui venait tout juste de recouvrer sa liberté, se figea de nouveau. Pour la première fois, la peur apparut dans ses yeux.
 
-La neige noire tombait des nuages sombres, lesquels étaient formés par la Voile Fantomatique de Wang Lin. Si la Voile Fantomatique était le trésor le plus puissant du Grand Secte de l'Âme, c'était grâce à sa capacité à ignorer le niveau de culture et à perturber l'esprit.
+La neige noire tombait des nuages sombres, lesquels étaient formés par la Voile Fantôme de Wang Lin. Si la Voile Fantôme était le trésor le plus puissant de la Secte de la Grande Âme, c'était grâce à sa capacité à ignorer le niveau de culture et à perturber l'esprit.
 
 À cet instant, les nuages sombres dans le ciel grondèrent et descendirent rapidement pour former la silhouette d'une femme en blanc.
 
@@ -54,7 +54,7 @@ Wang Lin invoqua ainsi le fantôme qui avait pris forme humaine. Tandis que Xu D
 
 Le regard de Xu Decai devint confus. À ce moment précis, Wang Lin agita sa manche et la terre trembla. Les 30 millions d'âmes du Dao qui s'étaient fusionnées avec le sol jaillirent comme des filaments de gaz noir vers Xu Decai.
 
-Bientôt, ces 30 millions d'âmes emportèrent le corps de Xu Decai, couvert de neige noire, vers les cieux. Le ciel bleu était l'Ombre Bleue de Wang Lin. Non seulement elle constituait une défense puissante, mais elle pouvait aussi lancer des attaques dévastatrices.
+Bientôt, ces 30 millions d'âmes emportèrent le corps de Xu Decai, couvert de neige noire, vers les cieux. Le ciel bleu était le Parapluie Bleu de Wang Lin. Non seulement il constituait une défense puissante, mais il pouvait aussi lancer des attaques dévastatrices.
 
 De loin, on aurait dit que le corps de Xu Decai était aspiré vers le ciel tel un météore. Lorsqu'il fut porté à la lisière du ciel bleu, Wang Lin poussa un rugissement.
 

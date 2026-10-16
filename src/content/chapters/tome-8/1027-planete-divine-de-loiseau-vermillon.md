@@ -56,7 +56,7 @@ Les yeux de l'Oiseau Vermillon étaient formés de pur feu. Chaque heure, deux �
 
 Cette statue n'était pas unique. Les huit autres planètes arboraient exactement la même effigie. C'était le symbole sacré de la Secte Divine de l'Oiseau Vermillon!
 
-Une douzaine de personnes vêtues de robes cramoisies étaient assises autour de la statue. Parmi elles, hommes et femmes absorbaient les flammes environnantes.
+Des dizaines de personnes vêtues de robes cramoisies étaient assises autour de la statue. Parmi elles, hommes et femmes absorbaient les flammes environnantes.
 
 La queue de l'Oiseau Vermillon était divisée en trois parties, et sur chacune d'elles siégeait un vieil homme. Leurs mains formaient des sceaux tandis qu'ils entonnaient une étrange incantation. Chaque plume de la statue émettait un feu qui était absorbé par les cultivateurs alentour.
 
@@ -134,18 +134,18 @@ L'individu dans l'image avait de longs cheveux flottants et le tatouage de l'Ois
 
 C'était Wang Lin!
 
-Dans cette vision, outre Wang Lin, on apercevait également l'Ancêtre Saint du Clan des Tatouages, à l'apparence mélancolique et aux orbites vides. Devant elle se tenait Qing Lin, formé de lumière cristalline!
+Dans cette vision, outre Wang Lin, on apercevait également l'Ancêtre Sainte du Clan du Tatouage, à l'apparence mélancolique et aux orbites vides. Devant elle se tenait Qing Lin, formé de lumière cristalline!
 
 Dès que la scène apparut, la femme tourna soudainement le regard. Ses yeux vides firent trembler les esprits des observateurs.
 
 « Cette femme est... »
-« L'Ancêtre Saint du Clan des Tatouages, Qiu Yao! »
+« L'Ancêtre Sainte du Clan du Tatouage, Qiu Yao! »
 « Et l'homme devant elle... pourrait-il être l'Empereur Céleste Qing Lin?! »
 
-Maître Vide, l'Omniscient et tous les autres apparurent également dans l'image!
+Maître du Vide, l'Omniscient et tous les autres apparurent également dans l'image!
 
-« Maître Vide et l'Omniscient sont là aussi! »
-« Cette personne a traversé l'Éveil de l'Oiseau Vermillon dans un lieu si périlleux... Maître Vide est une figure clé de l'Alliance. Il ne permettra certainement pas à ma Secte de l'Oiseau Vermillon d'avoir un tel éveil! »
+« Maître du Vide et l'Omniscient sont là aussi! »
+« Cette personne a traversé l'Éveil de l'Oiseau Vermillon dans un lieu si périlleux... Maître du Vide est une figure clé de l'Alliance. Il ne permettra certainement pas à ma Secte de l'Oiseau Vermillon d'avoir un tel éveil! »
 « Cependant, je n'ai jamais vu celui qui s'est éveillé. Comment a-t-il obtenu la Lignée de l'Oiseau Vermillon? »
 
 Les neuf personnes observaient la scène au cœur de la sphère de feu. À cet instant précis, un puissant Sens Divin émana des profondeurs du système stellaire embrasé. Cette présence était si forte qu'elle fit même vaciller les flammes du système!
@@ -160,6 +160,6 @@ Après que ce Sens Divin eut balayé les lieux, les neuf individus manifestèren
 
 À ce moment précis, à l'intérieur de la Grotte de l'Empereur Céleste, alors que Qing Lin apparaissait, Wang Lin sentit une chaleur intense dans son tatouage de l'Oiseau Vermillon. Il n'eut même pas le temps de vérifier quand plusieurs regards se posèrent sur lui.
 
-Une intention meurtrière jaillit de Maître Vide. Il avait immédiatement remarqué le changement du tatouage sur le corps de Wang Lin.
+Une intention meurtrière jaillit du Maître du Vide. Il avait immédiatement remarqué le changement du tatouage sur le corps de Wang Lin.
 
 « La Secte de l'Oiseau Vermillon a remarqué son éveil! »

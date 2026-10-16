@@ -12,13 +12,13 @@ Cependant, cette lueur disparut aussitôt, comme si elle n'avait jamais existé.
 
 Qu'il s'agisse de son apparition ou de sa disparition, Qing Shui n'avait en réalité rien vu. Pourtant, à cet instant précis, une sensation terrifiante lui fit dresser les poils sur tout le corps. Il n'avait jamais ressenti cela auparavant, pas même lors de sa rencontre avec son maître, Bai Fan.
 
-Pourtiment, inconsciemment, il eut l'impression d'avoir déjà vécu cela. Ce sentiment contradictoire laissait Qing Shui incapable d'en trouver la source.
+Pourtant, inconsciemment, il eut l'impression d'avoir déjà vécu cela. Ce sentiment contradictoire laissait Qing Shui incapable d'en trouver la source.
 
 Son visage devint sombre et une lueur de froideur traversa son regard. Il resta vigilant, fixant l'horizon tout en fouillant dans ses souvenirs pour comprendre cette sensation paradoxale.
 
-Alors que Lou Chen riait, il se retira soudainement du Sceau de Destruction d'Âmes. Une multitude d'épines osseuses sur ses bras s'étaient effondrées, mais il était exalté. Il regarda Wang Lin avec admiration.
+Alors que Lou Chen riait, il se retira soudainement du Sceau Tueur de Dieux. Une multitude d'épines osseuses sur ses bras s'étaient effondrées, mais il était exalté. Il regarda Wang Lin avec admiration.
 
-Après le bombardement, Wang Lin se retira également. La Lance Destructrice d'Âmes qu'il tenait était désormais presque transparente. Bien qu'il paraisse calme en apparence, il était profondément choqué. Quelques instants plus tôt, Wang Lin avait clairement senti la Perle Défiant le Ciel — fusionnée avec son âme originelle et restée dormante durant une longue période — trembler brusquement.
+Après le bombardement, Wang Lin se retira également. La Lance Tueuse de Dieux qu'il tenait était désormais presque transparente. Bien qu'il paraisse calme en apparence, il était profondément choqué. Quelques instants plus tôt, Wang Lin avait clairement senti la Perle Défiant le Ciel — fusionnée avec son âme originelle et restée dormante durant une longue période — trembler brusquement.
 
 C'était un événement extrêmement rare. Lorsque la Perle Défiant le Ciel trembla, une parcelle de pouvoir mystérieux s'en échappa pour pénétrer dans le corps de Wang Lin. Cela fit briller ses yeux d'un bleu intense pendant un instant.
 
@@ -46,7 +46,7 @@ Si le combat de deux Dieux Antiques s'était déroulé dans un espace normal, il
 
 Lou Chen fit un pas et rattrapa instantanément Wang Lin tout en lançant ses coups. D'innombrables épines osseuses féroces jaillirent de son corps. Imprégnées de la puissance d'un Dieu Antique, elles furent projetées vers Wang Lin comme des flèches.
 
-La main droite de Wang Lin fit tournoyer la Lance Destructrice d'Âmes et la balaya vers l'avant. Sans aucune hésitation, il prononça les mots de la langue des Dieux Antiques:
+La main droite de Wang Lin fit tournoyer la Lance Tueuse de Dieux et la balaya vers l'avant. Sans aucune hésitation, il prononça les mots de la langue des Dieux Antiques:
 
 « Dieu Antique Originel, Emprunte le Pouvoir des Ancêtres! »
 
@@ -54,7 +54,7 @@ Dès qu'il eut parlé, un immense vortex apparut devant lui, absorbant toutes le
 
 Pour la première fois, une lueur d'excitation brilla dans les yeux de Lou Chen. Il sourit et déclara: « Le sortilège du Dieu Antique Originel qui emprunte le pouvoir des ancêtres... celui que seul le clan royal peut utiliser. Je, Lou Chen, ne l'ai pas vu depuis bien longtemps! »
 
-Tout en parlant, il s'immobilisa dans le vide et joignit ses mains en un cercle. Une étoile de Dieu Antique illusoire apparut au-dessus de son front. Peu après, les étoiles se succédèrent une à une. Lorsque Lou Chen fit un geste, les cinq étoiles émettent une lumière douce et commencèrent à pivoter. Puis, quelque chose s'échappa du cercle formé par ses mains.
+Tout en parlant, il s'immobilisa dans le vide et joignit ses mains en un cercle. Une étoile de Dieu Antique illusoire apparut au-dessus de son front. Peu après, les étoiles se succédèrent une à une. Lorsque Lou Chen fit un geste, les cinq étoiles émettaient une lumière douce et commencèrent à pivoter. Puis, quelque chose s'échappa du cercle formé par ses mains.
 
 « Esprit Bête du Dieu Antique! » cria Lou Chen. L'objet qui s'en était échappé brilla intensément avant de se transformer en un éléphant géant!
 

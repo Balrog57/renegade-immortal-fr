@@ -62,7 +62,7 @@ La femme qui venait de parler était Xi Zifeng. Elle lança un regard glacial au
 
 Sur ce, elle l'ignora, contemplant la statue d'un regard complexe avant de soupirer et de s'envoler. Le cultivateur arrogant fronça les sourcils et examina attentivement l'œuvre. Plus il la scrutait, plus elle lui semblait familière, jusqu'à ce que ses yeux s'écarquillent de terreur. « C'est... le Céleste du Tonnerre, Xu Mu! »
 
-Bien qu'Luotian ait déjà retiré à Wang Lin son titre de Céleste du Tonnerre, la bataille de Wang Lin pour ce titre restait célèbre. Ce n'était pas un événement que l'on oublierait en quelques centaines d'années. Le cuir chevelu du cultivateur arrogant se hérissa. Il savait que le nom taoïste de Xu Mu était Maître Démon, et il ne pouvait l'ignorer. Sentant qu'il serait vain de détruire la statue d'un tel être, il fit volte-face et s'éloigna rapidement.
+Bien que Luotian ait déjà retiré à Wang Lin son titre de Céleste du Tonnerre, la bataille de Wang Lin pour ce titre restait célèbre. Ce n'était pas un événement que l'on oublierait en quelques centaines d'années. Le cuir chevelu du cultivateur arrogant se hérissa. Il savait que le nom taoïste de Xu Mu était Maître Démon, et il ne pouvait l'ignorer. Sentant qu'il serait vain de détruire la statue d'un tel être, il fit volte-face et s'éloigna rapidement.
 
 Maître Yan Leizi et son entourage, ainsi que les membres de la Secte des Cadavres, remarquèrent également la scène. Une fois les ordres donnés, plus personne n'osa envisager de briser la statue.
 

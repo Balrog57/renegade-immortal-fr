@@ -24,7 +24,7 @@ Le sourire de Wang Lin s'élargit, comme s'il venait de distinguer quelque chose
 
 « Treize... Il a toujours été excellent, et voilà que sa culture est désormais extraordinaire. À en juger, il progresse très rapidement... »
 
-« Gros Tête, la pauvre âme du monde des grottes qui utilisait sa cruauté pour masquer un cœur fragile. Ici, il est resté le même... »
+« Da Tou, la pauvre âme du monde des grottes qui utilisait sa cruauté pour masquer un cœur fragile. Ici, il est resté le même... »
 
 « C'est... Shengong Hu? Il est devenu le maître d'une secte! » Wang Lin fut quelque peu stupéfait.
 
@@ -32,9 +32,9 @@ Le sourire de Wang Lin s'élargit, comme s'il venait de distinguer quelque chose
 
 « Qing Lin... Lui aussi a choisi de ne pas cultiver et s'est réincarné plusieurs fois comme un simple mortel... »
 
-« Frère Aîné Qing Shui... Hein? » Le regard de Wang Lin devint tranchant et il scruta attentivement l'ouest. Il sentait que c'était là que se trouvait Qing Shui, mais la marque sur son corps était extrêmement ténue. Si le niveau de culture de Wang Lin n'avait pas été bien supérieur à celui d'autrefois, il ne l'aurait jamais détectée.
+« Senior Frère Qing Shui... Hein? » Le regard de Wang Lin devint tranchant et il scruta attentivement l'ouest. Il sentait que c'était là que se trouvait Qing Shui, mais la marque sur son corps était extrêmement ténue. Si le niveau de culture de Wang Lin n'avait pas été bien supérieur à celui d'autrefois, il ne l'aurait jamais détectée.
 
-« Si la marque du Frère Aîné Qing Shui avait totalement disparu, même en balayant tout le monde avec mon Sens Divin, je ne pourrais pas le trouver... Heureusement, une trace de sa marque subsiste encore. »
+« Si la marque du Senior Frère Qing Shui avait totalement disparu, même en balayant tout le monde avec mon Sens Divin, je ne pourrais pas le trouver... Heureusement, une trace de sa marque subsiste encore. »
 
 Wang Lin murmura tandis que son Sens Divin continuait de sonder les 72 continents du clan céleste. Il avait procédé de la même manière dans le clan ancien, mais il n'y avait trouvé aucune trace de ses amis.
 
@@ -64,7 +64,7 @@ Wang Lin pressa sa main contre sa poitrine, accablé par la douleur. Il leva les
 
 « Je n'y crois pas, je finirai par la trouver! » Wang Lin rugit vers la voûte céleste, et son cri résonna à travers le monde.
 
-« Avec l'aide du Maître, la probabilité d'un accident était infime. Puisque je ne peux pas la trouver, l'explication la plus probable est qu'elle a retrouvé ses souvenirs plus tôt que le Frère Aîné Qing Shui, et que sa marque s'est alors effacée... » Wang Lin ferma les yeux et, après analyse, il en était presque certain.
+« Avec l'aide du Maître, la probabilité d'un accident était infime. Puisque je ne peux pas la trouver, l'explication la plus probable est qu'elle a retrouvé ses souvenirs plus tôt que le Senior Frère Qing Shui, et que sa marque s'est alors effacée... » Wang Lin ferma les yeux et, après analyse, il en était presque certain.
 
 Les yeux clos, il pouvait vaguement entrevoir une femme vêtue de blanc, levant les yeux vers le ciel tandis que des larmes coulaient sur ses joues.
 

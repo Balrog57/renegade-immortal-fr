@@ -28,7 +28,7 @@ Wang Lin leva les yeux vers la nuit du Royaume Céleste et songea. Il pointa du 
 
 « Je ne parviens pas à comprendre... Mais je pressens que cette affaire est cruciale. Elle pourrait même être la clé pour résoudre la fusion des trois âmes... Si ce que j'ai vu dans l'illusion n'est pas entièrement vrai, alors il n'y a aucune explication possible... Mais si ce que j'ai vu est réel et que Qing Lin et les autres sont véritablement les sept fragments, alors le fait d'avoir trouvé leurs âmes de destin dans la rétribution divine demeure inexplicable... » Les yeux de Wang Lin devinrent lentement injectés de sang. Il semblait piégé dans une impasse dont il ne pouvait sortir.
 
-Non loin de là, le Grand Empereur Xuan Luo ouvrit les yeux. Il observait Wang Lin. Qu'il s'agisse du rêve de la planète Suzaku ou de la quête de la troisième âme, il avait tout vu.
+Non loin de là, le Grand Empyréen Xuan Luo ouvrit les yeux. Il observait Wang Lin. Qu'il s'agisse du rêve de la planète Suzaku ou de la quête de la troisième âme, il avait tout vu.
 
 « Il est entré dans une boucle et ne pourra pas résoudre ce mystère de sitôt. En vérité, cette affaire est très simple... » Xuan Luo leva la main droite et pointa Wang Lin du doigt.
 
@@ -50,7 +50,7 @@ Son propre Dao Céleste était incomplet, ou plutôt, il ne maîtrisait pas enco
 
 La clarté de son esprit s'estompa peu à peu alors que l'aube pointait à l'horizon. Au loin, Xuan Luo soupira.
 
-« Le Dao Céleste... Peu importe, même moi, je n'en saisis pas tous les mystères. Ce n'est que lors de mon ascension au rang de Grand Empereur que j'ai pu en comprendre un peu plus... Mais pour le percer totalement, ma culture devra franchir une étape supplémentaire... » Les yeux de Xuan Luo brillaient d'une lueur mystérieuse.
+« Le Dao Céleste... Peu importe, même moi, je n'en saisis pas tous les mystères. Ce n'est que lors de mon ascension au rang de Grand Empyréen que j'ai pu en comprendre un peu plus... Mais pour le percer totalement, ma culture devra franchir une étape supplémentaire... » Les yeux de Xuan Luo brillaient d'une lueur mystérieuse.
 
 « Même les neuf soleils cherchent leur voie, mais nul ne la trouve. Nous ne pouvons que profiter du temps imposé par la réincarnation pour méditer... Le Dao Céleste est issu du Royaume Divin Primordial. J'ignore quand ce royaume mystérieux est apparu ou quand l'humanité parviendra à le comprendre pleinement... Ah. » Xuan Luo leva sa main droite et observa son index, où un cercle noir tournait lentement, émettant l'aura du Dao Céleste.
 
@@ -66,4 +66,4 @@ Après un long moment, Wang Lin ouvrit les yeux et se tourna vers l'est, son reg
 
 À cet instant, à Luotian, les quatre généraux volaient en avant. La bête de brume géante secoua la tête et poursuivit sa recherche, ses yeux brillant d'une intensité nouvelle, comme si elle avait décelé une trace. Le Vieux Fantôme Zhan suivait les généraux, l'œil vif; il avait compris le sens du regard de la bête!
 
-Toujours à Luotian, le Daoïste aux Sept Couleurs pénétra depuis la frontière avec le Fleuve Invoqué. N'ayant rien trouvé dans le fleuve, il commença à explorer minutieusement Luotian.
+Toujours à Luotian, le Daoïste aux Sept Couleurs pénétra depuis la frontière avec la Rivière Invoquée. N'ayant rien trouvé dans le fleuve, il commença à explorer minutieusement Luotian.

@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1535 - Madman!"
 slug: le-fou
 ---
-Un ciel étoilé constait ce monde étrange à l'intérieur de la Bête des Limbes, mais il n'y avait aucune vie. Pour être plus précis, très peu de vies. Avant Wang Lin, il n'y avait qu'une seule autre personne!
+Un ciel étoilé couvrait ce monde étrange à l'intérieur de la Bête des Limbes, mais il n'y avait aucune vie. Pour être plus précis, très peu de vies. Avant Wang Lin, il n'y avait qu'une seule autre personne!
 
 C'était ce pauvre cultivateur qui avait été effrayé deux fois par la Bête des Limbes et qui pensait que le monde à l'intérieur de la créature était le véritable monde extérieur.
 
@@ -42,7 +42,7 @@ Le bombardement dura plusieurs jours consécutifs... Si un cultivateur du troisi
 
 « Petite Rose, reçois mon attaque! » Le fou leva la main droite. Le monde trembla et une empreinte de paume gigantesque apparut. Cependant, l'empreinte semblait manquer de puissance et s'effondra dès qu'elle toucha le corps.
 
-Pourtant, la paume était empreinte de force et de majesté. C'était l'Empreinte de l'Esprit de Guerre la plus authentique! Elle ressemblait à celle que le Seigneur du Royaume Scellé avait laissée à la Secte Divin, mais celle utilisée par ce fou était encore plus pure!
+Pourtant, la paume était empreinte de force et de majesté. C'était l'Empreinte de l'Esprit de Guerre la plus authentique! Elle ressemblait à celle que le Seigneur du Royaume Scellé avait laissée à la Secte Divine, mais celle utilisée par ce fou était encore plus pure!
 
 « Petit Argent, regarde comment ce roi te frappe! » rugit le fou, puis il pointa le ciel. Le firmament se transforma soudainement en une voûte et un pilier gigantesque soutenant la voûte céleste apparut. C'était un parapluie colossal!
 
@@ -80,7 +80,7 @@ Alors que le fou marmonnait pour lui-même, il ne remarqua pas que le cadavre, q
 
 Une force rejetait ce sang avec frénésie, comme si les deux ne pouvaient coexister. Cependant, au cœur de ce rejet, il y avait un soupçon de fusion... Ce cadavre était Wang Lin!
 
-Le sang du fou ne pouvait absolument pas se fondre avec la puissance de l'Ordre Ancien qui résidait en lui. Les deux se dévoraient mutuellement dans une lutte acharnée, comme dans un combat à mort. Cette destruction mutuelle provoqua chez Wang Lin un étrange changement. Ce processus semblait transformer sa lignée... passant d'une condition mortelle à celle d'un véritable être céleste!
+Le sang du fou ne pouvait absolument pas se fondre avec la puissance de l'Ordre Antique qui résidait en lui. Les deux se dévoraient mutuellement dans une lutte acharnée, comme dans un combat à mort. Cette destruction mutuelle provoqua chez Wang Lin un étrange changement. Ce processus semblait transformer sa lignée... passant d'une condition mortelle à celle d'un véritable être céleste!
 
 L'arc de Li Guang n'avait reconnu aucun autre maître depuis la mort de son premier possesseur, et même le Vieux Fantôme Zhan ne pensait pas qu'un nouveau maître puisse émerger. Tandis que cette métamorphose s'opérait en Wang Lin, un changement phénoménal se produisait également dans l'arc de Li Guang!
 
@@ -88,7 +88,7 @@ Si le Vieux Fantôme Zhan avait été témoin de la scène, il en serait resté 
 
 La corde brisée, qui s'était intégrée au corps de Wang Lin, fusionnait lentement avec sa nouvelle lignée. La puissance de son sang imprégnait peu à peu l'intégralité de l'arc.
 
-L'arc laissait échapper de faibles échos d'excitation que seul Wang Lin pouvait percevoir. C'était un cri de joie pour avoir trouvé un nouveau maître après la mort du premier, il y a des millénaires!
+L'arc laissait échapper de faibles échos d'excitation que seul Wang Lin pouvait percevoir. C'était un cri de joie pour avoir trouvé un nouveau maître après la mort du premier, il y a d'innombrables années!
 
 L'arc sentait que la lignée changeante de Wang Lin était cent fois plus pure que celle de son précédent maître, comme la différence entre l'eau et le vin!
 

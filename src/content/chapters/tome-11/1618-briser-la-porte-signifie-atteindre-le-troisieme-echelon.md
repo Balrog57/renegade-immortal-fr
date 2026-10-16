@@ -18,7 +18,7 @@ De même, l'aura émanant du vortex près de la Porte du Vide fit ressentir aux 
 
 « J'ai dit qu'il ne pouvait pas mourir. Il ne peut pas mourir. C'est mon frère, il ne peut pas mourir! » s'écria Situ Nan en tremblant, les yeux brillants de joie, avant d'éclater de rire.
 
-Le Maître Sud Nuage eut le souffle coupé. Il devinait déjà qui avait eu la chance de déclencher la Porte du Vide avec six essences, mais maintenant qu'il ressentait cette aura, il se mit lui aussi à rire.
+Le Maître Nan Yunzi eut le souffle coupé. Il devinait déjà qui avait eu la chance de déclencher la Porte du Vide avec six essences, mais maintenant qu'il ressentait cette aura, il se mit lui aussi à rire.
 
 « Bien, bien, bien! Comment le Seigneur du Royaume Scellé pourrait-il mourir! »
 

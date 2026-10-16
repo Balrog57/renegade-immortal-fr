@@ -66,7 +66,7 @@ Sans l'ombre d'une hésitation, Wang Lin leva le pied. Il ne chargea plus vers l
 
 Avant que la créature ne puisse s'approcher, elle balança sa queue qui fouetta l'air vers Wang Lin tel un coup de fouet. Ce dernier afficha un regard glacial et ignora totalement l'attaque. Il leva les bras et agrippa la terre devant lui.
 
-« Déchirure Céleste! » Sa culture de stade intermédiaire de la Tribulation du Vide s'était fusionnée avec son Pouvoir Dao Antique pour engendrer un sort qui n'appartenait plus au Dao Antique!
+« Déchirure du Ciel! » Sa culture de stade initial de la Tribulation du Vide s'était fusionnée avec son Pouvoir Dao Antique pour engendrer un sort qui n'appartenait plus au Dao Antique!
 
 Les mains de Wang Lin déchirèrent soudainement le sol, créant une faille gigantesque devant lui. Celle-ci s'étira directement vers le scorpion en approche!
 
@@ -78,7 +78,7 @@ Alors que la fissure s'ouvrait, un jet de gaz vert jaillit dans un cri misérabl
 
 L'un des quatre Messagers du Démon Vert pâlit et cracha du sang.
 
-Un seul « Déchirure Céleste » avait suffi à tuer une âme de Scorpion Vert. Wang Lin observa le reste du combat et tourna la tête pour voir trois masses de gaz vert charger vers lui. Il s'agissait de trois autres scorpions identiques qui fonçaient avec férocité.
+Un seul « Déchirure du Ciel » avait suffi à tuer une âme de Scorpion Vert. Wang Lin observa le reste du combat et tourna la tête pour voir trois masses de gaz vert charger vers lui. Il s'agissait de trois autres scorpions identiques qui fonçaient avec férocité.
 
 « Je me demande si, avec mon niveau de culture actuel, l'usage de la Lance aux Sept Couleurs posséderait la puissance de plusieurs soleils, comme lorsqu'elle était maniée par le Souverain Céleste aux Sept Couleurs à son apogée? » pensa Wang Lin, l'intention de combat montant en lui.
 

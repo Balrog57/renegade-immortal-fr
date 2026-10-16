@@ -10,7 +10,7 @@ L'Alliance de la Culture tout entière sembla trembler sous ce rugissement. Seul
 
 À l'instant même où Nuit Brisée disparut et que Wang Lin réapparut dans les Terres de l'Esprit Démoniaque, le chaos infini de la 18e couche de son Sceau Céleste des 18 Enfers fut transpercé par une puissance inimaginable, et trois âmes apparurent à l'intérieur!
 
-L'âme du Maître Vide lors de sa première Affliction Céleste, l'avatar aux robes violettes de l'Omniscient, et l'avatar aux robes jaunes de l'Omniscient!
+L'âme du Maître du Vide lors de son premier Fléau Céleste, l'avatar aux robes violettes de l'Omniscient, et l'avatar aux robes jaunes de l'Omniscient!
 
 Inopinément, les deux avatars commencèrent à fusionner dans la 18e couche!
 
@@ -34,7 +34,7 @@ L'oiseau blanc tourna autour de Wang Lin en continuant de crier. Puis, une mer d
 
 Alors que les cris de l'Oiseau Vermillon résonnaient, une tête gigantesque d'oiseau émergea de la mer de flammes. Sa taille était telle qu'elle occupait presque tout le ciel. Le feu qui émanait de son corps semblait vouloir assécher la terre entière.
 
-Dès l'apparition de cette tête, une pression inimaginable s'abattit sur les lieux. Le Maître Vent Creux et ses compagnons furent tirés de leur stupeur et haletèrent. Les yeux de Situ Nan s'écarquillèrent de stupeur.
+Dès l'apparition de cette tête, une pression inimaginable s'abattit sur les lieux. Le Maître Fu Fengzi et ses compagnons furent tirés de leur stupeur et haletèrent. Les yeux de Situ Nan s'écarquillèrent de stupeur.
 
 Même les pupilles de Ling Tianhou se rétractèrent lorsqu'il leva la tête.
 
@@ -68,7 +68,7 @@ Dans le ciel, des centaines de personnes apparurent derrière l'Oiseau Vermillon
 
 Les Briseurs du Nirvana!
 
-Derrière ces six individus, tous les membres de la Secte Divin de l'Oiseau Vermillon projetaient de puissantes auras de flammes. À leur apparition, leurs regards se fixèrent tous sur Wang Lin.
+Derrière ces six individus, tous les membres de la Secte Divine de l'Oiseau Vermillon projetaient de puissantes auras de flammes. À leur apparition, leurs regards se fixèrent tous sur Wang Lin.
 
 Lorsque les six anciens aperçurent Wang Lin, leurs visages exprimèrent un mélange d'excitation et de choc!
 
@@ -76,6 +76,6 @@ Leur excitation venait du fait qu'ils avaient parcouru tout ce chemin pour prot�
 
 Cependant, ce qui les choqua, c'est que bien qu'ils fussent à l'extérieur, au moment où la loi d'origine apparut, ils furent eux aussi entraînés dans l'illusion de Nuit Brisée. Après avoir subi un sortilège aussi terrifiant, comment ne pas être stupéfaits?
 
-Une trace de crainte se mêlait à ce choc! Si ces six-là étaient ainsi affectés, qu'en serait-il des centaines d'autres membres de la Secte Divin de l'Oiseau Vermillon? Ils regardaient tous Wang Lin avec un fanatisme ardent. S'il n'y avait pas d'imprévu, cet homme serait leur prochain Empereur Divin!
+Une trace de crainte se mêlait à ce choc! Si ces six-là étaient ainsi affectés, qu'en serait-il des centaines d'autres membres de la Secte Divine de l'Oiseau Vermillon? Ils regardaient tous Wang Lin avec un fanatisme ardent. S'il n'y avait pas d'imprévu, cet homme serait leur prochain Empereur Divin!
 
-L'un des six anciens, dont les vêtements étaient ornés de sept oiseaux vermillons, cria immédiatement: « Protégez celui qui s'est éveillé! » Aussitôt, les six anciens se précipitèrent aux côtés de Wang Lin. Le reste des disciples de la Secte Divin de l'Oiseau Vermillon se déploya, lançant des regards empreints d'une intention meurtrière à tous ceux qui les entouraient.
+L'un des six anciens, dont les vêtements étaient ornés de sept oiseaux vermillons, cria immédiatement: « Protégez celui qui s'est éveillé! » Aussitôt, les six anciens se précipitèrent aux côtés de Wang Lin. Le reste des disciples de la Secte Divine de l'Oiseau Vermillon se déploya, lançant des regards empreints d'une intention meurtrière à tous ceux qui les entouraient.

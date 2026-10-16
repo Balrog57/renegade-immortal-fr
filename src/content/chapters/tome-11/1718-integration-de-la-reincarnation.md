@@ -46,13 +46,13 @@ Alors qu'il fusionnait avec l'âme de l'Omniscient, l'étincelle d'essence de re
 
 « Quelque chose ne va pas! » Plus Qing Lin observait, plus la situation lui semblait étrange. Sans hésiter, il pointa du doigt l'espace entre les sourcils de Wang Lin.
 
-« Sort de l'emprise! » D'un geste, le corps de Wang Lin trembla et se figea. Tout ce qui se trouvait en lui fut contraint à l'immobilité par le sort d'arrêt.
+« Sort d'arrêt! » D'un geste, le corps de Wang Lin trembla et se figea. Tout ce qui se trouvait en lui fut contraint à l'immobilité par le sort d'arrêt.
 
 Ensuite, le doigt de Qing Lin glissa vers la poitrine de Wang Lin. Il en extirpa un fil qu'il enroula autour de son doigt.
 
 Les yeux de Qing Lin s'illuminèrent en fixant ce fil. Ce dernier était une portion de l'essence de restriction qui bougeait de façon autonome. Le sens divin de Qing Lin se concentra sur ce fil. Lorsqu'il y pénétra, son esprit fut secoué et le monde autour de lui devint soudainement chaotique. Lorsqu'il retrouva une vision claire, un système stellaire familier apparut devant lui.
 
-Ce système stellaire était la Rivière des Appels!
+Ce système stellaire était la Rivière Invoquée!
 
 « L'essence de restriction de Wang Lin qui s'agitait de façon autonome a été transportée ici!! » Qing Lin, présent via son sens divin, vit le fil devant lui. Celui-ci s'étendait dans l'immensité sans que l'on puisse en voir la fin.
 
@@ -76,9 +76,9 @@ Dans le Royaume Céleste, sur la montagne enneigée, le mince fil entre les main
 
 Wang Lin fut également stupéfait, et le sort d'arrêt se dissipa. Il se sépara de la fusion et ouvrit les yeux.
 
-Qing Lin dit lentement: « Je n'ai jamais vu l'Omniscient, mais j'ai vu une lumière aux sept couleurs! Lors de votre fusion, une trace de votre essence de restriction s'est étendue vers la Rivière des Appels sous l'effet d'une force mystérieuse. Je l'ai poursuivie, mais j'ai été intercepté par une lame aux sept couleurs. »
+Qing Lin dit lentement: « Je n'ai jamais vu l'Omniscient, mais j'ai vu une lumière aux sept couleurs! Lors de votre fusion, une trace de votre essence de restriction s'est étendue vers la Rivière Invoquée sous l'effet d'une force mystérieuse. Je l'ai poursuivie, mais j'ai été intercepté par une lame aux sept couleurs. »
 
-« La Rivière des Appels... » Un éclat de froideur passa dans les yeux de Wang Lin.
+« La Rivière Invoquée... » Un éclat de froideur passa dans les yeux de Wang Lin.
 
 « Si mon intuition est correcte, alors l'âme que vous tenez est votre lien avec lui. À travers son âme, il peut vous voler vos essences! Cette personne est véritablement incroyable d'avoir conçu une telle méthode, mais comment a-t-elle procédé? Comment pourrait-elle voler vos essences avec un simple avatar... »
 
@@ -90,13 +90,13 @@ L'intention meurtrière dans les yeux de Wang Lin s'intensifia. C'étaient des q
 
 À cet instant précis, une voix ancienne résonna à travers la montagne enneigée et parvint aux oreilles de Wang Lin et Qing Lin.
 
-« À mes jeunes années, j'ai entendu parler d'un sort. Ce sort est appelé le Sort d'Intégration de la Réincarnation... » Au moment même où la voix se manifestait, une lumière bleue apparut dans le ciel, se reflétant sur les neiges. Le Maître Dao Bleu Rêve marchait vers la montagne.
+« À mes jeunes années, j'ai entendu parler d'un sort. Ce sort est appelé le Sort d'Intégration de la Réincarnation... » Au moment même où la voix se manifestait, une lumière bleue apparut dans le ciel, se reflétant sur les neiges. Le Maître du Dao Rêve Bleu marchait vers la montagne.
 
-« Qing Lin salue le Senior Maître du Dao », dit Qing Lin, surpris, en joignant les mains devant le Maître Dao Bleu Rêve.
+« Qing Lin salue le Senior Maître du Dao », dit Qing Lin, surpris, en joignant les mains devant le Maître du Dao Rêve Bleu.
 
 « Le Sort d'Intégration de la Réincarnation? » Les yeux de Wang Lin se plissèrent.
 
-Le Maître Dao Bleu Rêve atterrit sur la montagne et sourit à Qing Lin avant de tourner son regard vers Wang Lin, empreint de bienveillance.
+Le Maître du Dao Rêve Bleu atterrit sur la montagne et sourit à Qing Lin avant de tourner son regard vers Wang Lin, empreint de bienveillance.
 
 « J'ai entendu dire que ce sort provenait du Souverain. On dit qu'il s'agit de l'un des sorts du Souverain Céleste aux Sept Couleurs. Pourtant, même le Souverain Céleste aux Sept Couleurs n'a pas réussi à le maîtriser... »
 
@@ -110,12 +110,12 @@ Le Maître Dao Bleu Rêve atterrit sur la montagne et sourit à Qing Lin avant d
 
 Wang Lin réfléchit en silence.
 
-« Bien que je ne connaisse pas les détails de ce sort, tous les sorts ont une faiblesse. Ce Sort d'Intégration de la Réincarnation n'échappe pas à la règle. Si vous parvenez à dévorer l'autre partie, votre niveau de culture augmentera », déclara lentement le Maître Dao Bleu Rêve, le regard brillant.
+« Bien que je ne connaisse pas les détails de ce sort, tous les sorts ont une faiblesse. Ce Sort d'Intégration de la Réincarnation n'échappe pas à la règle. Si vous parvenez à dévorer l'autre partie, votre niveau de culture augmentera », déclara lentement le Maître du Dao Rêve Bleu, le regard brillant.
 
 « Je vais vous aider à trouver la personne qui a utilisé ce sort sur vous. Je veux voir quel talent il faut posséder pour cultiver un sort que même le Souverain Céleste aux Sept Couleurs n'a pu maîtriser! »
 
-« Cependant, vous devrez le tuer vous-même, car vous et cette âme êtes déjà intégrés en un seul être. Peut-être est-ce là une immense chance pour vous. » Le Maître Dao Bleu Rêve leva la main droite et une lumière bleue monstrueuse se condensa dans sa paume. Il la pressa entre les sourcils de Wang Lin!
+« Cependant, vous devrez le tuer vous-même, car vous et cette âme êtes déjà intégrés en un seul être. Peut-être est-ce là une immense chance pour vous. » Le Maître du Dao Rêve Bleu leva la main droite et une lumière bleue monstrueuse se condensa dans sa paume. Il la pressa entre les sourcils de Wang Lin!
 
-L'esprit de Wang Lin trembla et tout ce qui l'entourait fut enveloppé d'une lumière bleue. Il vit les étoiles défiler devant lui au sein de cette clarté. À cet instant, il aperçut la Rivière des Appels et le météore flottant dans la Rivière!
+L'esprit de Wang Lin trembla et tout ce qui l'entourait fut enveloppé d'une lumière bleue. Il vit les étoiles défiler devant lui au sein de cette clarté. À cet instant, il aperçut la Rivière Invoquée et le météore flottant dans la Rivière!
 
 Et l'Omniscient, assis à l'intérieur du météore, ouvrit soudainement les yeux, frappé de stupeur! Le regard de Wang Lin se superposa à celui de l'Omniscient à cet instant précis!

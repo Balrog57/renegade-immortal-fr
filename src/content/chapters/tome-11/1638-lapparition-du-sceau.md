@@ -28,7 +28,7 @@ Les environs étaient plongés dans un silence absolu, comme si tel était l'ét
 
 « Il a franchi la troisième étape et brisé la rétribution divine pour parvenir jusqu'ici. Il a même brisé le neuvième soleil et repris possession de son propre destin. Cet exploit est incroyable, et il l'a accompli. Tigre Blanc, tu te moques de lui, mais si tu étais un cultivateur du royaume inférieur, aurais-tu pu faire une telle chose...? » Une voix froide et antique émana d'une autre statue.
 
-« Si c'était moi, cela ne signifie pas que je serais incapable de le faire! Nous, les êtres célestes, portons sur nos souvenirs des sceaux imposés par le Seigneur Souverain. C'est une chance immense dont ma Secte aux Sept Dao pourrait profiter. Je ne suis pas surpré par le fait que cette petite fourmi puisse blesser gravement un Soldat Céleste en convalescence, mais je suis certain qu'il trouvera sa propre mort s'il tente de briser le sceau du Seigneur Souverain! »
+« Si c'était moi, cela ne signifie pas que je serais incapable de le faire! Nous, les êtres célestes, portons sur nos souvenirs des sceaux imposés par le Seigneur Souverain. C'est une chance immense dont ma Secte aux Sept Dao pourrait profiter. Je ne suis pas surpris par le fait que cette petite fourmi puisse blesser gravement un Soldat Céleste en convalescence, mais je suis certain qu'il trouvera sa propre mort s'il tente de briser le sceau du Seigneur Souverain! »
 
 « Assez, pourquoi vous disputez-vous? Oiseau Vermillon, ton descendant est effectivement un peu trop arrogant. Et s'il venait à mourir à cause du sceau du Seigneur Souverain? Cela aurait-il un impact sur ton plan? » Une troisième voix s'éleva de la troisième statue.
 
@@ -82,7 +82,7 @@ Les yeux de Wang Lin se rétrécirent. Dès que l'empreinte se brisa, il pointa 
 
 Wang Lin fixa l'homme d'âge moyen et fit un pas de plus. Il se tint devant lui et joignit ses deux doigts pour former une épée. Ses étoiles de Dieu Antique tournèrent, injectant une quantité massive de puissance de Dieu Antique dans ses doigts. À cet instant, ses doigts contenaient assez de force pour briser la terre ou même anéantir une planète entière.
 
-Ses doigts émis un grondement tonitruant en se refermant sur l'homme d'âge moyen. En un éclair, ils ne furent plus qu'à trois pouces de lui.
+Ses doigts émirent un grondement tonitruant en se refermant sur l'homme d'âge moyen. En un éclair, ils ne furent plus qu'à trois pouces de lui.
 
 Lorsqu'il franchit la barrière des trois pouces, ses yeux brillèrent et il vit ses doigts se désintégrer rapidement. Il n'y eut aucune douleur, mais il put clairement voir sa chair se défaire.
 

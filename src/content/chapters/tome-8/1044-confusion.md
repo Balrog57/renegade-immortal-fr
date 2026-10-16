@@ -18,7 +18,7 @@ Boum!
 
 Un bruit assourdissant retentit, faisant trembler violemment la grotte et la terre entière. Les cinq dragons de flammes noires étaient tels des éclairs noirs; ils explosèrent au contact du fantôme, provoquant une détonation inimaginable.
 
-Le grondement tonnerre se fondit dans ses propres échos pour devenir le seul son audible tandis qu'il se propageait.
+Le grondement du tonnerre se fondit dans ses propres échos pour devenir le seul son audible tandis qu'il se propageait.
 
 De pans entiers de roche se détachèrent des parois du gouffre, donnant l'impression que la fosse elle-même s'effondrait. Des éclairs de flammes et des rugissements furieux s'échappaient du fond du précipice.
 
@@ -38,7 +38,7 @@ Cela pouvait paraître impressionnant, mais ce n'était pas encore suffisant pou
 
 Après l'usage d'« Invoquer la Pluie », la chute des innombrables gouttes poussa l'effondrement du gouffre à son point de rupture. Les grondements incessants continuèrent alors que d'innombrables roches s'engouffraient pour tenter de combler le vide!
 
-Aux côtés de « Appeler le Vent », ces deux sorts de Bai Fan avaient subi une mutation. Wang Lin n'eut pas le temps d'observer ce changement; après avoir utilisé « Invoquer la Pluie », il chargea immédiatement vers les restrictions du palais.
+Aux côtés de « Invoquer le Vent », ces deux sorts de Bai Fan avaient subi une mutation. Wang Lin n'eut pas le temps d'observer ce changement; après avoir utilisé « Invoquer la Pluie », il chargea immédiatement vers les restrictions du palais.
 
 Auparavant, Wang Lin avait mémorisé la carte. Elle ne se contentait pas de détailler l'itinéraire à suivre, elle indiquait même l'emplacement des restrictions.
 
@@ -52,7 +52,7 @@ Bien que le fantôme fût encore translucide, la majorité des lignes rouges qui
 
 Après avoir jailli du gouffre, il vit immédiatement Wang Lin s'approcher de la forêt de bambous. Une intention meurtrière envahit ses yeux et il poussa un rugissement vers lui.
 
-Roar!
+Grrraaah!
 
 Le cri fit trembler le monde, déclenchant certaines des restrictions environnantes. Cependant, avant qu'elles ne puissent déployer leur pleine puissance, elles se brisèrent une à une.
 
@@ -104,7 +104,7 @@ Désormais, hormis les derniers étages, il connaissait l'architecture de toute 
 
 Celles du premier étage n'étaient déjà pas faibles, mais en descendant plus profondément, leur puissance atteindrait un niveau terrifiant.
 
-« C'est la véritable Grotte de l'Empereur Céleste. À l'origine, lorsqu'on entrait de l'extérieur, on était transféré ici. Cependant, ce transfert a été interrompu par le démon dispersé à la bouteille, et tout le monde s'est retrouvé dans le monde de la bouteille. Après notre départ, il a invoqué le Bassin du Sépulcre Céleste et l'a fait s'effondrer pour nous disperser une fois de plus. Son but était de nous faire perdre notre chemin dans la Grotte de l'Empereur Céleste. » Les yeux de Wang Lin s'illuminèrent. Bien qu'il possède une carte, elle était incomplète; elle ne couvrait que les sept premiers étages. Les deux derniers semblaient avoir été effacés du jade par quelqu'un.
+« C'est la véritable Grotte de l'Empereur Céleste. À l'origine, lorsqu'on entrait de l'extérieur, on était transféré ici. Cependant, ce transfert a été interrompu par le démon dispersé à la bouteille, et tout le monde s'est retrouvé dans le monde de la bouteille. Après notre départ, il a invoqué le Bassin Funéraire Céleste et l'a fait s'effondrer pour nous disperser une fois de plus. Son but était de nous faire perdre notre chemin dans la Grotte de l'Empereur Céleste. » Les yeux de Wang Lin s'illuminèrent. Bien qu'il possède une carte, elle était incomplète; elle ne couvrait que les sept premiers étages. Les deux derniers semblaient avoir été effacés du jade par quelqu'un.
 
 Wang Lin l'avait remarqué dès l'obtention de la pierre précieuse, et après comparaison avec la grotte, il en était désormais certain.
 

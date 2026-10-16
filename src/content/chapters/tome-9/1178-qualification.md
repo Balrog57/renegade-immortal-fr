@@ -114,7 +114,7 @@ Non loin de Peng Lai, dans la région de rang 5, se trouvait un minuscule contin
 
 « Maître Pin Cendré, cet endroit est le plus secret parmi nous. Pourquoi voulez-vous faire venir cet homme nommé Lu? » demanda un vieil homme au visage balafré. C'était le même qu'il avait croisé lors de l'enchère de Maître Pin Cendré.
 
-Maître Pin Cendré, d'un air serein, répondit: « Cet homme peut utiliser l'Empreinte de l'Esprit de Guerre. Sa présence augmentera mes chances de succès de 20 %! De plus, je devrai solliciter le sortilège du camarade cultivateur Zhao pour nous guider. Une fois la tâche accomplie, conformément à notre accord, le camarade cultivateur Zhao pourra choisir les trois premiers matériaux! »
+Maître Pin Cendré, d'un air serein, répondit: « Cet homme peut utiliser l'Empreinte de l'Esprit Guerrier. Sa présence augmentera mes chances de succès de 20 %! De plus, je devrai solliciter le sortilège du camarade cultivateur Zhao pour nous guider. Une fois la tâche accomplie, conformément à notre accord, le camarade cultivateur Zhao pourra choisir les trois premiers matériaux! »
 
 Le regard de Maître Pin Cendré se posa sur une autre personne, également familière à Wang Lin: une vieille femme vêtue de vert.
 
@@ -126,7 +126,7 @@ Dès son apparition, une odeur de sang entêtante envahit l'air. D'innombrables 
 
 « Maître Pin Cendré, j'ai croisé quelques ennemis en chemin, ce qui explique mon retard. » Le visage du vieil homme était pâle, mais ses yeux brillaient d'une lueur sinistre.
 
-« Maître Nuage-Âme! » Les yeux de l'homme balafré se plissèrent à la vue de la couronne.
+« Maître Nuage d'Âme! » Les yeux de l'homme balafré se plissèrent à la vue de la couronne.
 
 Le visage du vieillard couronné eut un tressaillement avant d'afficher un sourire sombre. « Camarade cultivateur Pang, nous nous revoyons. » Puis il tourna son regard vers la vieille femme, pour enfin le fixer sur Maître Pin Cendré.
 
@@ -136,8 +136,8 @@ Maître Pin Cendré se lécha les lèvres et répondit lentement: « Il y en a t
 
 Une robe blanche, des cheveux noirs flottants et un regard indifférent. Wang Lin sortit de la brume et fixa les quatre individus.
 
-« Un junior du Purificateur du Nirvana? Maître Pin Cendré, voulez-vous impliquer un junior du Purificateur du Nirvana dans cette affaire? » Maître Nuage-Âme fronça les sourcils.
+« Un junior du Purificateur du Nirvana? Maître Pin Cendré, voulez-vous impliquer un junior du Purificateur du Nirvana dans cette affaire? » Maître Nuage d'Âme fronça les sourcils.
 
 « Ce n'est pas un junior du Purificateur du Nirvana! » sourit Maître Pin Cendré.
 
-« Oh? » Les yeux de Maître Nuage-Âme s'illuminèrent. Alors que Wang Lin s'approchait, il agita sa main droite et d'innombrables fragments d'âmes foncèrent sur lui.
+« Oh? » Les yeux de Maître Nuage d'Âme s'illuminèrent. Alors que Wang Lin s'approchait, il agita sa main droite et d'innombrables fragments d'âmes foncèrent sur lui.

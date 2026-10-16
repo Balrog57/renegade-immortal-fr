@@ -60,7 +60,7 @@ Une aura familière se dégagea de ce bassin octogonal, et Wang Lin fut envahi p
 
 « C'est donc bien cela!! »
 
-Il existait un clan dans le Système des Anciennes Étoiles appelé le Clan de l'Extermination des Sceaux, et ils possédaient un sortilège nommé le Sortilège des Trois Vies! Pour cultiver ce sort, il fallait l'autel complet, mais pour une raison inconnue, celui-ci avait été divisé en trois parties qui s'étaient égarées.
+Il existait un clan dans le Système Stellaire Antique appelé le Clan de l'Extermination des Sceaux, et ils possédaient un sortilège nommé le Sortilège des Trois Vies! Pour cultiver ce sort, il fallait l'autel complet, mais pour une raison inconnue, celui-ci avait été divisé en trois parties qui s'étaient égarées.
 
 Wang Lin avait eu la chance d'obtenir le Pavillon de Sang de l'Ancêtre Sanguin dans le Vide Brillant. Ce pavillon était l'un des trois autels! Puis, il avait appris l'existence du Sortilège des Trois Vies et obtenu le deuxième autel auprès de l'Ancien Démon à Luotian.
 
@@ -88,7 +88,7 @@ Cette douleur était insignifiante pour Wang Lin. Il resta calme, mordit le bout
 
 Dès que la voix de Wang Lin résonna, le sang qu'il avait craché se condensa et commença à onduler frénétiquement devant lui. Puis, les trois autels libérèrent une lumière rouge aveuglante qui fut absorbée par le sang.
 
-Le sang prit lentement la forme d'une lame. Elle n'était pas imposante, mesurant environ trois mètres de long, mais elle ressemblait à des ombres superposées; celui qui la fixait trop longtemps voyait sa vue se brouiller.
+Le sang prit lentement la forme d'une lame. Elle n'était pas imposante, mesurant environ dix pieds de long, mais elle ressemblait à des ombres superposées; celui qui la fixait trop longtemps voyait sa vue se brouiller.
 
 En l'examinant avec son Sens Divin, Wang Lin remarqua immédiatement qu'il ne s'agissait pas d'une seule lame, mais de trois lames superposées, créant une aura étrange autour d'elles.
 
@@ -102,6 +102,6 @@ Son corps trembla violemment et son visage pâlit. Une douleur inimaginable l'en
 
 Cependant, au moment où la lame tranchait Wang Lin, elle sembla incapable de supporter la puissance de l'âme de celui-ci et s'effondra! Sur les trois lames superposées, il n'en resta que deux!
 
-L'âme de Wang Lin avait fusionné avec le Sang de l'Âme de l'Ancêtre Sanguin pour devenir une Âme Dao Ancienne; comment une simple lame pouvait-elle trancher son âme? Si ce n'était pas parce que l'âme de Wang Lin était formée par son sang essentiel, la lame n'aurait pu le blesser du tout.
+L'âme de Wang Lin avait fusionné avec le Sang de l'Âme de l'Ancêtre Ancestral pour devenir une Âme Dao Ancienne; comment une simple lame pouvait-elle trancher son âme? Si ce n'était pas parce que l'âme de Wang Lin était formée par son sang essentiel, la lame n'aurait pu le blesser du tout.
 
 Bien qu'elle eût réussi à diviser l'âme de Wang Lin en trois, la lame ne put résister à la force de recul de son âme. Elle se dissipa à jamais, incapable d'être invoquée de nouveau.

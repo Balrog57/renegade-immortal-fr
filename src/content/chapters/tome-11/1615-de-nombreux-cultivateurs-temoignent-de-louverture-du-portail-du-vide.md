@@ -56,7 +56,7 @@ Parmi eux se trouvaient aussi le Maître Long Pan et le Maître Lu Fu.
 
 Après son réveil, le Maître Long Pan gardait un souvenir profond de Wang Lin et savait qu'il était le Seigneur du Royaume Scellé. Il savait que la planète Suzaku était la patrie de Wang Lin et que c'était là que ce dernier avait disparu.
 
-Il n'était pas obligé de venir, mais le Maître Long Pan l'avait fait malgré tout. Il n'avait pas emmené son disciple, Xuan Zhong. Utilisant une puissance équivalente à celle d'un cultivateur du Vide Arcane, il employait la peinture des Rivières et des Montagnes pour empêcher les cultivateurs du Royaume Extérieur de briser la planète Suzaku.
+Il n'était pas obligé de venir, mais le Maître Long Pan l'avait fait malgré tout. Il n'avait pas emmené son disciple, Zhong Xuan. Utilisant une puissance équivalente à celle d'un cultivateur du Vide Arcane, il employait la peinture des Rivières et des Montagnes pour empêcher les cultivateurs du Royaume Extérieur de briser la planète Suzaku.
 
 Le Maître Lu Fu n'était pas non plus retourné à Luotian, bien qu'il fût l'ancêtre de Luotian. Cependant, au cours des dernières décennies, il avait été témoin d'innombrables morts et avait trop vu. Profondément ému par Wang Lin, il était resté silencieusement pour combattre!
 

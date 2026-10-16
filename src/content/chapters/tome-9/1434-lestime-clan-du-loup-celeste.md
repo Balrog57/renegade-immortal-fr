@@ -12,13 +12,13 @@ Tout se passa en un éclair. À l'instant même où le hurlement du loup projeta
 
 En un instant, le bras se referma!
 
-L'aura émanant de cette main contenait des Flammes Joss. Celui qui cherchait à capturer Wang Lin n'était pas un cultivateur du deuxième pas, mais un cultivateur du troisième pas! Pour être précis, il s'agissait d'un être venant tout juste d'atteindre ce stade, semblable au Daoïste Shui ou au Maître Simo, au début du Nirvana Vide!
+L'aura émanant de cette main contenait des Flammes Joss. Celui qui cherchait à capturer Wang Lin n'était pas un cultivateur du deuxième pas, mais un cultivateur du troisième pas! Pour être précis, il s'agissait d'un être venant tout juste d'atteindre ce stade, semblable au Shui Daozi ou au Maître Simo, au début du Nirvana Vide!
 
 Cette aura, particulièrement tyrannique, fondit sur Wang Lin.
 
 Sans la moindre hésitation, Wang Lin fit volte-face. D'un revers de main, il fit apparaître un clou dans sa paume! Ce clou était d'un noir profond et dégageait une lueur sinistre, d'où s'échappaient même des hurlements plaintifs.
 
-Ce clou lui avait été offert par le vieil homme en souvenir du Vieux Oiseau Vermillon!
+Ce clou lui avait été offert par le vieil homme en raison du Vieux Oiseau Vermillon!
 
 Wang Lin lança le clou sans attendre. En un battement de cils, l'objet se transforma en une bourrasque de vent noir et percuta la paume géante.
 
@@ -36,7 +36,7 @@ Des rugissements sourds montèrent de la faille alors que Wang Lin faisait un pa
 
 Trois respirations après son départ, l'Ancienne Feuille qui scellait la brèche se mua en poussière de lumière et s'évanouit.
 
-Wang Lin réapparut quelque part dans le Système d'Étoiles Anciennes. Sa main droite traça un sceau tandis qu'il commandait: « Feuille Tombée, retourne à tes racines! »
+Wang Lin réapparut quelque part dans le Système Stellaire Antique. Sa main droite traça un sceau tandis qu'il commandait: « Feuille Tombée, retourne à tes racines! »
 
 Un éclat de lumière cristalline apparut devant lui, se matérialisant en l'Ancienne Feuille qu'il saisit. Un regard glacial passa dans ses yeux alors qu'il s'élançait à nouveau. Utilisant une nouvelle fois la Distorsion Spatiale, il disparut sans laisser de trace.
 
@@ -48,7 +48,7 @@ Une fois l'Ancienne Feuille disparue de la faille au-dessus de la planète aband
 
 C'était un homme massif d'une trentaine de pieds de haut. Le torse nu, il affichait une expression féroce et un regard impitoyable. Entre ses sourcils se trouvait une marque: celle d'un loup vert sauvage!
 
-Sous les ordres du Conseil Souverain, il appartenait à l'un des quatre clans redoutables du Système d'Étoiles Anciennes: l'Estimé Clan du Loup Céleste!
+Sous les ordres du Conseil Souverain, il appartenait à l'un des quatre clans redoutables du Système Stellaire Antique: l'Estimé Clan du Loup Céleste!
 
 Il n'était pas seul; une jeune fille était assise sur son épaule. Vêtue de rouge, elle possédait une beauté charmante. Son visage délicat rappelait la douceur d'une pêche et ses sourcils étaient d'une élégance rare. Un simple geste de sa main suffisait à envoûter les esprits.
 
@@ -64,7 +64,7 @@ Alors que la planète se désagrégeait, l'homme s'élança dans le vide, décle
 
 La sphère frappa le vide et le tordit, créant un trou noir dans lequel l'homme s'engouffra.
 
-Wang Lin progressait à travers le Système d'Étoiles Anciennes par Distorsion Spatiale. Dès son apparition, il leva la main et projeta l'Ancienne Feuille derrière lui sans hésiter.
+Wang Lin progressait à travers le Système Stellaire Antique par Distorsion Spatiale. Dès son apparition, il leva la main et projeta l'Ancienne Feuille derrière lui sans hésiter.
 
 À cet instant précis, un trou noir se manifesta dans l'espace derrière lui, et la silhouette de l'homme massif commença à émerger.
 
@@ -80,7 +80,7 @@ Sous son regard, la feuille se mua en lumière cristalline et se dissipa.
 
 « Ne sous-estimez pas cet individu. S'il n'était pas gravement blessé, il ne vous serait pas si facile de le capturer avec votre niveau de culture... » La jeune fille sourit en consultant sa boussole. « Nord-ouest, 378 496 kilomètres! »
 
-L'homme massif lança un regard froid à la jeune fille. Bien qu'il fût au troisième pas, il ne souhaitait pas l'offenser outre mesure. Elle était la servante du Maître du Dao Miao Yin, l'un des cinq maîtres du Système d'Étoiles Anciennes, et c'était elle qui l'avait sollicité pour traquer Wang Lin.
+L'homme massif lança un regard froid à la jeune fille. Bien qu'il fût au troisième pas, il ne souhaitait pas l'offenser outre mesure. Elle était la servante du Maître du Dao Miao Yin, l'un des cinq maîtres du Système Stellaire Antique, et c'était elle qui l'avait sollicité pour traquer Wang Lin.
 
 « Votre maître devrait être à la Tombe de l'Ordre Ancien. Quel est votre dessein en me cherchant? » L'homme n'était pas pressé de poursuivre sa proie.
 
@@ -96,7 +96,7 @@ L'homme médita un instant en silence. Sans mot dire, il fit un pas en avant.
 
 L'homme massif laissa échapper un grognement et déchira l'espace devant lui pour disparaître.
 
-Wang Lin émergea de l'espace distordu au sein du Système d'Étoiles Anciennes. Devant lui se trouvaient six planètes de culture disposées en cercle, protégées par une formation. C'était un domaine appartenant à un clan du système.
+Wang Lin émergea de l'espace distordu au sein du Système Stellaire Antique. Devant lui se trouvaient six planètes de culture disposées en cercle, protégées par une formation. C'était un domaine appartenant à un clan du système.
 
 D'un coup d'œil, on pouvait voir la projection illusoire d'une tête de loup scintiller sur la formation, signalant l'appartenance de ces lieux.
 
@@ -114,8 +114,8 @@ Tous les cultivateurs ayant atteint un certain niveau furent pris au piège par 
 
 La brume rouge se propagea rapidement vers les autres planètes. Normalement, les cris des mortels ne dépassent pas l'atmosphère d'une planète, mais là, tant de voix s'unirent qu'elles résonnèrent à travers les étoiles!
 
-Ces six planètes étaient une nouvelle branche du clan du Loup Céleste, peuplée uniquement de cultivateurs et dépourvue de mortels. Sous le passage de la brume rouge, la quasi-totalité d'entre eux fut exterminée!
+Ces six planètes étaient une nouvelle branche du clan du Loup Céleste, peuplée uniquement de cultivateurs et dépourvue de mortels. Sous le passage de la brume rouge, la majeure partie d'entre eux fut exterminée!
 
 Un trou noir apparut parmi les astres, et l'homme massif du clan du Loup Céleste en sortit. Dès son apparition, les hurlements plaintifs lui percutèrent les tympans. Son corps trembla et une intention meurtrière monstrueuse s'alluma dans ses yeux.
 
-Dans un rugissement, il chargea, faisant semblant de faire effondrer le ciel! Derrière lui, la projection d'un loup vert gigantesque se manifesta!
+Dans un rugissement, il chargea, donnant l'impression de faire effondrer le ciel! Derrière lui, la projection d'un loup vert gigantesque se manifesta!

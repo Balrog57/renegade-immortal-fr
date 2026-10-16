@@ -28,7 +28,7 @@ Le vieil homme poussa un rugissement; sa main droite traça un sceau tandis qu'i
 
 Il n'avait jamais ressenti une crise de mort aussi imminente; il était totalement focalisé sur les éclairs rouges. Le monde était vaste, l'espace infini, et bien que de nombreux cultivateurs l'entourassent, le vieil homme ne s'était jamais senti aussi seul.
 
-À cet instant, les étoiles, les cieux et les cultivatrices alentour disparurent. La seule chose subsistant dans les yeux du vieil homme était l'éclair rouge qui approchait à une vitesse fulgurante.
+À cet instant, les étoiles, les cieux et les cultivateurs alentour disparurent. La seule chose subsistant dans les yeux du vieil homme était l'éclair rouge qui approchait à une vitesse fulgurante.
 
 Sa main droite concentrait toute sa culture de Briseur du Nirvana; alors qu'il frappait, de puissantes vagues d'énergie originelle furent projetées. Elles se transformèrent en divers sorts pour intercepter la foudre, mais les éclairs rouges étaient bien plus puissants que tout ce que l'on aurait pu imaginer!
 

@@ -38,7 +38,7 @@ Leurs hurlements étaient empreints d'une douleur sans fin. Désormais, ces mill
 
 Leurs âmes originelles étaient emprisonnées dans leurs corps, incapables de s'échapper. À leur mort, l'énergie de la mort s'engouffra dans leurs âmes originelles, les transformant en morts-vivants!
 
-Si cela n'était là que le bout de son art, cela ne montrerait pas toute l'étendue des méthodes de Maître Hong Shan. Il agita la main et les yeux de ces cadavres desséchés parés de leurs chemises rouges émise une lumière sanglante monstrueuse. Comme s'ils étaient possédés, ils chargèrent les cultivateurs du Royaume Extérieur et entamèrent un massacre!
+Si cela n'était là que le bout de son art, cela ne montrerait pas toute l'étendue des méthodes de Maître Hong Shan. Il agita la main et les yeux de ces cadavres desséchés parés de leurs chemises rouges émirent une lumière sanglante monstrueuse. Comme s'ils étaient possédés, ils chargèrent les cultivateurs du Royaume Extérieur et entamèrent un massacre!
 
 « Rendez-moi mon sang!! Je veux du sang, je veux du sang!!! »
 
@@ -56,7 +56,7 @@ Cette rumeur ne mentionnait qu'une seule personne!
 
 Un éclair de froideur traversa les yeux de Maître Hong Shan alors qu'il chargeait l'Estimé Nan Zhao. Il allait tuer! À cet instant, parmi la seconde vague de cultivateurs du Royaume Extérieur, l'expression des deux cultivateurs de la troisième étape changea radicalement. Ils serrèrent les dents et chargèrent Maître Hong Shan!
 
-Maître Dong Dizi reconnut également cette personne issue des rumeurs terrifiantes, et son visage se décomposa. Il cessa de prêter attention à Zhou Lin, Ling Dong et à la Hache Brise-Ciel pour charger Maître Hong Shan!
+Maître Dong Dizi reconnut également cette personne issue des rumeurs terrifiantes, et son visage se décomposa. Il cessa de prêter attention à Zhou Jin, Ling Dong et à la Hache Brise-Ciel pour charger Maître Hong Shan!
 
 Trois cultivateurs de la troisième étape!
 
@@ -64,7 +64,7 @@ Une lueur de férocité apparut sur le visage de l'Estimé Nan Zhao qui, tout en
 
 Quatre cultivateurs de la troisième étape!
 
-L'Ancêtre du Clan de l'Hirondelle de Feu serra les dents et détourna son attention de Wang Lin. Il chargea également vers Maître Hong Shan!
+L'Ancêtre du Clan des Moineaux de Feu serra les dents et détourna son attention de Wang Lin. Il chargea également vers Maître Hong Shan!
 
 Cinq cultivateurs de la troisième étape pour affronter Maître Hong Shan!!
 
@@ -98,38 +98,38 @@ Les yeux du Grand Maître Yun Luo s'illuminèrent en regardant Wang Lin au loin.
 
 Ces individus en violet étaient semblables au Souverain; leurs visages étaient dissimulés par leurs capuches. Sans un mot, ils chargèrent Wang Lin!
 
-C'est à ce moment que les cultivateurs de la Mer Nuageuse arrivèrent. Des dizaines de milliers d'entre eux entamèrent une bataille brutale contre les envahisseurs!
+C'est à ce moment que les cultivateurs de la Mer des Nuages arrivèrent. Des dizaines de milliers d'entre eux entamèrent une bataille brutale contre les envahisseurs!
 
 La guerre fut d'une férocité extrême dès l'instant où elle commença!
 
-Des rugissements démentiels résonnèrent, un massacre effréné fut déclenché et des auras sanglantes se propagèrent follement! Un cultivateur de la Mer Nuageuse venait d'abattre un envahisseur, mais avant qu'il ne puisse relever la tête, une épée le transperça. Un autre cultivateur du Royaume Extérieur surgit par derrière et saisit l'épée pour s'élancer vers sa prochaine cible!
+Des rugissements démentiels résonnèrent, un massacre effréné fut déclenché et des auras sanglantes se propagèrent follement! Un cultivateur de la Mer des Nuages venait d'abattre un envahisseur, mais avant qu'il ne puisse relever la tête, une épée le transperça. Un autre cultivateur du Royaume Extérieur surgit par derrière et saisit l'épée pour s'élancer vers sa prochaine cible!
 
-« Gloire à la Mer Nuageuse... » Le mourant lutta pour un dernier regard vers sa patrie. Cependant, sa vision se troubla et il esquissa un sourire misérable avant de choisir l'autodestruction!
+« Gloire à la Mer des Nuages... » Le mourant lutta pour un dernier regard vers sa patrie. Cependant, sa vision se troubla et il esquissa un sourire misérable avant de choisir l'autodestruction!
 
 S'il devait mourir, il mourrait dans un fracas retentissant!
 
-Un grondement de tonnerre éclata lorsque le cultivateur de la Mer Nuageuse explosa en une onde destructrice qui se propagea dans toutes les directions!
+Un grondement de tonnerre éclata lorsque le cultivateur de la Mer des Nuages explosa en une onde destructrice qui se propagea dans toutes les directions!
 
-Plus loin, un homme d'âge mûr de la Mer Nuageuse était couvert de blessures. Le sang coulait abondamment de son corps et quatre épées volantes lui étaient plantées, causant des dégâts massifs autour de lui.
+Plus loin, un homme d'âge mûr de la Mer des Nuages était couvert de blessures. Le sang coulait abondamment de son corps et quatre épées volantes lui étaient plantées, causant des dégâts massifs autour de lui.
 
 Pourtant, il chargea en riant, comme s'il ignorait la douleur. Il verrouilla sa cible, un cultivateur du Royaume Extérieur, et au moment de l'impact, son corps explosa, créant une onde de choc puissante pour l'emporter avec lui dans la mort!
 
-Encore plus loin, un cultivateur du Royaume Extérieur au troisième niveau de la Calamité Céleste se déplaçait comme l'éclair. À chaque passage, des masses de cultivateurs de la Mer Nuageuse périssaient!
+Encore plus loin, un cultivateur du Royaume Extérieur au troisième niveau de la Calamité Céleste se déplaçait comme l'éclair. À chaque passage, des masses de cultivateurs de la Mer des Nuages périssaient!
 
-Au milieu de ce chaos, il semblait invincible. Il apparut devant un cultivateur de la Mer Nuageuse et plongea sa main dans sa poitrine. Il en extirpa le cœur avec un sourire cruel.
+Au milieu de ce chaos, il semblait invincible. Il apparut devant un cultivateur de la Mer des Nuages et plongea sa main dans sa poitrine. Il en extirpa le cœur avec un sourire cruel.
 
-Il broya l'organe dans sa paume et, alors qu'il s'apprêtait à partir, il fronça les sourcils. Le cultivateur de la Mer Nuageuse dont le cœur avait été écrasé et l'âme brisée avait utilisé sa dernière once de force pour agripper l'envahisseur!
+Il broya l'organe dans sa paume et, alors qu'il s'apprêtait à partir, il fronça les sourcils. Le cultivateur de la Mer des Nuages dont le cœur avait été écrasé et l'âme brisée avait utilisé sa dernière once de force pour agripper l'envahisseur!
 
 « La puissance des fourmis! » ricana le cultivateur du Royaume Extérieur en agitant la main. Le corps du mourant fut projeté violemment à l'écart!
 
 Sa tête vola au loin, mais ses yeux conservaient toute la haine de son vivant, fixant obstinément l'envahisseur.
 
-Il vit alors le cultivateur du Royaume Extérieur être submergé par une multitude de combattants de la Mer Nuageuse suite à ce retard. Ils ne cherchèrent même pas à combattre; ils choisirent tous l'autodestruction!
+Il vit alors le cultivateur du Royaume Extérieur être submergé par une multitude de combattants de la Mer des Nuages suite à ce retard. Ils ne cherchèrent même pas à combattre; ils choisirent tous l'autodestruction!
 
-Si l'autodestruction de dix cultivateurs ne pouvait vous tuer, alors vingt le feraient! Si vingt échouaient, trois cents le feraient!!
+Si l'autodestruction de dix cultivateurs ne pouvait vous tuer, alors cent le feraient! Si cent échouaient, trois cents le feraient!!
 
 Alors que les explosions successives faisaient trembler la terre, la force destructrice annihila le cultivateur du Royaume Extérieur. Même dans l'agonie, la dernière chose qu'il entendit fut ce cri de l'âme:
 
-« Gloire à la Mer Nuageuse! »
+« Gloire à la Mer des Nuages! »
 
 La tête tranchée ferma les yeux alors qu'elle dérivait, avant d'être pulvérisée par les fluctuations du sort d'un cultivateur du Royaume Extérieur.

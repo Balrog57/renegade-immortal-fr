@@ -12,9 +12,9 @@ Wang Lin redoutait énormément Ji Qiong. S'il devait le rencontrer à nouveau, 
 
 Bien qu'il connaisse bien l'Épreuve de la Terre, Wang Lin restait prudent. Il évita tous les points dangereux qu'il avait identifiés auparavant et mit une journée entière à trouver l'entrée du niveau suivant avant de s'y engager.
 
-Tout au long de son parcours, Wang Lin s'en tenir au principe de la prudence. Il traversa de nombreux lieux familiers en s'enfonçant dans les profondeurs de l'Ancien Dieu, tout en croisant de nombreux cultivateurs en chemin.
+Tout au long de son parcours, Wang Lin s'en tenait au principe de la prudence. Il traversa de nombreux lieux familiers en s'enfonçant dans les profondeurs de l'Ancien Dieu, tout en croisant de nombreux cultivateurs en chemin.
 
-Le cinquième jour, Wang Lin pénétra dans la dernière épreuve de la Terre des Anciens Dieux: le vide. Dès son entrée, il sentit immédiatement les fluctuations de sorts résonner, ainsi que le fracas de trésors s'entrechoquant. Il recula sans l'ombre d'une hésitation.
+Le cinquième jour, Wang Lin pénétra dans la dernière épreuve de la Terre de l'Ancien Dieu: le vide. Dès son entrée, il sentit immédiatement les fluctuations de sorts résonner, ainsi que le fracas de trésors s'entrechoquant. Il recula sans l'ombre d'une hésitation.
 
 Le vide était peuplé d'une multitude de cultivateurs. À proximité de Wang Lin, des dizaines d'entre eux se battaient contre un vieil homme vêtu de rouge!
 

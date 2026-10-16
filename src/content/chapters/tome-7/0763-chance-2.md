@@ -8,7 +8,7 @@ slug: chance-2
 ---
 « Ce sort qui fusionne l'âme originelle avec le sang appartient à la lignée de l'ancien Yao. C'est une technique que seuls les descendants directs peuvent utiliser, et aujourd'hui, j'en ai attrapé un! » Le vieil homme se frotta le menton, ses yeux s'illuminant tandis qu'il balayait les gouttes de sang du regard.
 
-« Il est bel et bien digne d'un être lié par le destin à son aîné pour avoir trouvé une méthode aussi inattendue afin de traiter un cultivateur du Scruteur du Nirvana. Je ne peux rester les bras croisés; je dois l'aider. » Le vieil homme se lécha les lèvres et tendit la main. Toutes les gouttes de sang furent saisies par lui, sans aucune résistance.
+« Il est bel et bien digne d'un être lié par le destin à ce vieil homme pour avoir trouvé une méthode aussi inattendue afin de traiter un cultivateur du Purificateur du Nirvana. Je ne peux rester les bras croisés; je dois l'aider. » Le vieil homme se lécha les lèvres et tendit la main. Toutes les gouttes de sang furent saisies par lui, sans aucune résistance.
 
 D'un simple pincement, toutes les gouttes fusionnèrent instantanément. L'âme originelle de l'Ancêtre de Sang fusionna et s'éveilla à l'unisson.
 
@@ -100,7 +100,7 @@ Wang Lin sombra dans le coma. Les gouttes de sang qui avaient pénétré son cor
 
 Cependant, cette énergie était comme une épée de mort au sein du corps de Wang Lin. Mais la chance existe dans ce monde. Lorsque le vieil homme avait réclamé la Bête de Tonnerre à Wang Lin, il avait involontairement insufflé trop d'énergie en lui. Cette puissance allait exploser dès que la sensation de brûlure quitterait le corps de Wang Lin. On ignorait s'il survivrait, mais il était fort probable qu'il ne puisse le supporter et que son âme originelle s'effondre avec son corps.
 
-Pourtant, l'Ancêtre de Sang était gravement blessé. Pour s'échapper et surtout pour tuer Wang Lin, il avait utilisé la moitié de son corps de sang pour se précipiter en lui. Son intention était meurtrière, mais il venait paradoxalement d'offrir à Wang Lin une opportunité si immense qu'elle n'avait d'égale que l'ascension vers la troisième étape!
+Pourtant, l'Ancêtre de Sang était gravement blessé. Pour s'échapper et surtout pour tuer Wang Lin, il avait utilisé la moitié de son corps de sang pour se précipiter en lui. Son intention était meurtrière, mais il venait paradoxalement d'offrir à Wang Lin une opportunité si immense qu'elle n'avait d'égale que d'entrevoir la voie de la troisième étape!
 
 Le corps de Wang Lin s'écrasa contre un fragment qui ne suivait aucune chaîne de tonnerre et dérivait librement dans le vide.
 

@@ -86,11 +86,11 @@ Les yeux de la femme s'animèrent d'une lueur vive. Sa main gauche continuait de
 
 Ses agissements attirèrent l'attention du jeune homme à l'éventail. Il s'avança pour observer l'instrument et sourit.
 
-« Ne sois pas si paranoïaque. Avec le Frère Aîné Yun Kong ici, tout ira bien. »
+« Ne sois pas si paranoïaque. Avec le Senior Frère Yun Kong ici, tout ira bien. »
 
 La femme réfléchit un instant avant de hocher la tête.
 
-« Le Frère Aîné Yun Kong est déjà à l'œuvre; bientôt, la Mer des Pilules disparaîtra. Nous pourrons alors contempler la puissance de la légendaire demi-Pilule Céleste! » La femme leva les yeux vers l'horizon.
+« Le Senior Frère Yun Kong est déjà à l'œuvre; bientôt, la Mer des Pilules disparaîtra. Nous pourrons alors contempler la puissance de la légendaire demi-Pilule Céleste! » La femme leva les yeux vers l'horizon.
 
 Tapis dans le brouillard céleste, Wang Lin perçut vaguement leur conversation. En déduisant des indices de leurs expressions, son cœur rata un bond.
 
@@ -98,7 +98,7 @@ C'est alors qu'un grondement tonitruant émana de la Mer des Pilules, qui commen
 
 Neuf vortex apparurent en divers points de la mer. Ils tournaient lentement, tandis qu'un rugissement capable de déchirer les cieux retentissait.
 
-« Le Frère Aîné a commencé! » La femme cessa d'examiner la boussole pour regarder l'horizon avec impatience.
+« Le Senior Frère a commencé! » La femme cessa d'examiner la boussole pour regarder l'horizon avec impatience.
 
 Simultanément, un groupe d'une douzaine de cultivateurs surgit des flots et vola vers la femme. Il s'agissait d'un détachement de Soldats du Démon Vert qui revenaient après avoir exécuté les ordres de la femme.
 
@@ -114,7 +114,7 @@ Le jeune homme à l'éventail remarqua le changement sur son visage et demanda p
 
 « Quelque chose ne va pas. La boussole a tremblé comme un avertissement. Cela signifie qu'un cultivateur qui n'appartient pas au Continent du Démon Vert est entré dans la Mer des Pilules! » L'expression de la femme était d'une gravité extrême.
 
-« Cet individu est doué pour se cacher et je ne parviens pas à le débusquer immédiatement. Frère Zhao, aidez-moi. Je vais inverser la boussole pour analyser ce qui s'est produit à cet instant! »
+« Cet individu est doué pour se cacher et je ne parviens pas à le débusquer immédiatement. Senior Frère Zhao, aidez-moi. Je vais inverser la boussole pour analyser ce qui s'est produit à cet instant! »
 
 Le jeune homme au visage de jade leva sa main droite et la posa sur le dos de la femme sans hésiter. Celle-ci prit une profonde inspiration, ses yeux brillant d'une lueur étrange. Elle fixa la boussole et, appliquant la méthode transmise par son maître, traça un sceau de la main gauche en pointant l'instrument.
 

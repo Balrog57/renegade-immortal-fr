@@ -40,7 +40,7 @@ Pourtant, il ne pourrait jamais oublier le sort misérable qui lui attendit. Il 
 
 — Han Han, qui est-ce? Pourquoi apparaît-il soudainement ici...?
 
-— Je ne sais pas non plus. C'est étrange, comment a-t-il pu pénétrer dans le Domaine de la Ferme des Bêtes de notre Secte du Soleil Pourpre?
+— Je ne sais pas non plus. C'est étrange, comment a-t-il pu pénétrer dans le Domaine de la Ferme des Bêtes de notre Secte du Soleil Violet?
 
 — Tu ne crois pas qu'il est fou? Ce sont des herbes pour les petites bêtes, pourquoi les met-il à la bouche...?
 

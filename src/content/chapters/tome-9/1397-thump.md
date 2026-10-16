@@ -82,7 +82,7 @@ Après qu'il eut parlé, l'expression du Patriarche du Clan du Scorpion Obscur s
 
 Wang Lin sourit en regardant le vieil homme et dit lentement: « Quoi, nous ne pouvons pas dire votre nom? »
 
-Les yeux du 13ème Ancien Déchu s'illuminèrent. Il vit la manière dont le Patriarche du Clan de l'Évasion Nuage regardait Wang Lin et, d'après leur position, comprit que cet homme semblait être celui qui commandait. C'était pour cela qu'il avait parlé.
+Les yeux du 13ème Ancien Déchu s'illuminèrent. Il vit la manière dont le Patriarche du Clan de l'Évasion Nuageuse regardait Wang Lin et, d'après leur position, comprit que cet homme semblait être celui qui commandait. C'était pour cela qu'il avait parlé.
 
 En tant que 13ème Ancien Déchu, il devait faire une démonstration de force pour assurer sa réélection. Bien que le Clan du Scorpion Obscur fût petit, le Clan de l'Évasion Nuage ne l'était pas. Avec la réputation de Cupidité, ils étaient l'outil idéal pour étaler sa puissance.
 
@@ -100,9 +100,9 @@ Les anciens et les patriarches étaient de vieux renards; ils devinaient plus ou
 
 « Qui ose prétendre que le Senior n'a pas les qualifications?! » Un rugissement retentit soudainement au loin. Dans un fracas de tonnerre, plus de mille rayons de lumière se précipitèrent vers eux.
 
-À leur tête se trouvait un jeune homme, accompagné d'anciens ayant atteint le stade de la Fléau Céleste. Ils arrivèrent avec un élan puissant et se placèrent aux côtés du groupe de Wang Lin.
+À leur tête se trouvait un jeune homme, accompagné d'anciens ayant atteint le stade du Fléau Céleste. Ils arrivèrent avec un élan puissant et se placèrent aux côtés du groupe de Wang Lin.
 
-Le jeune homme s'avança rapidement vers Wang Lin et joignit les mains dans un geste de respect extrême: « Le Patriarche du Dragon Blindé salue le Senior! »
+Le jeune homme s'avança rapidement vers Wang Lin et joignit les mains dans un geste de respect extrême: « Le Junior Patriarche du Dragon Blindé salue le Senior! »
 
 Derrière lui, plus de mille cultivateurs du Clan du Dragon Blindé regardèrent tous Wang Lin avec respect et une pointe de crainte. Ils joignirent les mains en chœur: « Salutations, Senior! »
 

@@ -80,7 +80,7 @@ Quand Qing Shui vit l'état actuel de Wang Lin, il fut surpris mais resta silenc
 
 Quant à Xiang Yundong, il semblait déjà s'attendre à une telle issue. Il regarda Wang Lin avant de détourner les yeux.
 
-Wang Lin replaça soigneusement l'Âme Naissante de Li Muwan dans son corps. Puis, il regarda Qing Shui et dit calmement: « Frère aîné, partons. »
+Wang Lin replaça soigneusement l'Âme Naissante de Li Muwan dans son corps. Puis, il regarda Qing Shui et dit calmement: « Senior Frère, partons. »
 
 Qing Shui laissa échapper un soupir et agita ses manches. Il emmena Wang Lin et ils s'envolèrent au loin.
 
@@ -88,7 +88,7 @@ Xiang Yundong observa la direction dans laquelle Wang Lin avait disparu et esqui
 
 Qing Shui et Wang Lin ne furent plus que deux rayons de lumière traversant le ciel étoilé.
 
-« Frère aîné, savez-vous ce que c'est? » Tout en volant, Wang Lin réfléchit un instant avant de frapper son sac de rangement, d'où surgit le Cercueil Évitement du Ciel.
+« Senior Frère, savez-vous ce que c'est? » Tout en volant, Wang Lin réfléchit un instant avant de frapper son sac de rangement, d'où surgit le Cercueil Évitement du Ciel.
 
 Le corps de Qing Shui se figea un instant. Son œil droit brilla d'un éclat rouge alors qu'il fixait l'objet. Après un long silence, il dit: « Je n'ai jamais vu cette chose, mais une puissante énergie spirituelle céleste s'en dégage; elle doit donc provenir du Royaume Céleste. De plus, elle contient une puissance particulière... une sorte de Loi. Cet objet possède sans doute des capacités de guérison, n'est-ce pas? »
 
@@ -116,6 +116,6 @@ En regardant Wang Lin, Qing Shui eut l'impression de se voir lui-même, et une d
 
 Empreint de mélancolie, Qing Shui ne regardait plus Wang Lin avec l'intention de simplement honorer son maître. Une trace de tendresse émanait désormais de son regard.
 
-« Tu n'es pas entré dans le bassin céleste. Sans énergie originelle céleste, tu ne pourras pas déployer toute la puissance des sorts célestes. Ton Frère aîné n'a rien d'autre à t'offrir, alors je te donnerai cette énergie originelle céleste pour t'aider à les pratiquer! »
+« Tu n'es pas entré dans le bassin céleste. Sans énergie originelle céleste, tu ne pourras pas déployer toute la puissance des sorts célestes. Ton Senior Frère n'a rien d'autre à t'offrir, alors je te donnerai cette énergie originelle céleste pour t'aider à les pratiquer! »
 
 L'énergie originelle céleste qui avait pénétré le corps de Wang Lin ne fut pas récupérée par Qing Shui. Au lieu de cela, elle circula dans le corps de Wang Lin avant de se transformer en une graine dorée qui vint se loger dans son âme originelle.

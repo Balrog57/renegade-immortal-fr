@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1170 - What is It
 slug: quest-ce-que-cest
 ---
-Wang Lin regarda froidement l'homme en vert. Cet homme se trouvait au milieu du stade de la Scruteur du Nirvana et, bien qu'il fût beau, il dégageait une aura sinistre. Ses deux compagnons derrière lui étaient tous deux des cultivateurs du Purificateur du Nirvana, et ils se tenaient dans une position étrange.
+Wang Lin regarda froidement l'homme en vert. Cet homme se trouvait au milieu du stade du Scruteur du Nirvana et, bien qu'il fût beau, il dégageait une aura sinistre. Ses deux compagnons derrière lui étaient tous deux des cultivateurs du Purificateur du Nirvana, et ils se tenaient dans une position étrange.
 
 Tandis que l'homme en vert parlait, ils se déplacèrent sur le côté pour encercler Wang Lin.
 
@@ -102,7 +102,7 @@ En se déplaçant, l'ombre arriva devant Yang Yu et pointa son doigt vers lui. C
 
 Le vieil homme ne manifesta aucune émotion; il observa Wang Lin un moment avant de sourire. « Le compagnon cultivateur Lu est en effet très intelligent. Ce vieux cherche bel et bien à vous voir, j'espère donc que vous ne m'en voudrez pas d'avoir été un peu brusque. Que diriez-vous de trouver un endroit pour discuter, afin que je puisse réparer mes torts? »
 
-L'expression de Wang Lin resta imperturbable. Après une courte réflexion, il hocha la tête. Wang Lin était déjà aussi rusé que le diable; dès l'apparition de Yang Yu, il avait remarqué que celui-ci le fixait avec insistance. Puis Yang Yun était arrivé en faisant semblant de rattraper Qianmei.
+L'expression de Wang Lin resta imperturbable. Après une courte réflexion, il hocha la tête. Wang Lin était déjà aussi rusé que le diable; dès l'apparition de Yang Yu, il avait remarqué que celui-ci le fixait avec insistance. Puis Yang Yu était arrivé en faisant semblant de rattraper Qianmei.
 
 Il avait même percé à jour le stratagème: lorsque Yang Yu prétendait rejoindre Qianmei, les deux autres ne purent cacher leur nervosité.
 

@@ -28,7 +28,7 @@ C'était une flèche longue de plusieurs centaines de milliers de pieds, dotée 
 
 Une silhouette se tenait à la pointe de la flèche. Un homme vêtu de blanc aux cheveux d'un blanc immaculé! On pouvait également distinguer faiblement deux roues gigantesques et immobiles suivant de près sa course.
 
-À cet instant, Qing Lin, Maître Hong Shan et la femme en violet de la Rivière des Invocations que Wang Lin ne connaissait pas, contemplaient tous cette flèche terrifiante qui fonçait depuis l'horizon!
+À cet instant, Qing Lin, Maître Hong Shan et la femme en violet de la Rivière Invoquée que Wang Lin ne connaissait pas, contemplaient tous cette flèche terrifiante qui fonçait depuis l'horizon!
 
 Les yeux de Qing Lin étaient remplis d'incrédulité. Il avait l'impression que cette flèche lui était familière et qu'il reconnaissait quelque chose, mais il n'osait s'en faire la conviction!
 
@@ -48,7 +48,7 @@ Tout cela se produisit en un instant. La flèche hurlait en fonçant sur sa cibl
 
 Cette faille s'étendait de la frontière jusqu'à la Mer des Nuages!
 
-Cette flèche contenait la colère de Wang Lin et le carnage qu'il avait semé après avoir traversé le Vide Brillant, la Rivière des Invocations et la Mer des Nuages. Elle vola instantanément vers l'empreinte de paume située à l'extérieur du palais du Souverain.
+Cette flèche contenait la colère de Wang Lin et le carnage qu'il avait semé après avoir traversé le Vide Brillant, la Rivière Invoquée et la Mer des Nuages. Elle vola instantanément vers l'empreinte de paume située à l'extérieur du palais du Souverain.
 
 C’était le combat de Wang Lin contre le Souverain!
 
@@ -90,7 +90,7 @@ Le Souverain cracha du sang et sa robe noire vola en éclats, dévoilant son cor
 
 Des grondements sourds résonnèrent tandis que des fissures apparaissaient sur l'édifice. Simultanément, la flèche se rapprochait; juste avant qu'elle ne frappe le palais, le Souverain traça un sceau. Un puits gigantesque apparut soudainement devant lui. Ce puits contenait son propre univers; il abritait un espace infini!
 
-Ce puits était le second domaine de Flamme de Joss du Souverain! C'était un trésor que le fou lui avait remis sur le Continent des Immortels Célestes! Au moment où il le déploia, la flèche frappa!
+Ce puits était le second domaine de Flamme Joss du Souverain! C'était un trésor que le fou lui avait remis sur le Continent des Immortels Célestes! Au moment où il le déploia, la flèche frappa!
 
 Ce puits n'était pas posé à plat mais disposé verticalement. À la surface de l'eau, des ondulations se formèrent et, à cet instant précis, une copie exacte de la flèche apparut!
 
@@ -122,6 +122,6 @@ Le vieil homme en noir était lui aussi pétrifié. En voyant la puissance de ce
 
 Il y avait aussi ces deux concubines impériales célestes. Malgré leur haut rang, elles fixaient Wang Lin avec effroi! Peu importait qu'elles fussent des Célestes du Continent des Immortels Célestes; elles devaient craindre Wang Lin, qu'elles considéraient comme un simple cultivateur de grotte!
 
-Au loin, la Grand Maîtresse Yun Luo tremblait de façon incontrôlable. De sa position, elle ne pouvait voir que le dos de Wang Lin. Elle connaissait cette silhouette, et elle en avait peur. C'était le dos de l'être qui, selon ses divinations, détruirait le monde!
+Au loin, la Grande Maîtresse Yun Luo tremblait de façon incontrôlable. De sa position, elle ne pouvait voir que le dos de Wang Lin. Elle connaissait cette silhouette, et elle en avait peur. C'était le dos de l'être qui, selon ses divinations, détruirait le monde!
 
 « Bien qu'elle ne soit pas mon amante, elle est la mère de mon fils, Wang Ping. Qu'as-tu dit à l'instant?! » Wang Lin se retourna. Son regard était tranchant comme une épée alors qu'il fixait Dao Feishan, qui se tenait à cent pieds de Mu Bingmei.

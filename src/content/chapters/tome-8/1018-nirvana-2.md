@@ -10,11 +10,11 @@ Après avoir clamé « Voler le mérite des cieux », bien que l'énergie origin
 
 À l'instant même où son énergie originelle s'échappa, une ligne blanche apparut au sein du sceau formé par les mains de Wang Lin!
 
-« Capturer l'âme de l'univers! » Cela provoqua une tempête au cœur du désert de sable noir. Tandis que d'innombrables rafales de vent sifflaient à travers les dunes, un gaz noir apparut dans ce monde et se condensa en une ligne noire devant Wang Lin!
+« Saisir l'âme de l'univers! » Cela provoqua une tempête au cœur du désert de sable noir. Tandis que d'innombrables rafales de vent sifflaient à travers les dunes, un gaz noir apparut dans ce monde et se condensa en une ligne noire devant Wang Lin!
 
 Ces deux lignes s'entrecoupèrent pour former une rune en forme de diamant!
 
-Cette rune surpassait tout ce que possédait le Clan des Tatouages. Sa complexité était telle que l'on ressentait le vertige rien qu'en la contemplant.
+Cette rune surpassait tout ce que possédait le Clan du Tatouage. Sa complexité était telle que l'on ressentait le vertige rien qu'en la contemplant.
 
 « Rassembler l'Ordre Ancien, souvenir éternel! » Dès que Wang Lin prononça la dernière phrase, la rune de diamant libéra un éclat noir et blanc et commença à flotter lentement vers l'avant!
 

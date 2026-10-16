@@ -46,7 +46,7 @@ Ce fragment de terre s'éleva lentement, rétrécissant jusqu'à devenir une por
 
 Dès que la porte fut achevée, presque tous les célestiaux poussèrent des rugissements capables de fendre la terre. Simultanément, l'ondulation qui avait accumulé d'immenses quantités d'énergie spirituelle céleste se précipita vers l'ouvrage.
 
-Un grondement tonnerre secoua l'univers. En se contractant, l'ondulation projeta une quantité colossale d'énergie spirituelle dans la porte, lui conférant sa véritable nature de porte céleste!
+Un grondement de tonnerre secoua l'univers. En se contractant, l'ondulation projeta une quantité colossale d'énergie spirituelle dans la porte, lui conférant sa véritable nature de porte céleste!
 
 « Le Royaume Céleste Antique a décrété que lorsque la porte céleste s'ouvrirait, le domaine céleste descendrait! »
 
@@ -94,7 +94,7 @@ Elle vola en éclats!
 
 Sous cet effondrement incessant, le Royaume Céleste s'écroula!
 
-La terre fut divisée en d'innombrables fragments. Tandis que les grondements tonnerre résonnaient, le Royaume Céleste n'était plus que ruines, mais l'effondrement ne cessa pas; il devint au contraire plus intense encore.
+La terre fut divisée en d'innombrables fragments. Tandis que les grondements de tonnerre résonnaient, le Royaume Céleste n'était plus que ruines, mais l'effondrement ne cessa pas; il devint au contraire plus intense encore.
 
 Une aura destructrice se propagea, écrasant tout être vivant!
 

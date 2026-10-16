@@ -12,7 +12,7 @@ Une ombre illusoire apparut au-dessus de la plante brisée. C'était une silhoue
 
 L'expression de Wang Lin resta sereine tandis qu'il fixait la figure encapuchonnée et déclarait froidement: « Un simple esprit originel du stade Scruteur du Nirvana. Je veux voir comment tu comptes me faire payer de ma vie! »
 
-La main droite de Wang Lin forma un sceau et, d'un geste sec du doigt, le Dao de la Déchéance qu'elle portait s'élança. Lorsque l'os de bête apparut, une lueur fantomatique brilla dans ses yeux. Une puissante aura maléfique se propagea, teintant la plante d'une lumière grise.
+La main droite de Wang Lin forma un sceau et, d'un geste sec du doigt, la Paire Dao du Flétrissement qu'elle portait s'élança. Lorsque l'os de bête apparut, une lueur fantomatique brilla dans ses yeux. Une puissante aura maléfique se propagea, teintant la plante d'une lumière grise.
 
 L'homme en robe noire leva la tête et fixa Wang Lin sans même accorder un regard à la plante avant de s'envoler. La végétation sous lui s'effondra et se dispersa instantanément.
 
@@ -26,7 +26,7 @@ L'ensemble de la caverne commença à s'effondrer massivement. L'homme en robe n
 
 « Cher cultivateur, si un malentendu nous oppose, nous pouvons en discuter! Ce vieil homme est Liu Qingyun, le Vice-Maître de la Salle du Ressentiment de la Secte des Cadavres! » L'homme en robe noire était sous le choc. Il venait de s'éveiller et son esprit était encore embrumé. Cependant, une fois lucide, il réalisa que celui qui l'avait réveillé était un cultivateur au stade Scruteur du Nirvana!
 
-S'il avait encore possédé un corps, il n'aurait pas eu peur, mais il n'était plus qu'une âme. De plus, il n'était pas le seul de ce niveau: le garçon à la grosse tête était également un expert du Scruteur du Nirvana et, bien que la marionnette ne le fût pas, elle se situait au sommet du stade Corporel Yang.
+S'il avait encore possédé un corps, il n'aurait pas eu peur, mais il n'était plus qu'une âme. De plus, il n'était pas le seul de ce niveau: le garçon à la grosse tête était également un expert du Scruteur du Nirvana et, bien que la marionnette ne le fût pas, elle se situait au sommet du stade Yang Corporel.
 
 Plus il observait les trois adversaires, plus son effroi grandissait. Sans même parler de son absence de corps physique, même s'il en avait eu un, il aurait dû fuir sans délai face à une telle puissance.
 
@@ -62,7 +62,7 @@ Un cultivateur maîtrisant le Repli Spatial était invincible face à ses pairs;
 
 Son esprit originel se changea en un rayon de lumière pour s'enfuir, mais Wang Lin surgit du vide et abattit impitoyablement sa main! Le monde trembla soudainement sous la puissance de l'impact, forçant les fragments du corps de Liu Qingyun à fusionner de nouveau. Le visage de ce dernier devint livide alors qu'il tentait de fuir.
 
-Un rire sardonique parvint soudain à ses oreilles. Le garçon à la grosse tête secoua vigoureusement la tête pour lui barrer la route.
+Un rire niais parvint soudain à ses oreilles. Le garçon à la grosse tête secoua vigoureusement la tête pour lui barrer la route.
 
 Au loin, Ta Shan accélérait sa course.
 
@@ -110,4 +110,4 @@ Un rire démentier s'échappa de la gorge de Liu Qingyun, puis sa silhouette fé
 
 « Bien que cela me déchire le cœur de perdre ce cadavre, l'utiliser pour anéantir un cultivateur capable de manipuler l'espace en vaut la peine! Une fois cet homme mort, les deux autres ne pourront plus jamais m'atteindre! » En riant, Liu Qingyun s'élança vers les cieux. Il comptait retourner à la Secte des Cadavres au plus vite pour trouver un nouveau corps et, par la suite, se venger des autres Vice-Maîtres.
 
-« Tu ne peux pas échapper à ton destin! » Cette voix froide et implacable, semblable à un vent glacial, atteignit les oreilles de Liu Qingyun. Son corps trembla, ses yeux s'emparent d'incrédulité, et soudain, il se figea dans l'air.
+« Tu ne peux pas échapper à ton destin! » Cette voix froide et implacable, semblable à un vent glacial, atteignit les oreilles de Liu Qingyun. Son corps trembla, ses yeux se remplirent d'incrédulité, et soudain, il se figea dans l'air.

@@ -86,7 +86,7 @@ Ils s'étaient perdus dans leurs débats, mais cela rendait la vie des gens à l
 
 Il ne comprenait pas pourquoi ils n'étaient pas revenus après un si long moment, malgré la présence du Maître de Secte et de Li Qianmei.
 
-Après plusieurs heures supplémentaires, l'anxiété du vieil homme s'intensifia. Il avait un mauvais pressentiment. Serrant les dents, il ne s'obstina plus: il prit le contrôle de la bête-tigre et se dirigea vers le continent de Mo Luo, accompagné de plus de trente disciples de base de la Secte Dao Pourpre!
+Après plusieurs heures supplémentaires, l'anxiété du vieil homme s'intensifia. Il avait un mauvais pressentiment. Serrant les dents, il ne s'obstina plus: il prit le contrôle de la bête-tigre et se dirigea vers le continent de Mo Luo, accompagné de plus de trente disciples centraux de la Secte Dao Pourpre!
 
 Cependant, alors qu'ils approchaient et s'apprêtaient à franchir la barrière protectrice, une voix impérieuse retentit.
 
@@ -120,7 +120,7 @@ Sensible à la tranquillité et à l'élégance de ce chant, Wang Lin ferma les 
 
 Le son de la flûte qui parvenait à ses oreilles se mêlait aux notes de la cithare gravées dans son cœur. Il devenait difficile de les distinguer.
 
-Lu Yuncong s'en alla, porté par le chant de la flûte, l'amertume au cœur de plus en plus pesante. Il jeta un dernier regard vers la Secte d'Origine et soupira avant de partir sans se retourner.
+Lu Yuncong s'en alla, porté par le chant de la flûte, l'amertume au cœur de plus en plus pesante. Il jeta un dernier regard vers la Secte de l'Origine et soupira avant de partir sans se retourner.
 
 Après un temps indéterminé, le son de la flûte s'estompa. Li Qianmei se leva, regarda Wang Lin, puis marcha vers la porte de la cour. Elle s'arrêta brusquement et se retourna avec un sourire.
 

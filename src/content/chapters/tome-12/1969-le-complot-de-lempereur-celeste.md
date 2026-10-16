@@ -8,39 +8,39 @@ slug: le-complot-de-lempereur-celeste
 ---
 En un éclair, les quatre saisons s'écoulèrent. Lorsque les feuilles d'automne tombèrent et que la neige se mit à choir, l'événement sacré survenu un an plus tôt ne s'était pas seulement maintenu, il s'était propagé avec encore plus de force.
 
-Il y a un an, un cultivateur aux cheveux blancs fit son apparition au sein du clan céleste. Lors de l'Essai Éthéré, il franchit les palais, passant du cinquième au 17e, pour devenir le premier Ascendant Éthéré!
+Il y a un an, un cultivateur aux cheveux blancs fit son apparition au sein du clan céleste. Lors de l'Épreuve Empyrée, il franchit les palais, passant du cinquième au 17e, pour devenir le premier Ascendant Empyréen!
 
-Il avait totalement supplanté l'Ascendant Éthéré déchu Ming Dao, s'élevant au sommet, juste en dessous des Grands Éthers!
+Il avait totalement supplanté l'Ascendant Empyréen déchu Ming Dao, s'élevant au sommet, juste en dessous des Grands Empyréens!
 
-Cet homme à la chevelure blanche était appelé l'Ascendant Éthéré aux Cheveux Blancs. Son nom fut bientôt porté par les lèvres de tous: il s'appelait Wang Lin!
+Cet homme à la chevelure blanche était appelé l'Ascendant Empyréen aux Cheveux Blancs. Son nom fut bientôt porté par les lèvres de tous: il s'appelait Wang Lin!
 
-Le nom de « Wang Lin » balaya tout le monde cette année-là, tel une rafale de vent. Aucun Éminence Dorée ne l'ignorait, aucun Ascendant Éthéré ne l'avait oublié. Même la plupart des ancêtres des sectes avaient entendu parler de lui!
+Le nom de « Wang Lin » balaya tout le monde cette année-là, tel une rafale de vent. Aucun Exalté Empyréen ne l'ignorait, aucun Ascendant Empyréen ne l'avait oublié. Même la plupart des ancêtres des sectes avaient entendu parler de lui!
 
 Au-delà des ancêtres, les maîtres de secte et les Anciens tous étaient au courant!
 
-Le 49e Ascendant Éthéré était apparu dans le clan céleste. En franchissant le 17e palais, il était devenu l'Ascendant Éthéré le plus puissant!
+Le 49e Ascendant Empyréen était apparu dans le clan céleste. En franchissant le 17e palais, il était devenu l'Ascendant Empyréen le plus puissant!
 
 Les rumeurs sur cet homme se répandirent à travers tout le clan céleste. On disait qu'il possédait une armure d'âme et qu'il avait obtenu une immense reconnaissance de la part de l'âme étrangère!
 
-Le bruit courait que sa force était suprême mais qu'il restait discret. Après avoir franchi plus d'une douzaine de palais, il n'avait pas souhaité poursuivre, mais l'Ascendant Éthéré Ming Dao l'avait provoqué et humilié verbalement. Suite à cela, il traversa le 17e palais et écrasa totalement Ming Dao.
+Le bruit courait que sa force était suprême mais qu'il restait discret. Après avoir franchi plus d'une douzaine de palais, il n'avait pas souhaité poursuivre, mais l'Ascendant Empyréen Ming Dao l'avait provoqué et humilié verbalement. Suite à cela, il traversa le 17e palais et écrasa totalement Ming Dao.
 
-Certains murmuraient que l'Éminence Dorée Hai Zi l'admirait, mais qu'il lui avait froidement opposé un refus.
+Certains murmuraient que l'Exalté Empyréen Hai Zi l'admirait, mais qu'il lui avait froidement opposé un refus.
 
 D'autres rumeurs affirmaient qu'il venait d'une petite secte du Continent de l'Est, une secte dont la plupart des cultivateurs n'avaient jamais entendu parler.
 
 Ces bruits de couloir continuèrent de se propager dans tout le clan céleste.
 
-Une telle figure ne pouvait que attirer l'attention de tous les Grands Éthers. Pourtant, cet homme avait décliné les avances du Grand Éther Dao Yi, du Grand Éther Wu Feng et même du Grand Éther Jiu Di, pour choisir le faible Grand Éther Gémeaux!
+Une telle figure ne pouvait que attirer l'attention de tous les Grands Empyréens. Pourtant, cet homme avait décliné les avances du Grand Empyréen Dao Yi, du Grand Empyréen Wu Feng et même du Grand Empyréen Jiu Di, pour choisir le faible Grand Empyréen Gémeaux!
 
 Une fois cette nouvelle révélée, tous ceux au sein du clan céleste qui avaient entendu parler de Wang Lin furent plongés dans la confusion. Cela déclencha une nouvelle tempête de rumeurs.
 
-Durant l'année écoulée, Wang Lin était resté au sein de la Secte Yang Pourpre sans jamais en partir. De nombreux Ascendants Éthérés s'étaient précipités, peu importe la distance, pour le rencontrer et débattre du Dao avec lui.
+Durant l'année écoulée, Wang Lin était resté au sein de la Secte Yang Pourpre sans jamais en partir. De nombreux Ascendants Empyréens s'étaient précipités, peu importe la distance, pour le rencontrer et débattre du Dao avec lui.
 
 Ceux qui venaient et repartaient repartaient grandement admiratifs, habités par un respect croissant. Cependant, certains choisirent de rester dans la Secte Yang Pourpre; il semblait que leurs échanges avec Wang Lin leur avaient apporté une immense récolte spirituelle.
 
 La Secte Yang Pourpre était redevenue le centre du monde grâce à Wang Lin!
 
-Les rumeurs concernant Wang Lin s'étaient lentement propagées dans les 36 pays du clan Ancien par divers moyens au fil de l'année. L'apparition du 49e Ascendant Éthéré était d'une importance capitale pour le clan Ancien, sans parler du fait que ce nouvel Ascendant Éthéré remplaçait Ming Dao en tant que plus puissant sous les Grands Éthers!
+Les rumeurs concernant Wang Lin s'étaient lentement propagées dans les 36 pays du clan Ancien par divers moyens au fil de l'année. L'apparition du 49e Ascendant Empyréen était d'une importance capitale pour le clan Ancien, sans parler du fait que ce nouvel Ascendant Empyréen remplaçait Ming Dao en tant que plus puissant sous les Grands Empyréens!
 
 Dans les 36 pays du clan Ancien, chacun des trois clans contrôlait 12 pays. Lorsque la nouvelle de Wang Lin parvint à Xuan Luo, celui-ci ouvrit les yeux.
 
@@ -56,31 +56,31 @@ Cependant, malgré ses efforts, il échouait toujours et personne n'avait réuss
 
 Quand l'empereur apprit ce qui touchait Wang Lin, il ne crut pas qu'il s'agissait du même Wang Lin qu'il détestait tant. Bien qu'il y accordât de l'importance, il n'y vit rien d'extraordinaire.
 
-Toutefois, il prit la peine de mobiliser toutes ses forces pour recueillir des informations sur cet homme. Après tout, celui-ci était probablement le sixième Grand Éther du clan céleste!
+Toutefois, il prit la peine de mobiliser toutes ses forces pour recueillir des informations sur cet homme. Après tout, celui-ci était probablement le sixième Grand Empyréen du clan céleste!
 
-La différence entre le clan Ancien et le clan céleste résidait dans l'abîme qu'était un Grand Éther. Si ce n'était pas pour l'être transcendant qu'était le Grand Éther Guo Dao, qui ne s'impliquait normalement pas dans les affaires des trois clans, le clan Ancien aurait déjà été anéanti.
+La différence entre le clan Ancien et le clan céleste résidait dans l'abîme qu'était un Grand Empyréen. Si ce n'était pas pour l'être transcendant qu'était le Grand Empyréen Guo Dao, qui ne s'impliquait normalement pas dans les affaires des trois clans, le clan Ancien aurait déjà été anéanti.
 
-Le Grand Éther Guo Dao vivait sur le sommet du Mont Ancien toute l'année. Sa culture était capable de briser les cieux et il était indéniablement le plus puissant des Grands Éthers!
+Le Grand Empyréen Guo Dao vivait sur le sommet du Mont Ancien toute l'année. Sa culture était capable de briser les cieux et il était indéniablement le plus puissant des Grands Empyréens!
 
-Même le Grand Éther Dong Lin du clan céleste n'était pas son égal. Plus précisément, le Grand Éther Guo Dao était la seule personne répertoriée pour avoir tué un autre Grand Éther!
+Même le Grand Empyréen Dong Lin du clan céleste n'était pas son égal. Plus précisément, le Grand Empyréen Guo Dao était la seule personne répertoriée pour avoir tué un autre Grand Empyréen!
 
-Son existence remontait à l'Ancêtre Ancien. Lorsqu'il devint un Grand Éther, Jiu Di n'était qu'une simple Éminence Dorée.
+Son existence remontait à l'Ancêtre Ancien. Lorsqu'il devint un Grand Empyréen, Jiu Di n'était qu'une simple Exalté Doré.
 
-Après la disparition de l'Ancêtre Ancien et de l'Ancêtre Céleste, une guerre éclata entre le clan Ancien et le clan céleste. Durant ce conflit, le clan céleste comptait huit Grands Éthers tandis que le clan Ancien n'en possédait que quatre!
+Après la disparition de l'Ancêtre Ancien et de l'Ancêtre Céleste, une guerre éclata entre le clan Ancien et le clan céleste. Durant ce conflit, le clan céleste comptait huit Grands Empyréens tandis que le clan Ancien n'en possédait que quatre!
 
-Mais alors que la guerre atteignait son paroxysme et que les Célestes avaient envahi la moitié du territoire du clan Ancien, le Grand Éther Guo Dao sortit de sa méditation de porte close. Il affronta seul d'innombrables Célestes et combattit deux Grands Éthers célestes simultanément. À la fin, il tua les deux et, sur le chemin du retour, bien qu'attaqué en embuscade par un autre Grand Éther céleste, il parvint également à l'éliminer!
+Mais alors que la guerre atteignait son paroxysme et que les Célestes avaient envahi la moitié du territoire du clan Ancien, le Grand Empyréen Guo Dao sortit de sa méditation de porte close. Il affronta seul d'innombrables Célestes et combattit deux Grands Empyréens célestes simultanément. À la fin, il tua les deux et, sur le chemin du retour, bien qu'attaqué en embuscade par un autre Grand Empyréen céleste, il parvint également à l'éliminer!
 
-Après cette bataille, le Grand Éther Guo Dao ébranla le Continent Astral Immortel! Ce combat força les Célestes à battre en retraite, mettant fin à la guerre.
+Après cette bataille, le Grand Empyréen Guo Dao ébranla le Continent Astral Immortel! Ce combat força les Célestes à battre en retraite, mettant fin à la guerre.
 
-Des années plus tard, parce que Guo Dao était toujours en vie, il demeurait un moyen de dissuasion majeur pour le clan céleste. Même avec un Grand Éther de plus, ils n'osaient toujours pas envahir le clan Ancien.
+Des années plus tard, parce que Guo Dao était toujours en vie, il demeurait un moyen de dissuasion majeur pour le clan céleste. Même avec un Grand Empyréen de plus, ils n'osaient toujours pas envahir le clan Ancien.
 
-Une rumeur circulait même selon laquelle le Grand Éther Dong Lin du clan céleste aurait défié Guo Dao avant d'être tué!
+Une rumeur circulait même selon laquelle le Grand Empyréen Dong Lin du clan céleste aurait défié Guo Dao avant d'être tué!
 
-La nouvelle concernant Wang Lin se répandit lentement dans le clan Ancien, protégé par le Grand Éther Guo Dao. C'était également la première fois que le nom de « Wang Lin » était gravé dans la mémoire de tant de gens.
+La nouvelle concernant Wang Lin se répandit lentement dans le clan Ancien, protégé par le Grand Empyréen Guo Dao. C'était également la première fois que le nom de « Wang Lin » était gravé dans la mémoire de tant de gens.
 
-Au cours de cette année, l'Ascendant Éthéré Ming Dao semblait avoir été oublié. Tout ce qui le définissait avait été supplanté par Wang Lin.
+Au cours de cette année, l'Ascendant Empyréen Ming Dao semblait avoir été oublié. Tout ce qui le définissait avait été supplanté par Wang Lin.
 
-Dans les terres du clan céleste, au sous-sol du palais de la cité impériale, l'Ascendant Éthéré Ming Dao était assis dans un bassin d'eau noire. L'eau bouillonnait sans cesse, dégageant une brume sombre qui enveloppait les lieux.
+Dans les terres du clan céleste, au sous-sol du palais de la cité impériale, l'Ascendant Empyréen Ming Dao était assis dans un bassin d'eau noire. L'eau bouillonnait sans cesse, dégageant une brume sombre qui enveloppait les lieux.
 
 Au fond du bassin, Ming Dao semblait être en proie à une douleur indicible. Son corps tremblait, mais il n'avait jamais quitté l'eau, endurant cette torture depuis un an.
 
@@ -94,21 +94,21 @@ Alors qu'il continuait de hurler, l'eau noire se mit à bouillir plus violemment
 
 Des ondulations se propagèrent à la surface du bassin tandis que l'Empereur Céleste en sortait.
 
-« Puisque cet empereur t'a fait une promesse, je vais l'honorer. Voici la clé de la raison pour laquelle le lignage de l'Ancêtre Céleste peut engendrer un Grand Éther. Cultiver ici te donnera ce lignage, et ta capacité à retourner à l'origine dépendra de la force de la haine et du ressentiment que tu portes dans ton cœur. »
+« Puisque cet empereur t'a fait une promesse, je vais l'honorer. Voici la clé de la raison pour laquelle le lignage de l'Ancêtre Céleste peut engendrer un Grand Empyréen. Cultiver ici te donnera ce lignage, et ta capacité à retourner à l'origine dépendra de la force de la haine et du ressentiment que tu portes dans ton cœur. »
 
 « Si tu peux tenir assez longtemps, tu pourras retourner à l'origine! »
 
-« Retourner à l'origine... Retourner à l'origine... Wang Lin, je vais te tuer! » Le visage de l'Ascendant Éthéré Ming Dao était déformé par la souffrance et il hurlait comme un fou. Pourtant, ses yeux s'obscurcissaient, comme si sa conscience s'étiolait lentement.
+« Retourner à l'origine... Retourner à l'origine... Wang Lin, je vais te tuer! » Le visage de l'Ascendant Empyréen Ming Dao était déformé par la souffrance et il hurlait comme un fou. Pourtant, ses yeux s'obscurcissaient, comme si sa conscience s'étiolait lentement.
 
 « Tue-le... Tue-le... » Tandis que Ming Dao rugissait, l'Empereur Céleste esquissa à nouveau ce sourire étrange, puis s'en alla.
 
 « Cet empereur restaurera la gloire de l'Ancêtre Céleste en cette génération! Ce vieux Jiu Di est déjà passé, je commencerai par lui. Une fois que j'aurai réussi, qui osera me désobéir? »
 
-« Quant à Dao Yi, cet homme est extrêmement rusé. Autrefois, le titre de Grand Éther aurait dû revenir à son frère aîné, mais il a fait assassiner ce dernier pour lui voler sa qualification! »
+« Quant à Dao Yi, cet homme est extrêmement rusé. Autrefois, le titre de Grand Empyréen aurait dû revenir à son frère aîné, mais il a fait assassiner ce dernier pour lui voler sa qualification! »
 
 « Cet empereur admire un tel individu. Il sera d'une grande utilité! »
 
-« Ce Wu Feng ne respecte absolument pas le lignage impérial. Un tel homme doit mourir! Je vais saisir sa qualification de Grand Éther pour la donner à Dao Fei! Bien que Dao Fei soit mon frère, j'ai investi beaucoup d'efforts en lui et le moment est venu de récolter les fruits. »
+« Ce Wu Feng ne respecte absolument pas le lignage impérial. Un tel homme doit mourir! Je vais saisir sa qualification de Grand Empyréen pour la donner à Dao Fei! Bien que Dao Fei soit mon frère, j'ai investi beaucoup d'efforts en lui et le moment est venu de récolter les fruits. »
 
 « Enfin, il y a Gémeaux. Tant que leurs âmes ne fusionnent pas en une seule, il n'y a aucune inquiétude à avoir! »
 
@@ -116,7 +116,7 @@ L'Empereur Céleste sourit alors qu'il disparaissait de la chambre souterraine.
 
 La Secte Yang Pourpre du Continent de l'Est était le lieu où se trouvait Wang Lin, celui qui avait ébranlé tout le clan céleste. Actuellement, c'était l'hiver et la neige recouvrait la secte d'un manteau argenté.
 
-Hormis les moments où d'autres Ascendants Éthérés venaient débattre du Dao, il avait passé toute cette année en un seul endroit: une zone interdite de la Secte Yang Pourpre.
+Hormis les moments où d'autres Ascendants Empyréens venaient débattre du Dao, il avait passé toute cette année en un seul endroit: une zone interdite de la Secte Yang Pourpre.
 
 C'était le Domaine des Bêtes.
 

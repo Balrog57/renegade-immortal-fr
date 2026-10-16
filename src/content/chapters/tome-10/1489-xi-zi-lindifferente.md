@@ -26,9 +26,9 @@ Ce fut comme s'il entendait le monde entier s'effondrer autour de lui.
 
 Poussé par une peur intense, l'homme parvint à trouver le courage de se relever brusquement. Il recula tout en paraissant anxieux et rugit: « Zhou Cong Yun, tu me calomnies! En tant que messager du Temple Céleste du Tonnerre, j'ai le droit d'ordonner à chacun d'entre vous de déplacer la planète, et vous devez tous obéir à mes commandements. Comment oses-tu m'insulter ainsi? Quelles sont tes intentions? »
 
-« Aîné, n'écoutez pas les calomnies de cet homme! J'ai tout fait pour aider Luotian à se préparer au combat. Je n'ai absolument pas forcé la cultivatrice Xi Zi. Je connais même la cultivatrice Xi Zi, alors comment pourrais-je... » L'homme d'âge moyen recula rapidement jusqu'à une distance de plus de mille pieds.
+« Senior, n'écoutez pas les calomnies de cet homme! J'ai tout fait pour aider Luotian à se préparer au combat. Je n'ai absolument pas forcé la cultivatrice Xi Zi. Je connais même la cultivatrice Xi Zi, alors comment pourrais-je... » L'homme d'âge moyen recula rapidement jusqu'à une distance de plus de mille pieds.
 
-Wang Lin observa l'homme qui fuyait avec le même regard glacial qu'il avait posé sur la destruction de la planète Dong Lin. Ayant traversé tant d'épreuves, il comprit immédiatement la vérité d'un simple coup d'œil.
+Wang Lin observa l'homme qui fuyait avec le même regard glacial qu'il avait posé sur la destruction de la planète Dong Ling. Ayant traversé tant d'épreuves, il comprit immédiatement la vérité d'un simple coup d'œil.
 
 « Tourmenter une femme faible... tu mérites la mort! » Plus Xi Zifeng baissait la tête et reculait, plus elle touchait Wang Lin.
 

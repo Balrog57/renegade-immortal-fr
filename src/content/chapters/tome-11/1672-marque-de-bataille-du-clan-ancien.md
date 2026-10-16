@@ -50,7 +50,7 @@ Bien que Wang Lin possédât sa propre aura ancienne, celle-ci provenait d'un h�
 
 Pourtant, l'aura que dégageait cet homme appartenait bien à Ye Mo!
 
-Dans l'Ancien Système Stellaire, le Souverain observait toujours la scène avec son Sens Divin, une lueur de froideur dans les yeux. L'être scellé dans ce cercueil était un trésor du Conseil Souverain. Lui et le Daoïste aux Sept Couleurs avaient tué d'innombrables membres des clans anciens pour l'obtenir, déclenchant ainsi de nombreux massacres.
+Dans le Système Stellaire Antique, le Souverain observait toujours la scène avec son Sens Divin, une lueur de froideur dans les yeux. L'être scellé dans ce cercueil était un trésor du Conseil Souverain. Lui et le Daoïste aux Sept Couleurs avaient tué d'innombrables membres des clans anciens pour l'obtenir, déclenchant ainsi de nombreux massacres.
 
 À moins d'une nécessité absolue, il n'aurait jamais voulu s'en servir. Cet objet lui serait d'une utilité immense à l'avenir.
 
@@ -104,7 +104,7 @@ Dès qu'il eut fait ce geste, l'homme d'âge moyen poussa un rugissement. Son co
 
 Des craquements retentirent dans le corps de Wang Lin tandis qu'il avançait. Sa stature gonfla follement: 10 pieds, 100 pieds, 1 000 pieds... jusqu'à devenir lui aussi un géant de 10 000 pieds!
 
-D'un pas, Wang Lin sortit de la formation pour la première fois et se tint dans l'Ancien Système Stellaire. Tandis que l'homme d'âge moyen rugissait, un tonnerre de colère retentit également de la part de Wang Lin.
+D'un pas, Wang Lin sortit de la formation pour la première fois et se tint dans le Système Stellaire Antique. Tandis que l'homme d'âge moyen rugissait, un tonnerre de colère retentit également de la part de Wang Lin.
 
 La bataille!
 

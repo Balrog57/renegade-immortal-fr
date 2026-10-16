@@ -74,7 +74,7 @@ Pour les autres, l'attrait de cette troisième âme n'était pas aussi puissant 
 
 Une telle tentation était irrésistible!
 
-« Quiconque parviendra à s'approcher à moins de trois mètres de moi pourra prendre cette âme! » Les paroles de Wang Lin résonnèrent sur toute la planète tel un coup de tonnerre.
+« Quiconque parviendra à s'approcher à moins de 10 pieds de moi pourra prendre cette âme! » Les paroles de Wang Lin résonnèrent sur toute la planète tel un coup de tonnerre.
 
 Les yeux du Daoïste aux Sept Couleurs devinrent rouges. À cet instant, il ne se soucia plus des éventuelles embuscades et chargea. Il pensait que, grâce à sa force, tant qu'il n'attirerait pas l'attention de la bête endormie, il n'aurait rien à craindre.
 
@@ -100,7 +100,7 @@ Le Maître Dao Bleu Rêve fut expulsé par la force de l'Ombrelle Brûlante du R
 
 Après tout, dans le massacre qui allait suivre, Wang Lin n'avait pas le temps de se soucier du Maître Dao Bleu Rêve; il choisit donc de l'écarter.
 
-Des grondements tonnerre éclatèrent et les expressions de tous ceux que l'Ombrelle Brûlante du Royaume bloquait changèrent radicalement. Le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan furent tout aussi stupéfaits, mais ils n'eurent guère le temps de réfléchir. Le feu monstrueux qui couvrait le ciel se précipita sur eux.
+Des grondements de tonnerre éclatèrent et les expressions de tous ceux que l'Ombrelle Brûlante du Royaume bloquait changèrent radicalement. Le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan furent tout aussi stupéfaits, mais ils n'eurent guère le temps de réfléchir. Le feu monstrueux qui couvrait le ciel se précipita sur eux.
 
 L'Ombrelle Brûlante du Royaume n'était pas un sortilège de ce monde caverneux; elle avait fusionné avec l'essence de feu de Wang Lin. Un feu éthéré se propagea et commença à consumer l'esprit des cultivateurs piégés.
 

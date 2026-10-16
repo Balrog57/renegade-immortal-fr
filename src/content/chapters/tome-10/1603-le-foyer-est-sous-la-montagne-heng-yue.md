@@ -88,17 +88,17 @@ En voyant la feuille de saule flotter devant lui, Wang Lin sourit soudainement.
 
 « Grande Fortune, te souviens-tu de notre arrivée à la ville de Su il y a plus de vingt ans? À l'époque, il y avait tout autant de feuilles de saule, et nous étions également sur un bateau. »
 
-Alors qu'il riait, un autre embarcation passa à proximité. Au moment où elle longea leur sillage, deux voix douces et séduisantes s'élevèrent:
+Alors qu'il riait, une autre embarcation passa à proximité. Au moment où elle longea leur sillage, deux voix douces et séduisantes s'élevèrent:
 
-« Sœur aînée, ces feuilles de saule sont bien agaçantes. Elles sont désagréables lorsqu'elles se posent sur vous. »
+« Senior Sister, ces feuilles de saule sont bien agaçantes. Elles sont désagréables lorsqu'elles se posent sur vous. »
 
-« Si tu n'y prêtes pas attention, elles n'existeront pas. Petite sœur, ton cœur n'est pas calme. »
+« Si tu n'y prêtes pas attention, elles n'existeront pas. Junior Sister, ton cœur n'est pas calme. »
 
 En entendant ces voix, il fut saisi par la surprise. Elles lui semblaient étrangement familières, comme s'il les avait déjà entendues. Il se redressa et regarda vers l'autre bateau. Il aperçut les silhouettes de deux femmes.
 
 Ces deux femmes étaient très jeunes et d'une grande beauté. Elles se tenaient parmi les feuilles de saule éparses telles des divinités célestes. Le vent faisait flotter leurs vêtements, accentuant leur grâce.
 
-« Ce sont... elles... » Wang Lin fixa le bateau jusqu'à ce qu'il disparaisse. Dans son esprit, l'image de ce bateau par une nuit pluvieuse, il y de cela plus de vingt ans, resurgit.
+« Ce sont... elles... » Wang Lin fixa le bateau jusqu'à ce qu'il disparaisse. Dans son esprit, l'image de ce bateau par une nuit pluvieuse, il y a de cela plus de vingt ans, resurgit.
 
 Il afficha un sourire empreint de douceur. Il ne pouvait oublier la vue des nuages sombres comme de l'encre sous la pluie; comment il avait contemplé le monde majestueux en récitant un poème. Il se souvenait encore de son bonheur.
 
@@ -118,7 +118,7 @@ Adossé à la proue, buvant son vin, Wang Lin regarda l'eau et vit son propre vi
 
 Le bateau des deux femmes se rapprocha progressivement jusqu'à dépasser celui de Wang Lin. C'était comme deux trajectoires de vie distinctes qui poursuivaient leurs chemins respectifs.
 
-« Tiens, Sœur aînée, je crois que ce vieil homme nous regardait. » Xu Fei jeta un regard vers le dos de Wang Lin.
+« Tiens, Senior Sister, je crois que ce vieil homme nous regardait. » Xu Fei jeta un regard vers le dos de Wang Lin.
 
 Le bateau passa sous un pont de pierre.
 

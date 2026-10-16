@@ -1,6 +1,6 @@
 ---
 n: 1533
-title: "Le Monstre des Profondeurs s'éveille!"
+title: "La Bête des Limbes s'éveille!"
 book: 10
 bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1533 - Nether Beast Awakens!"
@@ -78,23 +78,23 @@ Sa vision se brouilla. Le prix pour obtenir cet arc était trop lourd. Alors qu'
 
 Pour contrôler cet arc, il fallait lui offrir sa propre force vitale. Autrement, même en le tenant, on ne pourrait jamais le bander!
 
-Tandis que Wang Lin ressentait l'aura obstinée de l'arc, la douleur intense le fit cracher du sang. Seul son buste subsistait. Hormis lors de son entrée dans la Tombe de l'Ordre Ancien, une telle blessure était inouïe.
+Tandis que Wang Lin ressentait l'aura obstinée de l'arc, la douleur intense le fit cracher du sang. Seul son buste subsistait. Hormis lors de son entrée dans la Tombe de l'Ordre Antique, une telle blessure était inouïe.
 
-Le Monstre des Profondeurs dormait depuis qu'il avait dévoré la tempête dorée, mais il restait lié à Wang Lin. Cette douleur atroce pénétra son esprit et provoqua le réveil du Monstre des Profondeurs à cet instant même!
+La Bête des Limbes dormait depuis qu'il avait dévoré la tempête dorée, mais il restait lié à Wang Lin. Cette douleur atroce pénétra son esprit et provoqua le réveil de la Bête des Limbes à cet instant même!
 
-Dès son éveil, un rayon de lumière fantomatique jaillit du corps de Wang Lin. D'abord modeste, la lueur grandit rapidement pour devenir immense. Le corps colossal du Monstre des Profondeurs apparut soudainement dans cet espace chaotique!
+Dès son éveil, un rayon de lumière fantomatique jaillit du corps de Wang Lin. D'abord modeste, la lueur grandit rapidement pour devenir immense. Le corps colossal de la Bête des Limbes apparut soudainement dans cet espace chaotique!
 
-Ressentant cette douleur intense, le Monstre des Profondeurs sembla oublier sa peur et poussa un rugissement qui fit trembler les cieux. Il ouvrit la gueule, non pas pour dévorer, mais pour libérer une lumière dorée monstrueuse en même temps que son cri!
+Ressentant cette douleur intense, la Bête des Limbes sembla oublier sa peur et poussa un rugissement qui fit trembler les cieux. Il ouvrit la gueule, non pas pour dévorer, mais pour libérer une lumière dorée monstrueuse en même temps que son cri!
 
 La Tempête Dorée!
 
 La tempête qu'il avait dévorée sans parvenir à la digérer fut recrachée. Cette lumière dorée devint si intense qu'il était impossible de distinguer quoi que ce soit d'autre. La lueur s'étendit rapidement en étant expulsée, volant vers la Formation de Scellement du Royaume!
 
-Cette tempête était assez puissante pour détruire un système stellaire, et presque personne ne pouvait y résister. L'expression du Souverain changea radicalement, surtout après avoir aperçu le Monstre des Profondeurs. Ses yeux étaient empreints d'excitation et de terreur!
+Cette tempête était assez puissante pour détruire un système stellaire, et presque personne ne pouvait y résister. L'expression du Souverain changea radicalement, surtout après avoir aperçu la Bête des Limbes. Ses yeux étaient empreints d'excitation et de terreur!
 
 Tandis que des grondements tonitruants résonnaient, la tempête dorée percuta la Formation de Scellement du Royaume et explosa vers l'extérieur. Une force destructrice surgit soudainement!
 
-Les visages des cultivateurs de la Rivière Invoquée, de Luotian et de Mer de Nuages pâlirent. Les yeux du Maître Hong Shan et de ses compagnons devinrent rouges. Ils utilisèrent désespérément leurs sorts pour déplacer de force ces dizaines de milliers de cultivateurs. En un clin d'œil, plus aucun cultivateur du Royaume Intérieur ne resta sur ce champ de bataille!
+Les visages des cultivateurs de la Rivière Invoquée, de Luotian et de la Mer des Nuages pâlirent. Les yeux du Maître Hong Shan et de ses compagnons devinrent rouges. Ils utilisèrent désespérément leurs sorts pour déplacer de force ces dizaines de milliers de cultivateurs. En un clin d'œil, plus aucun cultivateur du Royaume Intérieur ne resta sur ce champ de bataille!
 
 Tous les cultivateurs du Royaume Intérieur furent évacués par le Maître Hong Shan et ses pairs. Même eux disparurent en un instant.
 
@@ -112,6 +112,6 @@ La tempête dorée se propagea jusqu'à un certain point avant de libérer une d
 
 Une fois la tempête passée, le premier champ de bataille s'était transformé en un trou noir gigantesque s'étendant sur des milliers de lieues, obstruant l'ouverture de la Formation de Scellement du Royaume.
 
-Après avoir recraché la tempête dorée, le Monstre des Profondeurs avait ouvert sa gueule pour dévorer Wang Lin et l'arc. Alors que la force destructrice commençait à se propager, il s'était transformé en une graine de moutarde avant de disparaître.
+Après avoir recraché la tempête dorée, la Bête des Limbes avait ouvert sa gueule pour dévorer Wang Lin et l'arc. Alors que la force destructrice commençait à se propager, il s'était transformé en une graine de moutarde avant de disparaître.
 
 Des grondements tonitruants continuaient de sourdre du trou noir qui scellait l'ouverture entre les Royaumes Intérieur et Extérieur. Ce son allait persister pendant dix, cent, mille, voire des dizaines de milliers d'années, sans montrer le moindre signe de dissipation... La première bataille s'achevait de la manière la plus bizarre qui soit...

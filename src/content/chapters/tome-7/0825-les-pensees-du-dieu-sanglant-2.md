@@ -6,9 +6,9 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 825 - Blood Gods Thoughts (2)
 slug: les-pensees-du-dieu-sanglant-2
 ---
-Un rugissement de colère éclata sous le Sceau de la Scellement Céleste. Une aura terrifiante et suffocante commença soudainement à se répandre avec frénésie.
+Un rugissement de colère éclata sous le Sceau Céleste. Une aura terrifiante et suffocante commença soudainement à se répandre avec frénésie.
 
-Au moment où le Sceau de la Scellement Céleste s'abattit, il fut repoussé par cette force. Les innombrables runes dorées furent déchirées par cette puissance et constamment refoulées.
+Au moment où le Sceau Céleste s'abattit, il fut repoussé par cette force. Les innombrables runes dorées furent déchirées par cette puissance et constamment refoulées.
 
 Des bruits de craquement résonnèrent dans le poing de Ta Shan; son poing droit fut broyé. Même la moitié de son corps fut affectée par l'onde de choc, le projetant au loin.
 
@@ -30,7 +30,7 @@ Wang Lin comprenait désormais clairement la différence entre les cultivateurs 
 
 Bien que ce noyau ait joué un rôle majeur, même sans lui, Yao Changdong devait posséder d'autres sorts.
 
-« Une famille possédant une héritage du Royaume Céleste doit impérativement disposer de nombreux sorts célestes! »
+« Une famille possédant un héritage du Royaume Céleste doit impérativement disposer de nombreux sorts célestes! »
 
 Les yeux de Yao Changdong révélèrent une expression féroce. Sa main droite forma un sceau et le noyau commença à graviter autour de son corps. Simultanément, sa main gauche traça un autre sceau et il hurla: « Sort céleste, Effondrement du Vide! »
 
@@ -92,7 +92,7 @@ Yao Changdong fixa Wang Lin, dont l'aura vacillait. Il serra les dents, frappa s
 
 Il leva la main et le talisman s'envola aussitôt. Une rune complexe tracée à l'encre rouge ornait l'objet. Yao Changdong forma un sceau tout en se mordant la langue pour cracher du sang directement sur le talisman.
 
-En un instant, le talisman fut teinté de rouge sang et la rune sembla prendre vie. Une étrange lumière émana de lui et une flamme rouge singulière commençaa à brûler sur son bord.
+En un instant, le talisman fut teinté de rouge sang et la rune sembla prendre vie. Une étrange lumière émana de lui et une flamme rouge singulière commença à brûler sur son bord.
 
 « Talisman Céleste Impérial! Tue cet homme! » Yao Changdong pointa Wang Lin, sa voix révélant toute sa férocité.
 
@@ -118,7 +118,7 @@ Son corps devint instantanément très faible. Si Ta Shan n'avait pas permis à 
 
 À ses côtés, le Chariot de Guerre qui Tue les Dieux se transforma en papillon. Il battait doucement des ailes, paraissant inoffensif.
 
-Yao Changdong éclata de rire. Sans énergie originelle, tous les trésors de Wang Lin avaient perdu leur efficacité et l'Invoque le Vent avait disparu. Yao Changdong forma une épée avec ses deux doigts de la main droite et chargea directement vers lui.
+Yao Changdong éclata de rire. Sans énergie originelle, tous les trésors de Wang Lin avaient perdu leur efficacité et le sort Invoque le Vent avait disparu. Yao Changdong forma une épée avec ses deux doigts de la main droite et chargea directement vers lui.
 
 « Un simple cultivateur Corporel Yang ose défier ma puissance?! Xu Mu, meurs! »
 

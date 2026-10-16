@@ -68,7 +68,7 @@ Le visage de l'ancêtre de la famille Huan se voila d'ombre alors qu'il projetai
 
 La lumière blanche brilla intensément sur son doigt alors que son intention Dao augmentait de façon effrénée. L'ancêtre de la famille Huan mobilisa toute l'énergie originelle de son corps pour la concentrer au bout de son doigt, puis il pointa impitoyablement vers l'avant.
 
-Le jaillissement de lumière blanche percutat l'énergie de l'épée de Ling Tianhou. Une explosion assourdissante se propagea sur toute la planète Mille Illusions. La lumière blanche se dissipa, laissant passer l'énergie de l'épée qui, telle un éclair, s'engouffra dans le corps de l'ancêtre de la famille Huan par son doigt.
+Le jaillissement de lumière blanche percuta l'énergie de l'épée de Ling Tianhou. Une explosion assourdissante se propagea sur toute la planète Mille Illusions. La lumière blanche se dissipa, laissant passer l'énergie de l'épée qui, telle un éclair, s'engouffra dans le corps de l'ancêtre de la famille Huan par son doigt.
 
 Le corps de l'ancêtre trembla et son visage devint instantanément livide. L'horreur dans ses yeux s'intensifia, et il repensa alors aux paroles du junior:
 

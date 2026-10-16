@@ -42,7 +42,7 @@ Il reprit doucement: « Je sais que ce n'est pas toi qui as ouvert la porte, ne 
 
 La femme sembla ne pas entendre ses paroles. Son regard oscillait entre confusion et effroi tandis qu'elle continuait de murmurer: « Tous morts... Tous ont été tués... »
 
-« Peach Cloud est morte... Purple Fall est également morte... Tous sont morts... »
+« Nuage de Pêche est morte... Chute Pourpre est également morte... Tous sont morts... »
 
 « Il était certain que nous avions ouvert la porte... Tous sont morts, moi aussi... »
 

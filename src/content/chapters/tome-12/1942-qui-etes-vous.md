@@ -64,7 +64,7 @@ Si Liu Jinbiao avait sorti le jeton immédiatement, le vieil homme aurait été 
 
 Tous les disciples de la Secte du Nuage présents furent stupéfaits. La Secte du Nuage était la plus faible secte du Continent du Grand Sage. Ils ne comptaient qu'un seul cultivateur du troisième niveau, un ancêtre Vide du Nirvana qui restait en retraite méditative toute l'année.
 
-Quant au vieil homme, il n'était qu'au stade de la Souffrance Céleste. Il n'avait aucune intention de parier sur une chose aussi insignifiante.
+Quant au vieil homme, il n'était qu'au stade du Fléau Céleste. Il n'avait aucune intention de parier sur une chose aussi insignifiante.
 
 L'expression de Liu Jinbiao resta impassible et il laissa échapper un ricanement intérieur. Il s'envola loin de la Secte du Nuage et ce n'est que lorsqu'il fut à distance respectable qu'il atterrit dans une vieille forêt, au cœur des montagnes.
 

@@ -70,7 +70,7 @@ L'effondrement des 7 Millions de Mondes s'étendit sans fin, entraînant la chut
 
 Un coup d'épée infiniment proche, dépassant même la puissance d'un cultivateur du troisième niveau, surgit soudainement!
 
-Si le Daoïste Eau devait faire face à cette attaque, il n'aurait d'autre choix que de fuir. S'il était touché, il mourrait sans l'ombre d'un doute!
+Si le Shui Daozi devait faire face à cette attaque, il n'aurait d'autre choix que de fuir. S'il était touché, il mourrait sans l'ombre d'un doute!
 
 Malgré tous ses efforts, le Grand Ancien ne put l'éviter. Il cracha une gorgée d'énergie originelle et son corps, qu'il venait de reconstruire avec le tonnerre, explosa!
 

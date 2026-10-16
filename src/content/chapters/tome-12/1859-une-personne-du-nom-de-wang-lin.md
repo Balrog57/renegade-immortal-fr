@@ -66,7 +66,7 @@ Ce n'est que grâce à cette conjonction de facteurs qu'il avait pu terrasser Li
 
 Personne d'autre n'avait remarqué qu'il était l'auteur de la mort de Liu Zhiyuan. Wang Lin s'y était attendu. En attaquant, il avait resserré les restrictions autour d'eux pour empêcher Liu Zhiyuan de fuir. Grâce à cela, même si d'autres avaient balayé la zone avec leur Sens Divin, ils n'auraient rien pu percevoir de clair.
 
-Bien qu'il eût utilisé l'Illusion de l'Âme Originelle pour invoquer le neuvième ancêtre du Grand Secte de l'Âme, il était fort peu probable que quelqu'un remarque le sortilège depuis l'extérieur de la restriction.
+Bien qu'il eût utilisé l'Illusion de l'Âme Originelle pour invoquer le neuvième ancêtre de la Secte de la Grande Âme, il était fort peu probable que quelqu'un remarque le sortilège depuis l'extérieur de la restriction.
 
 Après tout, Wang Lin recelait trop de secrets et de méthodes qu'il ne souhaitait pas divulguer. Il était donc naturel d'ériger des restrictions pour que nul ne puisse tout voir.
 
@@ -126,7 +126,7 @@ Le vieil homme nommé Zhao appartenait à la Secte des Restrictions Démoniaques
 
 Les yeux de Zhao s'illuminèrent et il dit lentement: « Je ne maîtrise pas la Restriction d'Isolement Démoniaque et je n'en suis pas familier, c'est pourquoi je ne l'ai pas remarquée... Mais puisque vous le mentionnez, un souvenir me revient à l'esprit... »
 
-« Lors de la tragédie de la Mer de Pilules, après l'enquête de la Secte des Restrictions Démoniaques et les rapports d'espionnage, l'homme derrière tout cela était un Ancien du Grand Secte de l'Âme nommé Wang Lin... Et dans la Mer de Pilules, une boussole d'Isolement a disparu! Selon la restriction centrale, cette boussole n'a pas été détruite! » En parlant, le vieil homme Zhao regarda vers les profondeurs de la Prairie de l'Extrême Ciel.
+« Lors de la tragédie de la Mer de Pilules, après l'enquête de la Secte des Restrictions Démoniaques et les rapports d'espionnage, l'homme derrière tout cela était un Ancien de la Secte de la Grande Âme nommé Wang Lin... Et dans la Mer de Pilules, une boussole d'Isolement a disparu! Selon la restriction centrale, cette boussole n'a pas été détruite! » En parlant, le vieil homme Zhao regarda vers les profondeurs de la Prairie de l'Extrême Ciel.
 
 « Si c'est le cas, il est fort probable qu'il soit celui qui a tué l'Ancien Liu! Même si ce n'est pas lui, il doit y avoir un lien! »
 

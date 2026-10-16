@@ -48,7 +48,7 @@ D'un seul pas, il quitta le vortex de la statue et chargea Wang Lin. Sa vitesse 
 
 Dans le champ de vision de Wang Lin, une ombre gigantesque, aussi vaste que le monde, apparut derrière le vieil homme. L'ombre représentait un tigre blanc colossal!
 
-Ce tigre géant avait un regard féroce et dégageait une pression capable de subjuguer le monde. Le vieil homme affichait une puissante culture du stade intermédiaire de l'Espace Arcane.
+Ce tigre géant avait un regard féroce et dégageait une pression capable de subjuguer le monde. Le vieil homme affichait une puissante culture du stade intermédiaire du Vide Arcane.
 
 L'expression de Wang Lin resta sereine tandis qu'il observait le vieillard. Sa main droite se crispa en un poing et il lança un coup vers lui. Lorsque les deux forces entrèrent en collision, un fracas tonitruant retentit, faisant trembler la terre.
 
@@ -66,7 +66,7 @@ Mais juste au moment où il allait faire un pas en avant, le regard calme de Wan
 
 Plus le regard de Wang Lin était serein, plus la pression exercée sur le vieillard était écrasante.
 
-« Je ne souhaite pas vous tuer. À mes yeux, le Royaume Céleste Antique n'a rien d'extraordinaire. Ce n'est qu'un groupe de cultivateurs infirmiers du Continent Astral Immortel qui se font appeler "Célestes" dans cette caverne pour contrôler les soi-disant "fourmis des royaumes inférieurs". C'est tout simplement ridicule! »
+« Je ne souhaite pas vous tuer. À mes yeux, le Royaume Céleste Antique n'a rien d'extraordinaire. Ce n'est qu'un groupe de cultivateurs infirmes du Continent Astral Immortel qui se font appeler "Célestes" dans cette caverne pour contrôler les soi-disant "fourmis des royaumes inférieurs". C'est tout simplement ridicule! »
 
 « À mes yeux, vous êtes tous comme des fourmis également! »
 

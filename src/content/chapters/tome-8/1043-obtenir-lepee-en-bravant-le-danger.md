@@ -74,7 +74,7 @@ Sous l'effet de ce cri, d'innombrables fissures apparurent sur les blocs de glac
 
 Des paires de regards écarlates surgirent dans le gouffre et se fixèrent sur Wang Lin, alors qu'il tentait de sortir du puits.
 
-*Roar!*
+*Grrraaah!*
 
 Un rugissement semblable à celui d'une bête féroce résonna dans les profondeurs, similaire à celui du fantôme. Ce cri provoqua une tempête qui balaya l'espace vers le haut.
 
@@ -118,7 +118,7 @@ Portés par cette chaleur, les cinq dragons de flammes noires percèrent les obs
 
 Les cadavres qui tentaient de bondir pour entraver sa course s'effondrèrent sous l'assaut des cinq dragons noirs flamboyants. Ces derniers chargeaient avec une fureur dévastatrice, permettant à la vitesse de Wang Lin d'atteindre son paroxysme au cœur du brasier.
 
-Wang Lin déployait toute la puissance de sa culture Scruteur du Nirvana et de son corps d'Ancien Dieu sans aucune retenue. Sur son épaule, le Renard Sable Marquée s'agrippait désespérément à ses vêtements, tenant les cheveux de Wang Lin entre ses dents; une lueur de terreur brillait dans ses yeux intelligents.
+Wang Lin déployait toute la puissance de sa culture Scruteur du Nirvana et de son corps d'Ancien Dieu sans aucune retenue. Sur son épaule, le Blaireau Marqué d'Étoiles s'agrippait désespérément à ses vêtements, tenant les cheveux de Wang Lin entre ses dents; une lueur de terreur brillait dans ses yeux intelligents.
 
 Les flammes continuaient de monter, devenant de plus en plus rapides et féroces au fur et à mesure de leur ascension. Bientôt, elles formèrent un pilier de feu qui perça le sommet du puits.
 

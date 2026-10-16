@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 940 - Four Star Royal Ancient God
 slug: dieu-ancien-royal-a-quatre-etoiles
 ---
-Alors que Wang Lin inspirait, l'étoile violette trembla et se précipita vers lui. Juste au moment où elle allait être dévorée par Wang Lin, le Serpent Regardant la Lune laissa échapper un rugissement. Soudain, une aura de dieu ancien extrêmement puissante explosa du corps du serpent.
+Alors que Wang Lin inspirait, l'étoile violette trembla et se précipita vers lui. Juste au moment où elle allait être dévorée par Wang Lin, le Serpent aux yeux de lune laissa échapper un rugissement. Soudain, une aura de dieu ancien extrêmement puissante explosa du corps du serpent.
 
 Au même instant, Yi Muzi et Wudo Chan affichèrent une étrange lueur dans leurs yeux et se lancèrent tous deux vers l'étoile violette. Cependant, ayant déjà épuisé une grande partie de leur énergie originelle lors de la bataille précédente, leur niveau de culture était tombé directement au stade du Scruteur du Nirvana.
 
@@ -102,7 +102,7 @@ Cette scène ne choqua pas seulement Yi Muzi et ses compagnons; elle stupéfia �
 
 Ces deux individus ne représentaient plus de menace pour lui. Leur culture avait déjà été lourdement scellée et le resterait.
 
-Puis, le regard de Wang Lin se tourna vers le Serpent Regardant la Lune qui dégageait l'aura d'un dieu ancien. Il ouvrit alors la bouche et poussa un rugissement!
+Puis, le regard de Wang Lin se tourna vers le Serpent aux yeux de lune qui dégageait l'aura d'un dieu ancien. Il ouvrit alors la bouche et poussa un rugissement!
 
 Le cri provenant de son corps de mille pieds n'était en rien inférieur à celui du serpent; c'était le hurlement d'un dieu ancien. Ce rugissement était si puissant qu'il faisait trembler les cieux; même ce vide semblait incapable de contenir la voix d'un dieu ancien!
 
@@ -114,9 +114,9 @@ Pour le clan des dieux anciens, passer de trois étoiles à quatre étoiles exig
 
 Et cette qualification lui donnait le droit de défier!
 
-Son rugissement servait à signifier au dieu ancien logé dans le Serpent Regardant la Lune qu'il le provoquait en duel!
+Son rugissement servait à signifier au dieu ancien logé dans le Serpent aux yeux de lune qu'il le provoquait en duel!
 
-Dès que le cri de Wang Lin retentit, un rugissement jaillit de l'intérieur du serpent. Le Serpent Regardant la Lune ouvrit sa gueule et d'innombrables tentacules en sortirent. Une personne se trouvait emmêlée parmi ces membres, fixant Wang Lin du regard.
+Dès que le cri de Wang Lin retentit, un rugissement jaillit de l'intérieur du serpent. Le Serpent aux yeux de lune ouvrit sa gueule et d'innombrables tentacules en sortirent. Une personne se trouvait emmêlée parmi ces membres, fixant Wang Lin du regard.
 
 Cet individu avait la taille d'un cultivateur ordinaire, mais cinq étoiles floues tournaient sur son front. Prisonnier des tentacules, il s'adressa à Wang Lin:
 

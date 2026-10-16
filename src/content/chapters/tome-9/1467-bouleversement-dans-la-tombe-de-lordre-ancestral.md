@@ -1,20 +1,20 @@
 ---
 n: 1467
-title: "Bouleversement dans la Tombe de l'Ordre Ancestral"
+title: "Bouleversement dans la Tombe de l'Ordre Antique"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1467 - Upheaval in the Ancient Order Tomb
 slug: bouleversement-dans-la-tombe-de-lordre-ancestral
 ---
-Un bouleversement s'amorça à l'intérieur de la Tombe de l'Ordre Ancestral. Dès que la faille s'ouvrit, toute la brume se mit à tourbillonner et à gronder violemment.
+Un bouleversement s'amorça à l'intérieur de la Tombe de l'Ordre Antique. Dès que la faille s'ouvrit, toute la brume se mit à tourbillonner et à gronder violemment.
 
 Le changement intérieur provoqua également un bouleversement à l'extérieur.
 
-À cet instant, devant la Tombe de l'Ordre Ancestral, la faille qui avait disparu réapparut une fois de plus. La brume extérieure sembla se connecter à celle de l'intérieur et commença à s'agiter. Le fracas des masses de brume entrant en collision se propagea au loin.
+À cet instant, devant la Tombe de l'Ordre Antique, la faille qui avait disparu réapparut une fois de plus. La brume extérieure sembla se connecter à celle de l'intérieur et commença à s'agiter. Le fracas des masses de brume entrant en collision se propagea au loin.
 
 Dès l'apparition de la faille, la brume fut aspirée vers elle. Celle-ci semblait exercer une force d'aspiration colossale, engloutissant tout sur son passage. En un éclair, plus de la moitié fut absorbée, et le reste continuait d'être rapidement happé par la faille.
 
-Non loin de la Tombe de l'Ordre Ancestral, sur une plante morte, le corps principal de Grande Désolation ouvrit les yeux. Son visage était pâle et son regard empreint d'une cruauté sans nom. Durant sa vie, il avait toujours aimé rompre ses promesses, mais tous ceux qui connaissaient cette habitude étaient morts, ce qui évitait que sa réputation ne se propage.
+Non loin de la Tombe de l'Ordre Antique, sur une plante morte, le corps principal de Grande Désolation ouvrit les yeux. Son visage était pâle et son regard empreint d'une cruauté sans nom. Durant sa vie, il avait toujours aimé rompre ses promesses, mais tous ceux qui connaissaient cette habitude étaient morts, ce qui évitait que sa réputation ne se propage.
 
 Bien qu'il eût entretenu une certaine amitié avec la deuxième génération de l'Oiseau Vermillon, comment cela pouvait-il rivaliser avec les bénéfices? C'était en raison de son tempérament qu'il n'avait presque aucun ami après des dizaines de milliers d'années de culture. Il laissa échapper un reniflement froid et son corps disparut. Il réapparut aussitôt devant la brume qui était aspirée avec rapidité.
 
@@ -26,7 +26,7 @@ Au moment où la faille commença à absorber la brume, une planète illusoire a
 
 « Grande Désolation a osé voler mon avatar, et cet individu a osé ruiner... mon plan! En ce moment même, un bouleversement se produit dans la tombe et la restriction d'entrée a disparu... » Le vieil homme réfléchit un instant puis agita la main. Les vagues déferlèrent devant lui et une porte gigantesque, façonnée par l'océan lui-même, apparut!
 
-Le vieil homme se leva et franchit le seuil de la porte. Sa silhouette surgit à l'extérieur de la Tombe de l'Ordre Ancestral. À cet instant, l'espace devant lui se distordit, semblant se diviser en neuf mondes. Une personne sortit de cette distorsion!
+Le vieil homme se leva et franchit le seuil de la porte. Sa silhouette surgit à l'extérieur de la Tombe de l'Ordre Antique. À cet instant, l'espace devant lui se distordit, semblant se diviser en neuf mondes. Une personne sortit de cette distorsion!
 
 Il s'agissait d'un homme d'âge mûr au visage sombre. Dès son apparition, ses yeux brillèrent comme des éclairs alors qu'il lança un regard à Maître du Dao Miao Yin: « Le vieux Daoïste Miao Yin, qui n'avait pas quitté l'océan violet depuis des dizaines de milliers d'années, s'est donc lui aussi aventuré dans ces eaux troubles. »
 
@@ -36,7 +36,7 @@ Après un moment, Maître du Dao Miao Yin dit soudainement: « Le Vieux Poison G
 
 Le Maître Démon Neuf Cieux fronça les sourcils et demanda: « Pourrait-il s'agir d'un piège? »
 
-« Ce ne devrait pas être le cas... Quelqu'un capable de tendre un piège dans la Tombe de l'Ordre Ancestral ferait-il une chose pareille? » Les deux se regardèrent, le regard empreint de détermination.
+« Ce ne devrait pas être le cas... Quelqu'un capable de tendre un piège dans la Tombe de l'Ordre Antique ferait-il une chose pareille? » Les deux se regardèrent, le regard empreint de détermination.
 
 « Grande Désolation doit être scellé! »
 
@@ -52,7 +52,7 @@ Cette empreinte de paume était immense, assez vaste pour couvrir tout ce domain
 
 Un gaz noir apparut sous la paume, formant une silhouette obscure. Cette personne était couverte d'une robe noire, rendant son apparence impossible à distinguer.
 
-« La grande bataille est sur le point de commencer, rien ne doit donc vous arriver. Cette Tombe de l'Ordre Ancestral... n'y allez pas. » Après un bref silence, la faille ne rétrécit pas; elle semblait attendre que les cultivateurs y pénètrent.
+« La grande bataille est sur le point de commencer, rien ne doit donc vous arriver. Cette Tombe de l'Ordre Antique... n'y allez pas. » Après un bref silence, la faille ne rétrécit pas; elle semblait attendre que les cultivateurs y pénètrent.
 
 Maître du Dao Miao Yin regarda l'homme en robe noire et demanda: « Divinez-vous qu'un accident va se produire? »
 
@@ -62,9 +62,9 @@ Maître du Dao Miao Yin regarda l'homme en robe noire et demanda: « Divinez-vou
 
 Le Maître Démon Neuf Cieux sourit et joignit les mains en signe de respect: « Il semble que vos blessures soient presque guéries. Si un accident survient, nous ne manquerons pas de vous solliciter. » Sans aucune hésitation, le Maître Démon Neuf Cieux s'élança dans la faille. Celle-ci resta là, flottante. La silhouette floue en noir resta immobile et poussa un long soupir après un long moment.
 
-« J'espère que rien ne se passera... Deux des cinq maîtres: Vide Arcanique Grande Désolation, Zhou Jin, ainsi que deux des Anciennes Concubines Célestes. Ils représentent 30 % de la puissance de mon Système des Anciennes Étoiles... Tous sont entrés dans la Tombe de l'Ordre Ancestral... Je suis inquiet... »
+« J'espère que rien ne se passera... Deux des cinq maîtres: Vide Arcanique Grande Désolation, Zhou Jin, ainsi que deux des Anciennes Concubines Célestes. Ils représentent 30 % de la puissance de mon Système des Anciennes Étoiles... Tous sont entrés dans la Tombe de l'Ordre Antique... Je suis inquiet... »
 
-À l'intérieur de la Tombe de l'Ordre Ancestral, les deux bras gigantesques avaient balayé l'espace comme pour détruire la première plateforme de rang 9, mais ils avaient en réalité ouvert une faille vers un autre monde.
+À l'intérieur de la Tombe de l'Ordre Antique, les deux bras gigantesques avaient balayé l'espace comme pour détruire la première plateforme de rang 9, mais ils avaient en réalité ouvert une faille vers un autre monde.
 
 Le visage de Wang Lin était pâle, mais il n'hésita nullement. Dès que la faille apparut, il s'y engouffra.
 

@@ -32,7 +32,7 @@ Song Luohai pensait bien connaître ces bêtes. Son but était de capturer un ro
 
 Trois mois auparavant, Song Luohai avait repéré cet essaim et était convaincu qu'un roi moustique s'y trouvait. Il avait donc passé trois mois à se faufiler ici sans perturber les moustiques rouges ou bleus.
 
-Toutefois, il faisait face à un dilemme. Tout cela était dû aux deux bêtes moustiques blanches qui étaient arrivées il y a une demi-lune. Song Luohai ne les avait vues qu'une seule fois, mais il percevait clairement l'aura et la pression émanant de cultivateurs au stade Briseur du Nirvana.
+Toutefois, il faisait face à un dilemme. Tout cela était dû aux deux bêtes moustiques blanches qui étaient arrivées il y a quinze jours. Song Luohai ne les avait vues qu'une seule fois, mais il percevait clairement l'aura et la pression émanant de cultivateurs au stade Briseur du Nirvana.
 
 Song Luohai avait méticuleusement préparé ce voyage. Il avait estimé ses chances de réussite à 30 %. Une fois ses spéculations confirmées, son nom résonnerait dans toute la région de rang 8, et même les vieux monstres devraient tenir compte de lui.
 

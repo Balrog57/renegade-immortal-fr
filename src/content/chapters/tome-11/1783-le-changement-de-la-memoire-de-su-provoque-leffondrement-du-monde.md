@@ -40,7 +40,7 @@ Parmi les silhouettes dorées, quiconque observait la performance de Wang Lin da
 
 Le visage du maître de Su Dao rayonnait d'un sourire fier. Plus les performances de Wang Lin étaient éclatantes, plus sa récompense serait grande.
 
-À l'intérieur du premier essai, Wang Lin sentait distinctement l'apparition de nombreuses distorsions alors qu'il collectait les jetons en dépit de ces génies issus de la mémoire de Su Dao. Ces anomalies résultaient des altérations mémorielles et signalaient que les souvenirs de la troisième âme étaient en train de changer.
+À l'intérieur du premier essai, Wang Lin sentait distinctement l'apparition de nombreuses distorsions alors qu'il collectait les jetons et abattait ces génies issus de la mémoire de Su Dao. Ces anomalies résultaient des altérations mémorielles et signalaient que les souvenirs de la troisième âme étaient en train de changer.
 
 « La simulation n'est pas assez puissante... » Wang Lin secoua la tête et son Sens Divin se déploya sur toute la zone. À l'instant où son Sens Divin s'étendit, chaque présence apparut dans son esprit.
 

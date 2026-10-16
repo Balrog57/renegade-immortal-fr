@@ -60,13 +60,13 @@ Bien que ces étoiles soient des illusions, elles tournaient selon la même traj
 
 Il regarda devant lui et devint progressivement plus calme, mais ce sentiment de majesté ne fit que s'intensifier. À cet instant, l'aura que dégageait Wang Lin aurait suffi à étouffer même des cultivateurs du troisième pas!
 
-Le premier à ressentir cette aura fut l'Estimé Ling Dong, à l'intérieur du Fourneau de l'Empereur de Wang Lin. Il était pleinement concentré sur la suppression de Zhou Jin et s'employait, avec le Fourneau, à le raffiner. Cependant, dès que l'aura tyrannique se manifesta, le visage de l'Estimé Ling Dong pâlit et son expression changea radicalement. Envahi par la peur, il cessa immédiatement toute action. Il fut contraint de sortir du Fourneau de l'Empereur, de l'étoile et du corps de Wang Lin.
+Le premier à ressentir cette aura fut l'Estimé Ling Dong, à l'intérieur du Fourneau Impérial de Wang Lin. Il était pleinement concentré sur la suppression de Zhou Jin et s'employait, avec le Fourneau, à le raffiner. Cependant, dès que l'aura tyrannique se manifesta, le visage de l'Estimé Ling Dong pâlit et son expression changea radicalement. Envahi par la peur, il cessa immédiatement toute action. Il fut contraint de sortir du Fourneau Impérial, de l'étoile et du corps de Wang Lin.
 
 C'était comme s'il allait être écrasé et tué par cette aura s'il ne partait pas. Les étoiles de Wang Lin tournaient rapidement tandis qu'il était expulsé. Lorsqu'il vit Wang Lin, il s'agenouilla immédiatement sur la plateforme.
 
 Ce n'est qu'en s'agenouillant que la pression diminua légèrement, mais elle restait écrasante. C'était comme si d'innombrables montagnes pesaient sur sa tête. Il avait l'impression de ne plus être un cultivateur du troisième pas, mais un simple mortel. Son corps tremblait et il n'osait même pas lever les yeux.
 
-Il y avait également un autre cultivateur du troisième pas nommé Zhou Jin à l'intérieur du Fourneau de l'Empereur. Il était extrêmement arrogant et refusait de se soumettre, même en étant raffiné. S'il n'avait pas été réprimé par l'Estimé Ling Dong et piégé par les huit gouttes de poison, il ne se serait pas avoué vaincu si facilement.
+Il y avait également un autre cultivateur du troisième pas nommé Zhou Jin à l'intérieur du Fourneau Impérial. Il était extrêmement arrogant et refusait de se soumettre, même en étant raffiné. S'il n'avait pas été réprimé par l'Estimé Ling Dong et piégé par les huit gouttes de poison, il ne se serait pas avoué vaincu si facilement.
 
 Cependant, à cet instant, la pression émanant du corps de Wang Lin fit blêmir Zhou Jin, et la panique envahit son esprit. Cette pression imprévue provoqua le relâchement des huit gouttes de poison qui l'entouraient et affaiblit les 20 Feuilles Anciennes!
 

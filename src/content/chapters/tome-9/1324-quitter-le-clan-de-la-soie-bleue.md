@@ -12,7 +12,7 @@ Lorsque le Clan de la Lune trahit les dieux anciens, il reçoit l'aide d'un grou
 
 Ce n'est que grâce à leur aide que le Clan de la Lune trouva la confiance et la volonté nécessaires pour trahir les dieux anciens!
 
-Cependant, même aujourd'hui, le Clan de la Lune n'a pas été en mesure de deviner l'identité de ce groupe mystérieux de cultivateurs. Même l'ancêtre du troisième niveau du Clan de la Lune n'en savait pas grand-chose.
+Cependant, même aujourd'hui, le Clan de la Lune n'a pas été en mesure de deviner l'identité de ce groupe mystérieux de cultivateurs. Même l'ancêtre de la troisième étape du Clan de la Lune n'en savait pas grand-chose.
 
 La rumeur disait que les cultivateurs mystérieux apparus soudainement semblaient avoir conclu des accords avec de nombreux clans, tout en n'ayant que peu de liens avec les concubines impériales antiques...
 
@@ -30,7 +30,7 @@ Ses yeux s'illuminèrent et il agita la main droite, rangeant le doigt géant du
 
 Les étoiles brillaient alors que Wang Lin flottait dans le vide, se remémorant la scène étrange de la femme en blanc. Cependant, une conjecture persistait dans son esprit...
 
-Après un long moment, Wang Lin réprima cette pensée. Il regarda silencieusement en direction du Mont Bleu. Il semblait vaguement apercevoir Li Qianmei et le Maître Daoiste Rêve Bleu.
+Après un long moment, Wang Lin réprima cette pensée. Il regarda silencieusement en direction du Mont Bleu. Il semblait vaguement apercevoir Li Qianmei et le Maître du Dao Rêve Bleu.
 
 Il afficha un regard complexe avant de laisser échapper un soupir. Puis, se transformant en un rayon de lumière, il s'envola vers les confins du Clan de la Soie Bleue!
 
@@ -38,7 +38,7 @@ Avant de quitter le territoire, des ondulations apparurent sous les pieds de Wan
 
 Wang Lin était parti.
 
-Au moment de son départ, sur le Mont Bleu, le Maître Daoiste Rêve Bleu jouait encore de la cithare sans lever la tête. Li Qianmei cultivait silencieusement, comme si elle n'avait rien remarqué...
+Au moment de son départ, sur le Mont Bleu, le Maître du Dao Rêve Bleu jouait encore de la cithare sans lever la tête. Li Qianmei cultivait silencieusement, comme si elle n'avait rien remarqué...
 
 Wang Lin utilisa la courbure spatiale pour fusionner avec le monde et, après quelques respirations, des ondulations apparurent quelque part dans le Système Stellaire Antique. Une distorsion émanait de ces ondulations, comme si une silhouette était sur le point de s'y manifester.
 
@@ -112,6 +112,6 @@ Wang Lin ricana alors que le monde autour de lui se contractait pour former une 
 
 À ces mots, l'expression de la femme changea radicalement. Elle n'aurait jamais imaginé qu'il puisse déceler qu'elle n'était qu'un avatar!
 
-La femme en blanc se rapprocha en disant: « C'est le Maître Daoiste Rêve Bleu qui vous a dit cela! »
+La femme en blanc se rapprocha en disant: « C'est le Maître du Dao Rêve Bleu qui vous a dit cela! »
 
 « Sceau de la Révocation Céleste! » La main droite de Wang Lin s'abattit immédiatement! Le monde dans les pupilles de Wang Lin tourna, et l'univers extérieur changea instantanément avec lui!

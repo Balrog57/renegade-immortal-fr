@@ -8,7 +8,7 @@ slug: une-nouvelle-ere
 ---
 Lorsque la hache apparut, une aura de Dieu Ancestral se déploya comme des vagues océaniques. Cette aura fit trembler la Formation de Scellement du Royaume avec une violence accrue.
 
-Des grondements tonitruants résonnaient dans les oreilles et persistaient. Si l'on fermait les yeux, on aurait pu ressentir l'innombrable carnage auquel la hache avait fait face durant ses comètes d'années d'existence. Tant de vies avaient été anéanties par cette arme!
+Des grondements tonitruants résonnaient dans les oreilles et persistaient. Si l'on fermait les yeux, on aurait pu ressentir l'innombrable carnage auquel la hache avait fait face durant ses innombrables années d'existence. Tant de vies avaient été anéanties par cette arme!
 
 Au moment où la hache apparut, Wang Lin se tenait devant elle. Il vit d'innombrables âmes illusoires, empreintes de ressentiment, entourer l'arme en poussant des hurlements fantomatiques. De loin, elles ressemblaient à une multitude de protubérances.
 
@@ -48,7 +48,7 @@ L'Épée de Sang disparut de la main de Wang Lin et, simultanément, il s'élan�
 
 La main droite de Wang Lin serra implacablement; peu importait l'agitation de la Hache de la Fente Céleste, elle ne pouvait s'échapper. Cependant, à cet instant, l'ombre d'un Dieu Ancestral apparut au sommet de la hache et sembla pousser un rugissement. Bien qu'il fût impossible de distinguer son visage, il se précipita vers Wang Lin telle une bourrasque, comme s'il voulait le dévorer.
 
-L'ombre mesurait des dizaines de milliers de pieds et avait une forme conique, plus large à sa base. Elle ressemblait à une fumée s'étendant d'innombrables fois en montant vers le ciel.
+L'ombre mesurait des dizaines de milliers de pieds et avait une forme conique, plus large dans sa partie haute. Elle ressemblait à une fumée s'étendant d'innombrables fois en montant vers le ciel.
 
 Cette ombre était l'esprit du trésor de la Hache de la Fente Céleste. Elle fonça sur Wang Lin dans un hurlement.
 
@@ -94,7 +94,7 @@ Cet effondrement était total, absolu et irréversible!
 
 Tandis que tout s'écroulait, les cultivateurs restants dans les quatre grands systèmes stellaires furent frappés de stupeur. Le système stellaire lui-même semblait bouillonner, et la Formation de Scellement du Royaume qui avait emprisonné le Royaume Intérieur pendant des dizaines de milliers d'années était en train de voler en éclats.
 
-Dans la Mer Nuageuse, Mu Bingmei, la femme en rose et Xi Zifeng s'étaient regroupés. Ils cessèrent de voler pour contempler le système stellaire environnant. Ils se trouvaient encore à une certaine distance de Wang Lin.
+Dans la Mer des Nuages, Mu Bingmei, la femme en rose et Xi Zifeng s'étaient regroupés. Ils cessèrent de voler pour contempler le système stellaire environnant. Ils se trouvaient encore à une certaine distance de Wang Lin.
 
 Cependant, l'effondrement de la Formation de Scellement du Royaume les empêchait d'avancer, alors ils restèrent ensemble. Ils virent le filet gigantesque sous leurs pieds se briser, et le choc de cette vision fit pâlir leurs visages.
 
@@ -104,7 +104,7 @@ Dès que le jade se brisa, la Formation de Scellement du Royaume s'effondra soud
 
 À cet instant, le Vide Brillant ne fut plus ceint par la Formation de Scellement du Royaume. La Rivière Invoquée était désormais totalement exposée au Royaume Extérieur.
 
-En cet instant, Luotian et la Mer Nuageuse étaient enfin libres!
+En cet instant, Luotian et la Mer des Nuages étaient enfin libres!
 
 Après des dizaines de milliers d'années, la barrière entre le Royaume Intérieur et le Royaume Extérieur avait disparu; ils ne faisaient plus qu'un! La Formation de Scellement du Royaume, qui semblait avoir toujours existé et qui était transmise de génération en génération, s'était effondrée et avait disparu!
 

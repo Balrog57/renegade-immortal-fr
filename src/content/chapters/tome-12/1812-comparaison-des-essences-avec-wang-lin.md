@@ -18,11 +18,11 @@ Tout cela rendait impossible pour Du Qing de juger l'identité et l'origine de W
 
 « Ou alors il possède un passé très profond... Pour obtenir de tels sorts auprès de ces sectes... » Le visage de Du Qing se crispa tandis qu'il reculait de cent pas, d'innombrables spéculations traversant son esprit.
 
-« Si c'est le premier cas, cet homme est très rusé et sait parfaitement se dissimuler. Son niveau de culture ne doit pas être ce qu'il semble, et il sera très difficile à affronter... Un tel homme, bien que redoutable, ne poserait aucun problème si je l'assassinnais... »
+« Si c'est le premier cas, cet homme est très rusé et sait parfaitement se dissimuler. Son niveau de culture ne doit pas être ce qu'il semble, et il sera très difficile à affronter... Un tel homme, bien que redoutable, ne poserait aucun problème si je l'assassinais... »
 
 « Mais si c'est le second cas... » Les pupilles de Du Qing se rétractèrent.
 
-« Si c'est le second cas, cet homme est intouchable! Le fait que la Secte Dong Lin et la Secte du Monde lui aient cédé ces sorts est déjà prodigieux. Mais faire en sorte que Song Yun Dao de la Secte des Trois Dao, nommé par l'Empereur Céleste, renonce à l'Ombrelle de Brûlure du Royaume... C'est... C'est tout simplement terrifiant... »
+« Si c'est le second cas, cet homme est intouchable! Le fait que la Secte Dong Lin et la Secte du Monde lui aient cédé ces sorts est déjà prodigieux. Mais faire en sorte que Song Yun Dao de la Secte des Trois Dao, nommé par l'Empereur Céleste, renonce à l'Ombrelle Brûlante du Royaume... C'est... C'est tout simplement terrifiant... »
 
 « Quel genre de lignée peut permettre cela... » Du Qing songea à quelque chose, et son visage devint encore plus pâle.
 
@@ -82,7 +82,7 @@ Au cœur de cette brume résidait une aura dense d'essence terrestre. L'aura se 
 
 « Essence du Poids! » Du Qing leva les yeux vers le ciel dans un rugissement. S'il avait pu devenir un cultivateur du Vide Arcanique et traverser plusieurs Tribulations Arcanes, outre son corps, c'était grâce à son essence du poids.
 
-La raison pour laquelle il était protégé par la Grande Secte de l'Âme était également liée à cette essence!
+La raison pour laquelle il était protégé par la Secte de la Grande Âme était également liée à cette essence!
 
 L'essence du poids est la compréhension de toute masse dans le monde, d'un simple grain de sable jusqu'à un continent entier. Lorsqu'elle s'étend, elle englobe la maîtrise des variations de masse, lui permettant de modifier le poids d'une simple pensée.
 

@@ -64,7 +64,7 @@ Alors que l'électricité parcourait la lame, le Daoïste du Tonnerre forma un n
 
 « Tant que je tue cet homme, cette Bête de Tonnerre sans maître sera mienne! » Après avoir lancé l'épée volante, le Daoïste du Tonnerre chargea. Ses mains s'ouvrirent et il hurla: « Rétribution Céleste du Temple du Tonnerre! »
 
-Un rayon de foudre pourpre apparut soudainement dans sa paume et se mua en un filet. Dans un grondement fracassant, l'artillement vola vers Wang Lin.
+Un rayon de foudre pourpre apparut soudainement dans sa paume et se mua en un filet. Dans un grondement fracassant, le filet vola vers Wang Lin.
 
 L'expression de Wang Lin resta neutre, mais ses pupilles se contractèrent légèrement. Ce Daoïste du Tonnerre était digne d'un cultivateur Illusoire-Yin. Non seulement son corps regorgeait d'énergie spirituelle céleste, mais sa maîtrise du tonnerre était stupéfiante!
 
@@ -102,7 +102,7 @@ Boum, boum, boum, boum! Chaque explosion correspondait à une portion de l'âme 
 
 Lorsque la dernière portion de l'âme finit de résonner, le visage du Daoïste du Tonnerre était livide et il avait déjà reculé de mille pieds. L'effroi dans ses yeux était monstrueux.
 
-C'était la première fois de sa vie qu'il se faisait vaincre par un sort de tonnerre. Il en venait même à se demander si, comparé à son ennemi, ce Xu Mu n'était pas le véritable messager du Royaume Céleste du Tonnerre et lui le imposteur.
+C'était la première fois de sa vie qu'il se faisait vaincre par un sort de tonnerre. Il en venait même à se demander si, comparé à son ennemi, ce Xu Mu n'était pas le véritable messager du Royaume Céleste du Tonnerre et lui l'imposteur.
 
 Ce sentiment de confusion le fit reprendre une profonde inspiration, ses yeux devenant plus sombres encore.
 

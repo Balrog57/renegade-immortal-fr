@@ -16,7 +16,7 @@ Xu Liguo cessa immédiatement de parler, mais son corps d'épée trembla tandis 
 
 Après avoir écarté Xu Liguo, Wang Lin fit un pas de côté et disparut.
 
-Ta Shan était toujours assis sur une planète de culture quelque part au sein de la Secte Divin de l'Oiseau Vermillon. Plusieurs peaux de bêtes reposaient à ses côtés, et il continuait d'y infuser la puissance des tatouages.
+Ta Shan était toujours assis sur une planète de culture quelque part au sein de la Secte Divine de l'Oiseau Vermillon. Plusieurs peaux de bêtes reposaient à ses côtés, et il continuait d'y infuser la puissance des tatouages.
 
 Alors qu'il dessinait, la main droite de Ta Shan trembla et il leva la tête. Wang Lin était apparu sans qu'il s'en aperçoive et le regardait calmement.
 
@@ -50,7 +50,7 @@ Situ Nan était déjà arrivé près des 35 Anciens et se tenait aux côtés de 
 
 Situ Nan siégeait là, l'expression grave, mais sa décision était prise. S'il parvenait à éliminer ce poison, il traînerait Wang Lin sur la planète Feng Luan pour se venger! Il comptait rendre toutes les souffrances qu'il avait dû endurer de la part des cultivatrices de la planète Feng Luan!
 
-Certaines planètes abandonnées de la Secte Divin de l'Oiseau Vermillon n'étaient pas propices à la vie. Elles étaient saturées de gaz toxiques, et les flammes rendaient le poison encore plus intense.
+Certaines planètes abandonnées de la Secte Divine de l'Oiseau Vermillon n'étaient pas propices à la vie. Elles étaient saturées de gaz toxiques, et les flammes rendaient le poison encore plus intense.
 
 À cet instant, Wang Lin apparut près de l'une de ces planètes désolées. Aucune plante n'y poussait et presque toute forme de vie s'était éteinte. Il n'y avait qu'un désert noir dégageant une chaleur étouffante.
 
@@ -88,7 +88,7 @@ Une fois que Wang Lin et Zhou Yi eurent franchi la barrière, Wang Lin joignit l
 
 Wang Wei regarda Wang Lin en souriant: « Dis-moi pourquoi tu m'as demandé de tendre une embuscade à Lie Yunzi; sinon, je ne te laisserai pas partir si facilement! »
 
-De l'autre côté de la rivière, Hu Juan sourit en replaçant ses cheveux et ajouta: « Wang Lin s'en soucie beaucoup. Il trouve indigne de son statut d'Aîné de tendre une embuscade à un junior. »
+De l'autre côté de la rivière, Hu Juan sourit en replaçant ses cheveux et ajouta: « Wang Lin s'en soucie beaucoup. Il trouve indigne de son statut de Senior de tendre une embuscade à un junior. »
 
 Wang Lin sourit. Wang Wei et Hu Juan étaient devenus très proches de lui après les événements sur la Terre des Esprits Démoniaques; ils ne le considéraient plus comme un étranger. Wang Wei ne se souciait probablement pas tant que cela de l'embuscade faite à Lie Yunzi.
 
@@ -110,15 +110,15 @@ Sur la formation située sur la planète principale de l'Oiseau Vermillon, tout 
 
 Wang Lin s'installa au centre de la formation sans perdre un instant. Ses yeux brillèrent et il cria: « Activez la formation! » Sur ce commandement, sa main droite plongea dans le vide et une fissure apparut. Un cristal débordant d'énergie spirituelle céleste en jaillit!
 
-Simultanément, les 10 000 membres du secteur ouvrirent les yeux, et leur énergie originelle fut injectée dans la formation. Celle-ci se mit immédiatement à scintiller sous leurs pieds.
+Simultanément, les 10 000 membres de la secte ouvrirent les yeux, et leur énergie originelle fut injectée dans la formation. Celle-ci se mit immédiatement à scintiller sous leurs pieds.
 
 Dès que l'éclat atteignit une intensité critique, la lumière commença à se concentrer sous les 35 Anciens. Tous formèrent des sceaux et activèrent leur énergie avec ferveur. Toute l'énergie originelle des disciples fut divisée en 35 parts et fut dirigée droit vers le cristal situé devant Wang Lin, au centre de la formation.
 
 En un instant, le cristal brilla d'un éclat fulgurant, et une quantité inimaginable d'énergie spirituelle céleste envahit la zone. Un pilier d'énergie spirituelle jaillit vers les cieux, propageant des ondes de choc dans toutes les directions.
 
-Un grondement tonnerre retentit alors que la porte du Royaume Céleste de la Pluie apparaissait lentement au-dessus de la planète de la Secte Divin de l'Oiseau Vermillon! À cet instant, tous les cultivateurs ayant atteint un certain niveau de culture ressentirent cette fluctuation. Les plus expérimentés comprirent immédiatement: le Royaume Céleste de la Pluie venait de s'ouvrir!
+Un grondement de tonnerre retentit alors que la porte du Royaume Céleste de la Pluie apparaissait lentement au-dessus de la planète de la Secte Divine de l'Oiseau Vermillon! À cet instant, tous les cultivateurs ayant atteint un certain niveau de culture ressentirent cette fluctuation. Les plus expérimentés comprirent immédiatement: le Royaume Céleste de la Pluie venait de s'ouvrir!
 
-Au même moment, les fours de pluie apparurent à travers tout le Système Stellaire de l'Alliance. Cependant, Luotian, la Secte des Corps et les diverses forces de l'Alliance s'étaient déjà rassemblés autour de la planète Suzaku. Bien que stupéfaits, ils n'avaient pas le temps de s'en inquiéter.
+Au même moment, les fours de pluie apparurent à travers tout le Système Stellaire de l'Alliance. Cependant, Luotian, la Secte des Cadavres et les diverses forces de l'Alliance s'étaient déjà rassemblés autour de la planète Suzaku. Bien que stupéfaits, ils n'avaient pas le temps de s'en inquiéter.
 
 « Les personnes de notre niveau de culture risquent de rendre le Royaume Céleste de la Pluie instable et de provoquer un effondrement massif. Nous devons secourir l'Empereur Divin du Dragon Azure au plus vite!!! » Après avoir lancé cet avertissement, Wang Lin chargea vers la porte du Royaume Céleste de la Pluie! Derrière lui, les 35 Anciens, Situ Nan, Wang Wei, Hu Juan et les autres s'élancèrent à sa suite.
 

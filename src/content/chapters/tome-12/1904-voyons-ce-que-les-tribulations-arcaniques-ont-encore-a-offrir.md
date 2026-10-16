@@ -88,9 +88,9 @@ L'épée de brume était silencieuse, mais son intention meurtrière jaillissait
 
 Désormais, cette épée réapparaissait pour frapper Wang Lin!
 
-Wang Lin ignorait que la plupart des cultivateurs ayant survécu aux trois tribulations internes s'étaient préparés pendant une éternité avant d'oser tenter l'aventure. Ils les affrontaient une à une, cherchant désespérément une infime chance de survie!
+Wang Lin ignorait que la plupart des cultivateurs ayant survécu aux trois tribulations internes s'étaient préparés pendant très longtemps avant d'oser tenter l'aventure. Ils les affrontaient une à une, cherchant désespérément une infime chance de survie!
 
-À cet instant, si le son du tambour paralysait le corps de Wang Lin, il ne pouvait stopper ses battements de cœur. Il ignorait comment les autres contrélaient cette épreuve, mais il possédait sa propre méthode. Ses pulsations cardiaques s'accélérèrent et résonnèrent comme le tonnerre. Le rythme de son cœur contrecarra celui du tambour, lui rendant immédiatement la capacité de bouger.
+À cet instant, si le son du tambour paralysait le corps de Wang Lin, il ne pouvait stopper ses battements de cœur. Il ignorait comment les autres contrôlaient cette épreuve, mais il possédait sa propre méthode. Ses pulsations cardiaques s'accélérèrent et résonnèrent comme le tonnerre. Le rythme de son cœur contrecarra celui du tambour, lui rendant immédiatement la capacité de bouger.
 
 Dès qu'il put reprendre ses mouvements, l'épée de brume se rapprochait. Wang Lin lâcha calmement la cruche de vin qu'il tenait dans sa main droite. Il leva sa paume et la Lame Yin, semblable à de l'os, apparut soudainement. La lame dégageait une aura glaciale, comme si elle émanait des profondeurs de l'enfer!
 

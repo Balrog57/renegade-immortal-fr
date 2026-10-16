@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1107 - Battling Against Heaven
 slug: combattre-contre-le-ciel
 ---
-Tous les cultivateurs de la Mer des Nuages avaient été réduits en cendres. Seul le dernier ancien vêtu de violet, qui avait craché du sang après la deuxième explosion, tentait désespérément de s'échapper.
+Tous les cultivateurs de la Mer des Nuages avaient été réduits en cendres. Seul le dernier ancien vêtu de violet, qui avait craché du sang après le deuxième effondrement, tentait désespérément de s'échapper.
 
 Il était terrifié, absolument terrifié!
 
@@ -36,13 +36,13 @@ Cependant, loin de reculer, Wang Lin se mit à rire.
 
 « Rétribution divine par le feu, rétribution divine par le tonnerre, rétribution divine par l'illusion, rétribution divine par la puissance... n'y a-t-il rien d'autre que ces quatre? » Wang Lin faisait face au ciel et ne bougea pas d'un pouce sous la pression céleste!
 
-À ses paroles, les cieux répondirent, et la pression décupla de cent fois. L'espace autour de Wang Lin commença à se distordre, comme si une force indescriptible le déchirait.
+À ses paroles, les cieux répondirent, et la pression augmenta de plus de cent fois. L'espace autour de Wang Lin commença à se distordre, comme si une force indescriptible le déchirait.
 
 Le corps de Wang Lin s'enfonça immédiatement de plusieurs dizaines de pieds sous cette pression. Des craquements retentirent dans son armure, mais il gardait la tête haute!
 
 Il agita sa main droite. Au loin, la rivière ardente enveloppa la dépouille calcinée du vieil homme et l'entraîna en arrière avec son âme originelle.
 
-L'ancien de la Mer des Nuages avait été gravement blessé. La sphère d'éclairs de la rétribution divine avait suffi à briser son corps, bien qu'il ait réussi à la contenir. Puis, Mountain Crumbles l'avait encore plus affaibli, faisant chuter drastiquement son niveau de culture. Il n'avait désormais plus que la puissance d'un cultivateur au début du stade Purificateur du Nirvana.
+L'ancien de la Mer des Nuages avait été gravement blessé. La sphère d'éclairs de la rétribution divine avait suffi à briser son corps, bien qu'il ait réussi à la contenir. Puis, l'Effondrement des Montagnes l'avait encore plus affaibli, faisant chuter drastiquement son niveau de culture. Il n'avait désormais plus que la puissance d'un cultivateur au début du stade Purificateur du Nirvana.
 
 En raison de l'encerclement par la rivière ardente, l'âme originelle de l'ancien s'était affaiblie, mais lorsque la rivière revint vers Wang Lin, ses yeux s'ouvrirent brusquement. Son âme originelle se déploya avec frénésie, lui permettant d'échapper au courant, et il chargea Wang Lin!
 
@@ -56,7 +56,7 @@ Des grondements tonitruants résonnèrent et l'âme originelle du vieil homme s'
 
 Sans même prendre le temps de réfléchir aux paroles de l'homme, Wang Lin forma un sceau de la main droite et pointa la rivière ardente. Celle-ci se précipita rapidement au-dessus de lui pour se reformer en une montagne. Cependant, cette montagne était criblée de fissures, d'où émanait une lumière rouge qui illuminait la zone.
 
-À cet instant, la puissance des cieux redoubla d'intensité et pressa vers le bas. Le visage de Wang Lin devint légèrement rouge, mais il rit, poussa ses mains vers le haut et rugit: « Mountain Crumbles, détruis les cieux! »
+À cet instant, la puissance des cieux redoubla d'intensité et pressa vers le bas. Le visage de Wang Lin devint légèrement rouge, mais il rit, poussa ses mains vers le haut et rugit: « L'Effondrement des Montagnes, détruis les cieux! »
 
 La montagne massive au-dessus de Wang Lin s'élança soudainement dans un sifflement strident. Wang Lin s'envola pour la suivre de près. Sa main poussait contre la base de la montagne comme s'il voulait l'enfoncer directement dans les nuages de la rétribution divine!
 
@@ -84,7 +84,7 @@ Wang Lin poussa un rugissement, agita sa main droite et utilisa l'énergie origi
 
 100 000 pieds... 90 000 pieds... 80 000 pieds... 50 000 pieds!
 
-Au moment où la montagne de flammes atteignit les 50 000 pieds, un grondement tonnerre jaillit des nuages. En fin de compte, la montagne ne parvint pas à pénétrer dans les nuages et s'éteignit sous le choc.
+Au moment où la montagne de flammes atteignit les 50 000 pieds, un grondement de tonnerre jaillit des nuages. En fin de compte, la montagne ne parvint pas à pénétrer dans les nuages et s'éteignit sous le choc.
 
 Privé de la montagne de flammes, il n'y avait plus rien entre lui et les nuages. Wang Lin était habité par une immense frustration. Il ne manquait que 50 000 pieds... s'il pouvait franchir cette distance, il pourrait attaquer les nuages de la rétribution divine!
 

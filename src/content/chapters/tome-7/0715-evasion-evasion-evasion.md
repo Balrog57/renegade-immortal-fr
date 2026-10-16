@@ -48,7 +48,7 @@ En voyant les deux fugitifs accélérer encore davantage, elle laissa échapper 
 
 Dès que ce son retentit, le cuir chevelu de Wang Lin devint instantanément engourdi. C'était la langue des anciens dieux!
 
-Wang Lin eut un haut-le-cœur. « Les souvenirs de Tu Si ne mentionnent pas que les serpents aux yeux de lune puissent parler la langue des anciens dieux. Quel genre de serpent est-ce là?! »
+Wang Lin eut le souffle coupé. « Les souvenirs de Tu Si ne mentionnent pas que les serpents aux yeux de lune puissent parler la langue des anciens dieux. Quel genre de serpent est-ce là?! »
 
 Au moment où les mots des anciens dieux résonnèrent, le ciel changea. Wang Lin eut soudain l'impression que la chose qui le traquait n'était plus un serpent aux yeux de lune, mais un ancien dieu adulte!
 
@@ -58,7 +58,7 @@ Il connaissait ce sort. C'était un sort de fragmentation que seul un ancien die
 
 Ce qu'il prononça était lui aussi la langue des anciens dieux, héritée de Tu Si!
 
-La terre s'immobilisa soudainement et la gueule géante se entrouvrit légèrement. Au même moment, deux autres fissures apparurent, révélant une paire d'yeux froids! Ce regard tomba sur Wang Lin, empreint d'une froideur mêlée de confusion.
+La terre s'immobilisa soudainement et la gueule géante s'entrouvrit légèrement. Au même moment, deux autres fissures apparurent, révélant une paire d'yeux froids! Ce regard tomba sur Wang Lin, empreint d'une froideur mêlée de confusion.
 
 L'interruption du Serpent aux yeux de lune stoppa l'effondrement de l'espace. Wang Lin s'enfuit sans hésiter, et la garde céleste le suivit sans relâche. À cet instant précis, une silhouette mince surgit des profondeurs de la fissure, animée par un mélange de terreur et d'exultation.
 

@@ -42,13 +42,13 @@ Dans le ciel, Wang Lin contempla les environs familiers et son cœur s'apaisa. I
 
 « Avec cette formation, à moins qu'un être comme le Souverain n'apparaisse, il n'y aura pas d'autre guerre entre les Royaumes Intérieur et Extérieur! Bien que plusieurs des Cinq Maîtres soient toujours en vie, ils sont tous gravement blessés. Avec le Maître du Dao Rêve Bleu et le Maître Nan Yunzi ici, il ne devrait y avoir aucun problème. J'ai encore d'autres réflexions à mener.
 
-« Le Général Oiseau Vermillon est parti, et si la première génération de Oiseau Vermillon du Royaume Extérieur s'est réellement séparée du Général, alors il a dû partir... Je me demande seulement si la deuxième génération et les autres sont toujours là... » Wang Lin mena silencieusement le groupe et quitta le Royaume Céleste.
+« Le Général Oiseau Vermillon est parti, et si la première génération de l'Oiseau Vermillon du Royaume Extérieur s'est réellement séparée du Général, alors il a dû partir... Je me demande seulement si la deuxième génération et les autres sont toujours là... » Wang Lin mena silencieusement le groupe et quitta le Royaume Céleste.
 
 Il ne se dirigea pas vers la Terre Déchue.
 
-« La Terre Déchue n'est pas si simple... Le curseur de la Perle de la Transgression Céleste... » Les yeux de Wang Lin s'illuminèrent. Des conjectures l'habitaient, mais le moment n'était pas venu d'en chercher la clé.
+« La Terre Déchue n'est pas si simple... L'aiguille de la boussole de la Perle Défiant le Ciel... » Les yeux de Wang Lin s'illuminèrent. Des conjectures l'habitaient, mais le moment n'était pas venu d'en chercher la clé.
 
-« Il y avait aussi le Maître Âme Écarlate, que j'ai libéré... Et cette personne mystérieuse qui semblait scellée dans le Royaume Céleste du Vent et qui m'avait aidé lors de mon combat contre le Daoïste Water... Cette personne a quitté le Royaume Céleste du Vent par la suite. J'ignore où elle se trouve, mais peut-être sera-t-elle attirée par l'ouverture de la porte.
+« Il y avait aussi le Maître Âme Écarlate, que j'ai libéré... Et cette personne mystérieuse qui semblait scellée dans le Royaume Céleste du Vent et qui m'avait aidé lors de mon combat contre le Shui Daozi... Cette personne a quitté le Royaume Céleste du Vent par la suite. J'ignore où elle se trouve, mais peut-être sera-t-elle attirée par l'ouverture de la porte.
 
 « Tant de choses et tant de lieux restent inexpliqués... » Wang Lin ferma les yeux tout en avançant. Il mit de côté tous ces doutes et spéculations pour ne les affronter qu'une fois revenu du Continent Astral Immortel.
 
@@ -86,7 +86,7 @@ Dans les profondeurs du vortex régnait une obscurité totale, comme s'il commun
 
 Alors que la rotation du vortex atteignait un paroxysme, un rugissement de dragon tonitruant jaillit des profondeurs. Le cri se propagea instantanément et bourdonna dans les oreilles de Wang Lin.
 
-*ROAR!!*
+*RUGISSEMENT!!*
 
 Le rugissement devint plus intense encore, embrassant tout le système stellaire. Les visages des compagnons de Wang Lin se décomposèrent, leurs regards tournés vers Xuan Luo étaient pétrifiés par la peur.
 
@@ -104,7 +104,7 @@ La tête seule mesurait près de dix mille pieds. À ce stade, seul le haut du c
 
 « Ce dragon est l'une de mes neuf armes: l'Empereur Dragon! Il provient des terres sauvages de la périphérie orientale du Continent Astral Immortel! On y trouve d'innombrables bêtes féroces, et ce dragon était l'une des existences les plus souveraines!
 
-« Il possédait une culture au stade intermédiaire de la Tribulation du Vide. À l'époque, ce vieil homme l'a tué, a pris son âme, a raffiné son corps, en a extrait les os pour en faire une arme! Cette arme est un fouet. Ce vieil homme utilisera ce fouet pour cingler les lois du Continent Astral Immortel afin de créer une brèche vous permettant à tous de vous réincarner! » Tandis que la voix de Xuan Luo résonnait, sa main droite se tendit vers le dragon.
+« Il possédait une culture au stade intermédiaire du Tribulant du Vide. À l'époque, ce vieil homme l'a tué, a pris son âme, a raffiné son corps, en a extrait les os pour en faire une arme! Cette arme est un fouet. Ce vieil homme utilisera ce fouet pour cingler les lois du Continent Astral Immortel afin de créer une brèche vous permettant à tous de vous réincarner! » Tandis que la voix de Xuan Luo résonnait, sa main droite se tendit vers le dragon.
 
 Le dragon poussa un rugissement et son corps jaillit du vide. 20 000 pieds, 30 000 pieds, 50 000 pieds... jusqu'à atteindre des centaines de milliers de pieds de long. Il apparut devant Xuan Luo avant de se rétracter rapidement pour devenir un fouet draconique couleur sang d'environ 1 000 pieds de long!
 

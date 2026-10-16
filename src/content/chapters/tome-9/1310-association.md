@@ -32,13 +32,13 @@ Au fil du temps, son âme originelle guérit. Hormis la blessure sur sa poitrine
 
 « Absorber la chair et le sang de ces cultivateurs ordinaires ne suffira pas à l'expulser. Je dois absorber la puissance d'un Dieu Antique... Dans ce Système Stellaire Antique, je ne connais qu'un seul endroit où trouver une telle puissance! »
 
-« C’est le Clan Lunaire des Esclaves! » Les yeux de Wang Lin brillèrent et il laissa échapper un froid reniflement. D'un pas, il fusionna avec le monde et se précipita vers l'emplacement du Clan Lunaire gravé dans sa mémoire.
+« C’est le Clan de la Lune des Esclaves! » Les yeux de Wang Lin brillèrent et il laissa échapper un froid reniflement. D'un pas, il fusionna avec le monde et se précipita vers l'emplacement du Clan de la Lune gravé dans sa mémoire.
 
-Le Clan Lunaire comptait de nombreux cultivateurs puissants, dont une multitude de vieux monstres ayant vécu durant des éons. C’était un véritable repaire de dragons et de tigres, où le danger guettait à chaque instant! Cependant, Wang Lin avait d'autres projets. Il savait que durant toutes ces années, le Clan Lunaire n'avait pas été anéanti par Tuo Sen.
+Le Clan de la Lune comptait de nombreux cultivateurs puissants, dont une multitude de vieux monstres ayant vécu durant des éons. C’était un véritable repaire de dragons et de tigres, où le danger guettait à chaque instant! Cependant, Wang Lin avait d'autres projets. Il savait que durant toutes ces années, le Clan de la Lune n'avait pas été anéanti par Tuo Sen.
 
-« Puisque Tuo Sen ne cessera de me pourchasser, je vais simplement l'attirer vers le Clan Lunaire. Je veux voir comment ils comptent résister! » Le regard de Wang Lin devint d'une froideur extrême alors qu'il fusionnait avec le monde et disparaissait.
+« Puisque Tuo Sen ne cessera de me pourchasser, je vais simplement l'attirer vers le Clan de la Lune. Je veux voir comment ils comptent résister! » Le regard de Wang Lin devint d'une froideur extrême alors qu'il fusionnait avec le monde et disparaissait.
 
-Le Clan Lunaire était très éloigné de sa position actuelle. Il n'y était jamais allé auparavant et ne connaissait la direction que grâce au membre du Clan Lunaire dont il avait extrait les souvenirs dans le Royaume aux Sept Couleurs. Il savait qu'une seule Distorsion Spatiale ne suffirait pas; il devait répéter l'opération plusieurs fois.
+Le Clan de la Lune était très éloigné de sa position actuelle. Il n'y était jamais allé auparavant et ne connaissait la direction que grâce au membre du Clan de la Lune dont il avait extrait les souvenirs dans le Royaume aux Sept Couleurs. Il savait qu'une seule Distorsion Spatiale ne suffirait pas; il devait répéter l'opération plusieurs fois.
 
 Dans sa course effrénée, il n'avait pas le temps d'observer le Système Stellaire Antique. Le Monde Extérieur différait du Monde Intérieur. Peu importe la luminosité du Monde Intérieur, on y ressentait toujours une sorte de brume, comme si quelque chose s'y trouvait. C'était comme être enfermé dans une cage.
 
@@ -60,7 +60,7 @@ Tout cela était dû au manque de Flammes Joss, l'élément le plus crucial pour
 
 À cause de la Formation du Royaume Scellé, il n'y avait pas la moindre trace de Flammes Joss dans le Monde Intérieur. Même si certaines étaient créées artificiellement, elles étaient aussitôt drainées par la formation!
 
-La seule façon d'obtenir des Flammes Joss pour permettre à son essence de croître était de se rendre dans le Monde Extérieur ou de devenir un espion du Monde Extérieur, tel que... le Daoïste Water!
+La seule façon d'obtenir des Flammes Joss pour permettre à son essence de croître était de se rendre dans le Monde Extérieur ou de devenir un espion du Monde Extérieur, tel que... le Shui Daozi!
 
 Vide du Nirvana, Vide Spirituel, Vide Arcanique et Tribulant du Vide constituaient les quatre grandes étapes du troisième pas. Le Vide du Nirvana n'était pas si terrible, mais atteindre le Vide Spirituel était pratiquement impossible.
 
@@ -68,7 +68,7 @@ Lorsque le Seigneur du Royaume Scellé descendit, le premier problème qu'il dut
 
 Le Seigneur du Royaume Scellé possédait des sorts et une sagesse immenses. Grâce à son aide, tout progressait dans la bonne direction. En utilisant les quatre Royaumes Célestes, il empêcha la Formation du Royaume Scellé d'absorber les Flammes Joss.
 
-Cependant, tout cela fut anéanti. Le Monde Extérieur ne permettrait pas une telle chose au sein du Monde Intérieur. Avant la calamité, le Seigneur du Royaume Scellé fut attaqué par surprise par le Daoïste Water. Puis il fut gravement blessé par le Souverain, les autres maîtres du Monde Extérieur et certains traîtres de l'Ancien Royaume Céleste. Il avait failli mourir! Bai Fan était devenu fou en pointant le ciel du doigt. Le cœur de Qing Lin fut brisé par la fille du Souverain, avant qu'il ne soit traqué par l'ancien démon et l'ancien diable.
+Cependant, tout cela fut anéanti. Le Monde Extérieur ne permettrait pas une telle chose au sein du Monde Intérieur. Avant la calamité, le Seigneur du Royaume Scellé fut attaqué par surprise par le Shui Daozi. Puis il fut gravement blessé par le Souverain, les autres maîtres du Monde Extérieur et certains traîtres de l'Ancien Royaume Céleste. Il avait failli mourir! Bai Fan était devenu fou en pointant le ciel du doigt. Le cœur de Qing Lin fut brisé par la fille du Souverain, avant qu'il ne soit traqué par l'ancien démon et l'ancien diable.
 
 Les Royaumes Célestes des Nuages et de l'Éclair subirent un sort similaire!
 
@@ -102,7 +102,7 @@ Trois éclairs de foudre le poursuivaient. C'étaient les trois cultivateurs du 
 
 Le rugissement de Tuo Sen résonna parmi les étoiles. Être pourchassé par ces trois cultivateurs du troisième pas l'avait rendu féroce. Sans le cultivateur du Vide Spirituel, il ne se serait pas enfui. Chaque fois qu'il pensait à ce dernier, la rage de Tuo Sen montait.
 
-Bien qu'impulsif, il n'en demeurait pas moins rusé. Ces trois individus devaient avoir un dessein bien précis en le traquant ainsi! Cependant, alors qu'il était sur le point de rattraper et de dévorer Wang Lin, les trois l'entraillèrent davantage. Cela fit atteindre à la colère de Tuo Sen son paroxysme.
+Bien qu'impulsif, il n'en demeurait pas moins rusé. Ces trois individus devaient avoir un dessein bien précis en le traquant ainsi! Cependant, alors qu'il était sur le point de rattraper et de dévorer Wang Lin, les trois l'entravèrent davantage. Cela fit atteindre à la colère de Tuo Sen son paroxysme.
 
 « Si je ne chasse pas ces trois-là, je n'aurai aucune chance de dévorer Wang Lin, même si je le rattrape! » Après avoir surgi de la fissure, ses yeux projetèrent une lueur monstrueuse et glaciale. Il fixa l'endroit où Wang Lin avait disparu, puis se retourna brusquement. Son corps s'étendit des dizaines de fois pour reprendre sa forme de Dieu Antique!
 

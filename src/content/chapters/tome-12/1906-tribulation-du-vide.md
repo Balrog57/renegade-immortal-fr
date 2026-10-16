@@ -8,7 +8,7 @@ slug: tribulation-du-vide
 ---
 L'âme de scorpion était composée d'une puissance dense issue du monde. Lorsque Wang Lin l'absorba, son âme originelle se régénéra rapidement!
 
-Le sixième souffle arriva et l'âme originelle de Wang Lin dépérrit une fois de plus. Cependant, grâce à la puissance de l'âme de scorpion, elle atteignit un équilibre. Mais cela ne durerait pas éternellement; avec le temps, elle finirait par s'effondrer.
+Le sixième souffle arriva et l'âme originelle de Wang Lin dépérit une fois de plus. Cependant, grâce à la puissance de l'âme de scorpion, elle atteignit un équilibre. Mais cela ne durerait pas éternellement; avec le temps, elle finirait par s'effondrer.
 
 À moins que Wang Lin ne puisse trouver encore plus de puissance du monde pour reconstituer son corps!
 
@@ -20,11 +20,11 @@ Par conséquent, la qualité des pilules était primordiale. Même avec la meill
 
 Cette tribulation plaçait le cultivateur dans une position très passive. Ils ne pouvaient rien faire d'autre qu'endurer. Depuis les temps anciens, nul n'avait pu faire autrement!
 
-Même les Grands Empereurs agissaient ainsi. Ils ne pouvaient endurer cette épreuve qu'en consommant de grandes quantités de pilules et en luttant contre la peur qui envahissait leur cœur!
+Même les Grands Empyréens agissaient ainsi. Ils ne pouvaient endurer cette épreuve qu'en consommant de grandes quantités de pilules et en luttant contre la peur qui envahissait leur cœur!
 
-Même les deux légendaires Grands Empereurs ayant traversé neuf Tribulations Arcanes consécutives avaient dû endurer ce processus. Une fois les dix souffles passés, la tribulation se dissipait d'elle-même.
+Même les deux légendaires Grands Empyréens ayant traversé neuf Tribulations Arcanes consécutives avaient dû endurer ce processus. Une fois les dix souffles passés, la tribulation se dissipait d'elle-même.
 
-Lorsque le septième souffle arriva impitoyablement, l'équilibre de son âme originelle s'effondra. Son âme dépérrit rapidement, mais son expression resta imperturbable. Durant le court laps de temps qu'il parvint à gagner, il réfléchit fébrilement à un moyen de briser cette tribulation!
+Lorsque le septième souffle arriva impitoyablement, l'équilibre de son âme originelle s'effondra. Son âme dépérit rapidement, mais son expression resta imperturbable. Durant le court laps de temps qu'il parvint à gagner, il réfléchit fébrilement à un moyen de briser cette tribulation!
 
 « Si je veux la surmonter, je dois trouver rapidement où l'âme véritable du Scorpion Démon Vert est supprimée. Avec elle, il devrait être facile de passer cette épreuve! »
 
@@ -40,7 +40,7 @@ Wang Lin ne voulait pas de ce genre de choix!
 
 Il avait affronté la divine rétribution maintes fois au cours de sa vie et ne ressentait plus aucune crainte envers elle. Il n'éprouvait que la volonté farouche de s'élever au-dessus des cieux!
 
-Lorsque le huitième souffle arriva, Wang Lin leva la tête et son âme originelle dépérrit si rapidement qu'il n'en resta qu'une trace. Cependant, cette trace contenait sa foi: sa foi de ne jamais abandonner et sa détermination à ressusciter Li Muwan!
+Lorsque le huitième souffle arriva, Wang Lin leva la tête et son âme originelle dépérit si rapidement qu'il n'en resta qu'une trace. Cependant, cette trace contenait sa foi: sa foi de ne jamais abandonner et sa détermination à ressusciter Li Muwan!
 
 Cette infime parcelle d'âme originelle ne put dépérir lors du huitième souffle. Elle persistait, tout comme la détermination de Wang Lin!
 
@@ -68,7 +68,7 @@ Mais finalement, même après le passage du dixième souffle, l'âme originelle 
 
 Sous l'impact de la foi de Wang Lin, le sceau illusoire commença à se solidifier. Sous la force de ses mains, il s'effondra soudainement!
 
-Au moment où le sceau se brisa, l'âme originelle dépérrie de Wang Lin se régénéra instantanément. En un éclair, elle atteignit son apogée et devint plus vaste qu'auparavant!
+Au moment où le sceau se brisa, l'âme originelle dépérie de Wang Lin se régénéra instantanément. En un éclair, elle atteignit son apogée et devint plus vaste qu'auparavant!
 
 La septième tribulation, la Tribulation de Dépérissement de l'Âme en Dix Souffles, s'effondra devant Wang Lin!
 
@@ -88,7 +88,7 @@ Mais si l'on ne sacrifiait pas sa longévité, les chances de survivre à la neu
 
 Lors de la huitième épreuve, le cultivateur avait l'initiative de décider de la part de sa vie qu'il sacrifierait. Généralement, ceux qui osaient affronter cette étape avaient déjà un plan: ils calculaient la durée de vie nécessaire pour leur culture, puis sacrifiaient douloureusement le surplus afin d'augmenter leurs chances de réussir la neuvième tribulation.
 
-La longévité n'augmentait pas après être entré dans la Tribulation du Vide, à moins de devenir un Grand Empereur. Autrement, peu importe la vie restante après le sacrifice de la huitième épreuve, c'était ce qu'il vous resterait pour le stade de la Tribulation du Vide.
+La longévité n'augmentait pas après être entré dans la Tribulation du Vide, à moins de devenir un Grand Empyréen. Autrement, peu importe la vie restante après le sacrifice de la huitième épreuve, c'était ce qu'il vous resterait pour le stade de la Tribulation du Vide.
 
 À moins de rencontrer une nouvelle fortune, rien ne pouvait changer cela.
 
@@ -98,7 +98,7 @@ Après avoir saisi l'essence de cette étape, Wang Lin songea à bien des choses
 
 Il comprit également que ses pensées précédentes étaient erronées. De nombreux cultivateurs qu'il avait vus, bloqués au stade des Tribulations Arcanes, l'étaient principalement à cause de la huitième épreuve.
 
-Car cette épreuve ne nécessitait pas d'être "réussie" au sens strict. Tant que l'on y faisait un sacrifice, on pouvait s'en retirer. Sacrifier une seule année suffisait pour achever la huitième épreuve!
+Car cette épreuve ne nécessitait pas d'être « réussie » au sens strict. Tant que l'on y faisait un sacrifice, on pouvait s'en retirer. Sacrifier une seule année suffisait pour achever la huitième épreuve!
 
 Cependant, franchir la neuvième serait bien plus ardu!
 
@@ -183,11 +183,11 @@ Peu après, les trois flèches des cinq éléments arrivèrent. Alors que le gro
 
 Ces flèches auraient dû être invisibles, mais elles contenaient la foi de Wang Lin, sa haine des cieux et sa volonté de les briser!
 
-Sa foi rendait cette attaque infiniment proche d'un sort de foi de Grand Empereur, lui permettant de se matérialiser à partir du néant!
+Sa foi rendait cette attaque infiniment proche d'un sort de foi de Grand Empyréen, lui permettant de se matérialiser à partir du néant!
 
 La dernière flèche était celle du tonnerre, une pointe destructrice. Ce n'était pas une flèche, mais un éclair en forme de projectile. Elle gronda violemment en s'approchant du Sceau de la Réincarnation pour y déchaîner sa force dévastatrice.
 
-Cette flèche ne dégageait qu'une trace du tonnerre de la boucherie, mais cette simple parcelle suffisait à ébranler les cieux!
+Cette flèche ne dégageait qu'une trace du tonnerre de massacre, mais cette simple parcelle suffisait à ébranler les cieux!
 
 Le Sceau de la Réincarnation trembla et s'effondra soudain en d'innombrables fragments qui volèrent partout. Le ciel lui-même sembla s'écrouler!
 

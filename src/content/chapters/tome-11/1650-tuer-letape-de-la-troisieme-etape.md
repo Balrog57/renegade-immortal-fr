@@ -12,15 +12,15 @@ D'un revers de main, il projeta les 300 bulles vers lui.
 
 L'homme chauve ouvrit soudainement les yeux, révélant une lueur étrange. Il fixa les 300 cultivateurs du Royaume Intérieur avec cruauté.
 
-« Seul dans le Royaume Intérieur mon Clan des Ténèbres a une chance de s'élever! Plus il y a de morts, plus l'aura de mort est puissante, sans compter ces esprits vivants... Si cela s'était produit dans le Système Stellaire Antique, tuer autant de personnes aurait entraîné la punition du Conseil Souverain. » L'homme afficha un sourire satisfait en agitant sa manche, et les 300 bulles explosèrent une à une.
+« Seul dans le Royaume Intérieur mon Clan des Enfers a une chance de s'élever! Plus il y a de morts, plus l'aura de mort est puissante, sans compter ces esprits vivants... Si cela s'était produit dans le Système Stellaire Antique, tuer autant de personnes aurait entraîné la punition du Conseil Souverain. » L'homme afficha un sourire satisfait en agitant sa manche, et les 300 bulles explosèrent une à une.
 
-L'effondrement des bulles exposa les 300 cultivatrices du Fleuve Invoqué à l'aura de mort. Leurs visages se tordirent de douleur et, une fois les bulles éclatées, leurs corps commencèrent lentement à dépérir.
+L'effondrement des bulles exposa les 300 cultivatrices du Rivière Invoquée à l'aura de mort. Leurs visages se tordirent de douleur et, une fois les bulles éclatées, leurs corps commencèrent lentement à dépérir.
 
 Des filaments de force vitale s'échappèrent de leurs orifices et se rassemblèrent autour d'elles pour former des ombres. Ces ombres étaient comme des âmes originelles; elles étaient l'exact reflet de leurs corps.
 
 L'expression de Zhou Zi Hong se crispa et son corps trembla. Sa vitalité quitta rapidement son enveloppe charnelle pour former une ombre à son image. L'ombre vitale de Zhou Zi Hong, tout comme les autres, vola vers l'homme chauve.
 
-« Délice de la Dévoration des Ténèbres! » rugit l'homme chauve en agitant la main. Les 300 ombres d'âmes originelles accélérèrent encore davantage pour converger vers lui.
+« Délice de la Dévoration des Enfers! » rugit l'homme chauve en agitant la main. Les 300 ombres d'âmes originelles accélérèrent encore davantage pour converger vers lui.
 
 Alors qu'il ouvrait la bouche, prêt à les dévorer cruellement, un reniflement glacial résonna à travers le monde.
 
@@ -28,7 +28,7 @@ Ce reniflement fut tel un coup de tonnerre, propageant une onde sonore massive. 
 
 Les 300 ombres d'âmes originelles ouvrirent lentement les yeux, regardant autour d'elles avec confusion.
 
-« Qui est-ce? Quel cultivateur de la troisième étape est venu au Clan des Ténèbres? Ce vieil homme est le patriarche du Clan des Ténèbres; j'ignore ce que j'ai pu faire pour offenser l'Aîné. Je vous en prie... » L'homme chauve était livide et terrifié. Son cœur battait la chamade, saisi d'une peur mortelle.
+« Qui est-ce? Quel cultivateur de la troisième étape est venu au Clan des Enfers? Ce vieil homme est le patriarche du Clan des Enfers; j'ignore ce que j'ai pu faire pour offenser le Senior. Je vous en prie... » L'homme chauve était livide et terrifié. Son cœur battait la chamade, saisi d'une peur mortelle.
 
 L'autre partie n'avait émis qu'un simple reniflement, mais cela avait suffi à briser ses bras qui canalisaient un sortilège. Son esprit venait également de subir un choc violent. L'énergie et le sang à l'intérieur de son corps étaient en plein chaos et son âme originelle était au bord de l'effondrement.
 
@@ -42,7 +42,7 @@ L'expression du jeune homme était sombre, et derrière lui flottaient des milli
 
 « Tu... Tu es... » L'esprit de l'homme chauve fut secoué. Après un instant de stupeur, l'aura familière du jeune homme lui permit de se souvenir d'un nom. Dès qu'il s'en souvint, il poussa un cri incontrôlable et recula frénétiquement en hurlant.
 
-« Membres du Clan des Ténèbres, fuyez vite cette planète! Vite, vite...! »
+« Membres du Clan des Enfers, fuyez vite cette planète! Vite, vite...! »
 
 Une lueur glaciale passa dans les yeux de Wang Lin et sa main droite s'étendit vers le vide. Une immense main illusoire apparut et se précipita sur l'homme chauve.
 
@@ -50,25 +50,25 @@ Alors qu'il criait encore, la main le saisit et l'écrasa. L'homme chauve laissa
 
 Cependant, sa tête resta intacte, son âme et son âme originelle étant scellées à l'intérieur. Tandis que Wang Lin retirait sa main, la tête vint se joindre aux milliers d'autres têtes derrière lui.
 
-Au même instant, partout sur la planète, les auras des membres du Clan des Ténèbres s'envolèrent. Chaque aura contenait un membre du clan. Bien que confus, ils n'hésitèrent pas une seconde à tenter de fuir la planète.
+Au même instant, partout sur la planète, les auras des membres du Clan des Enfers s'envolèrent. Chaque aura contenait un membre du clan. Bien que confus, ils n'hésitèrent pas une seconde à tenter de fuir la planète.
 
 Bien qu'ils ignorassent ce qui se passait, l'ordre du patriarche était pour eux la loi suprême. Ils suivraient cet ordre jusqu'à la mort!
 
 Wang Lin se retourna, le regard froid. Il agita sa main droite et un éclair jaillit de son œil droit. Un immense coup de tonnerre apparut et se divisa en d'innombrables directions, prenant Wang Lin comme épicentre.
 
-À cet instant, la foudre balaya la planète sombre dans un fracas de tonnerre. Chaque éclair était une sentence de mort verrouillée sur chaque membre du Clan des Ténèbres. Leurs corps explosèrent et le tonnerre ramena leurs têtes.
+À cet instant, la foudre balaya la planète sombre dans un fracas de tonnerre. Chaque éclair était une sentence de mort verrouillée sur chaque membre du Clan des Enfers. Leurs corps explosèrent et le tonnerre ramena leurs têtes.
 
 Les cris de mort résonnèrent sur toute la planète. Wang Lin les ignora, se concentrant sur les 300 âmes originelles confuses. D'un geste léger de la main, il fit retourner les âmes originelles dans leurs corps respectifs.
 
 Wang Lin fit un pas en avant. À l'instant même où il avançait, les éclairs revenaient chargés de têtes. Il y avait désormais près de dix mille têtes derrière lui, et le tonnerre retourna dans l'œil droit de Wang Lin.
 
-En seulement quelques respirations, tous les membres du Clan des Ténèbres périrent; aucun ne survécut!
+En seulement quelques respirations, tous les membres du Clan des Enfers périrent; aucun ne survécut!
 
 Flottant dans les airs, Wang Lin leva la main droite et pressa la terre. L'innombrable aura de mort entourant la planète surgit telle une mer déchaînée vers lui.
 
 Finalement, cette aura de mort infinie se condensa dans la main droite de Wang Lin, incarnant la Mort elle-même. Elle forma une sphère de gaz tournant à une vitesse fulgurante.
 
-Alors que l'aura de mort était extraite par Wang Lin, la vie revint sur la planète. Les nombreuses bulles éclatèrent toutes, rendant leur liberté aux cultivateurs du Fleuve Invoqué.
+Alors que l'aura de mort était extraite par Wang Lin, la vie revint sur la planète. Les nombreuses bulles éclatèrent toutes, rendant leur liberté aux cultivateurs du Rivière Invoquée.
 
 Wang Lin détourna son regard de la planète et s'élança vers le ciel, la sphère d'aura de mort à la main. Il écrasa sans pitié cette sphère, libérant une quantité monstrueuse d'aura de mort vers les cieux.
 
@@ -96,7 +96,7 @@ Au moment où il ouvrait son monde de la Flamme Joss, Wang Lin pointa la main dr
 
 En un seul mot, le corps de l'homme s'immobilisa. À cet instant précis, Wang Lin se rapprocha et sa paume frappa le corps de l'adversaire. Un grondement résonna à l'intérieur de l'homme, puis la main de Wang Lin se porta vers son front.
 
-Dans un bang, l'homme trembla et du sang jaillit de tous ses orifices. Ses yeux étaient emplis de lutte et de terreur alors qu'il tentait désespérément de briser le sort « Arrête ».
+Dans un fracas sourd, l'homme trembla et du sang jaillit de tous ses orifices. Ses yeux étaient emplis de lutte et de terreur alors qu'il tentait désespérément de briser le sort « Arrête ».
 
 Cependant, face à Wang Lin, il n'en eut pas la possibilité. Une lueur glaciale passa dans les yeux de Wang Lin. Il brisa l'esprit de l'homme et le scella par deux frappes de paume. Puis, sa main droite balaya le cou de l'homme d'âge moyen.
 

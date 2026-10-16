@@ -10,7 +10,7 @@ La jeune fille en violet hocha doucement la tête et se leva avec la jeune fille
 
 Alors qu'elle s'apprêtait à s'éloigner, la jeune fille en violet hésita un instant. La jeune fille en vert avait déjà quitté l'embarcation et s'élevait dans les airs grâce à un sort d'attraction.
 
-« Sœur aînée, allons-y », fit la voix de la jeune fille, résonnant à travers la pluie.
+« Senior Sister, allons-y », fit la voix de la jeune fille, résonnant à travers la pluie.
 
 La jeune fille regarda le corps tremblant de Wang Lin, recroquevillé dans un coin, et s'approcha silencieusement. Sa main de jade effleura son sac de rangement, et un manteau épais apparut dans sa main. Elle couvrit doucement Wang Lin et murmura:
 
@@ -28,11 +28,11 @@ Le bruit de la pluie frappant la coque persistait, mais Wang Lin faisait un doux
 
 Le manteau qui enveloppait son corps dégageait un léger parfum qui lui chatouillait les narines et l'entraînait dans ses songes.
 
-« Xu Fei… Sœur aînée Zhou Si… Wang Zhuo… Wang Hao… Zhang Hu… » murmura Wang Lin dans son sommeil. Si les deux jeunes filles ne s'étaient pas éloignées et avaient entendu ces paroles, elles auraient été sous le choc!
+« Xu Fei… Senior Sister Zhou Si… Wang Zhuo… Wang Hao… Zhang Hu… » murmura Wang Lin dans son sommeil. Si les deux jeunes filles ne s'étaient pas éloignées et avaient entendu ces paroles, elles auraient été sous le choc!
 
 Mais désormais, elles ne pouvaient plus l'entendre.
 
-Le rêve de Wang Lin était comme une autre vie. Dans ce songe, il voyait Xu Fei au sein de la Secte Heng Yue, ainsi que la Sœur aînée Zhou… Sur les montagnes de la Secte Heng Yue, un oiseau blanc passait également en trombe…
+Le rêve de Wang Lin était comme une autre vie. Dans ce songe, il voyait Xu Fei au sein de la Secte Heng Yue, ainsi que la Senior Sister Zhou… Sur les montagnes de la Secte Heng Yue, un oiseau blanc passait également en trombe…
 
 Après un long moment, la petite flamme de la bougie s'éteignit progressivement pour ne faire qu'un avec la nuit.
 
@@ -112,7 +112,7 @@ Des rayons de lumière capables de percer les cieux jaillirent à travers les nu
 
 « Hein… » La confusion se lut dans ses yeux.
 
-Un jeune homme élégant sortit d'un autre rayon de lumière et demanda doucement: « Qu'y a-t-il, Sœur junior Liu? »
+Un jeune homme élégant sortit d'un autre rayon de lumière et demanda doucement: « Qu'y a-t-il, Junior Sister Liu? »
 
 « Rien, j'ai l'impression d'avoir déjà vu cet érudit quelque part… » La femme secoua la tête et s'envola au loin.
 

@@ -22,7 +22,7 @@ L'Alliance de Culture d'autrefois régnait sur le Système Stellaire de l'Espace
 
 Wang Lin se tenait là, observant le quartier général de l'Alliance en murmurant des paroles que lui seul pouvait entendre.
 
-« Frère aîné Qing Shu, tu dois survivre... » Wang Lin laissa échapper un soupir et leva la main droite. Il pointa du doigt le vortex géant qui tournait sans relâche depuis des éternités.
+« Senior Frère Qing Shui, tu dois survivre... » Wang Lin laissa échapper un soupir et leva la main droite. Il pointa du doigt le vortex géant qui tournait sans relâche depuis des éternités.
 
 D'un simple geste, une lumière dorée jaillit de son doigt. Un rayon de lumière dorée s'élança et frappa le vortex. À cet instant, un grondement assourdissant fit l'effet d'un séisme.
 
@@ -114,10 +114,10 @@ Maître Yan Leizi s'exclama rapidement: « C'est l'Estimé Maître Tian Zhao! »
 
 Le regard indifférent de Wang Lin se posa sur le vieil homme en noir, puis il fit un pas en avant. À cet instant, le vieil homme sourit. Ses mains formèrent un sceau et une énergie de Flamme Joss infinie apparut.
 
-« Et alors s'il est le Seigneur du Royaume Scellé? Regardez tous comment ce vieil homme va l'abattre! Une fois qu'il sera mort, je serai classé premier dans le classement de l'Ancien Système Stellaire! » Le vieil homme en noir ricana et avança à son tour. Il agita ses manches et les Flammes Joss prirent la forme de trois dragons noirs couverts d'épines, semblables à trois fouets sombres!
+« Et alors s'il est le Seigneur du Royaume Scellé? Regardez tous comment ce vieil homme va l'abattre! Une fois qu'il sera mort, je serai classé premier dans le classement du Système Stellaire Antique! » Le vieil homme en noir ricana et avança à son tour. Il agita ses manches et les Flammes Joss prirent la forme de trois dragons noirs couverts d'épines, semblables à trois fouets sombres!
 
 Le pouvoir spirituel propre aux cultivateurs du Vide Spirituel se propagea, accompagné d'un murmure étrange. Les trois dragons noirs ouvrirent leurs gueules, révélant trois Royaumes de Flamme Joss abritant d'innombrables disciples de la Flamme Joss. Ces flammes s'engouffrèrent dans les dragons noirs, les transformant en trois véritables dragons de Flamme Joss!
 
-C'était l'atout maître de l'Estimé Maître Tian Zhao, une technique célèbre dans tout l'Ancien Système Stellaire. Ces dragons n'étaient pas des illusions; il avait bravé de multiples dangers pour capturer ces dragons réels dans une terre mystérieuse!
+C'était l'atout maître de l'Estimé Maître Tian Zhao, une technique célèbre dans tout le Système Stellaire Antique. Ces dragons n'étaient pas des illusions; il avait bravé de multiples dangers pour capturer ces dragons réels dans une terre mystérieuse!
 
 Après les avoir affinés pendant des dizaines de milliers d'années, l'Estimé Maître Tian Zhao avait réussi à soumettre ces trois dragons noirs pour qu'ils lui vouent un culte et deviennent ses âmes de Flamme Joss!

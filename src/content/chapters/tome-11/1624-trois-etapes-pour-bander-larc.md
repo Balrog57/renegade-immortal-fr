@@ -44,7 +44,7 @@ S'il mourait, la mort serait définitive!
 
 Sans avoir le temps de réfléchir, la flèche se rapprocha instantanément. Le jeune homme en robe verte poussa un rugissement de détresse. Ses mains formèrent un sceau et il cracha une quantité massive de sang, faisant fi de l'état de son corps. Il rassembla toute l'essence dont il disposait, conscient qu'il faisait face à la fin de sa vie.
 
-Il ouvrit son Royaume de la Flamme Joss et en extraisit toutes ses âmes de Flamme Joss. Celles-ci fusionnèrent avec son sang pour former des milliards de couches de glace. En un instant, il créa un bloc de glace aussi vaste qu'une planète.
+Il ouvrit son Royaume de la Flamme Joss et en extrayait toutes ses âmes de Flamme Joss. Celles-ci fusionnèrent avec son sang pour former des milliards de couches de glace. En un instant, il créa un bloc de glace aussi vaste qu'une planète.
 
 C'est à ce moment précis que la flèche arriva. Dès qu'elle toucha la glace, celle-ci se désintégra immédiatement. Au centre, les yeux du jeune homme étaient empreints de désespoir. Il avait sacrifié sa propre marque de clan pour obtenir assez de puissance afin de tenter de résister!
 
@@ -100,10 +100,10 @@ Non loin de là, Zhou Jin était le seul cultivateur du Royaume Extérieur à av
 
 Et pas seulement lui; les milliers de cultivateurs du Royaume Intérieur étaient tous stupéfaits. Ce qu'ils venaient d'observer était tout simplement incroyable!
 
-« Le Seigneur du Domaine Scellé... C'est le Seigneur du Domaine Scellé, l'espoir de notre Royaume Intérieur! » Les yeux du Maître Nan Yunzi pétillaient d'excitation. En tant que cultivateur ayant pratiqué durant tant d'années, il savait qu'un tel phénomène ne devrait pas être possible, mais que ce soit la Porte des Dix Milliers de Vides ou le pouvoir de cette flèche, l'un ou l'autre suffisait à le bouleverser.
+« Le Seigneur du Royaume Scellé... C'est le Seigneur du Royaume Scellé, l'espoir de notre Royaume Intérieur! » Les yeux du Maître Nan Yunzi pétillaient d'excitation. En tant que cultivateur ayant pratiqué durant tant d'années, il savait qu'un tel phénomène ne devrait pas être possible, mais que ce soit la Porte des Dix Mille Os du Vide ou le pouvoir de cette flèche, l'un ou l'autre suffisait à le bouleverser.
 
 Situ Nan éclata de rire en observant Wang Lin au cœur du vortex, les yeux brillants d'exaltation.
 
-« Gloire au Seigneur du Domaine Scellé! » On ne sut qui parla le premier, mais bientôt, tout le monde suivit. Des milliers de cultivateurs poussèrent des cris d'allégresse. Derrière eux, la statue de Wang Lin sur la planète Suzaku semblait lever les yeux vers le ciel, comme s'il contemplait les cieux tels des fourmis!
+« Gloire au Seigneur du Royaume Scellé! » On ne sut qui parla le premier, mais bientôt, tout le monde suivit. Des milliers de cultivateurs poussèrent des cris d'allégresse. Derrière eux, la statue de Wang Lin sur la planète Suzaku semblait lever les yeux vers le ciel, comme s'il contemplait les cieux tels des fourmis!
 
 Cependant, seul Wang Lin savait que sa rétribution divine, sa rétribution divine de la troisième étape, était sur le point d'arriver!

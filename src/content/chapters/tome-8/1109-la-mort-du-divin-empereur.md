@@ -12,17 +12,17 @@ En tant qu'Empereur Divin de l'Oiseau Vermillon, ayant lui aussi cultivé les m�
 
 Sa vitesse était telle que, dès son entrée dans le champ d'étoiles, il fit un pas et disparut en utilisant la Distorsion Spatiale.
 
-En un instant, des ondulations apparurent à trente mètres de la pierre blanche où se tenait l'ancien Divin Empereur, et Wang Lin en émergea. Il vit immédiatement les yeux ensanglantés du vieil homme.
+En un instant, des ondulations apparurent à cent pieds de la pierre blanche où se tenait l'ancien Divin Empereur, et Wang Lin en émergea. Il vit immédiatement les yeux ensanglantés du vieil homme.
 
 Une aura de mort émanait de l'ancien Divin Empereur. Wang Lin n'avait même pas besoin d'utiliser son sens divin pour sentir que la mort tentait férocement de s'emparer de lui.
 
-« Aîné... » Les yeux de Wang Lin étaient empreints de chagrin alors qu'il montait sur la pierre blanche et ouvrait la bouche. Il avait tant de choses à dire, et pourtant, il fut incapable de prononcer le moindre mot.
+« Senior... » Les yeux de Wang Lin étaient empreints de chagrin alors qu'il montait sur la pierre blanche et ouvrait la bouche. Il avait tant de choses à dire, et pourtant, il fut incapable de prononcer le moindre mot.
 
 L'ancien Divin Empereur leva la tête. Une lueur subsistait dans ses yeux qui ne crachaient plus que du sang noir.
 
-« Ton frère aîné, Qing Shui, est bel et bien au siège de l'Alliance de Culture. L'activation de la formation devant le siège était directement liée à lui... Il n'est pas mort... mais... il est devenu fou! »
+« Ton Senior Frère, Qing Shui, est bel et bien au siège de l'Alliance de Culture. L'activation de la formation devant le siège était directement liée à lui... Il n'est pas mort... mais... il est devenu fou! »
 
-« L'Alliance de Culture cache un secret capable de faire trembler les cieux depuis d'innombrables années. Lorsque Maître Xuan Zhong et les autres se sont rendus dans le Royaume Céleste de la Pluie à l'époque, ils n'ont pas seulement obtenu la plupart des héritages, ils ont aussi découvert des choses mystérieuses. Ils les étudient depuis toutes ces années... »
+« L'Alliance de Culture cache un secret capable de faire trembler les cieux depuis d'innombrables années. Lorsque Maître Zhong Xuan et les autres se sont rendus dans le Royaume Céleste de la Pluie à l'époque, ils n'ont pas seulement obtenu la plupart des héritages, ils ont aussi découvert des choses mystérieuses. Ils les étudient depuis toutes ces années... »
 
 « Je crains que même le Royaume du Vide Brillant n'ait connaissance de cette affaire. Ces choses mystérieuses sont trop importantes; elles pourraient affecter les quatre Royaumes Célestes! »
 
@@ -56,7 +56,7 @@ Au moment où le vieil Empereur Divin mourut, tous les Anciens de la Secte Divin
 
 Bientôt, non seulement eux, mais tous les membres de la Secte Divine de l'Oiseau Vermillon ressentirent la tristesse qui se propageait à travers le monde. Ils savaient tous que l'ancien Divin Empereur était parti...
 
-Les membres du secteur s'agenouillèrent un à un, les larmes coulant silencieusement sur leurs visages...
+Les membres de la secte s'agenouillèrent un à un, les larmes coulant silencieusement sur leurs visages...
 
 « Salutations respectueuses au Divin Empereur... » Un son issu du plus profond du cœur commença à émaner des planètes de culture, devenant de plus en plus puissant.
 
@@ -82,7 +82,7 @@ Ces mouvements attirèrent immédiatement l'attention des diverses forces de l'A
 
 De l'autre côté, dans la région orientale des Quatre Sectes Divines, un groupe d'Anciens menait également les membres de leur secte vers la planète Suzaku, afin de masquer les véritables mouvements des Quatre Sectes Divines!
 
-Presque au moment même où toutes les forces arrivèrent sur la planète Suzaku, les 35 Anciens du Briseur du Nirvana se rassemblèrent dans la Secte Divine de l'Oiseau Vermillon. Ils étaient assis en formation, le visage grave et le regard empreint d'attente.
+Presque au moment même où toutes les forces arrivèrent sur la planète Suzaku, les 35 Anciens restants du Briseur du Nirvana se rassemblèrent dans la Secte Divine de l'Oiseau Vermillon. Ils étaient assis en formation, le visage grave et le regard empreint d'attente.
 
 Ils formèrent un cercle, chacun disposant d'une formation sous lui. Entre les 35 individus, un espace circulaire restait vide. Cependant, 35 branches reliaient ce centre aux formations situées sous chaque Ancien.
 
@@ -98,9 +98,9 @@ Wang Lin s'arrêta à l'extérieur de la tempête de feu et cria: « Xu Liguo! �
 
 En entendant la voix de Wang Lin, Xu Liguo eut un réflexe de flatterie qu'il réprima de force, laissant place à une colère contenue.
 
-« Espèce de démon assassin, tu te souviens enfin de ton Grand-père Xu! Aujourd'hui, je vais t'en donner! » Xu Liguo avait été confronté à d'innombrables situations de vie ou de mort qui l'avaient forcé à comprendre l'intention d'épée antique. Son niveau de culture avait progressé par bonds prodigieux, au point qu'il osait désormais défier des cultivateurs ordinaires du niveau Briseur du Nirvana.
+« Espèce de démon assassin, tu te souviens enfin de ton Grand-père Xu! Aujourd'hui, je vais t'en donner! » Xu Liguo avait été confronté à d'innombrables situations de vie ou de mort qui l'avaient forcé à comprendre l'intention d'épée antique. Son niveau de culture avait progressé par bonds prodigieux, au point qu'il osait désormais défier des cultivateurs ordinaires du niveau Scruteur du Nirvana.
 
-Surpris par la colère, il chargea et se transforma en une épée géante. Il ressemblait trait pour trait à une épée céleste et dégageait une aura de Richesse.
+Rempli de colère, il chargea et se transforma en une épée géante. Il ressemblait trait pour trait à une épée céleste et dégageait une aura de Richesse.
 
 En s'élançant, les flammes autour de lui furent repoussées. L'épée colossale formée par Xu Liguo fonça sur Wang Lin.
 
@@ -116,7 +116,7 @@ Il la pressa impitoyablement; des bruits de craquement résonnèrent et les huit
 
 Tenant toujours la grande épée en main, Wang Lin exerça une pression supplémentaire. Des craquements sinistres se firent entendre, accompagnés de la voix paniquée de Xu Liguo.
 
-« Maître! Maître! Le petit Xu a eu tort! Ce n'était pas intentionnel! Je ne suis juste pas tombé sur mon maître grand, majestueux, beau, confiant, intelligent, courageux, extraordinaire, incomparable, qui dépasse tous ceux d'avant et d'après, sage, audacieux, accompli, élégant, beau comme un arbre de jade, aimé de tous, talentueux, grand érudit, dont la culture fait trembler les cieux et qui est si aimable! Ce petit être vous a tellement regretté... Après toutes ces années, Maître s'est enfin souvenu du petit Xu. Je pensais que Maître ne voulait plus de moi. Maître, soyez indulgent, je vous en prie, soyez indulgent... »
+« Maître! Maître! Le petit Xu a eu tort! Ce n'était pas intentionnel! Je ne suis juste pas tombé sur mon maître grand, majestueux, beau, confiant, intelligent, courageux, extraordinaire, incomparable, unique, qui dépasse tous ceux d'avant et d'après, sage, audacieux, accompli, élégant, beau comme un arbre de jade, aimé de tous, talentueux, grand érudit, dont la culture fait trembler les cieux et qui est si aimable! Ce petit être vous a tellement regretté... Après toutes ces années, Maître s'est enfin souvenu du petit Xu. Je pensais que Maître ne voulait plus de moi. Maître, soyez indulgent, je vous en prie, soyez indulgent... »
 
 Xu Liguo était de nature timide et il était désormais mort de peur. Il déversait tout ce qui lui passait par la tête d'un seul coup, au point de surprendre Wang Lin lui-même.
 

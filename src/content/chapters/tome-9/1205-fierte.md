@@ -8,7 +8,7 @@ slug: fierte
 ---
 Wang Lin s'assit sur la tête de la statue. Il savait que si Maître Pin Cendré avait pu restaurer son corps et obtenir cette marque de foudre, c'était en lien étroit avec cette statue de pierre.
 
-L'une des âmes naissantes de sang de Maître Pin Cendré avait cultivé la méthode laissée dans cette statue. Grâce à sa puissance de compréhension décuplée, il n'en avait obtenu qu'une infime partie de l'héritage.
+L'une des âmes naissantes de sang de Maître Pin Cendré avait cultivé la méthode laissée dans cette statue. Grâce à sa puissance de compréhension neuf fois supérieure, il n'en avait obtenu qu'une infime partie de l'héritage.
 
 Désormais, Wang Lin avait absorbé la majeure partie de cet héritage lors de leur combat grâce à son contrôle du tonnerre, et tout cela était concentré dans son œil droit.
 
@@ -78,7 +78,7 @@ Cela n'avait rien à voir avec la culture; c'était une bataille de tonnerre!
 
 Les dragons de tonnerre anciens s'étaient vu accorder par le Dao céleste le droit de contrôler le tonnerre. Mais Wang Lin ne croyait pas aux cieux et allait utiliser son propre Dao pour dérober aux cieux le droit de commander au tonnerre!
 
-La statue de pierre était l'ancêtre du Clan de l'Éclair de Tonnerre. Bien que mort, il avait passé sa vie avec le tonnerre pour seul compagnon, au point de devenir presque lui-même le tonnerre. La marque de foudre entre ses sourcils refusait de céder! La rumeur disait que l'ancêtre originel du Clan de l'Éclair de Tonnerre était un éclair lui-même; un éclair défiant les cieux qui ne s'inclinerait même pas devant le firmament!
+La statue de pierre était l'ancêtre du Clan du Tonnerre Dispersé. Bien que mort, il avait passé sa vie avec le tonnerre pour seul compagnon, au point de devenir presque lui-même le tonnerre. La marque de foudre entre ses sourcils refusait de céder! La rumeur disait que l'ancêtre originel du Clan du Tonnerre Dispersé était un éclair lui-même; un éclair défiant les cieux qui ne s'inclinerait même pas devant le firmament!
 
 Si d'autres le vénéraient, ils obtenaient le droit de contrôler le tonnerre. Mais si l'on lui résistait, on était détruit par le tonnerre!
 

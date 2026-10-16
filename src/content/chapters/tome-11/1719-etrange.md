@@ -20,7 +20,7 @@ L'aura du Maître Hong Shan explosa depuis le centre du Royaume Céleste. Il s'e
 
 Derrière lui, le Maître Nan Yunzi réfléchit un instant et choisit de rester. Après tout, les cultivateurs de la troisième étape étaient rares dans le Royaume Céleste; si tous partaient, ils se retrouveraient en position de faiblesse.
 
-Wang Lin jaillit de la rivière argentée entourant le Royaume Céleste pour se fondre dans le monde. Lorsqu'il réapparut, il se trouvait déjà dans la Rivière des Invocations. Bien qu'il parût calme, ses yeux étaient empreints d'une intention meurtrière. Beaucoup de choses restaient encore obscures, mais les paroles du Maître du Dao Rêve Bleu lui avaient fait comprendre une chose essentielle.
+Wang Lin jaillit de la rivière argentée entourant le Royaume Céleste pour se fondre dans le monde. Lorsqu'il réapparut, il se trouvait déjà dans la Rivière Invoquée. Bien qu'il parût calme, ses yeux étaient empreints d'une intention meurtrière. Beaucoup de choses restaient encore obscures, mais les paroles du Maître du Dao Rêve Bleu lui avaient fait comprendre une chose essentielle.
 
 L'Omniscient complotait contre lui depuis longtemps, que ce soit sur la planète Suzaku ou dans la Terre des Esprits Démoniaques!
 
@@ -28,7 +28,7 @@ L'Omniscient complotait contre lui depuis longtemps, que ce soit sur la planète
 
 Il se déplaçait à une vitesse fulgurante, fusionnant parfois avec le monde pour se précipiter vers le lieu qu'il avait repéré plus tôt.
 
-Tout cela se produisit en un instant. Au plus profond du météore dans la Rivière des Invocations, l'expression de l'Omniscient changea. Il sentit le Sens Divin de quelqu'un l'observer et reconnut immédiatement qu'il appartenait à Wang Lin!
+Tout cela se produisit en un instant. Au plus profond du météore dans la Rivière Invoquée, l'expression de l'Omniscient changea. Il sentit le Sens Divin de quelqu'un l'observer et reconnut immédiatement qu'il appartenait à Wang Lin!
 
 « Avec son niveau de culture, il n'aurait pas dû trouver cet endroit si tôt... Quelqu'un l'a aidé! Et cette personne n'est pas Qing Lin! » Les yeux de l'Omniscient s'illuminèrent et il se redressa. Alors qu'il s'apprêtait à sortir du météore, il fit soudainement volte-face. Il regarda vers l'extérieur et son expression devint sombre.
 
@@ -36,7 +36,7 @@ Tout cela se produisit en un instant. Au plus profond du météore dans la Rivi�
 
 À l'extérieur du météore, un rayon de lumière fonçait sur lui. Wang Lin était niché au cœur de ce rayon, verrouillé sur sa cible. Sa main droite se serra en un poing alors qu'il convergeait vers le météore pour l'impacter de plein fouet.
 
-Un grondement tonnerre résonna lorsque le poing de Wang Lin heurta le météore. Ce dernier vola en éclats, se transformant en une multitude de fragments qui se dissipèrent en poussière.
+Un grondement de tonnerre résonna lorsque le poing de Wang Lin heurta le météore. Ce dernier vola en éclats, se transformant en une multitude de fragments qui se dissipèrent en poussière.
 
 Une onde de choc destructrice se propagea, comme si son coup de poing avait percé l'espace lui-même.
 
@@ -58,7 +58,7 @@ Le choc des deux essences de feu provoqua une onde de choc qui traversa tout le 
 
 Alors que le fracas tonnerre résonnait, les deux oiseaux vermillons s'effondrèrent pour redevenir deux masses de feu. L'une fonça sur l'Omniscient et l'autre submergea Wang Lin.
 
-Au moment même où les flammes qui recouvraient tout se dissipèrent, le tonnerre gronda là où se tenait l'Omniscien. La foudre convergea de toutes parts pour former un gigantesque dragon de tonnerre à neuf têtes!
+Au moment même où les flammes qui recouvraient tout se dissipèrent, le tonnerre gronda là où se tenait l'Omniscient. La foudre convergea de toutes parts pour former un gigantesque dragon de tonnerre à neuf têtes!
 
 Ce dragon poussa un rugissement et chacune de ses neuf têtes libéra un éclair de foudre. Ces éclairs percèrent les restes du feu et se précipitèrent vers Wang Lin telle une divine rétribution.
 
@@ -88,7 +88,7 @@ Wang Lin recula en fixant l'Omniscient. L'intention meurtrière dans ses yeux s'
 
 À cet instant, l'aura de la mort d'une âme que seul Wang Lin pouvait percevoir jaillit du corps déchiqueté de l'Omniscient. Que Wang Lin le voulût ou non, elle vola vers lui et fusionna avec l'âme de l'avatar de l'Omniscient qu'il portait en lui, la renforçant ainsi.
 
-Au moment où l'âme de l'avatar se fortifia, Wang Lin sentit immédiatement l'aura de l'Omniscient surgir dans une autre partie de la Rivière des Invocations!
+Au moment où l'âme de l'avatar se fortifia, Wang Lin sentit immédiatement l'aura de l'Omniscient surgir dans une autre partie de la Rivière Invoquée!
 
 Wang Lin réfléchit en silence avant de s'élancer et de disparaître.
 

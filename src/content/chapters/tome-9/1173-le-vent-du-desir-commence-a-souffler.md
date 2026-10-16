@@ -116,7 +116,7 @@ Wang Lin acquiesça sans mot dire.
 
 La main droite de Maître Pin Cendré s'étira vers le vide pour ouvrir son espace de stockage. Il en sortit un sac de rangement et le lança à Wang Lin, tout en le fixant d'un regard intense. Personne ne pouvait lire dans ses pensées.
 
-Wang Lin attrapa le sac et l'examina avec son Sens Divin. Il contenait cinq mille cristaux d'origine. Les cristaux d'origine étaient extrêmement rares dans la Mer Nuageuse, et une telle quantité représentait une somme astronomique. On ignorait comment Maître Pin Cendré avait pu s'en procurer autant.
+Wang Lin attrapa le sac et l'examina avec son Sens Divin. Il contenait cinq mille cristaux d'origine. Les cristaux d'origine étaient extrêmement rares dans la Mer des Nuages, et une telle quantité représentait une somme astronomique. On ignorait comment Maître Pin Cendré avait pu s'en procurer autant.
 
 Après avoir rangé le sac, Wang Lin ouvrit son propre espace de stockage et sortit le sac qu'il avait préparé avec ses jades célestes. Il le lança à Maître Pin Cendré qui l'attrapa. Après l'avoir inspecté par son Sens Divin, ce dernier afficha un sourire.
 

@@ -20,7 +20,7 @@ Ce changement était le signe de l'apparition de la neuvième étoile. Un vague 
 
 Wang Lin ferma les yeux pour ressentir le pouvoir du Dao Ancien et la force impétueuse qui bouillonnait en lui. Un instant plus tard, il ouvrit brusquement les yeux et fixa le bassin de glace en contrebas. Ses yeux irradiaient d'une lueur dorée tandis qu'il tendait ses mains vers la glace pour la déchirer impitoyablement!
 
-« Déchirure Céleste! »
+« Déchirure du Ciel! »
 
 Wang Lin poussa un rugissement et griffa le vide de ses deux mains. Ses mains s'écartèrent de chaque côté et le monde trembla. Une fissure gigantesque apparut dans le bassin gelé.
 
@@ -34,7 +34,7 @@ Cependant, à cet instant, la plupart des visages avaient totalement disparu. M�
 
 À ce moment précis, dans l'espace où se trouvait la deuxième fleur, une fissure apparut sur la racine gelée de celle-ci. Cette faille continua de s'étendre jusqu'à pénétrer le cœur de la fleur.
 
-Le sortilège de Déchirure Céleste avait ouvert ce monde. Wang Lin contempla le monde de glace et avança sans hésiter, disparaissant dans les profondeurs de la terre.
+Le sortilège de Déchirure du Ciel avait ouvert ce monde. Wang Lin contempla le monde de glace et avança sans hésiter, disparaissant dans les profondeurs de la terre.
 
 « Le Daoïste aux Sept Couleurs n'est plus une menace. Maintenant, je dois m'occuper du Vieux Fantôme Zhan... Il est prudent et méfiant; il sera difficile de l'approcher... » Wang Lin apparut dans l'espace occupé par la troisième fleur.
 
@@ -112,7 +112,7 @@ S'il existait une personne dont la connaissance de ce lieu était presque égale
 
 « La quatrième fleur était donc cet endroit... » La troisième concubine avait obtenu la majeure partie de la carte de la première couche autrefois. C'est ici aussi qu'une onde de choc venait de troubler son esprit calme.
 
-C'était ici qu'elle avait rencontré Wang Lin. Finalement, elle avait été libérée grâce à l'aide de ce dernier et n'avait pas été scellée ici. Elle aimait la solitude et ne savait guère communiquer avec autrui. Lorsqu'elle fut contrainte de devenir la concubine du Suverain aux Sept Couleurs, elle n'avait accepté que pour le salut de sa secte.
+C'était ici qu'elle avait rencontré Wang Lin. Finalement, elle avait été libérée grâce à l'aide de ce dernier et n'avait pas été scellée ici. Elle aimait la solitude et ne savait guère communiquer avec autrui. Lorsqu'elle fut contrainte de devenir la concubine du Souverain aux Sept Couleurs, elle n'avait accepté que pour le salut de sa secte.
 
 Elle n'avait que peu d'amis sur le Continent Astral Immortel. Même au sein de la Secte de la Porte Céleste, elle passait le plus clair de son temps à cultiver. De par sa personnalité, elle restait toujours isolée parmi les autres concubines.
 

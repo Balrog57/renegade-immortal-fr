@@ -24,7 +24,7 @@ Au fur et à mesure qu'ils reculaient, les zones touchées par le fouet semblaie
 
 Wang Lin était animé d'une ardeur soudaine et, sans réfléchir, injecta sa culture dans le Fouet de l'Âme. Le fouet émit une lueur spectrale, tandis qu'une lumière dorée jaillissait de la partie brisée de l'arme!
 
-En voyant cette lumière dorée, l'expression du Grand Ancien changea radicalement. Une trace de peur even apparut dans ses yeux!
+En voyant cette lumière dorée, l'expression du Grand Ancien changea radicalement. Une trace de peur apparut dans ses yeux!
 
 « Cette lumière dorée!!! Cette lumière dorée!!! Cet objet pourrait-il vraiment être... Impossible, ce fouet a été emporté, comment pourrait-il être entre ses mains? C'est impossible! »
 

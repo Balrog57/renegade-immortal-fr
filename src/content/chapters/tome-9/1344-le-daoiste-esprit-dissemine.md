@@ -1,6 +1,6 @@
 ---
 n: 1344
-title: Le Daoïste Esprit Disséminé
+title: Le Daoïste Esprit Dispersé
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1344 - Daoist Scattered Spirit
@@ -24,7 +24,7 @@ Les paroles froides et calmes de Wang Lin étaient comme une épée invisible qu
 
 L'environnement était plongé dans un silence absolu, à l'exception des grondements tonitruants des nuages de la rétribution divine et de la sueur qui dégoulinait du visage du jeune homme chauve. Wang Lin fixa ce dernier et, après quelques instants de silence, fronça les sourcils.
 
-Voyant Wang Lin froncer les sourcils, l'esprit du jeune homme chauve trembla. Il joignit rapidement les mains et s'exclama: « Céleste, je vous en prie, ne soyez pas en colère. Cet habitant du royaume inférieur se nomme Esprit Disséminé. Je n'avais aucune intention malveillante. Je vous en prie... »
+Voyant Wang Lin froncer les sourcils, l'esprit du jeune homme chauve trembla. Il joignit rapidement les mains et s'exclama: « Céleste, je vous en prie, ne soyez pas en colère. Cet habitant du royaume inférieur se nomme Esprit Dispersé. Je n'avais aucune intention malveillante. Je vous en prie... »
 
 Avant qu'il ne puisse achever sa phrase, Wang Lin agita la main droite et l'éclair rouge jaillit vers le jeune homme à une vitesse inimaginable!
 
@@ -42,7 +42,7 @@ Sous l'aura protectrice, les yeux du jeune homme chauve devinrent soudainement p
 
 Les yeux de Wang Lin s'éclairèrent et il s'arrêta net dans les airs, fixant froidement le jeune homme. Auparavant, le regard de cet homme paraissait immature, mais il semblait désormais contenir des millénaires d'expérience.
 
-Le jeune homme chauve reprit lentement: « Le nom de ce vieil homme est Esprit Disséminé. J'ai vécu des dizaines de milliers d'années. J'ai atteint le quatrième Fléau Céleste...
+Le jeune homme chauve reprit lentement: « Le nom de ce vieil homme est Esprit Dispersé. J'ai vécu des dizaines de milliers d'années. J'ai atteint le quatrième Fléau Céleste...
 
 « Ce vieil homme possède 971 avatars comme celui-ci, Compagnon Cultivateur, et chacun d'eux contient ma volonté. Grâce à ces avatars, je peux me déplacer dans l'espace tel les cultivateurs du Clan du Tonnerre Dispersé sans être remarqué par quiconque.
 
@@ -66,7 +66,7 @@ Les yeux de Wang Lin brillèrent d'intérêt et il s'avança à son tour, traver
 
 Wang Lin gardait une expression sereine tout en voyageant avec lui à travers les mondes. À cet instant, des capitales mortelles, des pans entiers de l'espace, et même la pluie printanière ou le vent d'automne défilaient sans cesse autour d'eux.
 
-« Malheureusement, bien que mon talent fût excellent, je ne pouvais plus contenir ma culture. À deux cents ans, elle déborda et déclencha la rétribution divine... Le Céleste qui apparut était l'actuel Grand Ancien du Clan du Tonnerre Dispersé...
+« Malheureusement, bien que mon talent fût excellent, je ne pouvais plus contenir ma culture. À deux cents ans, elle déborda et déclencha la rétribution divine... Le Céleste qui apparut était l'actuel Ancien principal du Clan du Tonnerre Dispersé...
 
 « Son niveau de culture à l'époque n'était que celui d'un Scruteur du Nirvana. J'étais gravement blessé et au bord de la mort; je ne pouvais tout simplement pas résister... Cependant, au lieu de m'achever, il a réduit ma culture à néant avant de partir...
 
@@ -78,9 +78,9 @@ Wang Lin le regarda et dit calmement: « Vous vous dispersez parmi tous vos avat
 
 Le jeune homme hocha la tête.
 
-« J'ai utilisé la technique de l'Esprit Disséminé pour transmettre ma culture au-delà du stade de la Formation de l'Âme, et après mille ans, j'ai atteint le stade de l'Ascendant. Je possédais 971 avatars!
+« J'ai utilisé la technique de l'Esprit Dispersé pour transmettre ma culture au-delà du stade de la Formation de l'Âme, et après mille ans, j'ai atteint le stade de l'Ascendant. Je possédais 971 avatars!
 
-« 971 était la limite de la technique de l'Esprit Disséminé; on ne pouvait pas la dépasser. J'ai donc trouvé un moyen de contourner cette règle. Chaque avatar agit comme un corps principal et utilise à son tour la technique de l'Esprit Disséminé. Chacun de mes 971 avatars possède ses propres 971 avatars!
+« 971 était la limite de la technique de l'Esprit Dispersé; on ne pouvait pas la dépasser. J'ai donc trouvé un moyen de contourner cette règle. Chaque avatar agit comme un corps principal et utilise à son tour la technique de l'Esprit Dispersé. Chacun de mes 971 avatars possède ses propres 971 avatars!
 
 « Grâce à ce cycle perpétuel, mon niveau de culture a lentement progressé jusqu'à atteindre le stade du Scruteur du Nirvana... » En arrivant à ce point, le jeune homme laissa échapper un soupir.
 
@@ -88,7 +88,7 @@ Lui et Wang Lin étaient tous deux de puissants cultivateurs. Ils traversaient l
 
 « Après avoir atteint le stade du Purificateur du Nirvana, j'ai commencé à poursuivre le doute qui m'habitait depuis longtemps. Je voulais savoir si ce ciel était véritablement le ciel. Si cette terre était réellement la terre. Si ce Royaume Céleste était vraiment le Royaume Céleste!
 
-« Je voulais percer le mystère de la légende transmise par nos ancêtres depuis l'Antiquité, leur description et leur désir ardent du Royaume Céleste! Cependant, bien que j'eusse atteint le stade du Purificateur du Nirvana et possédae une culture puissante, je ne pouvais quitter les 7 Millions de Mondes. Je ne pouvais que voyager en son sein; il existait une barrière invisible que ma culture ne parvenait pas à briser!
+« Je voulais percer le mystère de la légende transmise par nos ancêtres depuis l'Antiquité, leur description et leur désir ardent du Royaume Céleste! Cependant, bien que j'eusse atteint le stade du Purificateur du Nirvana et possédais une culture puissante, je ne pouvais quitter les 7 Millions de Mondes. Je ne pouvais que voyager en son sein; il existait une barrière invisible que ma culture ne parvenait pas à briser!
 
 « J'ai donc conçu une méthode pour contrôler mes innombrables avatars afin qu'ils franchissent tous le stade de la Formation de l'Âme et déclenchent la rétribution divine! À ce moment-là, j'ai provoqué moi-même une infime partie de cette rétribution!
 
@@ -104,4 +104,4 @@ Wang Lin réfléchissait silencieusement en écoutant le récit du jeune homme, 
 
 « À partir de ce jour, je ne fus plus confus. Je me suis juré de briser ce monde, de sortir et de voir ce qui se trouvait au-delà. Pour vérifier si mes soupçons étaient fondés! » Le jeune homme était transporté par l'excitation. C'était la première fois qu'il confiait cela à quelqu'un.
 
-« J'ai commencé à cultiver. Chacun de mes avatars a également commencé à pratiquer la technique de l'Esprit Disséminé. Le temps a passé, mais l'indignation dans mon cœur ne cessait de croître... Jusqu'à ce que j'atteigne le stade du Briseur du Nirvana! Même mes avatars avaient atteint les stades du Scruteur et du Purificateur du Nirvana! J'ai enfin brisé ma cage et j'ai fait un pas dans la voûte étoilée! »
+« J'ai commencé à cultiver. Chacun de mes avatars a également commencé à pratiquer la technique de l'Esprit Dispersé. Le temps a passé, mais l'indignation dans mon cœur ne cessait de croître... Jusqu'à ce que j'atteigne le stade du Briseur du Nirvana! Même mes avatars avaient atteint les stades du Scruteur et du Purificateur du Nirvana! J'ai enfin brisé ma cage et j'ai fait un pas dans la voûte étoilée! »

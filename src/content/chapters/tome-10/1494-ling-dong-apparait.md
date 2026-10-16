@@ -114,7 +114,7 @@ Il était tout à fait normal pour un cultivateur d'avoir un esclave, mais cet e
 
 Même dans le Royaume Extérieur, une telle nouvelle provoquerait une onde de choc monumentale, et plus encore dans le Royaume Intérieur, où l'on ne voyait qu'exceptionnellement un cultivateur de la troisième étape tous les dizaines de milliers d'années!
 
-Même si on avait dit au Maître Yan Leizi qu'Luotian s'effondrerait, il n'en serait pas moins bouleversé!
+Même si on avait dit au Maître Yan Leizi que Luotian s'effondrerait, il n'en serait pas moins bouleversé!
 
 L'apparition de l'Estimé Ling Dong, cette force mystérieuse, cette pression qui faisait trembler l'espace, cette aura qui terrifiait les cultivateurs, cette puissance plus grande encore que celle de l'ancêtre de Luotian, et l'expression du Maître Lu Fu révélaient tout!
 

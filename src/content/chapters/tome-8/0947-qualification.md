@@ -60,7 +60,7 @@ Lie Yunzi esquissa un léger sourire et dit lentement: « Tu es venu. » Grâce 
 
 Une lueur de froideur passa dans les yeux de Xu Ting. Il laissa échapper un grognement méprisant et ne cacha pas son intention meurtrière en fixant Wang Lin.
 
-La silhouette de Wang Lin apparut sous le regard des treize yeux rouges. Son expression était neutre, comme si la pression ne l'affectait nullement, et il ignora totalement Xu Ting. Il regarda Lie Yunzi et dit: « Xu Mu salue l'Aîné Lie Yunzi. »
+La silhouette de Wang Lin apparut sous le regard des treize yeux rouges. Son expression était neutre, comme si la pression ne l'affectait nullement, et il ignora totalement Xu Ting. Il regarda Lie Yunzi et dit: « Xu Mu salue l'Senior Lie Yunzi. »
 
 Lie Yunzi agita la main droite et les treize yeux rouges disparurent des sphères de sang, dissipant ainsi la pression. L'expression de Wang Lin ne changea pas alors qu'il atterrissait au sommet de la montagne, se tenant face à Xu Ting.
 
@@ -88,7 +88,7 @@ Un rayon de lumière noire jaillit de la brèche. Un parchemin noir, entouré d'
 
 « Voici le second Parchemin de Bataille parmi les trois parchemins de ma famille Zhan! » La main gauche de Lie Yunzi le projeta en avant, et il regarda Wang Lin avec une pointe d'anticipation.
 
-La main droite de Wang Lin saisit le parchemin de la famille Zhan, mais il ne l'ouvrit pas. Au lieu de cela, il sourit à Lie Yunzi et dit: « Aîné Lie Yunzi, le Cadet ne peut contempler ce second parchemin sans rien en retour! »
+La main droite de Wang Lin saisit le parchemin de la famille Zhan, mais il ne l'ouvrit pas. Au lieu de cela, il sourit à Lie Yunzi et dit: « Senior Lie Yunzi, le Cadet ne peut contempler ce second parchemin sans rien en retour! »
 
 En regardant Wang Lin, l'expression de Lie Yunzi s'assombrit. Cependant, il se remémora le rugissement de Wang Lin et, un instant plus tard, il éclata de rire. « Xu Mu, tu as du cran! Que veux-tu? Parle! »
 

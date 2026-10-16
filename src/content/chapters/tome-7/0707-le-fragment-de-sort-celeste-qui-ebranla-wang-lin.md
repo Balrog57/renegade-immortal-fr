@@ -53,7 +53,7 @@ Le regard de Wang Lin se posa sur la Bête du Tonnerre.
 
 S'il n'avait pas été confronté à une situation de vie ou de mort, Wang Lin n'aurait jamais ouvert le troisième sceau du Char de Guerre Divin sans préparation. Après tout, ce char était extrêmement difficile à contrôler; la moindre erreur aurait provoqué un contrecoup dévastateur.
 
-Pourtant, durant ces six mois, la réaction de la Bête du Tonnerre avait été inattendue. Non seulement elle n'avait montré aucun signe de rébellion, mais elle avait suivi toutes ses commandes.
+Pourtant, durant ces six mois, la réaction de la Bête du Tonnerre avait été inattendue. Non seulement elle n'avait montré aucun signe de contrecoup, mais elle avait suivi toutes ses commandes.
 
 Cependant, il y avait un ordre qu'elle refusait d'obéir, peu importe le sort utilisé par Wang Lin.
 
@@ -113,7 +113,7 @@ Le cœur de Wang Lin manqua un battement. Les cultivateurs ordinaires ne pouvaie
 
 Même si un véritable sort céleste de bas grade lui avait été présenté, il n'aurait pas eu la même importance. Bien qu'il ne s'agisse que d'un fragment, c'était précisément ce dont Wang Lin avait le plus besoin en ce moment.
 
-« Pas étonnant que le Temple Céleste du Tonnerre soit si puissant dans le Système Stellaire de l'Univers Entier. Pouvoir absorber l'énergie originelle du tonnerre céleste leur permet de cultiver bien plus vite que les autres. »
+« Pas étonnant que le Temple Céleste du Tonnerre soit si puissant dans le Système Stellaire de Luotian. Pouvoir absorber l'énergie originelle du tonnerre céleste leur permet de cultiver bien plus vite que les autres. »
 
 Les yeux de Wang Lin brillèrent d'un éclat malicieux.
 

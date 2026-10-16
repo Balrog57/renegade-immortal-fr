@@ -48,7 +48,7 @@ En pleine crise, Wang Lin lutta pour lever sa main droite vers ses sourcils. Des
 
 En un instant, la main gauche de Wang Lin plongea dans le vide et l'espace de stockage s'ouvrit. Il y jeta rapidement le fragment et l'épée de fer, puis une peau de bête vola et atterrit près du talisman jaune sur sa poitrine.
 
-Ce talisman jaune était un tatouage de flétrissement de vitesse et la peau de bête en était un autre. La peau de bête avait été créée par Ta Shan en utilisant l'héritage de l'Ancêtre Saint du Clan des Tatouages. Avec deux tatouages de vitesse, la célérité de Wang Lin augmenta à un degré inimaginable.
+Ce talisman jaune était un tatouage de flétrissement de vitesse et la peau de bête en était un autre. La peau de bête avait été créée par Ta Shan en utilisant l'héritage de l'Ancêtre Saint du Clan du Tatouage. Avec deux tatouages de vitesse, la célérité de Wang Lin augmenta à un degré inimaginable.
 
 S'appuyant sur cette vitesse, Wang Lin serra les dents et lutta pour échapper à l'aspiration. Il avait l'impression de percuter d'immenses montagnes. Des bruits de craquement résonnèrent alors qu'il s'élançait sur cent pieds!
 
@@ -82,7 +82,7 @@ Cette tête ressemblait à Wang Lin!
 
 Wang Lin regarda silencieusement devant lui et réfléchit longuement. Puis il poussa un soupir et murmura avec un sourire amer: « Wang Lin, ton niveau de culture actuel ne représente rien dans ce monde. Je dois encore rester prudent en toute chose! »
 
-Une amertume envahit Wang Lin. Dans la Terre des Esprits Démoniacs, il avait combattu le Maître du Vide, il avait combattu l'Omniscient avec la Nuit Déchirée, il avait combattu l'ancien démon avec le Rêve des Temps Anciens, puis il était devenu l'Empereur Divin de l'Oiseau Vermillon. Après cela, il avait réussi à sauver l'Empereur Divin du Dragon Azure et avait réveillé l'Empereur Céleste Qing Lin. Tout au long de ce parcours, le niveau de culture de Wang Lin avait progressé, et après être devenu l'Empereur Divin de l'Oiseau Vermillon, il avait mobilisé diverses forces pour combattre Tuo Sen.
+Une amertume envahit Wang Lin. Dans la Terre des Esprits Démoniaques, il avait combattu le Maître du Vide, il avait combattu l'Omniscient avec la Nuit Déchirée, il avait combattu l'ancien démon avec le Rêve des Temps Anciens, puis il était devenu l'Empereur Divin de l'Oiseau Vermillon. Après cela, il avait réussi à sauver l'Empereur Divin du Dragon Azure et avait réveillé l'Empereur Céleste Qing Lin. Tout au long de ce parcours, le niveau de culture de Wang Lin avait progressé, et après être devenu l'Empereur Divin de l'Oiseau Vermillon, il avait mobilisé diverses forces pour combattre Tuo Sen.
 
 Tout cela lui avait donné l'impression que tout était sous son contrôle, et affronter des cultivateurs au stade du Briseur du Nirvana lui avait inconsciemment insufflé un sentiment de complaisance.
 
@@ -96,6 +96,6 @@ Comme auparavant, il créa un nouvel avatar avec les roches environnantes et y i
 
 « Le sort céleste de Qing Lin nécessite trop d'énergie originelle céleste; si je crée trop d'avatars, cela affectera mon âme originelle. Ce second avatar est déjà ma limite... » Wang Lin ferma les yeux et concentra toute son attention sur lui.
 
-En utilisant la Distorsion Spatiale, Wang Lin arriva de nouveau sur la planète Suzaku. Il ne tarda pas à se diriger vers la Terre du Dieu Ancestral. Il prit une profonde inspiration à l'entrée et s'avança.
+En utilisant la Distorsion Spatiale, Wang Lin arriva de nouveau sur la planète Suzaku. Il ne tarda pas à se diriger vers la Terre de l'Ancien Dieu. Il prit une profonde inspiration à l'entrée et s'avança.
 
 Wang Lin progressa dans l'abîme avec la prudence qu'il affichait lorsqu'il était au stade de la Formation du Noyau, et il atteignit bientôt le vortex menant à la première épreuve. Sa main droite s'étira pour sortir une épée volante. Il y injecta une trace de son sens divin et l'épée plongea dans le vortex. Dès que l'arme entra, il détecta une tempête de sable.

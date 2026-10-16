@@ -56,7 +56,7 @@ Une goutte de liquide noir apparut et disparut au sein du vortex.
 
 « Si je peux absorber son pouvoir d'Ancien Dieu royal, je pourrai siéger au conseil des Anciens! » La marque en croissant de lune brilla entre les sourcils du vieil homme et il serra les dents. Ses mains formèrent un sceau, et la marque s'envola pour former une empreinte lunaire haute d'environ trois mètres!
 
-« Ce vieillard appartient au clan ancestral des Dévoreurs de Lune du Clan Céleste Immemorial. Aujourd'hui, j'ai rencontré la plus grande opportunité de ma vie! Quoi qu'il en coûte, je ne peux pas le laisser filer! » Alors que le vieil homme rugissait, la marque lunaire scintilla frénétiquement et chargea.
+« Ce vieillard appartient au clan ancestral des Dévoreurs de Lune du Clan Céleste Immémorial. Aujourd'hui, j'ai rencontré la plus grande opportunité de ma vie! Quoi qu'il en coûte, je ne peux pas le laisser filer! » Alors que le vieil homme rugissait, la marque lunaire scintilla frénétiquement et chargea.
 
 Au moment où le filet dans le vide allait se retirer totalement, la marque lunaire perça soudainement la barrière. Elle grandit dans le vide jusqu'à atteindre plus d'un kilomètre de haut, devenant comparable à Wang Lin.
 

@@ -18,13 +18,13 @@ C’en était comme si le monde entier avait été remplacé par l'océan, et un
 
 Ce seul sort suffisait à faire de Wang Wei l'un des cultivateurs les plus puissants de son époque. Le monde entier paraissait submergé par cette mer déchaînée.
 
-Wang Lin prit une inspiration glacée. D'après ce qu'il percevait, la force de Wang Wei était comparable à celle de Qing Shui, si l'on ne comptait pas sa sphère Ji!
+Wang Lin prit une inspiration glacée. D'après ce qu'il percevait, la force de Wang Wei était comparable à celle de Qing Shui, si l'on ne comptait pas son Royaume Ji!
 
 Cependant, alors que la mer rugissante approchait, l'homme d'âge mûr revêtu de son armure fit un pas et s'éleva dans les airs.
 
 « Une simple astuce! » Empreint d'une soif de sang et d'une folie meurtrière, l'homme leva sa main droite et l'agita avec désinvolture. Une masse de gaz noirs jaillit soudainement de sa paume, inondant le ciel et recouvrant la mer. L'océan créé par Wang Wei explosa en d'innombrables gouttes de pluie qui se dispersèrent partout. C'était comme si le sort de Wang Wei n'était qu'un jeu d'enfant face à cet homme!
 
-« Maître, le disciple est arrivé trop tard... » Le visage de Wang Wei était livide alors qu'il reculait de plusieurs centaines de pieds pour rejoindre Zhou Yi. Il regarda l'homme d'âge mûr avec une douleur profonde dans les yeux, mais il la réprima rapidement pour afficher un regard déterminé. Zhou Yi ne s'était pas encore remis de ses blessures infligées au Maître Vide et était en grand danger. Wang Wei fit un geste de la main; Zhou Yi comprit instantanément son intention. Il lança un dernier regard à Wang Lin avant de se transformer en une lueur de lumière pour être rangé dans le sac de Wang Wei.
+« Maître, le disciple est arrivé trop tard... » Le visage de Wang Wei était livide alors qu'il reculait de plusieurs centaines de pieds pour rejoindre Zhou Yi. Il regarda l'homme d'âge mûr avec une douleur profonde dans les yeux, mais il la réprima rapidement pour afficher un regard déterminé. Zhou Yi ne s'était pas encore remis de ses blessures infligées au Maître du Vide et était en grand danger. Wang Wei fit un geste de la main; Zhou Yi comprit instantanément son intention. Il lança un dernier regard à Wang Lin avant de se transformer en une lueur de lumière pour être rangé dans le sac de Wang Wei.
 
 Dans le ciel, après que la mer de Wang Wei eut été brisée, le doigt de l'Omniscient, qui semblait pouvoir soutenir les cieux, descendit. Imprégné d'une puissante énergie originelle, il descendait lentement depuis la voûte céleste. Bien que sa descente paraisse lente, sa vitesse réelle était extrême.
 
@@ -52,7 +52,7 @@ Les yeux de l'Omniscient brillèrent d'une lueur étrange, puis il chargea inopi
 
 Ces trois puissances avaient pénétré le brouillard noir, et les collisions assourdissantes de leurs sorts résonnaient. Des fluctuations folles d'énergie originelle et d'énergie spirituelle céleste se propageaient dans l'air.
 
-Le Maître Vide observait le brouillard noir avec un air grave, tout comme l'homme en noir à ses côtés. Le vieil homme sur la gourde hésita également et s'arrêta à la lisière de la brume. Quant à Ling Tianhou, il contemplait le chaos d'un visage sombre.
+Le Maître du Vide observait le brouillard noir avec un air grave, tout comme l'homme en noir à ses côtés. Le vieil homme sur la gourde hésita également et s'arrêta à la lisière de la brume. Quant à Ling Tianhou, il contemplait le chaos d'un visage sombre.
 
 Wang Lin recula immédiatement sans la moindre hésitation. Bien qu'il ignorât tout des détails de l'affrontement, l'homme en armure qui sortait du palais était le même qui avait interféré avec son Guide Limbes lorsqu'il se trouvait dans le monde de la bouteille et lui avait remis le cristal jaune.
 
@@ -62,7 +62,7 @@ Lorsque Wang Wei avait crié « Maître! », cela confirmait les soupçons de Wa
 
 « Par le passé, l'Empereur Céleste Qing Lin fut gravement blessé lors de l'effondrement du Royaume Céleste et fut contraint à une culture en vase clos. Cependant, l'Ancien Démon Ta Jia et l'Ancien Démon Bei Lou saisirent cette opportunité pour lui tendre une embuscade. Ils voulaient dérober le corps de Qing Lin afin de s'emparer de sa culture et de ses souvenirs. »
 
-« Pourtant, Qing Lin était si puissant que, même gravement blessé, il demeurait redoutable. Malgré l'alliance de l'Ancien Démon et de l'Ancien Démon, ils ne purent l'vaincre totalement. Finalement, Qing Lin se réfugia dans le Royaume Céleste de l'Esprit Divin, là où leur combat atteignit son apogée. »
+« Pourtant, Qing Lin était si puissant que, même gravement blessé, il demeurait redoutable. Malgré l'alliance de l'Ancien Démon et de l'Ancien Démon, ils ne purent le vaincre totalement. Finalement, Qing Lin se réfugia dans le Royaume Céleste de l'Esprit Divin, là où leur combat atteignit son apogée. »
 
 « Lors de cette bataille, l'Ancien Démon Bei Lou fut contraint d'être divisé en neuf parties. Il n'eut d'autre choix que de devenir neuf esprits démoniaques anciens et de se dissimuler durant d'innombrables années dans le Royaume Céleste de l'Esprit Divin, attendant de pouvoir se reformer. »
 
@@ -80,18 +80,18 @@ Au moment même où Wang Wei était expulsé, le brouillard noir se contracta po
 
 Un torrent de sang jaillit de la poitrine de Wang Wei avant qu'il ne chute du ciel. Ce changement si soudain fit pâlir les visages de tous les témoins.
 
-L'homme en noir eut un mouvement de recul, réprimant instantanément sa cupidité pour se retirer aussitôt. Le Maître Vide fit de même, mais ses yeux brillèrent d'une lueur prédatrice; tout en reculant, il chargea vers le Wang Wei gravement blessé.
+L'homme en noir eut un mouvement de recul, réprimant instantanément sa cupidité pour se retirer aussitôt. Le Maître du Vide fit de même, mais ses yeux brillèrent d'une lueur prédatrice; tout en reculant, il chargea vers le Wang Wei gravement blessé.
 
 « Je vais saisir cette opportunité pour achever ce petit et apaiser un peu la haine qui me ronge! »
 
-Bien que le Maître Vide fût lui-même blessé, il se situait toujours au stade du Briseur du Nirvana. À cet instant, il se déplaça comme l'éclair pour apparaître aux côtés de Wang Wei. Il leva sa main et s'apprêta à écraser impitoyablement la tête du jeune homme. Dans un sourire cruel, il hurla: « Puisque tu as osé aider ce petit bâtard, meurs! »
+Bien que le Maître du Vide fût lui-même blessé, il se situait toujours au stade du Briseur du Nirvana. À cet instant, il se déplaça comme l'éclair pour apparaître aux côtés de Wang Wei. Il leva sa main et s'apprêta à écraser impitoyablement la tête du jeune homme. Dans un sourire cruel, il hurla: « Puisque tu as osé aider ce petit bâtard, meurs! »
 
-Tandis que Wang Lin reculait, il vit Wang Wei être projeté après avoir été lourdement blessé. Il s'arrêta net et chargea pour le secourir. Cependant, il n'était pas aussi rapide que le Maître Vide qui avait déjà atteint sa cible et levé la main. Une lueur jaune terreuse émana de la paume droite du Maître Vide; elle concentrait la puissance maximale d'un cultivateur au début du stade Briseur du Nirvana.
+Tandis que Wang Lin reculait, il vit Wang Wei être projeté après avoir été lourdement blessé. Il s'arrêta net et chargea pour le secourir. Cependant, il n'était pas aussi rapide que le Maître du Vide qui avait déjà atteint sa cible et levé la main. Une lueur jaune terreuse émana de la paume droite du Maître du Vide; elle concentrait la puissance maximale d'un cultivateur au début du stade Briseur du Nirvana.
 
 À cet instant précis, Wang Lin n'eut pas le temps de réfléchir. Le fourneau divin antique apparut autour de lui. Il pointa Wang Wei du doigt et cria: « Changez de place! »
 
-Une lumière enveloppa Wang Wei et, au moment où la paume du Maître Vide s'abattait, celui-ci disparut pour être remplacé par Wang Lin!
+Une lumière enveloppa Wang Wei et, au moment où la paume du Maître du Vide s'abattait, celui-ci disparut pour être remplacé par Wang Lin!
 
-L'œil droit de Wang Lin brilla d'un bleu azur au moment même où la paume du Maître Vide descendait, créant un bouclier de lumière azurée entre eux. La main du Maître Vide percuta le bouclier.
+L'œil droit de Wang Lin brilla d'un bleu azur au moment même où la paume du Maître du Vide descendait, créant un bouclier de lumière azurée entre eux. La main du Maître du Vide percuta le bouclier.
 
 Le bouclier s'enfonça et pressa violemment la poitrine de Wang Lin, le faisant cracher du sang. Son corps fut repoussé avec une telle force que ses yeux devinrent injectés de sang; il finit par atterrir aux côtés de l'inconscient Wang Wei. Il le saisit et recula d'un bond. Tout en faisant cela, il plongea la main dans les vêtements de Wang Wei pour en extraire une pilule. Il brisa ensuite la cire protectrice et la fourra de force dans la bouche de Wang Wei.

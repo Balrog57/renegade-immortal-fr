@@ -28,9 +28,9 @@ Les quatre anciens dégageaient tous une aura céleste et une énergie spirituel
 
 Sitôt ses paroles prononcées, il ne laissa même pas le temps à Wang Lin de s'expliquer; il fit un pas en avant et pointa le ciel. Toute l'énergie spirituelle céleste de la grotte se rassembla pour former un vortex au creux de sa main.
 
-Le vortex s'effondra sous le geste de l'homme, mais un rugissement en jaillit aussitôt. Une bête surgit du vortex décollapsed!
+Le vortex s'effondra sous le geste de l'homme, mais un rugissement en jaillit aussitôt. Une bête surgit du vortex effondré!
 
-Cette créature était couverte d'une fourrure noire; il s'agissait manifestement d'un immense singe primitif. Mesurant environ trois mètres de haut, elle se rua directement sur Wang Lin.
+Cette créature était couverte d'une fourrure noire; il s'agissait manifestement d'un immense singe primitif. Mesurant environ dix pieds de haut, elle se rua directement sur Wang Lin.
 
 L'ancien bougea avec une expression sombre. Il se transforma en un rayon de lumière verte et chargea Wang Lin, passant derrière le singe primitif.
 

@@ -48,7 +48,7 @@ Les cultivateurs de l'Alliance avaient reçu des informations de la part de leur
 
 L'expression de l'homme changea et une lueur de froideur apparut dans ses yeux. Il recula sans hésiter et cria: « Ce Xu Mu est un cultivateur du Scruteur du Nirvana. Nous ne sommes pas de taille. Retraite rapide! »
 
-Dans une autre direction, trois cultivateurs se livraient un combat qui semblait être une impasse. Tous trois étaient des cultivateurs de l'Illusion Yin, mais à y regarder de plus près, on voyait deux membres de Luotian lutter contre un seul combattant de l'Alliance. Ce dernier se montrait extrêmement impitoyable et parvenait à garder son calme malgré ce combat inégal.
+Dans une autre direction, trois cultivateurs se livraient un combat qui semblait être une impasse. Tous trois étaient des cultivateurs du Yin Illusoire, mais à y regarder de plus près, on voyait deux membres de Luotian lutter contre un seul combattant de l'Alliance. Ce dernier se montrait extrêmement impitoyable et parvenait à garder son calme malgré ce combat inégal.
 
 Soudain, le rugissement du tigre résonna de nouveau. L'un des cultivateurs de Luotian déploya prudemment son Sens Divin vers l'arrière et fut immédiatement saisi de stupeur.
 

@@ -42,7 +42,7 @@ Ce vieil homme était l'un des cinq maîtres, le corps original du Maître Dao M
 
 Au même moment, à l'extérieur des Terres Déchues, une bête gigantesque et ovoïde, de la taille d'une planète de culture, s'approchait lentement. Le vieil homme assis sur son dos, marqué du tatouage Yin et Yang, avait les yeux clos, mais il les ouvrit soudainement pour scruter l'horizon avec une lueur étrange.
 
-« C'est... » Avant qu'il ne puisse finir sa réflexion, le serpent aux yeux de lune sous lui trembla soudainement et fixa le lointain. Des éclats de peur et d'excitation brillèrent dans ses yeux alors qu'elle ouvrait la gueule pour pousser un rugissement fracassant.
+« C'est... » Avant qu'il ne puisse finir sa réflexion, le serpent aux yeux de lune sous lui trembla soudainement et fixa le lointain. Des éclats de peur et d'excitation brillèrent dans ses yeux alors qu'il ouvrait la gueule pour pousser un rugissement fracassant.
 
 Le vieil homme au tatouage Yin et Yang hésita un instant avant de changer de direction, guidant le serpent aux yeux de lune vers la localisation de la Tombe de l'Ordre Antique.
 
@@ -54,13 +54,13 @@ Les yeux du Maître du Dao Rêve Bleu se rétrécirent tandis qu'il levait le re
 
 Il y avait aussi le vieil homme assis sur le lézard; ses yeux brillaient d'une lueur singulière. Sa bouche, scellée par une aiguille, tressaillit, puis il salua le Vieux Oiseau Vermillon sans prononcer un mot. Sa main droite frappa le lézard qui s'élança dans un sifflement.
 
-Le Grand Maître Yun Luo et le Maître Simo échangèrent un regard. Elle joignit les mains, prête à parler, quand soudain de la fumée s'échappa de l'encens céleste.
+La Grande Maîtresse Yun Luo et le Maître Simo échangèrent un regard. Elle joignit les mains, prête à parler, quand soudain de la fumée s'échappa de l'encens céleste.
 
 « L'encens céleste s'est enflammé! »
 « Il a allumé le dernier bâton d'encens si vite! »
 « Je me demande combien de respirations ce troisième Jeune Empereur pourra tenir. Pourra-t-il surpasser le deuxième? »
 
-Les regards des cultivateurs environnants convergèrent vers l'encens. Même la Grand-Maîtresse Yun Luo, qui s'apprêtait à partir, se tourna vers lui. L'encens céleste commença à brûler, dégageant une fumée monstrueuse. Telle une torche projetant des ondes de chaleur, il se consumait rapidement.
+Les regards des cultivateurs environnants convergèrent vers l'encens. Même la Grande Maîtresse Yun Luo, qui s'apprêtait à partir, se tourna vers lui. L'encens céleste commença à brûler, dégageant une fumée monstrueuse. Telle une torche projetant des ondes de chaleur, il se consumait rapidement.
 
 Une respiration, deux respirations, trois respirations... Dans l'Épreuve Céleste, Wang Lin était assis au creux de la paume tandis que le feu aux neuf couleurs brûlait autour de lui. De loin, on aurait dit qu'une boule de feu reposait dans la main géante.
 
@@ -80,9 +80,9 @@ Des grondements tonitruants résonnèrent dans la paume géante. Quatre respirat
 
 Sur la Planète de l'Empereur Suprême, les cultivateurs fixaient le corps de Wang Lin. À cet instant, il était entouré d'une brume formée par sa propre sueur. À la cinquième respiration, la brume se dissipa. L'encens céleste marqua une pause alors qu'il avait déjà brûlé la moitié de sa longueur.
 
-Après avoir tenu cinq respirations, Wang Lin rugit immédiatement: « Le Clan de l'Oiseau Vermillon réside dans le Système Stellaire Antique, alors pourquoi le Clan de l'Hirondelle de Feu existe-t-il? »
+Après avoir tenu cinq respirations, Wang Lin rugit immédiatement: « Le Clan de l'Oiseau Vermillon réside dans le Système Stellaire Antique, alors pourquoi le Clan des Moineaux de Feu existe-t-il? »
 
-« Le troisième Oiseau Vermillon traître a été créé par l'ennemi. Il a volé mes trésors et s'est enfui pour fonder le Clan de l'Hirondelle de Feu. Étant scellé ici, je n'ai pu faire le ménage! De plus, l'existence du Clan de l'Hirondelle de Feu me sert; » répondit simplement la voix bourdonnante avant de retomber dans le silence.
+« Le troisième Oiseau Vermillon traître a été créé par l'ennemi. Il a volé mes trésors et s'est enfui pour fonder le Clan des Moineaux de Feu. Étant scellé ici, je n'ai pu faire le ménage! De plus, l'existence du Clan des Moineaux de Feu me sert; » répondit simplement la voix bourdonnante avant de retomber dans le silence.
 
 Le feu autour de Wang Lin redoubla d'intensité. Le brasier de l'Ancêtre se transforma en une tempête de flammes. Emporté par l'orage, le feu aux neuf couleurs entourant Wang Lin s'effondra. Une douleur atroce le submergea alors qu'il recrachait une bouffée d'énergie de son âme. Son visage devint instantanément blême comme la mort.
 

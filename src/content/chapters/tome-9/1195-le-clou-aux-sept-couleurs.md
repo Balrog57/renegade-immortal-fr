@@ -34,7 +34,7 @@ Il repensa au moment où l'âme de bataille de l'Omniscient était apparue et re
 
 Après avoir réfléchi un instant, une lueur de froideur passa dans les yeux de Wang Lin.
 
-« Cependant, Maître Pin Cendré est également gravement blessé. Son corps s'est effondré sous le Cachet de l'Esprit de la Guerre et seule son âme originelle a survécu. Il a aussi été gravement blessé par l'épée d'acier et a consommé une grande partie de ses trésors. Je dois me rétablir le plus vite possible; la prochaine fois que nous nous croiserons, il mourra sans aucun doute! »
+« Cependant, Maître Pin Cendré est également gravement blessé. Son corps s'est effondré sous l'Empreinte de l'Esprit Guerrier et seule son âme originelle a survécu. Il a aussi été gravement blessé par l'épée d'acier et a consommé une grande partie de ses trésors. Je dois me rétablir le plus vite possible; la prochaine fois que nous nous croiserons, il mourra sans aucun doute! »
 
 « Il y a aussi cette vieille femme en vert qui était piégée par la restriction. Même si elle maîtrise la Restriction de la Vie et de la Mort, avec ma Restriction de l'Annihilation mêlée à la sienne, il ne lui sera pas facile de s'en sortir. Même si elle parvient à briser la barrière par la force, elle en sortira gravement blessée! »
 

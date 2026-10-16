@@ -24,7 +24,7 @@ Assis au fond de la cavité, Wang Lin ferma lentement les yeux tandis que ses ma
 
 Cette lueur était celle de son Sens Divin. Après s'être concentrée un instant sur la tête de Wang Lin, elle s'élança vers le ciel à une vitesse inimaginable.
 
-Elle traversa la grotte et la montagne pour percer les cieux. Aucun observateur extérieur ne pouvait voir ni ressentir cette lumière. Les sceaux utilisés par Wang Lin dissimulaient toutes les fluctuations du Sens Divin, protégeant ainsi tous les Exaltés Célestes lorsqu'ils pénétraient dans l'Épreuve Céleste.
+Elle traversa la grotte et la montagne pour percer les cieux. Aucun observateur extérieur ne pouvait voir ni ressentir cette lumière. Les sceaux utilisés par Wang Lin dissimulaient toutes les fluctuations du Sens Divin, protégeant ainsi tous les Exaltés Empyréens lorsqu'ils pénétraient dans l'Épreuve Céleste.
 
 On racontait que ces sceaux avaient été transmis par l'Ancêtre Céleste!
 
@@ -40,13 +40,13 @@ Au centre du continent trônait un palais gigantesque. Cette structure dégageai
 
 Alors que Wang Lin arrivait et commençait son observation, de nombreux Sens Divins émanant des environs du palais balayèrent sa conscience.
 
-Chacun de ces sens portait la pression d'un Exalté Céleste, et ils étaient près de deux cents.
+Chacun de ces sens portait la pression d'un Exalté Empyréen, et ils étaient près de deux cents.
 
 « Wang Lin? »
 
-« L'Exalté Céleste aux cheveux blancs! »
+« L'Exalté Empyréen aux cheveux blancs! »
 
-« C'est lui! » Parmi ces présences, se trouvaient des Exaltés Célestes qui avaient combattu Wang Lin au cours des cinquante dernières années. En le voyant, ils le reconnurent instantanément.
+« C'est lui! » Parmi ces présences, se trouvaient des Exaltés Empyréens qui avaient combattu Wang Lin au cours des cinquante dernières années. En le voyant, ils le reconnurent instantanément.
 
 L'expression de Wang Lin resta imperturbable. En examinant les alentours, il constata qu'il se trouvait près d'une ancienne matrice de transfert. Cette matrice était extrêmement complexe et, à première vue, Wang Lin sentit que son Sens Divin risquait d'être aspiré par elle.
 
@@ -66,51 +66,51 @@ En s'approchant davantage, il aperçut près de deux cents cultivateurs gravitan
 
 Wang Lin répondit par le même geste. Il se tint devant le palais et contempla ce colosse, avec l'illusion d'être minuscule face à lui.
 
-« L'Épreuve Céleste est un lieu très singulier. Peu importe où vous vous trouvez, vous pouvez vous y rendre avec votre âme originelle. Cet endroit est privilégié par les Exaltés Célestes car, même séparées par de vastes distances, deux personnes peuvent s'y retrouver. »
+« L'Épreuve Céleste est un lieu très singulier. Peu importe où vous vous trouvez, vous pouvez vous y rendre avec votre âme originelle. Cet endroit est privilégié par les Exaltés Empyréens car, même séparées par de vastes distances, deux personnes peuvent s'y retrouver. »
 
 « Et grâce à cette particularité, l'Épreuve Céleste est le lieu de rencontre idéal pour eux. » Les informations recueillies par Wang Lin au cours des cinquante dernières années défilèrent dans son esprit.
 
-Alors qu'il méditait, une lumière dorée et éclatante jaillit du septième palais flottant. Cette lueur enveloppa la zone, forçant instantanément tous les Exaltés Célestes à lever les yeux.
+Alors qu'il méditait, une lumière dorée et éclatante jaillit du septième palais flottant. Cette lueur enveloppa la zone, forçant instantanément tous les Exaltés Empyréens à lever les yeux.
 
 Wang Lin leva également la tête lorsqu'une silhouette noire s'échappa du septième palais. Il s'agissait d'un homme d'âge moyen aux longs cheveux flottants. Il dégageait une aura puissante alors qu'il bondissait du septième au huitième palais.
 
-« L'Exalté Céleste Zhu Lin a franchi le septième niveau! »
+« L'Exalté Empyréen Zhu Lin a franchi le septième niveau! »
 
 « Réussir à franchir le septième niveau signifie qu'il a fusionné au moins soixante-trois sorts. Il n'en était pas capable auparavant! »
 
-« Il suit le Grand Exalté Céleste Jiu Di depuis mille ans. Il a manifestement beaucoup progressé... »
+« Il suit le Grand Empyréen Jiu Di depuis mille ans. Il a manifestement beaucoup progressé... »
 
-« Le huitième niveau n'est rien, mais le neuvième étage est le plus crucial. Si quelqu'un parvient à franchir le neuvième niveau, alors chaque Grand Exalté Céleste lui prêtera attention. »
+« Le huitième niveau n'est rien, mais le neuvième étage est le plus crucial. Si quelqu'un parvient à franchir le neuvième niveau, alors chaque Grand Empyréen lui prêtera attention. »
 
-« Le neuvième niveau... est bien trop difficile! Ceux qui parviennent à le franchir sont infiniment proches d'un Exalté Céleste Ascendant. Un seul pas de plus et ils deviendront le 49e Ascendant de mon clan céleste! »
+« Le neuvième niveau... est bien trop difficile! Ceux qui parviennent à le franchir sont infiniment proches du stade d'Ascendant Empyréen. Un seul pas de plus et ils deviendront le 49e Ascendant de mon clan céleste! »
 
 « Même le plus puissant des Ascendants, Ming Dao, s'est arrêté au seizième niveau sans pouvoir aller plus loin. »
 
-« La rumeur prétend que si quelqu'un franchit le dix-neuvième niveau, cela signifie qu'il possède une puissance capable de faire vaciller les Grands Exaltés Célestes eux-mêmes! »
+« La rumeur prétend que si quelqu'un franchit le dix-neuvième niveau, cela signifie qu'il possède une puissance capable de faire vaciller les Grands Empyréens eux-mêmes! »
 
-Tandis que la lumière dorée brillait, les quelque deux cents Exaltés Célestés échangeaient frénétiquement des messages par Sens Divin.
+Tandis que la lumière dorée brillait, les quelque deux cents Exaltés Empyréens échangeaient frénétiquement des messages par Sens Divin.
 
-Alors qu'ils discutaient de l'exploit de Zhu Lin, un rugissement retentit depuis le huitième palais. L'Exalté Céleste Zhu Lin fut expulsé du huitième palais et tomba jusqu'à atterrir au sol, près du premier palais.
+Alors qu'ils discutaient de l'exploit de Zhu Lin, un rugissement retentit depuis le huitième palais. L'Exalté Empyréen Zhu Lin fut expulsé du huitième palais et tomba jusqu'à atterrir au sol, près du premier palais.
 
 Dès son impact, les échanges de Sens Divin cessèrent et tous les regards convergèrent vers lui.
 
-L'Exalté Céleste Zhu Lin affichait une expression sombre. Sans même regarder autour de lui, il passa devant Wang Lin, chercha un endroit au loin et s'assit.
+L'Exalté Empyréen Zhu Lin affichait une expression sombre. Sans même regarder autour de lui, il passa devant Wang Lin, chercha un endroit au loin et s'assit.
 
 Par la suite, Wang Lin vit des lueurs dorées jaillir des divers palais, les occupants étant constamment expulsés. Le niveau le plus élevé d'où l'on était éjecté était le huitième palais, comme pour Zhu Lin, tandis que les plus bas étaient les deuxième ou troisième niveaux.
 
 Wang Lin ne se précipita pas pour tenter sa chance; il resta assis pour observer. Durant trois jours, de nombreux cultivateurs passèrent, mais la plupart choisirent de rester sans repartir.
 
-Au cours de ces trois jours, l'Exalté Céleste Zhu Lin tenta à nouveau d'affronter le huitième palais, mais échoua encore une fois.
+Au cours de ces trois jours, l'Exalté Empyréen Zhu Lin tenta à nouveau d'affronter le huitième palais, mais échoua encore une fois.
 
 Le quatrième jour, les yeux de Wang Lin s'animèrent. Il se leva et marcha vers le premier palais. Ses actions n'attirèrent guère l'attention, car le premier palais était jugé trop rudimentaire pour les cultivateurs présents.
 
-Seuls les Exaltés Célestes qui avaient combattu Wang Lin le regardèrent approcher du premier palais.
+Seuls les Exaltés Empyréens qui avaient combattu Wang Lin le regardèrent approcher du premier palais.
 
-« Puisque l'Exalté Céleste aux cheveux blancs se rend au premier palais, ce doit être sa première fois ici. Je me demande combien de niveaux il parviendra à franchir. »
+« Puisque l'Exalté Empyréen aux cheveux blancs se rend au premier palais, ce doit être sa première fois ici. Je me demande combien de niveaux il parviendra à franchir. »
 
 « Cet homme est très étrange. Sa culture est simple, mais sa puissance de combat est stupéfiante. Je ne pourrais pas l'affronter. Voyons jusqu'où il peut aller. »
 
-« Wang Lin... En quelques décennies, il est devenu une figure célèbre dans tout le Continent Sud. On dit que le Grand Exalté Céleste Dao Yi a tenté de le recruter, mais qu'il a décliné l'offre. » Une douzaine de paires d'yeux suivirent Wang Lin alors qu'il disparaissait à l'intérieur du palais.
+« Wang Lin... En quelques décennies, il est devenu une figure célèbre dans tout le Continent Sud. On dit que le Grand Empyréen Dao Yi a tenté de le recruter, mais qu'il a décliné l'offre. » Une douzaine de paires d'yeux suivirent Wang Lin alors qu'il disparaissait à l'intérieur du palais.
 
 Dès qu'il pénétra dans le premier palais, il eut l'impression que le monde entier avait changé. Il découvrit que l'intérieur même du palais était un système stellaire!
 

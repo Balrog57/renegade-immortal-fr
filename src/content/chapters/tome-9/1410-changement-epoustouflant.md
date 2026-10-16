@@ -64,7 +64,7 @@ Les trois châtiments couvraient le ciel de l'Essai Humain. À l'extérieur, le 
 
 Maître Simo était le plus ravi de la situation. Il afficha un sourire venimeux en fixant le premier bâton d'encens, pensant: « Bien que j'ignore ce qui se passe exactement, il semble que ce petit bâtard aura du mal à échapper à la mort! C'est regrettable que je ne puisse percer son secret, mais c'est une excellente chose qu'il périsse! »
 
-La Grand Maître Yun Luo se détendit également. Les blessures sur ses doigts avaient guéri. Elle observa le premier bâton d'encens et songea: « Il semble qu'il ne soit pas la personne prédite par l'Ancêtre... »
+La Grande Maîtresse Yun Luo se détendit également. Les blessures sur ses doigts avaient guéri. Elle observa le premier bâton d'encens et songea: « Il semble qu'il ne soit pas la personne prédite par l'Ancêtre... »
 
 « Père... » Li Qianmei mordilla sa lèvre inférieure en se tournant vers son géniteur. Ses yeux étaient empreints de confusion, mais aussi de douleur et de supplication.
 
@@ -130,4 +130,4 @@ Cette scène soudaine provoqua un tumulte indescriptible. Même les yeux du viei
 
 Maître Simo fut figé un instant, le choc envahissant son regard.
 
-L'expression de la Grand Maître Yun Luo changea radicalement. Ignorant les blessures de ses doigts, elle tenta une nouvelle divination.
+L'expression de la Grande Maîtresse Yun Luo changea radicalement. Ignorant les blessures de ses doigts, elle tenta une nouvelle divination.

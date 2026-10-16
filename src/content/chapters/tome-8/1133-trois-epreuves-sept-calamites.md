@@ -34,7 +34,7 @@ Lorsqu'un sort puissant est en cours d'incantation, au moment même où sa puiss
 
 La pression de la descente des fragments semblait égaler la puissance des cieux. Un fracas tonitruant retentit et d'innombrables pans du corps du dragon de sang s'effondrèrent.
 
-Les esprits des huit rois de la Secte des Cadavres étaient liés. Leurs mains formèrent promptement des sceaux et huit rayons de lumière convergèrent. Tandis que l'énergie glaciale s'accumulait, la Troisième Formation Corporelle qui avait gelé le dragon plus tôt réapparut!
+Les esprits des huit rois de la Secte des Cadavres étaient liés. Leurs mains formèrent promptement des sceaux et huit rayons de lumière convergèrent. Tandis que l'énergie glaciale s'accumulait, la Troisième Formation de Cadavres qui avait gelé le dragon plus tôt réapparut!
 
 Une sphère de glace noire de mille pieds de large surgit, contenant les huit guerriers. En un clin d'œil, d'innombrables arêtes tranchantes apparurent sur la boule de glace, laquelle chargea le dragon de sang!
 
@@ -60,7 +60,7 @@ Il percevait naturellement Maître Yan Leizi et l'homme en noir. En voyant ce de
 
 Pourtant, l'homme âgé fronçait les sourcils comme absorbé par ses pensées; il ne daignait même pas regarder le dragon.
 
-« Il a pu forcer le Frère Aîné Qing Shui à reculer, il a ouvert la barrière spatiale d'un seul sort, son corps est imprégné d'énergie d'origine et il peut toucher à toutes les lois. Cet homme doit être un cultivateur de troisième étape; il n'y a pas d'autre possibilité! »
+« Il a pu forcer le Senior Frère Qing Shui à reculer, il a ouvert la barrière spatiale d'un seul sort, son corps est imprégné d'énergie d'origine et il peut toucher à toutes les lois. Cet homme doit être un cultivateur de troisième étape; il n'y a pas d'autre possibilité! »
 
 Les yeux du dragon de sang étaient redevenus normaux, mais sa férocité n'en était que plus intense. Les sept pupilles restantes s'agrandirent à nouveau pour envahir son regard!
 
@@ -78,7 +78,7 @@ En un éclair, les deux cercueils éclatèrent et deux vieillards en sortirent.
 
 Alors qu'ils se repliaient, leurs mains formèrent des sceaux. L'un des vieillards hurla: « Deuxième Formation de Cadavres! » À cet instant, leurs mouvements s'accélérèrent pour s'aligner verticalement. Une énergie glaciale les entoura et, en un clin d'œil, une glace noire apparut. Cette glace était si sombre qu'elle rendait leur présence invisible.
 
-Pourtéanmoins, en un instant, la glace se mua en une épée de plus de mille pieds de long!
+Pourtant, en un instant, la glace se mua en une épée de plus de mille pieds de long!
 
 Dès l'apparition de l'épée, une pression écrasante et une sensation de tranchant absolu se firent sentir. Elle chargea le dragon de sang avec une énergie d'épée dévastatrice!
 
@@ -114,6 +114,6 @@ Une blessure immense, longue de dix mille pieds, s'étirait de la tête du drago
 
 Le dragon de sang rugit et ses pupilles se déployèrent soudainement une fois de plus. Lorsque l'obscurité revint, Wang Lin accéléra et s'élança désespérément vers lui. Des craquements résonnèrent dans son propre corps et son bras gauche explosa en cendres. Pourtant, il ne ralentit nullement, l'anxiété et une soif impérieuse brillant dans ses yeux!
 
-Il ne s'attendait pas à trouver ici le sang primordial de l'ancien dieu!
+Il ne s'attendait pas à trouver ici le sang de cœur de l'ancien dieu!
 
 « Avec cela, mon corps original pourra franchir la première épreuve des Trois Épreuves, Sept Calamités!!! »

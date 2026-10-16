@@ -124,7 +124,7 @@ L'ancêtre du Clan de l'Immortel Élu regarda ses membres une dernière fois ava
 
 ***
 
-Au sein du vide sombre de la Bête du Néant se trouvait une formation gigantesque composée de sang rouge foncé. Tandis qu'elle flottait dans le néant, des rafales de gaz noir s'en échappaient pour pénétrer dans le cercueil de cristal situé au centre.
+Au sein du vide sombre de la Bête des Limbes se trouvait une formation gigantesque composée de sang rouge foncé. Tandis qu'elle flottait dans le néant, des rafales de gaz noir s'en échappaient pour pénétrer dans le cercueil de cristal situé au centre.
 
 Un corps reposait dans le cercueil. C'était celui d'un homme très beau, paraissant âgé d'une vingtaine d'années. Il semblait dormir paisiblement. Le gaz noir issu de la formation pénétrait le cercueil et était absorbé par l'homme.
 

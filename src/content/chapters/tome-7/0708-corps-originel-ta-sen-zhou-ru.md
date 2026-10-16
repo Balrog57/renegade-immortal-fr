@@ -70,7 +70,7 @@ Une froideur empreinte d'une intention meurtrière retentit soudainement.
 
 Simultanément, cette voix percuta l'oreille de Zi Xin, lui faisant pâlir le visage. Les deux esclaves sanguins tremblèrent et crachèrent de larges bouffées de sang.
 
-Horrifiée, Zi Xin n'eut pas le temps de comprendre pourquoi cette voix lui semblait si familière. Elle s'inclina respectueusement et dit: « Cette junior ne savait pas que cet endroit était le lieu de culture en isolement de l'Aîné. Je vous prie d'excuser mon intrusion. Je m'en vais immédiatement. »
+Horrifiée, Zi Xin n'eut pas le temps de comprendre pourquoi cette voix lui semblait si familière. Elle s'inclina respectueusement et dit: « Cette Junior ne savait pas que cet endroit était le lieu de culture en isolement de Senior. Je vous prie d'excuser mon intrusion. Je m'en vais immédiatement. »
 
 Le cuir chevelu engourdi par la peur, elle se retira sans hésiter, suivie des deux esclaves. Une fois dans l'espace, la terreur quitta ses yeux. Après avoir jeté un regard empreint de sens sur la planète, elle s'éloigna rapidement.
 
@@ -80,7 +80,7 @@ La force était si rapide qu'elle parvint à les rattraper. Paniquée, Zi Xin cr
 
 Sans hésiter, les deux esclaves chargèrent vers la source du choc et firent exploser leurs âmes originelles!
 
-Profitant de ce chaos, Zi Xin sortit un jade rouge sang de sa sacoche, un présent de l'Ancêtre Sanguin permettant de se téléporter instantanément sur la Planète du Sang. Cependant, son activation nécessitait un certain temps.
+Profitant de ce chaos, Zi Xin sortit un jade rouge sang de sa sacoche, un présent de l'Ancêtre Sanguin utilisable une seule fois pour se téléporter de n'importe où vers la Planète du Sang. Cependant, son activation nécessitait un certain temps.
 
 La planète disparut, transformée en une poussière infinie dispersée dans les étoiles. Au centre de ce chaos, un homme se tenait debout. Il avait une chevelure rouge qui flottait sans vent et des yeux aussi froids que la glace. Sa peau était rugueuse, parcourue de veines saillantes ressemblant à des runes.
 
@@ -152,4 +152,4 @@ Le temps passa, la consommation de jade s'intensifia. Six mois supplémentaires 
 
 Wang Lin se leva. L'expression calme, il fit un pas vers les cieux.
 
-« Stade intermédiaire d'Ascendant! »
+« Stade avancé d'Ascendant! »

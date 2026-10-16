@@ -12,13 +12,13 @@ Wang Lin avait cultivé en silence durant une année entière, imprégné de l'a
 
 Son véritable corps d'essence du tonnerre, fusionné avec des essences spéciales, avait été achevé au sein de la Secte Dong Lin. Il n'aurait plus besoin de comprendre d'autres essences spéciales; il en possédait suffisamment. Quant à ce corps d'essence des cinq éléments, son essence de bois était proche de la perfection. Seule l'essence de métal restante n'était encore qu'au stade de la petite perfection. Wang Lin comprit que s'il parvenait à obtenir un autre fragment d'épée, l'essence de métal atteindrait sa plénitude.
 
-Une fois son essence de métal parfaite, même sans former de véritable corps d'essence, ses cinq essences élémentaires pourraient fusionner en une seule. À ce moment-là, le niveau de culture de Wang Lin passerait du stade moyen de la Tribulation du Vide au stade tardif de la Tribulation du Vide, et il deviendrait un Grand Exalté.
+Une fois son essence de métal parfaite, même sans former de véritable corps d'essence, ses cinq essences élémentaires pourraient fusionner en une seule. À ce moment-là, le niveau de culture de Wang Lin passerait du stade moyen de la Tribulation du Vide au stade tardif de la Tribulation du Vide, et il deviendrait un Exalté Doré.
 
 Enfin, il y avait les essences éthérées. Après le vrai et le faux, la vie et la mort, et le karma, Wang Lin avait compris la quatrième essence éthérée à la Secte Dong Lin: la réincarnation.
 
 Il n'en avait saisi qu'un infime fragment. C'était comme s'il venait d'ouvrir la porte pour en obtenir la graine. Il lui faudrait la méditer encore et encore pour atteindre la perfection.
 
-« Atteindre le rang de Grand Exalté ne sera pas difficile... le plus ardu sera les essences éthérées... La cité impériale est la demeure de l'Ancêtre Céleste. Peut-être pourrai-je y trouver l'aura de l'épée de l'Ancêtre Céleste... » Wang Lin fit face au vent et à la neige en avançant.
+« Atteindre le rang d'Exalté Doré ne sera pas difficile... le plus ardu sera les essences éthérées... La cité impériale est la demeure de l'Ancêtre Céleste. Peut-être pourrai-je y trouver l'aura de l'épée de l'Ancêtre Céleste... » Wang Lin fit face au vent et à la neige en avançant.
 
 Se rendre de la Secte Yang Pourpre du Continent Oriental à la cité impériale du Continent Central représentait un voyage extrêmement long. Pour des cultivateurs ordinaires, même en volant à pleine vitesse, cela prendrait une éternité, à moins d'utiliser des formations de téléportation.
 
@@ -70,7 +70,7 @@ En outre, il existait une puissance transcendante capable de rivaliser avec le p
 
 Le Mont Empereur!
 
-Une montagne, un homme, un Grand Empyréen Jiu Dai; ensemble, ils faisaient en sorte que la Cité Ancestrale entière, le palais et des millions de montagnes semblent étouffer sous leur présence.
+Une montagne, un homme, un Grand Empyréen Jiu Di; ensemble, ils faisaient en sorte que la Cité Ancestrale entière, le palais et des millions de montagnes semblent étouffer sous leur présence.
 
 Concernant la mystérieuse Secte du Dao, beaucoup supposaient que sa raison d'être était de contenir le Mont Empereur, qui semblait lui-même opprimer le pouvoir impérial!
 
@@ -118,6 +118,6 @@ Cependant, cette pression céleste n'eut aucun effet sur Wang Lin. Il n'avait nu
 
 Au milieu du vent et de la neige, de nombreux passants marchaient rapidement. Même s'ils possédaient une certaine culture, aucun d'eux ne volait; ils se contentaient de marcher comme des mortels.
 
-« Même les dragons doivent se terrer dans la Cité Ancestrale. Même les tigres doivent se coucher dans la Cité Ancestrale. Même les puissants Grands Exaltés doivent respecter l'accord... Est-ce donc ainsi que cela fonctionne...? » Une lueur de froideur passa dans les yeux de Wang Lin.
+« Même les dragons doivent se terrer dans la Cité Ancestrale. Même les tigres doivent se coucher dans la Cité Ancestrale. Même les puissants Exaltés Empyréens doivent respecter l'accord... Est-ce donc ainsi que cela fonctionne...? » Une lueur de froideur passa dans les yeux de Wang Lin.
 
 « Cela ne s'applique pas à moi! »

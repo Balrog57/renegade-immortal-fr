@@ -24,9 +24,9 @@ Lorsqu'il avait affronté le premier coup de l'ancêtre de la Secte du Dao Démo
 
 Cependant, la raison pour laquelle ce sort était si puissant résidait dans la qualité exceptionnelle des Veines de Sorts que Wang Lin avait formées. Mais plus la qualité est élevée, plus il est difficile de créer de nouvelles Veines.
 
-L'âme originelle du maître de la secte de la Secte du Dao Démoniaque avait ouvert la quatrième et la cinquième Veine de Sort, mais la sixième nécessitait neuf Exaltés Dorés!
+L'âme originelle du Maître de la Secte du Dao Démoniaque avait ouvert la quatrième et la cinquième Veine de Sort, mais la sixième nécessitait neuf Exaltés Dorés!
 
-« Créer de nouvelles Veines de Sort de cette manière est vraiment... trop difficile. La sixième nécessite neuf Exaltés Dorés, la septième requiert neuf Exaltés Célestes. Se pourrait-il que la huitième exige neuf Exaltés Ascendants...? Si tel est le cas, la neuvième nécessitera-t-elle neuf Grands Empereurs Célestes...? Peut-être que la neuvième n'exigera qu'un seul Grand Empereur Céleste... » Wang Lin sourit amèrement.
+« Créer de nouvelles Veines de Sort de cette manière est vraiment... trop difficile. La sixième nécessite neuf Exaltés Dorés, la septième requiert neuf Exaltés Empyréens. Se pourrait-il que la huitième exige neuf Ascendants Empyréens...? Si tel est le cas, la neuvième nécessitera-t-elle neuf Grands Empyréens...? Peut-être que la neuvième n'exigera qu'un seul Grand Empyréen... » Wang Lin sourit amèrement.
 
 « L'Art du Sort Rapide doit être cultivé. Il est extrêmement puissant et me permet d'utiliser toute ma force!
 
@@ -34,21 +34,21 @@ Mon véritable niveau de culture n'est qu'au début du stade Tribulation du Vide
 
 Alors, je pourrai intégrer encore plus de sorts. J'ignore combien j'en serai capable après avoir atteint le milieu du stade Tribulation du Vide!
 
-Outre cela, je dois affronter davantage d'Exaltés Célestes et attirer l'attention des autres Grands Empereurs Célestes... De plus, je dois rechercher des informations sur l'Épreuve Céleste et voir si elle est réellement ce que l'ancêtre de la Secte du Dao Démoniaque avait affirmé. »
+Outre cela, je dois affronter davantage d'Exaltés Empyréens et attirer l'attention des autres Grands Empyréens... De plus, je dois rechercher des informations sur l'Épreuve Empyréenne et voir si elle est réellement ce que l'ancêtre de la Secte du Dao Démoniaque avait affirmé. »
 
 Les yeux de Wang Lin s'illuminèrent et il se leva après ces trois années de méditation.
 
-« Je dois me rendre à l'Épreuve Céleste pour voir combien de niveaux je peux franchir avec mon niveau de culture actuel! »
+« Je dois me rendre à l'Épreuve Empyréenne pour voir combien de niveaux je peux franchir avec mon niveau de culture actuel! »
 
 Le corps de Wang Lin apparut dans le désert en un éclair. D'un revers de manche, il fit apparaître un dragon marin sous ses pieds. La créature laissa échapper un rugissement empreint de respect.
 
 L'expression de Wang Lin était calme alors qu'il montait sur la tête du dragon. Ce dernier s'élança et disparut sans laisser de trace.
 
-« Le continent Terre-Meng possède deux sectes: la Secte de la Terre et la Secte Terre-Meng! Toutes deux font partie des neuf sectes et treize factions, mais elles ne possèdent que des Exaltés Dorés, aucun Exalté Céleste! » Wang Lin, assis sur le dragon, consultait les informations sur le continent Terre-Meng via la carapace de tortue.
+« Le continent Terre-Meng possède deux sectes: la Secte de la Terre et la Secte Terre-Meng! Toutes deux font partie des neuf sectes et treize factions, mais elles ne possèdent que des Exaltés Dorés, aucun Exalté Empyréen! » Wang Lin, assis sur le dragon, consultait les informations sur le continent Terre-Meng via la carapace de tortue.
 
 « Bien que j'aie besoin des âmes originelles des Exaltés Dorés, ces deux sectes n'ont aucune querelle avec moi, alors peu importe! » Les yeux de Wang Lin brillèrent et il envoya un message par Sens Divin. Le dragon marin sous lui vola vers le Continent Céleste, relié au continent Terre-Meng.
 
-La tortue indiquait vaguement que la Secte Céleste du Continent Céleste comptait un Exalté Céleste!
+La tortue indiquait vaguement que la Secte Céleste du Continent Céleste comptait un Exalté Empyréen!
 
 « Cependant, bien que la carte sur la carapace de tortue semble vaste, ce n'est qu'une partie de l'ensemble. Je dois me rendre auprès des deux sectes du continent Terre-Meng pour obtenir leurs tablettes de jade cartographiques. »
 
@@ -70,7 +70,7 @@ Bien qu'il existât de nombreuses sectes sur le continent, seules la Secte de la
 
 À cet instant, dans la tempête où siégeait la Secte de la Terre, le monde était plongé dans le noir. Un immense dragon marin apparut, portant Wang Lin sur sa tête. Dès leur entrée dans la tempête, un vent violent se leva.
 
-Pourté bien que ce vent fût anormalement puissant, lorsqu'il fracha Wang Lin, il ne parvint même pas à faire bouger un seul de ses cheveux. C'était comme si le corps de Wang Lin était une illusion plutôt qu'une réalité physique.
+Pourtant, bien que ce vent fût anormalement puissant, lorsqu'il frappa Wang Lin, il ne parvint même pas à faire bouger un seul de ses cheveux. C'était comme si le corps de Wang Lin était une illusion plutôt qu'une réalité physique.
 
 Quant au dragon marin, il ignorait superbement les vents. Il affichait un regard froid, scrutant les profondeurs de la tempête.
 

@@ -1,6 +1,6 @@
 ---
 n: 1421
-title: "L'Adoration des Flammes de l'Encens!"
+title: "L'Adoration des Flammes de Joss!"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: "Chapter 1421 - Joss Flame Worship !"
@@ -32,7 +32,7 @@ En un éclair, ces dragons de feu jaillirent des corps des cultivateurs. Un tota
 
 De loin, la scène était absolument saisissante. À cet instant, il semblait que Wang Lin ne combattait pas Maître Simo seul; il avait rassemblé les émotions de tous les présents pour l'affronter!
 
-Dans le monde de la culture, personne à part Wang Lin ne pouvait accomplir un tel exploit avec le pouvoir du feu. Ni le Oiseau Vermillon de quatrième génération, ni même celui de deuxième génération!
+Dans le monde de la culture, personne à part Wang Lin ne pouvait accomplir un tel exploit avec le pouvoir du feu. Ni l'Oiseau Vermillon de quatrième génération, ni même celui de deuxième génération!
 
 Bien que leur Feu Éthéré fût puissant, il avait ses limites: ils pouvaient l'émettre, mais pas l'absorber. En revanche, le Feu Éthéré de Wang Lin possédait la force magnétique de la Perle Défiant le Ciel. Après avoir absorbé le feu environnant, le monde trembla. Wang Lin agita ses manches et les innombrables dragons de Feu Éthéré chargèrent Maître Simo.
 
@@ -66,19 +66,19 @@ Une lueur de folie apparut dans les yeux de Maître Simo. Il cessa de reculer et
 
 Le monde s'obscurcit et une gigantesque faille spatiale se déchira sous l'effet de Maître Simo. Cette déchirure était immense, et tous les cultivateurs alentour purent voir qu'un autre monde semblait s'y cacher!
 
-D'innombrables planètes de culture se trouvaient dans la faille, peuplées d'une multitude de gens agenouillés. Des quantités colossales de Flammes de l'Encens s'en échappaient alors qu'ils pratiquaient leur adoration.
+D'innombrables planètes de culture se trouvaient dans la faille, peuplées d'une multitude de gens agenouillés. Des quantités colossales de Flammes de Joss s'en échappaient alors qu'ils pratiquaient leur adoration.
 
-« Ouvrez le Domaine des Flammes de l'Encens de ce vieil homme! Âmes des disciples, apparaissez! » Maître Simo agita ses manches et les êtres innombrables sur les planètes entonnèrent un chant. Les voix fusionnèrent en une sorte de sortilège qui jaillit soudainement de la faille.
+« Ouvrez le Domaine des Flammes de Joss de ce vieil homme! Âmes des disciples, apparaissez! » Maître Simo agita ses manches et les êtres innombrables sur les planètes entonnèrent un chant. Les voix fusionnèrent en une sorte de sortilège qui jaillit soudainement de la faille.
 
 Dès que ce son s'échappa, des illusions d'âmes apparurent autour de Maître Simo. Elles surgirent par masses, remplissant le monde en un clin d'œil!
 
 À première vue, ces âmes étaient infinies et leur nombre terrifiant; il était impossible de les compter rapidement! Et d'autres ne faisaient que commencer à apparaître!
 
-Les yeux de ces âmes étaient emplis de ferveur et dégageaient des Flammes de l'Encens!
+Les yeux de ces âmes étaient emplis de ferveur et dégageaient des Flammes de Joss!
 
-« Le Sort des Flammes de l'Encens!!! Le sort unique aux cultivateurs du troisième niveau!! »
+« Le Sort des Flammes de Joss!!! Le sort unique aux cultivateurs du troisième niveau!! »
 
-« Toute vie sera anéantie par le Sort des Flammes de l'Encens!! »
+« Toute vie sera anéantie par le Sort des Flammes de Joss!! »
 
 Les cultivateurs environnants s'emballèrent et reculèrent, nul n'osant rester à proximité.
 
@@ -86,21 +86,21 @@ Le Vieux Oiseau Vermillon vit ses yeux s'illuminer en fixant Maître Simo, sans 
 
 « Mes disciples, adorez-moi! » rugit Maître Simo, et les innombrables âmes s'inclinèrent toutes devant lui!
 
-À l'unisson de leur révérence, le monde gronda et un vent de Flammes de l'Encens se leva. Ce vent était violet et balaya Maître Simo. Le Feu Éthéré qui l'entourait faiblit et commença à s'éteindre!
+À l'unisson de leur révérence, le monde gronda et un vent de Flammes de Joss se leva. Ce vent était violet et balaya Maître Simo. Le Feu Éthéré qui l'entourait faiblit et commença à s'éteindre!
 
 En un instant, tout le Feu Éthéré autour de Maître Simo fut éteint, ne laissant aucune trace! Cependant, les âmes devinrent floues, comme si leur inclinaison avait consumé une trop grande partie de leur essence!
 
 La scène était si stupéfiante que l'expression de Wang Lin changea brusquement!
 
-« C'est donc cela, le troisième niveau!! Un cultivateur du troisième niveau comme Daoïste Water!! Même le Feu Éthéré peut être éteint par les Flammes de l'Encens! Est-il vraiment impossible pour moi de gagner? » Les yeux de Wang Lin étaient empreints d'une profonde frustration. Son regard était aussi vif que la foudre et il rugit intérieurement:
+« C'est donc cela, le troisième niveau!! Un cultivateur du troisième niveau comme Shui Daozi!! Même le Feu Éthéré peut être éteint par les Flammes de Joss! Est-il vraiment impossible pour moi de gagner? » Les yeux de Wang Lin étaient empreints d'une profonde frustration. Son regard était aussi vif que la foudre et il rugit intérieurement:
 
 « Et alors, s'il est au troisième niveau?! »
 
 À cet instant précis, Maître Simo se retourna brusquement. Ses yeux étaient glacials lorsqu'il fixa Wang Lin et hurla:
 
-« Les innombrables disciples de ce vieil homme créent des Flammes de l'Encens pour moi! Sans avoir atteint le troisième niveau, vous ne pourrez supporter la puissance de ces flammes. Puisque vous cherchez la mort, alors je vais vous l'offrir!! Disciples des Flammes de l'Encens, adorez-le une fois encore!! Ce vieil homme veut voir comment vous résisterez à l'adoration de mes infinis disciples! » Maître Simo pointa Wang Lin du doigt.
+« Les innombrables disciples de ce vieil homme créent des Flammes de Joss pour moi! Sans avoir atteint le troisième niveau, vous ne pourrez supporter la puissance de ces flammes. Puisque vous cherchez la mort, alors je vais vous l'offrir!! Disciples des Flammes de Joss, adorez-le une fois encore!! Ce vieil homme veut voir comment vous résisterez à l'adoration de mes infinis disciples! » Maître Simo pointa Wang Lin du doigt.
 
-D'un geste de la main, les âmes sans fin dans le Domaine des Flammes de l'Encens se tournèrent vers Wang Lin. Le nombre de ces disciples était incalculable. Même Wang Lin fut saisi de choc face à cette armée d'âmes!
+D'un geste de la main, les âmes sans fin dans le Domaine des Flammes de Joss se tournèrent vers Wang Lin. Le nombre de ces disciples était incalculable. Même Wang Lin fut saisi de choc face à cette armée d'âmes!
 
 « Adoration de l'Encens! » Les paroles de Maître Simo résonnèrent et les âmes infinies s'inclinèrent toutes devant Wang Lin!
 
@@ -116,7 +116,7 @@ Soudain, Wang Lin aperçut une minuscule silhouette assise au cœur de cette fla
 
 « Sauve-moi... » Au moment où le vent violet frappa, Wang Lin crut entendre une voix ténue émaner de la flamme entre les sourcils de Maître Simo!
 
-« Maître Simo possède donc tant de disciples des Flammes de l'Encens! » L'expression du Vieux Oiseau Vermillon changea et il s'apprêta à charger pour venir en aide au jeune homme.
+« Maître Simo possède donc tant de disciples des Flammes de Joss! » L'expression du Vieux Oiseau Vermillon changea et il s'apprêta à charger pour venir en aide au jeune homme.
 
 Cependant, juste au moment où il faisait un pas, la voix de Wang Lin résonna à travers le monde:
 

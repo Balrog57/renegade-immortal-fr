@@ -50,7 +50,7 @@ Ces centaines de milliers de loups poussèrent des hurlements et se transformèr
 
 Après avoir absorbé la meute, la lune de sang plongea vers le poing de Tuo Sen!
 
-Deux cultivateurs au stade initial du Néant Nirvana utilisaient leurs sorts les plus puissants contre lui!
+Deux cultivateurs au stade initial du Vide du Nirvana utilisaient leurs sorts les plus puissants contre lui!
 
 Le tonnerre gronda. Au moment où la mer pourpre de Ling Dong descendit, la lune de sang s'écrasa. La main droite de Tuo Sen fut forcée de battre en retraite!
 

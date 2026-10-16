@@ -22,7 +22,7 @@ Il vit un dieu ancien agiter son bras en rugissant. Les planètes s'effondraient
 
 Même un trésor de niveau Pseudo-Vide du Nirvana devait se briser sous le poing d'un dieu ancien!
 
-L'Estimé Xuan Bao cracha un sang noir et recula sans hésiter. Cependant, à cet instant même, une énergie d'un froid glacial envahit les étoiles. Simultanément, un éclair rouge jaillit soudainement.
+L'Estimé Xuan Bao cracha du sang et recula sans hésiter. Cependant, à cet instant même, une énergie d'un froid glacial envahit les étoiles. Simultanément, un éclair rouge jaillit soudainement.
 
 Cet éclair de foudre rouge était d'une rapidité extrême et son timing était parfait; il frappa précisément au moment où l'esprit de l'Estimé Xuan Bao vacillait suite à la destruction de son trésor!
 
@@ -48,7 +48,7 @@ Les neuf papillons noirs qui entouraient le Serpent aux yeux de lune disparurent
 
 Les neuf papillons battirent des ailes simultanément, brillant d'une lueur noire. En un éclair, ils fusionnèrent!
 
-Lorsque les neuf rayons de lumière noire s'unirent, un changement inimaginable se produisit. En fusionnant, les neuf papillons émettent une lumière aux quatre couleurs!
+Lorsque les neuf rayons de lumière noire s'unirent, un changement inimaginable se produisit. En fusionnant, les neuf papillons émettaient une lumière aux quatre couleurs!
 
 Alors qu'ils battaient des ailes, une poudre multicolore tomba et créa un vortex aux quatre couleurs autour de l'Estimé Xuan Bao, bloquant immédiatement l'assaut des sept dragons noirs.
 
@@ -58,7 +58,7 @@ Ces gouttes étaient si denses qu'elles s'abattirent avec violence sur l'Estimé
 
 Des bruits de craquement résonnèrent et l'Estimé Xuan Bao afficha un sourire amer. Son identité était un mystère pour les autres, mais rien ne pouvait échapper à Qing Shui!
 
-Il était un être céleste du Royaume Céleste de la Pluie! Il était également le frère cadet de l'Estimé Tian Bao, le créateur du Char de Guerre de l'Extermination Divine!
+Il était un être céleste du Royaume Céleste de la Pluie! Il était également le frère cadet de l'Estimé Tian Bao, le créateur du Char de Guerre Divin!
 
 « Qing Shui, ne me pousse pas à bout! Le Royaume Céleste n'existe plus, ceci est le Système Stellaire de l'Alliance! » hurla l'Estimé Xuan Bao en ouvrant les bras. L'origine céleste qu'il avait gardée scellée durant d'innombrables années fut soudainement libérée!
 
@@ -66,7 +66,7 @@ Une énergie spirituelle céleste infinie envahit la zone, donnant aux environs 
 
 Simultanément, sa main traça un sceau et pointa le papillon multicolore. L'insecte tressaillit brusquement et l'une de ses ailes tomba comme un pétale. En un instant, l'aile se divisa en quatre couleurs différentes pour former quatre vortex.
 
-« Loi du Néant Vide! »
+« Loi du Nirvana Vide! »
 
 Alors que l'Estimé Xuan Bao prononçait ces mots, les quatre vortex formés par l'aile explosèrent, dispersant des tonnes de poudre multicolore.
 

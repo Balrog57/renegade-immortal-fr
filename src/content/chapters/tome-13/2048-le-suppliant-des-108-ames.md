@@ -34,7 +34,7 @@ Il implorait l'existence étrange qu'il sentait dans les cieux de lui accorder l
 
 Presque tous les cultivateurs du clan céleste furent témoins de cette scène qui déchirait le firmament. Ils étaient plongés dans la panique et le désarroi. La terre tremblait de plus belle tandis que les âmes apparues continuaient de rugir; on aurait dit qu'une calamité était sur le point de s'abattre!
 
-« Que se passe-t-il?! » Au sein de la Secte Dao Yi, le Grand Empereur Dao Yi s'élança dans les airs, l'expression sombre. Une trace de panique marquait même son visage. Avec son niveau de culture, il pouvait clairement ressentir ces événements stupéfiants qui secouaient les 72 continents du clan céleste.
+« Que se passe-t-il?! » Au sein de la Secte Dao Yi, le Grand Empyréen Dao Yi s'élança dans les airs, l'expression sombre. Une trace de panique marquait même son visage. Avec son niveau de culture, il pouvait clairement ressentir ces événements stupéfiants qui secouaient les 72 continents du clan céleste.
 
 Il fixa l'arbre imposant émergeant du Continent de la Mer des Montagnes. L'arbre s'agita en poussant des rugissements stridents.
 
@@ -42,9 +42,9 @@ Dao Yi contempla l'arbre géant et eut un haut-le-cœur. « Bon sang, cet arbre 
 
 Simultanément, dans le Continent Nord, Wu Feng observait le géant de glace avec une expression lugubre et une pointe d'horreur.
 
-Dans la Secte Yang Violet, le Grand Empereur Gémeaux s'élança, observa la terre et fronça les sourcils.
+Dans la Secte Yang Violet, le Grand Empyréen Gémeaux s'élança, observa la terre et fronça les sourcils.
 
-Dans la Cité Ancestrale, le Grand Empereur Jiu Di se tenait au sommet du Mont Empereur. Il regarda la terre et son expression resta impassible, mais la contraction de ses pupilles trahissait son choc.
+Dans la Cité Ancestrale, le Grand Empyréen Jiu Di se tenait au sommet du Mont Empereur. Il regarda la terre et son expression resta impassible, mais la contraction de ses pupilles trahissait son choc.
 
 Derrière Jiu Di, Hai Zi ouvrit les yeux. « Il n'y a aucun problème avec le palais souterrain, et Lian Daofei dort toujours. Il continue de supprimer les 72 âmes. »
 
@@ -70,15 +70,15 @@ Il les voyait, mais ils ne pouvaient ressentir son existence. Lorsque Wang Lin s
 
 Il vit Hai Zi... Il vit Lian Daofei, qui s'était transformé en une montagne sous le palais.
 
-Au sommet du Mont Empereur, le visage de Jiu Di devint livide; puis il s'élança dans le ciel et s'inclina. « Le junior Zhou Luojiu salue l'Aîné. Si l'Aîné a la moindre requête, le junior obéira à ses ordres! »
+Au sommet du Mont Empereur, le visage de Jiu Di devint livide; puis il s'élança dans le ciel et s'inclina. « Le junior Zhou Luojiu salue le Senior. Si le Senior a la moindre requête, le junior obéira à ses ordres! »
 
-Depuis qu'il était devenu un Grand Empereur, il ne s'était jamais incliné ainsi devant quiconque. Pourtant, en cet instant, envahi par la peur, il s'inclina respectueusement vers les cieux.
+Depuis qu'il était devenu un Grand Empyréen, il ne s'était jamais incliné ainsi devant quiconque. Pourtant, en cet instant, envahi par la peur, il s'inclina respectueusement vers les cieux.
 
 Il ne reçut aucune réponse jusqu'à ce que les cris des 72 âmes ne se muent en désespoir. Leurs supplications devinrent si intenses qu'elles finirent par se dissiper. La terre cessa de trembler et Hai Zi murmura doucement:
 
 « Cette personne... est partie... »
 
-En entendant cela, Jiu Di resta incliné le temps de brûler trois bâtons d'encens avant de se redresser et de redescendre, le visage pâle.
+En entendant cela, Jiu Di resta incliné le temps de brûler un bâton d'encens avant de se redresser et de redescendre, le visage pâle.
 
 Wang Lin retira son regard du clan céleste. En voyant le Taureau Céleste et Lian Daofei, il eut l'envie de les sauver, mais il en était incapable.
 
@@ -94,7 +94,7 @@ L'Ancien Shi Song Tian fixa les changements dans les 36 pays, stupéfait.
 
 « Ceci... Cela pourrait-il être lié à ce Wang Lin?! Impossible. Une telle scène ne peut décemment pas avoir de lien avec cet homme! »
 
-Dans l'Ancien Ji, le mystérieux Grand Empereur, en pleine méditation isolée, ressentit ce bouleversement avec une profonde amertume.
+Dans l'Ancien Ji, le mystérieux Grand Empyréen, en pleine méditation isolée, ressentit ce bouleversement avec une profonde amertume.
 
 Wang Lin vit tout cela, et son regard finit par se poser sur le Mont Gu Dao. Il observa le sommet de la tour et la silhouette enveloppée de brume.
 
@@ -104,7 +104,7 @@ Au moment où leurs regards se croisèrent, Wang Lin sentit que l'être le plus 
 
 La silhouette dans la brume dit lentement: « Tu as enfin atteint ce niveau... Sur quel pont te trouves-tu désormais? »
 
-Wang Lin médita un instant puis projeta son Sens Divin: « Le second pont. Et vous? » Avec son niveau de culture actuel, il ne pouvait toujours pas distinguer l'apparence du Grand Empereur Gu Dao.
+Wang Lin médita un instant puis projeta son Sens Divin: « Le second pont. Et vous? » Avec son niveau de culture actuel, il ne pouvait toujours pas distinguer l'apparence du Grand Empyréen Gu Dao.
 
 « Il y a fort longtemps, j'ai franchi le cinquième pont et j'ai été stoppé au sixième... »
 
@@ -118,6 +118,6 @@ La silhouette dans la brume murmura: « Je l'ignore... À travers les âges, nul
 
 « Quel genre d'endroit est donc ce Pont du Piétinement du Ciel? » demanda Wang Lin, cherchant à dissiper son doute.
 
-« Le Continent Astral Immortel est vaste... Mais au-delà de lui, il existe bien d'autres continents. D'après ce que je comprends, le Pont du Piétinement du Ciel est un chemin commun à tous les êtres vivants. » Le Grand Empereur Gu Dao soupira. Une pointe de confusion perçait dans ses paroles; peut-être même lui n'en était-il pas certain.
+« Le Continent Astral Immortel est vaste... Mais au-delà de lui, il existe bien d'autres continents. D'après ce que je comprends, le Pont du Piétinement du Ciel est un chemin commun à tous les êtres vivants. » Le Grand Empyréen Gu Dao soupira. Une pointe de confusion perçait dans ses paroles; peut-être même lui n'en était-il pas certain.
 
 Wang Lin médita en silence, puis retira lentement son regard.

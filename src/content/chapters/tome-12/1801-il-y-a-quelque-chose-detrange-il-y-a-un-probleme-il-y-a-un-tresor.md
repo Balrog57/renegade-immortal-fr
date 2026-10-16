@@ -16,21 +16,21 @@ Pour les autres cultivateurs, cela n'avait aucune importance, car ils ne pouvaie
 
 La légende du continent du Taureau Céleste remontait à l'Antiquité. Si le continent comptait tant de montagnes, c'était parce que chacune d'elles était formée par un os de cette créature maléfique.
 
-Sur le continent du Taureau Céleste existaient deux sectes célèbres: la Secte Gui Yi et la Grande Secte de l'Âme.
+Sur le continent du Taureau Céleste existaient deux sectes célèbres: la Secte Gui Yi et la Secte de la Grande Âme.
 
 Ces deux puissances étaient immenses et faisaient partie des neuf sectes et treize factions du Continent Oriental! Elles comptaient un nombre prodigieux de disciples, mais comme le continent du Taureau Céleste équivalait à des dizaines de mondes caverneux, il était rare qu'elles se rencontrent, ce qui limitait les frictions entre elles.
 
-La Grande Secte de l'Âme était très singulière. Elle pratiquait une multitude de méthodes de culture, mais ses spécialités majeures étaient l'âme et l'illusion!
+La Secte de la Grande Âme était très singulière. Elle pratiquait une multitude de méthodes de culture, mais ses spécialités majeures étaient l'âme et l'illusion!
 
-Fan Shanmeng était une disciple de la Grande Secte de l'Âme, et ses divers sorts d'illusion témoignaient de la puissance de sa secte. La rumeur disait que les sorts d'illusion de la Grande Secte de l'Âme composaient neuf niveaux et qu'au terme du dernier, ils pouvaient transformer l'illusion en réalité. C'était absolument terrifiant.
+Fan Shanmeng était une disciple de la Secte de la Grande Âme, et ses divers sorts d'illusion témoignaient de la puissance de sa secte. La rumeur disait que les sorts d'illusion de la Secte de la Grande Âme composaient neuf niveaux et qu'au terme du dernier, ils pouvaient transformer l'illusion en réalité. C'était absolument terrifiant.
 
 Quant à la Secte Gui Yi, elle se concentrait sur les cinq éléments. De plus, elle était célèbre pour sa méthode unique de forgeage d'armures.
 
-Sous la Secte Gui Yi et la Grande Secte de l'Âme se trouvaient de nombreuses petites sectes éparpillées. Elles étaient sous la tutelle de l'une ou l'autre et devaient périodiquement leur verser des tributs.
+Sous la Secte Gui Yi et la Secte de la Grande Âme se trouvaient de nombreuses petites sectes éparpillées. Elles étaient sous la tutelle de l'une ou l'autre et devaient périodiquement leur verser des tributs.
 
-La Secte des Sept Dao, fondée par le Souverain Céleste aux Sept Couleurs, était l'une de ces sectes. Cependant, comme il avait pris une disciple de la Grande Secte de l'Âme pour partenaire de dao, il bénéficiait de la protection de cette dernière sur le continent du Taureau Céleste. Son talent étant exceptionnel, il était légitimement estimé par la Grande Secte de l'Âme.
+La Secte des Sept Dao, fondée par le Souverain Céleste aux Sept Couleurs, était l'une de ces sectes. Cependant, comme il avait pris une disciple de la Secte de la Grande Âme pour partenaire de dao, il bénéficiait de la protection de cette dernière sur le continent du Taureau Céleste. Son talent étant exceptionnel, il était légitimement estimé par la Secte de la Grande Âme.
 
-Toutefois, au cours des dernières décennies, un disciple central de la Secte Gui Yi nommé Yun Yifeng était devenu célèbre. On murmurait qu'il s'était retiré en culture fermée pendant une longue période et qu'à sa sortie, il était devenu extraordinaire. Il avait défié de nombreux disciples centraux de la Grande Secte de l'Âme et les avait tous vaincus. Même les anciens ordinaires de la Grande Secte de l'Âme n'étaient pas de taille contre lui.
+Toutefois, au cours des dernières décennies, un disciple central de la Secte Gui Yi nommé Yun Yifeng était devenu célèbre. On murmurait qu'il s'était retiré en culture fermée pendant une longue période et qu'à sa sortie, il était devenu extraordinaire. Il avait défié de nombreux disciples centraux de la Secte de la Grande Âme et les avait tous vaincus. Même les anciens ordinaires de la Secte de la Grande Âme n'étaient pas de taille contre lui.
 
 Par conséquent, la réputation de Yun Yifeng s'était envolée, le hissant peu à peu au premier rang de la nouvelle génération de disciples du continent du Taureau Céleste!
 
@@ -38,7 +38,7 @@ Certains l'incluaient même parmi les quatre génies célestes précédemment no
 
 Pourtant, ce Yun Yifeng se montrait très modeste et secouait souvent la tête lorsqu'on le comparait aux quatre génies du Continent Oriental. Ce n'était pas par sentiment d'infériorité, mais plutôt par pur mépris à leur égard.
 
-Il y a dix ans, lors d'un affrontement entre la Grande Secte de l'Âme et la Secte Gui Yi, Yun Yifeng avait blessé neuf disciples et trois anciens de la Grande Secte de l'Âme en une seule attaque.
+Il y a dix ans, lors d'un affrontement entre la Secte de la Grande Âme et la Secte Gui Yi, Yun Yifeng avait blessé neuf disciples et trois anciens de la Secte de la Grande Âme en une seule attaque.
 
 Lorsqu'on le compara alors aux quatre génies célestes du Continent Oriental, il prononça des paroles qui choquèrent tout le continent du Taureau Céleste:
 
@@ -56,13 +56,13 @@ Qui pouvait pousser Yun Yifeng à de tels propos? Qui pouvait l'intimider au poi
 
 Et cet individu n'avait cultivé que depuis un peu plus de 2 000 ans! Si cela était vrai, alors les quatre génies du Continent Oriental ne méritaient effectivement pas leur titre face à un tel être!
 
-Bien que cette déclaration ait suscité une agitation sans précédent, beaucoup remirent ses propos en question. Cependant, personne au sein de la Grande Secte de l'Âme ne s'y opposa, comme si ses membres connaissaient cet individu!
+Bien que cette déclaration ait suscité une agitation sans précédent, beaucoup remirent ses propos en question. Cependant, personne au sein de la Secte de la Grande Âme ne s'y opposa, comme si ses membres connaissaient cet individu!
 
-Ce phénomène étrange semblait déclencher une tempête de spéculations. Le silence de la Grande Secte de l'Âme alimentait tous les fantasmes!
+Ce phénomène étrange semblait déclencher une tempête de spéculations. Le silence de la Secte de la Grande Âme alimentait tous les fantasmes!
 
 Qui était cette personne?
 
-Il pouvait paralyser Yun Yifeng par sa seule présence. Il pouvait dévaluer les quatre génies. Il pouvait réduire la Grande Secte de l'Âme au silence. C'était comme si la secte avait tacitement admis l'existence d'un tel être! Même la Secte Gui Yi n'avait rien dit après les déclarations de son disciple, comme si elle savait aussi qu'une telle figure existait!
+Il pouvait paralyser Yun Yifeng par sa seule présence. Il pouvait dévaluer les quatre génies. Il pouvait réduire la Secte de la Grande Âme au silence. C'était comme si la secte avait tacitement admis l'existence d'un tel être! Même la Secte Gui Yi n'avait rien dit après les déclarations de son disciple, comme si elle savait aussi qu'une telle figure existait!
 
 Qui était-il?
 
@@ -84,11 +84,11 @@ Outre l'utilisation de bois spécial ou de mécanismes, des cadavres de bêtes o
 
 L'art des marionnettes n'était pas si mystérieux; les cultivateurs d'autres sectes en connaissaient les rudiments. Cependant, le sortilège de la Secte du Dragon Bleu possédait une particularité unique: il permettait de convertir son propre corps en marionnette afin d'atteindre l'immortalité.
 
-La rumeur disait que le premier membre de la secte à avoir atteint le stade de la Tribulation du Vide, le Grand Ancien Du Qing, était un être fait de bois. En apparence, il ressemblait à un homme ordinaire, mais dès qu'il utilisait ses sorts, son corps ligneux devenait visible.
+La rumeur disait que le premier membre de la secte à avoir atteint le stade du Tribulant du Vide, le Grand Ancien Du Qing, était un être fait de bois. En apparence, il ressemblait à un homme ordinaire, mais dès qu'il utilisait ses sorts, son corps ligneux devenait visible.
 
 Sur le continent du Taureau Céleste, la Secte du Dragon Bleu jouissait d'une réputation sinistre. Ses disciples, et même ses anciens, utilisaient tous les moyens pour obtenir ce qu'ils désiraient, y compris le massacre pour s'emparer de trésors.
 
-Cependant, le Grand Ancien Du Qing entretenait des liens profonds avec la Grande Secte de l'Âme; ils pouvaient donc agir à leur guise, et peu de sectes osaient les provoquer.
+Cependant, le Grand Ancien Du Qing entretenait des liens profonds avec la Secte de la Grande Âme; ils pouvaient donc agir à leur guise, et peu de sectes osaient les provoquer.
 
 La Secte du Dragon Bleu choisissait également soigneusement ses cibles. Si une puissance était trop risquée, elle l'évitait. Leurs proies de prédilection étaient les voyageurs des autres continents. Si un cultivateur étranger passait par là, il devenait leur cible idéale.
 

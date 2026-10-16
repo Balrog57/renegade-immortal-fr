@@ -12,7 +12,7 @@ Wang Lin s'en souciait peu. Il observa les alentours et partit silencieusement c
 
 Lu Wenran ricana intérieurement, son regard balayant le dos de Wang Lin.
 
-« Pour le bien du Grand Secte de l'Âme, je suis resté dans la Mer des Pilules et j'ai pris l'apparence d'un cultivateur renegat afin d'attirer l'attention du Continent du Démon Vert. Je suis resté là pendant plus de mille ans... »
+« Pour le bien de la Secte de la Grande Âme, je suis resté dans la Mer des Pilules et j'ai pris l'apparence d'un cultivateur renegat afin d'attirer l'attention du Continent du Démon Vert. Je suis resté là pendant plus de mille ans... »
 
 « Tout cela pour que le Continent du Démon Vert ne soupçonne rien et envahisse le Continent du Taureau Céleste, comme l'avait prévu l'Ancien Ancêtre... J'ai tout sacrifié, et pourtant l'Ancien Ancêtre ne m'a pas transmis le sortilège d'illusion multicouche complet. Quelles qualifications a-t-il pour le détenir?! »
 
@@ -28,11 +28,11 @@ Une fois les discussions terminées, les trois vieillards invitèrent Lu Wenran 
 
 Les six membres s'avancèrent vers les palais au loin en souriant. Lu Wenran agissait de même, comme s'il avait oublié l'existence même de Wang Lin.
 
-Une fois les six disparus, les membres des autres sectes se dispersèrent. Dès l'arrivée des partisans du Grand Secte de l'Âme, la formation entourant la Prairie du Ciel Extrême s'activa pleinement.
+Une fois les six disparus, les membres des autres sectes se dispersèrent. Dès l'arrivée des partisans de la Secte de la Grande Âme, la formation entourant la Prairie du Ciel Extrême s'activa pleinement.
 
 À l'activation de la formation, un grondement de tonnerre retentit. Une barrière d'énergie large de plusieurs centaines de kilomètres s'étendit à travers la Prairie du Ciel Extrême, s'étirant bien au-delà.
 
-Simultanément, les cultivateurs du Grand Secte de l'Âme et de la Secte Gui Yi arrivèrent aux six autres méridiens du Taureau Céleste restants. Leur arrivée déclencha également les formations entourant ces méridiens.
+Simultanément, les cultivateurs de la Secte de la Grande Âme et de la Secte Gui Yi arrivèrent aux six autres méridiens du Taureau Céleste restants. Leur arrivée déclencha également les formations entourant ces méridiens.
 
 Ainsi, lorsque les sept méridiens furent activés, la barrière géante se déploya sur l'ensemble des sites.
 
@@ -44,9 +44,9 @@ On pourrait dire que c'était presque impossible! Car au-delà de la puissance i
 
 Ces sept méridiens étaient activés à pleine puissance pour la première fois depuis leur création; ils joueraient un rôle vital.
 
-Outre ces sept méridiens, soixante-douze veines terrestres étaient gardées par les membres du Grand Secte de l'Âme et de petites sectes. Ces veines rassemblaient une énergie céleste infinie pour soutenir les sept méridiens du Taureau Céleste!
+Outre ces sept méridiens, soixante-douze veines terrestres étaient gardées par les membres de la Secte de la Grande Âme et de petites sectes. Ces veines rassemblaient une énergie céleste infinie pour soutenir les sept méridiens du Taureau Céleste!
 
-Tout cela visait la défense, mais comment le Grand Secte de l'Âme aurait-il pu se préparer durant tant d'années uniquement pour défendre? Un autre groupe de cultivateurs était chargé de l'offensive!
+Tout cela visait la défense, mais comment la Secte de la Grande Âme aurait-il pu se préparer durant tant d'années uniquement pour défendre? Un autre groupe de cultivateurs était chargé de l'offensive!
 
 D'innombrables grottes entouraient les palais souterrains où résidaient les cultivateurs rassemblés. Un sentiment oppressant pesait sur le cœur de chacun: ils savaient qu'une guerre monumentale allait éclater.
 
@@ -74,7 +74,7 @@ Soudain, Wang Lin ouvrit les yeux. À l'instant même, le compas devant lui trem
 
 Cette ligne était composée d'innombrables points verts qui se multipliaient à vue d'œil.
 
-« Ils arrivent! » Les yeux de Wang Lin brillèrent en fixant le compas. Il allait ainsi remplir les trois conditions imposées par le Grand Secte de l'Âme. Ensuite, il quitterait ces lieux pour rejoindre Dong Lin et le Clan de l'Ancien Dao!
+« Ils arrivent! » Les yeux de Wang Lin brillèrent en fixant le compas. Il allait ainsi remplir les trois conditions imposées par la Secte de la Grande Âme. Ensuite, il quitterait ces lieux pour rejoindre Dong Lin et le Clan de l'Ancien Dao!
 
 Alors que Wang Lin percevait l'arrivée des cultivateurs du Continent du Démon Vert, Lu Wenran ouvrit les yeux, le regard glacial.
 

@@ -88,7 +88,7 @@ Le garçon fronça les sourcils, le regard froid: « Vous avez du cran. Cela fai
 
 En entendant ces mots, Wang Lin soupira et ignora simplement l'individu. Son sens divin se propagea à travers tout le Royaume du Vide Brillant pour diffuser son message:
 
-« Le jeune Wang Lin est venu livrer une pierre de jade de la part de l'ancien Empereur Divin de l'Oiseau Vermillon! »
+« Junior Wang Lin est venu livrer une pierre de jade de la part de l'ancien Empereur Divin de l'Oiseau Vermillon! »
 
 Les yeux du garçon s'illuminèrent, mais il n'attaqua pas. Il continua d'observer Wang Lin. À cet instant, plusieurs sens divins balayèrent les environs, incluant ceux de cultivateurs du Briseur du Nirvana.
 

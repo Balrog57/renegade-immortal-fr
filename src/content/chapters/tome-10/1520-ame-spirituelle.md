@@ -22,7 +22,7 @@ En cet instant, ces cinq mots prirent vie! Ils devinrent l'aura même de la Mer 
 
 Nul ne pouvait rester insensible à cette aura. Même les êtres les plus malveillants et vils, s'il restait en eux une trace d'attachement pour leur terre natale, verraient ce sentiment amplifié à l'infini et leur sang bouillir!
 
-Maître Hong Shan arriva dans sa robe rouge, l'expression solennelle. Bien que la tempête dorée du Daoïste Eau ait été dévorée par la Bête du Néant, empêchant ainsi la destruction de la Formation de Scellement du Royaume, son état d'esprit avait changé à cet instant précis. La guerre avait déjà commencé dans son esprit, et il était prêt à se battre jusqu'à la mort depuis lors!
+Maître Hong Shan arriva dans sa robe rouge, l'expression solennelle. Bien que la tempête dorée du Shui Daozi ait été dévorée par la Bête des Limbes, empêchant ainsi la destruction de la Formation de Scellement du Royaume, son état d'esprit avait changé à cet instant précis. La guerre avait déjà commencé dans son esprit, et il était prêt à se battre jusqu'à la mort depuis lors!
 
 Bien que la bataille contre le Royaume Extérieur ait soudainement éclaté, Maître Hong Shan n'avait aucune crainte. Il s'avança avec un sourire!
 
@@ -30,7 +30,7 @@ Une arrogance et une majesté indicibles émanaient de son rire. Il contenait l'
 
 Il y avait aussi Maître Nan Yunzi. Cet homme était très mystérieux, et Wang Lin ne savait que peu de choses à son sujet. Cependant, en cet instant, ses yeux étaient froids et il arriva rapidement aux côtés de Maître Hong Shan!
 
-Tout cela se produisit en un instant. Dès l'arrivée des cultivateurs de la Mer des Nuages, Wang Lin fut confronté à une crise majeure. Ce danger ne provenait pas de l'ancêtre du Clan de l'Hirondelle de Feu, mais de l'Éminent Nan Zhao, qui se trouvait au stade de l'Âme Spirituelle!
+Tout cela se produisit en un instant. Dès l'arrivée des cultivateurs de la Mer des Nuages, Wang Lin fut confronté à une crise majeure. Ce danger ne provenait pas de l'ancêtre du Clan des Moineaux de Feu, mais de l'Estimé Nan Zhao, qui se trouvait au stade de l'Âme Spirituelle!
 
 Les écarts entre les quatre Royaumes du Néant sont immenses. Non seulement un cultivateur de l'Âme Spirituelle peut utiliser davantage de Flammes Joss, mais il peut également utiliser ces flammes pour former sa propre âme!
 
@@ -48,9 +48,9 @@ Cette force est très différente de l'énergie spirituelle des cultivateurs du 
 
 En d'autres termes, chaque cultivateur de l'Âme Spirituelle est comme un monde! Ils sont chacun leur propre univers distinct!
 
-Un coup porté par un cultivateur de l'Âme Spirituelle, même au début de ce stade, n'est pas une chose qu'un cultivateur du Nirvana peut supporter. Bien que l'attaque de l'Éminent Nan Zhao puisse paraître simple, elle contenait toute sa force spirituelle. Une seule paume était comme un monde entier s'écrasant sur vous!
+Un coup porté par un cultivateur de l'Âme Spirituelle, même au début de ce stade, n'est pas une chose qu'un cultivateur du Nirvana peut supporter. Bien que l'attaque de l'Estimé Nan Zhao puisse paraître simple, elle contenait toute sa force spirituelle. Une seule paume était comme un monde entier s'écrasant sur vous!
 
-À cet instant, l'Éminent Nan Zhao sembla disparaître des yeux de Wang Lin. Tout, y compris la formation et tous les cultivateurs, parut s'évanouir sans laisser de trace!
+À cet instant, l'Estimé Nan Zhao sembla disparaître des yeux de Wang Lin. Tout, y compris la formation et tous les cultivateurs, parut s'évanouir sans laisser de trace!
 
 C'était comme s'il avait été violemment entraîné dans une illusion, un monde qu'il n'avait jamais vu auparavant! L'espace lui-même avait disparu, ne laissant rien derrière lui!
 
@@ -60,7 +60,7 @@ Cent mille, un million, dix millions, cent millions, un milliard, dix milliards!
 
 Ce monde était sans limites, et la multitude de ces êtres en noir était terrifiante!
 
-C'étaient les âmes des Flammes Joss de l'Éminent Nan Zhao, et cet endroit était son Royaume des Flammes Joss!
+C'étaient les âmes des Flammes Joss de l'Estimé Nan Zhao, et cet endroit était son Royaume des Flammes Joss!
 
 L'attaque d'un cultivateur de l'Âme Spirituelle peut entraîner sa cible dans son propre Royaume des Flammes Joss. Ce royaume est fusionné avec l'âme du cultivateur, et c'est là que les Flammes Joss sont générées!
 
@@ -70,7 +70,7 @@ Wang Lin ressentit même une pointe de mépris envers les cultivateurs de l'Âme
 
 Cependant, en cet instant, ce mépris disparut sans laisser de trace. Wang Lin comprit!
 
-Il se trouvait désormais à l'intérieur du Royaume des Flammes Joss de l'Éminent Nan Zhao. Le monde gronda et une paume gigantesque apparut dans le ciel!
+Il se trouvait désormais à l'intérieur du Royaume des Flammes Joss de l'Estimé Nan Zhao. Le monde gronda et une paume gigantesque apparut dans le ciel!
 
 Cette paume était elle aussi noire et dégageait une puanteur insupportable. Tandis que le ciel grondait, la voûte céleste entière se mua en cette paume qui s'abattit sur Wang Lin!
 
@@ -80,11 +80,11 @@ Dire que tout cela n'était qu'une illusion était à la fois vrai et faux!
 
 C'était vrai dans le sens où les cultivateurs du Royaume Extérieur existaient toujours et fonçaient sur eux. Les cultivateurs de la Mer des Nuages également!
 
-Le corps de Wang Lin ne disparut pas; il flottait toujours là. Cependant, l'éclat de ses yeux avait été remplacé par un vide abyssal. Devant lui, l'oiseau de feu noir se rapprochait, tout comme la paume de l'Éminent Nan Zhao.
+Le corps de Wang Lin ne disparut pas; il flottait toujours là. Cependant, l'éclat de ses yeux avait été remplacé par un vide abyssal. Devant lui, l'oiseau de feu noir se rapprochait, tout comme la paume de l'Estimé Nan Zhao.
 
 La paume grandissait sans cesse dans les pupilles vitrées de Wang Lin, jusqu'à ce qu'elle soit sur le point d'occulter sa vue et de frapper entre ses sourcils!
 
-Et c'était faux car tout cela semblait bien trop réel pour lui. Dans le Royaume des Flammes Joss de l'Éminent Nan Zhao, il voyait la paume qui remplissait tout le ciel descendre sur lui!
+Et c'était faux car tout cela semblait bien trop réel pour lui. Dans le Royaume des Flammes Joss de l'Estimé Nan Zhao, il voyait la paume qui remplissait tout le ciel descendre sur lui!
 
 Tout cela se produisit en un instant!
 
@@ -116,8 +116,8 @@ Des grondements de tonnerre résonnèrent et la paume noire trembla. Le corps de
 
 Les yeux vides de Wang Lin retrouvèrent instantanément leur éclat, comme s'il s'était réveillé d'un songe. En réalité, cela n'avait duré qu'un instant. Une fois revenu à lui, son visage pâlit et il cracha du sang en se retirant précipitamment!
 
-La main droite de l'Éminent Nan Zhao trembla alors qu'elle se trouvait à moins de 30 pieds de Wang Lin. À cet instant, le sang jaillit du centre de sa paume, comme s'il avait été blessé par une force invisible. Ses yeux étaient remplis de choc et son corps fut frappé par une puissance colossale. Il ne put plus poursuivre sa course et recula de plusieurs pas, loin de l'oiseau de feu noir!
+La main droite de l'Estimé Nan Zhao trembla alors qu'elle se trouvait à moins de 30 pieds de Wang Lin. À cet instant, le sang jaillit du centre de sa paume, comme s'il avait été blessé par une force invisible. Ses yeux étaient remplis de choc et son corps fut frappé par une puissance colossale. Il ne put plus poursuivre sa course et recula de plusieurs pas, loin de l'oiseau de feu noir!
 
-« Quel corps puissant!!! » L'expression de l'Éminent Nan Zhao était sombre. Il comprenait enfin pourquoi ce Wang Lin figurait en tête de la liste des cibles prioritaires!
+« Quel corps puissant!!! » L'expression de l'Estimé Nan Zhao était sombre. Il comprenait enfin pourquoi ce Wang Lin figurait en tête de la liste des cibles prioritaires!
 
 « Il n'a même pas encore atteint le troisième pas, et pourtant il a pu esquiver et riposter contre ma paume. S'il atteint le troisième pas, il sera absolument terrifiant!! Cet enfant ne doit pas être laissé en vie!! »

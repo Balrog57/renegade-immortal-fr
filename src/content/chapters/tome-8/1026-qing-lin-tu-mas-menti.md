@@ -20,13 +20,13 @@ Désormais dépourvu du sceau du Gardien Céleste, Ta Shan fut envahi par une au
 
 Un tatouage complexe se forma progressivement sous ses doigts, gravé profondément entre les sourcils de Ta Shan.
 
-« En tant qu'Ancêtre Sainte de votre clan des Tatouages, j'active l'esprit de votre lignée et je vous accorde le Saint Tatouage du clan... » La voix de la femme paraissait épuisée. Au moment où elle traça le dernier trait, la rune étincela et les yeux de Ta Shan s'illuminèrent. Son corps cessa de trembler et il retrouva son calme, fixant la femme devant lui avec un regard empreint de confusion.
+« En tant qu'Ancêtre Sainte de votre clan du Tatouage, j'active l'esprit de votre lignée et je vous accorde le Saint Tatouage du clan... » La voix de la femme paraissait épuisée. Au moment où elle traça le dernier trait, la rune étincela et les yeux de Ta Shan s'illuminèrent. Son corps cessa de trembler et il retrouva son calme, fixant la femme devant lui avec un regard empreint de confusion.
 
-Tandis qu'elle gravait ce nouveau tatouage sur Ta Shan, elle plongea sans retenue dans ses souvenirs. Elle vit comment le clan de Ta Shan avait vécu à l'intérieur de la Bête du Néant, sacrifié aux Célestiels. Elle vit comment ces derniers les avaient marqués d'une empreinte d'esclave. Elle vit l'apparition de Wang Lin, qui les avait extirpés de la Bête du Néant pour leur trouver un nouveau foyer.
+Tandis qu'elle gravait ce nouveau tatouage sur Ta Shan, elle plongea sans retenue dans ses souvenirs. Elle vit comment le clan de Ta Shan avait vécu à l'intérieur de la Bête des Limbes, sacrifié aux Célestiels. Elle vit comment ces derniers les avaient marqués d'une empreinte d'esclave. Elle vit l'apparition de Wang Lin, qui les avait extirpés de la Bête des Limbes pour leur trouver un nouveau foyer.
 
 Elle avait tout vu.
 
-Lorsqu'elle constata que l'empreinte d'esclave affectait des générations entières du clan des Tatouages, un flot de sang noir jaillit de ses orbites vides!
+Lorsqu'elle constata que l'empreinte d'esclave affectait des générations entières du clan du Tatouage, un flot encore plus abondant de sang noir jaillit de ses orbites vides!
 
 « Qing Lin... Tu m'as menti!!! » La femme leva la tête et poussa un cri strident, chargé de rage. Ce hurlement était d'une virulence extrême, et le Vortex de l'Enterrement Céleste sous ses pieds devint soudainement plus intense encore. Le gémissement d'innombrables âmes s'échappait du vortex.
 
@@ -68,8 +68,8 @@ Lorsque Wang Lin aperçut l'apparition, il eut un haut-le-cœur et ses pupilles 
 
 « Qing Lin! »
 
-« Ce n'est pas le vrai Qing Lin, mais un avatar de Sens Divin qu'il a laissé lors du scellement de l'Ancêtre Sainte du clan des Tatouages. Il est dépourvu d'intelligence, de souvenirs et de sorts; il ne possède que l'instinct d'empêcher cet Ancêtre Sainte de s'échapper! » L'esprit du Maître du Vide fut ébranlé. À son niveau de culture, il pouvait influencer les lois du monde dans une certaine mesure. Pourtant, face à cette figure, il se sentit redevenir un simple mortel; si fragile qu'un souffle pourrait l'anéantir.
+« Ce n'est pas le vrai Qing Lin, mais un avatar de Sens Divin qu'il a laissé lors du scellement de l'Ancêtre Sainte du clan du Tatouage. Il est dépourvu d'intelligence, de souvenirs et de sorts; il ne possède que l'instinct d'empêcher cet Ancêtre Sainte de s'échapper! » L'esprit du Maître du Vide fut ébranlé. À son niveau de culture, il pouvait influencer les lois du monde dans une certaine mesure. Pourtant, face à cette figure, il se sentit redevenir un simple mortel; si fragile qu'un souffle pourrait l'anéantir.
 
-À ce moment-là, loin des Terres de l'Esprit Démon et en dehors de la zone contrôlée par l'Alliance, un système stellaire était en proie aux flammes. Au moment même où Wang Lin sortait du monde-bouteille après son éveil, un événement fracassant se produisait dans la Secte Divin de l'Oiseau Vermillon!
+À ce moment-là, loin des Terres de l'Esprit Démon et en dehors de la zone contrôlée par l'Alliance, un système stellaire était en proie aux flammes. Au moment même où Wang Lin sortait du monde-bouteille après son éveil, un événement fracassant se produisait dans la Secte Divine de l'Oiseau Vermillon!
 
 Tout cela n'était dû qu'à l'éveil de l'Oiseau Vermillon!

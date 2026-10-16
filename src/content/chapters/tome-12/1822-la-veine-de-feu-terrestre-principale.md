@@ -64,7 +64,7 @@ En un éclair, il parcourut plus de deux cents pieds. À l'instant où il se sta
 
 D'un autre pas, Wang Lin atteignit les trois cent soixante-dix pieds de profondeur. C'était la partie la plus reculée de la grotte. Il s'assit et n'hésita pas une seconde à presser sa main contre le sol!
 
-À cet instant, il se trouvait au cœur de la veine de feu principale pour dévorer son essence et sa volonté! Et accomplir cela parmi les puissances du Grand Secte de l'Âme revenait à tenter d'arracher une dent à un tigre!
+À cet instant, il se trouvait au cœur de la veine de feu principale pour dévorer son essence et sa volonté! Et accomplir cela parmi les puissances de la Secte de la Grande Âme revenait à tenter d'arracher une dent à un tigre!
 
 Fan Shanlu observa la silhouette de Wang Lin s'enfoncer dans les profondeurs. La chaleur intense émanant des parois rendait sa vision floue. Après un long moment, elle soupira et ferma les yeux pour commencer sa culture.
 
@@ -100,7 +100,7 @@ Ce changement galvanisa Wang Lin.
 
 « Je dois suivre cette volonté jusqu'à la tête de l'âme de cette veine de feu principale. Si j'absorbe la volonté qui s'y trouve, mon corps d'essence sera complet! » Sachant que le temps pressait, Wang Lin n'hésita pas. Il suivit la veine de feu dans les profondeurs de la terre.
 
-Il allait trouver l'âme primordiale de la veine de feu! Il devait achever la formation de son corps d'essence avant que les puissances du Grand Secte de l'Âme ne le découvrent, faute de quoi tout serait perdu.
+Il allait trouver l'âme primordiale de la veine de feu! Il devait achever la formation de son corps d'essence avant que les puissances de la Secte de la Grande Âme ne le découvrent, faute de quoi tout serait perdu.
 
 En un éclair, trois jours passèrent. Fan Shanlu ouvrit les yeux. Elle ne percevait plus la présence de Wang Lin. Après une réflexion, elle se leva et quitta la chambre de pierre.
 

@@ -44,7 +44,7 @@ Bei Lou était un démon ancien de la 79e génération, mais son trésor avait u
 
 Toutefois, le démon du vent ayant renoncé à son identité de démon ancien, son corps d'origine s'était dissipé; elle ne pouvait donc plus utiliser le véritable trésor. À cet instant, les trois drapeaux étaient formés en condensant son énergie démoniaque pour créer des fantômes. C'était un processus semblable à celui par lequel Wang Lin invoquait la Lance Tueuse de Dieux.
 
-Le démon du vent pointa l'avant, et le dieu ancien ainsi que les démons anciens issus des drapeaux chargèrent Wang Lin. Ce dernier parvint immédiatement à percer l'illusion des trois drapeaux. Sa main droite s'élança dans le vide et une fissure apparut dans un fracas tonnerre.
+Le démon du vent pointa l'avant, et le dieu ancien ainsi que les démons anciens issus des drapeaux chargèrent Wang Lin. Ce dernier parvint immédiatement à percer l'illusion des trois drapeaux. Sa main droite s'élança dans le vide et une fissure apparut dans un fracas de tonnerre.
 
 C'était comme si une immense faille s'était ouverte dans le ciel. Des éclairs serpentaient le long de la brèche et des grondements assourdissants résonnaient.
 
@@ -100,7 +100,7 @@ Bien qu'ils ne fussent que des illusions, ils étaient d'une puissance colossale
 
 Alors que le gaz vert reculait, la sphère entière devint noire. À cet instant précis, l'orbe se scinda!
 
-Un bruit assourdissant ébranla le monde. Ce grondement tonnerre semblait pouvoir soulever les nuages et déchirer les cieux. Sous l'écho du son, les vagues de l'océan furent à nouveau projetées.
+Un bruit assourdissant ébranla le monde. Ce grondement de tonnerre semblait pouvoir soulever les nuages et déchirer les cieux. Sous l'écho du son, les vagues de l'océan furent à nouveau projetées.
 
 Sous la force de l'effondrement, le dragon vert se dissipa. La Lance Tueuse de Dieux perça la défense et chargea vers le démon du vent.
 

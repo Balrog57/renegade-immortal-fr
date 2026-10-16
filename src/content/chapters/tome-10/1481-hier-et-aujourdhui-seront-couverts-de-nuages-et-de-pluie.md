@@ -52,7 +52,7 @@ Wang Lin secoua la tête et murmura: « Tu n'as pas encore totalement renoncé a
 
 « Xie Qing, regarde cette montagne. A-t-elle jamais tenté d'arrêter la pluie? Regarde la rivière et l'océan. Ont-ils rejeté les précipitations? Regarde les arbres et tout ce qui nous entoure. Hormis les humains, quelle autre créature empêche la pluie de se poser sur elle? »
 
-« Puisque tu es un cultivateur de l'âme, pourquoi chérisses-tu encore cette peau? Retourne à l'origine. Peu de gens peuvent réellement le comprendre... Même moi, je pensais avoir saisi ces quatre mots... Mais ce n'est qu'après avoir traversé tant d'épreuves et être retourné à Luotian que j'ai eu l'illumination... Retourner à l'origine, c'est devenir un avec les arbres, les montagnes et les rivières. C'est se libérer de toute limite pour ne faire qu'un avec le monde... Voilà ce que signifie véritablement retourner à l'origine! »
+« Puisque tu es un cultivateur de l'âme, pourquoi chérisses-tu encore cette peau? Retourne à l'origine. Peu de gens peuvent réellement le comprendre... Même mon Maître pensait que j'avais saisi ces quatre mots... Mais ce n'est qu'après avoir traversé tant d'épreuves et être retourné à Luotian que j'ai eu l'illumination... Retourner à l'origine, c'est devenir un avec les arbres, les montagnes et les rivières. C'est se libérer de toute limite pour ne faire qu'un avec le monde... Voilà ce que signifie véritablement retourner à l'origine! »
 
 Le corps de Xie Qing frémit alors qu'une compréhension vague commençait à poindre en lui.
 
@@ -72,7 +72,7 @@ Au moment où l'épée prit forme, Wang Lin porta ses doigts entre ses sourcils.
 
 Cette simple épée de pluie contenait désormais deux essences complètes ainsi que l'aura de combat ancestrale de Wang Lin. Bien que cette aura ne se soit pas propagée trop loin, elle fut suffisante pour ébranler tout le système stellaire de Luotian!
 
-« Avec une telle épée ici, peu de gens oseront offenser cette planète! » La voix de Wang Lin était calme, mais empreinte d'une autorité incontestable. Même des cultivateurs du Vide Spirituel hésiteraient face à une telle aura. Il ne valait pas la peine de défier quelqu'un capable de maîtriser presque deux essences pour une simple planète de culture... De plus, la pression de l'Ordre Ancestral était assez terrifiante pour n'importe qui!
+« Avec une telle épée ici, peu de gens oseront offenser cette planète! » La voix de Wang Lin était calme, mais empreinte d'une autorité incontestable. Même des cultivateurs du Vide Spirituel hésiteraient face à une telle aura. Il ne valait pas la peine de défier quelqu'un capable de maîtriser presque deux essences pour une simple planète de culture... De plus, la pression de l'Ordre Antique était assez terrifiante pour n'importe qui!
 
 « Cette épée, une fois que tu l'auras pleinement comprise, sera le cadeau que ton Maître te fera! »
 
@@ -88,7 +88,7 @@ Wang Lin était parti.
 
 Il devait se rendre en quatre lieux pour accomplir quatre tâches à Luotian! Il venait de terminer la première. Alors qu'il traversait l'immensité des étoiles brillantes, le regard de Wang Lin se glaça et se remplit d'une intention meurtrière.
 
-« Ancêtre de la famille Xiang... Il est temps de régler les comptes du passé... » D'un revers de manche, il s'élança vers la planète de la famille Xian, là où il avait presque perdu toute sa force vitale!
+« Ancêtre de la famille Xiang... Il est temps de régler les comptes du passé... » D'un revers de manche, il s'élança vers la planète de la famille Xiang, là où il avait presque perdu toute sa force vitale!
 
 Quelques heures après le départ de Wang Lin, une équipe d'une trentaine de cultivateurs volait vers la planète Qing Ling, menée par un homme d'âge moyen vêtu d'une robe de tonnerre.
 

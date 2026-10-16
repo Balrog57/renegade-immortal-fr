@@ -24,7 +24,7 @@ Wang Lin avait désormais une compréhension profonde du danger que représentai
 
 S'il avait accepté, c'était parce que Wang Lin refusait de leur rester redevable pour ces trois cadeaux! Le simple don de l'essence d'eau équivalait à lui offrir une essence entièrement nouvelle!
 
-S'il avait dû comprendre et rassembler cette essence par ses propres moyens, cela aurait été tout simplement trop difficile, comme en témoignaient ses essences de feu et de tonnerre. Par conséquent, le poids de ces présents rendait toute réfraction impossible.
+S'il avait dû comprendre et rassembler cette essence par ses propres moyens, cela aurait été tout simplement trop difficile, comme en témoignaient ses essences de feu et de tonnerre. Par conséquent, le poids de ces présents rendait tout refus impossible.
 
 Quant à la pierre spatiale, bien qu'elle paraisse ordinaire, Wang Lin avait le vague sentiment qu'elle n'était pas aussi simple qu'il n'y paraît. Elle recelait un espace immense et demeurait très mystérieuse.
 
@@ -34,7 +34,7 @@ Ces trois cadeaux étaient précieux, et puisqu'il les avait acceptés, il devai
 
 « Il reste encore neuf cultivateurs de stade initial de la Tribulation du Vide à éliminer... Si j'ai pu en tuer un, je peux certainement en tuer neuf autres! Le plus crucial est d'abattre les trois de stade intermédiaire de la Tribulation du Vide. Même si j'explose les 30 millions d'âmes dao, cela ne pourra en tuer qu'un seul... Quant aux deux restants... » Wang Lin fronça les sourcils, mais il ne recula pas. Une lueur froide traversa son regard.
 
-« L'Ancêtre Taureau Vert m'a imposé ces trois conditions en pensant que je ne serais pas capable de les remplir rapidement. Il pense que cela prendra du temps... Cependant, je ne souhaite pas m'enliser dans le conflit entre le Continent du Taureau Céleste et le Continent du Démon Vert. Je dois remplir ces conditions au plus vite afin de rompre mes liens avec la Grande Secte de l'Âme, puis quitter cet endroit! » Wang Lin baissa les yeux vers son corps qui se fondait dans l'obscurité de la grotte.
+« L'Ancêtre Taureau Vert m'a imposé ces trois conditions en pensant que je ne serais pas capable de les remplir rapidement. Il pense que cela prendra du temps... Cependant, je ne souhaite pas m'enliser dans le conflit entre le Continent du Taureau Céleste et le Continent du Démon Vert. Je dois remplir ces conditions au plus vite afin de rompre mes liens avec la Secte de la Grande Âme, puis quitter cet endroit! » Wang Lin baissa les yeux vers son corps qui se fondait dans l'obscurité de la grotte.
 
 À cet instant précis, Wang Lin leva soudainement la tête et regarda hors de la grotte. Son regard semblait transpercer la roche pour scruter l'extérieur. À ce moment-là, les palais souterrains étaient silencieux; seuls quelques bruits de respiration se faisaient entendre. Une faible lueur émanait des pierres lunaires disposées ici.
 
@@ -104,6 +104,6 @@ Bien qu'il doutât que Wang Lin possède une telle capacité, c'était une quest
 
 Durant ces deux jours, Wang Lin avait largement récupéré. Au crépuscule du deuxième jour, un autre invité arriva devant sa grotte après le passage de Yan Lu. Un nouvel invité non désiré!
 
-« Camarade cultivateur Wang Lin de la Grande Secte de l'Âme. Je vous demande de cesser votre culture pour patrouiller durant la nuit! » L'homme qui parlait était le vieillard nommé Zhou, exécutant les ordres de Lu Wenran.
+« Camarade cultivateur Wang Lin de la Secte de la Grande Âme. Je vous demande de cesser votre culture pour patrouiller durant la nuit! » L'homme qui parlait était le vieillard nommé Zhou, exécutant les ordres de Lu Wenran.
 
 Il se tenait devant la grotte de Wang Lin, l'air calme, s'exprimant d'un ton froid et impérieux, comme si aucune contestation n'était possible.

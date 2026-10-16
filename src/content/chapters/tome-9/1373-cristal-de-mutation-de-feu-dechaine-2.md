@@ -58,7 +58,7 @@ Quant à Zhong Grand Rouge, il était devenu encore plus hardi; il était désor
 
 « Il existe 372 petits clans dans la Terre Déchue. Mon Clan du Scorpion Noir est au bas de l'échelle. Nous ne contrôlons que cette planète presque abandonnée et comptons peu de membres... »
 
-« Le Système Stellaire Antique possède le Conseil Souverain, tandis que la Terre Déchue est gouvernée par le Conseil Déchu. Il y a un total de 13 Anciens Délaissés qui dirigent la Terre Déchue. Quant au Grand Empereur de la Terre Déchue, il contrôle le Conseil Déchu. Il est très mystérieux, et la rumeur dit qu'il est un cultivateur du troisième niveau, c'est pourquoi cet endroit n'est pas sous le contrôle du Conseil Souverain. »
+« Le Système Stellaire Antique possède le Conseil Souverain, tandis que la Terre Déchue est gouvernée par le Conseil Déchu. Il y a un total de 13 Anciens Déchus qui dirigent la Terre Déchue. Quant au Grand Empereur de la Terre Déchue, il contrôle le Conseil Déchu. Il est très mystérieux, et la rumeur dit qu'il est un cultivateur du troisième niveau, c'est pourquoi cet endroit n'est pas sous le contrôle du Conseil Souverain. »
 
 « Les membres du Conseil Déchu ne sont pas immuables. Tous les cent ans, ils peuvent être contestés, et le vainqueur devient le nouvel Ancien. La rumeur prétend qu'au fil des ans, le Conseil Souverain a secrètement envoyé de nombreuses personnes ici pour tenter de s'emparer d'un siège d'Ancien. Cependant, aucune n'a jamais réussi, et toutes sont mortes de manière inexplicable lors du défi. »
 
@@ -88,9 +88,9 @@ Les yeux de Wang Lin brillèrent intensément. Il ne s'attendait pas à trouver 
 
 « Puisque des cultivateurs au stade du Fléau Céleste existent, pourrait-il y avoir des marionnettes du troisième niveau? » Wang Lin ne posa pas cette question, car une telle chose était trop absurde et il ne croyait pas qu'elles existent.
 
-Un instant plus tard, Wang Lin demanda: « Quelle est l'influence du Clan de l'Hirondelle de Feu ici? »
+Un instant plus tard, Wang Lin demanda: « Quelle est l'influence du Clan des Moineaux de Feu ici? »
 
-« Le Clan de l'Hirondelle de Feu est l'un des grands clans du Système Stellaire Antique, et ils ont envoyé des gens ici au fil des ans. Il y en a quelques centaines. Bien que tout le monde sache qu'ils sont envoyés par le Clan de l'Hirondelle de Feu, comme ils ne participent pas à la lutte pour les sièges d'Ancien, ils restent en sécurité. Ils se sont liés d'amitié avec divers clans et participent au commerce des marionnettes. Ils collectent secrètement des Cristaux de Mutation de Feu Déchaîné et, de temps à autre, ils les renvoient au Clan de l'Hirondelle de Feu. »
+« Le Clan des Moineaux de Feu est l'un des grands clans du Système Stellaire Antique, et ils ont envoyé des gens ici au fil des ans. Il y en a quelques centaines. Bien que tout le monde sache qu'ils sont envoyés par le Clan des Moineaux de Feu, comme ils ne participent pas à la lutte pour les sièges d'Ancien, ils restent en sécurité. Ils se sont liés d'amitié avec divers clans et participent au commerce des marionnettes. Ils collectent secrètement des Cristaux de Mutation de Feu Déchaîné et, de temps à autre, ils les renvoient au Clan des Moineaux de Feu. »
 
 Les yeux de Wang Lin s'illuminèrent. « Des Cristaux de Mutation de Feu Déchaîné? »
 
@@ -98,7 +98,7 @@ Les yeux de Wang Lin s'illuminèrent. « Des Cristaux de Mutation de Feu Décha�
 
 Wang Lin saisit le sable blanc et l'examina attentivement. Ses pupilles se rétractèrent brusquement avant de reprendre leur forme normale.
 
-« Tu peux partir. Rassemble toutes les informations concernant le Clan de l'Hirondelle de Feu et rapporte-les-moi en détail. » Wang Lin fit un geste de la main et l'ancien partit précipitamment.
+« Tu peux partir. Rassemble toutes les informations concernant le Clan des Moineaux de Feu et rapporte-les-moi en détail. » Wang Lin fit un geste de la main et l'ancien partit précipitamment.
 
 Une fois celui-ci parti, la porte de la grotte se referma et Wang Lin posa des restrictions. Il regarda immédiatement le sable blanc dans sa main et ses yeux devinrent de plus en plus brillants, trahissant une pointe de choc.
 

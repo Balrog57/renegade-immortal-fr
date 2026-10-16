@@ -44,7 +44,7 @@ Les terres du Continent du Démon Vert différaient grandement de celles du Cont
 
 Wang Lin appréciait très peu le Continent du Démon Vert.
 
-Peu de cultivateurs puissants subsistaient sur ce continent; la plupart n'étaient que des êtres faibles ne représentant aucune menace pour lui. Néanmoins, il maintint son rythme habituel en utilisant la Courbure Spatiale pour traverser le territoire.
+Peu de cultivateurs puissants subsistaient sur ce continent; la plupart n'étaient que des êtres faibles ne représentant aucune menace pour lui. Néanmoins, il maintint son rythme habituel en utilisant la Distorsion Spatiale pour traverser le territoire.
 
 Il sentait qu'au plus profond du Continent du Démon Vert résidait une force mystérieuse. Cette force était monstrueuse et saturée d'énergie démoniaque. Selon la carapace de tortue, c'était là que se trouvait le Temple du Scorpion du Démon Vert.
 

@@ -78,11 +78,11 @@ Le Maître du Dao Rêve Bleu sentit son doigt engourdi et se retira, sous le cho
 
 Maître Simo observait la scène, stupéfait. Il avait vu les deux puissances s'élancer pour sauver Wang Lin, mais il n'aurait jamais imaginé qu'ils soient ainsi repoussés!
 
-L'expression du Grand Maître Yun Luo devint plus sombre encore et ses mains s'activèrent avec précipitation. Elle sentait qu'elle était sur le point de percer les secrets qui se jouaient là.
+L'expression de la Grande Maîtresse Yun Luo devint plus sombre encore et ses mains s'activèrent avec précipitation. Elle sentait qu'elle était sur le point de percer les secrets qui se jouaient là.
 
 Le Maître du Dao Miao Yun se leva de son nuage, le regard brillant.
 
-« Ce que le Daoiste Water disait était vrai! »
+« Ce que Shui Daozi disait était vrai! »
 
 À l'intérieur de l'Épreuve Terrestre, au moment même où l'âme de Wang Lin brûlait, la Perle Défiant le Ciel apparut! Depuis que le Seigneur du Royaume Scellé l'avait laissée, elle n'était plus sortie. Peu importe les recherches de Wang Lin, elle semblait s'être volatilisée.
 
@@ -98,7 +98,7 @@ Lorsqu'il ouvrit les yeux, le feu aux sept couleurs explosa et déferla sur le m
 
 Le monde semblait avoir perdu toute couleur, à l'exception des sept teintes entourant Wang Lin. Tout le reste avait basculé dans le noir et blanc!
 
-Cela ressemblait à une peinture de paysage, où ce contraste n'insufflait qu'un sentiment d'infini désolations.
+Cela ressemblait à une peinture de paysage, où ce contraste n'insufflait qu'un sentiment d'infinies désolations.
 
 La dernière rétribution des neuf karmas descendait!
 
@@ -108,11 +108,11 @@ L'assaut fut d'une rapidité fulgurante. Le feu blanc, brûlant, commença à co
 
 Le visage de Wang Lin demeurait calme alors que le feu aux huit couleurs l'encerclait. Il observa le feu noir s'approcher.
 
-Les neuf rétributions karmatiques commençaient par un feu noir et se terminaient par un feu noir, formant un cycle perpétuel.
+Les neuf rétributions karmiques commençaient par un feu noir et se terminaient par un feu noir, formant un cycle perpétuel.
 
 Alors que le feu noir convergeait, Wang Lin ferma lentement les yeux. Un grondement de tonnerre retentit lorsque l'obscurité s'engouffra, poussant le feu aux huit couleurs à atteindre la limite du feu aux neuf couleurs!
 
-Les neuf rétributions karmatiques étaient toutes apparues, formant une tempête apocalyptique. Wang Lin se trouvait au cœur du chaos, ses cheveux ondulant sans qu'aucun vent ne soufflât. Outre les sept feux de couleurs différentes dans son corps, le feu noir et blanc se condensa rapidement.
+Les neuf rétributions karmiques étaient toutes apparues, formant une tempête apocalyptique. Wang Lin se trouvait au cœur du chaos, ses cheveux ondulant sans qu'aucun vent ne soufflât. Outre les sept feux de couleurs différentes dans son corps, le feu noir et blanc se condensa rapidement.
 
 Le feu blanc résidait dans son dantian et le feu noir entre ses sourcils!
 
@@ -134,7 +134,7 @@ Sur la Planète des Grands Empereurs, l'écho du réveil retentit. Le bâton d'e
 
 Le vieux Oiseau Vermillon fut stupéfait avant de laisser échapper un rire tonitruant, l'excitation brillant dans ses yeux.
 
-« Il a réellement passé les neuf rétributions karmatiques et a allumé son cycle de feu karmique pour que son Oiseau Vermillon puisse accomplir son quatrième éveil. Ce quatrième éveil exige une quantité phénoménale de feu. S'il peut s'éveiller totalement et atteindre le royaume du Feu Éthéré, tout dépendra de cela! En tant qu'aîné, même si je dois tricher, je me dois de lui donner un coup de main! » Le vieux Oiseau Vermillon bondit dans les airs et disparut aux yeux de tous.
+« Il a réellement passé les neuf rétributions karmiques et a allumé son cycle de feu karmique pour que son Oiseau Vermillon puisse accomplir son quatrième éveil. Ce quatrième éveil exige une quantité phénoménale de feu. S'il peut s'éveiller totalement et atteindre le royaume du Feu Éthéré, tout dépendra de cela! En tant qu'aîné, même si je dois tricher, je me dois de lui donner un coup de main! » Le vieux Oiseau Vermillon bondit dans les airs et disparut aux yeux de tous.
 
 En un instant, le rugissement d'un dragon retentit au loin, empreint de colère et d'indignation. On pouvait voir un dragon de 100 000 pieds de long être conduit par le vieux Oiseau Vermillon.
 

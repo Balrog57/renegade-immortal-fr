@@ -64,17 +64,17 @@ Inconsciemment, il baissa la tête, ses yeux s'emplissant de terreur. C'était l
 
 La montagne entière sembla reprendre vie, telle une personne guérie d'une longue maladie. Elle retrouva immédiatement sa splendeur, semblant débordante de vitalité.
 
-Stupéfait par le spectacle, Zhang Xinhai ne reprit ses esprits qu'après un long moment. Son visage rayonnait d'excitation. Sans l'ombre d'une hésitation, il s'agenouilla et dit respectueusement: « Le cadet Zhang Xinhai salue l'Aîné. Si l'Aîné apprécie ce Pic Heng Yun, alors le cadet vous l'offre immédiatement! »
+Stupéfait par le spectacle, Zhang Xinhai ne reprit ses esprits qu'après un long moment. Son visage rayonnait d'excitation. Sans l'ombre d'une hésitation, il s'agenouilla et dit respectueusement: « Le Junior Zhang Xinhai salue le Senior. Si le Senior apprécie ce Pic Heng Yun, alors le Junior vous l'offre immédiatement! »
 
 « Le Pic Heng Yun... » Ce jeune homme aux cheveux noirs n'était autre que Wang Lin. Il se retourna, regarda Zhang Xinhai et dit lentement: « Votre longévité touche à sa fin; il serait difficile d'y remédier, même avec mon pouvoir. »
 
-Zhang Xinhai laissa échapper un sourire amer et répondit respectueusement: « L'Aîné me comprend mal. Le cadet accepte la volonté des cieux et ne cherche pas d'aide. Pouvoir rencontrer un cultivateur aussi puissant que l'Aîné avant de mourir me laisse sans regrets. Sans parler de cette montagne, je... je vous offrirais même cette planète, Qing Ling, si vous le souhaitez. »
+Zhang Xinhai laissa échapper un sourire amer et répondit respectueusement: « Le Senior me comprend mal. Le Junior accepte la volonté des cieux et ne cherche pas d'aide. Pouvoir rencontrer un cultivateur aussi puissant que le Senior avant de mourir me laisse sans regrets. Sans parler de cette montagne, je... je vous offrirais même cette planète, Qing Ling, si vous le souhaitez. »
 
 Wang Lin se détourna et sa main droite projeta un rayon d'énergie spirituelle entre les sourcils de Zhang Xinhai. Il dit doucement: « Je ne peux pas changer votre destin, mais brûler votre propre énergie spirituelle pour prolonger votre vie de dix ans est une chose que je peux accomplir. »
 
 En projetant ce rayon, Wang Lin laissa échapper un soupir. Ce sort était une technique qu'il pouvait à peine utiliser depuis qu'il avait atteint la troisième étape. S'il l'avait su plus tôt, Li Muwan ne se serait pas réfugiée dans la perle défiant les cieux.
 
-Lorsque le sort atteignit le front de Zhang Xinhai, son corps trembla et il ressentit instantanément une vitalité jaillissant de l'énergie spirituelle injectée en lui. Son visage devint rouge alors qu'il prenait une profonde inspiration. Il regarda Wang Lin et dit avec respect: « Merci, Aîné. Si l'Aîné a la moindre commande, le cadet fera tout son possible pour s'y conformer! » Quelqu'un ayant dirigé la famille Zhang n'était pas stupide. Personne dans ce monde n'agissait ainsi gratuitement.
+Lorsque le sort atteignit le front de Zhang Xinhai, son corps trembla et il ressentit instantanément une vitalité jaillissant de l'énergie spirituelle injectée en lui. Son visage devint rouge alors qu'il prenait une profonde inspiration. Il regarda Wang Lin et dit avec respect: « Merci, Senior. Si le Senior a la moindre commande, le Junior fera tout son possible pour s'y conformer! » Quelqu'un ayant dirigé la famille Zhang n'était pas stupide. Personne dans ce monde n'agissait ainsi gratuitement.
 
 Lorsqu'il avait entendu Wang Lin dire que cette montagne était agréable, il l'avait offerte sans hésiter. Pour un cultivateur du rang de Wang Lin, une telle remarque était déjà une immense clémence. Ceux qui avaient un tempérament de feu se seraient contentés de la prendre par la force; s'ils avaient été mécontents, il leur aurait suffi de massacrer quelques petites familles de culture comme la leur.
 
@@ -86,7 +86,7 @@ Zhang Xinhai ne sentit qu'une bourrasque de vent. Devant lui, il n'y avait plus 
 
 La scène précédente lui semblait être un rêve. Il toucha l'endroit entre ses sourcils, sentit la densité de la vitalité dans son corps et prit une grande inspiration. Les yeux brillants d'excitation, il s'inclina vers la montagne avant de repartir précipitamment.
 
-« Je dois faire de mon mieux pour accomplir la requête de l'Aîné! » Zhang Xinhai se transforma en un rayon de lumière et fonça vers le domaine de la famille Zhang.
+« Je dois faire de mon mieux pour accomplir la requête du Senior! » Zhang Xinhai se transforma en un rayon de lumière et fonça vers le domaine de la famille Zhang.
 
 Après avoir renvoyé Zhang Xinhai, Wang Lin réfléchit un instant avant de sortir l'Étendard des âmes d'un milliard. Il planta délicatement l'étendard de trente pieds de haut dans la montagne.
 

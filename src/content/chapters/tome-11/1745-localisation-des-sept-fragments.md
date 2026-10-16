@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1745 - Location of the Seven Fragments!"
 slug: localisation-des-sept-fragments
 ---
-C'était similaire à la manière dont il était entré dans l'illusion du Daoïste aux Sept Couleurs, mais cette fois, Qing Shui servait de guide. Wang Lin utilisait la Voile Fantomatique pour pénétrer dans l'illusion afin de découvrir la vérité sur ce passé antique.
+C'était similaire à la manière dont il était entré dans l'illusion du Daoïste aux Sept Couleurs, mais cette fois, Qing Shui servait de guide. Wang Lin utilisait la Voile Fantôme pour pénétrer dans l'illusion afin de découvrir la vérité sur ce passé antique.
 
 À l'intérieur de cette illusion, le ciel était rouge sang et la terre l'était tout autant, comme si elle avait été trempée dans le sang. L'odeur du sang était si épaisse que, dès l'apparition de Wang Lin, il ressentit une sensation d'étouffement dans sa poitrine. C'était comme si un rocher immense pesait sur son torse, rendant chaque respiration difficile.
 
@@ -38,7 +38,7 @@ Le sang teintait la terre de pourpre et chaque goutte éparpillée portait la ha
 
 En s'approchant, Wang Lin contempla le dos de Qing Shui, maculé de sang. Sa silhouette dégageait une tristesse et une solitude infinies. Bien que sa vengeance fût accomplie, il n'y avait aucune joie, seulement du chagrin, de la douleur, ainsi que la haine et l'épuisement de celui qui a trop vécu!
 
-Wang Lin dit doucement: « Frère aîné... »
+Wang Lin dit doucement: « Senior Frère... »
 
 À cet instant, Qing Shui se retourna brusquement. Ses yeux injectés de sang et chargés d'une intention meurtrière se posèrent sur Wang Lin. Si n'importe qui d'autre avait été là, l'odeur du sang et cette aura auraient provoqué un tremblement de terreur et une fuite immédiate.
 
@@ -50,7 +50,7 @@ Le regard meurtrier de Qing Shui ne pouvait ébranler Wang Lin. Car Wang Lin ne 
 
 Tout comme lorsqu'il avait accompli sa vengeance contre la famille Teng...
 
-« Ceci est une illusion; c'est un mélange de vrai et de faux, mais ce n'est pas notre destination. Frère aîné, assieds-toi, nous allons entrer dans la deuxième illusion... » chuchota Wang Lin en s'avançant vers lui.
+« Ceci est une illusion; c'est un mélange de vrai et de faux, mais ce n'est pas notre destination. Senior Frère, assieds-toi, nous allons entrer dans la deuxième illusion... » chuchota Wang Lin en s'avançant vers lui.
 
 Qing Shui resta silencieux, plongé dans ses pensées jusqu'à ce que Wang Lin soit à ses côtés, puis il ferma lentement les yeux. Cependant, deux larmes coulèrent sur ses joues, lavant les traces de sang sur son visage. Les larmes glissèrent le long de son cou pour tomber au sol et se mêler au sang.
 

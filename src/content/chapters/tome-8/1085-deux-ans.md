@@ -37,7 +37,7 @@ De plus en plus de cultivateurs commencèrent à ressentir un malaise face au mu
 
 Luotian lança immédiatement une offensive massive, progressant sur toutes les résistances de l'Alliance telle une inondation déferlante.
 
-Un mois après le lancement de cette offensive totale par Luotian, le mystérieux Secte des Cadavres annonça qu'il resterait en dehors du conflit entre Luotian et l'Alliance. Ils s'approprièrent le domaine sud et le scellèrent hermétiquement, interdisant toute entrée à quiconque n'appartenait pas à la Secte des Cadavres. Quiconque s'aventurait dans le domaine sud se heurtait alors aux attaques dévastatrices de la Secte.
+Un mois après le lancement de cette offensive totale par Luotian, la mystérieuse Secte des Cadavres annonça qu'il resterait en dehors du conflit entre Luotian et l'Alliance. Ils s'approprièrent le domaine sud et le scellèrent hermétiquement, interdisant toute entrée à quiconque n'appartenait pas à la Secte des Cadavres. Quiconque s'aventurait dans le domaine sud se heurtait alors aux attaques dévastatrices de la Secte.
 
 L'indépendance de la Secte des Cadavres provoqua un choc immense au sein de l'Alliance.
 
@@ -71,7 +71,7 @@ Après avoir diffusé ces deux ordres et distribué ces richesses, la formation 
 
 Au moment même où les ordres étaient envoyés, les Quatre Sectes Divines surgirent dans la région est! Elles avaient agi exactement comme Luotian le soupçonnait: elles avaient anéanti toutes les autres forces de la région est, à l'exception du Royaume du Vide Brillant!
 
-À cet instant, le système stellaire de l'Alliance était morcelé, devenu le champ de bataille de plusieurs puissances. Bien qu'Luotian fût la plus forte en apparence, l'équilibre restait précaire face au mystérieux Secte des Cadavres, aux célèbres Quatre Sectes Divines et aux vestiges de l'Alliance qui, armés de trésors et de sorts célestes, se battaient avec leur âme originelle en jeu.
+À cet instant, le système stellaire de l'Alliance était morcelé, devenu le champ de bataille de plusieurs puissances. Bien que Luotian fût la plus forte en apparence, l'équilibre restait précaire face à la mystérieuse Secte des Cadavres, aux célèbres Quatre Sectes Divines et aux vestiges de l'Alliance qui, armés de trésors et de sorts célestes, se battaient avec leur âme originelle en jeu.
 
 Toutefois, la querelle entre le Maître Yan Leizi de Luotian et l'Alliance de Culture ne pouvait être résolue par ce simple équilibre. Luotian lança une nouvelle fois son assaut contre les vestiges de l'Alliance au centre! Les flammes de la guerre se propagèrent et, au fil des combats, les pertes s'intensifièrent.
 

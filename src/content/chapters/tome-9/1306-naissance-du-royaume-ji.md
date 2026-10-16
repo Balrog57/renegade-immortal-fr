@@ -8,7 +8,7 @@ slug: naissance-du-royaume-ji
 ---
 Les Sept Étoiles, les Six Directions et les Cinq Éléments fusionnèrent. Ce pouvoir pouvait tout détruire! Le visage de Wang Lin était pâle, mais ses yeux devenaient de plus en plus brillants!
 
-Il saisit vaguement le sens des paroles du Seigneur du Domaine Scellé. La rétribution divine était une calamité, mais aussi une fortune!
+Il saisit vaguement le sens des paroles du Seigneur du Royaume Scellé. La rétribution divine était une calamité, mais aussi une fortune!
 
 « Neuf est la limite. Il y a les Neuf Palais, les Huit Diagrammes, les Sept Étoiles, les Six Directions et les Cinq Éléments; il existe donc sûrement quatre, trois et deux! J'ignore ce que sont le quatre et le trois, mais le deux est indubitablement le Yin et le Yang! »
 
@@ -18,7 +18,7 @@ Il saisit vaguement le sens des paroles du Seigneur du Domaine Scellé. La rétr
 
 Ses yeux s'illuminèrent et il s'apprêta à s'avancer pour aider Wang Lin à résister à la calamité des Sept Étoiles!
 
-« Aîné, vous n'avez pas besoin d'intervenir. Je résisterai seul à cette rétribution divine! » La voix de Wang Lin résonna à travers le vide. Le Grand Ancien de la Secte Démon marqua un temps d'arrêt, tandis que les Sept Étoiles se rapprochaient!
+« Senior, vous n'avez pas besoin d'intervenir. Je résisterai seul à cette rétribution divine! » La voix de Wang Lin résonna à travers le vide. Le Grand Ancien de la Secte Démon marqua un temps d'arrêt, tandis que les Sept Étoiles se rapprochaient!
 
 Les Sept Étoiles descendirent avec une intention meurtrière monstrueuse et sept rayons de lumière s'abattirent sur Wang Lin. Un grondement de tonnerre retentit et il fut couvert de sang. Son âme originelle trembla et il fut repoussé. Il devint mortellement pâle par la suite, mais il se mit à rire.
 

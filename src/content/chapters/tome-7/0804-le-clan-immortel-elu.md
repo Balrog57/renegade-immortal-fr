@@ -76,7 +76,7 @@ Le visage du vieil homme s'assombrit et il hurla: « Tais-toi! Le Clan Immortel 
 
 « Hérésie! » Le corps du vieil homme tremblait de rage, les dents serrées. « Toi... »
 
-« Et alors si c'est de l'hérésie?! Célestes ou non, mon clan est enfermé dans la Bête du Néant depuis des éternités à garder le Fourneau Yin Mystérieux selon les instructions du décret céleste, et qu'avons-nous reçu en retour? Rien d'autre que des bêtes de brume surgissant du fourneau et la mort de nos semblables! Où étaient les Célestes quand ces bêtes massacraient mon clan? Ancêtre, ne parle plus jamais des Célestes. Même si cet homme est réellement un Céleste, aujourd'hui, moi, Ta Shan, je tuerai un Céleste! »
+« Et alors si c'est de l'hérésie?! Célestes ou non, mon clan est enfermé dans la Bête des Limbes depuis des éternités à garder le Fourneau Yin Mystérieux selon les instructions du décret céleste, et qu'avons-nous reçu en retour? Rien d'autre que des bêtes de brume surgissant du fourneau et la mort de nos semblables! Où étaient les Célestes quand ces bêtes massacraient mon clan? Ancêtre, ne parle plus jamais des Célestes. Même si cet homme est réellement un Céleste, aujourd'hui, moi, Ta Shan, je tuerai un Céleste! »
 
 Alors qu'il parlait, l'homme tourna brusquement son regard glacial vers Wang Lin. Il fit un pas en avant, apparut soudainement devant lui et lança un coup de poing.
 

@@ -12,17 +12,17 @@ Au moment où cette aura se répandit, la porte au bout du passage trembla viole
 
 Dès que l'aura apparut, les expressions de tous les cultivateurs de la secte changèrent radicalement. Ceux possédant un haut niveau de culture furent saisis de choc et d'incrédulité!
 
-« L'un des neuf soleils, l'aura d'un Grand Empereur... Ceci... Quel Grand Empereur est apparu là-bas? »
+« L'un des neuf soleils, l'aura d'un Grand Empyréen... Ceci... Quel Grand Empyréen est apparu là-bas? »
 
 Sur le Continent Astral Immortel, Fan Shanmeng, qui était assise à l'intérieur de la montagne de glace, pâlit instantanément. La montagne de glace s'effondra soudainement et elle en sortit en bondissant, le visage pétrifié par l'horreur.
 
-« C'est... C'est l'aura d'un Grand Empereur!! »
+« C'est... C'est l'aura d'un Grand Empyréen!! »
 
 Sur le Continent Astral Immortel, parmi les neuf sectes et treize factions de l'Est, la première était la Secte du Soleil Violet! La puissance d'une seule de ses branches suffisait à balayer les huit autres sectes.
 
-C'était parce que l'un des légendaires Grands Empereurs était un membre de la Secte du Soleil Violet. L'un des neuf soleils du Continent Astral Immortel!
+C'était parce que l'un des légendaires Grands Empyréens était un membre de la Secte du Soleil Violet. L'un des neuf soleils du Continent Astral Immortel!
 
-Cependant, ce Grand Empereur était très mystérieux, et peu de gens savaient à quoi il ressemblait. On ignorait même si ce Grand Empereur était un homme ou une femme. Pourtant, plus ce Grand Empereur était mystérieux, moins les gens osaient provoquer la Secte du Soleil Violet.
+Cependant, ce Grand Empyréen était très mystérieux, et peu de gens savaient à quoi il ressemblait. On ignorait même si ce Grand Empyréen était un homme ou une femme. Pourtant, plus ce Grand Empyréen était mystérieux, moins les gens osaient provoquer la Secte du Soleil Violet.
 
 À cet instant, au sein de la Secte du Soleil Violet, sept ou huit vieillards étaient rassemblés, les visages empreints d'amertume. Un homme d'âge moyen à l'allure digne se tenait devant eux et rugit:
 
@@ -30,11 +30,11 @@ Cependant, ce Grand Empereur était très mystérieux, et peu de gens savaient �
 
 « Ils ont dit qu'ils allaient s'amuser dans le Royaume de la Ferme des Bêtes, mais... mais... » murmura l'un des Anciens, accablé d'impuissance.
 
-« S'amuser? L'aura d'un Grand Empereur s'est propagée, comment cela pourrait-il encore être un jeu?! » rugit l'homme d'âge moyen, bien que ses yeux fussent également remplis de désespoir.
+« S'amuser? L'aura d'un Grand Empyréen s'est propagée, comment cela pourrait-il encore être un jeu?! » rugit l'homme d'âge moyen, bien que ses yeux fussent également remplis de désespoir.
 
 « Nous ne pouvons pas ouvrir le Royaume de la Ferme des Bêtes. Ils l'ont scellé et refusent de nous laisser entrer... » Un autre vieil homme secoua amèrement la tête.
 
-« Aucune erreur n'est permise dans la réincarnation du Grand Empereur. Ils sont encore en pleine croissance, il n'est pas idéal d'utiliser leur pouvoir de Grand Empereur... Ces deux petits ancêtres, que font-elles donc? » L'homme d'âge moyen frappa du pied et toute la Secte du Soleil Violet trembla. Même le monde extérieur en fut ébranlé.
+« Aucune erreur n'est permise dans la réincarnation du Grand Empyréen. Ils sont encore en pleine croissance, il n'est pas idéal d'utiliser leur pouvoir de Grand Empyréen... Ces deux petits ancêtres, que font-elles donc? » L'homme d'âge moyen frappa du pied et toute la Secte du Soleil Violet trembla. Même le monde extérieur en fut ébranlé.
 
 À l'intérieur de la faille spatiale, Wang Lin était assis sur l'autel et vit l'aura terrifiante qui avait jailli de Cupidité. Un choc apparut dans ses yeux.
 
@@ -44,25 +44,25 @@ Il y avait aussi le Daoïste aux Sept Couleurs, qui fut stupéfait un instant. B
 
 Ce souvenir était la peur et le respect envers les neuf soleils du Continent Astral Immortel.
 
-« C'est... l'aura d'un Grand Empereur... » L'expression du Daoïste aux Sept Couleurs changea. Tandis que la lumière solaire se rapprochait, son corps trembla et il cracha du sang. Il recula comme un fou. Il ne songeait plus à affiner Wang Lin, terrifié par l'aura émanant du soleil!
+« C'est... l'aura d'un Grand Empyréen... » L'expression du Daoïste aux Sept Couleurs changea. Tandis que la lumière solaire se rapprochait, son corps trembla et il cracha du sang. Il recula comme un fou. Il ne songeait plus à affiner Wang Lin, terrifié par l'aura émanant du soleil!
 
 Non seulement lui, mais le Vieux Fantôme Zhan, qui suivait les quatre généraux pour tenter de trouver la troisième âme, trembla soudainement. Son visage devint livide.
 
-« Grand Empereur!! » Il ne parla pas, mais une voix aiguë jaillit de son corps.
+« Grand Empyréen!! » Il ne parla pas, mais une voix aiguë jaillit de son corps.
 
-« Comment est-ce possible? L'aura d'un Grand Empereur est entrée ici, ceci... ceci... »
+« Comment est-ce possible? L'aura d'un Grand Empyréen est entrée ici, ceci... ceci... »
 
 Cette aura terrifiante se propagea dans le Royaume Intérieur, le Royaume Extérieur et l'ensemble du monde des grottes. Elle balaya chaque planète et chaque être vivant qui s'y trouvait. À cet instant, le monde des grottes tout entier sombra dans la confusion.
 
-À ce moment-là, quiconque — qu'il fût une bête, un mortel ou un cultivateur — fut stimulé par l'aura du Grand Empereur, réveillant des souvenirs oubliés il y a d'innombrables réincarnations...
+À ce moment-là, quiconque — qu'il fût une bête, un mortel ou un cultivateur — fut stimulé par l'aura du Grand Empyréen, réveillant des souvenirs oubliés il y a d'innombrables réincarnations...
 
-Ces souvenirs n'auraient jamais refait surface, même après des dizaines de milliers d'années, sans la stimulation de l'aura du Grand Empereur. Pourtant, par une pure coïncidence, ces souvenirs s'éveillèrent!
+Ces souvenirs n'auraient jamais refait surface, même après des dizaines de milliers d'années, sans la stimulation de l'aura du Grand Empyréen. Pourtant, par une pure coïncidence, ces souvenirs s'éveillèrent!
 
 Et ces souvenirs qui s'éveillaient étaient la troisième âme!
 
 Dans la faille spatiale de la Mer des Nuages, le Daoïste aux Sept Couleurs s'échappa en panique. Il cracha du sang et disparut sans laisser de trace.
 
-Il ressentait désormais une peur extrême envers la faille de la Mer des Nuages. Il n'aurait jamais pu imaginer que la chasse à Wang Lin provoquerait l'apparition de l'aura d'un Grand Empereur.
+Il ressentait désormais une peur extrême envers la faille de la Mer des Nuages. Il n'aurait jamais pu imaginer que la chasse à Wang Lin provoquerait l'apparition de l'aura d'un Grand Empyréen.
 
 Sur l'autel, à l'intérieur de la faille, Wang Lin regarda avec stupeur le soleil entourer Cupidité et l'entraîner dans la faille.
 
@@ -80,13 +80,13 @@ La faille fut recouverte par un rayon de lumière dorée et disparut progressive
 
 Même à présent, Wang Lin restait perplexe. Il resta assis sur l'autel, songeant longuement avant de détourner le regard de la faille.
 
-« L'un des neuf soleils... Un Grand Empereur... »
+« L'un des neuf soleils... Un Grand Empyréen... »
 
 L'espace était plongé dans un silence absolu et toute lumière s'était éteinte. Wang Lin resta assis en silence sur l'autel, remémorant chaque événement.
 
-« Ces deux enfants sont en réalité des Grands Empereurs... Les légendaires Grands Empereurs du Continent Astral Immortel. Leur seule aura a suffi à faire fuir le Daoïste aux Sept Couleurs de terreur... » Les yeux de Wang Lin brillaient de plus en plus intensément.
+« Ces deux enfants sont en réalité des Grands Empyréens... Les légendaires Grands Empyréens du Continent Astral Immortel. Leur seule aura a suffi à faire fuir le Daoïste aux Sept Couleurs de terreur... » Les yeux de Wang Lin brillaient de plus en plus intensément.
 
-« Un jour, je deviendrai moi aussi un Grand Empereur!! » Wang Lin ferma les yeux, puis les rouvrit un instant plus tard, le cœur apaisé.
+« Un jour, je deviendrai moi aussi un Grand Empyréen!! » Wang Lin ferma les yeux, puis les rouvrit un instant plus tard, le cœur apaisé.
 
 « Le Daoïste aux Sept Couleurs n'osera plus revenir ici. Ce sera l'endroit le plus sûr. Je dois comprendre l'essence de la restriction, fusionner ces neuf gouttes de sang, et ce bras... » Wang Lin regarda le membre qui mesurait plusieurs centaines de pieds de long.
 
@@ -94,7 +94,7 @@ L'espace était plongé dans un silence absolu et toute lumière s'était étein
 
 Ces huit gouttes flottaient devant lui. Elles ne dégageaient aucune lumière, mais une puissante aura antique s'en échappait. Les sept étoiles de Dieu Antique de Wang Lin tournèrent rapidement pour former un vortex.
 
-Dans ses yeux droit et gauche, ses étoiles d'Ancien Démon et de Démon Antique apparurent également. L'allure actuelle de Wang Lin était extrêmement singulière.
+Dans ses yeux droit et gauche, ses étoiles d'Ancien Démon et d'Ancien Diable apparurent également. L'allure actuelle de Wang Lin était extrêmement singulière.
 
 « Le sang de Ye Mo contient toute la puissance des trois anciens clans... » Wang Lin saisit une goutte de sang et, après un instant de réflexion, la broya. Elle se divisa en sept parties qui furent absorbées par ses sept orifices.
 
@@ -116,7 +116,7 @@ Tandis que la brume se dissipait, des gémissements étouffés s'élevèrent de 
 
 À l'instant où cette étoile surgit, une tempête monstrueuse d'énergie démoniaque balaya le monde à l'intérieur de la faille. Toutes les bêtes s'agenouillèrent, n'osant plus bouger.
 
-Simultanément, dans son œil droit, la huitième étoile de Démon Diabolique apparut!
+Simultanément, dans son œil droit, la huitième étoile d'Ancien Diable apparut!
 
 Une énergie diabolique colossale jaillit, une force violente et cruelle qui balaya l'espace environnant.
 

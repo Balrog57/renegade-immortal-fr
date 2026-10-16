@@ -40,7 +40,7 @@ Cette tempête était d'une puissance redoutable et s'élança vers l'avant tand
 
 À la vue de ces papillons, même avec la force mentale de Wang Lin, son expression changea radicalement!
 
-« C’est... c'est le papillon formé par le Char de Guerre de l'Extermination Divine! » haleta Wang Lin, avant de découvrir immédiatement une différence. Le papillon issu du char de guerre était multicolore et d'une beauté extrême.
+« C’est... c'est le papillon formé par le Char de Guerre Divin! » haleta Wang Lin, avant de découvrir immédiatement une différence. Le papillon issu du char de guerre était multicolore et d'une beauté extrême.
 
 Cependant, ces neuf papillons étaient d'un noir total; il était évident que la puissance de ces créatures tendait vers un autre extrême par rapport au sien!
 
@@ -114,6 +114,6 @@ Cette flèche était démesurée: elle mesurait plus de 300 pieds de long et sep
 
 Ce qui fit vaciller tous les cultivateurs environnants, c'étaient ces taches de sang rouge foncé!
 
-Dès l'apparition de la flèche, même l'expression du Dieu de Sang et de ses compagnons changea. Même Maître Étincelle, qui combattait Wudo Chan, trembla en voyant cette flèche de 300 pieds.
+Dès l'apparition de la flèche, même l'expression du Dieu de Sang et de ses compagnons changea. Même Maître Yan Leizi, qui combattait Wudo Chan, trembla en voyant cette flèche de 300 pieds.
 
 « Flèche du Pseudo Vide du Nirvana! »

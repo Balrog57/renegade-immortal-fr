@@ -14,7 +14,7 @@ C'était la première confrontation entre Maître Lu Fu et Wang Lin! Bien qu'auc
 
 Ce simple rire contenait toute la puissance de culture de Maître Lu Fu, un cultivateur du troisième pas. Ce rire fit trembler le domaine stellaire au point qu'il sembla sur le point de s'effondrer. D'innombrables fissures spatiales apparurent et chargèrent vers Wang Lin comme des épées acérées!
 
-C'était comme si une bourrasque puissante s'abattait sur lui. La véritable force de Maître Lu Fu était révélée: si Wang Lin avait été un cultivateur du cinquième niveau de la Peste Céleste, son corps aurait été déchiré par ce rire et son âme originelle aurait été anéantie!
+C'était comme si une bourrasque puissante s'abattait sur lui. La véritable force de Maître Lu Fu était révélée: si Wang Lin avait été un cultivateur du cinquième niveau du Fléau Céleste, son corps aurait été déchiré par ce rire et son âme originelle aurait été anéantie!
 
 Même d'autres cultivateurs du troisième pas au stade initial du Vide du Nirvana seraient incapables de poursuivre leur progression après avoir résisté à un tel éclat de rire!
 
@@ -78,11 +78,11 @@ Sa voix émana du vortex.
 
 « La bataille sur la planète Suzaku semble dater d'hier. L'épée du compagnon Lu Fu est toujours aussi fulgurante! » Wang Lin ne s'arrêta pas et continua sa marche avec calme. Après avoir parlé, il regarda Maître Yan Leizi et joignit les mains en signe de salut.
 
-« Compagnon Yan Leizi, comment allez-vous? Je suis venu à Luotian pour régler quelques vieux comptes, j'espère que vous pourrez me pardonner. » L'aîné d'autrefois était devenu un compagnon cultivateur. Ce n'était pas par volonté de Wang Lin, mais parce que l'actuel Maître Yan Leizi ne pouvait supporter qu'on l'appelle encore « aîné ».
+« Compagnon Yan Leizi, comment allez-vous? Je suis venu à Luotian pour régler quelques vieux comptes, j'espère que vous pourrez me pardonner. » Le Senior d'autrefois était devenu un compagnon cultivateur. Ce n'était pas par volonté de Wang Lin, mais parce que l'actuel Maître Yan Leizi ne pouvait supporter qu'on l'appelle encore « Senior ».
 
 Bien que les mots de Wang Lin fussent « compagnon cultivateur », Maître Yan Leizi ressentit une pointe de gloire mêlée d'amertume. Il se leva prestement et rendit le salut.
 
-« Luotian est la demeure de l'Aîné, il n'est nul besoin de parler de pardon. »
+« Luotian est la demeure du Senior, il n'est nul besoin de parler de pardon. »
 
 Wang Lin esquissa un léger sourire et continua de progresser vers le vortex.
 

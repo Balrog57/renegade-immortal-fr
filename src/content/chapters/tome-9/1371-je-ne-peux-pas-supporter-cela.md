@@ -26,19 +26,19 @@ Wang Lin demanda doucement: « Une marionnette? »
 
 Zhong Grand Rouge, tout excité, répondit promptement: « Maître, cette marionnette est très coûteuse ici et elle est faite de matériaux inconnus. Elle peut manifester la puissance d'un cultivateur normal et possède même un sens divin. C'est une merveille! »
 
-L'expression de Wang Lin resta imperturbable. Il était intéressé par la marionnette. Après un court instant de réflexion, il demanda lentement: « Y a-t-il des nouvelles concernant le Clan du Souci? »
+L'expression de Wang Lin resta imperturbable. Il était intéressé par la marionnette. Après un court instant de réflexion, il demanda lentement: « Y a-t-il des nouvelles concernant le Clan des Moineaux de Feu? »
 
-« Il n'y a pas beaucoup de membres du Clan du Souci ici, et je n'en ai rencontré aucun sur cette planète. Cependant, d'après mes informations, ils sont principalement regroupés sur une planète aux attributs de feu à proximité. Quant aux détails précis, ce petit ne les maîtrise pas encore tout à fait, mais je devrais y voir clair bientôt. » Zhong Grand Rouge martela sa poitrine en parlant.
+« Il n'y a pas beaucoup de membres du Clan des Moineaux de Feu ici, et je n'en ai rencontré aucun sur cette planète. Cependant, d'après mes informations, ils sont principalement regroupés sur une planète aux attributs de feu à proximité. Quant aux détails précis, ce petit ne les maîtrise pas encore tout à fait, mais je devrais y voir clair bientôt. » Zhong Grand Rouge martela sa poitrine en parlant.
 
 Les yeux de Wang Lin brillèrent d'un éclat imperceptible. Bien que son essence de tonnerre fût complète, les éclairs qui l'accompagnaient étaient encore imparfaits. Il était toutefois confiant dans sa capacité à corriger cela. S'il se trouvait toujours dans le Système Stellaire Antique, c'était pour son essence de feu!
 
-Afin de parfaire son essence de feu et d'éveiller à nouveau l'Oiseau Vermillon, il devait absorber une quantité massive d'énergie ignée. Le Clan du Souci était le premier choix de Wang Lin, et il n'avait pas l'intention de les laisser filer si facilement.
+Afin de parfaire son essence de feu et d'éveiller à nouveau l'Oiseau Vermillon, il devait absorber une quantité massive d'énergie ignée. Le Clan des Moineaux de Feu était le premier choix de Wang Lin, et il n'avait pas l'intention de les laisser filer si facilement.
 
-Cependant, il ne bénéficierait pas de la même chance qu'avec le Clan du Tonnerre Dispersé, où l'aide lui avait facilité la traversée des obstacles. Il n'était pas non plus réaliste de tenter de s'infiltrer dans le Clan du Souci pour en atteindre le cœur.
+Cependant, il ne bénéficierait pas de la même chance qu'avec le Clan du Tonnerre Dispersé, où l'aide lui avait facilité la traversée des obstacles. Il n'était pas non plus réaliste de tenter de s'infiltrer dans le Clan des Moineaux de Feu pour en atteindre le cœur.
 
-Wang Lin avait initialement envisagé cette option, mais il était désormais traqué par l'ensemble du Système Stellaire Antique. Il était fort probable que les poursuivants arrivent avant même qu'il ne puisse pénétrer au sein du Clan du Souci.
+Wang Lin avait initialement envisagé cette option, mais il était désormais traqué par l'ensemble du Système Stellaire Antique. Il était fort probable que les poursuivants arrivent avant même qu'il ne puisse pénétrer au sein du Clan des Moineaux de Feu.
 
-Pourtant, une méthode étrange traversa l'esprit de Wang Lin. S'il réussissait, il pourrait complètement dévorer le feu du Clan du Souci!
+Pourtant, une méthode étrange traversa l'esprit de Wang Lin. S'il réussissait, il pourrait complètement dévorer le feu du Clan des Moineaux de Feu!
 
 « Zhong Grand Rouge, prends mes pilules et achète une marionnette. » Après avoir pesé sa décision, Wang Lin agita la main droite, faisant apparaître trois pilules. Un parfum exquis emplit la grotte. Zhong Grand Rouge fixa les pilules en déglutissant avec difficulté avant de les recevoir respectueusement.
 
@@ -112,7 +112,7 @@ La salle était immense et une statue trônait au centre. C'était une sculpture
 
 « Acheter une marionnette? Que peuvent bien acheter deux petits cultivateurs de la Formation de l'Âme comme vous? » Une voix glaciale résonna alors qu'un individu sortait des profondeurs de la salle.
 
-L'homme portait du noir et paraissait âgé d'une quarantaine d'années. Son expression était sombre et son regard empreint de mépris. Une marque de scorpion féroce ornait son entreceinte.
+L'homme portait du noir et paraissait âgé d'une quarantaine d'années. Son expression était sombre et son regard empreint de mépris. Une marque de scorpion féroce ornait entre ses sourcils.
 
 Ce scorpion semblait si réaliste qu'il paraissait presque vivant; sa queue oscillait légèrement, dégageant une sensation démoniaque.
 

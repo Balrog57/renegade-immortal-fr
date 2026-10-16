@@ -22,7 +22,7 @@ Tout cela se produisit en un instant, et Wang Lin n'avait fait que lever un doig
 
 Il ne daigna pas regarder le résultat. Après avoir pointé du doigt, il se retourna pour suivre l'Empreinte de l'Esprit Guerrier.
 
-Au moment où le mille-pattes mourut, des rugissements de douleur résonnèrent au loin. C'étaient les milliers d'autres mille-pattes qui arrivaient avec encore plus de célérité.
+Au moment où le mille-pattes mourut, des rugissements de douleur résonnèrent au loin. C'étaient plusieurs autres mille-pattes de mille pieds qui arrivaient avec encore plus de célérité.
 
 La haine qui animait le mille-pattes bleu de dix mille pieds s'intensifia. Il poussa un rugissement et accéléra sa course.
 
@@ -40,7 +40,7 @@ Au même moment, le feu entourant la créature devint incontrôlable et se jeta 
 
 Le mille-pattes n'eut même pas le temps d'émettre un sifflement misérable qu'il fut consumé par les flammes. De plus, le feu qui le dévorait n'était plus rouge, mais révélait des nuances bleutées.
 
-À l'instant où cette boule de feu apparut, deux autres mille-pattes chargèrent Wang Lin. Les yeux de ce dernier s'illuminèrent. À l'origine, il ne voulait pas se soucier de ces bêtes, mais elles semblaient refusant de céder, à moins d'être anéanties. Une lueur de froideur passa dans son regard tandis que Wang Lin décidait de passer à l'offensive. L'étoile formée par la loi apparut entre ses sourcils et un feu bleu émana de lui avant d'être projeté dans la brume sur sa gauche.
+À l'instant où cette boule de feu apparut, deux autres mille-pattes chargèrent Wang Lin. Les yeux de ce dernier s'illuminèrent. À l'origine, il ne voulait pas se soucier de ces bêtes, mais elles semblaient refuser de céder, à moins d'être anéanties. Une lueur de froideur passa dans son regard tandis que Wang Lin décidait de passer à l'offensive. L'étoile formée par la loi apparut entre ses sourcils et un feu bleu émana de lui avant d'être projeté dans la brume sur sa gauche.
 
 Un instant plus tard, un bruit fracassant retentit dans la brume, suivi par l'écho d'une flamme bleue monstrueuse. Au moment où le cri misérable se fit entendre, il disparut aussitôt, et une chaleur infinie se propagea à travers la brume.
 
@@ -96,7 +96,7 @@ Le fracas fut céleste lorsque les deux feux entrèrent en collision. L'Oiseau V
 
 La mer de feu devant le mille-pattes s'effondra instantanément et son corps explosa sous la pression du feu repoussé. La moitié de sa carcasse était un amas sanglant, mais il ne mourut pas. Il laissa échapper un sifflement misérable et se retira rapidement dans la brume qui se dissipait.
 
-Dans le brouillard, le vieil homme de la Secte Everlast avait tout observé, et il était sous le choc!
+Dans le brouillard, le vieil homme de la Secte Éternelle avait tout observé, et il était sous le choc!
 
 « Qui est cet individu?! Il contrôle un feu étonnamment plus puissant que celui du mille-pattes de feu et possède un niveau de culture extrêmement élevé. Sans ses blessures, même moi je ne serais pas confiant pour l'affronter!! Mais il n'est pas de la Secte Divine. J'ai déjà vu l'Empreinte de l'Esprit Guerrier par le passé, et bien que la sienne soit très similaire, ce n'est pas elle! »
 

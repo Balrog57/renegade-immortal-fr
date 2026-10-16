@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2088 - Suddenly Looking Back
 slug: soudain-un-regard-vers-larriere
 ---
-Dans le Royaume Divin Immemorial, au centre du continent circulaire, se dressait la montagne enneigée aux sept couleurs, et deux silhouettes s'y tenaient debout.
+Dans le Royaume Divin Immémorial, au centre du continent circulaire, se dressait la montagne enneigée aux sept couleurs, et deux silhouettes s'y tenaient debout.
 
 Il s'agissait de Wang Lin et Li Muwan.
 
@@ -36,13 +36,13 @@ Ce geste fit jaillir trois rayons de lumière vers la terre.
 
 Le premier rayon était une demi-boussole. Il fonça vers le sol et fit trembler le continent circulaire. La partie illusoire de la terre devint réelle, et d'innombrables tranchées et montagnes se mirent à briller intensément. Une fois assemblée, elle commença à s'activer.
 
-Le deuxième rayon était un aiguille géante. Elle descendit rapidement pour fusionner avec la montagne enneigée aux sept couleurs. L'aiguille balaya alors la terre.
+Le deuxième rayon était une aiguille géante. Elle descendit rapidement pour fusionner avec la montagne enneigée aux sept couleurs. L'aiguille balaya alors la terre.
 
 Une aura puissante émana du sol et résonna à travers le monde.
 
 Le troisième rayon était une perle, une perle blanche: la Perle Défiant le Ciel!
 
-Elle flotta dans l'espace en émettant une douce lueur. Son apparition permit à l'ensemble de l'objet, la Boussole des Frontières, de devenir complet.
+Elle flotta dans l'espace en émettant une douce lueur. Son apparition permit à l'ensemble de l'objet, la Boussole des Limites, de devenir complet.
 
 Wang Lin murmura doucement: « Retirez-vous! »
 
@@ -50,7 +50,7 @@ Wang Lin murmura doucement: « Retirez-vous! »
 
 La boussole bourdonna et flotta au-dessus de la main gauche de Wang Lin tout en continuant de pivoter. Elle rétrécit encore une fois, et ce qui apparut dans la main de Wang Lin n'était plus que la Perle Défiant le Ciel!
 
-La Perle Défiant le Ciel était l'élément le plus crucial de la Boussole des Frontières, et elle ne paraissait pas différente une fois la boussole complète.
+La Perle Défiant le Ciel était l'élément le plus crucial de la Boussole des Limites, et elle ne paraissait pas différente une fois la boussole complète.
 
 Tenant la perle, Wang Lin regarda en arrière. Il ne voyait ni ciel ni terre, seulement le vide. Au bout de ce néant, il aperçut une silhouette.
 
@@ -104,7 +104,7 @@ L'homme en robe grise leva les yeux et sourit: « Je le suis, tout comme vous. �
 
 « À part cet avatar... » ajouta l'homme en gris avec un sourire.
 
-Wang Lin réfléchit silencieusement. Sans jamais lâcher la main de Li Muwan, il regarda l'homme et demanda: « Avez-vous créé la Boussole des Frontières? En avez-vous scellé l'esprit du trésor à l'intérieur? »
+Wang Lin réfléchit silencieusement. Sans jamais lâcher la main de Li Muwan, il regarda l'homme et demanda: « Avez-vous créé la Boussole des Limites? En avez-vous scellé l'esprit du trésor à l'intérieur? »
 
 « La quatrième étape, le Piétinement des Cieux, est la limite du Royaume de la Terre Défiante, mais dans le vaste univers des quatre royaumes, certains ont atteint la cinquième étape... ou même la sixième... Avant que je ne vienne ici, ce plateau existait déjà.
 
@@ -128,7 +128,7 @@ Après leur disparition, la pièce blanche sur le plateau devint progressivement
 
 Wang Lin était parti avec Li Muwan.
 
-Sur le Continent Astral Immortel, personne d'autre que Gu Dao ne savait ce qui s'était produit dans le Royaume Divin Immemorial.
+Sur le Continent Astral Immortel, personne d'autre que Gu Dao ne savait ce qui s'était produit dans le Royaume Divin Immémorial.
 
 Wang Lin s'assit sur une montagne paisible au sein du Clan Ancien. Li Muwan s'installa derrière lui et l'observait tendrement. Wang Lin resta ainsi pendant plusieurs jours.
 
@@ -172,7 +172,7 @@ Wang Lin demanda soudain: « L'as-tu vu? »
 
 Leurs silhouettes s'éloignèrent peu à peu jusqu'à se fondre à l'horizon.
 
-Ils ne virent pas qu'à cet instant, dans un recoin de la Ville de la Pierre Noire, non loin de cette montagne, une femme en blanc tournait le dos aux lumières des innombrables foyers. Tandis qu'elle contemplait le rayon de lumière s'évanouir dans le ciel, des larmes coulèrent au coin de ses yeux, glissant sur sa joue pour perler sur ses vêtements.
+Ils ne virent pas qu'à cet instant, dans un recoin de la ville de Pierre Noire, non loin de cette montagne, une femme en blanc tournait le dos aux lumières des innombrables foyers. Tandis qu'elle contemplait le rayon de lumière s'évanouir dans le ciel, des larmes coulèrent au coin de ses yeux, glissant sur sa joue pour perler sur ses vêtements.
 
 « Laisse tomber, oublions tout... Le poisson de la vie passée a aussi vu l'oiseau s'effacer dans les eaux... » murmura la femme, le regard embrumé. Le poisson dans l'eau semblait pleurer, mais ses larmes se dissolvaient dans l'onde, si bien que l'oiseau ne pouvait les voir.
 

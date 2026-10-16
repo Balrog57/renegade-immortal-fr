@@ -28,7 +28,7 @@ La voix légèrement irritée de l'Empereur Céleste résonna depuis le Temple d
 
 Le jeune homme en vert affichait une expression amère lorsqu'il regarda Wang Lin, puis le jeune homme à la chemise fleurie avant de prendre la parole.
 
-« Roi, partons... Ah, je me souviens que nous avons encore un fourneau de pilules en cours de raffinage. Si nous rentrons trop tard, les pilules seront gâchées. C'est ce fourneau de pilules que vous comptiez offrir à l'Exalté Céleste Hai Zi. »
+« Roi, partons... Ah, je me souviens que nous avons encore un fourneau de pilules en cours de raffinage. Si nous rentrons trop tard, les pilules seront gâchées. C'est ce fourneau de pilules que vous comptiez offrir à l'Exalté Empyréen Hai Zi. »
 
 « Des pilules? Oui, je suis toujours en train d'en raffiner! » Le jeune homme à la chemise fleurie sembla soudain se souvenir de quelque chose et se tourna pour partir. Cependant, il s'arrêta brusquement, se retourna et rugit vers le jeune homme en vert:
 
@@ -62,13 +62,13 @@ L'Empereur Céleste fronça les sourcils et rugit: « Gardes de l'Armure Noire, 
 
 Wang Lin réfléchit en silence. Il était venu dans la cité ancestrale pour voir le fou. Même si celui-ci avait perdu la mémoire, Wang Lin n'avait aucun regret. Désormais, il voulait partir.
 
-« Il n'est plus nécessaire de poursuivre le défi. Wang Lin, puisque tu as réussi à franchir le 17e palais de l'Épreuve Empyrée, je t'accorde le titre de 49e Ascendant Empyrée du clan céleste! »
+« Il n'est plus nécessaire de poursuivre le défi. Wang Lin, puisque tu as réussi à franchir le 17e palais de l'Épreuve Empyréenne, je t'accorde le titre de 49e Ascendant Empyréen du clan céleste! »
 
-« Puisque tu possèdes des cheveux blancs et que tu as obtenu la mèche blanche de la Bête Lion Céleste, je te décerne le titre d'Ascendant Empyrée aux Cheveux Blancs! »
+« Puisque tu possèdes des cheveux blancs et que tu as obtenu la mèche blanche de la Bête Lion Céleste, je te décerne le titre d'Ascendant Empyréen aux Cheveux Blancs! »
 
 « Tous les Ascendants Empyréens du clan céleste ont la possibilité d'entrer dans le lieu de culture clos de l'Ancêtre Céleste. Là-bas, tu recevras une immense fortune et jetteras des bases solides pour devenir un Grand Empyréen! »
 
-« Même ton niveau de culture y augmentera considérablement. Une personne possédant la lignée impériale n'a que trois chances d'y accéder au cours de sa vie. Quant à ceux qui ne possèdent pas cette lignée, ils ne pourront prétendre à cette chance qu'après avoir atteint le stade d'Ascendant Empyrée! »
+« Même ton niveau de culture y augmentera considérablement. Une personne possédant la lignée impériale n'a que trois chances d'y accéder au cours de sa vie. Quant à ceux qui ne possèdent pas cette lignée, ils ne pourront prétendre à cette chance qu'après avoir atteint le stade d'Ascendant Empyréen! »
 
 « Cette opportunité est extrêmement rare. Wang Lin, il y a eu des malentendus entre nous, et j'espère qu'ils seront résolus. Cultive avec ardeur dans le lieu de culture clos de l'Ancêtre Céleste afin de pouvoir aspirer à devenir le sixième soleil du clan céleste! »
 
@@ -98,7 +98,7 @@ Le vent et la neige arrivèrent en silence. Alors que les éléments s'intensifi
 
 La voix qui s'éleva n'était ni pressée ni lente, elle était d'une grande douceur.
 
-« Exaltée Céleste Hai Zi. » Wang Lin se retourna et la porte s'ouvrit délicatement. L'Exaltée Céleste Hai Zi se tenait là, ses longs cheveux flottant derrière elle. Quelques flocons de neige encore intacts parsemaient sa chevelure, ajoutant une grâce supplémentaire à cette femme déjà magnifique.
+« Exalté Empyréen Hai Zi. » Wang Lin se retourna et la porte s'ouvrit délicatement. L'Exalté Empyréen Hai Zi se tenait là, ses longs cheveux flottant derrière elle. Quelques flocons de neige encore intacts parsemaient sa chevelure, ajoutant une grâce supplémentaire à cette femme déjà magnifique.
 
 « Vous êtes venu dans la cité ancestrale, pourquoi ne pas être allé au Mont de l'Empereur... Aujourd'hui, le Mont de l'Empereur n'a pas ses feuilles rouges, mais il est couvert de neige. Wang Lin, je suis venue sur ordre du Maître pour vous inviter au Mont de l'Empereur. »
 
@@ -114,11 +114,11 @@ La voix qui s'éleva n'était ni pressée ni lente, elle était d'une grande dou
 
 Les environs étaient plongés dans un silence total, seul le bruit de la neige subsistait. On aurait dit que même le sifflement du vent s'était évanoui. C'était une longue rue bordée de demeures plongées dans l'obscurité, ce qui lui donnait un aspect sinistre. Une pointe d'intention meurtrière semblait se tapir dans la neige!
 
-Wang Lin s'arrêta brusquement, une lueur glaciale perçant son regard. Il ressentit un puissant sentiment de danger. L'Exaltée Céleste Hai Zi s'immobilisa également et scruta soudainement les alentours.
+Wang Lin s'arrêta brusquement, une lueur glaciale perçant son regard. Il ressentit un puissant sentiment de danger. L'Exalté Empyréen Hai Zi s'immobilisa également et scruta soudainement les alentours.
 
 « Il y a une fluctuation d'un sceau! »
 
-« Personne ne sait que je suis venue vous chercher! » expliqua rapidement l'Exaltée Céleste Hai Zi.
+« Personne ne sait que je suis venue vous chercher! » expliqua rapidement l'Exalté Empyréen Hai Zi.
 
 Wang Lin réfléchit en silence, mais la froideur dans ses yeux s'intensifia tandis qu'il fixait le lointain.
 

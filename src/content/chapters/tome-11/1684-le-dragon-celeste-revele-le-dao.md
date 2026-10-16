@@ -46,9 +46,9 @@ Après un long moment, l'avatar de Wang Lin se retourna et fit un pas vers son c
 
 « Cependant, quoi qu'il en soit, cette bataille finale sera très intéressante... Le Daoïste aux Sept Couleurs, le Vieux Fantôme Zhan, les quatre généraux célestes qui veulent l'éveil du Souverain Céleste, et enfin le cultivateur du Continent Astral Immortel venu par le passage du Royaume Céleste du Vent... »
 
-« Avant tout cela, laissez-moi orchestrer un prélude chaotique pour cette bataille finale! » Les yeux de Wang Lin brillèrent et il quitta la formation en roue, se dirigeant vers le Système d'Étoiles Antique.
+« Avant tout cela, laissez-moi orchestrer un prélude chaotique pour cette bataille finale! » Les yeux de Wang Lin brillèrent et il quitta la formation en roue, se dirigeant vers le Système Stellaire Antique.
 
-« Je vais détruire le Royaume Céleste Antique du Royaume Extérieur! » Ses yeux étaient empreints d'une intention meurtrière alors qu'il s'élançait dans le Système d'Étoiles Antique. Il se transforma en un rayon de lumière, fonçant en avant tout en libérant la plénitude de sa culture.
+« Je vais détruire le Royaume Céleste Antique du Royaume Extérieur! » Ses yeux étaient empreints d'une intention meurtrière alors qu'il s'élançait dans le Système Stellaire Antique. Il se transforma en un rayon de lumière, fonçant en avant tout en libérant la plénitude de sa culture.
 
 Il ne cachait ni son aura ni sa silhouette; il annonçait directement à l'ensemble du Royaume Extérieur que lui, Wang Lin, était arrivé!
 
@@ -56,19 +56,19 @@ Les étoiles grondèrent et, alors que le Sens Divin de Wang Lin se propageait, 
 
 Ils pouvaient clairement ressentir une intention meurtrière terrifiante émanant du Royaume Intérieur!
 
-Wang Lin ne savait pas où se trouvait précisément le Royaume Céleste Antique du Royaume Extérieur et il ne cherchait pas aveuglément. Au lieu de cela, il plongea dans les profondeurs du Système d'Étoiles Antique. L'emplacement exact importait peu; dans trois jours, lorsque le Royaume Céleste du Royaume Intérieur s'ouvrirait et que les quatre généraux descendraient, il serait capable de ressentir celui du Royaume Extérieur qui s'ouvrirait simultanément!
+Wang Lin ne savait pas où se trouvait précisément le Royaume Céleste Antique du Royaume Extérieur et il ne cherchait pas aveuglément. Au lieu de cela, il plongea dans les profondeurs du Système Stellaire Antique. L'emplacement exact importait peu; dans trois jours, lorsque le Royaume Céleste du Royaume Intérieur s'ouvrirait et que les quatre généraux descendraient, il serait capable de ressentir celui du Royaume Extérieur qui s'ouvrirait simultanément!
 
-Tandis que le Sens Divin de Wang Lin balayait le Système d'Étoiles Antique, le Souverain, dans son autre palais, fixait l'horizon. Sa main droite desséchée se serra en un poing qu'il ne relâcha pas pendant longtemps.
+Tandis que le Sens Divin de Wang Lin balayait le Système Stellaire Antique, le Souverain, dans son autre palais, fixait l'horizon. Sa main droite desséchée se serra en un poing qu'il ne relâcha pas pendant longtemps.
 
 Il médita longuement en silence, mais finalement, il ne put prendre la décision de tuer Wang Lin. Il craignait énormément l'arc de Wang Lin et, tant que celui-ci n'avait pas utilisé ses deux dernières flèches, il n'oserait pas agir!
 
 Deux ans auparavant, il avait voulu lancer une attaque surprise au milieu du chaos, mais Wang Lin l'avait détecté. Il avait alors été contraint de battre en retraite, impuissant, alors que Wang Lin le provoquait.
 
-« Il est apparu dans le Système d'Étoiles Antique, pourquoi est-il venu... Cherche-t-il à me provoquer pour m'attirer et me tuer... » Les yeux du Souverain étaient emplis de suspicion. Il ne comprenait pas pourquoi Wang Lin se montrait avec une telle arrogance dans le Système d'Étoiles Antique.
+« Il est apparu dans le Système Stellaire Antique, pourquoi est-il venu... Cherche-t-il à me provoquer pour m'attirer et me tuer... » Les yeux du Souverain étaient emplis de suspicion. Il ne comprenait pas pourquoi Wang Lin se montrait avec une telle arrogance dans le Système Stellaire Antique.
 
 « Ce vieil homme ne s'approchera pas, je veux voir ce qu'il est capable de faire! » Le Souverain ne pouvait que souffrir en silence. Sa culture était transcendante et, sans sa crainte de l'arc, il aurait immédiatement tué Wang Lin.
 
-Également dans le Système d'Étoiles Antique, au sein du vortex formé par plusieurs étoiles où brillait une lumière aux sept couleurs, se trouvait le Daoïste aux Sept Couleurs. Il affichait un regard indifférent alors qu'il contemplait le lointain avec un léger sourire.
+Également dans le Système Stellaire Antique, au sein du vortex formé par plusieurs étoiles où brillait une lumière aux sept couleurs, se trouvait le Daoïste aux Sept Couleurs. Il affichait un regard indifférent alors qu'il contemplait le lointain avec un léger sourire.
 
 « L'arc et les flèches de Li Guang sont entre ses mains. Bien que j'aie demandé au Souverain de les lui remettre, elles font partie de sa propre destinée. Maintenant qu'il est revenu ici, que compte-t-il faire... Il ressemble beaucoup au Vieux Fantôme Zhan. S'il n'est pas le troisième, alors il est une existence mystérieuse dans son monde caverneux. »
 
@@ -76,7 +76,7 @@ Deux ans auparavant, il avait voulu lancer une attaque surprise au milieu du cha
 
 « La formation sanguine est complète; bientôt, je saurai où se trouve celui qui s'est réincarné d'innombrables fois! Je vous ai cherché pendant des éons. Je veux savoir qui vous êtes aujourd'hui après tant de réincarnations!!! »
 
-Dans le Système d'Étoiles Antique, sur une planète de culture, une femme en blanc était assise. Elle était d'une grande beauté, mais dégageait une aura si froide qu'elle semblait être une montagne de glace, comme si elle était faite de neige. Ses yeux étaient clos, mais à cet instant, elle les ouvrit soudainement.
+Dans le Système Stellaire Antique, sur une planète de culture, une femme en blanc était assise. Elle était d'une grande beauté, mais dégageait une aura si froide qu'elle semblait être une montagne de glace, comme si elle était faite de neige. Ses yeux étaient clos, mais à cet instant, elle les ouvrit soudainement.
 
 « C'est lui! » Cette femme était la troisième des huit concubines du Souverain Céleste!
 
@@ -84,7 +84,7 @@ Elle n'avait pas participé à la guerre contre le Royaume Intérieur. Après av
 
 « Pour qu'il apparaisse ici, que va-t-il faire... »
 
-Toujours dans le Système d'Étoiles Antique, il y avait une immense faille. Dans cette brèche, foisonnant de fleurs et d'oiseaux, siégeait la septième concubine.
+Toujours dans le Système Stellaire Antique, il y avait une immense faille. Dans cette brèche, foisonnant de fleurs et d'oiseaux, siégeait la septième concubine.
 
 À cet instant, elle ouvrit les yeux, son regard brillant d'une lumière étrange.
 
@@ -96,7 +96,7 @@ La présence de Wang Lin exerçait une pression immense sur eux en raison de l'a
 
 Presque tous les cultivateurs de la troisième étape verrouillèrent l'aura de Wang Lin à distance. Ignorant ses intentions, ils étaient extrêmement vigilants.
 
-Lorsque les sens divins de ces cultivateurs de la troisième étape se fixèrent sur lui, Wang Lin cessa sa progression. À ce moment, il se trouvait déjà près du centre du Système d'Étoiles Antique. Peu importe sa destination, il pourrait l'atteindre presque instantanément.
+Lorsque les sens divins de ces cultivateurs de la troisième étape se fixèrent sur lui, Wang Lin cessa sa progression. À ce moment, il se trouvait déjà près du centre du Système Stellaire Antique. Peu importe sa destination, il pourrait l'atteindre presque instantanément.
 
 Une fois arrêté, Wang Lin s'assit et ferma les yeux. Il commença à cultiver silencieusement en attendant.
 
@@ -106,7 +106,7 @@ Le temps s'écoulait lentement. En un clin d'œil, il ne restait plus que 12 heu
 
 Cependant, à cet instant précis, hormis Wang Lin, personne ne savait ce qui allait arriver. Même le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan n'avaient aucun contrôle sur cet événement.
 
-Il se pourrait qu'une seule autre personne pressente l'imminence du changement: l'Omniscient, assis sur ce rocher dans la Rivière des Appels, là où Wang Lin ne l'avait pas détecté!
+Il se pourrait qu'une seule autre personne pressente l'imminence du changement: l'Omniscient, assis sur ce rocher dans la Rivière Invoquée, là où Wang Lin ne l'avait pas détecté!
 
 Les yeux de l'Omniscient brillaient d'une lumière étrange tandis qu'il baissait la tête, ses mains s'agitant frénétiquement devant lui. Tandis qu'il divinait, son regard devenait de plus en plus intense et une expression d'exultation apparut sur son visage.
 
@@ -120,7 +120,7 @@ La silhouette de Wang Lin demeurait immobile alors qu'il cultivait lentement pou
 
 « C'est cette chose... » Wang Lin tourna la tête vers la droite, son visage prenant progressivement une expression étrange.
 
-À la droite de Wang Lin, dans les étoiles lointaines, un groupe de centaines de cultivateurs du Système d'Étoiles Antique arrivait en volant. Leurs cheveux étaient ébouriffés et une substance inconnue maculait leurs visages; ils arboraient des couleurs étranges et variées.
+À la droite de Wang Lin, dans les étoiles lointaines, un groupe de centaines de cultivateurs du Système Stellaire Antique arrivait en volant. Leurs cheveux étaient ébouriffés et une substance inconnue maculait leurs visages; ils arboraient des couleurs étranges et variées.
 
 En avançant, ils poussèrent tous un rugissement unanime.
 

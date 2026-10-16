@@ -28,7 +28,7 @@ La main sur la poitrine, il inversa toute son aura de mort pour utiliser le Gran
 
 Le sortilège Qi Xi convertissait de force l'aura de mort en force vitale! Son corps putréfié commença à se régénérer rapidement.
 
-Cependant, avant qu'il ne puisse achever son sortilège, Wang Lin se trouvait déjà à moins de dix mètres de lui. Lorsqu'il fut à portée, il pointa simplement le doigt vers l'avant.
+Cependant, avant qu'il ne puisse achever son sortilège, Wang Lin se trouvait déjà à moins de trente pieds de lui. Lorsqu'il fut à portée, il pointa simplement le doigt vers l'avant.
 
 Des bruits de craquements résonnèrent et les bras de l'ancêtre de la famille Xiang s'effondrèrent en chair décomposée. Une douleur fulgurante le submergea et il tenta de reculer précipitamment hors du cercueil. Mais avant qu'il ne puisse s'échapper, Wang Lin pointa à nouveau le doigt.
 
@@ -66,7 +66,7 @@ Cette silhouette étincelait intensément. À première vue, elle ressemblait à
 
 « Tuer est tuer, à quoi bon tout ce baratin? Aujourd'hui, je tue. Quiconque osera résister mourra! » Wang Lin serra le poing droit et broya la tête de l'ancêtre de la famille Xiang. Il s'élança ensuite dans les airs et pointa l'épée descendante de son doigt!
 
-Ce geste contenait le pouvoir de l'Ordre Ancien de Wang Lin, sa culture, ainsi que ses essences de tonnerre et de feu. Un grondement de tonnerre résonna lors de la collision avec l'épée.
+Ce geste contenait le pouvoir de l'Ordre Antique de Wang Lin, sa culture, ainsi que ses essences de tonnerre et de feu. Un grondement de tonnerre résonna lors de la collision avec l'épée.
 
 Un éclat de froideur traversa les yeux de Wang Lin. Après son geste, une lueur sanglante jaillit et l'épée de sang s'élança.
 

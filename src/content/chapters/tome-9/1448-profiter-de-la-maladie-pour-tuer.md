@@ -26,7 +26,7 @@ Alors que sa voix résonnait, l'océan contenu dans la peinture déferla avec fu
 
 Des grondements tonitruants éclatèrent et d'immenses volutes de gaz blanc jaillirent dans les airs. La tempête de feu de Wang Lin s'effondra et le feu chromatique fut repoussé. L'océan entier s'était évaporé, ne laissant que la montagne! Wang Lin cracha du sang et fut repoussé de plusieurs pas, mais son expression restait féroce, empreinte d'une pointe de folie.
 
-Il ne pouvait laisser cet homme partir! Il allait tuer un puissant cultivateur à un demi-pas du troisième stade. « Esprit de la montagne! » L'Estimé Ling Dong était à moins de trente mètres de sortir du brouillard et il ignora l'esprit dao de feu derrière lui. Il agita sa main droite et la montagne chargea vers Wang Lin. « Recule! » La voix de l'Estimé Ling Dong fit trembler le monde.
+Il ne pouvait laisser cet homme partir! Il allait tuer un puissant cultivateur à un demi-pas du troisième stade. « Esprit de la montagne! » L'Estimé Ling Dong était à moins de trente pieds de sortir du brouillard et il ignora l'esprit dao de feu derrière lui. Il agita sa main droite et la montagne chargea vers Wang Lin. « Recule! » La voix de l'Estimé Ling Dong fit trembler le monde.
 
 Le feu brûlait dans l'œil gauche de Wang Lin et le tonnerre fulgurait dans son œil droit. Les deux forces convergèrent entre ses sourcils pour former un éclair de tonnerre ardent. Il fut projeté vers la montagne semblable à une météorite.
 
@@ -40,7 +40,7 @@ La montagne s'effondra soudainement et les yeux de l'Estimé Ling Dong se rempli
 
 Le Feu Éthéré apparut soudainement au cœur du corps de l'Estimé Ling Dong, totalement pris au dépourvu. L'attaque fut si rapide qu'il n'eut aucun moyen de s'y préparer.
 
-L'Estimé Ling Dong poussa un cri déchirant alors que le feu consumait son être. Il cracha du sang qui s'évapora instantanément. Une douleur atroce ravagea son corps et la restriction dans son âme originelle explosa, aggravant ses blessures. « Cultivateur du Feu Éthéré... maudit cultivateur du Feu Éthéré! » rugit l'Estimé Ling Dong, luttant contre la brûlure de sa chair pour tenter d'avancer. Il était à moins de six mètres de sortir du brouillard. Alors qu'il faisait un pas, sa main déchira soudainement l'espace devant lui et il hurla: « Ouvre le Grand Domaine Démoniaque de Ling Dong! Je m'offre en Flamme Joss pour invoquer le Dieu Démon de mon clan! »
+L'Estimé Ling Dong poussa un cri déchirant alors que le feu consumait son être. Il cracha du sang qui s'évapora instantanément. Une douleur atroce ravagea son corps et la restriction dans son âme originelle explosa, aggravant ses blessures. « Cultivateur du Feu Éthéré... maudit cultivateur du Feu Éthéré! » rugit l'Estimé Ling Dong, luttant contre la brûlure de sa chair pour tenter d'avancer. Il était à moins de vingt pieds de sortir du brouillard. Alors qu'il faisait un pas, sa main déchira soudainement l'espace devant lui et il hurla: « Ouvre le Grand Domaine Démoniaque de Ling Dong! Je m'offre en Flamme Joss pour invoquer le Dieu Démon de mon clan! »
 
 En un instant, une immense faille spatiale apparut devant lui, libérant une énergie démoniaque infinie. Tandis que la faille s'ouvrait, Wang Lin sortit l'Ancienne Feuille pour tenter de la sceller.
 

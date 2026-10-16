@@ -84,7 +84,7 @@ En regardant en arrière depuis le chariot, tout devint flou dans la neige. Il p
 
 Le trajet se poursuivit.
 
-Au printemps de la soixante-quatrième année, le chariot atteignit la ville de Su.
+Au printemps de la soixante-quatorzième année, le chariot atteignit la ville de Su.
 
 Au printemps, la vie reprenait ses droits à Su. Une fois la neige fondue, l'arôme de l'herbe et des fleurs imprégnait les cœurs de manière inoubliable.
 
@@ -98,7 +98,7 @@ Les notes d'une cithare résonnaient. C'était Li Muwan qui jouait.
 
 Les jours se succédèrent. Plusieurs mois passèrent, le printemps de Su s'évanouit, laissant place au mois de juin d'une année nouvelle.
 
-C'était juin de la soixante-cinquième année. Les feuilles de saule volaient à nouveau alors que Wang Lin, assis à la proue du bateau, buvait son vin d'osmanthus.
+C'était juin de la soixante-quinzième année. Les feuilles de saule volaient à nouveau alors que Wang Lin, assis à la proue du bateau, buvait son vin d'osmanthus.
 
 « Le monde est une auberge pour tous les êtres vivants... Le temps est l'hôte des âges... La frontière entre la vie et la mort n'est qu'un réveil... d'un rêve... » Wang Lin rit tandis que le bateau dérivait sur la rivière. Un pont de pierre se dressait devant lui, mais il était désert. Seul un oiseau blanc planait au-dessus de l'édifice.
 

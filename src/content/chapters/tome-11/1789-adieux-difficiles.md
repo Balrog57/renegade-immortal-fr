@@ -12,7 +12,7 @@ En un éclair, dix jours passèrent.
 
 Au cours de ces dix jours, Wang Lin retrouva Fan Shanlu. Elle était la première concubine du Souverain Céleste et possédait le lignage du Continent Astral Immortel. Elle pouvait ainsi franchir la porte pour retourner chez elle.
 
-Fan Shanlu partit, laissant derrière elle le grand navire. Wang Lin avait déjà perfectionné la voile principale et pouvait désormais la contrôler à sa guise. Il l'rangea dans son espace de stockage.
+Fan Shanlu partit, laissant derrière elle le grand navire. Wang Lin avait déjà perfectionné la voile principale et pouvait désormais la contrôler à sa guise. Il la rangea dans son espace de stockage.
 
 Durant ces dix jours, Wang Lin trouva également une planète de culture. Utilisant sa puissante culture, il repéra un corps qui venait de rendre l'âme, puis il le transforma. Il y insuffla l'âme d'un personnage secondaire pour former une âme originelle.
 
@@ -48,7 +48,7 @@ Initialement, une atmosphère de séparation pesait sur eux, mais les paroles de
 
 Wang Lin regarda calmement Situ Nan. Leurs regards se croisèrent et, après un long silence, Situ Nan soupira.
 
-« Espèce de petit morveux, neねoublie surtout pas de venir me chercher. Bon sang, avec la réincarnation, ce vieil homme doit absolument renaître en roi! » Alors que Situ soupirait, Wang Lin hocha la tête.
+« Espèce de petit morveux, n'oublie surtout pas de venir me chercher. Bon sang, avec la réincarnation, ce vieil homme doit absolument renaître en roi! » Alors que Situ soupirait, Wang Lin hocha la tête.
 
 « Si je ne suis pas mort, je viendrai certainement te chercher. »
 

@@ -46,7 +46,7 @@ Wang Lin connaissait trop bien ce sentiment; il l'avait accompagné durant la ma
 
 Un petit bouclier se trouvait au cœur de cette lumière. Ce bouclier avait été restauré et, bien qu'il ne fût pas indestructible, il contenait un sortilège nommé Rêve des Temps Anciens!
 
-Autrefois, avec le faible niveau de culture de Wang Lin, l'usage du Rêve des Temps Anciens suffisait à tuer un cultivateur de la Flétrissure Céleste. Aujourd'hui, grâce à ses recherches, il avait réussi à le transformer en utilisant le Dao du Rêve.
+Autrefois, avec le faible niveau de culture de Wang Lin, l'usage du Rêve des Temps Anciens suffisait à tuer un cultivateur du Fléau Céleste. Aujourd'hui, grâce à ses recherches, il avait réussi à le transformer en utilisant le Dao du Rêve.
 
 Le bouclier de lumière verte en main, la puissance ancienne de Wang Lin jaillit de son corps pour pénétrer le bouclier, invoquant ainsi le sortilège.
 
@@ -78,7 +78,7 @@ Alors que le pied géant s'abattait sur lui, l'enfant de Ye Mo poussa un cri et 
 
 Après avoir fendu ce pied colossal, l'enfant de Ye Mo se retourna et fixa Wang Lin au loin. Il chargea vers lui tout en déchirant les couches du ciel. Le monde gronda et de vastes failles apparurent partout. Chaque ombre des trois anciens clans qui tentait de lui barrer la route fut fendue en deux par cette force capable de lacérer le firmament!
 
-L'enfant de Ye Mo était inarrêtable lorsqu'il utilisait ce sort; c'était comme si tout être vivant sur son passage était condamné à être mis en pièces. Le Rêve des Temps Anciens ne put absolument rien stopper. Son rugissement, empreint de folie, perçait les sièges successifs des anciens clans. Il se fraya un chemin sanglant et se retrouva à moins de 300 mètres de Wang Lin.
+L'enfant de Ye Mo était inarrêtable lorsqu'il utilisait ce sort; c'était comme si tout être vivant sur son passage était condamné à être mis en pièces. Le Rêve des Temps Anciens ne put absolument rien stopper. Son rugissement, empreint de folie, perçait les sièges successifs des anciens clans. Il se fraya un chemin sanglant et se retrouva à moins de 1 000 pieds de Wang Lin.
 
 Les yeux de Wang Lin étaient emplis d'une intention de combat solennelle. Alors que l'enfant de Ye Mo approchait, il leva la main droite pour former une paume et la pressa vers le bas.
 

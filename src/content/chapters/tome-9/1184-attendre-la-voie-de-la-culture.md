@@ -50,7 +50,7 @@ Le froid ambiant se dissipa lentement jusqu'à disparaître totalement.
 
 Le corps de Maître Pin Cendré trembla et il laissa échapper un profond soupir. De la sueur froide perla sur son front et il l'essuya. Les trois personnes derrière lui se détendirent également, les yeux empreints de choc.
 
-L'esprit de Chen Tianhou vacilla alors qu'il murmurait: « Lui... Qui est-il? »
+L'esprit de Chen Tianjun vacilla alors qu'il murmurait: « Lui... Qui est-il? »
 
 La peur ne quittait pas les yeux de Maître Pin Cendré lorsqu'il répondit d'une voix rauque: « Le Perdu. »
 

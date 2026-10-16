@@ -1,6 +1,6 @@
 ---
 n: 979
-title: Maître du Vent Creux (1)
+title: Maître Fu Fengzi (1)
 book: 8
 bookTitle: "Alliance's Secret"
 en: Chapter 979 - Master Hollow Wind (1)
@@ -38,7 +38,7 @@ Wang Lin, assis sur le dos de Lei Ji, vit ses yeux s'éclairer. D'un seul pas, i
 
 Dans un fracas assourdissant, la lumière noire se désintégra. Wang Lin regarda calmement le vieil homme et dit d'un ton lent: « Oses-tu me défier? »
 
-Le vieil homme fronça les sourcils et ricana. « Cadet, il semble que tu te croies capable de me défier après ton combat contre Ling Tianhou! » Son corps jaillit du bateau tandis que sa main droite traçait un sceau. D'un geste du doigt, une immense illusion apparut derrière lui.
+Le vieil homme fronça les sourcils et ricana. « Junior, il semble que tu te croies capable de me défier après ton combat contre Ling Tianhou! » Son corps jaillit du bateau tandis que sa main droite traçait un sceau. D'un geste du doigt, une immense illusion apparut derrière lui.
 
 Cette illusion était une tablette de pierre qui émettait une lueur dorée illuminant tout le secteur.
 
@@ -72,7 +72,7 @@ Boum, boum, boum!!
 
 L'explosion fut si violente qu'elle fit trembler les cieux, et l'onde de choc se propagea avec frénésie. Le bateau noir fut immédiatement repoussé, et même Lei Ji dut reculer.
 
-Quant aux cultivateurs menés par le vieil homme, ils battirent également en retraite. Seul Da Tou affichait un sourire carnassier en chargeant les sept hommes en noir, tandis que Wang Lin et le vieil homme s'affrontaient. Les corps s'écroulaient et le sang éclaboussait partout. Quelques gouttes atterrirent près de sa bouche, et Da Tou les lèche avec avidité.
+Quant aux cultivateurs menés par le vieil homme, ils battirent également en retraite. Seul Da Tou affichait un sourire carnassier en chargeant les sept hommes en noir, tandis que Wang Lin et le vieil homme s'affrontaient. Les corps s'écroulaient et le sang éclaboussait partout. Quelques gouttes atterrirent près de sa bouche, et Da Tou les lécha avec avidité.
 
 Lorsque les neuf runes explosèrent, loin de se rassurer, le vieil homme fut encore plus choqué. Il recula sans hésiter.
 
@@ -102,17 +102,17 @@ Au moment où cette puissance lumineuse se propagea, les yeux de Wang Lin devinr
 
 « Ces vieux monstres du Purificateur du Nirvana ne doivent pas être sous-estimés. Bien que cet homme ne soit qu'au stade initial de Purificateur du Nirvana, cette bataille aurait été difficile sans mon corps de Dieu Ancien! En particulier, ce sort qui concentre l'essence de sa chair pour former un rayon de lumière si puissant est extraordinaire! »
 
-La main droite de Wang Lin s'élança vers le vide dans un grondement sourd. L'énergie originelle du monde se rassembla frénétiquement et une fissure spatiale apparut. Un éclair rouge jaillit alors que la Lance Divise-Dieux se matérialisait dans la main de Wang Lin.
+La main droite de Wang Lin s'élança vers le vide dans un grondement sourd. L'énergie originelle du monde se rassembla frénétiquement et une fissure spatiale apparut. Un éclair rouge jaillit alors que la Lance Tueuse de Dieux se matérialisait dans la main de Wang Lin.
 
-« Tu es digne que j'utilise ceci! » Wang Lin saisit l'illusion de la Lance Divise-Dieux et la projeta. La lance se mua en un rayon de lumière rouge, fonçant vers l'éclat aveuglant qui l'approchait.
+« Tu es digne que j'utilise ceci! » Wang Lin saisit l'illusion de la Lance Tueuse de Dieux et la projeta. La lance se mua en un rayon de lumière rouge, fonçant vers l'éclat aveuglant qui l'approchait.
 
-Dès que la Lance Divise-Dieux fut lancée, son aura sauvage atteignit son paroxysme. En vol, sa puissance balaya le monde.
+Dès que la Lance Tueuse de Dieux fut lancée, son aura sauvage atteignit son paroxysme. En vol, sa puissance balaya le monde.
 
-Une explosion qui fit trembler les cieux retentit lors de la collision entre la Lance Divise-Dieux et la lumière vive! Des fracas assourdissants résonnèrent tandis que la lumière s'affaiblissait. Il ne fallut que quelques respirations pour que l'éclat s'effondre!
+Une explosion qui fit trembler les cieux retentit lors de la collision entre la Lance Tueuse de Dieux et la lumière vive! Des fracas assourdissants résonnèrent tandis que la lumière s'affaiblissait. Il ne fallut que quelques respirations pour que l'éclat s'effondre!
 
-La Lance Divise-Dieux chargea le vieil homme. Ce dernier, terrifié par la situation et les yeux emplis d'incrédulité, voulut reculer, mais il était bien trop lent face à la lance qui allait le transpercer.
+La Lance Tueuse de Dieux chargea le vieil homme. Ce dernier, terrifié par la situation et les yeux emplis d'incrédulité, voulut reculer, mais il était bien trop lent face à la lance qui allait le transpercer.
 
-À cet instant précis, le vieil homme frappa son sac de rangement et un petit bouclier vert apparut dans sa main. Il l'interposa devant lui, et celui-ci percuta la Lance Divise-Dieux.
+À cet instant précis, le vieil homme frappa son sac de rangement et un petit bouclier vert apparut dans sa main. Il l'interposa devant lui, et celui-ci percuta la Lance Tueuse de Dieux.
 
 Le petit bouclier trembla et il fut repoussé, mais aucune fissure n'apparut sur la protection!
 

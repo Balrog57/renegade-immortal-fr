@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1461 - Making Enemies!"
 slug: se-faire-des-ennemis
 ---
-À l'instant même où l'homme corpulent du Clan du Lou Céleste fut surpris, Wang Lin agita sa main droite. Le tatouage de tonnerre, dissimulé dans le ciel, apparut soudainement. Tout cela se produisit en un éclair, et le tatouage de tonnerre fondit sur lui.
+À l'instant même où l'homme corpulent du Clan du Loup Céleste fut surpris, Wang Lin agita sa main droite. Le tatouage de tonnerre, dissimulé dans le ciel, apparut soudainement. Tout cela se produisit en un éclair, et le tatouage de tonnerre fondit sur lui.
 
 L'homme corpulent réagit très rapidement. D'un geste de la main, l'Ancienne Feuille apparut. Il la plaça contre sa poitrine pour sceller ses émotions afin qu'elles ne puissent être exploitées par le Feu Éthéré de Wang Lin. Une pointe de moquerie se dessina sur son visage alors que sa main formait un sceau; un loup céleste de 10 000 pieds apparut, poussa un rugissement et bondit vers le tatouage de tonnerre.
 
@@ -40,7 +40,7 @@ Le cœur de l'homme corpulent battait la chamade; il pressentait le danger. Wang
 
 « Je ne peux pas laisser ce combat continuer, c'est impossible! Cet Estimé Ling Dong était considéré comme un junior lorsqu'il était encore au cinquième Niveau de la Calamité Céleste. S'il n'avait pas été aussi imprudent et incapable d'obtenir suffisamment de Flammes Joss, il serait devenu un cultivateur du troisième stade depuis longtemps! »
 
-Wang Lin se tenait toujours au sommet du crâne du Dieu Ancien. Il n'avait pas bougé d'un pouce et son expression était restée presque immuable. Il avait tout observé, de l'arrivée arrogante de l'homme corpulent du Clan du Lou Céleste jusqu'à sa retraite dans la stupeur.
+Wang Lin se tenait toujours au sommet du crâne du Dieu Ancien. Il n'avait pas bougé d'un pouce et son expression était restée presque immuable. Il avait tout observé, de l'arrivée arrogante de l'homme corpulent du Clan du Loup Céleste jusqu'à sa retraite dans la stupeur.
 
 Un soupçon de ridicule apparut sur le visage de Wang Lin alors qu'il ouvrait lentement la bouche.
 
@@ -56,7 +56,7 @@ Dès que l'homme s'arrêta pour pivoter vers la droite, Wang Lin ricana. D'un ge
 
 « Vers la droite! Ni en haut, ni en bas ne fonctionneront non plus. » Puis, quatre feuilles volèrent pour sceller le ciel au-dessus et en dessous, ne laissant que l'avant ouvert. Cependant, l'Estimé Ling Dong avait invoqué la statue et luttait contre le loup rouge, provoquant des grondements tonitruants.
 
-Wang Lin fit un pas en avant et agita sa main droite. Les Anciennes Feuilles restantes foncèrent toutes sur l'homme corpulent du Clan du Lou Céleste. L'Estimé Ling Dong sortit de l'impact et chargea l'adversaire.
+Wang Lin fit un pas en avant et agita sa main droite. Les Anciennes Feuilles restantes foncèrent toutes sur l'homme corpulent du Clan du Loup Céleste. L'Estimé Ling Dong sortit de l'impact et chargea l'adversaire.
 
 Tandis que les échos de tonnerre résonnaient, toutes les voies de fuite de l'homme corpulent furent obstruées. En cette situation critique, sa main forma un sceau et une immense quantité d'âmes de Flammes Joss apparut. L'espace se distordit et d'innombrables épines jaillirent du bras de l'homme, semblables à des crocs de loup.
 

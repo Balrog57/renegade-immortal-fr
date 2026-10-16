@@ -8,7 +8,7 @@ slug: une-goutte-de-lunivers
 ---
 La terreur du Général des Eaux était aussi vaste que les vagues de l'océan. Cette armure lui avait été léguée par ses ancêtres; il l'utilisait depuis si longtemps qu'il avait lentement fusionné sa propre lignée avec elle pour qu'elle ne fasse plus qu'un avec lui.
 
-Sans cette armure, il n'était qu'un cultivateur du quatrième niveau de la Fléau Céleste. Avec elle, il pouvait atteindre le troisième pas de la culture. Cependant, l'armure était extrêmement étrange: une fois revêtue, l'esprit de son porteur se trouvait limité et son corps était manipulé par l'armure elle-même.
+Sans cette armure, il n'était qu'un cultivateur du quatrième niveau du Fléau Céleste. Avec elle, il pouvait atteindre le troisième pas de la culture. Cependant, l'armure était extrêmement étrange: une fois revêtue, l'esprit de son porteur se trouvait limité et son corps était manipulé par l'armure elle-même.
 
 Il se souvenait que lorsque son ancêtre la lui avait remise, celui-ci avait précisé que même au sein de la secte ancestrale, une telle armure était rare. Elle était extrêmement difficile à raffiner et ne serait confiée qu'à celui ayant accompli de grands mérites ou s'apprêtant à se rendre dans un lieu périlleux.
 
@@ -44,7 +44,7 @@ Simultanément, le Général des Eaux cracha de nouveau du sang, révélant un v
 
 Cette sphère était trouble, arborant la couleur profonde de l'océan. Sa taille semblait infinie; du regard, il était impossible d'en percevoir les limites. C'était comme une petite planète faite d'eau!
 
-« Goutte de l'univers! » Le Général des Eaux serra les dents pour achever le sort transmis par son ancêtre. Sa chair commença à dépérir et son visage autrefois handsome se couvrit de pustules hideuses.
+« Goutte de l'univers! » Le Général des Eaux serra les dents pour achever le sort transmis par son ancêtre. Sa chair commença à dépérir et son visage autrefois beau se couvrit de pustules hideuses.
 
 Il n'aurait jamais pu survivre aussi longtemps avec sa seule force vitale. Quatre Fléaux Célestes avaient éclaté dans son corps; avec son talent, il n'aurait jamais pu les surmonter en toute sécurité.
 
@@ -102,7 +102,7 @@ C'était bel et bien la réalité. Dès que l'élément métal arriva, l'eau aut
 
 « Wang Lin, tu es mort!! »
 
-À cet instant, à l'extérieur de la planète des Cinq Éléments, les yeux du mystérieux Grand Empereur Xuan Luo brillèrent d'une lumière étrange. Face au spectacle qui se déroulait, il restait sans voix. Hormis cette lueur inhabituelle, il ne savait s'il devait pleurer ou rire.
+À cet instant, à l'extérieur de la planète des Cinq Éléments, les yeux du mystérieux Grand Empyréen Xuan Luo brillèrent d'une lumière étrange. Face au spectacle qui se déroulait, il restait sans voix. Hormis cette lueur inhabituelle, il ne savait s'il devait pleurer ou rire.
 
 « Comment peut-il l'affiner? C'est clairement en train de l'aider à comprendre l'essence de l'eau... Cet enfant possède le lignage ancien mais aussi les sorts des Célestes. C'est extrêmement rare! »
 

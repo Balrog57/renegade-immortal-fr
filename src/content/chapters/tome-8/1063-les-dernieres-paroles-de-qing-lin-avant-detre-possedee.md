@@ -62,7 +62,7 @@ C'était le véritable corps de l'Ancien Démon Bei Lou. Dès qu'il apparut, il 
 
 Tout en poursuivant Bei Lou, l'ancien démon lança un regard glacial à Wang Lin, au loin.
 
-Wang Lin se déplaçait aussi vite que possible pour éviter le Maître du Vide, qui se comportait comme un chien enragé, mais sa vitesse restait bien trop lente face à celle de son poursuivant. En ce moment de crise, Wang Lin sortit le tatouage du clan des Tatouages Flétris et l'appliqua sur son corps, portant immédiatement sa vitesse à son paroxysme.
+Wang Lin se déplaçait aussi vite que possible pour éviter le Maître du Vide, qui se comportait comme un chien enragé, mais sa vitesse restait bien trop lente face à celle de son poursuivant. En ce moment de crise, Wang Lin sortit le tatouage du clan du Tatouage Flétris et l'appliqua sur son corps, portant immédiatement sa vitesse à son paroxysme.
 
 « Va vers le palais. Ma femme est là... Elle était éveillée avant que le Maître ne soit possédé, elle doit donc avoir reçu un message. » La voix de Wang Wei parvint derrière Wang Lin. Ses blessures étaient totalement guéries. Après avoir parlé, il quitta Wang Lin pour charger le Maître du Vide.
 
@@ -70,7 +70,7 @@ Wang Lin changea immédiatement de direction sans s'arrêter. Il atteignit en un
 
 S'approchant d'elle, Wang Lin rassembla une énergie d'origine de feu dans sa main et la pressa entre les sourcils de la jeune femme sans hésiter. L'énergie de feu traversa son corps et la réveilla.
 
-« Aînée, je vous en prie, ouvrez rapidement le passage pour quitter cet endroit! » Wang Lin n'eut pas le temps d'expliquer davantage et envoya un message rapide à Hu Juan dès qu'elle reprit connaissance.
+« Senior, je vous en prie, ouvrez rapidement le passage pour quitter cet endroit! » Wang Lin n'eut pas le temps d'expliquer davantage et envoya un message rapide à Hu Juan dès qu'elle reprit connaissance.
 
 À son réveil, une trace de confusion passa dans les yeux de Hu Juan, mais elle se rétablit promptement. Elle se leva, ses mains formant un sceau, puis elle pointa le ciel. Un grondement résonna dans l'éther et six piliers de lumière s'abattirent à moins de cent pieds de Hu Juan.
 

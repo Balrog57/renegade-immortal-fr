@@ -90,7 +90,7 @@ Wang Lin fut surpris et son expression se fit encore plus sombre. Après avoir r
 
 Il déployait son sens divin pour observer attentivement chaque tunnel. Une demi-heure plus tard, son sens divin trouva une autre issue. Une lumière grise émanait de l'ouverture; il était clair que celle-ci menait à la surface.
 
-Wang Lin n'hésita pas et chargea directement vers elle. Il se déplaçait déjà très vite, mais il ne pouvait pas se téléporter. Cependant, il atteignit bientôt la sortie. Lorsqu'il ne fut plus qu'à trente mètres de l'issue, il s'élança avec acharnement.
+Wang Lin n'hésita pas et chargea directement vers elle. Il se déplaçait déjà très vite, mais il ne pouvait pas se téléporter. Cependant, il atteignit bientôt la sortie. Lorsqu'il ne fut plus qu'à cent pieds de l'issue, il s'élança avec acharnement.
 
 Mais, au même moment, l'issue émit un flash de lumière blanche et disparut.
 

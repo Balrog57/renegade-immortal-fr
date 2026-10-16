@@ -16,15 +16,15 @@ Une douleur intense irradia entre ses sourcils; c'était comme si une paire de m
 
 Le hurlement de la flèche était d'une aiguité extrême. L'intention meurtrière contenue dans ce son fit pâlir les cultivateurs du Royaume Intérieur.
 
-La distance de 1 000 pieds était devenue insignifiante. Alors que le rugissement résonnait, la tête de l'Ordre Ancestral à sept étoiles devant Wang Lin commença à se déformer violemment. C'était comme si une puissance indescriptible convergeait vers lui!
+La distance de 1 000 pieds était devenue insignifiante. Alors que le rugissement résonnait, la tête de l'Ordre Antique à sept étoiles devant Wang Lin commença à se déformer violemment. C'était comme si une puissance indescriptible convergeait vers lui!
 
 Cette flèche avait été décochée pour tuer!
 
-En un instant, la flèche se rapprocha et percuta la tête de l'Ordre Ancestral. Tandis que le grondement tonitruant résonnait, même la tête de l'Ordre Ancestral de Wang Lin ne put résister longtemps. La tête fut transpercée et la flèche était sur le point de briser la barrière pour atteindre Wang Lin!
+En un instant, la flèche se rapprocha et percuta la tête de l'Ordre Antique. Tandis que le grondement tonitruant résonnait, même la tête de l'Ordre Antique de Wang Lin ne put résister longtemps. La tête fut transpercée et la flèche était sur le point de briser la barrière pour atteindre Wang Lin!
 
 Le corps de Wang Lin ne s'était pas encore complètement intégré au monde. Alors que la flèche blanche approchait, le sentiment d'une crise de vie ou de mort s'intensifia. Wang Lin afficha un regard déterminé et agita la main!
 
-Les mains de son corps de Dieu Ancestral plongèrent dans la tête de l'Ordre Ancestral pour saisir la flèche fantôme blanche!
+Les mains de son corps de Dieu Ancestral plongèrent dans la tête de l'Ordre Antique pour saisir la flèche fantôme blanche!
 
 Au moment où ses mains touchèrent la flèche, Wang Lin sentit une force puissante pénétrer son corps. Même son corps de Dieu Ancestral à sept étoiles peinait à contenir cette puissance. Son corps trembla et il cracha du sang. Il fut contraint de rompre sa semi-fusion avec le monde pour reculer.
 
@@ -66,7 +66,7 @@ Ces trois écailles dorées cédèrent en deux respirations, et Tai Aluo recula 
 
 Tai Aluo avait tenu sa promesse et retardé le destin de trois respirations. Ces trois respirations étaient d'une valeur inestimable pour Wang Lin. Lors de la première respiration, Wang Lin mordit le haut de sa langue et cracha un brouillard de sang devant lui.
 
-Lors de la deuxième, le feu destructeur de l'Ombrelle Brûlant le Royaume convergea vers Wang Lin de toutes parts. Le feu l'enveloppa et fusionna avec le sang qu'il avait projeté. Cela créa une force dévastatrice qui fit face à la flèche qu'il serrait dans sa main!
+Lors de la deuxième, le feu destructeur de l'Ombrelle Brûlante du Royaume convergea vers Wang Lin de toutes parts. Le feu l'enveloppa et fusionna avec le sang qu'il avait projeté. Cela créa une force dévastatrice qui fit face à la flèche qu'il serrait dans sa main!
 
 Lors de la troisième respiration, la brume noire derrière Wang Lin se répandit follement vers les cultivateurs du Royaume Extérieur. Au terme de ces trois respirations, la flèche percuta le feu destructeur fusionné avec le sang ancestral de Wang Lin. La flèche se désintégra strate après strate, mais l'impact resta terrifiant.
 
@@ -94,7 +94,7 @@ Lorsque la seconde flèche atteignit sa cible, elle percuta l'ombrelle ouverte �
 
 Tout cela se produisit en un instant. Un cultivateur peut franchir 100 pieds en un battement de cil, alors imaginez la flèche. Le corps de Wang Lin était déjà flétri, mais à cet instant, il injecta encore plus de vitalité dans l'ombrelle. Il ressemblait à un ancien Dieu Ancestral en fin de vie; son puissant corps n'était plus qu'une carcasse!
 
-L'Ombrelle Brûlant le Royaume absorba davantage de vitalité et s'ouvrit encore davantage tandis que Wang Lin laissait échapper un rugissement de choc. Bien qu'elle n'ait pas atteint les 30 %, elle en était infiniment proche!
+L'Ombrelle Brûlante du Royaume absorba davantage de vitalité et s'ouvrit encore davantage tandis que Wang Lin laissait échapper un rugissement de choc. Bien qu'elle n'ait pas atteint les 30 %, elle en était infiniment proche!
 
 En conséquence, le feu qui en jaillit devint plus terrifiant encore. La seconde flèche se désintégra à 10 pieds de Wang Lin! Cependant, dans sa chute, la puissance de l'arc jaillit et percuta la poitrine de Wang Lin.
 
@@ -136,6 +136,6 @@ Une douce lumière émanait de l'arc, dégageant une attraction capable de rendr
 
 « Le Maître a ordonné d'accorder au Royaume Intérieur trois chances de saisir cet arc. Pour chaque tentative, vous devrez sacrifier 30 % de nos cultivateurs du Royaume Extérieur! Le voulez-vous ou non? »
 
-Une intention meurtrière brûlait dans les yeux de Wang Lin. S'il n'avait pas fait de la Bête des Ténèbres sa bête d'essence vitale, l'ouverture de l'ombrelle aurait consommé 90 % de sa force vitale. Cependant, même avec la Bête des Ténèbres, il ne pouvait agir ainsi fréquemment. Bien que cette dernière possédât une vitalité quasi infinie, elle ne pourrait jamais supporter la consommation démente de l'ombrelle antique.
+Une intention meurtrière brûlait dans les yeux de Wang Lin. S'il n'avait pas fait de la Bête des Limbes sa bête d'essence vitale, l'ouverture de l'ombrelle aurait consommé 90 % de sa force vitale. Cependant, même avec la Bête des Limbes, il ne pouvait agir ainsi fréquemment. Bien que cette dernière possédât une vitalité quasi infinie, elle ne pourrait jamais supporter la consommation démente de l'ombrelle antique.
 
 « Que cherche à obtenir le Souverain... Il semble presque effrayé... Il veut utiliser cet arc pour attirer quelqu'un... »

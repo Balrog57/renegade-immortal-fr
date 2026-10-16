@@ -14,7 +14,7 @@ S'il parvenait à maîtriser les quatre grandes restrictions et à les fusionner
 
 Six essences!
 
-Si cette information venait à se répandre, elle ébranlerait tous les cultivateurs. Même les cultivateurs de la troisième étape en seraient terrifiés. Plus on approfondissait sa compréhension des essences, plus on réalisait ce que signifier le fait d'en posséder six!
+Si cette information venait à se répandre, elle ébranlerait tous les cultivateurs. Même les cultivateurs de la troisième étape en seraient terrifiés. Plus on approfondissait sa compréhension des essences, plus on réalisait ce que signifiait le fait d'en posséder six!
 
 Cinq essences étaient déjà un choc immense. Cependant, une de plus serait encore plus stupéfiante! Mais de la même manière, posséder six essences rendrait leur maîtrise infiniment plus complexe.
 

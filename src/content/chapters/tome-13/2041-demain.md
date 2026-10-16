@@ -20,13 +20,13 @@ Jiu Di s'était également rendu sur place personnellement, mais malgré son niv
 
 Et cette fois, ce serait une ouverture complète, telle qu'on n'en avait jamais vu auparavant!
 
-Dao Yi, Wu Feng et les Grands Empereurs du clan Ancien, y compris Xuan Luo, étaient tous venus. Ils contemplèrent silencieusement la porte depuis l'extérieur de la tempête avant de repartir dans le silence.
+Dao Yi, Wu Feng et les Grands Empyréens du clan Ancien, y compris Xuan Luo, étaient tous venus. Ils contemplèrent silencieusement la porte depuis l'extérieur de la tempête avant de repartir dans le silence.
 
-Simultanément, un message fut transmis depuis le Mont Gu Dao aux trois clans royaux et à leurs Grands Empereurs. Le message était d'une simplicité glaciale: il ordonnait de cesser d'observer le Royaume Divin Immémorial, car celui-ci s'ouvrirait dans cinq cents ans. Il enjoignait également les trois clans et leurs Grands Empereurs respectifs à se préparer pour la bataille qui éclaterait dans ce délai.
+Simultanément, un message fut transmis depuis le Mont Gu Dao aux trois clans royaux et à leurs Grands Empyréens. Le message était d'une simplicité glaciale: il ordonnait de cesser d'observer le Royaume Divin Immémorial, car celui-ci s'ouvrirait dans cinq cents ans. Il enjoignait également les trois clans et leurs Grands Empyréens respectifs à se préparer pour la bataille qui éclaterait dans ce délai.
 
-Le Mont Gu Dao n'accorda aucune importance à la mort de l'Empereur de l'Ancien Dao. Ce phénomène étrange suffit à réduire au silence la faction du clan Ancien qui prônait la traque de Wang Lin par le Grand Empereur Gu Dao; ils ne mentionnèrent plus jamais cette affaire.
+Le Mont Gu Dao n'accorda aucune importance à la mort de l'Empereur de l'Ancien Dao. Ce phénomène étrange suffit à réduire au silence la faction du clan Ancien qui prônait la traque de Wang Lin par le Grand Empyréen Gu Dao; ils ne mentionnèrent plus jamais cette affaire.
 
-À l'instar du clan Ancien, le clan Céleste envoya également un message aux soixante-douze continents, annonçant que le Royaume Divin Immémorial s'ouvrirait dans cinq cents ans. Ils devaient consacrer ces cinq siècles à l'entraînement des puissants sous leur autorité. Les Empereurs Exaltés et les Empereurs Ascendants étaient les plus enthousiastes. Le Royaume Divin Immémorial était pour eux comme la porte du dragon: une fois qu'ils y auraient acquis une fortune, ils deviendraient des Grands Empereurs!
+À l'instar du clan Ancien, le clan Céleste envoya également un message aux soixante-douze continents, annonçant que le Royaume Divin Immémorial s'ouvrirait dans cinq cents ans. Ils devaient consacrer ces cinq siècles à l'entraînement des puissants sous leur autorité. Les Exaltés Empyréens et les Ascendants Empyréens étaient les plus enthousiastes. Le Royaume Divin Immémorial était pour eux comme la porte du dragon: une fois qu'ils y auraient acquis une fortune, ils deviendraient des Grands Empyréens!
 
 L'apparition du Royaume Divin Immémorial avait suscité une tempête sur le Continent Astral Immortel. Cependant, en raison de l'attente de cinq cents ans, cette agitation fut contenue, telle un courant sous-jacent — le calme avant la tempête.
 
@@ -50,7 +50,7 @@ C'était cet homme qui avait forcé le palais de l'Ancien Dao, tué l'Empereur d
 
 Elle ignorait ce que Wang Lin comptait faire, mais durant le voyage, la gentillesse et la prévenance de cet homme avaient fait naître une chaleur au plus profond de son cœur.
 
-En chemin, l'homme lui avait raconté une histoire. Une longue histoire. Une rencontre fortuite, un amour qui débuta par: « Je t'emmènerai pour tuer », et qui se terminait par: « Même si le ciel veut ta mort, je te ramènerai! », suivie de mille ans de chagrin et de nostalgie.
+En chemin, l'homme lui avait raconté une histoire. Une longue histoire. Une rencontre fortuite, un amour qui débuta par: « Je t'emmènerai pour tuer », et qui se terminait par: « Même si le ciel veut ta mort, je te ramènerai! », suivie de milliers d'années de chagrin et de nostalgie.
 
 Wang Lin regarda la femme devant lui avec une douceur infinie et hocha la tête.
 

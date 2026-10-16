@@ -54,7 +54,7 @@ Il y avait aussi la famille Lu. Bien que moins renommée que les Xu, elle excell
 
 Toutes les formations de la planète Dong Ling avaient été posées par la famille Lu!
 
-Enfin, la famille Liu s'était illustrée par le développement de trésors magiques. Leur Sortilège des Poupées de Sang était une fusion terrifiante de sorts et d'objets magiques. La rumeur disait que depuis sa création, il n'avait été utilisé qu'une seule fois.
+Enfin, la famille Liu s'était illustrée par le développement de trésors magiques. Leur Sortilège des Neuf Poupées de Sang était une fusion terrifiante de sorts et d'objets magiques. La rumeur disait que depuis sa création, il n'avait été utilisé qu'une seule fois.
 
 Cependant, lors de cet unique usage, il avait presque anéanti toute vie dans la partie orientale de Luotian, comme si l'apocalypse était survenue!
 

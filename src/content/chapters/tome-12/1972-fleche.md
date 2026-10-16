@@ -100,9 +100,9 @@ Sans s'arrêter, Wang Lin leva la main droite et l'agita. Instantanément, une e
 
 Un fracas tonitruant retentit et la formation s'effondra, bien que la paume se soit également affaiblie. Wang Lin franchit le seuil et passa au travers de l'empreinte, qui finit par disparaître.
 
-« Ils ont instantanément condensé une puissance équivalente à celle d'un Éminence Céleste du sixième palais. » Le manteau de Wang Lin resta parfaitement en place alors qu'il pénétrait dans le manoir.
+« Ils ont instantanément condensé une puissance équivalente à celle d'un Exalté Empyréen du sixième palais. » Le manteau de Wang Lin resta parfaitement en place alors qu'il pénétrait dans le manoir.
 
-Les centaines de silhouettes, hommes et femmes, étaient pétrifiées par l'horreur et l'incrédulité. Ils avaient une confiance absolue en cette attaque; même des Éminences Célestes auraient eu du mal à la contrer, mais cet homme l'avait balayée d'un simple revers de main.
+Les centaines de silhouettes, hommes et femmes, étaient pétrifiées par l'horreur et l'incrédulité. Ils avaient une confiance absolue en cette attaque; même des Exaltés Empyréens auraient eu du mal à la contrer, mais cet homme l'avait balayée d'un simple revers de main.
 
 Alors que la peur montait dans le cœur des habitants du Manoir Li, neuf flèches jaillirent de neuf endroits différents de la demeure. Chaque flèche explosa en des centaines de projectiles, n'étant pas moins puissante que l'attaque combinée précédente.
 

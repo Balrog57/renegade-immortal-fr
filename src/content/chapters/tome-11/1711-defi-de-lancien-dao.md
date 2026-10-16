@@ -64,7 +64,7 @@ C'était un homme d'apparence ordinaire. Son corps était immense, comme si les 
 
 « Je suis un Ancien. Je suis né avant les cieux et la terre et j'ai survécu à l'aube du monde. Pourtant, avant moi, il y avait des êtres célestes. Ils voulaient faire de moi leur esclave; alors, laissez-moi détruire les êtres célestes!
 
-« Si je échoue, toutes mes générations futures deviendront les ennemis des êtres célestes et jureront de purifier le monde de leur présence!
+« Si j'échoue, toutes mes générations futures deviendront les ennemis des êtres célestes et jureront de purifier le monde de leur présence!
 
 « Mais vais-je perdre? Je ne perdrai jamais!
 
@@ -104,13 +104,13 @@ La main droite de Wang Lin était extrêmement rugueuse comparée à son bras ga
 
 Il leva sa main devant lui. Le regard de Wang Lin était serein tandis qu'il observait son nouveau membre. Après un long moment, il saisit le vide!
 
-« Déchirure Céleste! »
+« Déchirure du Ciel! »
 
 L'espace trembla et, sous la poussée de la main droite de Wang Lin, le monde sembla s'effondrer. L'ombre d'un bras colossal apparut derrière lui et déchira l'espace. Une immense faille surgit devant Wang Lin et s'élargit, ouverte par sa volonté.
 
 Cette puissance de déchirure pouvait tuer un cultivateur du stade initial du Vide Arcanique! Même les cultivateurs du stade intermédiaire du Vide Arcanique auraient dû battre en retraite de peur!
 
-Sous l'effet de cette force de déchirement, l'autel sur lequel Wang Lin se tenait bourdonna et trembla. Des ondulations se propagèrent, comme si la pierre résistait aux contrecoups de la Déchirure Céleste.
+Sous l'effet de cette force de déchirement, l'autel sur lequel Wang Lin se tenait bourdonna et trembla. Des ondulations se propagèrent, comme si la pierre résistait aux contrecoups de la Déchirure du Ciel.
 
 Wang Lin observa attentivement l'autel sous lui alors que les vibrations résonnaient. Ses yeux brillèrent d'une lueur étrange.
 

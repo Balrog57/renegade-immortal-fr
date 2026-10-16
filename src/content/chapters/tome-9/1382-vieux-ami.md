@@ -14,7 +14,7 @@ Les yeux de Wang Lin s'illuminèrent. Son expression ne changea pas, et son rega
 
 « Jeune Empereur? »
 
-Le messager arborait toujours ce sourire respectueux sur son visage et dit rapidement: « Le Grand Empereur a déjà transmis l'ordre au Pays Déchu. Vous êtes désormais le Jeune Empereur désigné par le Grand Empereur, et vous vous situez au-dessus des treize Anciens Délaissés! »
+Le messager arborait toujours ce sourire respectueux sur son visage et dit rapidement: « Le Grand Empereur a déjà transmis l'ordre au Pays Déchu. Vous êtes désormais le Jeune Empereur désigné par le Grand Empereur, et vous vous situez au-dessus des treize Anciens Déchus! »
 
 L'expression de Wang Lin resta neutre et il ne dit mot.
 
@@ -42,7 +42,7 @@ La planète de culture entière sombra dans le silence. De nombreux témoins ass
 
 Les membres du Clan du Dragon Blindé, pétris de peur, baissèrent la tête.
 
-« Un cultivateur du quatrième Ciel Flétri dans le Royaume Intérieur peut être au sommet de la hiérarchie, et même dans le Royaume Extérieur, il peut diriger un grand clan! Mais dans ce Pays Déchu, on avale une pilule empoisonnée et on meurt sans hésiter... Cela montre à quel point le Grand Empereur est puissant... La raison pour laquelle il a envoyé cette pilule au Patriarche du Dragon Blindé était de me donner un avertissement indirect. »
+« Un cultivateur du quatrième Fléau Céleste dans le Royaume Intérieur peut être au sommet de la hiérarchie, et même dans le Royaume Extérieur, il peut diriger un grand clan! Mais dans ce Pays Déchu, on avale une pilule empoisonnée et on meurt sans hésiter... Cela montre à quel point le Grand Empereur est puissant... La raison pour laquelle il a envoyé cette pilule au Patriarche du Dragon Blindé était de me donner un avertissement indirect. »
 
 La mort du Patriarche du Dragon Blindé signifiait que l'affaire était close. L'homme d'âge mûr sourit et joignit les mains devant Wang Lin: « Le Clan du Dragon Blindé ne peut rester sans chef. Je demande au Jeune Empereur de désigner un nouveau leader. »
 
@@ -54,7 +54,7 @@ Ce changement était si brutal qu'il ne put réagir immédiatement. Il n'était 
 
 Cependant, à l'instant même où Wang Lin le désignait, une vague d'émotion immense l'envahit. Son corps tremblait et ses yeux brillèrent d'extase. Il se leva avec enthousiasme, fit un pas en avant et joignit respectueusement les mains: « Merci... Merci, Jeune Empereur! Désormais, le Clan du Dragon Blindé suivra tous vos ordres, même si vous ordonnez la destruction du clan! Ce cadet... »
 
-Wang Lin agita la main pour l'interrompre. Il dit lentement: « Apportez-moi toutes vos Pilules d'Effondrement du Dragon, vos Cristaux de Mutation de Feu Flamboyant et vos marionnettes. Je les veux tous. »
+Wang Lin agita la main pour l'interrompre. Il dit lentement: « Apportez-moi toutes vos Pilules d'Effondrement du Dragon, vos Cristaux de Mutation de Feu Déchaîné et vos marionnettes. Je les veux tous. »
 
 Le jeune homme hocha rapidement la tête. Au-delà de ces trésors, même si Wang Lin avait exigé l'âme originelle des membres du clan, il n'aurait pas hésité à les lui livrer. Devenir le patriarche du Clan du Dragon Blindé était une chance inouïe pour lui!
 
@@ -64,7 +64,7 @@ L'homme d'âge mûr joignit les mains et sourit à Wang Lin: « Jeune Empereur, 
 
 « Seigneur Jeune Empereur, le Grand Empereur vous confie ce jeton de jade. Il représente votre identité. Il équivaut à la présence même du Grand Empereur. Personne n'osera vous défier dans le Pays Déchu. »
 
-« Le Grand Empereur a également précisé que vous devrez assister à la sélection des Anciens Délaissés dans trois mois. » Après avoir remis le jeton, le messager joignit les mains et disparut au loin.
+« Le Grand Empereur a également précisé que vous devrez assister à la sélection des Anciens Déchus dans trois mois. » Après avoir remis le jeton, le messager joignit les mains et disparut au loin.
 
 Wang Lin leva le jeton de jade et l'examina attentivement. Il était fait de matériaux très communs et ne portait qu'un seul mot: « Empereur ». Le caractère avait été tracé d'un seul trait, dégageant une aura antique, mais une force étrange émanait manifestement du mot.
 
@@ -94,7 +94,7 @@ Un groupe de cultivateurs traversait le Pays Déchu. Ils étaient près de mille
 
 Cet homme portait des vêtements somptueux; c'était un vieillard dont l'apparence était ordinaire, mais l'expression extrêmement sombre.
 
-« Seigneur Cupidité, la planète du Clan des Scorpions Noirs n'est pas loin! Nous avons découvert que le Cadavre de Scorpion de Dix Mille Ans que vous recherchez se trouve probablement là-bas! »
+« Seigneur Cupidité, la planète du Clan du Scorpion Noir n'est pas loin! Nous avons découvert que le Cadavre de Scorpion de Dix Mille Ans que vous recherchez se trouve probablement là-bas! »
 
 Le vieillard au centre, d'un air arrogant, hocha la tête. Il dit fièrement: « Très bien. Si cela s'avère vrai, vous en tirerez tous profit! »
 

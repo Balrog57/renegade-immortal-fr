@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1024 - She, the Buried Celestial
 slug: elle-la-celeste-enterree
 ---
-« J'ai déjà attendu votre arrivée pendant très longtemps... J'ai sacrifié ma chair et mon sang aux anciens. Mon âme formera le vide. Je deviendrai l'âme du démon ancien. Moi, le démon dispersé de Ta, j'utilise cette énergie démoniaque pour emprunter la puissance de l'objet sacré du Clan des Tatouages afin d'ouvrir le Bassin de l'Enterrement Céleste! »
+« J'ai déjà attendu votre arrivée pendant très longtemps... J'ai sacrifié ma chair et mon sang aux anciens. Mon âme formera le vide. Je deviendrai l'âme du démon ancien. Moi, le démon dispersé de Ta, j'utilise cette énergie démoniaque pour emprunter la puissance de l'objet sacré du Clan du Tatouage afin d'ouvrir le Bassin de l'Enterrement Céleste! »
 
 Ce démon dispersé en armure afficha un sourire étrange tandis que sa voix résonnait. Puis, il leva le pied et l'abattit avec impitoyabilité!
 
@@ -82,7 +82,7 @@ Le calme du Maître du Vide s'était totalement évaporé. Après avoir identifi
 
 Au moment où la silhouette apparut, l'Ancien Sun luttait contre la force d'aspiration. Mais face à cette aura maléfique, même avec son niveau de culture, il fut impuissant. Son énergie originelle se figea et il fut aspiré par le vortex.
 
-Ses yeux étaient empreints de terreur et, au moment où il allait être englouti, le Sable Taché d'Étoiles jaillit de ses vêtements. Ses yeux étaient froids lorsqu'il bondit hors de lui. Ce sable était mystérieux, capable de fouler l'air pour s'appuyer sur la force ambiante. Il lutta pour remonter et fixa Wang Lin d'un regard vif.
+Ses yeux étaient empreints de terreur et, au moment où il allait être englouti, le Sable Marqué d'Étoiles jaillit de ses vêtements. Ses yeux étaient froids lorsqu'il bondit hors de lui. Ce sable était mystérieux, capable de fouler l'air pour s'appuyer sur la force ambiante. Il lutta pour remonter et fixa Wang Lin d'un regard vif.
 
 À cet instant, Bei Lou observa la silhouette qui émergeait lentement; son œil droit brilla et il murmura: « Vieux ami... Je pensais qu'elle avait simplement disparu pour se cacher quelque part et guérir. Je n'aurais jamais cru que Qing Lin l'avait scellée ici... Qing Lin... Il était extrêmement puissant, si puissant! S'il n'avait pas été gravement blessé lors de l'effondrement du Royaume Céleste, Ta Jia et moi n'aurions jamais osé convoiter sa puissance! »
 
@@ -110,6 +110,6 @@ L'énergie originelle de Wang Lin bougeait avec frénésie; enveloppé d'un océ
 
 Voyant Situ Nan s'éloigner de plus en plus, Wang Lin afficha un regard résolu; soudain, son énergie originelle explosa derrière lui et il plongea tel une météorite.
 
-Sa vitesse doublat instantanément, lui permettant de rattraper Situ Nan. Wang Lin se trouvait à moins de 10 000 pieds de la silhouette vague. Il saisit Situation de loin et fit exploser son énergie originelle tout autour de lui. L'impact projeta violemment Wang Lin vers le haut.
+Sa vitesse doubla instantanément, lui permettant de rattraper Situ Nan. Wang Lin se trouvait à moins de 10 000 pieds de la silhouette vague. Il saisit Situ Nan de loin et fit exploser son énergie originelle tout autour de lui. L'impact projeta violemment Wang Lin vers le haut.
 
 Du sang noir s'écoula des orbites vides de la silhouette vague. Ce sang pénétra le vortex, se transformant en une mer de sang qui, prenant un élan monstrueux au sein du tourbillon, jaillit vers le ciel!

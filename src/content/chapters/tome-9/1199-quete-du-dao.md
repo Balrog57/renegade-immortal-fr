@@ -36,7 +36,7 @@ Après une courte méditation silencieuse, Wang Lin agita la main droite et la r
 
 « Avec suffisamment de cristaux d'origine, tout ira bien! » Wang Lin sortit une grande quantité d'âmes de bêtes qu'il avait rassemblées, ainsi que l'âme de la bête mutée qu'il avait créée dans la grotte de la Secte de l'Origine. Il y injecta ensuite des dizaines de milliers de cristaux d'origine et scella le tout.
 
-« J'utiliserai les méthodes de la Secte aux Cinq Pois pour raffiner ces âmes de bêtes mutées, afin d'augmenter artificiellement la force de la bête moustique et qu'elle puisse se transformer en une reine des moustiques plus puissante. Ce n'est qu'ainsi qu'elle pourra commander l'immense essaim dans le Royaume Céleste du Vent! » Le sens divin de Wang Lin s'étendit dans la grotte. Il vit clairement la bête moustique pourpre se précipiter avec agressivité vers chaque âme de bête, les combattant et les dévorant.
+« J'utiliserai les méthodes de la Secte aux Cinq Poisons pour raffiner ces âmes de bêtes mutées, afin d'augmenter artificiellement la force de la bête moustique et qu'elle puisse se transformer en une reine des moustiques plus puissante. Ce n'est qu'ainsi qu'elle pourra commander l'immense essaim dans le Royaume Céleste du Vent! » Le sens divin de Wang Lin s'étendit dans la grotte. Il vit clairement la bête moustique pourpre se précipiter avec agressivité vers chaque âme de bête, les combattant et les dévorant.
 
 Simultanément, grâce aux restrictions, les cristaux d'origine se transformaient en une énergie d'origine dense qui pénétrait le corps de la bête moustique.
 
@@ -80,7 +80,7 @@ Wang Lin avait déjà consommé la troisième bouteille au sein de la vallée. I
 
 Soudain, une voix vague apparut dans son esprit. Cette voix semblait murmurer et devint progressivement plus claire:
 
-« Illuminé, prisonnier du Dao des cieux. Tous les êtres sensibles doivent endurer d'incommensurables calamités. Une seule pensée suffit pour quitter la profonde prison. Toute vie doit avancer éternellement et résoudre l'ère moderne. Échapper à la volonté céleste et obtenir le chemin de la vie. Sceller la volonté des cieux. Graver les jours sombres. Attendre le chemin de la culture... »
+« Éveillé, prisonnier du Dao des cieux. Tous les êtres sensibles doivent endurer d'incommensurables calamités. Une seule pensée suffit pour quitter la profonde prison. Toute vie doit avancer éternellement et résoudre l'ère moderne. Échapper à la volonté céleste et obtenir le chemin de la vie. Sceller la volonté des cieux. Graver les jours sombres. Attendre le chemin de la culture... »
 
 « Aucune vie ne connaît le vrai Dao. L'abîme amer déforme éternellement le vrai Dao... » Cette phrase continuait de résonner en lui. Progressivement, les intentions du Dao se répandirent jusqu'à couvrir 100 000 pieds, puis un million de pieds. Finalement, elles enveloppèrent une partie du Royaume aux Sept Couleurs.
 
@@ -94,12 +94,12 @@ Le visage de Maître Pin Cendré, livide, s'affaissa alors qu'il s'asseyait par 
 
 Ils avançaient d'un pas nonchalant, mais chaque mouvement s'apparentait à une distorsion spatiale. Bientôt, ils arrivèrent, mais ne s'avancèrent pas davantage; ils restèrent là, comme s'ils cherchaient eux aussi le Dao.
 
-Plus loin encore, les Illuminés qui ne flottaient que dans la brume en sortirent tous pour voler vers la vallée où se trouvait Wang Lin. Leurs murmures s'élevèrent également.
+Plus loin encore, les Éveillés qui ne flottaient que dans la brume en sortirent tous pour voler vers la vallée où se trouvait Wang Lin. Leurs murmures s'élevèrent également.
 
 Tout convergeait vers la vallée de Wang Lin, point central d'un raffinement du Dao qui bouleversait le Royaume aux Sept Couleurs. À mesure que les intentions du Dao rejetées par Wang Lin se multipliaient, le royaume entier semblait se tordre.
 
 Les Perdus cherchaient le Dao et leurs yeux devenaient de plus en plus confus. Ils fixaient l'horizon tandis qu'innombrables intentions invisibles étaient absorbées par eux.
 
-Les Illuminés arrivèrent et flottèrent dans les airs. Le murmure qui durait depuis des éons s'interrompit. Tous contemplèrent la vallée et fermèrent les yeux, comme s'ils cherchaient à comprendre le Dao de Wang Lin.
+Les Éveillés arrivèrent et flottèrent dans les airs. Le murmure qui durait depuis des éons s'interrompit. Tous contemplèrent la vallée et fermèrent les yeux, comme s'ils cherchaient à comprendre le Dao de Wang Lin.
 
-Même les bêtes de brume de rang 12 se transformèrent en diverses bêtes féroces sans émettre le moindre rugissement. Elles traversèrent le ciel pour encercler la vallée, flottant dans les airs telles les Illuminés, plongées dans la compréhension du Dao de Wang Lin.
+Même les bêtes de brume de rang 12 se transformèrent en diverses bêtes féroces sans émettre le moindre rugissement. Elles traversèrent le ciel pour encercler la vallée, flottant dans les airs telles les Éveillés, plongées dans la compréhension du Dao de Wang Lin.

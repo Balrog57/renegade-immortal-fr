@@ -12,7 +12,7 @@ Une sensation de supériorité, une aura qui faisait passer tous ceux qui se tro
 
 Les innombrables cultivateurs envahisseurs devant Wang Lin reculèrent avec terreur. La vitesse de Wang Lin semblait atteindre ses limites; chaque pas qu'il posait déclenchait un grondement tonitruant qui ébranlait les étoiles!
 
-La Hache Brise-Ciel, qui avait tué l'ancêtre du Clan des Hirondelles de Feu, laissa échapper un hurlement. Ce cri était empreint d'une intention meurtrière et d'une détermination démente qui brisa la volonté de combat des cultivateurs du Royaume Extérieur!
+La Hache Brise-Ciel, qui avait tué l'ancêtre du Clan des Moineaux de Feu, laissa échapper un hurlement. Ce cri était empreint d'une intention meurtrière et d'une détermination démente qui brisa la volonté de combat des cultivateurs du Royaume Extérieur!
 
 Ce n'était que le premier assaut! Ce n'était que le début de la guerre, et pourtant, un cultivateur du troisième niveau du Royaume Extérieur avait déjà été tué. Il n'avait pas été abattu par des moyens vils, ni par un puissant cultivateur comme Maître Hong Shan; il avait été tué par Wang Lin, considéré comme le Seigneur du Royaume Scellé, lors d'un combat direct et loyal!
 
@@ -20,9 +20,9 @@ Il n'y avait pas de meilleur moyen de désintégrer la confiance des cultivateur
 
 Wang Lin avait accompli tout cela par sa propre force. Il avait remporté ce premier meurtre dès le premier combat de cette guerre, ce qui lui vaudrait une véritable renommée dans le Royaume Extérieur!
 
-La mort du Daoïste Water ne comptait pour rien, ce n'était que l'assassinat d'un esclave. Cependant, la mort de l'ancêtre du Clan des Hirondelles de Feu était différente. C'était un exploit guerrier majeur, celui d'avoir tué un général adverse!
+La mort du Shui Daozi ne comptait pour rien, ce n'était que l'assassinat d'un esclave. Cependant, la mort de l'ancêtre du Clan des Moineaux de Feu était différente. C'était un exploit guerrier majeur, celui d'avoir tué un général adverse!
 
-Ce fut la lueur la plus éclatante pour les cultivateurs de la Mer Nuageuse qui avaient subi de lourdes pertes! Les 100 000 cultivateurs du Royaume Extérieur commencèrent à battre en retraite lentement. Outre la peur, une forme d'admiration se lisait dans leurs yeux. Même le garçon au regard froid et la concubine impériale céleste les observaient!
+Ce fut la lueur la plus éclatante pour les cultivateurs de la Mer des Nuages qui avaient subi de lourdes pertes! Les 100 000 cultivateurs du Royaume Extérieur commencèrent à battre en retraite lentement. Outre la peur, une forme d'admiration se lisait dans leurs yeux. Même le garçon au regard froid et la concubine impériale céleste les observaient!
 
 Le rire tonitruant de Maître Hong Shan résonna soudainement!
 
@@ -58,7 +58,7 @@ Alors qu'il n'était plus qu'à 2 000 pieds, l'Estimé Nan Zhao surgit derrière
 
 Cette fumée aux cinq couleurs était le poison essentiel à la vie de l'Estimé Nan Zhao. Il l'avait raffiné pendant d'innombrables années à partir de tous les poisons qu'il avait collectés. C'était son trésor le plus précieux, comparable au poison de la Grande Désolation!
 
-« Jeune Wang Lin, ce combat est terminé! » Une lueur froide brilla dans les yeux de Nan Zhao tandis qu'il tendait sa main droite. À moins de 1 000 pieds de Wang Lin, la fumée multicolore derrière lui jaillit et se transforma en cinq tornades!
+« Junior Wang Lin, ce combat est terminé! » Une lueur froide brilla dans les yeux de Nan Zhao tandis qu'il tendait sa main droite. À moins de 1 000 pieds de Wang Lin, la fumée multicolore derrière lui jaillit et se transforma en cinq tornades!
 
 Des grondements tonitruants résonnèrent à travers les étoiles. Les cinq tornades convergeaient vers Wang Lin par l'arrière!
 
@@ -108,6 +108,6 @@ Puis, sa main droite déchira le vide, créant une faille spatiale d'où surgire
 
 Qu'il s'agisse de l'océan de poison ou des bêtes moustiques, c'étaient des atouts que Wang Lin n'avait pas pu utiliser plus tôt, car ils constituaient ses cartes maîtres dans une bataille de groupe. Les cultivateurs du troisième niveau du Royaume Extérieur avaient clairement encore de la puissance à revendre; s'il ne les utilisait pas au moment critique, ces atouts risquaient d'être neutralisés avant d'avoir pu porter leur plein effet!
 
-Bien que ce ne fût pas le moment idéal, Wang Lin ne pouvait plus attendre. Quant à la Bête des Profondeurs, après avoir dévoré la Tempête Dorée, elle semblait avoir disparu. Wang Lin avait tenté de l'invoquer à plusieurs reprises, mais sans réponse.
+Bien que ce ne fût pas le moment idéal, Wang Lin ne pouvait plus attendre. Quant à la Bête des Limbes, après avoir dévoré la Tempête Dorée, elle semblait avoir disparu. Wang Lin avait tenté de l'invoquer à plusieurs reprises, mais sans réponse.
 
 L'océan de poison se dispersa et les bêtes moustiques hurlèrent. Wang Lin leva sa Hache Brise-Ciel et chargea vers la pâle Grand Maître Yun Luo. Il abattit sa main droite et la Hache Brise-Ciel frappa avec fracas!

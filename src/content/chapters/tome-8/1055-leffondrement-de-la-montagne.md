@@ -6,29 +6,29 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1055 - Mountain Crumbles
 slug: leffondrement-de-la-montagne
 ---
-Maître Vide se retourna soudainement, sa main traçant un sceau pour lancer un sortilège. Cependant, à cet instant précis, les lèvres de l'Omniscient bougèrent légèrement et Maître Vide s'interrompit aussitôt. C'était comme si une force invisible avait brusquement interrompu son incantation.
+Maître du Vide se retourna soudainement, sa main traçant un sceau pour lancer un sortilège. Cependant, à cet instant précis, les lèvres de l'Omniscient bougèrent légèrement et Maître du Vide s'interrompit aussitôt. C'était comme si une force invisible avait brusquement interrompu son incantation.
 
-L'expression de Maître Vide changea radicalement, et au même moment, Zhou Yi fendit les flammes pour charger Maître Vide. Sa vitesse était telle qu'il percuta la poitrine de Maître Vide en un instant.
+L'expression de Maître du Vide changea radicalement, et au même moment, Zhou Yi fendit les flammes pour charger Maître du Vide. Sa vitesse était telle qu'il percuta la poitrine de Maître du Vide en un instant.
 
 Un grondement de tonnerre résonna dans toute la salle et il cracha un sang noir. Il tituba ensuite de quelques pas en arrière. Des craquements sinistres retentirent sous ses pieds alors que le sol se transformait en poussière à chacun de ses pas.
 
-L'énergie d'épée se dissipa pour redevenir Zhou Yi. Son visage était livide et son corps translucide, tant une quantité massive d'énergie spirituelle s'était échappée de lui. Il semblait pouvoir disparaître à tout instant. Bien que cette attaque ait infligé des dégâts à Maître Vide, il paraissait que Zhou Yi avait également été lourdement éprouvé par l'effort.
+L'énergie d'épée se dissipa pour redevenir Zhou Yi. Son visage était livide et son corps translucide, tant une quantité massive d'énergie spirituelle s'était échappée de lui. Il semblait pouvoir disparaître à tout instant. Bien que cette attaque ait infligé des dégâts à Maître du Vide, il paraissait que Zhou Yi avait également été lourdement éprouvé par l'effort.
 
 Zhou Yi se retira aux côtés de Wang Wei et Hu Juan. Il envoya un message télépathique à Wang Lin: « Wang Lin, mon énergie d'épée n'était pas suffisante pour le tuer, mais j'ai fait ressurgir ses blessures antérieures et je les ai aggravées! »
 
 Sur ce, Zhou Yi s'assit et entama rapidement sa guérison. Il sortit de nulle part des pilules qu'il dévora aussitôt. Ces pilules étaient spécialement conçues pour les corps spirituels; elles ne ressemblaient pas à des comprimés classiques, mais plutôt à de l'énergie spirituelle fluide.
 
-Le visage de Maître Vide était d'une pâleur mortelle. Il avait déjà été gravement blessé et s'était efforcé de réprimer ses maux pour éviter qu'ils ne s'aggravent. Cependant, grâce au coup désespéré de Zhou Yi, ses blessures avaient éclaté de nouveau, provoquant une nouvelle chute de son niveau de culture. Bien qu'il n'ait pas encore régressé jusqu'au premier stade du Briseur du Nirvana, si ses blessures s'aggravaient davantage, il n'en serait pas loin. C'était la première fois qu'il ressentait un frisson dans son cœur; il recula de quelques pas supplémentaires. Sa main droite traça un sceau qu'il pointa rapidement vers son propre corps pour tenter de se stabiliser. Cette action le fit toutefois cracher davantage de sang.
+Le visage de Maître du Vide était d'une pâleur mortelle. Il avait déjà été gravement blessé et s'était efforcé de réprimer ses maux pour éviter qu'ils ne s'aggravent. Cependant, grâce au coup désespéré de Zhou Yi, ses blessures avaient éclaté de nouveau, provoquant une nouvelle chute de son niveau de culture. Bien qu'il n'ait pas encore régressé jusqu'au premier stade du Briseur du Nirvana, si ses blessures s'aggravaient davantage, il n'en serait pas loin. C'était la première fois qu'il ressentait un frisson dans son cœur; il recula de quelques pas supplémentaires. Sa main droite traça un sceau qu'il pointa rapidement vers son propre corps pour tenter de se stabiliser. Cette action le fit toutefois cracher davantage de sang.
 
 Malgré son expression féroce, ses yeux ne fixaient ni Wang Lin ni Zhou Yi, mais restaient verrouillés sur l'Omniscient.
 
-L'expression de l'Omniscient demeura impassible; le regard de Maître Vide ne lui causait aucun malaise. Il dit calmement: « Cher compagnon de culture Maître Vide, je n'oserais vous porter secours que si vous étiez réduit à un tel état. » Sur ce, l'Omniscient tourna un sourire vers Wang Wei et Hu Juan. « J'espère que le Couple Céleste des Nuages fera preuve de courtoisie envers ce vieil homme. Et si nous oubliions nos griefs personnels aujourd'hui pour nous concentrer sur l'ascension vers l'étage suivant? »
+L'expression de l'Omniscient demeura impassible; le regard de Maître du Vide ne lui causait aucun malaise. Il dit calmement: « Cher compagnon de culture Maître du Vide, je n'oserais vous porter secours que si vous étiez réduit à un tel état. » Sur ce, l'Omniscient tourna un sourire vers Wang Wei et Hu Juan. « J'espère que le Couple du Nuage Céleste fera preuve de courtoisie envers ce vieil homme. Et si nous oubliions nos griefs personnels aujourd'hui pour nous concentrer sur l'ascension vers l'étage suivant? »
 
-L'expression de Ling Tianhou devint sombre. Comment ne pouvait-il pas voir que l'Omniscient était intervenu secrètement? Il se déplaça silencieusement aux côtés de Maître Vide et lança un regard glacial à Wang Lin et son groupe.
+L'expression de Ling Tianhou devint sombre. Comment ne pouvait-il pas voir que l'Omniscient était intervenu secrètement? Il se déplaça silencieusement aux côtés de Maître du Vide et lança un regard glacial à Wang Lin et son groupe.
 
-Il y avait aussi ce vieil homme assis sur une gourde, dont l'expression indifférente semblait observer tout le monde. Cependant, sa position indiquait clairement qu'il prendrait le parti de l'Omniscient et de Maître Vide.
+Il y avait aussi ce vieil homme assis sur une gourde, dont l'expression indifférente semblait observer tout le monde. Cependant, sa position indiquait clairement qu'il prendrait le parti de l'Omniscient et de Maître du Vide.
 
-Simultanément, la jeune fille soupçonnée d'être la Sainte du Vide Brillant se leva et s'approcha de Maître Vide. Son regard magnifique balaya la salle avant de se poser sur Wang Lin, et elle dit doucement: « Cher compagnon Wang, mettons fin à cette affaire aujourd'hui. Une fois que vous aurez quitté ces lieux, mon Royaume du Vide Brillant ne s'impliquera pas dans ce conflit. »
+Simultanément, la jeune fille soupçonnée d'être la Sainte du Vide Brillant se leva et s'approcha de Maître du Vide. Son regard magnifique balaya la salle avant de se poser sur Wang Lin, et elle dit doucement: « Cher compagnon Wang, mettons fin à cette affaire aujourd'hui. Une fois que vous aurez quitté ces lieux, mon Royaume du Vide Brillant ne s'impliquera pas dans ce conflit. »
 
 Hormis l'homme en noir, tous avaient clairement choisi un camp. Les yeux de Wang Lin s'illuminèrent et il joignit les mains devant Wang Wei: « Le cadet a manqué de prudence. Je laisserai l'Aîné décider de la suite. »
 
@@ -54,15 +54,15 @@ Wang Lin détourna les yeux. Il semblait que la confusion de Hu Juan était sinc
 
 « Le terrain est totalement plat, à l'exception du volcan. L'entrée du huitième étage doit se trouver à l'intérieur! » La voix de Hu Juan résonna et parvint aux oreilles de tous.
 
-Au loin, Maître Vide affichait un visage livide. Malgré la lueur ardente environnante, son teint ne paraissait pas rougi. Sa main droite pressait sa poitrine, là où des vagues de douleur surgissaient périodiquement. Une étrange énergie d'épée s'y était logée, empêchant sa blessure de cicatriser.
+Au loin, Maître du Vide affichait un visage livide. Malgré la lueur ardente environnante, son teint ne paraissait pas rougi. Sa main droite pressait sa poitrine, là où des vagues de douleur surgissaient périodiquement. Une étrange énergie d'épée s'y était logée, empêchant sa blessure de cicatriser.
 
 « Omniscient, Wang Lin et cet esprit d'épée... je n'oublierai pas cela. Si je ne vous rends pas la monnaie de votre pièce dix fois... non, cent fois, alors je n'abandonnerai jamais! » grommela-t-il avec amertume en observant les environs.
 
-« Maudit soit, même la Grotte de l'Empereur Céleste se ligue contre moi. Elle possède une énergie d'origine de feu si puissante... j'ai peur qu'elle ne profite à ce petit bâtard! » rugit Maître Vide intérieurement, avant de réaliser soudainement quelque chose qui le glaça de sueur.
+« Maudit soit, même la Grotte de l'Empereur Céleste se ligue contre moi. Elle possède une énergie d'origine de feu si puissante... j'ai peur qu'elle ne profite à ce petit bâtard! » rugit Maître du Vide intérieurement, avant de réaliser soudainement quelque chose qui le glaça de sueur.
 
 « La chute de mon niveau de culture altère ma personnalité. Comment puis-je être si facilement provoqué?! » Il prit une profonde inspiration pour réprimer sa rage et se força au calme.
 
-Wang Wei rejoignit Hu Juan, et tous deux se transformèrent en deux rayons de lumière pour foncer vers le volcan. À ce moment, l'Omniscient et son groupe s'élancèrent également vers le cratère. La femme magnifique, le vieil homme sur la gourde et l'homme en noir volèrent vers le volcan. Maître Vide lança un regard glacial à Wang Lin avant de s'élancer à son tour.
+Wang Wei rejoignit Hu Juan, et tous deux se transformèrent en deux rayons de lumière pour foncer vers le volcan. À ce moment, l'Omniscient et son groupe s'élancèrent également vers le cratère. La femme magnifique, le vieil homme sur la gourde et l'homme en noir volèrent vers le volcan. Maître du Vide lança un regard glacial à Wang Lin avant de s'élancer à son tour.
 
 Wang Lin progressait sereinement dans les airs. Sachant que sa culture ne pouvait égaler celle des vieux monstres qui le précédaient, il ne cherchait pas à mener la charge, mais avançait avec constance. Une autre personne ralentit également au loin: la supposée Sainte du Vide Brillant. Ses beaux yeux se posèrent sur Wang Lin, et elle s'immobilisa comme si elle l'attendait.
 
@@ -78,7 +78,7 @@ Contemplant le volcan imposant, Wang Lin ferma les yeux et déploya son Sens Div
 
 Sa main immergée dans le magma le confortait profondément. Son énergie d'origine s'agita en lui pour former un vortex. Une force d'aspiration émana du corps de Wang Lin, utilisant sa main droite comme un pont; l'énergie d'origine de feu de la lave fut alors doucement aspirée dans son organisme.
 
-« J'ai déjà maîtrisé les trois premiers des six sorts de l'Empereur Céleste Bai Fan. Cependant, selon le Frère Aîné Qing Shui, les trois derniers contiennent l'essence véritable du pouvoir de Bai Fan, et le premier d'entre eux est l'Effondrement de la Montagne! Dans le Domaine de la Massacre, j'ai vu Qing Sui l'utiliser, et c'était très similaire à une éruption volcanique... » Wang Lin méditait tout en absorbant cette énergie, les yeux fixés sur le volcan majestueux.
+« J'ai déjà maîtrisé les trois premiers des six sorts de l'Empereur Céleste Bai Fan. Cependant, selon le Senior Frère Qing Shui, les trois derniers contiennent l'essence véritable du pouvoir de Bai Fan, et le premier d'entre eux est l'Effondrement de la Montagne! Dans le Domaine du Massacre, j'ai vu Qing Shui l'utiliser, et c'était très similaire à une éruption volcanique... » Wang Lin méditait tout en absorbant cette énergie, les yeux fixés sur le volcan majestueux.
 
 À sa droite, l'homme en noir portant le dragon noir caché ne pénétra pas non plus dans le volcan; il s'assit et plongea sa main gauche dans la lave d'une crevasse. Tout comme Wang Lin, il absorbait l'énergie d'origine du feu, jetant parfois des regards empreints de crainte et d'hostilité vers lui.
 

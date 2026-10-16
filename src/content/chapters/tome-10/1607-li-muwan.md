@@ -26,7 +26,7 @@ La froideur de sa voix s'estompa légèrement alors qu'elle contemplait l'enfant
 
 À cet instant précis, un éclair déchira le ciel et le tonnerre gronda. Le fracas fut si violent qu'il réveilla le bébé. Celle-ci ouvrit ses yeux purs et se mit à pleurer.
 
-Même après que le tonnerre s'est apaisé, les cris de l'enfant continuaient de résonner.
+Même après que le tonnerre se soit apaisé, les cris de l'enfant continuaient de résonner.
 
 Wang Lin regarda le bébé et dit doucement: « Laisse-moi la prendre. »
 

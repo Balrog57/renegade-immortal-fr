@@ -32,7 +32,7 @@ Les yeux de Wang Lin s'illuminèrent. Il était sur le point de signaler au roi 
 
 Cette scène fit immédiatement frissonner Wang Lin. Il savait qu'il serait extrêmement difficile pour le roi des moustiques de rassembler 10 000 individus dans son état actuel. Wang Lin repéra également une grande quantité de lueurs bleues et même quelques lueurs blanches au sein de cet essaim.
 
-Sans hésiter, Wang Lin s'anima, et les quelque 2 000 bêtes-moustiques qui l'entouraient se cachèrent. Il dissimula sa présence et envoya un ordre. Le roi des moustiques battit en retraite avec ses 2 000 sujets pour éviter la grande nuée.
+Sans hésiter, Wang Lin agit, et les quelque 2 000 bêtes-moustiques l'entourèrent. Il dissimula sa présence et envoya un ordre. Le roi des moustiques battit en retraite avec ses 2 000 sujets pour éviter la grande nuée.
 
 Heureusement, le grand essaim ne fit que scruter les environs après son arrivée. Ne trouvant aucun ennemi, ils s'envolèrent, mais cette densité de bêtes-moustiques resta gravée dans la mémoire de Wang Lin.
 

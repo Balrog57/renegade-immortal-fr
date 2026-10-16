@@ -60,7 +60,7 @@ Les yeux de Wang Lin brillèrent et il s'avança. Sa main droite tendit vers le 
 
 Les grondements du vortex devinrent plus intenses encore. Son rugissement colérique semblait exprimer son mécontentement face aux agissements de Wang Lin. Cependant, celui-ci n'en avait cure. Tandis qu'il extrayait davantage de puissance, il sortit la minuscule lueur qui constituait les restes de son Char de Guerre Anti-Dieu détruit.
 
-Ce Char de Guerre Anti-Dieu avait été anéanti lors de la première bataille de Wang Lin contre le Daoïste Water. Lorsqu'il fut détruit, il restait encore un sceau sur lui, mais cela suffit pourtant à surprendre et à blesser le Daoïste Water.
+Ce Char de Guerre Anti-Dieu avait été anéanti lors de la première bataille de Wang Lin contre le Shui Daozi. Lorsqu'il fut détruit, il restait encore un sceau sur lui, mais cela suffit pourtant à surprendre et à blesser le Shui Daozi.
 
 Le pouvoir de ce trésor était extraordinaire! Il avait été créé par l'Estimé Xuan Bao du Royaume Céleste de la Pluie. Nommé Char de Guerre Anti-Dieu, il était d'une puissance extrême. Wang Lin avait survécu à de nombreux périls grâce à lui.
 
@@ -106,7 +106,7 @@ Alors que les grondements résonnaient, le vortex se déforma. Wang Lin ouvrit l
 
 Grâce à cet afflux, le Bouclier de Lumière Azur absorba suffisamment d'énergie pour retrouver sa forme originelle!
 
-Excité, Wang Lin agita la main droite et l'armure divine antique apparut. Après avoir absorbé le reste de la puissance de la Porte du Vide, elle fut également restaurée!
+Excité, Wang Lin agita la main droite et le gantelet divin antique apparut. Après avoir absorbé le reste de la puissance de la Porte du Vide, il fut également restauré!
 
 Tout en riant, Wang Lin leva la main droite et projeta un coup de poing vers le vortex. Le vortex s'effondra dans un fracas assourdissant, mais une volonté d'une puissance indescriptible s'en échappa.
 

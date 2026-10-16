@@ -80,7 +80,7 @@ Il y déposa une parcelle de son Sens Divin, puis le lança. Le jade disparut sa
 
 « Tous les cultivateurs du troisième niveau du Système Stellaire Antique, écoutez mon ordre et rendez-vous au Conseil Souverain. Suivez leurs directives et détruisez cette formation! »
 
-« Tous les cultivateurs de la Cinquième Affliction Céleste de tous les clans, rassemblez-vous au Conseil Souverain pour subir le raffinement des Poupées du Vide. Si vous désobéissez, votre clan entier sera anéanti! »
+« Tous les cultivateurs du Cinquième Fléau Céleste de tous les clans, rassemblez-vous au Conseil Souverain pour subir le raffinement des Poupées du Vide. Si vous désobéissez, votre clan entier sera anéanti! »
 
 « Ouvrez le trésor du Conseil Souverain et sortez l'ancien appel secret. Utilisez le sang de 100 000 cultivateurs pour activer l'ancienne ordonnance impériale! »
 

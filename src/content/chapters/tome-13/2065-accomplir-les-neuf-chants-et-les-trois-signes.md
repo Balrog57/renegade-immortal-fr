@@ -68,7 +68,7 @@ Wang Lin murmura tandis qu'il observait le pied gigantesque qui tombait du ciel.
 
 « Après avoir complété mon essence du vrai et du faux dans la Secte Dong Lin il y a des centaines d'années, j'avais ressenti l'essence de la réincarnation. Pourtant, au cours des siècles passés, je ne comprenais toujours pas ce qu'était la réincarnation... »
 
-« Qu'est-ce que la réincarnation? Je pensais à l'origine qu'il s'agissait d'une loi régissant l'au-delà. Ce n'est que lors de l'apparition de l'Enseignant Impérial du Dao Antique que j'ai découvert que, pour véritablement ressusciter Wan Er, je devais utiliser le pouvoir de la réincarnation dans le Royaume Divin Immemorial... »
+« Qu'est-ce que la réincarnation? Je pensais à l'origine qu'il s'agissait d'une loi régissant l'au-delà. Ce n'est que lors de l'apparition de l'Enseignant Impérial du Dao Antique que j'ai découvert que, pour véritablement ressusciter Wan Er, je devais utiliser le pouvoir de la réincarnation dans le Royaume Divin Immémorial... »
 
 « À l'époque, j'étais perplexe. Quelle était cette puissance de la réincarnation? Je pensais qu'il s'agissait d'une loi du monde... »
 
@@ -102,7 +102,7 @@ Les neuf chants et les trois signes étaient apparus sur le corps de Wang Lin lo
 
 Dans le palais du Dao Antique, ils étaient apparus une seconde fois. Les neuf chants étaient là, mais l'un des trois signes manquait toujours.
 
-Désormais, au centre de la vaste cuvette, aux abords de la tempête marine et sous le Monde d'un Seul Dao du Grand Empereur Gu Dao, les neuf chants et les trois signes apparaissaient pour la troisième fois!
+Désormais, au centre de la vaste cuvette, aux abords de la tempête marine et sous le Monde d'un Seul Dao du Grand Empyréen Gu Dao, les neuf chants et les trois signes apparaissaient pour la troisième fois!
 
 Pourtant, cette troisième apparition ne comportait toujours que les neuf chants et manquait encore le troisième signe. C'était comme s'il manquait quelque chose, une pièce maîtresse indispensable!
 
@@ -130,7 +130,7 @@ Le son atteignit le clan Céleste, et une fissure apparut également sur la stat
 
 Une énergie infinie jaillit de la terre du clan Antique et prit la forme d'une silhouette. C'était l'Ancêtre Antique! Dans le clan Céleste, une énergie infinie jaillit également du sol pour condenser une seconde figure: l'Ancêtre Céleste.
 
-Ces deux silhouettes ne pouvaient être perçues par les mortels — seuls les Grands Empereurs pouvaient les ressentir.
+Ces deux silhouettes ne pouvaient être perçues par les mortels — seuls les Grands Empyréens pouvaient les ressentir.
 
 Dans la vaste cuvette, une troisième silhouette apparut soudainement. Cette figure surpassait à la fois l'Ancêtre Céleste et l'Ancêtre Antique alors qu'elle s'élevait vers le ciel!
 

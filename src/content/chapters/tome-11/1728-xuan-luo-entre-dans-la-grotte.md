@@ -34,17 +34,17 @@ Au même instant, les sorts des quatre généraux pénétrèrent l'énergie de l
 
 Le fracas fut tel qu'on aurait dit que le système stellaire tout entier allait s'effondrer. Les quatre généraux reculèrent, leurs visages empreints d'une intention meurtrière!
 
-Wang Lin restait debout sur le corps de la Bête des Enfers, utilisant la puissance de son Corps Antique Immortel pour résister de force à leur attaque combinée!
+Wang Lin restait debout sur le corps de la Bête des Limbes, utilisant la puissance de son Corps Antique Immortel pour résister de force à leur attaque combinée!
 
 « Vos cultures ne se sont pas encore totalement rétablies, elles n'en sont qu'au stade avancé du Vide Arcanique... Avec des niveaux aussi bas, vous ne pourrez pas blesser mon corps. » Wang Lin fit un pas en avant avec une rapidité fulgurante. Il surgit derrière un céleste et projeta sa main droite en griffant l'air.
 
-Le pouvoir de la Déchirure Céleste se manifesta. Le bras droit de Wang Lin était celui de Ye Mo. Le céleste ne put rien opposer à cette force de déchirement et son corps s'effondra instantanément en un amas de chair et de sang.
+Le pouvoir de la Déchirure du Ciel se manifesta. Le bras droit de Wang Lin était celui de Ye Mo. Le céleste ne put rien opposer à cette force de déchirement et son corps s'effondra instantanément en un amas de chair et de sang.
 
 Même les deux célestes situés derrière lui ne purent échapper à la force destructrice. Leurs corps furent broyés et leurs âmes d'origine déchirées!
 
 Le corps de Wang Lin vacilla et plongea dans une faille alors que les quatre généraux convergeaient vers lui. Il réapparut au milieu d'un groupe de célestes peu éloigné.
 
-« Déchirure Céleste! » Dès son apparition, Wang Lin utilisa sans pitié sa technique. Tandis que des cris déchirants retentissaient, sept ou huit célestes s'effondrèrent.
+« Déchirure du Ciel! » Dès son apparition, Wang Lin utilisa sans pitié sa technique. Tandis que des cris déchirants retentissaient, sept ou huit célestes s'effondrèrent.
 
 Les quatre généraux rugirent et leurs sorts emplirent le système stellaire en fonçant vers Wang Lin. Cependant, il les repoussa grâce à son Corps Antique Immortel et surgit devant un autre groupe de célestes.
 
@@ -52,27 +52,27 @@ Les célestes furent envahis par la terreur et une douleur atroce ravagea leurs 
 
 « Wang Lin, je vais massacrer ton Royaume Céleste! » rugit le général du Dragon Azure, les yeux brûlants de rage. Pourtant, au-delà de la colère, il était frappé par l'incrédulité face aux méthodes et à la puissance physique phénoménale de Wang Lin.
 
-« Il semble que cette leçon de sang ne suffise pas! » Wang Lin recula pour se tenir sur le dos de la Bête des Enfers. Juste au moment où le Vieux Fantôme Zhan s'apprêtait à l'encercler, Wang Lin secoua le sang de sa main droite et tapota la bête.
+« Il semble que cette leçon de sang ne suffise pas! » Wang Lin recula pour se tenir sur le dos de la Bête des Limbes. Juste au moment où le Vieux Fantôme Zhan s'apprêtait à l'encercler, Wang Lin secoua le sang de sa main droite et tapota la bête.
 
 « Dévore ces gens. »
 
-À ces mots, le Vieux Fantôme Zhan s'immobilisa brusquement, tandis que les yeux de la Bête des Enfers s'ouvraient.
+À ces mots, le Vieux Fantôme Zhan s'immobilisa brusquement, tandis que les yeux de la Bête des Limbes s'ouvraient.
 
 La cruauté et l'indifférence qui émanaient de ce regard terrifièrent l'assistance.
 
 C’est à cet instant précis que l’esprit du général du Dragon Azure fut secoué. Un tel regard était extrêmement rare; il ne l'avait vu qu'une seule fois dans sa vie. Il y a fort longtemps, la brume qui avait dévoré Lian Daofei possédait ce même regard!
 
-« C'est... c'est... » Alors que les quatre généraux commençaient à céder à la terreur, la Bête des Enfers obéit à l'ordre de Wang Lin et ouvrit sa gueule pour dévorer!
+« C'est... c'est... » Alors que les quatre généraux commençaient à céder à la terreur, la Bête des Limbes obéit à l'ordre de Wang Lin et ouvrit sa gueule pour dévorer!
 
 Si les étoiles constituaient le monde, alors le monde changea de couleur. Si la poussière était le vent, alors la poussière se dispersa! Une brume infinie apparut soudainement dans le système stellaire, exhalant une aura antique que chacun pouvait ressentir.
 
-Une puissante force d'aspiration surgit alors. Les soixante-dix ou quatre-vingts célestes restants autour des quatre généraux pâlirent tandis qu'ils étaient aspirés par ce tourbillon. Des cris de détresse résonnèrent alors que tous étaient engloutis par la Bête des Enfers.
+Une puissante force d'aspiration surgit alors. Les soixante-dix ou quatre-vingts célestes restants autour des quatre généraux pâlirent tandis qu'ils étaient aspirés par ce tourbillon. Des cris de détresse résonnèrent alors que tous étaient engloutis par la Bête des Limbes.
 
 Tout cela se produisit en un battement de cils! L'événement fut trop rapide pour permettre toute réaction. Ils ne sentirent que la brume les envahir, suivis par des hurlements de douleur!
 
 Une fois le chaos passé, le système stellaire semblait inchangé et aucune trace de brume ne subsistait, comme si elle n'avait jamais existé. Pourtant, hormis Wang Lin, il ne restait que cinq survivants!
 
-« Vous vous souviendrez de cette douleur? » Wang Lin était toujours assis sur la Bête des Enfers, immobile. Sa voix n'était pas forte, mais lorsqu'elle atteignit les oreilles des cinq survivants, dont le Vieux Fantôme Zhan, leurs cœurs tremblèrent!
+« Vous vous souviendrez de cette douleur? » Wang Lin était toujours assis sur la Bête des Limbes, immobile. Sa voix n'était pas forte, mais lorsqu'elle atteignit les oreilles des cinq survivants, dont le Vieux Fantôme Zhan, leurs cœurs tremblèrent!
 
 « Le Dao Céleste!!! C'est le Dao Céleste!! » Le général du Dragon Azure tremblait, les yeux emplis d'une peur telle qu'il se sentait comme noyé par une marée montante. Il n'avait jamais été aussi terrifié, pas même lorsqu'il avait vu Wang Lin manier l'arc de Li Guang!
 
@@ -95,15 +95,15 @@ Cependant, même ainsi, la capacité de dévoration du Dao Céleste avait ses li
 
 « Tu as trouvé la troisième âme... » La voix du Vieux Fantôme Zhan était empreinte d'amertume et de désolation. Pourtant, ce n'était pas lui qui parlait; ces mots appartenaient à l'âme aux sept couleurs.
 
-« Je ne l'ai pas trouvée. » Wang Lin secoua la tête. La Bête des Enfers en dessous de lui lança un regard froid aux cinq individus avant de fermer les yeux et de s'éloigner.
+« Je ne l'ai pas trouvée. » Wang Lin secoua la tête. La Bête des Limbes en dessous de lui lança un regard froid aux cinq individus avant de fermer les yeux et de s'éloigner.
 
-Dès qu'il eut dépassé les quatre généraux, ceux-ci tremblèrent et prirent la fuite. Ils n'osaient plus barrer la route à Wang Lin. Ils regardèrent Wang Lin et la Bête des Enfers disparaître au loin, incapables de retrouver leur calme pendant un long moment.
+Dès qu'il eut dépassé les quatre généraux, ceux-ci tremblèrent et prirent la fuite. Ils n'osaient plus barrer la route à Wang Lin. Ils regardèrent Wang Lin et la Bête des Limbes disparaître au loin, incapables de retrouver leur calme pendant un long moment.
 
 Ils possédaient peut-être des moyens de ne pas craindre le Vieux Fantôme Zhan — après tout, son corps abritait l'âme du Souverain Céleste aux Sept Couleurs — mais face à Wang Lin et au Dao Céleste, ils ne purent que rester silencieux.
 
-Wang Lin, assis sur la Bête des Enfers, flottait vers le Vide Brillant. Bien qu'il paraisse calme, il soupira intérieurement.
+Wang Lin, assis sur la Bête des Limbes, flottait vers le Vide Brillant. Bien qu'il paraisse calme, il soupira intérieurement.
 
-« Le Dao Céleste est-il incomplet...? Les quatre généraux étaient une formalité, mais la Bête des Enfers a laissé entendre qu'il serait très difficile de dévorer le Vieux Fantôme Zhan... »
+« Le Dao Céleste est-il incomplet...? Les quatre généraux étaient une formalité, mais la Bête des Limbes a laissé entendre qu'il serait très difficile de dévorer le Vieux Fantôme Zhan... »
 
 Également dans le Vide Brillant, un rayon de lumière aux sept couleurs traversait l'espace. Le Daoïste aux Sept Couleurs, tenant neuf sphères de sang de la taille d'un poing, volait vers l'avant.
 

@@ -46,7 +46,7 @@ Et ce dernier halo s'estompait lui aussi lentement.
 
 « Wang Lin! Réveille-toi! » Xuan Luo asséna un coup de poing contre le temple ancestral et poussa un rugissement capable de briser les cieux. Ce cri résonna dans toute la cité impériale tel le tonnerre avant de s'engouffrer vers le temple.
 
-Il tenta de forcer à nouveau l'entrée, mais fut rejeté par la force de répulsion. Xuan Luo était en proie à une angoisse extrême. Il avait déjà vécu les Trois Divisions d'Âme du Dao Ancestral. Tant que les halos subsistaient, même en l'absence de vitalité ou de conscience, ce n'était pas la mort, mais une sorte de sommeil.
+Il tenta de forcer à nouveau l'entrée, mais fut rejeté par la force de répulsion. Xuan Luo était en proie à une angoisse extrême. Il avait déjà vécu les Trois Divisions d'Âme du Dao Antique. Tant que les halos subsistaient, même en l'absence de vitalité ou de conscience, ce n'était pas la mort, mais une sorte de sommeil.
 
 Un sommeil de l'âme. Si Wang Lin pouvait être tiré de cette léthargie, tant que les halos persistaient, il y aurait un espoir de survie. C'était pour cette raison qu'il avait choisi de monter la garde auprès de lui!
 
@@ -60,9 +60,9 @@ Une réponse venait enfin d'éclater au grand jour!
 
 « Wang Lin? Ce nom me semble familier... »
 
-« C'est lui! Ce Wang Lin est celui qui a tué l'Empereur du Dao Ancestral il y a plus de cent ans! C'est bien lui! »
+« C'est lui! Ce Wang Lin est celui qui a tué l'Empereur du Dao Antique il y a plus de cent ans! C'est bien lui! »
 
-« La rumeur dit que ce Wang Lin est le dixième Grand Empereur du Continent Astral Immortel. Mon Dieu, je n'aurais jamais imaginé que la personne subissant la calamité soit ce Wang Lin! »
+« La rumeur dit que ce Wang Lin est le dixième Grand Empyréen du Continent Astral Immortel. Mon Dieu, je n'aurais jamais imaginé que la personne subissant la calamité soit ce Wang Lin! »
 
 Alors que les rugissements anxieux de Xuan Luo faisaient vibrer la cité impériale de l'Ancien Shi, le dernier halo restant devint encore plus pâle. Il semblait sur le point de s'évanouir à tout instant.
 

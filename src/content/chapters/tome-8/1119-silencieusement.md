@@ -100,7 +100,7 @@ Cette douleur était un poison qui envahissait son esprit et détruisait tout su
 
 « Sortilège céleste: Étoile Filante! » À peine eut-il prononcé ces mots qu'un rayon de lumière stellaire tomba du ciel, perçant la brume noire pour s'écraser dans la mer sombre. Puis, des rayons d'une origine inconnue jaillirent, transperçant le brouillard noir. La lumière stellaire jaillit même de la mer elle-même, montant droit vers les ténèbres.
 
-En un instant, la lumière des étoiles remplit le monde. Sous les mouvements des bras de Wang Lin, la lueur stellaire convergea vers la brume céleste dans un grondement tonnerre. La lumière s'aggloméra pour créer un impact indescriptible qui se propagea rapidement à travers l'univers.
+En un instant, la lumière des étoiles remplit le monde. Sous les mouvements des bras de Wang Lin, la lueur stellaire convergea vers la brume céleste dans un grondement de tonnerre. La lumière s'aggloméra pour créer un impact indescriptible qui se propagea rapidement à travers l'univers.
 
 À cet instant, le corps de Wang Lin s'effondra. Wang Wei, Hu Juan, Zhou Yi et Qing Shuang apparurent l'un après l'autre. Enfin, un Qing Lin mélancolique, vêtu de vert, apparut!
 

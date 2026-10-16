@@ -58,7 +58,7 @@ Le jeune homme nommé Zhou afficha une expression complexe lorsqu'il détourna l
 
 « Quoi?! » L'expression de l'homme nommé Yu changea radicalement, ses yeux se remplissant d'incrédulité. La femme à ses côtés était tout aussi sous le choc.
 
-« On murmurait que le Grand Ancien du Clan du Tonnerre Dispersé se trouvait au cinquième niveau de la Souffrance Céleste et qu'il ne pouvait être vaincu par personne, si ce n'est par des cultivateurs du troisième pas. À moins que... à moins que le coupable ne soit un cultivateur du troisième pas! »
+« On murmurait que le Grand Ancien du Clan du Tonnerre Dispersé se trouvait au cinquième niveau du Fléau Céleste et qu'il ne pouvait être vaincu par personne, si ce n'est par des cultivateurs du troisième pas. À moins que... à moins que le coupable ne soit un cultivateur du troisième pas! »
 
 « De plus, le Clan du Tonnerre Dispersé comptait des centaines de milliers de membres et de nombreux cultivateurs puissants. Comment ont-ils pu être exterminés ainsi?! »
 

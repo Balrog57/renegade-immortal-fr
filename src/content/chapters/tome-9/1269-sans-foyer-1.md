@@ -24,7 +24,7 @@ Wang Lin réfléchit en silence en contemplant la Secte de l'Origine. Il éprouv
 
 Après un moment de réflexion, Wang Lin dit lentement: « Partez tous les premiers, j'ai encore d'autres affaires à régler. Si l'occasion se présente, je vous retrouverai dans une secte de rang 7. »
 
-Une pointe de tristesse passa dans les yeux de Lu Yanfei, mais elle comprit qu'avec le niveau de culture de Wang Lin, il ne pourrait jamais rester au sein du modeste Secte de l'Origine. Elle ne s'attendait simplement pas à ce qu'il parte si tôt.
+Une pointe de tristesse passa dans les yeux de Lu Yanfei, mais elle comprit qu'avec le niveau de culture de Wang Lin, il ne pourrait jamais rester au sein de la modeste Secte de l'Origine. Elle ne s'attendait simplement pas à ce qu'il parte si tôt.
 
 Se mordant la lèvre inférieure, Lu Yanfei s'inclina respectueusement devant Wang Lin. Elle voulut dire quelque chose, mais finit par se taire. En poussant un soupir intérieur, elle prit les membres de la Secte de l'Origine et partit par le réseau de transfert.
 
@@ -66,7 +66,7 @@ Avant qu'il ne puisse achever sa phrase, l'un des trois Anciens joignit les main
 
 L'expression de Li Qianmei resta neutre, mais un séisme ravagea son esprit.
 
-« Je connais cette personne. Le Maître m'avait autrefois envoyée dans la région de rang 5 pour chercher le jade et la relique du Frère Aîné Sima. En chemin, Qianmei a rencontré ce Lu Zihao. »
+« Je connais cette personne. Le Maître m'avait autrefois envoyée dans la région de rang 5 pour chercher le jade et la relique du Senior Frère Sima. En chemin, Qianmei a rencontré ce Lu Zihao. »
 
 Le maître de secte la regarda profondément et déclara lentement: « C'est précisément pour cette raison que je te retiens ici pendant trois mois! »
 

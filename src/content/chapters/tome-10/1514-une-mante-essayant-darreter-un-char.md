@@ -56,13 +56,13 @@ Ses yeux s'écarquillèrent et son rugissement devint plus intense encore alors 
 
 Elle fit également un mouvement de charge, mais c'était comme si une corde invisible la retenait; elle ne pouvait franchir Wang Lin et ne pouvait que rugir plus fort.
 
-La colère de la Bête des Limbes était terrifiante. À cet instant, Daoïste Eau fut envahi par le désespoir. Il n'aurait jamais imaginé que tous ses plans échoueraient à cause de cette étrange créature!
+La colère de la Bête des Limbes était terrifiante. À cet instant, Shui Daozi fut envahi par le désespoir. Il n'aurait jamais imaginé que tous ses plans échoueraient à cause de cette étrange créature!
 
-Alors que l'attention de tous était captée par la Bête des Limbes, passée de timide à féroce, Daoïste Eau prit soudainement la fuite.
+Alors que l'attention de tous était captée par la Bête des Limbes, passée de timide à féroce, Shui Daozi prit soudainement la fuite.
 
-Les yeux de Wang Lin s'illuminèrent. Les autres pourraient oublier Daoïste Eau, mais lui ne l'oublierait pas. Wang Lin fit un pas en avant, et le monde trembla lorsqu'il chargea à la poursuite de Daoïste Eau!
+Les yeux de Wang Lin s'illuminèrent. Les autres pourraient oublier Shui Daozi, mais lui ne l'oublierait pas. Wang Lin fit un pas en avant, et le monde trembla lorsqu'il chargea à la poursuite de Shui Daozi!
 
-Le regard de Daoïste Eau était empreint de désespoir. Tout en reculant, ses mains formèrent un sceau et il cracha une bouchée de sang. Ce sang était d'un violet noirâtre, et une énergie glaciale se propagea immédiatement.
+Le regard de Shui Daozi était empreint de désespoir. Tout en reculant, ses mains formèrent un sceau et il cracha une bouchée de sang. Ce sang était d'un violet noirâtre, et une énergie glaciale se propagea immédiatement.
 
 Cependant, au moment même où cette énergie froide se répandait, une chaleur intense jaillit également. Elle alternait entre le froid et le chaud jusqu'à former un vortex pourpre sombre qui fonça vers Wang Lin!
 
@@ -74,19 +74,19 @@ Lorsque le vortex toucha le poing fantôme, des bruits de craquements retentiren
 
 Au moment même où la sculpture se formait, une chaleur intense jaillit de la glace. Cette chaleur était si puissante que, avant même que la glace ne puisse fondre, elle vola en éclats!
 
-« Explose! » Les yeux de Daoïste Eau étaient injectés de sang alors qu'il reculait, poussant un rugissement de folie.
+« Explose! » Les yeux de Shui Daozi étaient injectés de sang alors qu'il reculait, poussant un rugissement de folie.
 
-De nouveaux fracas tonitruants retentirent et la glace se brisa. Cependant, le poing de Wang Lin ne vacilla pas et ne fut nullement bloqué. Il fonça vers Daoïste Eau avec une puissance capable de détruire le monde!
+De nouveaux fracas tonitruants retentirent et la glace se brisa. Cependant, le poing de Wang Lin ne vacilla pas et ne fut nullement bloqué. Il fonça vers Shui Daozi avec une puissance capable de détruire le monde!
 
-Tout cela se passa à une vitesse fulgurante. En un instant, le poing de Wang Lin percuta Daoïste Eau. Les veines sur le visage de ce dernier gonflèrent et il poussa un cri qui ressemblait presque à un sifflement. Il leva la main pour tenter de résister à l'impact!
+Tout cela se passa à une vitesse fulgurante. En un instant, le poing de Wang Lin percuta Shui Daozi. Les veines sur le visage de ce dernier gonflèrent et il poussa un cri qui ressemblait presque à un sifflement. Il leva la main pour tenter de résister à l'impact!
 
 Pourtant, dès que ses bras pressèrent contre le poing géant, des bruits de rupture retentirent et ses membres s'effondrèrent. Tandis que sa chair et son sang explosaient, même ses os se brisaient centimètre par centimètre!
 
 Il cracha du sang, sentant une force irrésistible émaner du poing fantôme. Sous cette douleur atroce, ses bras furent broyés!
 
-Cette scène était semblable à une mante essayant d'arrêter un char. Après l'effondrement de ses bras, le poing fantôme de Wang Lin s'écrasa contre le corps de Daoïste Eau.
+Cette scène était semblable à une mante essayant d'arrêter un char. Après l'effondrement de ses bras, le poing fantôme de Wang Lin s'écrasa contre le corps de Shui Daozi.
 
-Sa chair et son sang volèrent en éclats dans un cri misérable. Le corps de Daoïste Eau s'effondra exactement comme Wang Lin l'avait prédit!
+Sa chair et son sang volèrent en éclats dans un cri misérable. Le corps de Shui Daozi s'effondra exactement comme Wang Lin l'avait prédit!
 
 Son âme originelle s'échappa juste avant que son corps ne soit détruit. Il s'enfuit comme un fou, la peur monstrueuse gravée dans les yeux!
 
@@ -94,10 +94,10 @@ Wang Lin flottait dans les airs et observait la scène d'un regard indifférent.
 
 Ses cheveux blancs flottant au vent, sa silhouette blanche en mouvement... c'était une vision que tous auraient du mal à oublier de toute leur vie!
 
-« Daoïste Eau, vous m'avez poussé au bord de la mort alors que je ne pouvais pas me défendre. Pensiez-vous qu'un jour vous finiriez comme un chien errant devant moi? »
+« Shui Daozi, vous m'avez poussé au bord de la mort alors que je ne pouvais pas me défendre. Pensiez-vous qu'un jour vous finiriez comme un chien errant devant moi? »
 
 « C'est le karma! Maintenant, je vais prendre votre vie! » Le passé refit surface devant les yeux de Wang Lin et il s'avança, imprégné d'une intention meurtrière!
 
 « Vous ne pouvez pas me tuer! Je suis l'Ancien de la Secte Divine, je suis un cultivateur du troisième niveau de la Mer des Nuages, je suis l'esclave du Seigneur du Royaume Scellé! Vous ne pouvez pas me tuer! J'apporterai des mérites au royaume intérieur. Je possède des informations sur le royaume extérieur. Si vous me laissez partir, je suis prêt à devenir votre esclave! »
 
-Bien que Daoïste Eau fût un cultivateur du troisième niveau, son cœur était bien plus vil. Face à la mort imminente, il abandonna toute dignité et hurla bruyamment: « Je suis prêt à devenir votre esclave, ne me tuez pas! »
+Bien que Shui Daozi fût un cultivateur du troisième niveau, son cœur était bien plus vil. Face à la mort imminente, il abandonna toute dignité et hurla bruyamment: « Je suis prêt à devenir votre esclave, ne me tuez pas! »

@@ -6,25 +6,25 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1374 - Arrival of Master Simo
 slug: arrivee-du-maitre-simo
 ---
-Dès que le vieil homme sortit le Cristal de Mutation de Feu Brûlant, Wang Lin le reconnut. Il l'avait déjà vu auparavant et avait même passé plusieurs années à se soigner grâce à lui.
+Dès que le vieil homme sortit le Cristal de Mutation de Feu Déchaîné, Wang Lin le reconnut. Il l'avait déjà vu auparavant et avait même passé plusieurs années à se soigner grâce à lui.
 
-Dans le Système Stellaire de l'Alliance, au plus profond de l'espace ardent de la Secte Divin de l'Oiseau Vermillon, flottait une grande pierre blanche. C'était là que l'ancien Empereur Divin cultivait.
+Dans le Système Stellaire de l'Alliance, au plus profond de l'espace ardent de la Secte Divine de l'Oiseau Vermillon, flottait une grande pierre blanche. C'était là que l'ancien Empereur Divin cultivait.
 
-Le Cristal de Mutation de Feu Brûlant des Terres Déchues était exactement le même que cette pierre blanche!
+Le Cristal de Mutation de Feu Déchaîné des Terres Déchues était exactement le même que cette pierre blanche!
 
 « Se pourrait-il que le Grand Empereur soit lié à la Secte de l'Oiseau Vermillon... » Wang Lin n'éprouvait pas beaucoup d'affection pour la Secte de l'Oiseau Vermillon. Cependant, il devait énormément à l'ancien Empereur Divin de l'Oiseau Vermillon, et c'était une dette de gratitude que Wang Lin ne pouvait tout simplement pas oublier.
 
-L'esprit du vieil Empereur Divin et ses dizaines de milliers d'années de dévouement silencieux remplissaient le cœur de Wang Lin de respect. Aux yeux de ce dernier, le vieil Empereur Divin était l'égal du Seigneur du Domaine Scellé. La seule différence était que l'un gardait les Quatre Sectes Divins, tandis que l'autre gardait tout le Royaume Intérieur.
+L'esprit du vieil Empereur Divin et ses dizaines de milliers d'années de dévouement silencieux remplissaient le cœur de Wang Lin de respect. Aux yeux de ce dernier, le vieil Empereur Divin était l'égal du Seigneur du Domaine Scellé. La seule différence était que l'un gardait les Quatre Sectes Divines, tandis que l'autre gardait tout le Royaume Intérieur.
 
 Ce qui excitait tant Wang Lin était ce que le vieil Empereur Divin lui avait confié.
 
-« Je m'appelle Lu Yun, et je suis né dans le monde antique des raffineurs de Qi. Je suis devenu l'apprenti alchimiste de la quatrième génération de l'Empereur Divin de l'Oiseau Vermillon. Je suis reconnaissant envers le quatrième Empereur de ne pas m'avoir abandonné et de m'avoir enseigné la culture du Qi. À l'âge de 1 327 ans, j'ai accompli certains exploits en tant que raffineur de Qi. J'ai suivi l'Empereur Divin et été témoin de la gloire de ma Secte Divin de l'Oiseau Vermillon...
+« Je m'appelle Lu Yun, et je suis né dans le monde antique des raffineurs de Qi. Je suis devenu l'apprenti alchimiste de la quatrième génération de l'Empereur Divin de l'Oiseau Vermillon. Je suis reconnaissant envers le quatrième Empereur de ne pas m'avoir abandonné et de m'avoir enseigné la culture du Qi. À l'âge de 1 327 ans, j'ai accompli certains exploits en tant que raffineur de Qi. J'ai suivi l'Empereur Divin et été témoin de la gloire de ma Secte Divine de l'Oiseau Vermillon...
 
-À l'âge de 11 463 ans, le Clan du Tatou a envahi le monde extérieur et a semé le chaos. Ma Secte Divin de l'Oiseau Vermillon a aidé le Royaume Céleste à combattre le Clan du Tatou! Par la suite, le quatrième Empereur Divin est parti avec les trois autres Empereurs Divins pour rejoindre le monde extérieur. Avant leur départ, j'ai été désigné comme le cinquième Empereur Divin de l'Oiseau Vermillon! »
+À l'âge de 11 463 ans, le Clan du Tatouage a envahi le monde extérieur et a semé le chaos. Ma Secte Divine de l'Oiseau Vermillon a aidé le Royaume Céleste à combattre le Clan du Tatouage! Par la suite, le quatrième Empereur Divin est parti avec les trois autres Empereurs Divins pour rejoindre le monde extérieur. Avant leur départ, j'ai été désigné comme le cinquième Empereur Divin de l'Oiseau Vermillon! »
 
-Le regard de Wang Lin restait fixé sur le petit Cristal de Mutation de Feu Brûlant, et ses yeux s'illuminèrent.
+Le regard de Wang Lin restait fixé sur le petit Cristal de Mutation de Feu Déchaîné, et ses yeux s'illuminèrent.
 
-« Le vieil Empereur Divin a dit que la quatrième génération de l'Empereur Divin est partie avec les trois autres vers le Monde Extérieur, puis il n'a plus jamais eu de leurs nouvelles... Les Terres Déchues abritent également quelqu'un appartenant à la Secte Divin de l'Oiseau Vermillon... Se pourrait-il que la quatrième génération de l'Empereur Divin soit venue dans ces Terres Déchues à cette époque?
+« Le vieil Empereur Divin a dit que la quatrième génération de l'Empereur Divin est partie avec les trois autres vers le Monde Extérieur, puis il n'a plus jamais eu de leurs nouvelles... Les Terres Déchues abritent également quelqu'un appartenant à la Secte Divine de l'Oiseau Vermillon... Se pourrait-il que la quatrième génération de l'Empereur Divin soit venue dans ces Terres Déchues à cette époque?
 
 En observant la chronologie, cela ne semble pas cohérent... » Wang Lin réprima son excitation initiale et commença à réfléchir. Après un long moment, il n'était toujours pas certain et laissa échapper un profond soupir.
 
@@ -70,7 +70,7 @@ L'automate arborait une expression figée; ses yeux étaient vides, sans aucun s
 
 « Le secret de cette marionnette doit être caché derrière cette couche de protection. Seul en regardant à l'intérieur pourrai-je découvrir sa vérité! » Le Sens Divin de Wang Lin s'agita et le tatouage de tonnerre dans son œil droit étincela avant de jaillir.
 
-Toute la grotte fut enveloppée d'éclairs, et tandis qu'un grondement assourdissant résonnait, la foudre se propagea. Le tonnerre s'étendit depuis l'intérieur de la caverne, faisant pâlir les membres du Clan des Scorpions Noirs qui fixèrent tous l'entrée avec effroi.
+Toute la grotte fut enveloppée d'éclairs, et tandis qu'un grondement assourdissant résonnait, la foudre se propagea. Le tonnerre s'étendit depuis l'intérieur de la caverne, faisant pâlir les membres du Clan du Scorpion Noir qui fixèrent tous l'entrée avec effroi.
 
 L'activation du tatouage de tonnerre avait considérablement augmenté le niveau de culture de Wang Lin. Même son Sens Divin était devenu un véritable orage, chargé contre la couche de protection à l'intérieur de la marionnette.
 
@@ -84,7 +84,7 @@ La marionnette ainsi suspendue finit par se briser. L'automate explosa et l'onde
 
 La montagne trembla, laissant tomber des masses de terre. Si Wang Lin n'avait pas placé de restrictions, la montagne serait devenue une ruine totalement aplatie et la planète elle-même aurait violemment tremblé.
 
-Les cultivateurs du Clan des Scorpions Noirs environnants regardaient la grotte avec crainte. Le vieil homme esquissa un sourire amer; il avait ressenti une aura familière dans l'onde de choc, ce qui lui fit comprendre que la marionnette avait probablement été détruite.
+Les cultivateurs du Clan du Scorpion Noir environnants regardaient la grotte avec crainte. Le vieil homme esquissa un sourire amer; il avait ressenti une aura familière dans l'onde de choc, ce qui lui fit comprendre que la marionnette avait probablement été détruite.
 
 La grotte était remplie de nuages de poussière qui se dissipèrent progressivement. Wang Lin se tenait là, le regard brillant. Bien que le sort « Arrête » n'ait suspendu l'effondrement qu'un instant, il lui avait permis de saisir le secret!
 
@@ -100,7 +100,7 @@ Wang Lin saisissait vaguement quelques indices, mais tout était trop confus pou
 
 « Grand Empereur des Terres Déchues... qui est donc cet individu? » Wang Lin songea silencieusement alors que la porte de la grotte s'ouvrait et qu'il en sortait.
 
-« Ancien du Clan des Scorpions, guidez-moi vers la planète de culture la plus proche abritant un Ancien Déchu! » Le vieil homme du Clan des Scorpions Noirs hocha rapidement la tête après avoir entendu les ordres de Wang Lin et lui montra le chemin.
+« Ancien du Clan des Scorpions, guidez-moi vers la planète de culture la plus proche abritant un Ancien Déchu! » Le vieil homme du Clan du Scorpion Noir hocha rapidement la tête après avoir entendu les ordres de Wang Lin et lui montra le chemin.
 
 À cet instant, des ondulations apparurent dans l'espace à l'extérieur des Terres Déchues et un homme d'âge moyen en sortit. C'était celui qui poursuivait Wang Lin: Maître Simo. Ses yeux étaient sombres et une lueur étrange y brillait tandis qu'il scrutait le domaine stellaire non contrôlé par le Conseil Souverain.
 
@@ -108,4 +108,4 @@ Wang Lin saisissait vaguement quelques indices, mais tout était trop confus pou
 
 Tout en réfléchissant, Maître Simo s'élança vers les Terres Déchues.
 
-« Je dois le trouver au plus vite, peu importe le danger, et fouiller son âme pour découvrir le secret permettant de déclencher la Porte du Vide sans les Flammes du Néant! »
+« Je dois le trouver au plus vite, peu importe le danger, et fouiller son âme pour découvrir le secret permettant de déclencher la Porte du Vide sans les Flammes Joss! »

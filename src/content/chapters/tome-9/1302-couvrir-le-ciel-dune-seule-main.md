@@ -72,11 +72,11 @@ Alors que les grondements tonitruants résonnaient, l'éclair devint fou. Il se 
 
 Tandis que les grondements tonitruants s'intensifiaient, les nuages et le tonnerre entrèrent en collision. Un son encore plus violent que les précédents surgit et se propagea dans toute la région de rang 9!
 
-À l'intérieur de la Secte Divin, Mu Bingmei fut tirée de ses dix années de culture. Elle regarda à l'extérieur et découvrit que le ciel était noir et tremblait violemment, comme s'il allait s'effondrer!
+À l'intérieur de la Secte Divine, Mu Bingmei fut tirée de ses dix années de culture. Elle regarda à l'extérieur et découvrit que le ciel était noir et tremblait violemment, comme s'il allait s'effondrer!
 
 Wang Shanshan, à ses côtés, pâlit et leva les yeux vers le ciel.
 
-Au plus profond de la Secte Divin, dans la chambre où se trouvait Shui Daozi, la lumière aux sept couleurs entre ses sourcils s'était affaiblie. La pointe de l'ongle aux sept couleurs était apparue et toutes les veines de son corps avaient gonflé. Il était sur le point d'expulser l'ongle aux sept couleurs!
+Au plus profond de la Secte Divine, dans la chambre où se trouvait Shui Daozi, la lumière aux sept couleurs entre ses sourcils s'était affaiblie. La pointe de l'ongle aux sept couleurs était apparue et toutes les veines de son corps avaient gonflé. Il était sur le point d'expulser l'ongle aux sept couleurs!
 
 Les grondements tonitruants précédents ne le distraient absolument pas. Il se trouvait au moment le plus critique, et même si le ciel s'effondrait, il ne détournerait pas le regard. Toute son attention était concentrée sur l'expulsion de l'ongle aux sept couleurs.
 
@@ -86,11 +86,11 @@ Ce flash intense fit changer radicalement l'expression de Shui Daozi, qui cracha
 
 Il fixa le vide, hébété, et lâcha un rugissement qui ébranla les cieux!
 
-La Secte Céleste Brisant de rang 9 avait également entendu ce tonnerre et vu les nuages tourbillonnants. Ils déployèrent immédiatement la formation de protection de la secte!
+La Secte Brise-Ciel de rang 9 avait également entendu ce tonnerre et vu les nuages tourbillonnants. Ils déployèrent immédiatement la formation de protection de la secte!
 
-Le Maître de la Secte Céleste Brisant, assis dans sa chambre close, fixait silencieusement le ciel étoilé. Après un long moment, il poussa un soupir et agita ses manches. Il brisa la formation de protection de la secte et chargea à travers les nuages de rétribution divine vers la fissure spatiale de la Secte Démon!
+Le Maître de la Secte Brise-Ciel, assis dans sa chambre close, fixait silencieusement le ciel étoilé. Après un long moment, il poussa un soupir et agita ses manches. Il brisa la formation de protection de la secte et chargea à travers les nuages de rétribution divine vers la fissure spatiale de la Secte Démon!
 
-Outre la Secte Démon, la Secte Divin et la Secte Céleste Brisant, il y avait encore la Secte Fantôme! À cet instant, au plus profond des nuages, se trouvait une planète de culture dont la formation de protection était ouverte. Cependant, une ombre immense planait sur la formation. Cette ombre possédait une seule corne, telle un dieu démon!
+Outre la Secte Démon, la Secte Divine et la Secte Brise-Ciel, il y avait encore la Secte Fantôme! À cet instant, au plus profond des nuages, se trouvait une planète de culture dont la formation de protection était ouverte. Cependant, une ombre immense planait sur la formation. Cette ombre possédait une seule corne, telle un dieu démon!
 
 Elle fixait avidement les nuages en dégageant une aura diabolique. Neuf étoiles démoniaques tournaient dans ses yeux et, à chaque rotation, une force mystérieuse pénétrait son corps.
 

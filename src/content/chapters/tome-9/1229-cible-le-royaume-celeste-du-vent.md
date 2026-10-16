@@ -22,7 +22,7 @@ Il avait combattu Maître Pin Cendré et avait été frappé par le clou aux sep
 
 Il avait obtenu la Restriction Temporelle ainsi que les deux épées plantées dans les restes du cerf mystérieux. Tout cela exaltait Wang Lin. Cent ans s'étaient écoulés rapidement, et le changement produit par cette période était aussi vaste que le ciel et la terre!
 
-« Les choses changent souvent, et il y a toujours des gains et des pertes... Lors de la bataille contre Maître Pin Cendré, l'épée de fer qui m'accompagnait depuis de nombreuses années s'est brisée. Lors du combat contre le Maître du Dao Rêve Bleu, l'épée de cristal, la haché de guerre et même mon ancien fourneau divin se sont brisés... Plus important encore, ma sixième étoile, encore floue, a volé en éclats. »
+« Les choses changent souvent, et il y a toujours des gains et des pertes... Lors de la bataille contre Maître Pin Cendré, l'épée de fer qui m'accompagnait depuis de nombreuses années s'est brisée. Lors du combat contre le Maître du Dao Rêve Bleu, l'épée de cristal, la hache de guerre et même mon ancien fourneau divin se sont brisés... Plus important encore, ma sixième étoile, encore floue, a volé en éclats. »
 
 Wang Lin poussa un soupir et murmura: « Heureusement, l'étoile faite de loi est toujours là... Bien que la sixième étoile soit brisée, tant que mon corps subit le second essai, elle pourra être restaurée, ou par une autre opportunité. Après tout, j'ai déjà atteint ce niveau auparavant; la récupérer sera bien plus facile que de gravir à nouveau les échelons. »
 
@@ -98,7 +98,7 @@ Après avoir rangé le jade, Wang Lin se sentait confiant. Bien que gravement bl
 
 « L'essentiel maintenant est de guérir et de me rendre au Royaume Céleste du Vent pour obtenir un troupeau de bêtes moustiques. Alors, je pourrai me déplacer à ma guise dans la Mer des Nuages! »
 
-« Quant à la compétition de la Secte Originelle au sein de la grande secte, elle durera encore quelques mois, il n'y a donc aucune urgence. Pour l'instant, je dois atteindre le Royaume Céleste du Vent le plus vite possible! » Wang Lin prit sa décision et s'élança vers les étoiles à une vitesse fulgurante.
+« Quant à la compétition de la Secte de l'Origine au sein de la grande secte, elle durera encore quelques mois, il n'y a donc aucune urgence. Pour l'instant, je dois atteindre le Royaume Céleste du Vent le plus vite possible! » Wang Lin prit sa décision et s'élança vers les étoiles à une vitesse fulgurante.
 
 Il avait obtenu de nombreuses cartes stellaires auprès de Peng Lai cent ans auparavant et les avait déjà mémorisées. Désormais, il fendait le brouillard tel un météore. Cet endroit se situait déjà à la frontière de la région de rang 6. Wang Lin traversa rapidement la brume pour y pénétrer.
 

@@ -14,9 +14,9 @@ Cela ne dura qu'un instant avant que la main ne relâche sa prise. Elle ne se so
 
 Sous cette emprise, le corps de l'Omniscient trembla comme si une main invisible l'avait saisi.
 
-Une fois l'Omniscient capturé, la grande main le serra impitoyablement. Son corps fut secoué et une multitude de phantoms apparurent. Dès leur apparition, ces phantoms furent aspirés par la main.
+Une fois l'Omniscient capturé, la grande main le serra impitoyablement. Son corps fut secoué et une multitude de phantômes apparurent. Dès leur apparition, ces phantômes furent aspirés par la main.
 
-Cette absorption était plusieurs fois plus rapide que le rythme auquel l'Omniscient libérait ses phantoms. En conséquence, la perte subie par l'Omniscient fut inimaginable.
+Cette absorption était plusieurs fois plus rapide que le rythme auquel l'Omniscient libérait ses phantômes. En conséquence, la perte subie par l'Omniscient fut inimaginable.
 
 Après seulement dix respirations, la main géante devint presque solide, mais elle cessa d'absorber. Elle desserra lentement sa prise, recula progressivement et disparut dans le vide.
 
@@ -44,7 +44,7 @@ Quant à Ling Tianhou, le visage déformé par la panique et le cuir chevelu eng
 
 Presque à bout de nerfs, Ling Tianhou atteignit la lisière du noyau planétaire et s'y engouffra en serrant les dents.
 
-« Lorsque j'ai obtenu la planète Da Lou, je savais qu'une étincelle de flamme utilisée pour sa raffinage subsistait encore! En ce moment de crise, j'espère pouvoir utiliser cette flamme pour résister. » À l'instant où il pénétra le noyau, une vague de chaleur lui cingla le visage.
+« Lorsque j'ai obtenu la planète Da Lou, je savais qu'une étincelle de flamme utilisée pour son raffinage subsistait encore! En ce moment de crise, j'espère pouvoir utiliser cette flamme pour résister. » À l'instant où il pénétra le noyau, une vague de chaleur lui cingla le visage.
 
 La lumière invisible s'approcha rapidement et pénétra directement dans le noyau. En un éclair, elle se mua en une main géante qui tendit les doigts vers Ling Tianhou.
 

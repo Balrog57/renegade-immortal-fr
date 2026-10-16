@@ -12,27 +12,27 @@ Seule une telle force permettait à une secte de se faire un nom sur une terre a
 
 Sur le Continent Astral Immortel, quiconque avait franchi le stade de la Tribulation du Vide pouvait être considéré comme un Exalté. Même les cultivateurs au stade avancé de la Tribulation du Vide étaient considérés comme des Exaltés. Seuls ceux qui étaient infiniment proches du sommet de la Tribulation du Vide, mais incapables de combler l'abîme, pouvaient être appelés Exaltés Dorés!
 
-Si l'on parvenait à briser le seuil du sommet de la Tribulation du Vide, on devenait un Faux Exalté Céleste, ou simplement un Exalté Céleste! Même les Grands Empereurs prêtaient attention à ces cultivateurs. Non seulement les Grands Empereurs se montraient courtois, mais ils déployaient également d'immenses efforts pour les attirer à leurs côtés.
+Si l'on parvenait à briser le seuil du sommet de la Tribulation du Vide, on devenait un Faux Exalté Empyréen, ou simplement un Exalté Empyréen! Même les Grands Empyréens prêtaient attention à ces cultivateurs. Non seulement les Grands Empyréens se montraient courtois, mais ils déployaient également d'immenses efforts pour les attirer à leurs côtés.
 
-Après tout, les Exaltés Célestes étaient les êtres les plus puissants sous l'autorité des Grands Empereurs! Bien qu'il existât des conflits entre les Grands Empereurs, ils n'intervenaient pas personnellement. Car s'ils entraient en combat, les conséquences seraient trop lourdes!
+Après tout, les Exaltés Empyréens étaient les êtres les plus puissants sous l'autorité des Grands Empyréens! Bien qu'il existât des conflits entre les Grands Empyréens, ils n'intervenaient pas personnellement. Car s'ils entraient en combat, les conséquences seraient trop lourdes!
 
-À moins que cela ne soit absolument nécessaire, les Grands Empereurs ne se battaient pas entre eux. En ce temps-là, Dao Yi et Xuan Luo se disputaient des territoires!
+À moins que cela ne soit absolument nécessaire, les Grands Empyréens ne se battaient pas entre eux. En ce temps-là, Dao Yi et Xuan Luo se disputaient des territoires!
 
-Cependant, aucun des deux ne pouvait porter de coup décisif à l'autre. Par conséquent, les conflits entre Grands Empereurs dépendaient du nombre et de la puissance des Exaltés Célestes qui se trouvaient sous leur commandement.
+Cependant, aucun des deux ne pouvait porter de coup décisif à l'autre. Par conséquent, les conflits entre Grands Empyréens dépendaient du nombre et de la puissance des Exaltés Empyréens qui se trouvaient sous leur commandement.
 
-On pouvait dire qu'un Exalté Céleste pouvait obtenir une gloire et un statut inimaginables sur le Continent Astral Immortel, bénéficiant ainsi de l'attention et de la protection d'un Grand Empereur.
+On pouvait dire qu'un Exalté Empyréen pouvait obtenir une gloire et un statut inimaginables sur le Continent Astral Immortel, bénéficiant ainsi de l'attention et de la protection d'un Grand Empyréen.
 
-La rumeur disait que si les Exaltés Célestes étaient appelés « Faux » Exaltés Célestes, c'était parce qu'il existait un autre niveau entre eux et les Grands Empereurs: le royaume de l'Ascendant Céleste. Les cultivateurs à ce niveau avaient transcendé le sommet de la Tribulation du Vide et étaient extrêmement rares, même parmi les partisans des Grands Empereurs!
+La rumeur disait que si les Exaltés Empyréens étaient appelés « Faux » Exaltés Empyréens, c'était parce qu'il existait un autre niveau entre eux et les Grands Empyréens: le royaume de l'Ascendant Empyréen. Les cultivateurs à ce niveau avaient transcendé le sommet de la Tribulation du Vide et étaient extrêmement rares, même parmi les partisans des Grands Empyréens!
 
-Depuis l'Antiquité, peu de cultivateurs avaient pu atteindre le rang d'Exalté Céleste. Encore moins parvenaient à transcender ce rang pour atteindre celui d'Ascendant Céleste. La rumeur prétendait que Luo Yunhai, du Grande Secte de l'Âme, était un Ascendant Céleste, et c'est pour cette raison qu'il avait osé défier le Grand Empereur Dao Yi!
+Depuis l'Antiquité, peu de cultivateurs avaient pu atteindre le rang d'Exalté Empyréen. Encore moins parvenaient à transcender ce rang pour atteindre celui d'Ascendant Empyréen. La rumeur prétendait que Luo Yunhai, de la Secte de la Grande Âme, était un Ascendant Empyréen, et c'est pour cette raison qu'il avait osé défier le Grand Empyréen Dao Yi!
 
-Cependant, cet homme était devenu bien trop arrogant et un conflit inconnu les avait poussés à l'affrontement, forçant le Grand Empereur Dao Yi à l'exécuter. Néanmoins, le Grand Empereur Dao Yi permit que son âme retourne au Grande Secte de l'Âme, car il admirait son talent!
+Cependant, cet homme était devenu bien trop arrogant et un conflit inconnu les avait poussés à l'affrontement, forçant le Grand Empyréen Dao Yi à l'exécuter. Néanmoins, le Grand Empyréen Dao Yi permit que son âme retourne à la Secte de la Grande Âme, car il admirait son talent!
 
-Depuis la naissance du Continent du Taureau Céleste, les étrangers ne connaissaient qu'un seul Ascendant Céleste y ayant fait son apparition!
+Depuis la naissance du Continent du Taureau Céleste, les étrangers ne connaissaient qu'un seul Ascendant Empyréen y ayant fait son apparition!
 
-Exalté Doré, Exalté Céleste, Ascendant Céleste, Grand Empereur. Ces quatre titres représentaient quatre sommets de puissance distincts!
+Exalté Doré, Exalté Empyréen, Ascendant Empyréen, Grand Empyréen. Ces quatre titres représentaient quatre sommets de puissance distincts!
 
-Le Grande Secte de l'Âme possédait l'Ancêtre du Taureau Vert et un Ascendant Céleste nommé Luo Yunhai qui avait osé défier un Grand Empereur. Bien que cela remontât à une époque lointaine, sa renommée subsistait encore aujourd'hui. L'estimé Taureau Vert était un Exalté Doré possédant un corps véritable d'essence. Grâce aux sorts mystérieux du Grande Secte de l'Âme, celui-ci comptait parmi les neuf sectes et treize factions, occupant un rang très élevé.
+La Secte de la Grande Âme possédait l'Ancêtre du Taureau Vert et un Ascendant Empyréen nommé Luo Yunhai qui avait osé défier un Grand Empyréen. Bien que cela remontât à une époque lointaine, sa renommée subsistait encore aujourd'hui. L'estimé Taureau Vert était un Exalté Doré possédant un corps véritable d'essence. Grâce aux sorts mystérieux de la Secte de la Grande Âme, celui-ci comptait parmi les neuf sectes et treize factions, occupant un rang très élevé.
 
 Quant à la Secte Gui Yi, ils ne possédaient aucun Exalté Doré. Même leur maître de secte n'était qu'un cultivateur au stade avancé de la Tribulation du Vide. Un gouffre céleste le séparait d'un véritable expert au sommet de ce stade!
 
@@ -46,7 +46,7 @@ Pour ce qui est de la Secte du Dao Démoniaque, leur maître de secte était un 
 
 Cependant, la Secte du Dao Démoniaque n'était pas une force négligeable parmi les neuf sectes et treize factions. Outre leur maître de secte Exalté Doré, ils comptaient quatre Exaltés de la Tribulation du Vide, mais surtout, ils possédaient un ancêtre vivant en dehors de la secte!
 
-L'ancêtre de la Secte du Dao Démoniaque était un Exalté Céleste! Il ne se souciait guère de la secte et ne vouait aucun culte au Temple du Scorpion Vert Démoniaque. Il ne se préoccupait que de sa propre culture et, il y a 13 000 ans, il avait été recruté par le Grand Empereur Dao Yi!
+L'ancêtre de la Secte du Dao Démoniaque était un Exalté Empyréen! Il ne se souciait guère de la secte et ne vouait aucun culte au Temple du Scorpion Démon Vert. Il ne se préoccupait que de sa propre culture et, il y a 13 000 ans, il avait été recruté par le Grand Empyréen Dao Yi!
 
 Grâce à un tel ancêtre, la Secte du Dao Démoniaque était devenu célèbre dans tout le Continent de l'Est et occupait une position dominante sur le Continent du Démon Vert!
 
@@ -56,17 +56,17 @@ Mais si quelqu'un cherchait à détruire la racine dao de la Secte du Dao Démon
 
 Tout cela était consigné sur la carte en forme de carapace de tortue que l'Ancêtre du Taureau Vert avait remise à Wang Lin.
 
-« Sur le Continent de l'Est, il ne reste plus que sept Exaltés Célestes! Je me demande... avec mon niveau actuel, quel rang atteindrai-je si j'utilise l'armure d'âme du Taureau Céleste... » Tandis que la tempête faisait rage, Wang Lin se tenait là, les mains derrière le dos, le regard brillant.
+« Sur le Continent de l'Est, il ne reste plus que sept Exaltés Empyréens! Je me demande... avec mon niveau actuel, quel rang atteindrai-je si j'utilise l'armure d'âme du Taureau Céleste... » Tandis que la tempête faisait rage, Wang Lin se tenait là, les mains derrière le dos, le regard brillant.
 
-« Je peux ignorer les Exaltés Dorés, les Exaltés Célestes... Je n'en ai combattu aucun, mais je brûle d'envie de le faire! » Les cheveux blancs de Wang Lin flottaient au vent. D'un revers de manche, il recouvrit sa tête de ses vêtements.
+« Je peux ignorer les Exaltés Dorés, les Exaltés Empyréens... Je n'en ai combattu aucun, mais je brûle d'envie de le faire! » Les cheveux blancs de Wang Lin flottaient au vent. D'un revers de manche, il recouvrit sa tête de ses vêtements.
 
 De loin, Wang Lin semblait porter une robe blanche dissimulant son visage et même sa chevelure immaculée. Il dégageait une aura mystérieuse et ancestrale.
 
-La Secte du Dao Démoniaque était enveloppé d'une masse de brouillard rendant toute vision impossible. Autrefois, la secte comptait plus de 100 000 disciples.
+La Secte du Dao Démoniaque était enveloppée d'une masse de brouillard rendant toute vision impossible. Autrefois, la secte comptait plus de 100 000 disciples.
 
 Cependant, après plus de cent ans de guerre, il n'en restait que 30 000, sans que leur puissance ne soit pour autant amoindrie. Les quatre cultivateurs au stade avancé de la Tribulation du Vide étaient toujours en vie. Deux se trouvaient sur le Continent du Taureau Céleste pour gérer le champ de bataille, tandis que deux autres gardaient la secte.
 
-Le maître de la Secte du Dao Démoniaque était entré en culture recluse depuis plus de cent ans. Il semblait tenter d'atteindre le rang d'Exalté Céleste et n'en était toujours pas ressorti.
+Le maître de la Secte du Dao Démoniaque était entré en culture recluse depuis plus de cent ans. Il semblait tenter d'atteindre le rang d'Exalté Empyréen et n'en était toujours pas ressorti.
 
 En raison des pertes massives de cultivateurs, la formation de la secte demeurait active afin de protéger le lieu et prévenir tout incident.
 
@@ -86,7 +86,7 @@ Une petite île trônait au centre du lac. C'était là que le maître de la sec
 
 Bien qu'il eût passé sa vie dans le massacre, Wang Lin n'aimait pas tuer. En réalité, à mesure que sa culture progressait, il ne tuait que rarement, sauf s'il y était contraint ou placé face à une situation de vie ou de mort.
 
-Pourtant, il était en proie à une soif de sang intense en cet instant. D'abord, à la frontière du Continent de la Terre Meng, tout la Secte du Dao Démoniaque s'était dressé pour empêcher Wang Lin de partir paisiblement. Ils s'étaient tous précipités sur lui avec une fureur de fous.
+Pourtant, il était en proie à une soif de sang intense en cet instant. D'abord, à la frontière du Continent de la Terre Meng, toute la Secte du Dao Démoniaque s'était dressée pour empêcher Wang Lin de partir paisiblement. Ils s'étaient tous précipités sur lui avec une fureur de fous.
 
 Tout en le traquant, ils avaient jeté ces têtes. Bien que Wang Lin n'éprouvât aucun lien avec ces restes, il s'agissait de cultivateurs qui avaient combattu à ses côtés dans la Prairie du Ciel Extrême.
 
@@ -98,7 +98,7 @@ Et il entendit cette voix venimeuse résonner à nouveau:
 
 « J'aime les têtes humaines... Je les aime en effet... » Wang Lin ouvrit les yeux, habités par une intention meurtrière monstrueuse.
 
-Le fait d'avoir été capturé par le maître de la secte et les souffrances endurées dans le temple des scorpions ne pourraient être compensés par la mort d'un seul homme. Puisque tout la Secte du Dao Démoniaque s'était opposé à lui autrefois, il détruirait aujourd'hui la secte tout entière!
+Le fait d'avoir été capturé par le maître de la secte et les souffrances endurées dans le temple des scorpions ne pourraient être compensés par la mort d'un seul homme. Puisque toute la Secte du Dao Démoniaque s'était opposée à lui autrefois, il détruirait aujourd'hui la secte tout entière!
 
 « Peu importe votre niveau de culture, personne ne pourra échapper à votre sort! Si vous devez trouver un coupable, blâmez le fait que vous apparteniez à la Secte du Dao Démoniaque! » Wang Lin possédait une intention meurtrière terrifiante, mais il ne la laissait pas s'échapper n'importe comment. Cependant, lorsqu'il la déchaîna enfin, elle fut capable de briser les cieux!
 

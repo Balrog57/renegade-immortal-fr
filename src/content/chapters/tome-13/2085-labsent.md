@@ -6,11 +6,11 @@ bookTitle: Light of the coming end
 en: Chapter 2085 - The Missing One
 slug: labsent
 ---
-Quel était donc le Royaume Divin Immemorial?
+Quel était donc le Royaume Divin Immémorial?
 
-C'était la question que presque tous les cultivateurs du Continent Astral Immortel se posaient. Même les Grands Empereurs ignoraient quelle était la nature de l'existence du Royaume Divin Immemorial ou d'où il provenait.
+C'était la question que presque tous les cultivateurs du Continent Astral Immortel se posaient. Même les Grands Empyréens ignoraient quelle était la nature de l'existence du Royaume Divin Immémorial ou d'où il provenait.
 
-Bien que de nombreuses personnes aient pénétré dans le Royaume Divin Immemorial, nul n'avait pu déterminer la nature exacte de ce lieu.
+Bien que de nombreuses personnes aient pénétré dans le Royaume Divin Immémorial, nul n'avait pu déterminer la nature exacte de ce lieu.
 
 Wang Lin observa les alentours. Le ciel était rouge. Il n'y avait ni étoiles, ni soleil, ni lune, mais une lumière douce baignait l'espace. La terre était circulaire.
 
@@ -74,9 +74,9 @@ Cette silhouette était d'une hauteur prodigieuse, semblant soutenir le monde en
 
 « Un vide, hein... » Wang Lin médita silencieusement.
 
-« Tu ne me crois pas? Le "toi" qui n'a pas recouvré ses souvenirs est d'une pitoyabilité extrême face à ce vieil homme! Wang Lin, laisse-moi te dire que l'univers se compose de quatre grands royaumes. Ce royaume est le Royaume de la Terre Défiante! Chaque royaume possède un trésor, et celui de la Terre Défiante est la Boussole des Limites, l'unique Trésor d'Extinction du Vide! »
+« Tu ne me crois pas? Le « toi » qui n'a pas recouvré ses souvenirs est d'une pitoyabilité extrême face à ce vieil homme! Wang Lin, laisse-moi te dire que l'univers se compose de quatre grands royaumes. Ce royaume est le Royaume de la Terre Défiante! Chaque royaume possède un trésor, et celui de la Terre Défiante est la Boussole des Limites, l'unique Trésor d'Extinction du Vide! »
 
-« Ce Royaume Divin Immemorial est la Boussole des Limites! » Les yeux de l'immense silhouette de l'Omniscient brillaient d'excitation.
+« Ce Royaume Divin Immémorial est la Boussole des Limites! » Les yeux de l'immense silhouette de l'Omniscient brillaient d'excitation.
 
 « Quant à toi, dans ta vie passée, tu étais l'être le plus puissant au monde et tu aurais pu tout obtenir. Pourtant, pour une femme, tu as emprunté la Boussole des Limites au gardien pour tenter de ressusciter ton épouse! »
 

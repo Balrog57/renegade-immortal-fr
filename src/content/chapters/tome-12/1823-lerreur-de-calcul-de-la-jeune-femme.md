@@ -30,9 +30,9 @@ Elle n'oublierait jamais que son aînée l'avait même manipulée pour tenter d'
 
 Fan Shanmeng resta silencieuse, plongée dans ses pensées.
 
-Alors que la montagne rouge tremblait, les auras des puissants cultivateurs de la Secte du Grand Âme se déployèrent. Des Sens Divins terrifiants enveloppèrent la montagne rouge.
+Alors que la montagne rouge tremblait, les auras des puissants cultivateurs de la Secte de la Grande Âme se déployèrent. Des Sens Divins terrifiants enveloppèrent la montagne rouge.
 
-Cette montagne n'était qu'un des pics principaux de la Secte du Grand Âme, et celui-ci comptait au total 49 pics principaux! Bien que chaque sommet ne soit pas occupé par un cultivateur au stade de la Tribulation du Vide, cela témoignait de l'immense puissance de la Secte du Grand Âme.
+Cette montagne n'était qu'un des pics principaux de la Secte de la Grande Âme, et celui-ci comptait au total 49 pics principaux! Bien que chaque sommet ne soit pas occupé par un cultivateur au stade de la Tribulation du Vide, cela témoignait de l'immense puissance de la Secte de la Grande Âme.
 
 Dans les profondeurs de la veine principale du feu terrestre, le corps de Wang Lin, entouré de flammes, progressait rapidement vers les profondeurs. La jeune femme le poursuivait, dévorée par une intention meurtrière.
 
@@ -48,17 +48,17 @@ Tandis qu'il dévorait, l'âme principale du dragon laissa échapper un rugissem
 
 Le véritable corps d'essence de Wang Lin semblait pressé. « Plus vite, dévore encore davantage! » rugissait-il intérieurement. L'âme du dragon hurlait tandis que son corps continuait de se tordre. La douleur de la dévoration lui faisait ressentir l'imminence de la mort.
 
-À mesure que son corps se convulsait, des ondes de choc se propageaient dans toutes les directions, faisant trembler l'ensemble de la Secte du Grand Âme. En particulier, la montagne rouge gronda et son sommet vola en éclats.
+À mesure que son corps se convulsait, des ondes de choc se propageaient dans toutes les directions, faisant trembler l'ensemble de la Secte de la Grande Âme. En particulier, la montagne rouge gronda et son sommet vola en éclats.
 
 Une mer de feu jaillit soudainement vers le ciel, comme si elle voulait embraser les cieux.
 
-Ce bouleversement attira l'attention de la Secte du Grand Âme. Les disciples de la montagne reculèrent tous.
+Ce bouleversement attira l'attention de la Secte de la Grande Âme. Les disciples de la montagne reculèrent tous.
 
 « Que se passe-t-il?! »
 
 « Serait-ce quelqu'un qui s'est dirigé vers la veine principale du feu terrestre? »
 
-Des rugissements résonnèrent tandis que de plus en plus de disciples de la Secte du Grand Âme arrivaient sur les lieux.
+Des rugissements résonnèrent tandis que de plus en plus de disciples de la Secte de la Grande Âme arrivaient sur les lieux.
 
 Sous terre, la jeune femme ressentit évidemment le changement en surface. Son visage magnifique se voila d'une expression sombre et glaciale. Elle regarda Wang Lin qui s'échappait et forma un sceau de sa main droite. Un miroir de bronze apparut dans sa paume.
 
@@ -70,7 +70,7 @@ En un éclair, il franchit plus de la moitié de la distance séparant Wang Lin!
 
 L'esprit de Wang Lin était scindé en deux: une partie résidait dans son corps d'essence pour dévorer la volonté du feu, et l'autre dans son corps physique pour échapper à la jeune femme. Au moment où le visage fantomatique se trouva à 300 pieds de lui, Wang Lin se retourna, un éclat de froideur dans les yeux.
 
-« Le sortilège du Visage Fantomatique de la Secte du Grand Âme... » Les paupières de Wang Lin tremblèrent et il fit un pas de son pied droit. Des ondulations se propagèrent et il disparut sans laisser de trace. À l'instant même de sa disparition, le visage fantomatique chargea l'endroit où il se trouvait pour le dévorer.
+« Le sortilège du Visage Fantomatique de la Secte de la Grande Âme... » Les paupières de Wang Lin tremblèrent et il fit un pas de son pied droit. Des ondulations se propagèrent et il disparut sans laisser de trace. À l'instant même de sa disparition, le visage fantomatique chargea l'endroit où il se trouvait pour le dévorer.
 
 Des grondements tonitruants résonnèrent dans les profondeurs de la terre. Lorsque la jeune femme arriva et s'arrêta là, elle ne put s'empêcher de froncer les sourcils.
 

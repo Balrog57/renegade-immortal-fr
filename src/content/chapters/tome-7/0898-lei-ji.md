@@ -40,7 +40,7 @@ Avec le niveau de culture de Wang Lin à l'époque, il n'aurait ressenti qu'un t
 
 Il se souvenait clairement que le cultivateur devant lui était venu deux fois auparavant. La première fois, ce dernier n'était qu'au stade de l'Établissement des Fondations. Il ne s'en était pas soucié, car un tel cultivateur ne pouvait rien pour lui.
 
-Des centaines d'années plus tard, ce cultivateur revint une seconde fois. Cette fois, ce jeune prodige était presque au stade de la Transformation de l'Âme. À cette époque, il était venu prélever son sang et avait totalement ignoré ses appels au secours. Pour gagner du temps, il avait même tenté de tenter le jeune cultivateur en lui promettant de devenir sa monture. Pourtant, il avait échoué à s'échapper, car ce dernier était bien trop prudent.
+Des centaines d'années plus tard, ce cultivateur revint une seconde fois. Cette fois, ce jeune prodige était presque au stade de la Transformation de l'Âme. À cette époque, il était venu prélever son sang et avait totalement ignoré ses appels au secours. Pour gagner du temps, il avait même tenté d'amadouer le jeune cultivateur en lui promettant de devenir sa monture. Pourtant, il avait échoué à s'échapper, car ce dernier était bien trop prudent.
 
 Il en avait toujours éprouvé de la rancœur, mais il n'avait eu d'autre choix. Cependant, maintenant que ce cultivateur revenait pour la troisième fois, il était terrifié.
 
@@ -60,13 +60,13 @@ Une plante pourpre recouvrait le corps du géant et s'agitait continuellement. �
 
 Une légère marque de hache scintillait parfois entre les sourcils du géant.
 
-« Sauvez-moi... Aîné... Aîné, sauvez-moi... Je, Lei Ji, suis prêt à devenir la monture de l'Aîné. Je vous en prie, sauvez-moi, Aîné. » Le Sens Divin du géant était faible, mais cette fois, ses paroles ne cachaient aucun stratagème; il n'y avait qu'un pur appel au secours.
+« Sauvez-moi... Senior... Senior, sauvez-moi... Je, Lei Ji, suis prêt à devenir la monture de Senior. Je vous en prie, sauvez-moi, Senior. » Le Sens Divin du géant était faible, mais cette fois, ses paroles ne cachaient aucun stratagème; il n'y avait qu'un pur appel au secours.
 
 Wang Lin observa la substance pourpre qui enlacait Lei Ji. Il comprit que la plante s'était enracinée à l'intérieur même de son corps. Il ne faudrait que quelques centaines d'années avant que la force vitale de Lei Ji ne soit totalement absorbée, le transformant en un cadavre.
 
 Wang Lin demanda calmement: « Combien de membres de votre Clan des Démons Géants ont été capturés par la Secte des Cadavres? »
 
-« Aîné, sur la planète Suzaku, je suis le seul. Cependant, dans le Système Stellaire de l'Alliance, je sais qu'une grande partie de mon clan a été capturée par la Secte des Cadavres. Ils ont des vues sur les corps de notre lignée. Mais s'ils tentaient de posséder nos corps par des moyens conventionnels, notre capacité de lignée disparaîtrait. Leur but est de posséder nos corps tout en conservant ce pouvoir.
+« Senior, sur la planète Suzaku, je suis le seul. Cependant, dans le Système Stellaire de l'Alliance, je sais qu'une grande partie de mon clan a été capturée par la Secte des Cadavres. Ils ont des vues sur les corps de notre lignée. Mais s'ils tentaient de posséder nos corps par des moyens conventionnels, notre capacité de lignée disparaîtrait. Leur but est de posséder nos corps tout en conservant ce pouvoir.
 
 « La vigne pourpre dans mon corps est une plante étrange que la Secte des Cadavres utilise pour s'approprier ma force vitale sans affecter ma capacité de lignée. Ainsi, ils pourront posséder mon corps sans aucun obstacle. » Si Wang Lin n'avait pas atteint son niveau actuel, Lei Ji n'aurait pas dit la vérité, mais là, il parlait sans aucune hésitation.
 
@@ -82,7 +82,7 @@ Une fleur trônait au sommet de cette entité végétale. Lorsqu'elle s'ouvrit, 
 
 Un rugissement strident retentit, créant une tempête qui chargea vers Wang Lin. L'expression du jeune homme devint glaciale. Il y avait un Sens Divin à l'intérieur de cette plante; ce n'était pas une simple créature végétale.
 
-« Aîné, le Sens Divin d'un Vice-Maître de Salle de la Secte des Cadavres se trouve dans la plante. Mon corps a été préparé pour ce chef de section. Si vous n'étiez pas venu, je crains que lorsque ma force vitale sera épuisée dans quelques centaines d'années, il ne puisse posséder mon corps sans aucune entrave... » Bien que son Sens Divin faiblisse, Lei Ji luttait encore pour parler.
+« Senior, le Sens Divin d'un Vice-Maître de Salle de la Secte des Cadavres se trouve dans la plante. Mon corps a été préparé pour ce chef de section. Si vous n'étiez pas venu, je crains que lorsque ma force vitale sera épuisée dans quelques centaines d'années, il ne puisse posséder mon corps sans aucune entrave... » Bien que son Sens Divin faiblisse, Lei Ji luttait encore pour parler.
 
 En entendant cela, un éclair de compréhension traversa l'esprit de Wang Lin.
 

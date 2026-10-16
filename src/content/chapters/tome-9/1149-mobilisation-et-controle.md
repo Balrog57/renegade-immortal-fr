@@ -20,7 +20,7 @@ Cette montagne, entièrement noire, s'élançait vers les cieux telle une épée
 
 Un immense singe noir, assis en position de lotus comme un être humain, trônait là. Il mesurait pas moins de mille pieds de haut. Ses bras étaient aussi épais que de vieux pins, dont il faudrait plusieurs hommes pour faire tout le tour.
 
-Un arbre géant aux teintes pourpres, qui n'atteignait pas la cheville de la créature, poussait à ses côtés. Le tronc était largement desséché, comme s'il avait vécu depuis une éternité. Pourtant, il n'était pas mort; il arborait encore de nombreuses branches couvertes d'un feuillage dense.
+Un arbre géant aux teintes pourpres, qui n'atteignait pas le mollet de la créature, poussait à ses côtés. Le tronc était largement desséché, comme s'il avait vécu depuis une éternité. Pourtant, il n'était pas mort; il arborait encore de nombreuses branches couvertes d'un feuillage dense.
 
 Étrange était la nature des feuilles: elles étaient d'un blanc immaculé et leurs nervures étaient si visibles qu'elles semblaient faites de cristal. Deux fruits de la taille d'un poing, mêlant le noir et le blanc, ornaient l'arbre. C'était une vision singulière.
 
@@ -28,7 +28,7 @@ Le singe géant ouvrit les yeux, qui s'illuminèrent avec la vivacité de deux f
 
 Lorsque son regard croisa celui de Wang Lin, ce dernier agita la main droite. Un vent noir surgit et faucha la vie d'une douzaine de singes noirs. Wang Lin leva la tête et soutint ce regard glacial.
 
-Roar!
+Rugissement!
 
 Un rugissement capable de faire trembler les cieux retentit au sommet de la montagne. La férocité des bêtes entourant Wang Lin décupla, et une vague d'odeur fétide s'abattit sur lui. Elles voulaient déchirer son corps et même dévorer son âme.
 
@@ -86,7 +86,7 @@ Le regard de Wang Lin devint de plus en plus intense alors que l'action du vieil
 
 À chaque pression de son doigt, l'énergie originelle du monde s'accumulait pour se condenser dans sa paume. Après trois pressions, le visage de Wang Lin devint légèrement rouge, mais ses yeux brillèrent d'un éclat nouveau et il poussa un rugissement.
 
-Rumble, rumble, rumble!
+Grondement, grondement, grondement!
 
 Le singe géant recula immédiatement tandis qu'une quantité massive de sang jaillissait de son bras. Une empreinte de paume nette y était marquée, accompagnée de trois fissures laissées par les doigts. Ces fêlures commencèrent à se propager rapidement le long du membre de la créature.
 

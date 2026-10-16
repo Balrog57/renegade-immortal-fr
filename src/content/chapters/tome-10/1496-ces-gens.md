@@ -62,7 +62,7 @@ Le cœur du Dieu Sanguin battait la chamade et le désespoir emplissait son rega
 
 À l'instant même où Zhou Jin et Ling Dong apparurent, leurs auras de la troisième étape balayèrent Luotian et s'engouffrèrent dans les trois autres systèmes stellaires!
 
-Dans le système stellaire de Mer de Nuages, au sein de la chambre secrète de la Secte de Dieu.
+Dans le système stellaire de la Mer des Nuages, au sein de la chambre secrète de la Secte de Dieu.
 
 Shui Daozi cultivait calmement. Ses blessures étaient guéries, mais soudain, il ouvrit les yeux, frappé par la stupeur. Il se leva instinctivement et scruta l'horizon.
 
@@ -72,7 +72,7 @@ Son expression changea instantanément, empreinte d'incrédulité!
 
 Elle ne sembla pas remarquer l'aura qui terrifiait Shui Daozi et continua sa culture en silence.
 
-Dans la région de rang un du système stellaire de Mer de Nuages, se trouvait un petit continent. Il n'y vivait ni bêtes féroces ni humains; c'était un lieu totalement désolé.
+Dans la région de rang un du système stellaire de la Mer des Nuages, se trouvait un petit continent. Il n'y vivait ni bêtes féroces ni humains; c'était un lieu totalement désolé.
 
 Au plus profond du continent, dans une vallée, un homme d'âge moyen vêtu de rouge était assis en silence.
 
@@ -124,6 +124,6 @@ C'est pourquoi Wang Lin avait accepté le Défi Littéraire sans intention de lu
 
 Il avait initialement prévu d'utiliser le Défi Littéraire pour offrir à Maître Lu Fu une porte de sortie honorable. Cependant, l'obstination de Maître Lu Fu finit par lasser Wang Lin. Il avait alors convoqué Ling Dong et Zhou Jin afin de lui infliger un choc inimaginable!
 
-Wang Lin dépassa le amer Maître Lu Fu et s'avança lentement dans le vortex. Il se retrouva face au Dieu Sanguin.
+Wang Lin dépassa l'amer Maître Lu Fu et s'avança lentement dans le vortex. Il se retrouva face au Dieu Sanguin.
 
 Le visage du Dieu Sanguin était blême, et dès que Wang Lin fut là, il poussa un cri strident. Ses mains formèrent un sceau, tentant une ultime lutte avant la mort. Il recula précipitamment en agitant ses manches, faisant apparaître une ombre démoniaque gigantesque derrière lui!

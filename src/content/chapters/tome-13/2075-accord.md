@@ -116,6 +116,6 @@ Un sourire éclaira le visage de Mu Bingmei, un sourire baigné de larmes. Elle 
 
 Wang Lin l'enlaça tendrement. Le parfum qui émanait de son corps était enivrant.
 
-C'était la première fois qu'ils s'embrassaient véritablement, la première fois qu'ils mettaient de côté leurs sentiments complexes pour consacrer cent ans à résoudre cette relation tragique et malheureuse.
+C'était la première fois qu'ils s'étreignaient véritablement, la première fois qu'ils mettaient de côté leurs sentiments complexes pour consacrer cent ans à résoudre cette relation tragique et malheureuse.
 
 Ils restèrent ainsi enlacés sur la montagne sous le ciel rouge sang, tandis que le temps s'écoulait. Après un jour, l'éclat écarlate du ciel s'intensifia. À ce moment, de fines fissures apparurent sur la formation, signalant son effondrement imminent. Wang Lin quitta alors la montagne, accompagné de Mu Bingmei.

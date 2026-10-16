@@ -46,7 +46,7 @@ Wang Lin lui lança un regard éloquent, puis relâcha sa prise pour reprendre s
 
 Le fou cligna des yeux, son visage devint rouge et il gloussa. Un instant plus tard, il dit: « Comment ce Roi sage pourrait-il être dupé par eux... Cependant, ce Xu Liguo et ce Liu Jinbiao ont vraiment eu la capacité de tromper ce Roi. Humph, ils sont trop malfaisants; heureusement que ce Roi sait à quel point son sang est précieux. Autrefois, celui qui, qui, qui... »
 
-Le fou continua de marmonner, puis voyant Wang Lin s'éloigner, il se précipita pour le suivre. Sa voix s'affaiblit peu à peu. Après l'avoir suivi un moment, il regarda Wang Lin avec une expression perplexe. Une fois de plus, il ressentit cette sensation qu'il avait éprouvée en quittant la Bête du Néant.
+Le fou continua de marmonner, puis voyant Wang Lin s'éloigner, il se précipita pour le suivre. Sa voix s'affaiblit peu à peu. Après l'avoir suivi un moment, il regarda Wang Lin avec une expression perplexe. Une fois de plus, il ressentit cette sensation qu'il avait éprouvée en quittant la Bête des Limbes.
 
 Wang Lin resta silencieux tout au long du trajet, ne prononçant pas un mot. Bientôt, une planète imprégnée d'une si riche énergie spirituelle qu'elle semblait radieuse apparut devant lui!
 
@@ -56,7 +56,7 @@ Il contempla silencieusement la planète, ce foyer gravé dans sa mémoire. Bien
 
 La mélancolie sur son visage s'intensifia.
 
-"Les choses restent les mêmes mais les gens changent" est une phrase utilisée pour décrire le temps. Cependant, pour Wang Lin, même ces choses éternelles semblaient changer...
+« Les choses restent les mêmes mais les gens changent » est une phrase utilisée pour décrire le temps. Cependant, pour Wang Lin, même ces choses éternelles semblaient changer...
 
 Il fixait la planète Suzaku, stupéfait. Une puissante formation entourait la planète et restait constamment active. Elle générait une ondulation qui se propageait à travers tout le système stellaire.
 
@@ -94,9 +94,9 @@ L'expression de Wang Lin resta neutre tandis qu'il tapotait l'épaule du fou. Il
 
 Puisqu'il rentrait chez lui, il allait passer par la porte principale. Quelle logique y aurait-il à faire autrement?
 
-Le vieillard menant ses trois disciples entra dans la formation. À cet instant, deux silhouettes apparurent. C'étaient des vieillards, mais des phantoms. Leurs yeux brillaient comme des éclairs alors qu'ils observaient calmement tous ceux qui pénétraient dans la formation.
+Le vieillard menant ses trois disciples entra dans la formation. À cet instant, deux silhouettes apparurent. C'étaient des vieillards, mais des fantômes. Leurs yeux brillaient comme des éclairs alors qu'ils observaient calmement tous ceux qui pénétraient dans la formation.
 
-« Ce vieil homme est Maître Virtue, de la planète Ming Mei sur la Rivière des Appels. J'accompagne mes trois disciples en pèlerinage. J'espère que les gardiens sacrés nous laisseront entrer. » Le vieillard s'exprima avec sérieux en joignant les mains devant les deux spectres.
+« Ce vieil homme est Maître Virtue, de la planète Ming Mei sur la Rivière Invoquée. J'accompagne mes trois disciples en pèlerinage. J'espère que les gardiens sacrés nous laisseront entrer. » Le vieillard s'exprima avec sérieux en joignant les mains devant les deux spectres.
 
 L'une des figures fantomatiques répondit: « La planète Suzaku est ouverte à tous les cultivateurs du Royaume Intérieur, connaissez-vous les règles? »
 
@@ -106,7 +106,7 @@ Après avoir entendu cela, les deux figures fantomatiques formèrent des sceaux 
 
 Le vieillard joignit les mains et guida ses trois disciples sur l'escalier. Ils descendirent lentement les marches.
 
-Wang Lin prit le fou par l'épaule et monta calmement les marches. Ils également progressèrent vers la planète Suzaku.
+Wang Lin prit le fou par l'épaule et monta calmement les marches. Ils progressèrent également vers la planète Suzaku.
 
 Les deux figures fantomatiques ne s'arrêtèrent pas, mais jetèrent un regard froid à Wang Lin et au fou. Une fois qu'ils eurent disparu, l'un des spectres fronça les sourcils.
 

@@ -44,7 +44,7 @@ L'expression de Wang Lin demeura neutre alors qu'il accélérait de plus en plus
 
 Lorsque les cultivateurs de la secte de rang 7 s'approchèrent, ils virent ce phénomène, mais au même instant, Wang Lin percuta la formation!
 
-Un grondement tonnerre résonna à travers les étoiles et le brouillard stellaire fut repoussé. La formation gigantesque vacilla violemment sous l'effet de craquements sinistres.
+Un grondement de tonnerre résonna à travers les étoiles et le brouillard stellaire fut repoussé. La formation gigantesque vacilla violemment sous l'effet de craquements sinistres.
 
 En un instant, dans un fracas assourdissant, d'innombrables fissures apparurent sur la formation et se propagèrent avec frénésie. En un clin d'œil, elle ressembla à une toile d'araignée avant de s'effondrer en une multitude de fragments dispersés par la force de l'impact.
 
@@ -78,7 +78,7 @@ L'empreinte de la paume apparut et balaya les quatre Sens Divins qui faisaient f
 
 Les quatre Sens Divins affichèrent un visage d'incrédulité et reculèrent sans hésiter. Cependant, la paume fut trop rapide et percuta de plein fouet les quatre Sens Divins.
 
-Un grondement tonnerre retentit, créant une onde de choc gigantesque. Même le continent sur lequel reposait la secte trembla violemment et fut déplacé de plusieurs milliers de pieds!
+Un grondement de tonnerre retentit, créant une onde de choc gigantesque. Même le continent sur lequel reposait la secte trembla violemment et fut déplacé de plusieurs milliers de pieds!
 
 Cette immense empreinte de paume rugit en s'élançant, continuant d'absorber l'énergie originelle. Elle grandissait sans cesse, et l'aura qu'elle dégageait devenait de plus en plus terrifiante. Wang Lin suivit la trajectoire de l'empreinte.
 
@@ -96,9 +96,9 @@ Ils furent choqués par l'Empreinte de l'Esprit Guerrier et terrifiés par la pu
 
 Les quatre se regardèrent, prenant une inspiration glacée. Ils étaient envahis par une peur persistante.
 
-L'Empreinte de l'Esprit Guerrier continuait de tracer le chemin dans un fracas assourdissant. Des quantités infinies d'énergie originelle étaient aspirées, rendant la paume encore plus imposante. S'il y a cent ans, Wang Lin aurait perdu le contrôle, mais aujourd'hui, il pouvait en supporter bien davantage!
+L'Empreinte de l'Esprit Guerrier continuait de tracer le chemin dans un fracas assourdissant. Des quantités infinies d'énergie originelle étaient aspirées, rendant la paume encore plus imposante. Il y a cent ans, Wang Lin aurait perdu le contrôle, mais aujourd'hui, il pouvait en supporter bien davantage!
 
-Il volait derrière l'empreinte de la paume alors qu'il fendait les étoiles. Une ombre apparut devant lui: un continent sauvage. Un grondement tonnerre retentit lorsque l'empreinte de la paume percuta directement le continent. Celui-ci trembla et d'innombrables fissures apparurent tandis que la paume le transperçait!
+Il volait derrière l'empreinte de la paume alors qu'il fendait les étoiles. Une ombre apparut devant lui: un continent sauvage. Un grondement de tonnerre retentit lorsque l'empreinte de la paume percuta directement le continent. Celui-ci trembla et d'innombrables fissures apparurent tandis que la paume le transperçait!
 
 Le continent fut scindé en deux!
 

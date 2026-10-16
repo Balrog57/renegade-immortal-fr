@@ -80,7 +80,7 @@ Sous l'impact de ce vent, tous les nuages du ciel commencèrent à s'effondrer. 
 
 Un ciel pur apparut au-dessus de la planète!
 
-Le soleil brilla, apportant sa chaleur. La terre exhalait son parfum d'humus. De grosses gouttes d'eau still tombaient des plantes après l'averse.
+Le soleil brilla, apportant sa chaleur. La terre exhalait son parfum d'humus. De grosses gouttes d'eau tombaient encore des plantes après l'averse.
 
 Un arc-en-ciel se dessina à l'horizon. C'était une scène digne du Royaume Céleste.
 
@@ -126,4 +126,4 @@ Regardant son propre corps, le cultivateur aux six doigts esquissa un sourire si
 
 Derrière lui, les cultivateurs Luotian sortirent un à un, arborant tous des sourires étranges.
 
-« Le plan du Temple Mystérieux pour anéantir Luotian commencera bientôt... Après ce grand bouleversement, notre tâche ne se limitera pas à Xu Mu; les vestiges des cultivateurs Luotian doivent être éradiqués! Parmi les quatre Saints, le Démon Saint Noir et le Saint de l'Origine du Dao Céleste sont arrivés. Cette fois, les cultivateurs Luotian découvriront que la porte de notre Système Stellaire de l'Alliance n'est pas si facile à franchir! »
+« Le plan du Temple Mystérieux pour anéantir Luotian commencera bientôt... Après ce grand bouleversement, notre tâche ne se limitera pas à Xu Mu; les vestiges des cultivateurs Luotian doivent être éradiqués! Parmi les quatre Saints, le Saint Démon Noir et le Saint de l'Origine du Dao Céleste sont arrivés. Cette fois, les cultivateurs Luotian découvriront que la porte de notre Système Stellaire de l'Alliance n'est pas si facile à franchir! »

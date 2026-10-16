@@ -8,11 +8,11 @@ slug: voici-le-continent-des-immortels-celestes
 ---
 « Espèces de déchets! Vous n'avez toujours pas capturé cet endroit après tout ce temps? L'avatar de ce vieil homme est ici aujourd'hui. Suivez-moi et prenez ce lieu! » Le vieil homme laissa échapper un froid renâclement avant de détourner son regard de la Porte du Vide pour s'avancer vers la Planète Suzaku.
 
-Ce vieil homme était très célèbre, et presque tout le monde dans le Royaume Intérieur le connaissait également. Il était l'un des Cinq Maîtres du Système Stellaire Antique, le Maître Céleste Dieu du Néant!
+Ce vieil homme était très célèbre, et presque tout le monde dans le Royaume Intérieur le connaissait également. Il était l'un des Cinq Maîtres du Système Stellaire Antique, le Maître Céleste Dieu du Vide!
 
 À l'extérieur de la planète Suzaku, une ondulation lumineuse se propagea, enveloppant la zone. La formation entourant la planète Suzaku avait été renforcée pendant des dizaines d'années et était extrêmement puissante.
 
-Tandis que l'ondulation se répandait, le Maître Céleste Dieu du Néant ricana et fit un pas vers la planète Suzaku. La formation gronda et changea radicalement, semblant sur le point de s'effondrer.
+Tandis que l'ondulation se répandait, le Maître Céleste Dieu du Vide ricana et fit un pas vers la planète Suzaku. La formation gronda et changea radicalement, semblant sur le point de s'effondrer.
 
 Derrière le vieil homme, le jeune homme en robe verte et Zhou Jin se remirent du choc causé par la Porte du Vide. Cependant, le tremblement de leur cœur ne s'était pas apaisé. Zhou Jin leva les yeux vers la Porte du Vide, le regard empreint de terreur.
 
@@ -22,7 +22,7 @@ Au même instant, le jeune homme en robe verte leva également les yeux vers la 
 
 « Les six... la sixième essence!!! Il existe quelqu'un dans ce monde capable de posséder six essences!!! »
 
-Les pupilles du Maître Céleste Dieu du Néant se rétractèrent. Il fixa la Porte du Vide avec une expression extrêmement sombre.
+Les pupilles du Maître Céleste Dieu du Vide se rétractèrent. Il fixa la Porte du Vide avec une expression extrêmement sombre.
 
 Dans le vide infini, Wang Lin agita sa main droite et la cinquième essence, le Vrai et le Faux, se condensa en un sceau. Son sixième sort original: le Sceau Éternel du Vrai et du Faux.
 
@@ -96,20 +96,20 @@ Sa silhouette fusionna immédiatement avec le vortex et disparut.
 
 Dans le Vide Brillant, à l'extérieur de la planète Suzaku, la Porte du Vide qui était apparue était entourée de six essences, ce qui en faisait une existence de pointe jamais vue auparavant.
 
-La Porte du Vide était là, mais la personne capable de la briser ne s'était pas encore manifestée. Elle dégageait une aura suffocante que même les cultivateurs du Royaume Extérieur comme le Maître Céleste Dieu du Néant pouvaient ressentir.
+La Porte du Vide était là, mais la personne capable de la briser ne s'était pas encore manifestée. Elle dégageait une aura suffocante que même les cultivateurs du Royaume Extérieur comme le Maître Céleste Dieu du Vide pouvaient ressentir.
 
 « Bon sang, il y a réellement six essences. Même le Souverain ne pourrait rien faire de tel. Si cette personne parvient à briser la porte, même s'il n'est qu'au début du stade Nirvana du Vide, il pourra combattre des cultivateurs du Vide Arcanique et franchir rapidement les royaumes du vide! »
 
-« Si cette personne est un cultivateur du Royaume Intérieur, elle doit être éliminée! » Une intention meurtrière traversa les yeux du Maître Céleste Dieu du Néant. Il ne regarda plus la Porte du Vide qui l'effrayait et s'avança vers la planète Suzaku.
+« Si cette personne est un cultivateur du Royaume Intérieur, elle doit être éliminée! » Une intention meurtrière traversa les yeux du Maître Céleste Dieu du Vide. Il ne regarda plus la Porte du Vide qui l'effrayait et s'avança vers la planète Suzaku.
 
 Bien qu'il ne fût ici qu'avec un avatar, celui-ci se trouvait au début du stade Vide Arcanique. Alors qu'il approchait de la formation entourant la planète Suzaku, il leva sa main droite qui se transforma en une brume violette. Cette brume s'étendit rapidement et fonça sur la formation.
 
 Des grondements tonitruants retentirent, et la formation qui avait tenu plusieurs mois et qui était sur le point de s'effondrer vola en éclats. Tandis que les fragments se dispersaient, la planète Suzaku se retrouva sans protection.
 
-« Tuez tout ce qui se trouve sur votre passage, détruisez la planète et partez vite. » Le Maître Céleste Dieu du Néant avança vers la formation brisée. Il aperçut immédiatement la statue qui perçait les nuages sur la planète Suzaku.
+« Tuez tout ce qui se trouve sur votre passage, détruisez la planète et partez vite. » Le Maître Céleste Dieu du Vide avança vers la formation brisée. Il aperçut immédiatement la statue qui perçait les nuages sur la planète Suzaku.
 
 Des milliers de cultivateurs du Royaume Intérieur entouraient la statue. Ils étaient prêts à se battre jusqu'à la mort.
 
-Avec un ricanement, le Maître Céleste Dieu du Néant leva sa main droite, prêt à détruire la statue. Cependant, à cet instant précis, son expression changea et il fixa l'espace à côté de la Porte du Vide.
+Avec un ricanement, le Maître Céleste Dieu du Vide leva sa main droite, prêt à détruire la statue. Cependant, à cet instant précis, son expression changea et il fixa l'espace à côté de la Porte du Vide.
 
 « La personne qui va tenter de briser la porte! »

@@ -8,7 +8,7 @@ slug: fleur-funeraire
 ---
 Lorsque le fragment céleste s'effondra, l'effluve des fleurs atteignit Wang Lin. Il ressentit un impact inimaginable frapper son corps; ses entrailles se déchirèrent et il cracha une bouchée de sang. La terreur envahit les yeux de Wang Lin et il se retira précipitamment!
 
-« Qui est-elle, bon sang?! Serait-elle vraiment une divinité florale?! » Le cuir chevelu de Wang Lin était engourdi. Il savait qu'il avait de la chance d'avoir le corps d'un Dieu Ancien. S'il n'avait été qu'un cultivateur ordinaire, il serait sans aucun doute mort!
+« Qui est-elle, bon sang?! Serait-elle vraiment une Céleste Fleur?! » Le cuir chevelu de Wang Lin était engourdi. Il savait qu'il avait de la chance d'avoir le corps d'un Dieu Ancien. S'il n'avait été qu'un cultivateur ordinaire, il serait sans aucun doute mort!
 
 Pourtant, la douleur qui lui lacérait le corps fit trembler son esprit. L'effondrement du fragment céleste avait profondément choqué Wang Lin.
 
@@ -68,7 +68,7 @@ L'Arsenal Magique provoqua une onde de choc dans la mer de fleurs. C'était la p
 
 Enfin, les innombrables âmes de combat de l'Arsenal Magique, en particulier celle de l'Ancêtre de Sang, balayèrent la zone. Les trois sorts formèrent une tempête qui semblait vouloir dévorer le monde.
 
-*Rumble, rumble!*
+*Grondement, grondement!*
 
 Le grondement faisait trembler les cieux. La fusion des trois sorts de Bai Fan força une brèche dans la mer de fleurs et se précipita vers la femme en blanc.
 
@@ -118,13 +118,13 @@ Les vêtements de son dos étaient trempés de sueur froide alors qu'il se retir
 
 « Dieu Ancien, sorts célestes de Bai Fan, énergie d'origine source... Qui es-tu?! »
 
-Wang Lin redoutait énormément cette femme, mais il devait impérativement percer pour entrer dans la grotte! À cet instant, son esprit trembla en se remémorant l'étrange expression du vieil homme après avoir vu le sort "Stop"!
+Wang Lin redoutait énormément cette femme, mais il devait impérativement percer pour entrer dans la grotte! À cet instant, son esprit trembla en se remémorant l'étrange expression du vieil homme après avoir vu le sort « Arrêt »!
 
 Wang Lin jouait rarement sa vie au jeu, mais maintenant, il n'avait plus d'autre choix que de parier!
 
-« Si j'échoue, je devrai m'enfuir pour trouver le Démon Ancien Bei Lou afin qu'il m'aide à franchir cette grotte céleste. Peu importe, je dois entrer! » Wang Lin serra les dents, leva la main et pointa le doigt. Le sort "Stop" apparut soudainement.
+« Si j'échoue, je devrai m'enfuir pour trouver le Démon Ancien Bei Lou afin qu'il m'aide à franchir cette grotte céleste. Peu importe, je dois entrer! » Wang Lin serra les dents, leva la main et pointa le doigt. Le sort « Arrêt » apparut soudainement.
 
-Dès que la femme en blanc vit le sort "Stop", son expression changea radicalement.
+Dès que la femme en blanc vit le sort « Arrêt », son expression changea radicalement.
 
 Les yeux de Wang Lin s'illuminèrent; il décida de frapper son sac de rangement. La pagode céleste apparut, et le cadavre de Qing Shuang flotta entre Wang Lin et la femme en blanc!
 

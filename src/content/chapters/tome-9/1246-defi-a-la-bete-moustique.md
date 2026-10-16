@@ -18,15 +18,15 @@ Li Yuanlei et son groupe se regardèrent. Après un instant de réflexion, le se
 
 Ils s'inclinèrent tous dans la direction prise par Wang Lin et partirent rapidement. Bien qu'ils fussent venus ici pour le butin, ils ne prirent ni la porte de pierre, ni la compréhension du Royaume Céleste du Vent. Ce qu'ils emportaient en revanche, c'était l'image de Wang Lin et cette crainte révérencieuse qu'il leur inspirait.
 
-Il y avait aussi ces deux mots: « Temps Fluide ».
+Il y avait aussi ces deux mots: « Le Temps qui S'écoule ».
 
-« Temps Fluide... » murmura Wang Lin pour lui-même, assis sur le dos du roi des moustiques. Dans son cœur, il y avait la mer qui avait engendré la nuit brisée, et après la nuit brisée, venait le temps fluide!
+« Le Temps qui S'écoule... » murmura Wang Lin pour lui-même, assis sur le dos du roi des moustiques. Dans son cœur, il y avait la mer qui avait engendré la Nuit Déchirée, et après la Nuit Déchirée, venait le Temps qui S'écoule!
 
 Cependant, Wang Lin n'avait pas encore pleinement maîtrisé ce second sort. Il devait poursuivre sa compréhension et sa confirmation avant qu'il ne puisse prendre forme.
 
-« Le temps est compté. Si j'avais continué, j'aurais peut-être eu la chance de saisir la neuvième loi, mais la promesse faite à la Secte Origine est imminente... » Wang Lin regarda le monde derrière lui. Il avait consacré dix jours à sa compréhension, et la compétition entre les sectes de rang 8 avait déjà commencé depuis longtemps.
+« Le temps est compté. Si j'avais continué, j'aurais peut-être eu la chance de saisir la neuvième loi, mais la promesse faite à la Secte de l'Origine est imminente... » Wang Lin regarda le monde derrière lui. Il avait consacré dix jours à sa compréhension, et la compétition entre les sectes de rang 8 avait déjà commencé depuis longtemps.
 
-« Peu importe, je partirai dans trois jours. Je m'occuperai de la promesse avec la Secte Origine, puis je reviendrai ici. » Les yeux de Wang Lin s'illuminèrent et il envoya un message. Le roi des moustiques poussa un rugissement et s'élança vers les profondeurs du Royaume Céleste du Vent.
+« Peu importe, je partirai dans trois jours. Je m'occuperai de la promesse avec la Secte de l'Origine, puis je reviendrai ici. » Les yeux de Wang Lin s'illuminèrent et il envoya un message. Le roi des moustiques poussa un rugissement et s'élança vers les profondeurs du Royaume Céleste du Vent.
 
 « Je veux voir combien de bêtes moustiques se cachent dans les profondeurs du Royaume Céleste du Vent! » Les yeux de Wang Lin brillèrent tandis qu'il fonçait vers les abysses du royaume, escorté par des milliers de bêtes moustiques formant un nuage rouge.
 
@@ -54,7 +54,7 @@ Ce n'était pas encore la partie la plus profonde du Royaume Céleste du Vent, m
 
 À cet instant précis, le corps du roi des moustiques trembla et sa vitesse diminua. Il afficha un regard féroce, fixé droit devant lui. À l'horizon, deux bêtes moustiques violettes approchaient. Elles étaient singulières, car elles semblaient si proches l'une de l'autre que, sans un examen attentif, on ne pourrait distinguer qu'un seul être.
 
-Une aura de cultivateurs au sommet du stade Briseur du Nirvana, infiniment proche de la première Affliction Céleste, émanait de ces deux bêtes violettes. Tous les insectes sur leur passage reculèrent.
+Une aura de cultivateurs au sommet du stade Briseur du Nirvana, infiniment proche du premier Fléau Céleste, émanait de ces deux bêtes violettes. Tous les insectes sur leur passage reculèrent.
 
 Dix mille bêtes moustiques défilaient avec le vent, mais lors du passage des deux géants violets, un sifflement retentit et l'essaim se dispersa immédiatement pour leur frayer un chemin.
 

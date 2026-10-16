@@ -1,6 +1,6 @@
 ---
 n: 1501
-title: La Chasse à la Bête du Néant (1)
+title: La Chasse à la Bête des Limbes (1)
 book: 10
 bookTitle: Rampage Through the Inner Realm
 en: Chapter 1501 - Hunting Nether Beast (1)
@@ -16,7 +16,7 @@ C'était une terre interdite à Luotian!
 
 Les cultivateurs venaient rarement en ces lieux. Quiconque passait à proximité choisissait d'éviter cet endroit, n'osant même pas s'en approcher.
 
-De étranges et féroces bêtes étaient dissimulées dans ce vaste brouillard, rappelant la Mer de Nuages. Bien qu'elles ne fussent pas nombreuses, elles possédaient leur propre monde ici!
+D'étranges et féroces bêtes étaient dissimulées dans ce vaste brouillard, rappelant la Mer des Nuages. Bien qu'elles ne fussent pas nombreuses, elles possédaient leur propre monde ici!
 
 Le Sens Divin était affecté par la brume, rendant toute exploration de la zone difficile.
 
@@ -24,45 +24,45 @@ La silhouette de Wang Lin apparut à la lisière de cette zone alors que des ond
 
 Après avoir quitté le Royaume Céleste du Tonnerre, il avait été envoyé ici dans le corps de cette créature exotique. Puis, il avait fait sortir les gens du Royaume Céleste et avait découvert ce brouillard.
 
-Il avait également vu cette immense créature semblable à une baleine: la Bête du Néant!
+Il avait également vu cette immense créature semblable à une baleine: la Bête des Limbes!
 
-La dernière chose que Wang Lin devait accomplir à Luotian était... chasser la Bête du Néant!
+La dernière chose que Wang Lin devait accomplir à Luotian était... chasser la Bête des Limbes!
 
-La Bête du Néant était extrêmement vaste et puissante. Pourtant, elle était d'une timidité extrême et se cachait de tous ses ennemis. Son tempérament craintif ne correspondait absolument pas à l'immensité de son corps.
+La Bête des Limbes était extrêmement vaste et puissante. Pourtant, elle était d'une timidité extrême et se cachait de tous ses ennemis. Son tempérament craintif ne correspondait absolument pas à l'immensité de son corps.
 
 Malgré cela, très peu de choses dans ce monde osaient la provoquer. Même si Maître Lu Fu savait qu'elle se trouvait là, il n'avait jamais eu l'audace d'envisager de chasser cette bête.
 
 Même Maître Lu Fu ne pouvait rien faire contre elle, ce qui témoignait de sa puissance phénoménale. Si son tempérament avait été violent, Luotian aurait subi une calamité sans précédent.
 
-Même si le Serpent Regardant la Lune était plus grand qu'elle, il n'oserait pas non plus la provoquer!
+Même si le Serpent aux yeux de lune était plus grand qu'elle, il n'oserait pas non plus la provoquer!
 
-La Bête du Néant ne maîtrisait que deux sorts. Le premier lui permettait de devenir éthérée. Bien que son corps fût gigantesque, à moins qu'elle ne se révèle, il serait difficile de la remarquer, même si elle se trouvait juste à vos côtés!
+La Bête des Limbes ne maîtrisait que deux sorts. Le premier lui permettait de devenir éthérée. Bien que son corps fût gigantesque, à moins qu'elle ne se révèle, il serait difficile de la remarquer, même si elle se trouvait juste à vos côtés!
 
 En raison de sa nature timide, dès qu'elle se sentait perturbée, elle choisissait immédiatement de se fondre dans le vide, devenant ainsi impossible à trouver.
 
-Le second sort était l'exact opposé de sa première capacité. Que ce soit le Serpent Regardant la Lune ou Maître Lu Fu, tous devaient fuir face à cette seconde faculté!
+Le second sort était l'exact opposé de sa première capacité. Que ce soit le Serpent aux yeux de lune ou Maître Lu Fu, tous devaient fuir face à cette seconde faculté!
 
-La Bête du Néant abritait un royaume au sein même de son corps. Il pouvait être grand ou petit, tout était imprévisible! Le seul sort qu'elle connaissait était: dévorer!
+La Bête des Limbes abritait un royaume au sein même de son corps. Il pouvait être grand ou petit, tout était imprévisible! Le seul sort qu'elle connaissait était: dévorer!
 
 Une fois la bête acculée, elle ouvrait sa gueule et dévorait tout sur son passage. Les étoiles tremblaient; que ce soient des sorts, des bêtes, des cultivateurs ou même des planètes, tous étaient engloutis dans son corps et piégés à l'intérieur!
 
-La Bête du Néant pouvait ne pas ouvrir la gueule pendant des dizaines de milliers d'années, mais une fois qu'elle le faisait, le temps s'emballait!
+La Bête des Limbes pouvait ne pas ouvrir la gueule pendant des dizaines de milliers d'années, mais une fois qu'elle le faisait, le temps s'emballait!
 
-Cela signifiait qu'une fois que la Bête du Néant prenait l'initiative de dévorer, des dizaines de milliers, voire des centaines de milliers d'années pouvaient s'écouler dans le monde à l'intérieur de son corps!
+Cela signifiait qu'une fois que la Bête des Limbes prenait l'initiative de dévorer, des dizaines de milliers, voire des centaines de milliers d'années pouvaient s'écouler dans le monde à l'intérieur de son corps!
 
 Elle ne possédait aucun sort pour ralentir le temps; elle ne faisait que le faire passer instantanément!
 
-La légende raconte qu'aux temps anciens, il existait une Bête du Néant adulte. Acculée une fois, elle dévora un domaine stellaire entier. Des millions d'années passèrent en un instant. Le domaine stellaire tomba en poussière et tous ses ennemis périrent!
+La légende raconte qu'aux temps anciens, il existait une Bête des Limbes adulte. Acculée une fois, elle dévora un domaine stellaire entier. Des millions d'années passèrent en un instant. Le domaine stellaire tomba en poussière et tous ses ennemis périrent!
 
-Très peu de gens comprenaient réellement la Bête du Néant. Ils savaient seulement qu'elle ne précipitait pas le temps à chaque fois qu'elle dévorait, car cela exercerait un stress trop grand sur elle.
+Très peu de gens comprenaient réellement la Bête des Limbes. Ils savaient seulement qu'elle ne précipitait pas le temps à chaque fois qu'elle dévorait, car cela exercerait un stress trop grand sur elle.
 
-Pourtiment, malgré cela, très peu d'êtres osaient encore la provoquer!
+Pourtant, malgré cela, très peu d'êtres osaient encore la provoquer!
 
-La majeure partie de la compréhension que Wang Lin avait de la Bête du Néant provenait du Royaume Extérieur. Après avoir absorbé tant de cultivateurs, sa connaissance de la créature était devenue progressivement plus exhaustive.
+La majeure partie de la compréhension que Wang Lin avait de la Bête des Limbes provenait du Royaume Extérieur. Après avoir absorbé tant de cultivateurs, sa connaissance de la créature était devenue progressivement plus exhaustive.
 
-C'est aussi pour cette raison qu'il s'était passionné pour la Bête du Néant et avait décidé de la capturer!
+C'est aussi pour cette raison qu'il s'était passionné pour la Bête des Limbes et avait décidé de la capturer!
 
-« La seule chose qui me laisse perplexe est de savoir comment le simple Empereur Céleste du Royaume Céleste du Tonnerre a pu utiliser la Bête du Néant... » En fixant le brouillard, les yeux de Wang Lin brillèrent. S'il n'avait pas vu la Bête du Néant et ressenti sa puissance inimaginable, il aurait pensé que la bête n'était qu'une masse imposante sans grande force.
+« La seule chose qui me laisse perplexe est de savoir comment le simple Empereur Céleste du Royaume Céleste du Tonnerre a pu utiliser la Bête des Limbes... » En fixant le brouillard, les yeux de Wang Lin brillèrent. S'il n'avait pas vu la Bête des Limbes et ressenti sa puissance inimaginable, il aurait pensé que la bête n'était qu'une masse imposante sans grande force.
 
 « L'Empereur Céleste était un être prodigieux. Peut-être possédait-il une autre méthode pour emprunter le pouvoir de la bête... » L'expression de Wang Lin devint sérieuse alors qu'il fit un pas et s'élança dans le brouillard!
 
@@ -72,21 +72,21 @@ Ce brouillard rendait Wang Lin très nerveux. La dernière fois, il avait dû co
 
 Il déploya également son Sens Divin pour scanner les environs. Bien qu'il ne puisse couvrir toute la zone, tout ce qui se trouvait dans un rayon de centaines de milliers de pieds était clair dans son esprit.
 
-À moins d'une situation désespérée, Wang Lin n'utiliserait ni Zhou Jin ni Ling Dong pour l'aider dans ses recherches. Cette Bête du Néant n'était pas une cultivatrice et était extrêmement craintive. Dès qu'elle ressentirait la perturbation de son Sens Divin, elle s'enfuirait immédiatement.
+À moins d'une situation désespérée, Wang Lin n'utiliserait ni Zhou Jin ni Ling Dong pour l'aider dans ses recherches. Cette Bête des Limbes n'était pas une cultivatrice et était extrêmement craintive. Dès qu'elle ressentirait la perturbation de son Sens Divin, elle s'enfuirait immédiatement.
 
 Qu'elle s'échappe ne serait pas un problème en soi, mais si elle devenait éthérée pour fuir, il lui serait alors très difficile de la retrouver! De plus, il ne souhaitait pas tuer cette bête, mais en faire son essence de vie d'Ancien Dieu!
 
-Tout en avançant, l'expression de Wang Lin demeurait extrêmement grave. Chaque pas le faisait progresser de centaines de milliers de pieds. Il fendait constamment le brouillard, traquant la moindre trace de la Bête du Néant.
+Tout en avançant, l'expression de Wang Lin demeurait extrêmement grave. Chaque pas le faisait progresser de centaines de milliers de pieds. Il fendait constamment le brouillard, traquant la moindre trace de la Bête des Limbes.
 
 Le temps passait lentement, mais Wang Lin n'était nullement épuisé. Il était tel un chasseur traquant avec soin sa proie. Au cours de cette progression, de nombreuses bêtes féroces et étranges apparurent dans son Sens Divin. Cependant, quelle que soit leur férocité, dès que le Sens Divin de Wang Lin les balayait, elles tremblaient et n'osaient plus bouger. Elles n'osaient même pas émettre le moindre son.
 
 Dans la brume, une silhouette blanche fulgurait souvent, parcourant de vastes distances. Wang Lin explorait méticuleusement le domaine stellaire couvert par ce brouillard.
 
-Aucun signe de la Bête du Néant ne se manifestait. Depuis sa dernière apparition, elle semblait avoir disparu. L'expression de Wang Lin restait sérieuse et il ne montrait aucun signe d'impatience alors qu'il poursuivait sa quête.
+Aucun signe de la Bête des Limbes ne se manifestait. Depuis sa dernière apparition, elle semblait avoir disparu. L'expression de Wang Lin restait sérieuse et il ne montrait aucun signe d'impatience alors qu'il poursuivait sa quête.
 
 La silhouette de Wang Lin s'enfonçait toujours plus profondément dans le brouillard. À force de chercher, il avait déjà parcouru presque la moitié de ce domaine stellaire.
 
-Il n'y avait toujours aucune trace ni aucun indice de la Bête du Néant, comme si elle était déjà partie et n'existait plus.
+Il n'y avait toujours aucune trace ni aucun indice de la Bête des Limbes, comme si elle était déjà partie et n'existait plus.
 
 Wang Lin fronça légèrement les sourcils. Après une courte réflexion, il renonça à l'idée d'utiliser Zhou Jin et Ling Dong. Il se calma avant de reprendre sa marche, cherchant avec encore plus de minutie.
 
@@ -112,12 +112,12 @@ Cependant, bien que cette énergie fût stupéfiante, elle n'était pas vivante;
 
 « Traces du temps... traces du temps... » Wang Lin perçut vaguement quelque chose. Son Sens Divin balaya les fragments pour en ressentir l'empreinte temporelle, et ses yeux s'illuminèrent de joie.
 
-« Les excrétions de la Bête du Néant! » Wang Lin regarda les débris devant lui, le visage rayonnant.
+« Les excrétions de la Bête des Limbes! » Wang Lin regarda les débris devant lui, le visage rayonnant.
 
-« C'est logique, la Bête du Néant a dû dévorer plusieurs planètes de culture pour une raison quelconque, et le temps s'est écoulé à l'intérieur de son corps. Bien que les planètes soient mortes et leurs âmes dissipées, l'énergie spirituelle qu'elles contenaient s'est condensée pour former ces roches. Voilà pourquoi elles semblent mortes tout en étant si riches en énergie! Et elles sont imprégnées de la trace du temps... »
+« C'est logique, la Bête des Limbes a dû dévorer plusieurs planètes de culture pour une raison quelconque, et le temps s'est écoulé à l'intérieur de son corps. Bien que les planètes soient mortes et leurs âmes dissipées, l'énergie spirituelle qu'elles contenaient s'est condensée pour former ces roches. Voilà pourquoi elles semblent mortes tout en étant si riches en énergie! Et elles sont imprégnées de la trace du temps... »
 
-« Bête du Néant, pour te chasser, je dois d'abord te sceller. Non seulement je dois sceller l'extérieur, mais je devrai aussi sceller l'intérieur de ton corps... »
+« Bête des Limbes, pour te chasser, je dois d'abord te sceller. Non seulement je dois sceller l'extérieur, mais je devrai aussi sceller l'intérieur de ton corps... »
 
-Les yeux de Wang Lin brillèrent d'une détermination farouche. S'il osait chasser la Bête du Néant, c'est qu'il était déjà préparé.
+Les yeux de Wang Lin brillèrent d'une détermination farouche. S'il osait chasser la Bête des Limbes, c'est qu'il était déjà préparé.
 
 « Le sceau extérieur peut être accompli par un seul coup de tonnerre! La partie difficile sera de sceller l'intérieur... Et de sceller son âme! »

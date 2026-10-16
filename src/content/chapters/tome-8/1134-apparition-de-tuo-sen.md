@@ -70,7 +70,7 @@ Contrairement à Tuo Sen, le corps de Dieu Ancien de Wang Lin avait été formé
 
 L'expression complexe disparut au moment où Tuo Sen leva la tête pour regarder Wang Lin. Elle fut remplacée par un calme glacial.
 
-L'humain et le dieu, liés par le destin, se contemplèrent silencieusement à travers le vortex. Deux êtres de deux monds différents venaient de croiser leurs chemins.
+L'humain et le dieu, liés par le destin, se contemplèrent silencieusement à travers le vortex. Deux êtres de deux mondes différents venaient de croiser leurs chemins.
 
 La bouche de Tuo Sen eut un tressaillement et il fit un pas. Il quitta la montagne pour s'élever au-dessus du vortex. Son regard balaya les environs.
 

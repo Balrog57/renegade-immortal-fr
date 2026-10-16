@@ -22,7 +22,7 @@ Les cinq essences de Wang Lin ressemblaient à des plantes au printemps, entour�
 
 Cette aura n'était pas étrangère à Wang Lin. Lorsque la statue du démon ancien dans la Terre des Esprits Démoniaques était vénérée par Treize et les autres, cette aura était également présente...
 
-Dans la Mer de Nuages, lors du combat contre le Daoïste de l'Eau, le dernier sort utilisé par ce dernier contenait également cette aura...
+Dans la Mer des Nuages, lors du combat contre le Shui Daozi, le dernier sort utilisé par ce dernier contenait également cette aura...
 
 La conversation avec le Seigneur du Royaume Scellé et le Maître du Dao Rêve Bleu pointait tous vers la clé pour devenir un cultivateur de la troisième étape: les Flammes de Joss!
 
@@ -44,9 +44,9 @@ Cette opportunité survint lorsque le Maître du Dao Rêve Bleu fusionna l'Appel
 
 Puis, Wang Lin tenta de fusionner l'Arsenal Magique et le Monde du Vent et de la Pluie. Cela permit à ce changement, à cette opportunité, d'éclore!
 
-Bien que les âmes de guerriers fussent nombreuses et les Flammes de Joss très faibles — bien plus que les deux milliards de disciples du Daoïste de l'Eau — il s'agissait là de véritables Flammes de Joss. La clé pour atteindre la troisième étape, un trésor de Dao pour lequel les cultivateurs de ce niveau se disputeraient avec acharnement!
+Bien que les âmes de guerriers fussent nombreuses et les Flammes de Joss très faibles — bien plus que les deux milliards de disciples du Shui Daozi — il s'agissait là de véritables Flammes de Joss. La clé pour atteindre la troisième étape, un trésor de Dao pour lequel les cultivateurs de ce niveau se disputeraient avec acharnement!
 
-L'expression de Wang Lin était très singulière. Il ouvrit les yeux et médita silencieusement un instant avant de mettre cette pensée de côté. Après tout, le danger représenté par la femme en blanc à l'extérieur du Clan de la Soie Blanche persistait. Même s'il avait créé ce trésor par inadvertance, cela ne lui serait d'aucun secours si cela ne l'aidait pas à résoudre la crise posée par cette femme.
+L'expression de Wang Lin était très singulière. Il ouvrit les yeux et médita silencieusement un instant avant de mettre cette pensée de côté. Après tout, le danger représenté par la femme en blanc à l'extérieur du Clan de la Soie Bleue persistait. Même s'il avait créé ce trésor par inadvertance, cela ne lui serait d'aucun secours si cela ne l'aidait pas à résoudre la crise posée par cette femme.
 
 Ses yeux s'illuminèrent et sa main droite s'avança. Une fissure dans son espace de stockage apparut et un immense fragment d'os de doigt en jaillit. En flottant dans les airs, il ressemblait à un continent!
 
@@ -104,7 +104,7 @@ L'âme originelle du vieil homme aux cheveux blancs était désormais totalement
 
 Au moment même de sa mort, l'âme du vieil homme apparut sur un continent à l'intérieur du Monde du Vent et de la Pluie. Il s'y assit, dégageant une quantité phénoménale d'aura blanc laiteux...
 
-« Le Clan de la Lune est extrêmement vaste. Le groupe que Tuo Sen et moi avons détruit n'était qu'une branche. Dans le Système des Étoiles Anciennes, le Clan de la Lune possède encore trois autres branches... Et dans la branche principale, il existe un ancêtre du Clan de la Lune. Cette personne est... un cultivateur de la troisième étape! »
+« Le Clan de la Lune est extrêmement vaste. Le groupe que Tuo Sen et moi avons détruit n'était qu'une branche. Dans le Système Stellaire Antique, le Clan de la Lune possède encore trois autres branches... Et dans la branche principale, il existe un ancêtre du Clan de la Lune. Cette personne est... un cultivateur de la troisième étape! »
 
 « Ce vieil homme n'avait jamais vu le Souverain de sa vie. Il savait seulement qu'il y a fort longtemps, le Souverain avait fui le Royaume Intérieur gravement blessé et s'était réfugié dans un lieu mystérieux pour guérir! »
 

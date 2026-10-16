@@ -8,7 +8,7 @@ slug: un-apercu-dune-epreuve-de-vie-ou-de-mort
 ---
 Non seulement le Grand Ancien de la Secte Éternel était terrifié, mais presque les 100 000 cultivateurs environnants étaient également pétrifiés.
 
-La puissance de la Nuit Déchirée avait déjà stupéfié tous ces cultivateurs; il n'était donc pas nécessaire d'évoquer l'effet de la réversion temporelle. Grâce au Temps Fluide, en plus du vieil homme aux cheveux blancs, tous les cultivateurs alentour furent aspirés et ressentirent divers degrés de retour dans le temps.
+La puissance de la Nuit Brisée avait déjà stupéfié tous ces cultivateurs; il n'était donc pas nécessaire d'évoquer l'effet de la réversion temporelle. Grâce au Temps qui s'écoule, en plus du vieil homme aux cheveux blancs, tous les cultivateurs alentour furent aspirés et ressentirent divers degrés de retour dans le temps.
 
 Les souvenirs infinis et le choc furent tels que chacun regarda Wang Lin avec une immense crainte et admiration.
 
@@ -16,7 +16,7 @@ Il était devenu célèbre en une seule bataille!
 
 À cet instant précis, tout le monde connaissait désormais la Secte de l'Origine et son Lu Zihao!
 
-Le ressentiment dans le cœur de Feng Hai s'était effondré. Il fut violemment dissipé par la stupeur qui l'envahissait, et il n'osa plus laisser les pensées révoltées lui traverser l'esprit comme auparavant. Il avait personnellement vu la Nuit Déchirée et le Temps Fluide, et cela lui avait fait dresser les poils sur la peau. Il savait que si l'un de ces sorts avait été dirigé contre lui, il serait sans aucun doute mort!
+Le ressentiment dans le cœur de Feng Hai s'était effondré. Il fut violemment dissipé par la stupeur qui l'envahissait, et il n'osa plus laisser les pensées révoltées lui traverser l'esprit comme auparavant. Il avait personnellement vu la Nuit Brisée et le Temps qui s'écoule, et cela lui avait fait dresser les poils sur la peau. Il savait que si l'un de ces sorts avait été dirigé contre lui, il serait sans aucun doute mort!
 
 Certains Anciens de la Secte Éternel partageaient des pensées similaires. Ils restaient désormais tous silencieux, contemplant avec respect la silhouette droite de Wang Lin au-dessus de la plateforme effondrée.
 
@@ -24,7 +24,7 @@ Profond et mystérieux!
 
 Seuls ces mots pouvaient décrire le choc que Wang Lin avait provoqué chez tout le monde. Nul ne savait quels autres sorts il n'avait pas encore dégainés. C'est précisément pour cette raison que l'impression qu'ils avaient de lui devint encore plus forte.
 
-De plus, des rumeurs sur lui s'étaient propagées avant même son apparition. Puis, une fois présent, il fut confirmé qu'il était celui qui avait franchi les régions de rang 5, 6 et 7 en utilisant l'Empreinte de l'Esprit Guerrier de la Secte Divin.
+De plus, des rumeurs sur lui s'étaient propagées avant même son apparition. Puis, une fois présent, il fut confirmé qu'il était celui qui avait franchi les régions de rang 5, 6 et 7 en utilisant l'Empreinte de l'Esprit Guerrier de la Secte Divine.
 
 Tout cela rendait Wang Lin encore plus impénétrable et mystérieux aux yeux de tous.
 
@@ -34,7 +34,7 @@ Wang Lin représentait la Secte de l'Origine. Après cet événement, une chose 
 
 Les gens préféreraient traverser le Monde de la Brume Animale plutôt que de provoquer la Secte de l'Origine!
 
-Le Maître de la Secte Éternel poussa un soupir. Bien qu'il ait tenté de surestimer la force de Wang Lin, il était, en fin de compte, resté bien trop loin de la réalité. Que ce soit ce doigt, l'extraction de l'âme planétaire, la Nuit Déchirée ou le sort temporel utilisé à la fin, tout cela suffisait à démontrer la puissance de Wang Lin.
+Le Maître de la Secte Éternel poussa un soupir. Bien qu'il ait tenté de surestimer la force de Wang Lin, il était, en fin de compte, resté bien trop loin de la réalité. Que ce soit ce doigt, l'extraction de l'âme planétaire, la Nuit Brisée ou le sort temporel utilisé à la fin, tout cela suffisait à démontrer la puissance de Wang Lin.
 
 « Cet homme doit être un cultivateur du Fléau Céleste, mais en raison de ses blessures, son niveau de culture a chuté. Pourtant, ses sorts lui permettent de lutter contre des Grands Anciens! De plus, il n'a aucune malveillance; autrement, il aurait utilisé une multitude de trésors pour prolonger cette bataille! Ma Secte Éternel doit absolument conserver un tel cultivateur... Cependant, avec lui, ma Secte Éternel s'élèvera lors de la compétition avec les autres sectes de rang 8! »
 
@@ -44,7 +44,7 @@ Le visage de Lu Yuncong était empreint d'amertume tandis qu'il secouait la têt
 
 L'esprit de Li Qianmei fut également ébranlé en contemplant la silhouette devant elle. Elle ne pouvait détacher cette figure de celle d'il y a cent ans. Elle ne comprenait pas comment sa puissance avait pu changer à ce point, mais cela n'avait pas d'importance. Ce qui importait, c'était qu'elle soit ici avec lui.
 
-Ce qui importait, c'est qu'elle avait quitté la Secte Démon pour voir une seule personne, et elle l'avait vue... C'était tout.
+Ce qui importait, c'est qu'elle avait quitté la Secte Démoniaque pour voir une seule personne, et elle l'avait vue... C'était tout.
 
 Mu Bingmei se mordit la lèvre inférieure. Chaque fois qu'elle voyait Wang Lin, il était totalement différent. Cependant, elle ne pensait pas qu'il changerait à ce point lors de cette rencontre fortuite.
 
@@ -52,9 +52,9 @@ Pourtant, Mu Bingmei comprenait que rien de tout cela n'avait de lien avec elle.
 
 Il semblait que leur destin était d'être ni familiers, ni inconnus. Ce sentiment d'indifférence entre eux existerait pour toujours.
 
-Nul ne réalisa que Wang Shanshan, de la Secte Divin, avait un éclat étrange dans les yeux en fixant Wang Lin. Elle sortit délicatement une pierre de jade et enregistra tout ce dont elle avait été témoin. Puis, elle pressa le jade qui disparut dans sa main.
+Nul ne réalisa que Wang Shanshan, de la Secte Divine, avait un éclat étrange dans les yeux en fixant Wang Lin. Elle sortit délicatement une pierre de jade et enregistra tout ce dont elle avait été témoin. Puis, elle pressa le jade qui disparut dans sa main.
 
-Par cette méthode singulière, Wang Shanshan transmit tout ce qu'elle avait vu à son maître de la Secte Divin. Elle l'avait fait sans préméditation; elle voulait simplement montrer un génie de la Mer des Nuages à son mentor. Elle pensait même que celui-ci chercherait certainement à recruter cet homme au sein de la Secte Divin après avoir vu cela!
+Par cette méthode singulière, Wang Shanshan transmit tout ce qu'elle avait vu à son maître de la Secte Divine. Elle l'avait fait sans préméditation; elle voulait simplement montrer un génie de la Mer des Nuages à son mentor. Elle pensait même que celui-ci chercherait certainement à recruter cet homme au sein de la Secte Divine après avoir vu cela!
 
 Cependant, elle n'aurait jamais pu imaginer l'immense onde de choc qui serait déclenchée lorsque son maître verrait ce qui était gravé dans ce petit morceau de jade!
 

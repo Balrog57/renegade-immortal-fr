@@ -42,7 +42,7 @@ Au moment même où elle prononçait ces derniers mots, Wang Lin laissa échappe
 
 La chair de Wang Lin s'infecta et ses os se brisèrent. Une douleur intense l'envahit, son corps montrant des signes d'effondrement imminent! Cependant, à cet instant précis, Wang Lin leva la main droite et frappa son propre front!
 
-À ce contact, son corps gronda. Son être était une fusion de l'ancien et du céleste, après s'être effondré et reformé maintes fois au sein de la Bête du Néant.
+À ce contact, son corps gronda. Son être était une fusion de l'ancien et du céleste, après s'être effondré et reformé maintes fois au sein de la Bête des Limbes.
 
 Grâce au travail acharné du fou, son corps céleste représentait désormais 50 % du Corps Céleste Immortel! Bien qu'imparfait, il contenait déjà le pouvoir de l'immortalité!
 

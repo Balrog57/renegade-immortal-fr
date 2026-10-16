@@ -62,7 +62,7 @@ Les yeux de Cupidité brillaient de joie. Durant ces centaines d'années, il ava
 
 « Je ne prendrai pas tes trésors sans raison, tu peux partir... » Cupidité se remémora les paroles de Wang Lin avant son départ, et une expression complexe se dessina sur son visage.
 
-Après avoir laissé Cupidité filer, Wang Lin fit volte-face pour retourner vers le Clan du Scorpion Noir. Cupidité était sorti du Royaume Intérieur avant lui et avait collecté tous ces trésors pour lui. Après avoir obtenu les richesses durement acquises de Cupidité, sans compter la joie d'avoir rencontré quelqu'un de son monde, comment Wang Lin aurait-il pu vouloir le tuer?
+Après avoir laissé Cupidité filer, Wang Lin fit volte-face pour retourner vers le Clan des Scorpions Noirs. Cupidité était sorti du Royaume Intérieur avant lui et avait collecté tous ces trésors pour lui. Après avoir obtenu les richesses durement acquises de Cupidité, sans compter la joie d'avoir rencontré quelqu'un de son monde, comment Wang Lin aurait-il pu vouloir le tuer?
 
 « Ce Cupidité est mon étoile porte-bonheur. Je ne peux pas le tuer, je dois le laisser partir. J'ai hâte de notre troisième rencontre. Il aura probablement encore plus de trésors à m'offrir! » Wang Lin sourit alors qu'il apparaissait au-dessus de la planète du Clan des Scorpions Noirs.
 
@@ -102,4 +102,4 @@ Zhong Grand Rouge la saisit et l'examina. La joie illumina ses yeux lorsqu'il la
 
 C'était la première fois que les cultivateurs de l'Évasion Nuageuse assistaient à un tel spectacle et ils en restèrent stupéfaits. Même le patriarche, qui venait d'offrir le présent, était pétrifié. Il ne pouvait imaginer comment quelqu'un pouvait changer si radicalement en un instant.
 
-« Dépêchez-vous, faites place! Pourquoi restez-vous là? Ne bloquez pas le passage de mon Maître! » Zhong Grand Rouge se précipita vers Wang Lin et écarte les cultivateurs de l'Évasion Nuageuse, y compris le patriarche, comme s'il avait totalement oublié la joie d'avoir reçu son cadeau.
+« Dépêchez-vous, faites place! Pourquoi restez-vous là? Ne bloquez pas le passage de mon Maître! » Zhong Grand Rouge se précipita vers Wang Lin et écarta les cultivateurs de l'Évasion Nuageuse, y compris le patriarche, comme s'il avait totalement oublié la joie d'avoir reçu son cadeau.

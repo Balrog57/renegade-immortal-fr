@@ -86,28 +86,28 @@ Elles hurlaient toutes simultanément!
 
 Après avoir dit cela, Wang Lin leva sa main gauche et pointa l'espace entre ses sourcils. Les étoiles divines antiques disparurent pour laisser place à un vortex. Ce vortex dégageait une aura ancestrale et, après que Wang Lin eut retiré sa main, un rayon de lumière jaillit. La lumière s'étendit instantanément pour prendre la forme d'une bête géante!
 
-La Bête des Enfers!
+La Bête des Limbes!
 
-Lorsqu'elle apparut, la Bête des Enfers semblait léthargique. Comme il y avait peu de monde aux alentours, elle n'avait que peu de raisons de craindre quoi que ce soit. Elle observa les environs et vit le brouillard créé par les 2 999 âmes de l'Omniscient. Attirée par cette brume, elle ouvrit inconsciemment la gueule. De la salive semblait s'en écouler tandis qu'elle semblait réfléchir. Ces âmes paraissaient délicieuses.
+Lorsqu'elle apparut, la Bête des Limbes semblait léthargique. Comme il y avait peu de monde aux alentours, elle n'avait que peu de raisons de craindre quoi que ce soit. Elle observa les environs et vit le brouillard créé par les 2 999 âmes de l'Omniscient. Attirée par cette brume, elle ouvrit inconsciemment la gueule. De la salive semblait s'en écouler tandis qu'elle semblait réfléchir. Ces âmes paraissaient délicieuses.
 
-« Le maître du Dao Céleste? La Bête des Enfers... C'est la Bête des Enfers... Cette bête a-t-elle été formée par l'autre amas de brouillard qui s'est séparé de moi? » Toutes les âmes de l'Omniscient contemplèrent la Bête des Enfers avec effroi.
+« Le maître du Dao Céleste? La Bête des Limbes... C'est la Bête des Limbes... Cette bête a-t-elle été formée par l'autre amas de brouillard qui s'est séparé de moi? » Toutes les âmes de l'Omniscient contemplèrent la Bête des Limbes avec effroi.
 
-Il connaissait naturellement la Bête des Enfers, mais son corps avait été scindé par Lian Daofei, qui avait fait exploser sa propre âme originelle. Au fil des éons, il avait perdu tout contact avec son autre moitié. Autrement, il n'aurait pas eu recours à cette méthode de 99 éveils pour reprendre le contrôle de la réincarnation et retrouver l'autre partie de son corps.
+Il connaissait naturellement la Bête des Limbes, mais son corps avait été scindé par Lian Daofei, qui avait fait exploser sa propre âme originelle. Au fil des éons, il avait perdu tout contact avec son autre moitié. Autrement, il n'aurait pas eu recours à cette méthode de 99 éveils pour reprendre le contrôle de la réincarnation et retrouver l'autre partie de son corps.
 
-« Le jeu est terminé, Omniscient », dit lentement Wang Lin, puis il leva sa main droite tenant la moitié de la boussole. Il projeta la boussole directement dans la gueule de la Bête des Enfers.
+« Le jeu est terminé, Omniscient », dit lentement Wang Lin, puis il leva sa main droite tenant la moitié de la boussole. Il projeta la boussole directement dans la gueule de la Bête des Limbes.
 
 Toutes les âmes de l'Omniscient tremblèrent et hurlèrent. Elles tentèrent désespérément de s'éparpiller et de fuir dans 2 999 directions différentes.
 
-Le Maître du Dao Rêve Bleu et ses compagnons voulurent les poursuivre, mais Wang Lin les en empêcha. Il observa la Bête des Enfers mâcher avec sa gueule immense, l'air hébété. Après un long moment, la confusion disparut pour laisser place à une expression impitoyable.
+Le Maître du Dao Rêve Bleu et ses compagnons voulurent les poursuivre, mais Wang Lin les en empêcha. Il observa la Bête des Limbes mâcher avec sa gueule immense, l'air hébété. Après un long moment, la confusion disparut pour laisser place à une expression impitoyable.
 
-« Dévorons-les. Désormais, tu seras complète. » Wang Lin paraissait épuisé et s'assit sur le dos de la Bête des Enfers.
+« Dévorons-les. Désormais, tu seras complète. » Wang Lin paraissait épuisé et s'assit sur le dos de la Bête des Limbes.
 
-La Bête des Enfers ouvrit soudainement sa gueule et chargea. À l'instant même, les 2 999 âmes furent enveloppées par une force d'aspiration colossale. Elles hurlèrent toutes en étant aspirées dans la gueule béante de la bête!
+La Bête des Limbes ouvrit soudainement sa gueule et chargea. À l'instant même, les 2 999 âmes furent enveloppées par une force d'aspiration colossale. Elles hurlèrent toutes en étant aspirées dans la gueule béante de la bête!
 
-« Aîné Rêve Bleu, Qing Lin et Aînée Hong Shan, je dois reformer mon avatar de cultivateur, je ne retournerai donc pas au Royaume Céleste avec vous. Une fois mes affaires réglées, je vous rejoindrai là-bas. Dites à l'Aîné Frère Qing Shui qu'il est préférable qu'il ne sorte pas durant cette période et que j'aurai besoin de son aide à mon retour. »
+« Senior Rêve Bleu, Qing Lin et Senior Hong Shan, je dois reformer mon avatar de cultivateur, je ne retournerai donc pas au Royaume Céleste avec vous. Une fois mes affaires réglées, je vous rejoindrai là-bas. Dites à l'Senior Frère Qing Shui qu'il est préférable qu'il ne sorte pas durant cette période et que j'aurai besoin de son aide à mon retour. »
 
-Wang Lin joignit les mains en signe de respect envers les trois, paraissant encore plus las. Il s'assit sur le dos de la Bête des Enfers et disparut lentement dans le lointain.
+Wang Lin joignit les mains en signe de respect envers les trois, paraissant encore plus las. Il s'assit sur le dos de la Bête des Limbes et disparut lentement dans le lointain.
 
-Les yeux de la Bête des Enfers étaient d'une cruauté absolue. C'était le même regard qu'elle avait eu lorsqu'elle dévora Lian Daofei; un regard extrêmement terrifiant.
+Les yeux de la Bête des Limbes étaient d'une cruauté absolue. C'était le même regard qu'elle avait eu lorsqu'elle dévora Lian Daofei; un regard extrêmement terrifiant.
 
-Avec la présence de la Bête des Enfers, Wang Lin ne craignait plus personne dans le monde de la grotte! C'est à cet instant précis qu'il obtint la qualification pour prétendre à la suprématie!
+Avec la présence de la Bête des Limbes, Wang Lin ne craignait plus personne dans le monde de la grotte! C'est à cet instant précis qu'il obtint la qualification pour prétendre à la suprématie!

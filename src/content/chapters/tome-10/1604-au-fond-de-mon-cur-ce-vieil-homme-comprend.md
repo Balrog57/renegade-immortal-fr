@@ -6,25 +6,25 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1604 - In My Heart, This Old Man Understands
 slug: au-fond-de-mon-cur-ce-vieil-homme-comprend
 ---
-Le calèche transporta les deux femmes ainsi que quelques cruches de vin hors de la ville de Su, sans que personne ne s'en aperçoive. Lentement, il se dirigea vers le domicile de Wang Lin.
+La calèche transporta les deux femmes ainsi que quelques cruches de vin hors de la ville de Su, sans que personne ne s'en aperçoive. Lentement, il se dirigea vers le domicile de Wang Lin.
 
 Ce n'est qu'au crépuscule que les deux femmes du bateau débarquèrent et marchèrent dans les rues de Su. Leurs apparences changèrent progressivement pour devenir très ordinaires.
 
-« Sœur aînée, tu as grandi ici. À part le bateau, y a-t-il d'autres endroits divertissants? Nous avons pratiqué la culture en isolement pendant si longtemps et nous sommes enfin sorties, il faut bien s'amuser un peu. »
+« Senior Sister, tu as grandi ici. À part le bateau, y a-t-il d'autres endroits divertissants? Nous avons pratiqué la culture en isolement pendant si longtemps et nous sommes enfin sorties, il faut bien s'amuser un peu. »
 
-« Toi, je vais rendre visite à mes parents, et tu dois me suivre. Il n'y a rien d'intéressant dans la ville de Su. Demain, j'irai voir le Grand Savant Su Dao. C'était un ami de la famille autrefois. Une fois sur place, tu ne devras pas manquer de respect. Bien qu'il soit mortel, même le Maître est très poli envers lui. »
+« Toi, je vais rendre visite à mes parents, et tu dois me suivre. Il n'y a rien d'intéressant dans la ville de Su. Demain, j'irai voir le Grand Érudit Su Dao. C'était un ami de la famille autrefois. Une fois sur place, tu ne devras pas manquer de respect. Bien qu'il soit mortel, même le Maître est très poli envers lui. »
 
 Alors que les deux femmes discutaient, un érudit qui passait par là entendit leurs propos et sourit. Il vit que ces deux femmes paraissaient très ordinaires, mais il s'arrêta tout de même pour leur expliquer:
 
-« Mesdames, vous devez être parties de Zhao depuis longtemps. Su Dao est décédé il y a plus de dix ans. Le Grand Savant de Zhao s'appelle désormais Wang Lin; c'est l'élève de Su Dao. »
+« Mesdames, vous devez être parties de Zhao depuis longtemps. Su Dao est décédé il y a plus de dix ans. Le Grand Érudit de Zhao s'appelle désormais Wang Lin; c'est l'élève de Su Dao. »
 
 Les deux femmes furent stupéfaites. L'érudit secoua la tête et partit avec un sourire.
 
-« Wang Lin... Wang Lin... Ah, sœur aînée, je me souviens! Le vieil homme qui nous regardait sur le bateau... bien qu'il soit âgé, c'était ce jeune érudit, Wang Lin! »
+« Wang Lin... Wang Lin... Ah, Senior Sister, je me souviens! Le vieil homme qui nous regardait sur le bateau... bien qu'il soit âgé, c'était ce jeune érudit, Wang Lin! »
 
 Zhou Rui s'arrêta net et se retourna vers l'horizon crépusculaire. Devant elle, l'image de ce jeune homme rougissant apparut.
 
-« Sœur aînée, sœur aînée, qu'arrive-t-il? » Xu Fei regarda Zhou Rui comme si elle avait compris quelque chose.
+« Senior Sister, Senior Sister, qu'arrive-t-il? » Xu Fei regarda Zhou Rui comme si elle avait compris quelque chose.
 
 Zhou Rui réfléchit silencieusement un instant avant de secouer doucement la tête. Elle reprit sa marche avec Xu Fei, mais après seulement dix pas, elle serra les dents, comme si elle venait de prendre une décision irrévocable.
 
@@ -40,11 +40,11 @@ Le Sens Divin de Zhou Rui se propagea sur la rivière alors qu'elle survolait la
 
 « Est-ce qu'il est parti... » Zhou Rui ne savait pas ce qui lui arrivait. Elle voulait voir Wang Lin, mais le destin s'était joué d'elle. Une fois que deux vies se croisent, elles ne se recroiseront plus avant bien longtemps.
 
-À des dizaines de kilomètres de la ville de Su, le calèche grinçait sur la route. Wang Lin était assis à l'intérieur, laissant le vent lui caresser le visage. Il buvait son vin tout en regardant par la fenêtre le ciel qui s'obscurcissait, perdu dans ses pensées. Bien qu'il ne fût pas vieux, il n'avait plus l'allure d'un jeune homme. À mesure qu'il buvait, quelques mèches de cheveux blancs apparaissaient.
+À des dizaines de kilomètres de la ville de Su, la calèche grinçait sur la route. Wang Lin était assis à l'intérieur, laissant le vent lui caresser le visage. Il buvait son vin tout en regardant par la fenêtre le ciel qui s'obscurcissait, perdu dans ses pensées. Bien qu'il ne fût pas vieux, il n'avait plus l'allure d'un jeune homme. À mesure qu'il buvait, quelques mèches de cheveux blancs apparaissaient.
 
 Il vit à nouveau l'oiseau blanc tournoyer dans le ciel et voler vers sa demeure, à ses côtés.
 
-Désormais plus âgé, son corps n'était plus aussi vigoureux que dans sa jeunesse. Après avoir passé un long moment dans ce calèche cahoteux, il avait l'impression que ses os allaient se briser. Il était extrêmement fatigué.
+Désormais plus âgé, son corps n'était plus aussi vigoureux que dans sa jeunesse. Après avoir passé un long moment dans cette calèche cahoteuse, il avait l'impression que ses os allaient se briser. Il était extrêmement fatigué.
 
 C'est ainsi qu'ils voyagèrent et se reposèrent tout au long de l'été. Quatre mois plus tard, à l'automne, Wang Lin et Grande Fortune entrèrent dans la région située sous le mont Heng Yue.
 
@@ -52,17 +52,17 @@ Lorsqu'il était parti, les bas-côtés étaient couverts de fleurs rouges et ve
 
 « 28 ans... » Wang Lin regarda l'herbe et les arbres environnants, la vue brouillée par l'émotion. Il se souvenait qu'en partant, il n'était qu'un jeune homme; désormais, de retour, il approchait de la cinquantaine.
 
-Le calèche suivit lentement le chemin officiel jusqu'à un village calme et isolé dans la montagne. Wang Lin connaissait tout ici; c'était là qu'il avait grandi. Il ne retira pas trop l'attention des voisins en emmenant Grande Fortune vers la maison qu'il avait quittée toutes ces années auparavant.
+La calèche suivit lentement le chemin officiel jusqu'à un village calme et isolé dans la montagne. Wang Lin connaissait tout ici; c'était là qu'il avait grandi. Il n'attira pas trop l'attention des voisins en emmenant Grande Fortune vers la maison qu'il avait quittée toutes ces années auparavant.
 
 Ses parents étaient toujours là, mais son père, autrefois robuste, devait désormais s'appuyer sur une canne. Il se tenait debout avec l'aide de la mère de Wang Lin, aux cheveux blancs. Ils regardaient vers la route, guettant leur enfant qui rentrait à la maison.
 
-Même si cet enfant était devenu le Grand Savant de Zhao et la fierté de la famille Wang, pour eux, il restait le même qu'il y a 28 ans. Il était toujours leur enfant. C'était ainsi lorsqu'ils furent emmenés à la ville de Su, et c'était encore ainsi aujourd'hui.
+Même si cet enfant était devenu le Grand Érudit de Zhao et la fierté de la famille Wang, pour eux, il restait le même qu'il y a 28 ans. Il était toujours leur enfant. C'était ainsi lorsqu'ils furent emmenés à la ville de Su, et c'était encore ainsi aujourd'hui.
 
-Le calèche s'arrêta devant la cour. Wang Lin en descendit et vit immédiatement ses parents. Un sourire doux se dessina sur son visage. Il fit quelques pas en avant et s'agenouilla.
+La calèche s'arrêta devant la cour. Wang Lin en descendit et vit immédiatement ses parents. Un sourire doux se dessina sur son visage. Il fit quelques pas en avant et s'agenouilla.
 
 « Père, Mère, Tie Zhu est de retour. »
 
-Grande Fortune cligna des yeux. Après être descendu du calèche, il s'agenouilla également et s'exclama bruyamment: « Père, Mère, Grande Fortune est de retour! »
+Grande Fortune cligna des yeux. Après être descendu de la calèche, il s'agenouilla également et s'exclama bruyamment: « Père, Mère, Grande Fortune est de retour! »
 
 Le père de Wang Lin éclata de rire. Il ignora Wang Lin pour aider rapidement Grande Fortune à se relever. Secouant la tête, il rit de nouveau: « Toi, tu es toujours le même qu'autrefois. Tu as pris soin de Lin Er pendant toutes ces années, je ne saurais comment te remercier. Mais n'essaie pas de l'imiter! »
 
@@ -70,11 +70,11 @@ Wang Lin se redressa et contempla les sourires radieux de ses parents. Un sentim
 
 « Tie Zhu, quand repartiras-tu cette fois? » La mère de Wang Lin regarda son fils avec tendresse. Wang Lin était sa fierté.
 
-« Tu l'appelles encore Tie Zhu? Wang Lin est désormais le Grand Savant de Zhao! Sais-tu ce que cela représente? Même l'Empereur doit lui témoigner du respect! Ne vois-tu pas comment le Seigneur de la province vient nous voir chaque année? » Le père de Wang Lin réprimanda sa femme du regard.
+« Tu l'appelles encore Tie Zhu? Wang Lin est désormais le Grand Érudit de Zhao! Sais-tu ce que cela représente? Même l'Empereur doit lui témoigner du respect! Ne vois-tu pas comment le Seigneur de la province vient nous voir chaque année? » Le père de Wang Lin réprimanda sa femme du regard.
 
 « Je ne partirai pas cette fois-ci. Tie Zhu restera pour s'occuper de vous deux. » Wang Lin regarda sa mère. Il vit ses cheveux blancs et les rides qui marquaient son visage.
 
-Le retour de Wang Lin provoqua une agitation sans précédent dans tout le village pendant quelques jours. Les voisins se précipitèrent, désireux d'apercevoir ce Grand Savant de Zhao qui faisait leur fierté. Même les érudits et les fonctionnaires des villes voisines accoururent dès qu'ils apprirent la nouvelle, accompagnés des membres de la famille Wang.
+Le retour de Wang Lin provoqua une agitation sans précédent dans tout le village pendant quelques jours. Les voisins se précipitèrent, désireux d'apercevoir ce Grand Érudit de Zhao qui faisait leur fierté. Même les érudits et les fonctionnaires des villes voisines accoururent dès qu'ils apprirent la nouvelle, accompagnés des membres de la famille Wang.
 
 Durant ces quelques jours, le père de Wang Lin était rayonnant, la tête haute. La plus grande fierté de sa vie était son fils. Voyant tant de monde affluer, il se sentit encore plus honoré et sortit de l'argent pour organiser un banquet dans le village.
 

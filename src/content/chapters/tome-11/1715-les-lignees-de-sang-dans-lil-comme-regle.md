@@ -8,13 +8,13 @@ slug: les-lignees-de-sang-dans-lil-comme-regle
 ---
 Qu'étaient les règles? Peu de gens s'en préoccupaient probablement. Et puis, quelle était la distinction avec les lois? C'était une question sur laquelle les hommes méditaient depuis des millions d'années sans jamais trouver de réponse.
 
-C'était un sujet qui déconcertait même Wang Lin. Parfois, il pensait avoir enfin compris, mais la plupart du temps, il ne faisait que réfuté ses propres hypothèses.
+C'était un sujet qui déconcertait même Wang Lin. Parfois, il pensait avoir enfin compris, mais la plupart du temps, il ne faisait que réfuter ses propres hypothèses.
 
 Règles, lois, formation du monde. Telle était l'actuelle spéculation de Wang Lin.
 
 Qu'étaient le ciel et la terre? Les cieux et la terre du monde des cavernes étaient le Dao Céleste. Qu'est-ce qui permettait à celui-ci de déterminer les règles et les lois de ce monde et d'en être l'origine?
 
-Wang Lin ne comprenait pas. Bien que son essence martiale ait formé une nouvelle loi, il ignorait encore sa véritable nature. Il savait seulement que, qu'il s'agisse de lois ou de règles, elles étaient intangibles. Cependant, si elles devenaient tangibles, elles se manifesteraient sous forme de lignes s'entremêlant autour de toute chose.
+Wang Lin ne comprenait pas. Bien que son essence de la bataille ait formé une nouvelle loi, il ignorait encore sa véritable nature. Il savait seulement que, qu'il s'agisse de lois ou de règles, elles étaient intangibles. Cependant, si elles devenaient tangibles, elles se manifesteraient sous forme de lignes s'entremêlant autour de toute chose.
 
 À l'instar des innombrables lignes floues qui apparaissaient autour d'un être lorsqu'il utilisait le sort « Arrêt ». Ces lignes représentaient la compréhension que Wang Lin avait des règles et des lois.
 
@@ -32,7 +32,7 @@ Au cours de ces jours de compréhension, il n'étudiait pas la différence entre
 
 Pour réussir, ces lignes devraient devenir une partie intégrante de son corps!
 
-Il avait ouvert le Voile Fantomatique et, alors qu'il était entouré d'innombrables restrictions, une idée lui vint: utiliser les veines sanguines de ses yeux!
+Il avait ouvert le Voile Fantôme et, alors qu'il était entouré d'innombrables restrictions, une idée lui vint: utiliser les veines sanguines de ses yeux!
 
 Les vaisseaux sanguins de ses yeux deviendraient les lignes des règles du monde. Après avoir fusionné avec toutes les restrictions, ses yeux deviendraient semblables au ciel et à la terre. Ses yeux seraient l'essence même de la restriction, et ses pensées deviendraient la volonté des règles de ce monde!
 
@@ -42,7 +42,7 @@ Un œil rouge illusoire apparut devant lui, laissant entrevoir clairement ses ve
 
 À cet instant, Wang Lin leva sa main droite et pressa son œil gauche. Une illusion de son œil gauche apparut, formant un second globe oculaire gigantesque.
 
-Une fois ces deux pupilles apparues, les veines sanguines scintillèrent et se déployèrent, fusionnant avec les restrictions. Après une demi-queue d'encens, il ne restait plus aucune restriction, seulement deux yeux géants flottant dans l'espace.
+Une fois ces deux pupilles apparues, les veines sanguines scintillèrent et se déployèrent, fusionnant avec les restrictions. Après un demi-bâton d'encens, il ne restait plus aucune restriction, seulement deux yeux géants flottant dans l'espace.
 
 D'une simple pensée, Wang Lin fit scintiller les deux globes illusoires avant qu'ils ne se dissipent rapidement. Ils disparurent dans ses propres yeux, puis il les ferma.
 
@@ -88,23 +88,23 @@ Wang Lin leva soudainement la tête et serra le poing droit. Sous l'effet de sa 
 
 Il se redressa lentement et agita sa manche. Les sept épées formées par ses essences réintégrèrent son corps, disparaissant une à une.
 
-Wang Lin tendit la main vers le vide et le Voile Fantomatique, qui présentait jusqu'alors une faille, apparut dans sa paume. D'un simple regard, l'interstice se referma rapidement jusqu'à ce que l'objet soit parfait.
+Wang Lin tendit la main vers le vide et le Voile Fantôme, qui présentait jusqu'alors une faille, apparut dans sa paume. D'un simple regard, l'interstice se referma rapidement jusqu'à ce que l'objet soit parfait.
 
 Le visage fantomatique sur la voile demeurait étrange, mais il semblait désormais plus familier à Wang Lin.
 
-Ce Voile Fantomatique était désormais son propre trésor!
+Ce Voile Fantôme était désormais son propre trésor!
 
-« Le sort d'illusion du Grand Secte des Âmes du Continent Astral Immortel est également une forme de restriction. Il fait partie de l'essence même de la restriction. Les restrictions sont illusoires, tout comme les règles. Si vous dites qu'elles existent, elles existent. Mais quand on est assez puissant pour les ignorer, elles cessent d'exister...
+« Le sort d'illusion de la Secte de la Grande Âme du Continent Astral Immortel est également une forme de restriction. Il fait partie de l'essence même de la restriction. Les restrictions sont illusoires, tout comme les règles. Si vous dites qu'elles existent, elles existent. Mais quand on est assez puissant pour les ignorer, elles cessent d'exister...
 
 « C'est une illusion... Elle ressemble au vrai et au faux, mais elle en est très différente! Bien que j'aie compris l'essence de la restriction, elle n'est pas complète. Elle ne s'est formée qu'à partir de ma propre compréhension...
 
 « Pour que la véritable essence de la restriction se manifeste, il faudrait que l'on se transforme soi-même en ciel et en terre. Faire de ses propres règles les règles du ciel et de la terre. Faire de sa propre volonté la volonté du ciel et de la terre. C'est extrêmement difficile, difficile, difficile... »
 
-Wang Lin secoua la tête en silence. Il rangea le Voile Fantomatique et s'éloigna.
+Wang Lin secoua la tête en silence. Il rangea le Voile Fantôme et s'éloigna.
 
 « Il reste encore beaucoup à faire, et il me faudra du temps pour étudier l'illusion sur cette voile... Cependant, il est temps de quitter cet endroit. » Les cheveux blancs de Wang Lin flottèrent alors qu'il quittait progressivement les lieux.
 
-Le voyage de Wang Lin fut fructueux. Ses corps du Dao Ancien avaient atteint huit étoiles, il avait atteint le stade avancé du Vide Spirituel, il avait obtenu le Voile Fantomatique pour commander le navire, et il avait même noué une alliance avec Fen Shanlu.
+Le voyage de Wang Lin fut fructueux. Ses corps du Dao Ancien avaient atteint huit étoiles, il avait atteint le stade avancé du Vide Spirituel, il avait obtenu le Voile Fantôme pour commander le navire, et il avait même noué une alliance avec Fen Shanlu.
 
 Plus important encore, il avait découvert une méthode pour rechercher la troisième âme.
 

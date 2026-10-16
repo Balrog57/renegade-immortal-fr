@@ -74,7 +74,7 @@ La personnalité de Wang Lin était d'une grande fermeté. Il n'importunait pers
 
 « Li Yuanfeng... » La froideur dans les yeux de Wang Lin se dissipa alors qu'il se tournait vers Du Tian et joignit les mains. « Merci, Aîné, pour ces trois cadeaux. Si vous avez besoin que ce junior accomplisse quoi que ce soit, dites-le simplement. Je ferai de mon mieux! »
 
-En disant cela, Wang Lin signifiait sa profonde gratitude envers l'Aîné Du Tian.
+En disant cela, Wang Lin signifiait sa profonde gratitude envers l'Senior Du Tian.
 
 Du Tian esquissa un léger sourire. Son mécontentement précédent s'était totalement évanoui. Il avait tout orchestré pour que Wang Lin lui dise ces mots!
 

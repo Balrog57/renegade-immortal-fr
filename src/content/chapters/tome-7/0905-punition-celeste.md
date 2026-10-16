@@ -16,13 +16,13 @@ Un fracas retentit dans la 16e couche, puis le tatouage s'effondra. Tandis que l
 
 Au moment précis de sa disparition, un réseau de transfert apparut dans le bassin, émettant une lueur étrange.
 
-Sur une planète de la secte de Suzaku, un homme ressemblant à Huanglong discutait avec sourire avec quelques cultivateurs de bas niveau lorsqu'il tourna soudainement le regard vers l'horizon. Ce fut l'instant même où le passage vers la 17e couche s'ouvrit.
+Sur une planète de la secte de Suzaku, un homme ressemblant à Huanglong discutait en souriant avec quelques cultivateurs de bas niveau lorsqu'il tourna soudainement le regard vers l'horizon. Ce fut l'instant même où le passage vers la 17e couche s'ouvrit.
 
 Après un long moment, il détourna les yeux et pensa: « Peu importe, il n'y a rien qu'il ne puisse voir dans la 17e couche. La culture de ce petit gars a atteint un point tel qu'il peut percevoir certains secrets. Cependant, la 17e couche est sa limite; il ne pourra pas pénétrer dans la 18e. »
 
 Dans la 16e couche du Cimetière des Immortels, Ta Shan entra dans le réseau de transfert et disparut. Wang Lin attendit un instant pour s'assurer de l'absence de danger avant d'y pénétrer à son tour. Le garçon à la grosse tête, Lei Ji et Yun Quezi s'engouffrèrent rapidement eux aussi dans le dispositif.
 
-La 17e couche du Cimetière Abandonné était plongée dans une obscurité totale, dépourvue de toute lumière et saturée d'une puissante aura de mort. Soudain, la lueur d'une formation de transfert jaillit en son centre.
+La 17e couche du Cimetière des Immortels était plongée dans une obscurité totale, dépourvue de toute lumière et saturée d'une puissante aura de mort. Soudain, la lueur d'une formation de transfert jaillit en son centre.
 
 Grâce à cette clarté, les environs devinrent visibles!
 

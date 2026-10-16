@@ -68,7 +68,7 @@ Ce sourire était extrêmement étrange. En un instant, une lumière l'enveloppa
 
 Sa voix, telle un coup de tonnerre, retentit à travers toute la Secte Démon. Cela tirailla les cultivateurs de la secte qui étaient tombés dans la léthargie. Cependant, sitôt réveillés, ils sombrèrent de nouveau dans l'engourdissement.
 
-Ce n'étaient pas seulement les membres de la Secte Démon qui disparaissaient. À la Secte Fantôme, à la Secte Divin, à la Secte Briseur de Ciel et parmi les bêtes féroces dans la brume, des gens s'évanouissaient également.
+Ce n'étaient pas seulement les membres de la Secte Démon qui disparaissaient. À la Secte Fantôme, à la Secte Divine, à la Secte Brise-Ciel et parmi les bêtes féroces dans la brume, des gens s'évanouissaient également.
 
 L'épée de sang encerclait Wang Lin. Il leva les yeux vers le vortex formé par les quatre épées. La voix étrange pénétra aussi son esprit et, puisqu'il était celui qui subissait la divine rétribution, elle résonnait en lui avec une clarté accrue. Pourtant, la voix à ses oreilles n'était pas unique, mais changeait constamment!
 
@@ -96,7 +96,7 @@ Des bruits de déchirement résonnèrent dans le corps de Wang Lin alors que la 
 
 Son visage devint légèrement rouge et son énergie originelle circula dans tout son corps. Il fixa la montagne de nuages et ses yeux s'illuminèrent!
 
-Il attendait l'instant où la divine rétribution libérerait toute sa puissance. Le moment était venu! Tandis que la montagne de nuages s'abattait sur lui, les yeux de Wang Lin brillèrent d'une lueur intense. Toute son énergie originelle éclata et il abattit l'épée de sang sous ses pieds. Un grondement tonnerre retentit et une fissure spatiale gigantesque apparut!
+Il attendait l'instant où la divine rétribution libérerait toute sa puissance. Le moment était venu! Tandis que la montagne de nuages s'abattait sur lui, les yeux de Wang Lin brillèrent d'une lueur intense. Toute son énergie originelle éclata et il abattit l'épée de sang sous ses pieds. Un grondement de tonnerre retentit et une fissure spatiale gigantesque apparut!
 
 Cette faille fut déchirée couche après couche et, sous la pression foudroyante de la montagne de nuages, elle s'effondra avec une intensité accrue. Après quelques instants, la fissure spatiale fut totalement éventrée!
 

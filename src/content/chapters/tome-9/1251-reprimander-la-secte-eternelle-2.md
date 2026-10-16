@@ -18,7 +18,7 @@ Lu Yanfei se tenait aux côtés de Lu Yuncong; elle s'inclina respectueusement e
 
 La plupart des personnes sur les gradins ne prêtèrent pas attention à Lu Yanfei, mais regardèrent Lu Yuncong avec admiration. L'homme d'âge mûr nommé Zhou observa Lu Yuncong avec bienveillance.
 
-« Lu Yuncong, la personne dont tu as parlé est-elle Lu Zihao de la Secte Origin? » La voix de l'homme en blanc était calme et dégageait une pression invisible. Sa culture au sommet du stade Briseur du Nirvana se propagea, mais elle semblait fort naturelle, comme s'il ne révélait pas son véritable niveau.
+« Lu Yuncong, la personne dont tu as parlé est-elle Lu Zihao de la Secte de l'Origine? » La voix de l'homme en blanc était calme et dégageait une pression invisible. Sa culture au sommet du stade Briseur du Nirvana se propagea, mais elle semblait fort naturelle, comme s'il ne révélait pas son véritable niveau.
 
 Lu Yuncong réfléchit un instant puis dit lentement: « Le disciple ne connaît pas le nom de cet homme, mais je suppose qu'il s'agit de Lu Zihao. »
 
@@ -32,7 +32,7 @@ Lu Yuncong hocha la tête, les yeux empreints de nostalgie, et répondit: « Il 
 
 Dès qu'il eut prononcé ces mots, non seulement les personnes sur l'estrade furent surprises, mais tous ceux qui écoutaient en furent également stupéfaits.
 
-« Ce maudit fils était un scélérat, sa mort n'était donc pas une tragédie. Cependant, en tant que père, je voulais voir celui qui l'avait tué, alors je me suis rendu à la Secte Origin... En chemin, j'ai rencontré le camarade cultivateur Li, et nous avons fait route ensemble... »
+« Ce maudit fils était un scélérat, sa mort n'était donc pas une tragédie. Cependant, en tant que père, je voulais voir celui qui l'avait tué, alors je me suis rendu à la Secte de l'Origine... En chemin, j'ai rencontré le camarade cultivateur Li, et nous avons fait route ensemble... »
 
 Lu Yuncong commença à relater tout ce qui s'était passé lors de sa rencontre avec Wang Lin. Il inclut également les trois questions de Li Qianmei et la manière dont Wang Lin y avait répondu. La réponse comparant le ciel à un cercle émut toute l'assistance!
 
@@ -44,21 +44,21 @@ Les yeux de Wang Shanshan s'animèrent alors qu'elle écoutait Lu Yuncong: « Je
 
 « Après avoir discuté du Dao avec le frère Lu, ma compréhension s'est profondément accrue et je l'admire grandement. Je suis venu ici dans l'espoir de le revoir, mais malheureusement... » Lu Yuncong laissa échapper un soupir.
 
-En entendant cela, tous comprirent pourquoi Li Qianmei était venue en aide à la Secte Origin.
+En entendant cela, tous comprirent pourquoi Li Qianmei était venue en aide à la Secte de l'Origine.
 
-« Je ne m'attendais pas à ce qu'un tel individu apparaisse au sein de la Secte Origin! » Feng Hai ressentit une pointe de mélancolie en regardant la silencieuse Lu Yanfei.
+« Je ne m'attendais pas à ce qu'un tel individu apparaisse au sein de la Secte de l'Origine! » Feng Hai ressentit une pointe de mélancolie en regardant la silencieuse Lu Yanfei.
 
-« Lu Yanfei, cet homme est-il vraiment l'ancêtre de votre Secte Origin? » La question vint de l'homme en robe blanche, le Maître de la Secte Éternelle.
+« Lu Yanfei, cet homme est-il vraiment l'ancêtre de votre Secte de l'Origine? » La question vint de l'homme en robe blanche, le Maître de la Secte Éternelle.
 
-C'était la première fois que Lu Yanfei était interrogée ainsi, mais elle n'hésita pas et répondit doucement: « Oui, mon Oncle-Maître a erré à travers le monde pour revenir sauver la Secte Origin. Il s'était installé... Mais après avoir rencontré le camarade cultivateur Lu, il est reparti. Ses traces sont aujourd'hui inconnues. »
+C'était la première fois que Lu Yanfei était interrogée ainsi, mais elle n'hésita pas et répondit doucement: « Oui, mon Oncle-Maître a erré à travers le monde pour revenir sauver la Secte de l'Origine. Il s'était installé... Mais après avoir rencontré le camarade cultivateur Lu, il est reparti. Ses traces sont aujourd'hui inconnues. »
 
 « Un tel cultivateur doit errer dans le monde pour comprendre le Dao. Sa personnalité doit l'inciter à se détourner des affaires mondaines; c'est ainsi qu'il a pu atteindre une telle compréhension du Dao. » C'était l'homme d'âge mûr nommé Zhou qui parlait, avec un certain regret.
 
-« Ton Oncle-Maître viendra-t-il ici? » demanda l'homme en blanc. Après avoir entendu les propos de Lu Yuncong, son intérêt s'était décuplé. Bien que cet homme appartînt à la Secte Origin, ce dernier n'était qu'une branche de la Secte Éternelle. En fin de compte, cet individu était toujours un disciple de la Secte Éternelle!
+« Ton Oncle-Maître viendra-t-il ici? » demanda l'homme en blanc. Après avoir entendu les propos de Lu Yuncong, son intérêt s'était décuplé. Bien que cet homme appartînt à la Secte de l'Origine, ce dernier n'était qu'une branche de la Secte Éternelle. En fin de compte, cet individu était toujours un disciple de la Secte Éternelle!
 
 « Lorsque l'Oncle-Maître est parti, il a dit qu'il reviendrait. » Bien que la voix de Lu Yanfei fût douce, ses paroles étaient empreintes de détermination.
 
-« Bien, alors attendons-le! Ce vieil homme veut voir quel genre d'homme est ce Lu Zihao! Reprenez vos places, et le combat entre votre Secte Origin et la Secte Purple Dao sera reporté. Ancien Feng, ordonnez aux sectes de rang 6 de commencer! » L'homme en blanc sourit, visiblement ravi.
+« Bien, alors attendons-le! Ce vieil homme veut voir quel genre d'homme est ce Lu Zihao! Reprenez vos places, et le combat entre votre Secte de l'Origine et la Secte du Dao Pourpre sera reporté. Ancien Feng, ordonnez aux sectes de rang 6 de commencer! » L'homme en blanc sourit, visiblement ravi.
 
 La compétition des sectes de rang 6 commença officiellement dans un fracas de tonnerre. Cependant, cela ne put détourner l'attention de la foule, car tous les regards étaient encore rivés sur les gradins de la Secte Éternelle.
 
@@ -100,6 +100,6 @@ L'un des Anciens, encore sous le choc, prit une profonde inspiration et déclara
 
 Après son intervention, tous les Anciens de la Secte Éternelle furent stupéfaits. Si un autre l'avait affirmé, ils ne l'auraient peut-être pas cru, mais l'Ancien Wu Tian, toujours calme et imperturbable, jouissait d'une immense crédibilité.
 
-« Ainsi, l'Ancien Wu a vu cet homme. Ce vieil homme n'a pas vu son visage, mais j'ai aperçu sa silhouette. Plus tôt, j'ai reçu des rapports des régions de rang 6 et de rang 7. Quelqu'un a surgi de la région de rang 5 pour traverser celle de rang 6. Sa vitesse était prodigieuse, comparable à celle d'un Briseur du Nirvana au sommet ou d'un cultivateur au premier stade du Flétrissement Céleste. Il a survolé d'innombrables continents sans que personne n'ose l'arrêter! »
+« Ainsi, l'Ancien Wu a vu cet homme. Ce vieil homme n'a pas vu son visage, mais j'ai aperçu sa silhouette. Plus tôt, j'ai reçu des rapports des régions de rang 6 et de rang 7. Quelqu'un a surgi de la région de rang 5 pour traverser celle de rang 6. Sa vitesse était prodigieuse, comparable à celle d'un Briseur du Nirvana au sommet ou d'un cultivateur au premier stade du Fléau Céleste. Il a survolé d'innombrables continents sans que personne n'ose l'arrêter! »
 
-« Il a forcé le passage dans la région de rang 6 et a brisé la formation pour pénétrer dans la région de rang 7. L'une des sectes affiliées avait déployé trois cultivateurs Briseur du Nirvana pour tenter de l'intercepter. Cet homme a utilisé l'Empreinte d'Esprit de Guerre! Cette technique a pulvérisé plusieurs continents sauvages, et beaucoup ont été contraints de déplacer leurs terres pour lui laisser le passage! Il a chargé jusqu'à la région de rang 8! » Après ces paroles, l'étonnement général atteignit son paroxysme.
+« Il a forcé le passage dans la région de rang 6 et a brisé la formation pour pénétrer dans la région de rang 7. L'une des sectes affiliées avait déployé trois cultivateurs Briseur du Nirvana pour tenter de l'intercepter. Cet homme a utilisé l'Empreinte de l'Esprit Guerrier! Cette technique a pulvérisé plusieurs continents sauvages, et beaucoup ont été contraints de déplacer leurs terres pour lui laisser le passage! Il a chargé jusqu'à la région de rang 8! » Après ces paroles, l'étonnement général atteignit son paroxysme.

@@ -26,7 +26,7 @@ Peu de gens pouvaient atteindre la deuxième étape de la culture; c'était une 
 
 Bien que Wang Lin n'ait pas encore atteint cette étape, ses quelques combats contre des cultivateurs de l'Yin Illusoire lui avaient fait réaliser la puissance phénoménale des cultivateurs de la deuxième étape.
 
-« La première étape de la culture était déjà extrêmement difficile. En repensant à ces 900 ans de culture, le danger se trouvait à chaque coin de rue. Le moindre instant d'inattention aurait pu détruire mon âme. Si ce n'était pour l'Aîné Zhou Yi, je serais déjà mort en tentant de percer le stade Ascendant.
+« La première étape de la culture était déjà extrêmement difficile. En repensant à ces 900 ans de culture, le danger se trouvait à chaque coin de rue. Le moindre instant d'inattention aurait pu détruire mon âme. Si ce n'était pour Senior Zhou Yi, je serais déjà mort en tentant de percer le stade Ascendant.
 
 « Si la première étape est déjà ainsi, alors la deuxième doit être encore plus ardue. La deuxième étape doit également posséder sa propre épreuve de vie et de mort... Je me demande si je pourrai la réussir... Cependant, celui qui suit la volonté des cieux est semblable à un mortel, tandis que celui qui s'oppose aux cieux est immortel. Tant que mon cœur dao demeure, je peux surmonter tous les dangers! » Les yeux de Wang Lin brillèrent intensément.
 
@@ -44,7 +44,7 @@ La Bête du Tonnerre emmena Wang Lin vers la planète Mille Illusions. La planè
 
 « Il est temps d'explorer ce Serpent aux yeux de lune sur la planète Yun Xia. J'ai besoin d'une grande quantité de Fruits d'Ascension Céleste, la famille Huan est donc le meilleur choix! » Wang Lin chevaucha la Bête du Tonnerre en avant. Bien que sa progression fût plus lente que celle de la boussole stellaire, elle restait très rapide.
 
-« Le corps original a absorbé l'énergie spirituelle d'une petite planète et sa force est de quatre étoiles. Cependant, il lui manque encore l'aura d'un dieu ancestral adulte. Je me demande si je peux en trouver dans le Système Stellaire de Tout-Ciel... » Les yeux de Wang Lin s'illuminèrent comme s'il venait d'avoir une révélation.
+« Le corps original a absorbé l'énergie spirituelle d'une petite planète et sa force est de quatre étoiles. Cependant, il lui manque encore l'aura d'un dieu ancestral adulte. Je me demande si je peux en trouver dans le Système Stellaire de Luotian... » Les yeux de Wang Lin s'illuminèrent comme s'il venait d'avoir une révélation.
 
 « Le Serpent aux yeux de lune est un parasite qui vit à l'intérieur du corps d'un dieu ancestral. Je me demande s'il reste là-bas des traces de l'aura d'un dieu ancestral... » Wang Lin se remémora un souvenir passé.
 

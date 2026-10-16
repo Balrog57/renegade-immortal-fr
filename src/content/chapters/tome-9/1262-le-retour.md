@@ -8,7 +8,7 @@ slug: le-retour
 ---
 À l'intérieur de ce palais lugubre, une tempête éclata à la voix du garçon. Cette tempête fit tourbillonner le brouillard stellaire autour de la planète et provoqua des grondements tonitruants.
 
-« Maître, moi, Daoïste Water, j'ai combattu aux côtés de votre volonté et j'ai failli mourir de nombreuses fois; je vous ai donc rendu votre dette pour m'avoir sauvé. Le karma entre nous est rompu. Après votre mort, bien que j'aie repris la Secte Divin, celui-ci avait naturellement besoin d'un chef, je n'ai donc pas eu tort de le faire! »
+« Maître, moi, Shui Daozi, j'ai combattu aux côtés de votre volonté et j'ai failli mourir de nombreuses fois; je vous ai donc rendu votre dette pour m'avoir sauvé. Le karma entre nous est rompu. Après votre mort, bien que j'aie repris la Secte Divine, celui-ci avait naturellement besoin d'un chef, je n'ai donc pas eu tort de le faire! »
 
 « Cependant... Êtes-vous vraiment mort?! » L'expression du garçon devint soudainement hideuse alors qu'il levait les yeux vers le vide extérieur.
 
@@ -18,7 +18,7 @@ slug: le-retour
 
 Le visage du garçon aux cheveux blancs devint encore plus féroce, et ses yeux révélèrent une intention meurtrière monstrueuse.
 
-« Si vous vous étiez réincarné, alors ces cultivateurs du Royaume Céleste Antique qui ont sondé votre âme l'auraient su... Mais il y a quelques mois, j'ai ressenti votre aura, il n'y a aucun doute! » En repensant à cette aura, l'esprit du garçon aux cheveux blancs trembla. C'est à cause de ce sentiment qu'il avait paniqué et utilisé tout la Secte Divin pour enquêter frénétiquement. Même après avoir reçu le jade de la Sainte du Vide Brillant, malgré sa cupidité pour l'héritage du Royaume du Vide Brillant, il avait envoyé son disciple à sa place.
+« Si vous vous étiez réincarné, alors ces cultivateurs du Royaume Céleste Antique qui ont sondé votre âme l'auraient su... Mais il y a quelques mois, j'ai ressenti votre aura, il n'y a aucun doute! » En repensant à cette aura, l'esprit du garçon aux cheveux blancs trembla. C'est à cause de ce sentiment qu'il avait paniqué et utilisé tout la Secte Divine pour enquêter frénétiquement. Même après avoir reçu le jade de la Sainte du Vide Brillant, malgré sa cupidité pour l'héritage du Royaume du Vide Brillant, il avait envoyé son disciple à sa place.
 
 Il avait cultivé pendant d'innombrables années, et c'était la première fois qu'il ressentait une telle peur depuis la mort de son maître. Cette peur lui rappelait les instants précédant le trépas de son mentor.
 
@@ -58,13 +58,13 @@ Les deux hommes à l'extérieur du pavillon hochèrent respectueusement la tête
 
 Souriant, Wang Lin se leva et s'adressa au maître de la Secte et au Grand Ancien. Il joignit les mains en disant: « Je vous remercie tous les deux, je vous suis très reconnaissant! »
 
-Le maître de la Secte se leva et sourit. « Le camarade cultivateur Lu est trop courtois. La compétition des huit grandes sectes aura lieu dans cinq jours. J'espère que le camarade cultivateur Lu donnera tout ce qu'il a pour aider la Secte Éternel à remporter la victoire! »
+Le maître de la Secte se leva et sourit. « Le camarade cultivateur Lu est trop courtois. La compétition des sectes de rang 8 aura lieu dans cinq jours. J'espère que le camarade cultivateur Lu donnera tout ce qu'il a pour aider la Secte Éternel à remporter la victoire! »
 
 Le Grand Ancien se leva également et joignit les mains, souriant.
 
-Wang Lin hocha la tête d'un air serein. « Soyez rassurés, je ferai de mon mieux! J'ai quitté la Secte d'Origine depuis cent ans, je ne vous dérangerai donc plus et j'irai rejoindre mes juniors. »
+Wang Lin hocha la tête d'un air serein. « Soyez rassurés, je ferai de mon mieux! J'ai quitté la Secte de l'Origine depuis cent ans, je ne vous dérangerai donc plus et j'irai rejoindre mes juniors. »
 
-Le sourire du maître de la Secte s'élargit encore: « Le frère Lu se soucie également de ses juniors, ce vieil homme ne vous retiendra pas. Sun Dei, raccompagne le camarade cultivateur Lu là où se trouve la Secte d'Origine! »
+Le sourire du maître de la Secte s'élargit encore: « Le frère Lu se soucie également de ses juniors, ce vieil homme ne vous retiendra pas. Sun Dei, raccompagne le camarade cultivateur Lu là où se trouve la Secte de l'Origine! »
 
 L'un des disciples ayant apporté les âmes d'Yin extrême répondit promptement.
 
@@ -84,7 +84,7 @@ Du début à la fin, Wang Lin avait absorbé l'énergie avec une prudence extrê
 
 Dans le pavillon de la Montagne Lu Su, le sourire du maître de la Secte disparut et il déclara: « Cet homme n'est pas ordinaire! Dès son arrivée, il a provoqué un changement dans l'énergie originelle de ce lieu. »
 
-Le Grand Ancien à ses côtés hocha la tête et dit doucement: « C'est exact. Puisqu'il est de la Secte d'Origine et qu'il est également membre de notre Secte Éternel, il vaut mieux ne pas trop le presser. Qu'il accepte de participer à la compétition des huit grandes sectes est une excellente nouvelle pour nous! »
+Le Grand Ancien à ses côtés hocha la tête et dit doucement: « C'est exact. Puisqu'il est de la Secte de l'Origine et qu'il est également membre de notre Secte Éternel, il vaut mieux ne pas trop le presser. Qu'il accepte de participer à la compétition des sectes de rang 8 est une excellente nouvelle pour nous! »
 
 Le maître de la Secte réfléchit un instant avant d'agiter ses manches, transmettant un message par Sens Divin qui résonna sur toute la Montagne Lu Su:
 
@@ -92,9 +92,9 @@ Le maître de la Secte réfléchit un instant avant d'agiter ses manches, transm
 
 Wang Lin fendait l'atmosphère, suivant le disciple de la Secte Éternel alors qu'il quittait cette planète pour retourner vers celle où la formation avait été activée. En chemin, le disciple se montrait extrêmement respectueux. Bien qu'il ouvrait la voie, il restait en réalité à demi-pas derrière Wang Lin, n'osant absolument pas le dépasser.
 
-En pénétrant sur la planète de culture scellée, le disciple sortit immédiatement un jade. Après avoir localisé la Secte d'Origine, il reprit la direction.
+En pénétrant sur la planète de culture scellée, le disciple sortit immédiatement un jade. Après avoir localisé la Secte de l'Origine, il reprit la direction.
 
-Il ne fallut pas longtemps pour que les deux arrivent à la cour de la Secte d'Origine. Le disciple dit respectueusement à Wang Lin: « Aîné, voici l'endroit où séjourne la Secte d'Origine. Si vous n'avez pas d'autres instructions, ce junior prend congé. »
+Il ne fallut pas longtemps pour que les deux arrivent à la cour de la Secte de l'Origine. Le disciple dit respectueusement à Wang Lin: « Senior, voici l'endroit où séjourne la Secte de l'Origine. Si vous n'avez pas d'autres instructions, ce Junior prend congé. »
 
 Wang Lin hocha la tête, et le disciple se retira respectueusement pour s'envoler au loin.
 
@@ -106,7 +106,7 @@ Li Qianmei leva sa main délicate en voyant Wang Lin flotter dans les airs et es
 
 « Tu es revenu... »
 
-Wang Lin atterrit dans la cour, à quelques dizaines de mètres de Li Qianmei. Après une courte hésitation, il murmura doucement: «...Je suis revenu. »
+Wang Lin atterrit dans la cour, à quelques dizaines de pieds de Li Qianmei. Après une courte hésitation, il murmura doucement: «...Je suis revenu. »
 
 La lumière lunaire baignait également Wang Lin et étirait son ombre. Il sembla y avoir un léger chevauchement entre le bord de son ombre et celui de Li Qianmei, avant qu'ils ne se séparent à nouveau.
 

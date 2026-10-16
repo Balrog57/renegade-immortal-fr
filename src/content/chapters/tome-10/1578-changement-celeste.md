@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1578 - Heavenly Change!"
 slug: changement-celeste
 ---
-« Le 18e niveau du Clan des Tatouages ne se situe pas dans les profondeurs de la planète Suzaku, mais dans le Champ de Bataille Extérieur! » Wang Lin s'approcha du mur et y pressa sa main droite. Des craquements résonnèrent tandis que les fissures se rejoignaient et que le mur s'effondrait, révélant une brèche.
+« Le 18e niveau du Clan du Tatouage ne se situe pas dans les profondeurs de la planète Suzaku, mais dans le Champ de Bataille Extérieur! » Wang Lin s'approcha du mur et y pressa sa main droite. Des craquements résonnèrent tandis que les fissures se rejoignaient et que le mur s'effondrait, révélant une brèche.
 
 Wang Lin se tint dans l'ouverture. Devant lui se déployait le Champ de Bataille Extérieur!
 
@@ -32,7 +32,7 @@ Tout en réfléchissant silencieusement, Wang Lin fit un pas en avant. Après pl
 
 Après un long moment, le sens divin de Wang Lin continua de s'étendre à travers le Champ de Bataille Extérieur. Il vit une profusion de cadavres et d'âmes errantes. Toutes ces âmes hurlaient et reculaient de peur. Pourtant, faute de pouvoir s'échapper, elles ne pouvaient que trembler devant son sens divin.
 
-Certains de ces cadavres appartenaient à des cultivateurs, mais la plupart étaient des bêtes étranges. Wang Lin n'avait jamais vu la moitié d'entre elles.
+Certains de ces cadavres appartenaient à des cultivateurs, mais la plupart étaient des bêtes étranges. Wang Lin n'en avait pas vu plus de la moitié.
 
 Son sens divin se propageait de plus en plus, dépassant tous les lieux qu'il avait explorés par le passé, et même toutes les zones que les cultivateurs de la planète Suzaku avaient défrichées. Wang Lin voyait toujours plus de cadavres.
 
@@ -75,7 +75,7 @@ Il rétracta lentement son sens divin jusqu'à ce qu'il soit de nouveau contenu 
 Wang Lin avait découvert trop de choses lors de ce retour sur la planète Suzaku. Ces révélations étaient accablantes et rendaient sa planète natale plus étrangère que jamais.
 
 « Le Papillon Rouge n'est pas mort... »
-« Le 19e niveau du Clan des Tatouages scellait la flèche Li Guang... »
+« Le 19e niveau du Clan du Tatouage scellait la flèche Li Guang... »
 « Le Champ de Bataille Extérieur d'autrefois n'était qu'une zone restreinte, et il existe un monde bien plus vaste au-delà. Il s'avère que tout cela fait partie de la porte... »
 
 Wang Lin s'assit au sommet d'une montagne sur la planète Suzaku. Il faisait face au vent hurlant qui fouettait ses cheveux et ses vêtements, le regard tourmenté.

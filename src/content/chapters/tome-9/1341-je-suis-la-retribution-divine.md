@@ -72,7 +72,7 @@ Dès qu'il sortit ses trésors, tous furent pulvérisés par la foudre du Royaum
 
 Tout cela se produisit en un instant. Tuer ces individus ne demanda aucun effort à Wang Lin!
 
-« De simples cultivateurs Ascendants osent se comparer au Dao Céleste. Ce sera là la cause de la ruine du Clan Tonnerre Dispersé! » Après avoir parlé, Wang Lin se tourna vers le cultivateur Yin Illusoire. Il ne daigna même pas regarder le dernier Ascendant nommé Zhou alors que celui-ci était balayé par le Royaume Ji.
+« De simples cultivateurs Ascendants osent se comparer au Dao Céleste. Ce sera là la cause de la ruine du Clan du Tonnerre Dispersé! » Après avoir parlé, Wang Lin se tourna vers le cultivateur Yin Illusoire. Il ne daigna même pas regarder le dernier Ascendant nommé Zhou alors que celui-ci était balayé par le Royaume Ji.
 
 « À ton tour! » Alors que Wang Lin prononçait ces mots, le Royaume Ji qui venait de tuer trois cultivateurs pivota brusquement et s'engouffra instantanément dans le corps du cultivateur Yin Illusoire. Ses yeux s'obscurcirent et son âme originelle périt. Cependant, son corps resta intact et tomba au sol!
 
@@ -106,7 +106,7 @@ Un vieil homme au stade avancé de l'Âme Naissante fut stupéfait et demanda av
 
 « Si vous le souhaitez, je peux être n'importe qui dans les 7 Millions de Mondes. Si vous le voulez, je le suis. » Le jeune homme chauve sourit et les ignora. Sa main s'étendit vers le cadavre et il l'emporta avec lui en s'enfonçant dans le vide. Ses yeux se posèrent dans la direction où Wang Lin s'était dirigé, brillant d'une lueur étrange.
 
-« Il est différent de ceux qui se prétendent rétribution divine... Peut-être n'est-il pas un esclave du tonnerre... » Le jeune homme songea et disparut du monde. Il se situait au-delà du stade de la Formation de l'Âme, au-delà d'Ascendant; il était au stade de la Purification Nirvana!
+« Il est différent de ceux qui se prétendent rétribution divine... Peut-être n'est-il pas un esclave du tonnerre... » Le jeune homme songea et disparut du monde. Il se situait au-delà du stade de la Formation de l'Âme, au-delà d'Ascendant; il était au stade du Purificateur du Nirvana!
 
 Une telle chose devrait être impossible dans les 7 Millions de Mondes! Cela ne devrait jamais arriver! Si le Clan Tonnerre Dispersé l'apprenait, cela provoquerait une onde de choc monumentale au sein du clan. Même l'ancêtre quitterait sa culture en retraite pour vérifier la situation!
 

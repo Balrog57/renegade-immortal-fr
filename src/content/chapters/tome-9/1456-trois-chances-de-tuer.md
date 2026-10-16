@@ -16,11 +16,11 @@ Trois plateformes avaient également été entraînées par le bras. Il s'agissa
 
 Un éclat de froideur traversa les yeux de Grande Désolation. Puis, il leva la main droite et forma un sceau. Un gaz noir chargé d'un poison extrême se rassembla. Il laissa échapper un reniflement glacial et s'apprêtait à presser la paume géante lorsque Wang Lin prit soudain la parole.
 
-« Aîné, veuillez attendre! »
+« Senior, veuillez attendre! »
 
 Grande Désolation fronça les sourcils. Il lutta pour lever la tête alors que la paume descendait. Wang Lin dit:
 
-« L'Aîné vient de réussir à posséder l'avatar du Maître Dao Miao Yin et ne s'est pas encore complètement adapté au corps. Votre esprit est troublé... Ce bras étrange ne descend pas droit... » Tandis que Wang Lin parlait, des craquements se firent entendre dans son corps et il rétrécit rapidement pour reprendre la taille d'un homme normal.
+« Le Senior vient de réussir à posséder l'avatar du Maître Dao Miao Yin et ne s'est pas encore complètement adapté au corps. Votre esprit est troublé... Ce bras étrange ne descend pas droit... » Tandis que Wang Lin parlait, des craquements se firent entendre dans son corps et il rétrécit rapidement pour reprendre la taille d'un homme normal.
 
 En rétrécissant, il tomba soudainement. Il permit aux cinq doigts de se refermer, provoquant un grondement de tonnerre.
 
@@ -28,7 +28,7 @@ Wang Lin atterrit dans la paume, ses yeux brillant d'une lueur mystérieuse. Il 
 
 Grande Désolation n'était pas un cultivateur ordinaire. Après avoir été réveillé par Wang Lin, il avait remarqué la différence. Ce bras ne descendait pas verticalement; il était incliné sur le côté.
 
-« Si l'Aîné stimulait ce bras étrange, celui-ci refermerait immédiatement sa main. À ce moment-là, je crains qu'il ne nous soit difficile de nous échapper... » Wang Lin recula de quelques pas avec désinvolture. Sa main droite, qui frottait ses sourcils, redescendit tandis qu'il continuait de reculer.
+« Si le Senior stimulait ce bras étrange, celui-ci refermerait immédiatement sa main. À ce moment-là, je crains qu'il ne nous soit difficile de nous échapper... » Wang Lin recula de quelques pas avec désinvolture. Sa main droite, qui frottait ses sourcils, redescendit tandis qu'il continuait de reculer.
 
 « Que veux-tu dire? » Le visage de Grande Désolation se déforma, et les traits hideux de son corps originel commencèrent à apparaître sur l'avatar du Maître Dao Miao Yin.
 

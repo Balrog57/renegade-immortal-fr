@@ -12,7 +12,7 @@ Cependant, cet homme avait fait des apparitions fracassantes à maintes reprises
 
 Bien que le niveau de culture de Cupidité ne fût pas élevé, il était extrêmement rusé. Grâce à ses sorts étranges et ses puissants trésors, il parvenait toujours à se protéger. Même des individus ayant un niveau de culture supérieur au sien peinaient à le capturer.
 
-En particulier, cet homme excellait dans l'art de la fuite et possédait un sort capable d'augmenter sa vitesse par soixante-dix-sept, rendant toute poursuite impossible pour les cultivateurs ordinaires. Cupidité était également extrêmement prudent et n'hésitait jamais à prendre la fuite.
+En particulier, cet homme excellait dans l'art de la fuite et possédait un sort capable d'augmenter sa vitesse par quatre-vingt-dix-sept, rendant toute poursuite impossible pour les cultivateurs ordinaires. Cupidité était également extrêmement prudent et n'hésitait jamais à prendre la fuite.
 
 Par conséquent, il ne faisait que rarement face au danger.
 
@@ -26,25 +26,25 @@ Les deux autres s'enfuirent, gravement blessés!
 
 Cet événement provoqua une onde de choc immense dans la Terre Déchue; c'était tout simplement incroyable. Un cultivateur Purificateur du Nirvana n'avait pas péri sous la poursuite de trois cultivateurs Briseur du Nirvana, et avait même réussi à en tuer un!
 
-Le nom de Cupidité se répandit comme une traînée de poudre sur la Terre Déchue, mais, parallèlement, le clan du défunt cultivateur Briseur du Nirvana était furieux. Bien que ce clan ne possédât pas de Grand Ancien Déchu, il restait très puissant. Afin d'éliminer Cupidité, le clan envoya un cultivateur Fléau des Cieux de premier niveau!
+Le nom de Cupidité se répandit comme une traînée de poudre sur la Terre Déchue, mais, parallèlement, le clan du défunt cultivateur Briseur du Nirvana était furieux. Bien que ce clan ne possédât pas d'Ancien Déchu, il restait très puissant. Afin d'éliminer Cupidité, le clan envoya un cultivateur Fléau Céleste de premier niveau!
 
-Qu'un cultivateur Fléau des Cieux de premier niveau tue un cultivateur Purificateur du Nirvana revenait à un tigre piétinant une fourmi! L'affaire fit grand bruit et, alors que tout le monde était convaincu que Cupidité était condamné, un autre miracle se produisit!
+Qu'un cultivateur Fléau Céleste de premier niveau tue un cultivateur Purificateur du Nirvana revenait à un tigre piétinant une fourmi! L'affaire fit grand bruit et, alors que tout le monde était convaincu que Cupidité était condamné, un autre miracle se produisit!
 
 Cupidité sortit un trésor. De nombreuses rumeurs circulèrent plus tard à son sujet; la plupart affirmaient qu'il s'agissait d'une statue brisée!
 
-À l'instant où la statue apparut, toute la Terre Déchue trembla et les nuages envahirent le domaine stellaire. Des rugissements semblant provenir de l'Antiquité résonnèrent, et le cultivateur Fléau des Cieux de premier niveau mourut instantanément face à ce trésor!
+À l'instant où la statue apparut, toute la Terre Déchue trembla et les nuages envahirent le domaine stellaire. Des rugissements semblant provenir de l'Antiquité résonnèrent, et le cultivateur Fléau Céleste de premier niveau mourut instantanément face à ce trésor!
 
-Cette force destructrice ébranla tous les cultivateurs Fléau des Cieux de la Terre Déchue. Ce pouvoir était suffisant pour anéantir même des cultivateurs Fléau des Cieux de troisième niveau! Même ceux de quatrième niveau auraient dû déployer d'immenses efforts pour rester indemnes!
+Cette force destructrice ébranla tous les cultivateurs Fléau Céleste de la Terre Déchue. Ce pouvoir était suffisant pour anéantir même des cultivateurs Fléau Céleste de troisième niveau! Même ceux de quatrième niveau auraient dû déployer d'immenses efforts pour rester indemnes!
 
 Cependant, nul ne savait si Cupidité possédait des trésors encore plus redoutables. Après tout, il était le maître d'innombrables richesses.
 
-Ce trésor dépassait déjà l'imagination de tous. Mais pouvait-il exister un objet capable d'exterminer instantanément des cultivateurs Briseur du Nirvana et Fléau des Cieux?
+Ce trésor dépassait déjà l'imagination de tous. Mais pouvait-il exister un objet capable d'exterminer instantanément des cultivateurs Briseur du Nirvana et Fléau Céleste?
 
 Après cette bataille, la renommée de Cupidité devint immense. La rumeur disait que le Grand Empereur s'était intéressé à lui et l'avait recherché. Cupidité saisit cette occasion pour lui offrir un trésor, et en retour, le Grand Empereur lui remit une pilule pour favoriser sa culture.
 
-Quelques années plus tard, lorsque Cupidité réapparut, il se trouvait au stade intermédiaire de Briseur du Nirvana! Sa présence attira l'attention de nombreux cultivateurs de quatrième niveau Fléau des Cieux.
+Quelques années plus tard, lorsque Cupidité réapparut, il se trouvait au stade intermédiaire de Briseur du Nirvana! Sa présence attira l'attention de nombreux cultivateurs de quatrième niveau Fléau Céleste.
 
-En secret, un cultivateur Fléau des Cieux de quatrième niveau convoita le trésor de Cupidité et tenta de l'attaquer par surprise. Mais il finit gravement blessé et fut contraint de battre en retraite. Désormais, plus personne n'osait comploter contre lui!
+En secret, un cultivateur Fléau Céleste de quatrième niveau convoita le trésor de Cupidité et tenta de l'attaquer par surprise. Mais il finit gravement blessé et fut contraint de battre en retraite. Désormais, plus personne n'osait comploter contre lui!
 
 Les rumeurs sur la richesse inépuisable de Cupidité continuèrent de circuler.
 
@@ -82,7 +82,7 @@ Avec le temps, cette sensation s'était muée en une peur profonde. Bien que son
 
 Il n'en connaissait pas la raison lui-même, mais chaque fois qu'il pensait à Wang Lin, son esprit tremblait.
 
-« Mon ennemi de toujours! Sur la planète Suzaku, la Perle Bravant le Ciel que je convoitais lui a été prise... Dans la Terre de l'Esprit Démoniaque, mon niveau de culture était clairement supérieur, et pourtant il a fini par dévorer mon ancien dragon de tonnerre... Mon dragon de tonnerre! Il m'accompagnait depuis mon enfance; si je l'avais encore, j'aurais pu fusionner avec lui pour devenir un cultivateur du tonnerre! »
+« Mon ennemi de toujours! Sur la planète Suzaku, la Perle Défiant le Ciel que je convoitais lui a été prise... Dans la Terre de l'Esprit Démoniaque, mon niveau de culture était clairement supérieur, et pourtant il a fini par dévorer mon ancien dragon de tonnerre... Mon dragon de tonnerre! Il m'accompagnait depuis mon enfance; si je l'avais encore, j'aurais pu fusionner avec lui pour devenir un cultivateur du tonnerre! »
 
 « Ensuite, j'ai été contraint par l'Omniscient et les autres de me rendre à Luotian pour traquer Wang Lin. Puis, après avoir souffert aux mains du Serpent aux yeux de lune, j'ai croisé Wang Lin! Il m'a pris mon fourneau, ma Peinture Montagne et Rivière, tout ce que je possédais! »
 

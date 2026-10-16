@@ -46,7 +46,7 @@ Le jeune homme vacilla légèrement et fit un demi-pas en arrière. Il fixa Wang
 
 En observant Yun Yifeng, la froideur dans les yeux de Wang Lin s'intensifia. Il manquait l'âme d'un puissant cultivateur, et cet homme était venu seul. Cela ferait gagner du temps à Wang Lin, mais le niveau de culture de cet homme n'était pas si élevé. Wang Lin sentait que sa seule âme ne suffirait pas.
 
-Autrefois, sur la Planète des Cinq Éléments, il avait égalé la force de Wang Lin, mais ce dernier venait tout juste de briser la formation et était blessé. De plus, le sort de Déchirement du Ciel n'était pas encore complet. Désormais, Wang Lin était au sommet de sa culture, et son sort de Déchirement du Ciel était capable de briser les cieux.
+Autrefois, sur la Planète des Cinq Éléments, il avait égalé la force de Wang Lin, mais ce dernier venait tout juste de briser la formation et était blessé. De plus, le sort de Déchirure du Ciel n'était pas encore complet. Désormais, Wang Lin était au sommet de sa culture, et son sort de Déchirure du Ciel était capable de briser les cieux.
 
 Wang Lin ne considérait pas Yun Yifeng comme une menace. Cependant, si cet homme respectait sa promesse après sa défaite, Wang Lin en serait touché.
 
@@ -112,7 +112,7 @@ Tandis que les grondements éclataient, le ciel au loin se déforma et une silho
 
 Un soleil surgit devant la silhouette floue, dégageant une lumière solaire infinie qui entra en collision avec l'épée de sang. Un fracas tonitruant retentit alors que la silhouette floue était forcée de reculer, révélant enfin le Souverain!
 
-À son apparition, Yun Yifeng serra les dents et avala quelques pilules. Il chargea et utilisa la Coupe de l'Âme aux Huit Lames. Huit lames illusoires apparurent et se lièrent pour foncer vers le Souverain!
+À son apparition, Yun Yifeng serra les dents et avala quelques pilules. Il chargea et utilisa Huit Lames Coupent l'Âme. Huit lames illusoires apparurent et se lièrent pour foncer vers le Souverain!
 
 Tang Shan ne resta pas en retrait non plus. Elle n'hésita pas à former un sceau d'un geste de la main. Sept portes dorées apparurent devant Yun Yifeng, et sept autres apparurent également devant Wang Lin!
 
@@ -120,4 +120,4 @@ Tang Shan ne resta pas en retrait non plus. Elle n'hésita pas à former un scea
 
 La plupart des sorts étaient orientés vers l'attaque, et même les sorts de protection ne pouvaient généralement être utilisés que sur soi-même. Ceux capables d'agir sur autrui étaient extrêmement rares. C'était la première fois que Wang Lin voyait un tel sort capable de protéger quelqu'un d'autre!
 
-La Secte des Portes Célestes auquel appartenait Tang Shan n'était qu'une petite secte et ne faisait pas partie des treize grands secteurs, mais il restait célèbre. La raison en était simple: la plupart de leurs sorts étaient des techniques de protection conçues pour protéger les autres!
+La Secte des Portes Célestes à laquelle appartenait Tang Shan n'était qu'une petite secte et ne faisait pas partie des treize grandes sectes, mais il restait célèbre. La raison en était simple: la plupart de leurs sorts étaient des techniques de protection conçues pour protéger les autres!

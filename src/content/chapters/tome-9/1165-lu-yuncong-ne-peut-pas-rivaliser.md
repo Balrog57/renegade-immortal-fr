@@ -50,11 +50,11 @@ En chemin, Lu Yuncong et Li Qianmei discutèrent tranquillement, échangeant leu
 
 Le vieil homme restait à quelques pas derrière. Son regard se posait occasionnellement sur eux. On lisait une certaine étrangeté dans ses yeux, mais aussi une pointe de joie.
 
-« Après la mort de l'épouse du Maître de la Secte, celui-ci n'a plus jamais eu de partenaire de Dao. Bien que cette Li Qianmei de la secte de rang 9 vienne à peine de rencontrer le Maître de la Secte, elle semble s'entendre à merveille avec lui. Si les deux parviennent à former un couple de Dao, avec la sagesse du Maître de la Secte, son avenir sera sans limites... Alors ma Secte du Dao Pourpre pourra ébranler la Mer Nuageuse! »
+« Après la mort de l'épouse du Maître de la Secte, celui-ci n'a plus jamais eu de partenaire de Dao. Bien que cette Li Qianmei de la secte de rang 9 vienne à peine de rencontrer le Maître de la Secte, elle semble s'entendre à merveille avec lui. Si les deux parviennent à former un couple de Dao, avec la sagesse du Maître de la Secte, son avenir sera sans limites... Alors ma Secte du Dao Pourpre pourra ébranler la Mer des Nuages! »
 
 Depuis qu'elle avait quitté la Secte Brise-Ciel, Li Qianmei n'avait que rarement eu des conversations de ce genre. Personne d'autre n'était qualifié pour discuter avec elle, à l'exception de Lu Yuncong.
 
-« Pas étonnant que même le Maître ait loué cet homme comme le meilleur cultivateur de la région de rang 5. Même la Secte Divin lui prête attention... C'est véritablement un homme rare et singulier. Il est exceptionnel pour quelqu'un de son âge d'avoir une compréhension aussi profonde du Dao. Bien que mon niveau de culture soit supérieur, je suis inférieure à lui en ce sens. »
+« Pas étonnant que même le Maître ait loué cet homme comme le meilleur cultivateur de la région de rang 5. Même la Secte Divine lui prête attention... C'est véritablement un homme rare et singulier. Il est exceptionnel pour quelqu'un de son âge d'avoir une compréhension aussi profonde du Dao. Bien que mon niveau de culture soit supérieur, je suis inférieure à lui en ce sens. »
 
 « Hélas... Même un tel homme a été stoppé par la deuxième question. » Li Qianmei soupira intérieurement.
 
@@ -84,13 +84,13 @@ Li Qianmei hocha la tête et les deux s'envolèrent vers le continent de Mo Luo.
 
 Continent de Mo Luo.
 
-Wang Lin avait expérimenté la puissance des pilules de la Mer Nuageuse. Après avoir testé ces pilules et compris leur fonctionnement à travers les âmes de bêtes qu'elles contenaient, Wang Lin en avait saisi l'essence.
+Wang Lin avait expérimenté la puissance des pilules de la Mer des Nuages. Après avoir testé ces pilules et compris leur fonctionnement à travers les âmes de bêtes qu'elles contenaient, Wang Lin en avait saisi l'essence.
 
 Emprunter l'âme d'une bête pour comprendre les cieux, puis fusionner cette compréhension avec son propre domaine.
 
 Assis dans sa cour, Wang Lin avait refusé la visite de Lu Yanfei et de sa compagnie. Il tenait une pilule de rang 8 dans sa main et commença à méditer.
 
-« Il y a un défaut dans les pilules de la Mer Nuageuse. La compréhension recueillie via les âmes de bêtes est très chaotique et difficile à assimiler. Si l'on veut en extraire une compréhension précise, il faut consommer des pilules de manière continue pour réussir. »
+« Il y a un défaut dans les pilules de la Mer des Nuages. La compréhension recueillie via les âmes de bêtes est très chaotique et difficile à assimiler. Si l'on veut en extraire une compréhension précise, il faut consommer des pilules de manière continue pour réussir. »
 
 Après réflexion, alors que Wang Lin contemplait la pilule dans sa main, il remarqua soudainement quelque chose. Il leva les yeux vers le lointain.
 

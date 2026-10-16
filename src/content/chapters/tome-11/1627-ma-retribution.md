@@ -84,7 +84,7 @@ En un clin d'œil, la zone occupée par Wang Lin devint un véritable champ de m
 
 Dix Mille Éclairs de Rétribution pour punir la rétribution divine!
 
-Des dizaines de milliers de relances rouges s'élancèrent vers le vortex. En un instant, ces éclairs percutèrent le cœur du tourbillon!
+Des dizaines de milliers d'éclairs rouges s'élancèrent vers le vortex. En un instant, ces éclairs percutèrent le cœur du tourbillon!
 
 Un fracas capable de briser les cieux résonna alors que la rétribution de Wang Lin bombardait le vortex, le rendant si ténu qu'il semblait prêt à s'évaporer. Finalement, le vortex céleste se désintégra et disparut.
 

@@ -36,7 +36,7 @@ Le clapotis de la pluie résonna à travers le monde et se mêla à la flûte de
 
 Xuan Luo ouvrit les yeux à cet instant. Il regarda Wang Lin et prit une profonde inspiration. Avec son niveau de culture et son statut, il n'aurait normalement montré aucun trouble. Pourtant, les quatre chants que Wang Lin avait déclenchés provoquèrent une onde de choc émotionnelle en lui.
 
-Le regard de Xuan Luo dépassa Wang Lin pour se porter sur la tour, tandis qu'il pensait silencieusement: « Grand Empyréen Gu Dao... Vous n'avez pas approuvé son existence, mais je me demande ce que vous pensez désormais... Ou si mon disciple, celui qui possède le sang ancestral, Wang Lin, reconnaîtra votre présence! »
+Le regard de Xuan Luo dépassa Wang Lin pour se porter sur la tour, tandis qu'il pensait silencieusement: « Grand Empyréen Gu Dao... Vous n'avez pas approuvé son existence, mais je me demande ce que vous pensez désormais... Ou si mon disciple, celui qui possède le sang de l'âme, Wang Lin, reconnaîtra votre présence! »
 
 Le sommet de la tour demeurait silencieux et, après avoir soupiré, la silhouette avait refermé les yeux. Il semblait immergé dans la chanson, son visage trahissant une pointe de mélancolie et de nostalgie.
 
@@ -48,7 +48,7 @@ Dès l'apparition de ce chant, la légère fusion des puissances célestes et an
 
 Cependant, le processus était très lent, et nul ne savait combien de temps il faudrait pour achever un cycle complet. Wang Lin ne s'en inquiétait pas. Grâce aux cinq chants, il ressentait une plénitude absolue à l'intérieur comme à l'extérieur de son corps, comme s'il possédait une puissance infinie.
 
-Le sang ancestral au sein du corps de Wang Lin montra des signes de dissolution. C'était ce même sang que Xuan Luo avait demandé au Grand Empyréen Gu Dao d'éveiller, mais qui lui avait été refusé.
+Le sang de l'âme au sein du corps de Wang Lin montra des signes de dissolution. C'était ce même sang que Xuan Luo avait demandé au Grand Empyréen Gu Dao d'éveiller, mais qui lui avait été refusé.
 
 Wang Lin avança silencieusement, franchissant les marches une à une. Lorsque son pied se posa sur la 270e marche, toutes les essences de son corps fondirent soudainement!
 

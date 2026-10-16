@@ -18,7 +18,7 @@ Alors que les deux s'enfonçaient dans leurs pensées, une silhouette apparut si
 
 « Yang Xiong, Zhou Zihong, comment allez-vous tous les deux! » Une voix mélancolique résonna dans le hall. L'homme et la femme furent surpris et tournèrent immédiatement le regard.
 
-Wang Lin observa ces deux figures familières qui n'avaient absolument pas changé. Cela était dû au liquide spirituel qu'il leur avait donné sur le Champ de Bataille Étranger.
+Wang Lin observa ces deux figures familières qui n'avaient absolument pas changé. Cela était dû au liquide spirituel qu'il leur avait donné sur le Champ de Bataille Extérieur.
 
 « Wang Lin! »
 
@@ -40,7 +40,7 @@ Ce jour-là, alors qu'il cultivait, il ouvrit soudainement les yeux et son corps
 
 « Ceng Niu! » Chi Hu afficha une expression amère en regardant Wang Lin et resta incapable de prononcer un mot pendant un long moment.
 
-« Ne mentionne plus les choses du passé. » En parlant, Wang Lin frappa son sac de rangement; une grande quantité de jades célestes s'en échappa, formant une petite colline. Simultanément, il sortit une petite fiole contenant le sang de Lei Jia.
+« Ne mentionne plus les choses du passé. » En parlant, Wang Lin frappa son sac de rangement; une grande quantité de jades célestes s'en échappa, formant une petite colline. Simultanément, il sortit une petite fiole contenant le sang de Lei Ji.
 
 « Les jades célestes sont là pour t'aider à atteindre le stade d'Ascendant. La petite fiole contient le sang de l'ancêtre de ton Clan des Démons Géants; cela renforcera tes capacités de lignée! Adieu, Chi Hu! »
 
@@ -88,7 +88,7 @@ Wang Lin ne dit rien et resta silencieusement en retrait.
 
 Le temps sembla s'étirer à l'infini. Toutes sortes de pensées submergeaient l'esprit de Li Qiqing alors qu'il restait assis près du cercueil, contemplant sa petite sœur.
 
-Soudain, un rugissement retentit au loin, accompagné de trois rayons d'énergie d'épée. L'énergie de tête était rouge et un vieil homme se tenait au sommet. Cette personne était au stade avancé de la Transformation de l'Âme. Son visage exhalait l'arrogance tandis que les deux hommes d'âge mûr derrière lui le regardaient avec respect.
+Soudain, un rugissement retentit au loin, accompagné de trois rayons d'énergie d'épée. L'énergie d'épée en tête était rouge et un vieil homme se tenait au sommet. Cette personne était au stade avancé de la Transformation de l'Âme. Son visage exhalait l'arrogance tandis que les deux hommes d'âge mûr derrière lui le regardaient avec respect.
 
 « Li Qiqing, je veux voir jusqu'où tu peux fuir maintenant! » ricana le vieil homme en se rapprochant. Il aperçut immédiatement Li Qiqing et le cercueil contenant Li Muwan. À leurs côtés, il vit également Wang Lin.
 

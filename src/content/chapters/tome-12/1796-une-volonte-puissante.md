@@ -28,11 +28,11 @@ C'est ainsi qu'il fut nommé le Taureau Céleste.
 
 Ce continent était reculé, loin de la Capitale Impériale située sur le Continent Ming Céleste. Depuis fort longtemps, il était considéré comme un continent périphérique. Il se trouvait dans la partie orientale du Continent Astral Immortel et, avec les huit autres continents, formait le Continent de l'Est!
 
-Le Continent de l'Est comptait neuf sectes et treize factions, la Secte du Soleil Pourpre en étant la meneuse. La Secte Dong Lin était la plus mystérieuse. En outre, la Secte Gui Yi, la Grande Secte de l'Âme et d'autres encore composaient les vingt et une sectes les plus célèbres du Continent de l'Est.
+Le Continent de l'Est comptait neuf sectes et treize factions, la Secte du Soleil Pourpre en étant la meneuse. La Secte Dong Lin était la plus mystérieuse. En outre, la Secte Gui Yi, la Secte de la Grande Âme et d'autres encore composaient les vingt et une sectes les plus célèbres du Continent de l'Est.
 
 Outre ces neuf sectes et treize factions, il existait des sectes plus modestes, mais elles ne pouvaient rivaliser avec les géants que représentaient ces vingt et une sectes. Sans parler de la rumeur selon laquelle la Secte du Soleil Pourpre abritait l'un des neuf soleils.
 
-Le Continent du Taureau Céleste était sous l'influence de la Grande Secte de l'Âme et de la Secte Gui Yi. La Secte des Sept Dao avait été fondée dans un recoin isolé du secteur du Taureau Céleste.
+Le Continent du Taureau Céleste était sous l'influence de la Secte de la Grande Âme et de la Secte Gui Yi. La Secte des Sept Dao avait été fondée dans un recoin isolé du secteur du Taureau Céleste.
 
 Là se trouvait une chaîne de montagnes noires recouverte de forêts. Un voile de brume enveloppait les monts, où les bêtes se faisaient rares.
 

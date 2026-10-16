@@ -82,7 +82,7 @@ Dès l'apparition du vieil homme, la stupeur saisit les cultivateurs à l'extér
 
 Même les deux gardiens en rouge devinrent respectueux. Ils s'inclinèrent et dirent: « Ce junior salue le Senior Zhou Tian. Le Senior est certainement venu viser une place dans le top 10 du Classement du Tonnerre Dispersé. »
 
-Le vieil homme rit en joignant les mains. « Je ne peux pas atteindre le top 10, mais je me contenterai avec plaisir du top 30. » Sur ces mots, il lança deux pilules dans les mains des gardiens avant de pénétrer dans le passage. Tandis qu'il avançait, la foule s'écartait sur son passage. Les deux gardiens, ravies par les pilules reçues, saluèrent respectueusement l'homme de dos.
+Le vieil homme rit en joignant les mains. « Je ne peux pas atteindre le top 10, mais je me contenterai avec plaisir du top 30. » Sur ces mots, il lança deux pilules dans les mains des gardiens avant de pénétrer dans le passage. Tandis qu'il avançait, la foule s'écartait sur son passage. Les deux gardiens, ravis par les pilules reçues, saluèrent respectueusement l'homme de dos.
 
 Sans trahir ses pensées, Wang Lin observa le vieil homme s'éloigner. Une fois celui-ci passé, les murmures reprirent:
 

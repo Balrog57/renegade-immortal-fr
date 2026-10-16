@@ -46,7 +46,7 @@ Ce n'était pas le cri d'un seul serpent, mais les rugissements de centaines de 
 
 Des doigts d'ancien dieu apparurent un à un jusqu'à ce que la zone en soit saturée. Tous les pores de Wang Lin s'ouvrirent et l'extase illumina ses yeux alors qu'il absorbait cette aura avec frénésie.
 
-Il pouvait clairement sentir la force de son corps d'ancien dieu croître par bonds prodigieux. L'étoile illusoire située entre ses sourcils devenait plus concrète à cet instant même.
+Il pouvait clairement sentir la force de son corps d'ancien dieu croître par bonds prodigieux. La quatrième étoile illusoire située entre ses sourcils devenait plus concrète à cet instant même.
 
 Tout cela plongea Wang Lin dans l'allégresse.
 
@@ -54,7 +54,7 @@ Tout cela plongea Wang Lin dans l'allégresse.
 
 D'innombrables doigts d'ancien dieu se formèrent dans la zone et, en un clin d'œil, un doigt presque tangible apparut sous les yeux des cultivateurs environnants!
 
-Les étranges fissures sur le doigt étaient extrêmement nettes. Cette scène fit même changer l'expression de l'Estimé Xuan Nao, dont le visage devint sombre.
+Les étranges fissures sur le doigt étaient extrêmement nettes. Cette scène fit même changer l'expression de l'Estimé Xuan Bao, dont le visage devint sombre.
 
 « Ce Serpent aux yeux de lune diffère légèrement de ce que racontent les anciens registres! Cependant, je possède la Flèche du Pseudo-Nirvana Vide; peu importe sa puissance, il ne pourra échapper à cette flèche! » L'Estimé Xuan Bao était extrêmement confiant en la force de son arme.
 
@@ -134,4 +134,4 @@ Le Maître Yan Leizi ricana en observant la scène:
 
 La colère du Serpent aux yeux de lune atteignit son apogée; il utilisa la puissance de l'étoile brisée pour expulser la flèche. Sous l'effet d'une douleur atroce, il avait presque perdu la raison. Ses yeux étaient rouges, et sa seule pensée était: tuer, tuer, tuer, tuer!
 
-ROAR!!!
+RUGISSEMENT!!!

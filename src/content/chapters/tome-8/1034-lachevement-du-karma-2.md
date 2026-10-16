@@ -38,7 +38,7 @@ Les éclats de glace qui convergeaient fondirent immédiatement, se transformant
 
 Les pupilles du démon des vents se rétractèrent et elle prit une inspiration saccadée. Elle avait déjà considéré Wang Lin comme très puissant, mais elle s'était trompée. Cet homme n'était pas seulement terrifiant, il était un véritable cauchemar!
 
-Même à l'apogée de sa puissance, elle n'aurait pas osé prétendre à la victoire, et encore moins maintenant qu'elle n'était qu'au stade avancé de la Transformation de l'Âme.
+Même à l'apogée de sa puissance, elle n'aurait pas osé prétendre à la victoire, et encore moins maintenant qu'elle n'était qu'au stade avancé de Scruteur du Nirvana.
 
 « L'affaire de Yao Xixue est l'obstacle qui m'empêche d'achever mon domaine de karma. Après des centaines d'années, je me suis inconsciemment laissé absorber par lui, au point d'en faire partie. Ce n'est qu'en m'y intégrant totalement que je pourrai véritablement comprendre le karma. Tout comme j'ai dû entrer en enfer pour en comprendre les désirs. »
 
@@ -78,13 +78,13 @@ Sa masse colossale pouvait occulter le ciel!
 
 Alors qu'un rugissement capable de fracturer le monde résonnait, Wang Lin ne fit qu'un seul pas, sentant la résistance du vent comme s'il percutait des murs.
 
-Mais ces obstacles semblables à des remparts s'effondrèrent tous devant le corps divin antique de Wang Lin. La puissance contenue dans ce simple pas était indescriptible; il semblait avoir déchiré l'espace pour avancer à une vitesse comparable à la Distorsion Spatiale.
+Mais ces obstacles semblables à des remparts s'effondrèrent tous devant le corps divin antique de Wang Lin. La puissance contenue dans ce simple pas était indescriptible; il semblait avoir déchiré l'espace pour avancer à une vitesse comparable à la Déformation Spatiale.
 
 Le démon des vents avait utilisé toute sa culture pour s'enfuir frénétiquement. Afin d'empêcher Wang Lin de la rattraper avec ce pouvoir étrange, elle ne se soucia pas d'épuiser son énergie démoniaque et en projeta une quantité massive autour d'elle pour se protéger.
 
 Cette énergie fit apparaître l'ombre d'un immense démon antique derrière elle.
 
-Le démon des vents était très confiante en sa vitesse. Mais alors qu'elle pensait avoir réussi à s'échapper, un grondement tonnerre retentit dans son dos.
+Le démon des vents était très confiante en sa vitesse. Mais alors qu'elle pensait avoir réussi à s'échapper, un grondement de tonnerre retentit dans son dos.
 
 En se retournant, elle perdit la raison. Wang Lin approchait à une vitesse inimaginable. Le vortex qui l'accompagnait le suivait de près, progressant avec une célérité choquante et provoquant un rugissement apocalyptique. C'était comme si l'océan tout entier était en pleine ébullition!
 

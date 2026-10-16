@@ -64,19 +64,19 @@ Ce rugissement déchira la région ouest et ébranla violemment les cultivateurs
 
 Un sentiment extrême de violence émana du tunnel. Une planète de culture gigantesque apparut dans le conduit entre les deux systèmes, entourée d'une brume blanche et d'une apparence fort étrange.
 
-Dès qu'elle apparut, la brume autour de la planète se retira rapidement jusqu'à disparaître totalement, puis une fissure fendit l'astre en son centre. La planète s'ouvrit et d'innombrables tentacules s'en déployèrent. C'était le Serpent Regardant la Lune!
+Dès qu'elle apparut, la brume autour de la planète se retira rapidement jusqu'à disparaître totalement, puis une fissure fendit l'astre en son centre. La planète s'ouvrit et d'innombrables tentacules s'en déployèrent. C'était le Serpent aux yeux de lune!
 
-Les yeux du Serpent Regardant la Lune étaient injectés de sang et empreints d'une colère infinie, suffisante pour le rendre fou. Ses tentacules s'agitaient frénétiquement alors qu'il chargeait.
+Les yeux du Serpent aux yeux de lune étaient injectés de sang et empreints d'une colère infinie, suffisante pour le rendre fou. Ses tentacules s'agitaient frénétiquement alors qu'il chargeait.
 
 Roar!
 
-La gueule du Serpent Regardant la Lune s'ouvrit et, avec son rugissement, une onde de choc dévastatrice fut projetée. Ce cri se mua en tempête et fonça droit devant. En un instant, les fissures spatiales furent repoussées comme de simples lambeaux de papier!
+La gueule du Serpent aux yeux de lune s'ouvrit et, avec son rugissement, une onde de choc dévastatrice fut projetée. Ce cri se mua en tempête et fonça droit devant. En un instant, les fissures spatiales furent repoussées comme de simples lambeaux de papier!
 
 Cependant, alors que le rugissement approchait du bois géant, une barrière de lumière jaune apparut. Elle ressemblait à une coquille d'œuf qui permettait au rugissement de glisser sur les côtés sans aucune résistance.
 
-Le rugissement furieux du Serpent Regardant la Lune était si intense qu'il provoqua l'effondrement de l'espace lui-même. L'espace devant le bois géant se tordit et un vieil homme vêtu de blanc fut expulsé dans un état quelque peu pitoyable.
+Le rugissement furieux du Serpent aux yeux de lune était si intense qu'il provoqua l'effondrement de l'espace lui-même. L'espace devant le bois géant se tordit et un vieil homme vêtu de blanc fut expulsé dans un état quelque peu pitoyable.
 
-Son visage était extrêmement sombre et son regard semblait pouvoir percer les cieux. Lorsqu'il vit le gigantesque Serpent Regardant la Lune surgir du tunnel, il recula sans l'ombre d'une hésitation, mais à ce moment précis, le bois géant arriva.
+Son visage était extrêmement sombre et son regard semblait pouvoir percer les cieux. Lorsqu'il vit le gigantesque Serpent aux yeux de lune surgir du tunnel, il recula sans l'ombre d'une hésitation, mais à ce moment précis, le bois géant arriva.
 
 Le vieil homme était l'un des quatre saints: le Saint de l'Origine du Dao Céleste. Il poussa un soupir, secoua la tête et battit en retraite encore plus vite.
 
@@ -88,11 +88,11 @@ Cette grande bataille commença dans les régions ouest et septentrionale avant 
 
 Des ondes de sorts se propagèrent, affectant d'innombrables zones!
 
-Au milieu de ce massacre intense, la moindre imprudence de la part d'un cultivateur de l'Alliance ou de Luotian signifiait une mort immédiate. Le Serpent Regardant la Lune, enragé, semblait capable de distinguer les deux camps. Il épargnait rarement les cultivateurs de Luotian, mais massacrait sans relâche ceux de l'Alliance.
+Au milieu de ce massacre intense, la moindre imprudence de la part d'un cultivateur de l'Alliance ou de Luotian signifiait une mort immédiate. Le Serpent aux yeux de lune, enragé, semblait capable de distinguer les deux camps. Il épargnait rarement les cultivateurs de Luotian, mais massacrait sans relâche ceux de l'Alliance.
 
 De ce fait, les cultivateurs de l'Alliance étaient immédiatement désavantagés!
 
-À cet instant, Wang Lin se trouvait dans la région ouest. Le corps de Lei Jia, bien plus petit — seulement trente pieds de haut —, ouvrait la voie. Le garçon à la grosse tête le suivait. Quant à Ta Shan, il conservait son expression froide tout en observant les environs.
+À cet instant, Wang Lin se trouvait dans la région ouest. Le corps de Lei Ji, bien plus petit — seulement trente pieds de haut —, ouvrait la voie. Le garçon à la grosse tête le suivait. Quant à Ta Shan, il conservait son expression froide tout en observant les environs.
 
 Le regard de Wang Lin était calme. En chemin, il avait croisé plusieurs cultivateurs de l'Alliance. Chaque fois qu'ils apercevaient Wang Lin, leurs visages se décomposaient face aux niveaux de culture du groupe. Ils faisaient demi-tour et fuyaient sans hésiter.
 
@@ -100,11 +100,11 @@ Cependant, certains pensaient être assez forts ou s'appuyer sur leur nombre. Ap
 
 L'odeur du sang imprégnait leur progression dans la région ouest. Plus il avançait, plus il rencontrait de cultivateurs de l'Alliance, mais peu étaient disposés à l'affronter.
 
-Le corps de Wang Lin ne dégageait aucune intention meurtrière. Pourtant, que ce soit Lei Jia, le garçon à la grosse tête ou Ta Shan, les trois étaient imprégnés d'une volonté de tuer. Ils chargeaient en avant comme des épées tranchantes ouvrant la voie.
+Le corps de Wang Lin ne dégageait aucune intention meurtrière. Pourtant, que ce soit Lei Ji, le garçon à la grosse tête ou Ta Shan, les trois étaient imprégnés d'une volonté de tuer. Ils chargeaient en avant comme des épées tranchantes ouvrant la voie.
 
 Tout en progressant, Wang Lin observait les alentours. Le paysage familier s'était effondré et les fissures spatiales sifflaient autour de lui. Tout cela témoignait du fait que la région ouest était désormais totalement désertée. Cependant, ces fissures devant Wang Lin étaient écartées par une force mystérieuse.
 
-Si un vieux monstre du deuxième stade, se trouvant au niveau de la Purification du Nirvana, voyait cela, il en serait stupéfait. C'était le signe qu'il commençait à contrôler la Loi. Bien que les cultivateurs de l'Observation du Nirvana comprenaient la Loi, comprendre et contrôler étaient deux choses bien distinctes. Le contrôle de la Loi était un privilège réservé aux cultivateurs de la Purification du Nirvana. Wang Lin n'avait pas encore atteint ce stade, mais avec l'aide de la perle défiant le ciel, il possédait une infime aura similaire à celle d'un cultivateur de la Purification du Nirvana, bien que celle-ci fût très ténue.
+Si un vieux monstre du deuxième stade, se trouvant au niveau du Purificateur du Nirvana, voyait cela, il en serait stupéfait. C'était le signe qu'il commençait à contrôler la Loi. Bien que les cultivateurs du Scruteur du Nirvana comprenaient la Loi, comprendre et contrôler étaient deux choses bien distinctes. Le contrôle de la Loi était un privilège réservé aux cultivateurs Purificateurs du Nirvana. Wang Lin n'avait pas encore atteint ce stade, mais avec l'aide de la perle défiant le ciel, il possédait une infime aura similaire à celle d'un cultivateur Purificateur du Nirvana, bien que celle-ci fût très ténue.
 
 À cet instant précis, une belle femme vêtue de pourpre fuyait parmi les étoiles avec un sourire amer. Sa lumière d'épée faiblissait, comme si elle allait s'éteindre à tout moment. Derrière elle, un groupe de cultivateurs de l'Alliance la poursuivait. Parmi eux, un homme d'âge mûr arborait un sourire narquois et la rattrapait rapidement.
 

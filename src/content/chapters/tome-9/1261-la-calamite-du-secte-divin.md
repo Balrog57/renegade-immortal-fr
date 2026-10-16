@@ -26,7 +26,7 @@ C'était également l'aura d'un Ancien Dieu Royal!
 
 Cette aura existait depuis une durée inimaginable; elle était même plus ancienne que Tu Si! Ce qui choqua Wang Lin, c'est que cette aura s'était affaiblie au fil des millénaires. S'il n'avait pas été aussi proche qu'il l'était maintenant, il ne l'aurait jamais remarquée.
 
-C'était la vérité. Tuo Sen était également venu dans la Mer de Nuages, mais il ne l'avait pas perçue.
+C'était la vérité. Tuo Sen était également venu dans la Mer des Nuages, mais il ne l'avait pas perçue.
 
 Lorsque les pieds de Wang Lin touchèrent le sol de la montagne, il eut l'impression que celle-ci tremblait. C'était comme si une âme s'éveillait lentement en raison de sa présence.
 
@@ -44,13 +44,13 @@ Heureusement, le maître de la secte et l'Ancien ne s'en soucièrent guère. Apr
 
 Une fois assis, des disciples de la Secte Éternelle apportèrent le thé avant de se retirer respectueusement.
 
-Le maître de la Secte Éternelle réfléchit un instant et dit: « Ma Secte Éternelle possède effectivement quelques-unes des âmes Yin extrêmes dont parle le camarade cultivateur Lu. Cependant, la plupart d'entre elles sont dispersées et cultivées par nos sectes affiliées. Elles n'appartiennent même pas à ma Secte Éternelle; elles nous ont été confiées par la Secte Divin. Ils ne nous les ont données que pour que nous les cultivions en leur nom. »
+Le maître de la Secte Éternelle réfléchit un instant et dit: « Ma Secte Éternelle possède effectivement quelques-unes des âmes Yin extrêmes dont parle le camarade cultivateur Lu. Cependant, la plupart d'entre elles sont dispersées et cultivées par nos sectes affiliées. Elles n'appartiennent même pas à ma Secte Éternelle; elles nous ont été confiées par la Secte Divine. Ils ne nous les ont données que pour que nous les cultivions en leur nom. »
 
 Wang Lin prit une gorgée de thé tout en dissimulant son trouble. Il sentait que plus il resterait ici, mieux ce serait pour lui, mais il craignait aussi que s'il prolongeait son séjour, quelqu'un ne finisse par remarquer quelque chose.
 
 Il sentait clairement l'aura qui s'éveillait lentement devenir de plus en plus intense, telle une eau bouillante. Il craignait qu'il ne faille pas longtemps avant que d'autres ne s'en aperçoivent!
 
-En particulier, un expert au stade de la Flétrissure Céleste posséderait une perception du monde encore plus aiguisée. Si l'aura de la montagne était endormie, ils pourraient ne rien remarquer, mais si elle s'agitait violemment, leur suspicion serait naturelle.
+En particulier, un expert au stade du Fléau Céleste posséderait une perception du monde encore plus aiguisée. Si l'aura de la montagne était endormie, ils pourraient ne rien remarquer, mais si elle s'agitait violemment, leur suspicion serait naturelle.
 
 « Quel genre d'épée est cachée sous cette montagne, et quel Ancien Dieu était prêt à sacrifier sa propre étoile pour forger un tel objet?! » Wang Lin reposa sa tasse et resta silencieux.
 
@@ -60,13 +60,13 @@ Ce n'était pas que les deux hommes doutaient des intentions de Wang Lin, mais l
 
 Par conséquent, même s'ils nourrissaient des doutes, ceux-ci n'étaient pas trop profonds. Ils avaient vu les sorts de Wang Lin et le trouvaient très mystérieux; peut-être que des pilules ne suffiraient pas à guérir quelqu'un de son rang.
 
-Le maître de la secte réfléchit encore et dit lentement: « Qu'importe. Depuis que la Secte Divin a distribué ces âmes Yin extrêmes, il ne les a jamais réclamées, et un stock considérable s'est accumulé. Il ne devrait pas poser de problème d'en offrir quelques-unes au camarade cultivateur Lu. »
+Le maître de la secte réfléchit encore et dit lentement: « Qu'importe. Depuis que la Secte Divine a distribué ces âmes Yin extrêmes, il ne les a jamais réclamées, et un stock considérable s'est accumulé. Il ne devrait pas poser de problème d'en offrir quelques-unes au camarade cultivateur Lu. »
 
-Par ses paroles, il signifiait à Wang Lin que sa demande n'était pas anodine: il était en train de lui céder un tribut destiné à la Secte Divin.
+Par ses paroles, il signifiait à Wang Lin que sa demande n'était pas anodine: il était en train de lui céder un tribut destiné à la Secte Divine.
 
 Bien que le ton ne fût pas aussi grave que ses mots le suggéraient, c'était la vérité.
 
-Wang Lin afficha une expression reconnaissante et joignit les mains en signe de gratitude. « Pour m'aider à guérir, vous êtes prêts à céder le tribut de la Secte Divin. Je vous en remercie et je donnerai mon maximum lors de la compétition entre les sectes de rang 8! »
+Wang Lin afficha une expression reconnaissante et joignit les mains en signe de gratitude. « Pour m'aider à guérir, vous êtes prêts à céder le tribut de la Secte Divine. Je vous en remercie et je donnerai mon maximum lors de la compétition entre les sectes de rang 8! »
 
 Tandis qu'il parlait, l'aura de l'Ancien Dieu pénétra son corps avec une force folle, remontant de ses pieds jusqu'à son front. Cela provoqua la reformation rapide de la sixième étoile effondrée.
 
@@ -80,13 +80,13 @@ En ce laps de temps, la sixième étoile entre ses sourcils commença à former 
 
 « Cela a permis à mon étoile de montrer des signes de récupération en un instant seulement... L'étoile utilisée pour forger cette épée pourrait-elle provenir d'un... d'un Ancien Dieu Royal de 9 étoiles? » Wang Lin reposa sa tasse et réprima le choc dans son esprit.
 
-Sur une autre planète de culture, sur ordre de Feng Hai et des autres Anciens, les quelque 100 000 cultivateurs se dispersèrent. Chaque secte retourna à sa résidence. Quant à la Secte Origine, Feng Hai les fit personnellement déménager de leur campement reculé vers la zone réservée aux sectes de rang 7.
+Sur une autre planète de culture, sur ordre de Feng Hai et des autres Anciens, les quelque 100 000 cultivateurs se dispersèrent. Chaque secte retourna à sa résidence. Quant à la Secte de l'Origine, Feng Hai les fit personnellement déménager de leur campement reculé vers la zone réservée aux sectes de rang 7.
 
 Simultanément, une puissante formation s'activa autour de la planète. Nul ne pouvait partir sans un jeton, bien que l'entrée fût libre.
 
-Li Qianmei s'installa avec les membres de la Secte Origine. Elle se tint dans la cour alors que le ciel s'obscurcissait, regardant les cieux en attendant le retour de Wang Lin.
+Li Qianmei s'installa avec les membres de la Secte de l'Origine. Elle se tint dans la cour alors que le ciel s'obscurcissait, regardant les cieux en attendant le retour de Wang Lin.
 
-Mu Bingmei restait silencieuse, seule à trois mille mètres de l'emplacement de la Secte Origine. La lumière lunaire éclairait sa silhouette solitaire, lui donnant un air mélancolique. Elle mordilla sa lèvre inférieure, attendant Wang Lin comme Li Qianmei. Elle avait quelque chose à lui dire, quelque chose qu'elle se devait de lui dire...
+Mu Bingmei restait silencieuse, seule à 10 000 pieds de l'emplacement de la Secte de l'Origine. La lumière lunaire éclairait sa silhouette solitaire, lui donnant un air mélancolique. Elle mordilla sa lèvre inférieure, attendant Wang Lin comme Li Qianmei. Elle avait quelque chose à lui dire, quelque chose qu'elle se devait de lui dire...
 
 De la même manière, loin de la région de rang 8, au cœur de la région de rang 9 et enveloppée d'un brouillard dense, se trouvait une immense planète de culture. Un palais y dégageait une aura imposante, et à l'intérieur siégeait un garçon.
 
@@ -94,7 +94,7 @@ Ce garçon avait le teint rosé, mais les cheveux blancs. Ses yeux s'ouvraient e
 
 Le garçon leva la main droite et pointa chaque jade du doigt avant de s'arrêter sur celui marqué « Lu Zihao ».
 
-« Puisque j'ai détecté l'aura du Maître, j'ai utilisé le pouvoir de la Secte Divin pour fouiller la Mer de Nuages à la recherche d'individus suspects. J'en ai trouvé sept! Après les avoir éliminés un par un, il ne reste que ce Lu Zihao... » Une lueur d'intention meurtrière traversa les yeux du garçon aux cheveux blancs.
+« Puisque j'ai détecté l'aura du Maître, j'ai utilisé le pouvoir de la Secte Divine pour fouiller la Mer des Nuages à la recherche d'individus suspects. J'en ai trouvé sept! Après les avoir éliminés un par un, il ne reste que ce Lu Zihao... » Une lueur d'intention meurtrière traversa les yeux du garçon aux cheveux blancs.
 
 À cet instant précis, il fronça les sourcils. Sa main s'étendit et un feu commença à brûler. Un jade apparut au milieu des flammes; il avait été envoyé par Wang Shanshan via une méthode spéciale.
 

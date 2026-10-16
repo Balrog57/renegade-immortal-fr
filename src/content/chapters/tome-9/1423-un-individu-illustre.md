@@ -66,15 +66,15 @@ Au-delà d'eux, même le vieil Oiseau Vermillon écarquilla les yeux. Il n'avait
 
 Cependant, Wang Lin s'apprêtait à affiner Maître Simo. Cette perspective fit suffoquer le vieil Oiseau Vermillon.
 
-« Bien! Il est véritablement digne d'être un cadet de mon clan. Peu importe son succès ou son échec; avoir le courage d'entreprendre cela fait de lui un individu illustre! » Les yeux du vieil Oiseau Vermillon se remplirent de soulagement.
+« Bien! Il est véritablement digne d'être un Junior de mon clan. Peu importe son succès ou son échec; avoir le courage d'entreprendre cela fait de lui un individu illustre! » Les yeux du vieil Oiseau Vermillon se remplirent de soulagement.
 
-Hormis le Royaume des Flammes Joss, scellé par la Feuille Antique, seule subsistait le Fourneau de l'Empereur. Wang Lin, assis au sommet, continuait d'alimenter le fourneau avec ses essences de feu et de tonnerre pour entamer son affinage!
+Hormis le Royaume des Flammes Joss, scellé par la Feuille Ancienne, seule subsistait le Fourneau de l'Empereur. Wang Lin, assis au sommet, continuait d'alimenter le fourneau avec ses essences de feu et de tonnerre pour entamer son affinage!
 
 Le Fourneau de l'Empereur étant un trésor de Dieu Ancien Royal, sa puissance était capable de briser les cieux. Désormais contrôlé par Wang Lin, lui-même un Dieu Ancien Royal, sa force décuplait!
 
 Les étoiles de Dieu Ancien entre les sourcils de Wang Lin tournèrent frénétiquement, injectant d'immenses quantités de pouvoir divin dans le Fourneau de l'Empereur!
 
-Maître Simo se trouvait à l'intérieur du fourneau. Il contempla son environnement plongé dans le chaos. Son expression était exaspérante. Il avait été figé un instant, puis piégé par la ruse de Wang Lin.
+Maître Simo se trouvait à l'intérieur du fourneau. Il contempla son environnement plongé dans le chaos. Son expression était extrêmement sombre. Il avait été figé un instant, puis piégé par la ruse de Wang Lin.
 
 « Un simple fourneau ose me capturer? » Maître Simo forma un sceau et agita la main. Une lumière pourpre l'enveloppa, créant deux bras géants qui percutèrent violemment les parois du fourneau.
 
@@ -98,13 +98,13 @@ L'âme du démon ancien qui combattait la femme de la brume rouge bougea et fusi
 
 La brume rouge se rétracta, laissant la femme au voile blanc se tenir silencieusement aux côtés de Maître Simo. Son apparence restait invisible, mais la touche de tendresse qu'elle dégageait était manifeste.
 
-Maître Simo détourna le regard et leva les yeux avec mépris. Il lança froidement: « Ce petit bâtard possède bien des trésors, mais s'il pense pouvoir me piéger, il fait preuve d'une arrogance sans nom! » Il laissa échapper un ricanement glacial et agita sa main droite en rugissant: « Clous Divins aux Sept Couleurs! »
+Maître Simo détourna le regard et leva les yeux avec mépris. Il lança froidement: « Ce petit bâtard possède bien des trésors, mais s'il pense pouvoir me piéger, il fait preuve d'une arrogance sans nom! » Il laissa échapper un ricanement glacial et agita sa main droite en rugissant: « Clous Divins du Vide aux Sept Couleurs! »
 
 À l'instant où il parla, vingt-neuf rayons de lumière septicolore apparurent devant lui. La clarté chromatique emplit le fourneau. Les âmes environnantes reculèrent, comme terrifiées par ces vingt-neuf clous!
 
 « Clous aux sept couleurs, brisez ce fourneau pour moi! » Maître Simo agita ses manches. Les vingt-neuf clous rugirent en chargeant contre les parois!
 
-Bang, bang, bang, bang!
+Boum, boum, boum, boum!
 
 Une série d'impacts assourdissants retentit tandis que les vingt-neuf clous s'enfonçaient dans la paroi du Fourneau de l'Empereur pour la perforer sans pitié!
 

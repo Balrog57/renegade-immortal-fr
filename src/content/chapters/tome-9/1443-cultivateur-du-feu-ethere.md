@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1443 - Ethereal Fire Cultivator !!"
 slug: cultivateur-du-feu-ethere
 ---
-Une force invisible tirait ces vingt-cinq plateformes, qui se déplaçaient à une vitesse dépassant l'entendement. Cette vélocité n'avait rien à envier à la pleine puissance d'un cultivateur de la Blight Céleste.
+Une force invisible tirait ces vingt-cinq plateformes, qui se déplaçaient à une vitesse dépassant l'entendement. Cette vélocité n'avait rien à envier à la pleine puissance d'un cultivateur du Fléau Céleste.
 
 Le mouvement erratique des plateformes conférait à cette tombe antique une aura mystérieuse et insondable. Tandis que Wang Lin se tenait sur sa plateforme, ses cheveux fouettaient l'air sous la force du vent.
 
@@ -66,7 +66,7 @@ L'homme en pourpre, escorté d'un poisson féroce, rugit: « Bien que ce compagn
 
 La voix lugubre d'une vieille femme en vert, le corps couvert de pus, résonna: « Ce compagnon est bien trop téméraire. La fortune ici est à la portée de tous. Mais si ta cupidité devient excessive, même ce vieux corps ne te laissera aucun répit. Si tu deviens trop gourmand, je te tuerai moi-même. Peu importe ta puissance, tu périras si tu ne sais pas obéir! »
 
-« Bien que vous soyez puissants, vous ne savez vraiment pas comment agir. Gaspiller votre culture de la sorte est d'une stupidité sans nom... Hélas, quel dommage! Qu'un être aussi avide existe dans ce monde. Te crois-tu un cultivateur du troisième niveau? » L'homme d'âge moyen tenant une cruche blanche à sa gauche secoua la tête. Il prit une gorgée, puis chargea les bêtes féroces.
+« Bien que vous soyez puissants, vous ne savez vraiment pas comment agir. Gaspiller votre culture de la sorte est d'une stupidité sans nom... Hélas, quel dommage! Qu'un être aussi avide existe dans ce monde. Te crois-tu un cultivateur du troisième pas? » L'homme d'âge moyen tenant une cruche blanche à sa gauche secoua la tête. Il prit une gorgée, puis chargea les bêtes féroces.
 
 Ces paroles étaient chargées d'une intention meurtrière évidente. La majorité des cultivateurs étaient mécontents. Outre ceux qui s'exprimaient, tous les autres dégageaient une volonté de tuer; ils étaient prêts au massacre.
 

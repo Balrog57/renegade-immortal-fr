@@ -60,7 +60,7 @@ Assis là, il leva les mains. Sa main gauche représentait la vie et sa main dro
 
 Enfin, une aura de massacre terrifiante jaillit de son corps. Sa sixième essence, l'essence du massacre, s'élança.
 
-Les six essences se condensèrent entre ses sourcils et le vortex réapparut avant que son âme originelle ne s'en échappe. Son âme rejoignit l'épée de sang, portée par les six essences. Le tonnerre éclata, le feu brûla, les trois essences éthérées tournoyerent autour d'elle et l'essence du massacre ouvrit la voie. À cet instant précis, l'épée de sang chargea vers la porte de pierre située à 500 pieds!
+Les six essences se condensèrent entre ses sourcils et le vortex réapparut avant que son âme originelle ne s'en échappe. Son âme rejoignit l'épée de sang, portée par les six essences. Le tonnerre éclata, le feu brûla, les trois essences éthérées tournoyèrent autour d'elle et l'essence du massacre ouvrit la voie. À cet instant précis, l'épée de sang chargea vers la porte de pierre située à 500 pieds!
 
 Lors de sa charge, la force de rejet devint encore plus violente, mais elle ne put rien contre la pleine puissance de la culture de Wang Lin. Son âme originelle était telle une épée invincible!
 

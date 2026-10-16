@@ -36,7 +36,7 @@ C'était un sortilège mystérieux, un sortilège de lignage!
 
 Plus le lignage d'un Céleste est pur, plus il est difficile pour autrui de le débusquer. Même sa localisation générale semble voilée par un brouillard impénétrable.
 
-À cause de cela, le jeune homme de la Rivière des Invocations s'était mépris, croyant qu'un Céleste était descendu. Il ne pouvait voir ce qui se passait au Quartier Général de l'Alliance; il ne ressentait que l'énergie spirituelle céleste fulgurante provenant du Royaume Intérieur.
+À cause de cela, le jeune homme de la Rivière Invoquée s'était mépris, croyant qu'un Céleste était descendu. Il ne pouvait voir ce qui se passait au Quartier Général de l'Alliance; il ne ressentait que l'énergie spirituelle céleste fulgurante provenant du Royaume Intérieur.
 
 « Le Céleste qui est descendu possède un lignage très pur et doit jouir d'un statut noble. Cependant, son niveau de culture n'est pas élevé, ce n'est qu'un Céleste de rang 7... J'ai autrefois connu une grande fortune en obtenant un héritage céleste. Mon niveau actuel est au début du stade de la Tribulation du Vide, ce qui équivaut à un Céleste Terrestre. Si je pouvais obtenir son lignage... » Songeait silencieusement le Vieux Fantôme Zhan.
 
@@ -46,7 +46,7 @@ Pour être plus précis, c'était un monde qui se superposait au Royaume Intéri
 
 C'était une peinture cachée dans une autre peinture. Il fallait déchirer la première pour pouvoir entrevoir la vérité qu'elle recelait.
 
-D'innombrables statues d'anciens dieux, de démons et de diables anciens parsemaient cette zone. C'était l'endroit que Wang Lin avait traversé lors de sa rétribution divine, et c'était aussi le lieu d'origine du jeune homme de la Rivière des Invocations.
+D'innombrables statues d'anciens dieux, de démons et de diables anciens parsemaient cette zone. C'était l'endroit que Wang Lin avait traversé lors de sa rétribution divine, et c'était aussi le lieu d'origine du jeune homme de la Rivière Invoquée.
 
 C'était ce fameux Royaume Céleste Antique qui, selon les rumeurs du Royaume Intérieur, avait disparu...
 
@@ -74,7 +74,7 @@ Si Wang Lin avait été là pour voir cela, il aurait été stupéfait. Sa premi
 
 Système stellaire du Vide Brillant, Quartier Général de l'Alliance. La main droite de Wang Lin pointait vers le ciel et une empreinte de paume géante descendit sur la Peinture des Montagnes et des Rivières.
 
-L'expression de Wang Lin était calme, mais son sérieux était palpable. Lorsque Maître Long Pan venait de s'éveiller, il n'était qu'au stade de la Tribulation du Vide, ce qui avait permis à Wang Lin de lui briser les deux bras.
+L'expression de Wang Lin était calme, mais son sérieux était palpable. Lorsque Maître Long Pan venait de s'éveiller, il n'était qu'au stade du Nirvana Vide, ce qui avait permis à Wang Lin de lui briser les deux bras.
 
 Cependant, avec l'apparition de la Peinture des Montagnes et des Rivières, Maître Long Pan, fusionné avec la planète, dégageait désormais l'aura puissante d'un cultivateur au milieu du stade Spirituel Vide!
 
@@ -94,7 +94,7 @@ Face à un cultivateur du milieu du stade Spirituel Vide, Wang Lin n'avait aucun
 
 C'était la deuxième fois que Wang Lin utilisait toute sa force sans se soucier de la force de rejet. Toute l'énergie spirituelle céleste en lui avait explosé, et le rejet ravageait son organisme. Sous ses vêtements, ses veines étaient gonflées et saillantes.
 
-Pourtiment, Wang Lin s'en moquait; il était venu ici pour sauver Qing Shui! Il sauverait Qing Shui, coûte que coûte!
+Pourtant, Wang Lin s'en moquait; il était venu ici pour sauver Qing Shui! Il sauverait Qing Shui, coûte que coûte!
 
 L'expression de Wang Lin devint féroce et il fit un pas en avant. Il abaissa sa main droite et un fracas tonitruant retentit. Après avoir absorbé une telle quantité d'énergie spirituelle céleste, l'Empreinte de l'Esprit Guerrier était devenue un véritable sortilège céleste!
 
@@ -120,8 +120,8 @@ Les grondements tonitruants résonnèrent et le monde vacilla. L'aura de l'homme
 
 Wang Lin eut un sourire colérique et fixa l'homme dans la lumière blanche. Il agita sa main droite et un arc surgit de son corps!
 
-« À quoi sert votre Alliance? Le Royaume Extérieur a envahi les terres et le Royaume Intérieur a subi de lourdes pertes. La Mer des Nuages a failli être rayée de la carte, la Rivière des Invocations est tombée, Luotian déploie tous ses efforts et le Vide Brillant est à l'agonie! Pourtant, votre propre disciple est devenu un subalterne du Royaume Extérieur et votre Alliance a été occupée par ce même Royaume! Sans compter qu'un Royaume aux Sept Couleurs se cache ici!
+« À quoi sert votre Alliance? Le Royaume Extérieur a envahi les terres et le Royaume Intérieur a subi de lourdes pertes. La Mer des Nuages a failli être rayée de la carte, la Rivière Invoquée est tombée, Luotian déploie tous ses efforts et le Vide Brillant est à l'agonie! Pourtant, votre propre disciple est devenu un subalterne du Royaume Extérieur et votre Alliance a été occupée par ce même Royaume! Sans compter qu'un Royaume aux Sept Couleurs se cache ici!
 
-Je suis l'actuel Seigneur du Royaume Scellé. Je suis venu pour détruire le Royaume aux Sept Couleurs, sauver mon frère aîné Qing Shui et massacrer les cultivateurs du Royaume Extérieur. De quel droit m'interdisez-vous de faire cela?! »
+Je suis l'actuel Seigneur du Royaume Scellé. Je suis venu pour détruire le Royaume aux Sept Couleurs, sauver mon Senior Frère Qing Shui et massacrer les cultivateurs du Royaume Extérieur. De quel droit m'interdisez-vous de faire cela?! »
 
 « Quoi... avez-vous dit? » La voix antique marqua un temps d'arrêt.

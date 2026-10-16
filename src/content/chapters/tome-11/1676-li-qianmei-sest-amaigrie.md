@@ -96,7 +96,7 @@ Ils s'étaient connus à travers trois questions et une quête éternelle qui le
 
 « S'il advenait un jour que je ne sois plus là, te souviendras-tu encore qu'une femme nommée Li Qianmei a existé dans ta vie...? »
 
-Wang Lin ne pouvait s'empêcher de penser à elle. Elle avait taché sa statue de sang pendant dix ans alors que sa beauté se flétrissait. Elle était même allée chercher des remèdes pour lui. Puis, dans la faille de la Mer Nuageuse, alors qu'elle touchait à sa fin et s'apprêtait à fermer les yeux, il n'y avait aucun regret dans son regard.
+Wang Lin ne pouvait s'empêcher de penser à elle. Elle avait taché sa statue de sang pendant dix ans alors que sa beauté se flétrissait. Elle était même allée chercher des remèdes pour lui. Puis, dans la faille de la Mer des Nuages, alors qu'elle touchait à sa fin et s'apprêtait à fermer les yeux, il n'y avait aucun regret dans son regard.
 
 Pour elle, Wang Lin était allé dans le Royaume Extérieur chercher le Maître Dao Bleu Rêve afin qu'elle puisse survivre... Puis, lorsqu'elle s'était réveillée, Wang Lin avait gravi la Montagne Bleue malgré une pression infinie. Il voulait simplement voir si elle était revenue à elle.
 

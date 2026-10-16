@@ -42,7 +42,7 @@ Le brouillard issu de son corps se propagea et enveloppa les cultivateurs du Roy
 
 L'intention meurtrière dans les yeux du vieil homme en noir s'intensifia alors qu'il poursuivait Wang Lin.
 
-La brume dans laquelle Wang Lin s'était transformé se rétracta rapidement, emportant avec elle tous les cultivateurs du Royaume Extérieur qu'elle avait englobés. En quelques respirations à peine, des dizaines de milliers de cultateurs périrent.
+La brume dans laquelle Wang Lin s'était transformé se rétracta rapidement, emportant avec elle tous les cultivateurs du Royaume Extérieur qu'elle avait englobés. En quelques respirations à peine, des dizaines de milliers de cultivateurs périrent.
 
 À cet instant, le vieil homme en noir accéléra encore la cadence. D'un seul pas, il atteignit la brume de Wang Lin. Il leva alors son épée et frappa sans aucune pitié.
 
@@ -54,7 +54,7 @@ Alors que son corps reprenait forme, une lueur d'intention meurtrière brilla da
 
 « Formation Karmique! » À ces mots, la roue immobile de la Formation Karmique apparut devant lui. D'une poussée puissante, le gigantesque cercle karmique vola vers l'avant et percuta l'épée du vieil homme en plein mouvement.
 
-Un fracas tonnerre retentit. L'énergie d'épée du vieil homme vola en éclats et il recracha du sang, projeté en arrière par le choc. La Formation Karmique s'effondra également et se brisa!
+Un fracas de tonnerre retentit. L'énergie d'épée du vieil homme vola en éclats et il recracha du sang, projeté en arrière par le choc. La Formation Karmique s'effondra également et se brisa!
 
 Cependant, la perte de la formation n'attrista nullement Wang Lin. Ses yeux brillaient d'une lueur mystérieuse. Il éclata de rire, puis ses mains formèrent un sceau. Sa main droite se crispa en un poing qu'il agita violemment.
 
@@ -64,11 +64,11 @@ Chaque filament se mua instantanément en l'énergie d'épée que le vieil homme
 
 C'était là la véritable puissance de la Formation Karmique!
 
-D'un geste de la main, Wang Lin projeta l'énergie d'épée vers les cultivateurs du Royaume Extérieur. Des cris de douleur déchirèrent l'air et, en un instant, plus de 50 000 rayons d'épée achevèrent plus de 50 000 cultes du Royaume Extérieur!
+D'un geste de la main, Wang Lin projeta l'énergie d'épée vers les cultivateurs du Royaume Extérieur. Des cris de douleur déchirèrent l'air et, en un instant, plus de 50 000 rayons d'épée achevèrent plus de 50 000 cultivateurs du Royaume Extérieur!
 
 Leurs morts teintèrent l'espace d'un rouge sombre!
 
-« La concubine impériale céleste était difficile à abattre, mais un cultivateur du Vide Arcanique comme toi est une proie facile! » Wang Lin franchit les restes de la Formation Karmique et chargea le vieil homme.
+« La concubine impériale céleste était difficile à abattre, mais un cultivateur du stade initial du Vide Arcanique comme toi est une proie facile! » Wang Lin franchit les restes de la Formation Karmique et chargea le vieil homme.
 
 « Main gauche est la vie, main droite est la mort, Sceau de la Vie et de la Mort! » Wang Lin se jeta sur l'homme en noir, ignorant totalement les sorts que celui-ci tentait d'invoquer. Sa main gauche frappa, suivie de sa main droite. L'aura de la vie et de la mort percuta le corps du vieil homme dans un fracas tonitruant.
 
@@ -78,7 +78,7 @@ Les yeux clos, il avança avec célérité, traversant les sorts de l'adversaire
 
 « Empreinte Karmique! »
 
-Un bang assourdissant retentit. Le vieil homme poussa un cri déchirant et fut projeté en arrière. Une partie de son essence avait été arrachée par Wang Lin. À cet instant, ce dernier ouvrit les yeux. Il serra le poing droit, broyant une portion de l'essence du vieil homme.
+Un fracas assourdissant retentit. Le vieil homme poussa un cri déchirant et fut projeté en arrière. Une partie de son essence avait été arrachée par Wang Lin. À cet instant, ce dernier ouvrit les yeux. Il serra le poing droit, broyant une portion de l'essence du vieil homme.
 
 Alors que l'homme reculait, Wang Lin agita la main gauche pour ouvrir son espace de stockage. Il s'empara de tous les Clous aux Sept Couleurs et les projeta d'un geste sec.
 
@@ -88,11 +88,11 @@ Alors que Wang Lin s'apprêtait à le poursuivre, une intention meurtrière surg
 
 Derrière la femme, Qing Lin suivait rapidement. Il était évident que les trois s'étaient affrontés auparavant, mais la concubine impériale céleste avait réussi à échapper à leur attaque pour poursuivre Wang Lin.
 
-Plus loin encore, la femme en violet de la Rivière des Appels se déchaînait telle une démone, ayant déjà tué plusieurs cultivateurs du Vide Nirvana. Elle combattait les deux derniers survivants.
+Plus loin encore, la femme en violet de la Rivière Invoquée se déchaînait telle une démone, ayant déjà tué plusieurs cultivateurs du Vide Nirvana. Elle combattait les deux derniers survivants.
 
 Une vieille femme du Vide Arcanique du Royaume Extérieur lui faisait face! La dernière des trois concubines impériales célestes affrontait Maître Hong Shan. Ce dernier n'était manifestement pas de taille, mais il parvenait tant bien que mal à la contenir.
 
-Au loin, une multitude de cultivateurs du Royaume Intérieur périrent, mais plus de 100 000 cultes du Royaume Extérieur avaient déjà été massacrés. Les rumeurs de la boucherie résonnaient dans tout Luotian.
+Au loin, une multitude de cultivateurs du Royaume Intérieur périrent, mais plus de 100 000 cultivateurs du Royaume Extérieur avaient déjà été massacrés. Les rumeurs de la boucherie résonnaient dans tout Luotian.
 
 Wang Lin se retourna soudainement, les yeux injectés de folie. Si les cultivateurs du Vide Arcanique du Royaume Extérieur ne mouraient pas, cette bataille ne prendrait jamais fin. Tandis qu'il pivotait, ses étoiles de Dieu Antique brillèrent et le Fourneau de l'Empereur apparut. Dès son apparition, il s'étendit pour recouvrir toute la zone environnante, englobant la concubine impériale céleste et le vieil homme en noir.
 
@@ -110,7 +110,7 @@ Dès que la porte de pierre fut en place, le temps s'écoula à une vitesse effr
 
 La sueur perla sur le front de Wang Lin alors qu'il siégeait au sommet du Fourneau de l'Empereur. Ses yeux étaient totalement rouges et il poussa un rugissement:
 
-« Aîné Qing Lin, Maître Hong Shan, et Aînée de la Rivière des Appels! Vous trois, retenez les deux derniers cultivateurs du Vide Arcanique pour me donner le temps nécessaire à l'établissement des Formations de la Vie et de la Mort, du Karma, ainsi que du Vrai et du Faux!! »
+« Senior Qing Lin, Maître Hong Shan, et Senior de la Rivière Invoquée! Vous trois, retenez les deux derniers cultivateurs du Vide Arcanique pour me donner le temps nécessaire à l'établissement des Formations de la Vie et de la Mort, du Karma, ainsi que du Vrai et du Faux!! »
 
 Les trois compagnons acquiescèrent d'un signe de tête. Ils commencèrent à unir leurs forces pour contenir les deux derniers cultivateurs du Vide Arcanique afin d'empêcher toute interruption dans le travail de Wang Lin.
 

@@ -8,7 +8,7 @@ slug: surestimer-ses-propres-capacites
 ---
 « Cela... Je ne suis allé que sur le Continent des Vagues de Nuages, le Continent Kang Yang et le Continent de l'Âme Paisible. Ce n'est qu'environ la moitié du continent oriental tout entier. Au sein de ces trois continents, il n'existe aucune veine de tonnerre.
 
-« Je ne connais vraiment pas la réponse à votre question... Mais je peux vous aider à vous renseigner. Peut-être que quelqu'un au sein du Grand Secte de l'Âme le sait. Après tout, le Grand Secte de l'Âme est l'une des neuf sectes et treize factions. Leurs disciples partent pour se tester et rapportent souvent leurs découvertes à la secte. Cela fait partie de leur entraînement. » Du Qing secoua la tête. Le Continent Astral Immortel était infini, et peu de personnes avaient parcouru l'intégralité du continent oriental. Du Qing n'avait visité que quatre continents au cours de sa vie, ce qui était déjà extraordinaire.
+« Je ne connais vraiment pas la réponse à votre question... Mais je peux vous aider à vous renseigner. Peut-être que quelqu'un au sein de la Secte de la Grande Âme le sait. Après tout, la Secte de la Grande Âme est l'une des neuf sectes et treize factions. Leurs disciples partent pour se tester et rapportent souvent leurs découvertes à la secte. Cela fait partie de leur entraînement. » Du Qing secoua la tête. Le Continent Astral Immortel était infini, et peu de personnes avaient parcouru l'intégralité du continent oriental. Du Qing n'avait visité que quatre continents au cours de sa vie, ce qui était déjà extraordinaire.
 
 Wang Lin hocha la tête et réfléchit. Un instant plus tard, il regarda Du Qing et parla d'un ton très décontracté.
 
@@ -16,7 +16,7 @@ Wang Lin hocha la tête et réfléchit. Un instant plus tard, il regarda Du Qing
 
 « La Secte Dong Lin? » L'expression de Du Qing se figea soudainement. Après un court moment de réflexion, il prit la parole:
 
-« La Secte Dong Lin est l'une des neuf sectes et treize factions. Il se situe dans la partie nord du continent oriental, sur le Grand Continent Sage. La rumeur dit que cette secte est très mystérieuse et que peu de disciples en sortent jamais. »
+« La Secte Dong Lin est l'une des neuf sectes et treize factions. Elle se situe dans la partie nord du continent oriental, sur le Grand Continent Sage. La rumeur dit que cette secte est très mystérieuse et que peu de disciples en sortent jamais. »
 
 Wang Lin posa quelques questions supplémentaires, puis afficha un air de lassitude. Du Qing était aussi rusé qu'un démon, comment ne pas deviner l'intention de Wang Lin? Il se leva rapidement pour partir et, avant de s'en aller, prononça un serment:
 
@@ -34,9 +34,9 @@ Il réfléchissait encore, et les paroles de Du Qing résonnaient dans son espri
 
 « Si je veux former mon corps d'essence véritable de tonnerre, j'aurai besoin d'une immense quantité de tonnerre... Puisque le Continent Astral Immortel possède l'essence de feu terrestre, il doit nécessairement exister une essence de tonnerre...
 
-« Cependant, pour l'instant, la priorité est de former mon corps d'essence véritable de feu... Je devrai peut-être me rendre personnellement au Grand Secte de l'Âme... » Wang Lin fronça les sourcils. Pour lui, le Grand Secte de l'Âme était un colosse difficile à ébranler.
+« Cependant, pour l'instant, la priorité est de former mon corps d'essence véritable de feu... Je devrai peut-être me rendre personnellement à la Secte de la Grande Âme... » Wang Lin fronça les sourcils. Pour lui, la Secte de la Grande Âme était un colosse difficile à ébranler.
 
-« Du Qing a dit que la culture de l'ancêtre du Grand Secte de l'Âme est insondable et qu'il a également formé un corps d'essence véritable... » Wang Lin se frotta les tempes et soupira.
+« Du Qing a dit que la culture de l'ancêtre de la Secte de la Grande Âme est insondable et qu'il a également formé un corps d'essence véritable... » Wang Lin se frotta les tempes et soupira.
 
 « Mon niveau de culture n'est pas assez élevé... Cependant, ce n'est pas que je manque de méthodes... » Les yeux de Wang Lin s'illuminèrent et il pensa à la Secte Gui Yi. Après tout, ce vieil homme nommé Ma connaissait son lien avec Xuan Luo.
 
@@ -86,7 +86,7 @@ Du Qing s'était habitué à l'omniprésence du Sens Divin de Wang Lin sur la Se
 
 « C'est tout simplement impossible. Cet homme est trop têtu; c'est une pure perte de temps. Si fusionner avec le monde était si simple, n'importe qui pourrait le faire...
 
-« Son niveau de culture est manifestement insuffisant, et pourtant il s'obstine. J'ignore comment il a pu attirer l'attention d'un Grand Empereur... Quel imbécile. » Du Qing secoua la tête.
+« Son niveau de culture est manifestement insuffisant, et pourtant il s'obstine. J'ignore comment il a pu attirer l'attention d'un Grand Empyréen... Quel imbécile. » Du Qing secoua la tête.
 
 En un éclair, trois mois de plus passèrent!
 
@@ -94,11 +94,11 @@ Wang Lin avait passé sept mois en méditation fermée à étudier ce sortilège
 
 Du Qing, voyant cela, ricana:
 
-« Je ne sais pas si je devrais lui dire qu'il surestime ses capacités. Bien qu'il ait capté l'attention d'un Grand Empereur, possède de nombreux trésors et une bête extraordinaire, ce qu'il fait actuellement prouve qu'il se croit bien plus puissant qu'il ne l'est!
+« Je ne sais pas si je devrais lui dire qu'il surestime ses capacités. Bien qu'il ait capté l'attention d'un Grand Empyréen, possède de nombreux trésors et une bête extraordinaire, ce qu'il fait actuellement prouve qu'il se croit bien plus puissant qu'il ne l'est!
 
 « Je veux voir combien de temps il compte persévérer. Lorsqu'il échouera finalement, quelle expression fera-t-il... » Il y avait une pointe de mépris dans les yeux de Du Qing, mais aussi une part de jalousie.
 
-« Comment se fait-il que moi, Du Qing, je n'aie pas été accepté par un Grand Empereur... Est-ce que tous les Grands Empereurs apprécient les fous de ce genre? » Du Qing était peu convaincu.
+« Comment se fait-il que moi, Du Qing, je n'aie pas été accepté par un Grand Empyréen... Est-ce que tous les Grands Empyréens apprécient les fous de ce genre? » Du Qing était peu convaincu.
 
 Au cours de ces sept mois, les actions apparemment insensées de Wang Lin avaient lentement changé l'avis de Du Qing. Il en venait à penser que l'esprit de Wang Lin était peut-être défaillant.
 

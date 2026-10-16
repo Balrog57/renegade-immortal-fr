@@ -48,11 +48,11 @@ Alors que le chaos régnait, l'assaut final se précisait: les deux paumes géan
 
 Au même instant, l'ombre de la baleine ouvrit sa gueule et chargea vers lui. Des grondements tonitruants secouèrent la Prairie du Ciel Extrême lorsque les poings de Wang Lin entrèrent en collision avec les paumes. Un nuage de brume sanguine jaillit de son corps alors qu'il était repoussé. L'ombre de la baleine se rapprocha, prête à l'engloutir. À cet instant, Xu Decai rayonnait de fierté.
 
-Wang Lin ouvrit la bouche et cracha une pierre noire. Dès son apparition, la pierre explosa d'une lumière sombre qui fusionna avec l'obscurité de la nuit. Une ombre de baleine, mais des fois plus imposante, surgit alors. C'était le Dao Céleste de Wang Lin: la Bête du Néant!
+Wang Lin ouvrit la bouche et cracha une pierre noire. Dès son apparition, la pierre explosa d'une lumière sombre qui fusionna avec l'obscurité de la nuit. Une ombre de baleine, mais plusieurs fois plus imposante, surgit alors. C'était le Dao Céleste de Wang Lin: la Bête des Limbes!
 
-Dès son apparition, les yeux de la Bête du Néant s'emplirent de confusion et de cruauté. Ayant oublié toute peur, elle commença à dévorer. Un combat acharné s'engagea entre la Bête du Néant et la créature baleine de Xu Decai.
+Dès son apparition, les yeux de la Bête des Limbes s'emplirent de confusion et de cruauté. Ayant oublié toute peur, elle commença à dévorer. Un combat acharné s'engagea entre la Bête des Limbes et la créature baleine de Xu Decai.
 
-Les pupilles de Xu Decai se rétractèrent sous l'effet de la terreur. Il recula précipitamment, tentant de rappeler l'ombre de sa baleine. Mais cette fois, il était trop lent! Alors que les grondements résonnaient, la créature de Xu Decai fut purement et simplement dévorée par la Bête du Néant.
+Les pupilles de Xu Decai se rétractèrent sous l'effet de la terreur. Il recula précipitamment, tentant de rappeler l'ombre de sa baleine. Mais cette fois, il était trop lent! Alors que les grondements résonnaient, la créature de Xu Decai fut purement et simplement dévorée par la Bête des Limbes.
 
 À l'instant même où la baleine disparut dans l'estomac de la bête, le visage de Xu Decai pâlit et il cracha une bouchée de sang.
 

@@ -50,7 +50,7 @@ Alors que le Vieux Fantôme Zhan progressait, une ombre gigantesque apparut deva
 
 C'est à cet instant que le monde de la grotte connut un bouleversement sans précédent. Toute forme de vie commença à paniquer! Simultanément, cette force déchira l'Ancien Royaume Céleste dans le Royaume Extérieur que Wang Lin avait scellé. Bien que la majeure partie se soit effondrée, quelques disciples de la Secte des Sept Dao survécurent. Lorsque le sceau fut rompu, ils s'en échappèrent et, malgré leur choc, se précipitèrent vers Luotian sans hésiter!
 
-Il y avait aussi la femme qui n'était pas allée dans le Royaume Céleste mais était restée sur une planète de la Rivière de l'Invocation. Cette femme, nommée Zi Xia, était l'une des concubines. Elle réfléchit silencieusement un instant avant de serrer les dents et de s'élancer.
+Il y avait aussi la femme qui n'était pas allée dans le Royaume Céleste mais était restée sur une planète de la Rivière Invoquée. Cette femme, nommée Zi Xia, était l'une des concubines. Elle réfléchit silencieusement un instant avant de serrer les dents et de s'élancer.
 
 Tandis que tout le monde de la grotte basculait, les grandes plaques commençaient à charger vers Luotian. Dans le Vide Brillant, sur la planète cachée des Cinq Éléments, le groupe de cultivateurs mené par le vieil homme nommé Ma hésita un court instant. Puis, dans un soupir, ils se précipitèrent vers Luotian!
 
@@ -62,7 +62,7 @@ Le monde de la grotte grondait violemment et le brouillard se mouvait comme une 
 
 À cet instant, dans le Royaume Céleste, Qing Shui se tenait devant sa demeure et contemplait le ciel nuageux. Il ressentit un appel dans son esprit, un appel qui l'irritait profondément. Également dans le Royaume Céleste, Situ Nan sortit de sa culture. Il regarda devant lui d'un air sombre, mais nul ne savait à quoi il pensait.
 
-Soudain, une voix puissante résonna dans l'esprit de Situ Nan et de Qing Shui. Cette voix était celle du Maître Dao Bleu Rêve!
+Soudain, une voix puissante résonna dans l'esprit de Situ Nan et de Qing Shui. Cette voix était celle du Maître du Dao Rêve Bleu!
 
 « J'avais promis à Wang Lin de l'aider... Cet endroit étrange s'est ouvert, mais ne possédant pas le lignage d'un être céleste, je ne peux y pénétrer. Je dois emprunter vos âmes... Êtes-vous d'accord? »
 

@@ -6,43 +6,43 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1328 - Possession
 slug: possession
 ---
-Au sein de l'immensité spatiale du Système Stellaire Antique, se trouvait un domaine stellaire empli de tonnerre. C'était là que résidait le célèbre Clan du Tonnerre Éparpillé.
+Au sein de l'immensité spatiale du Système Stellaire Antique, se trouvait un domaine stellaire empli de tonnerre. C'était là que résidait le célèbre Clan du Tonnerre Dispersé.
 
-De loin, le domaine stellaire du Clan du Tonnerre Éparpillé ressemblait à un gigantesque lac de tonnerre. Même à une distance considérable, on pouvait entendre les grondements incessants des éclairs éternels.
+De loin, le domaine stellaire du Clan du Tonnerre Dispersé ressemblait à un gigantesque lac de tonnerre. Même à une distance considérable, on pouvait entendre les grondements incessants des éclairs éternels.
 
-Ces grondements étaient si féroces que toutes les bêtes sauvages évitaient la zone. Quiconque s'en approchait sans le jeton du Clan du Tonnerre Éparpillé se verrait immédiatement attaqué.
+Ces grondements étaient si féroces que toutes les bêtes sauvages évitaient la zone. Quiconque s'en approchait sans le jeton du Clan du Tonnerre Dispersé se verrait immédiatement attaqué.
 
-Des millions d'éclairs tombant simultanément possédaient une puissance terrifiante! C'était l'une des raisons pour lesquelles le Clan du Tonnerre Éparpillé pouvait compter parmi les grands clans du Système Stellaire Antique sans posséder de cultivateur du troisième pas!
+Des millions d'éclairs tombant simultanément possédaient une puissance terrifiante! C'était l'une des raisons pour lesquelles le Clan du Tonnerre Dispersé pouvait compter parmi les grands clans du Système Stellaire Antique sans posséder de cultivateur du troisième pas!
 
-De la même manière, le Clan du Tonnerre Éparpillé jouissait d'un passé glorieux. Il y a d'innombrables années, ils étaient l'un des clans ayant placé un trésor dans la Formation du Domaine Scellé!
+De la même manière, le Clan du Tonnerre Dispersé jouissait d'un passé glorieux. Il y a d'innombrables années, ils étaient l'un des clans ayant placé un trésor dans la Formation du Domaine Scellé!
 
-Un éclair éternel résidait au sein du Clan du Tonnerre Éparpillé. Il existait depuis l'aube des temps, surgi du vide. Il grondait sans fin, et le Clan du Tonnerre Éparpillé avait édifié un temple en son honneur pour le vénérer.
+Un éclair éternel résidait au sein du Clan du Tonnerre Dispersé. Il existait depuis l'aube des temps, surgi du vide. Il grondait sans fin, et le Clan du Tonnerre Dispersé avait édifié un temple en son honneur pour le vénérer.
 
-L'emplacement de ce temple constituait la terre sainte du Clan du Tonnerre Éparpillé; il était extrêmement bien gardé, rendant toute approche par des gens ordinaires quasi impossible. Des Anciens y montaient toujours la garde et, bien qu'ils ne comptent aucun cultivateur du troisième pas, l'un d'eux atteignait le cinquième niveau de la Peste Céleste. L'être le plus puissant sous le rang des cultivateurs du troisième pas!
+L'emplacement de ce temple constituait la terre sainte du Clan du Tonnerre Dispersé; il était extrêmement bien gardé, rendant toute approche par des gens ordinaires quasi impossible. Des Anciens y montaient toujours la garde et, bien qu'ils ne comptent aucun cultivateur du troisième pas, l'un d'eux atteignait le cinquième niveau du Fléau Céleste. L'être le plus puissant sous le rang des cultivateurs du troisième pas!
 
-Pour Wang Lin, le Clan du Tonnerre Éparpillé était un véritable mur d'acier! Il comptait de nombreux cultivateurs puissants et, tout comme le Clan des Tatouages autrefois, un seul de ses clans suffisait à déclencher une guerre chaotique dans le Domaine Intérieur!
+Pour Wang Lin, le Clan du Tonnerre Dispersé était un véritable mur d'acier! Il comptait de nombreux cultivateurs puissants et, tout comme le Clan du Tatouage autrefois, un seul de ses clans suffisait à déclencher une guerre chaotique dans le Domaine Intérieur!
 
-Chaque membre du Clan du Tonnerre Éparpillé cultivait le Dao du tonnerre. Ils croyaient en l'existence de six types de tonnerre. S'ils parvenaient à tous les cultiver, ils pourraient diviser le monde et hériter de la véritable essence du tonnerre antique. Ils obtiendraient alors l'origine du tonnerre et s'élèveraient vers le troisième pas.
+Chaque membre du Clan du Tonnerre Dispersé cultivait le Dao du tonnerre. Ils croyaient en l'existence de six types de tonnerre. S'ils parvenaient à tous les cultiver, ils pourraient diviser le monde et hériter de la véritable essence du tonnerre antique. Ils obtiendraient alors l'origine du tonnerre et s'élèveraient vers le troisième pas.
 
-Cependant, depuis des temps immémoriaux, très peu d'individus avaient atteint ce stade. Durant les innombrables années d'existence du Clan du Tonnerre Éparpillé, une seule personne avait atteint le troisième pas lors de leur passé glorieux.
+Cependant, depuis des temps immémoriaux, très peu d'individus avaient atteint ce stade. Durant les innombrables années d'existence du Clan du Tonnerre Dispersé, une seule personne avait atteint le troisième pas lors de leur passé glorieux.
 
-Même sans la présence d'un cultivateur du troisième pas, s'infiltrer dans le Clan du Tonnerre Éparpillé était plus difficile que de gravir les cieux!
+Même sans la présence d'un cultivateur du troisième pas, s'infiltrer dans le Clan du Tonnerre Dispersé était plus difficile que de gravir les cieux!
 
-Wang Lin se tenait calmement devant le domaine stellaire du Clan du Tonnerre Éparpillé. Devant lui, le tonnerre fulminait et rugissait. C'était comme un océan de foudre où les éclairs dansaient tels des serpents d'argent!
+Wang Lin se tenait calmement devant le domaine stellaire du Clan du Tonnerre Dispersé. Devant lui, le tonnerre fulminait et rugissait. C'était comme un océan de foudre où les éclairs dansaient tels des serpents d'argent!
 
 D'un seul regard, ce spectacle pouvait ébranler le cœur de la plupart des cultivateurs et leur interdire de faire le moindre pas en avant! Cet endroit était plusieurs fois plus puissant que le lac de tonnerre que Wang Lin avait rencontré à Luotian.
 
 Avant même de s'en approcher, il sentait distinctement chaque poil de son corps être attiré par une force magnétique. Même l'espace entourant ce lac de tonnerre était saturé de puissance électrique, capable d'exploser par intermittence en rafales tonitruantes.
 
-À l'époque où Wang Lin se trouvait à Luotian, même après avoir dévoré la moitié d'un ancien dragon du tonnerre et obtenu l'âme originelle du dragon du tonnerre, l'entrée aurait été extrêmement difficile. Il aurait probablement dû battre en retraite, sans quoi le tonnerre l'aurait tué avant même que le Clan du Tonnerre Éparpillé n'ait à intervenir.
+À l'époque où Wang Lin se trouvait à Luotian, même après avoir dévoré la moitié d'un ancien dragon du tonnerre et obtenu l'âme originelle du dragon du tonnerre, l'entrée aurait été extrêmement difficile. Il aurait probablement dû battre en retraite, sans quoi le tonnerre l'aurait tué avant même que le Clan du Tonnerre Dispersé n'ait à intervenir.
 
-Cependant, après avoir absorbé la puissance du tonnerre de la statue du clan, du fruit Dao, puis avoir engendré sa propre essence de tonnerre, le contrôle de Wang Lin sur l'électricité avait atteint un degré terrifiant. Il observa silencieusement devant lui et, après un long moment, il pénétra dans le domaine stellaire du Clan du Tonnerre Éparpillé!
+Cependant, après avoir absorbé la puissance du tonnerre de la statue du clan, du fruit Dao, puis avoir engendré sa propre essence de tonnerre, le contrôle de Wang Lin sur l'électricité avait atteint un degré terrifiant. Il observa silencieusement devant lui et, après un long moment, il pénétra dans le domaine stellaire du Clan du Tonnerre Dispersé!
 
-Le Clan du Tonnerre Éparpillé n'avait personne pour garder le périmètre, car le tonnerre éternel constituait la meilleure des protections! Wang Lin avança lentement. Son arrivée ne suscita aucune attention de la part du clan!
+Le Clan du Tonnerre Dispersé n'avait personne pour garder le périmètre, car le tonnerre éternel constituait la meilleure des protections! Wang Lin avança lentement. Son arrivée ne suscita aucune attention de la part du clan!
 
 Wang Lin parcourut lentement cinquante kilomètres en environ sept minutes. À chaque pas, les poils de son corps tremblaient et des traces de tonnerre pénétraient ses pores.
 
-Son esprit restait calme, exempt de toute joie ou tristesse. C'était comme s'il était entré dans un royaume de vide. Il n'y avait plus de Clan du Tonnerre Éparpillé devant lui, seulement cet infini lac de tonnerre! Et au centre de ce lac se trouvait l'éclair éternel!
+Son esprit restait calme, exempt de toute joie ou tristesse. C'était comme s'il était entré dans un royaume de vide. Il n'y avait plus de Clan du Tonnerre Dispersé devant lui, seulement cet infini lac de tonnerre! Et au centre de ce lac se trouvait l'éclair éternel!
 
 Après avoir franchi les cinquante kilomètres, il s'enfonça dans le lac de tonnerre. Le lac rugit et la foudre envahit le regard de Wang Lin, remplaçant toute autre vision. Cela illumina brusquement l'espace environnant!
 
@@ -60,13 +60,13 @@ Les grondements continuaient de résonner tandis que le corps de Wang Lin demeur
 
 C’est à cet instant qu'une vague colossale se propagea dans l'immense lac et qu'un rugissement retentit. Les yeux de Wang Lin s'ouvrirent soudainement, révélant une marque de tonnerre clignotant frénétiquement dans l'un d'eux. En un instant, elle pulsa des milliers de fois!
 
-À chaque pulsation, le fracas du tonnerre s'intensifiait, jusqu'à ce que tout ne soit plus que rugissement pur. Wang Lin fit un pas en avant et pénétra véritablement dans le domaine du Clan du Tonnerre Éparpillé!
+À chaque pulsation, le fracas du tonnerre s'intensifiait, jusqu'à ce que tout ne soit plus que rugissement pur. Wang Lin fit un pas en avant et pénétra véritablement dans le domaine du Clan du Tonnerre Dispersé!
 
 Dès son entrée, le lac de tonnerre rugit violemment et d'immenses quantités d'électricité nagèrent avec frénésie!
 
 Wang Lin marcha lentement. À mesure qu'il avançait, tout le tonnerre sous ses pieds semblait l'acclamer avant de pénétrer dans son corps. Wang Lin ressemblait à une divinité du tonnerre; la foudre se rassemblait dans son œil droit, rendant sa marque de tonnerre de plus en plus nette.
 
-Il progressa durant un temps indéterminé jusqu'à atteindre les terres intérieures du Clan du Tonnerre Éparpillé. Ici, le tonnerre rugissait avec une intensité encore plus sauvage, recouvrant tout. Dans cette zone, même le Sens Divin ne pouvait pénétrer, et la vision était déchirée!
+Il progressa durant un temps indéterminé jusqu'à atteindre les terres intérieures du Clan du Tonnerre Dispersé. Ici, le tonnerre rugissait avec une intensité encore plus sauvage, recouvrant tout. Dans cette zone, même le Sens Divin ne pouvait pénétrer, et la vision était déchirée!
 
 Wang Lin s'assit et commença à cultiver tandis que de plus en plus de foudre s'accumulait en lui. Le tonnerre affluait de toutes parts, et les grondements violents agitaient l'intégralité du lac!
 
@@ -84,7 +84,7 @@ De loin, ces planètes semblaient saturées de foudre, comme si elles avaient é
 
 Elles étaient disposées en cercle autour d'un continent brisé au centre. Ce continent paraissait avoir été arraché à une masse terrestre complète; ses bords étaient déchiquetés et des gravats flottaient encore sur ses marges.
 
-Ce continent brisé était d'un noir absolu, dépourvu de toute vie. Pourtant, chaque membre du Clan du Tonnerre Éparpillé savait que ce fragment était là depuis la nuit des temps et qu'il constituait leur terre sainte!
+Ce continent brisé était d'un noir absolu, dépourvu de toute vie. Pourtant, chaque membre du Clan du Tonnerre Dispersé savait que ce fragment était là depuis la nuit des temps et qu'il constituait leur terre sainte!
 
 Un temple perçant le ciel trônait sur ce continent! Un éclair jaillissait du vide pour toucher le sommet de l'édifice, et il n'avait jamais disparu au cours des éternités passées!
 
@@ -92,7 +92,7 @@ Cet éclair était d'un noir total. En regardant de près, on pouvait voir une i
 
 L'une des seize planètes affichait une teinte jaune terreuse. Sur ce monde, se trouvaient d'innombrables grottes.
 
-Il y avait des dizaines de milliers de grottes, grandes ou petites. C'était là que les adultes du Clan du Tonnerre Éparpillé cultivaient.
+Il y avait des dizaines de milliers de grottes, grandes ou petites. C'était là que les adultes du Clan du Tonnerre Dispersé cultivaient.
 
 Au sein du clan, une fois devenu adulte et ayant atteint un certain niveau de culture, on quittait les trois planètes mères pour rejoindre les treize autres planètes de culture. On pouvait y chercher sa propre grotte, en recevoir une, en ouvrir une ou même en voler une.
 
@@ -104,13 +104,13 @@ Les faibles étaient éliminés!
 
 L'horizon devant lui semblait sans fin. Son humeur était empreinte de lâcheté et d'une pointe de tristesse.
 
-« Je me déteste de ne pas avoir de talent. Je me déteste d'être un cultivateur. Je me déteste d'appartenir au Clan du Tonnerre Éparpillé! » marmonna le jeune homme, le visage crispé.
+« Je me déteste de ne pas avoir de talent. Je me déteste d'être un cultivateur. Je me déteste d'appartenir au Clan du Tonnerre Dispersé! » marmonna le jeune homme, le visage crispé.
 
 Son émotion violente fit trembler ses blessures, le forçant à cracher du sang. Il s'effondra au sol et observa les éclairs qui zébrèrent le ciel. La tristesse dans ses yeux s'intensifia.
 
 « Je ne veux pas être un cultivateur... Je veux vivre la vie d'un mortel... » Les yeux du jeune homme devinrent vitreux, mais il lutta pour lever sa main droite et contempler ses doigts. Un instant plus tard, la folie envahit son regard et, avec ses dernières forces, il tendit la main vers la marque de tonnerre entre ses sourcils et l'arracha sans pitié.
 
-Le sang et la chair volèrent en éclats. Il venait de s'arracher la marque du Clan du Tonnerre Éparpillé.
+Le sang et la chair volèrent en éclats. Il venait de s'arracher la marque du Clan du Tonnerre Dispersé.
 
 Il ferma progressivement les yeux avec un sourire misérable...
 

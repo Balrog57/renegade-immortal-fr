@@ -28,7 +28,7 @@ Seuls les trésors d'héritage exigeaient non seulement une empreinte du Sens Di
 
 Par conséquent, les trésors magiques dotés d'un héritage étaient bien plus prisés que les autres trésors de même rang.
 
-Le Drapeau de l'Âme Billionnaire et le Char de Guerre Destructeur de Wang Lin étaient de ce type. Il ferma les yeux et se plongea dans la réflexion sur les secrets de l'héritage. Toutefois, seuls les grands maîtres du raffinage possédaient les méthodes nécessaires pour créer de tels objets. Ces techniques n'étaient pas facilement diffusées et ces trésors étaient rarement fabriqués. C'était là tout le fondement de leur rareté.
+Le Drapeau de l'Âme Billionnaire et le Char de Guerre Divin de Wang Lin étaient de ce type. Il ferma les yeux et se plongea dans la réflexion sur les secrets de l'héritage. Toutefois, seuls les grands maîtres du raffinage possédaient les méthodes nécessaires pour créer de tels objets. Ces techniques n'étaient pas facilement diffusées et ces trésors étaient rarement fabriqués. C'était là tout le fondement de leur rareté.
 
 Peu de temps après, Wang Lin ouvrit les yeux. Il fronça les sourcils et grommela: « Un héritage... Je ne parviens pas à percer son secret. Peut-être est-ce ma façon de raisonner qui fait défaut. Je n'ai pas besoin de trouver comment imposer un héritage, mais simplement d'y placer une restriction. Ensuite, je vendrai le jade contenant la méthode pour lever cette restriction avec le trésor. De cette manière, bien qu'il n'ait pas d'héritage réel, il en aura le même effet. »
 

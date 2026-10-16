@@ -24,15 +24,15 @@ L'estimable Ling Dong s'avança et s'arrêta à cent pieds de Wang Lin. Il s'age
 
 « Maître!! » Ce mot parvint aux oreilles de Zhou Jin et le fit sursauter. L'incrédulité se lut dans ses yeux. Les cultivateurs du troisième niveau étaient les existences les plus puissantes, et ils étaient très peu nombreux; chacun d'entre eux était extrêmement célèbre. Comment pouvaient-ils reconnaître quelqu'un comme leur maître, d'autant plus un être n'ayant même pas encore atteint le troisième niveau?
 
-« Raffine-le! » Wang Lin fit un geste de la main et l'Autel Impérial changea brusquement de forme. Dix-huit Feuilles Anciennes se posèrent sur l'Autel Impérial pour le sceller. Puis, les âmes apparurent et entamèrent le processus de raffinage.
+« Raffine-le! » Wang Lin fit un geste de la main et le Fourneau Impérial changea brusquement de forme. Dix-huit Feuilles Anciennes se posèrent sur le Fourneau Impérial pour le sceller. Puis, les âmes apparurent et entamèrent le processus de raffinage.
 
 L'estimable Ling Dong pénétra dans le royaume de l'océan empoisonné avec l'aide de Wang Lin. Il flotta dans les airs et commença le processus de raffinage d'esclave! Zhou Jin différait de Ling Dong; il était un véritable cultivateur du troisième niveau, il ne serait donc pas aisé de le transformer en esclave. Même le Dao des Rêves ne ferait qu'augmenter les chances de succès après que Wang Lin eut brisé l'état mental de Zhou Jin.
 
-À présent, Zhou Jin était oppressé dans l'Autel Impérial, sous la garde de Ling Dong et sous le sceau des dix-huit Feuilles Anciennes. Plus important encore, les neuf gouttes de poison l'entouraient, ce qui permettait à Wang Lin d'être certain que Zhou Jin ne pourrait pas s'échapper.
+À présent, Zhou Jin était oppressé dans le Fourneau Impérial, sous la garde de Ling Dong et sous le sceau des dix-huit Feuilles Anciennes. Plus important encore, les neuf gouttes de poison l'entouraient, ce qui permettait à Wang Lin d'être certain que Zhou Jin ne pourrait pas s'échapper.
 
-Il n'y avait que neuf gouttes de poison, il ne voulait donc pas les gaspiller. Pour l'instant, elles suffisaient à maintenir Zhou Jin captif. De plus, Wang Lin ne souhaitait pas tuer Zhou Jin. S'il parvenait à obtenir deux esclaves anciens, alors, une fois de retour dans le Royaume Intérieur, son grand ennemi, le Daoïste de l'Eau, ne pourrait que fuir dans la terreur.
+Il n'y avait que neuf gouttes de poison, il ne voulait donc pas les gaspiller. Pour l'instant, elles suffisaient à maintenir Zhou Jin captif. De plus, Wang Lin ne souhaitait pas tuer Zhou Jin. S'il parvenait à obtenir deux esclaves anciens, alors, une fois de retour dans le Royaume Intérieur, son grand ennemi, Shui Daozi, ne pourrait que fuir dans la terreur.
 
-Les étoiles du Dieu Ancien de Wang Lin scintillèrent et il rangea l'Autel Impérial. Il baissa ensuite le regard vers la terre en contrebas.
+Les étoiles du Dieu Ancien de Wang Lin scintillèrent et il rangea le Fourneau Impérial. Il baissa ensuite le regard vers la terre en contrebas.
 
 L'intérieur de la forêt était vide, ne laissant que quelques arbres sur les lisières. Au centre, là où la Cupidité avait trouvé la statue, le vortex flottait toujours.
 
@@ -42,7 +42,7 @@ Ce vortex était crucial pour Wang Lin. Il l'avait scanné avec son Sens Divin, 
 
 Après mûre réflexion, Wang Lin ne prit pas de risque inconsidéré. Ses mains formèrent des sceaux et une multitude de restrictions remplirent le ciel, scellant ainsi les lieux.
 
-Wang Lin consacra plusieurs jours à sceller complètement cet endroit. Puis, il sitta en avant et quitta la dimension où se trouvait la forêt.
+Wang Lin consacra plusieurs jours à sceller complètement cet endroit. Puis, il fit un pas en avant et quitta la dimension où se trouvait la forêt.
 
 Lorsqu'il réapparut, il se trouvait dans le brouillard, à l'intérieur du Dieu Ancien. Il commença par déployer des restrictions pour isoler la zone de l'extérieur avant de pouvoir enfin se détendre. Même si quelqu'un obtenait une Feuille Ancienne et venait ici, il devrait d'abord briser les sceaux en place. L'endroit serait semé d'embûches.
 
@@ -84,7 +84,7 @@ Ses yeux étaient clos, comme si elle dormait. Wang Lin fixa son front et, aprè
 
 La jeune fille trembla, mais même après le passage de la main de Wang Lin, la marque restait intacte.
 
-Wang Lin réfléchit un instant et sortit la Bouteille d'Âme Ancienne de son espace de stockage. Sa main droite frappa la bouteille et une âme de démon ancien en sortit dans un rugissement. Dès qu'elle apparut, Wang Lin l'attrapa et l'écrasa. Un cri lugubre retentit et la puissance du démon ancien imprégna sa main droite. Les yeux de Wang Lin brillèrent alors qu'il fusionnait son pouvoir de Dieu Ancien avec cette essence.
+Wang Lin réfléchit un instant et sortit la Bouteille d'Âme Ancienne de son espace de stockage. Sa main droite frappa la bouteille et une âme de diable ancien en sortit dans un rugissement. Dès qu'elle apparut, Wang Lin l'attrapa et l'écrasa. Un cri lugubre retentit et la puissance du diable ancien imprégna sa main droite. Les yeux de Wang Lin brillèrent alors qu'il fusionnait son pouvoir de Dieu Ancien avec cette essence.
 
 Le temps s'écoulait lentement. La fusion ne parvenait pas à s'achever, comme si un élément faisait défaut.
 
@@ -92,9 +92,9 @@ Le temps s'écoulait lentement. La fusion ne parvenait pas à s'achever, comme s
 
 À cet instant, le Sens Divin de Wang Lin balaya l'objet; il comprit qu'il s'agissait d'un trésor de démon ancien contenant une part de leur essence.
 
-Après l'avoir sortie, il la frappa et une énergie de démon ancien en jaillit. Sa main gauche saisit une partie de cette énergie pour la fusionner avec le pouvoir du démon ancien et celui du Dieu Ancien contenus dans sa main droite.
+Après l'avoir sortie, il la frappa et une énergie de démon ancien en jaillit. Sa main gauche saisit une partie de cette énergie pour la fusionner avec le pouvoir du diable ancien et celui du Dieu Ancien contenus dans sa main droite.
 
-Les trois clans de l'Ordre Ancien virent leurs trois auras se rassembler instantanément et fusionner dans la paume de Wang Lin, formant une force unique. Elle était bien plus puissante que les pouvoirs de Dieu Ancien, de démon ancien ou de démon ancien pris séparément. En tenant cette force, Wang Lin avait l'impression de tenir le monde entier.
+Les trois clans de l'Ordre Ancien virent leurs trois auras se rassembler instantanément et fusionner dans la paume de Wang Lin, formant une force unique. Elle était bien plus puissante que les pouvoirs de Dieu Ancien, de diable ancien ou de démon ancien pris séparément. En tenant cette force, Wang Lin avait l'impression de tenir le monde entier.
 
 Sans hésiter, il passa sa main sur le front de la jeune fille. Celle-ci ouvrit les yeux et poussa un cri déchirant. La marque numérique entre ses sourcils venait d'être effacée par Wang Lin!
 

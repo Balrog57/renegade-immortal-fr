@@ -32,7 +32,7 @@ Une trace d'énergie spirituelle céleste imprégnait ce vortex, donnant à Wang
 
 À cet instant précis, Wang Lin agita la main. Prenant lui-même comme centre, le vortex trembla et tourna à l'envers. Un grondement tonitruant retentit alors qu'il s'élevait dans les airs!
 
-On aurait dit un vortex de trois cents mètres s'élançant vers les cieux pour s'y connecter! Le tumulte continua tandis que le vortex aspirait Wang Lin; on ne pouvait plus distinguer que sa silhouette.
+On aurait dit un vortex de mille pieds s'élançant vers les cieux pour s'y connecter! Le tumulte continua tandis que le vortex aspirait Wang Lin; on ne pouvait plus distinguer que sa silhouette.
 
 Alors que le vortex montait, les dix mille gouttes de pluie jaillirent. Elles sifflèrent dans l'air comme si la terre était devenue le ciel. La pluie naissait de la terre pour remonter vers les cieux, avant de mourir à l'horizon!
 
@@ -66,7 +66,7 @@ Une autre chaîne sortit de la formation et resta suspendue. Une à une, les cha
 
 À cet instant, un rugissement sourd émana de la formation. Ce son portait en lui une sensation de déchirement; l'entendre donnait l'impression que l'âme originelle elle-même était en train d'être lacérée.
 
-Une silhouette sortit de la formation. Dès qu'elle apparut, une odeur de cadavre en décomposition emplit les environs. Cet être mesurait trente mètres de haut et était entièrement pourpre. Ce n'était pas une créature vivante, mais un cadavre!
+Une silhouette sortit de la formation. Dès qu'elle apparut, une odeur de cadavre en décomposition emplit les environs. Cet être mesurait cent pieds de haut et était entièrement pourpre. Ce n'était pas une créature vivante, mais un cadavre!
 
 Ce cadavre était entouré de multiples chaînes. Celles qui pendaient plus tôt étaient les mêmes qui enchaînaient son corps.
 
@@ -88,7 +88,7 @@ Les deux cadavres argentés étaient un homme et une femme. Bien que leurs expre
 
 Le dernier cadavre raffiné ne pouvait même plus être qualifié de cadavre. C'était un homme d'âge moyen vêtu d'une robe de dragon; il ressemblait à un empereur mortel!
 
-Il n'avait aucune chaîne autour de lui; seules cinq talismans jaunes flottaient autour de sa tête. Des éclairs jaillissaient, créant une connexion étroite entre les talismans.
+Il n'avait aucune chaîne autour de lui; seuls cinq talismans jaunes flottaient autour de sa tête. Des éclairs jaillissaient, créant une connexion étroite entre les talismans.
 
 L'aura des cinq éléments émanait de son corps. Dès que Wang Lin vit cet homme, il pensa immédiatement aux cinq éléments et à la première fois qu'il avait rencontré Papillon Rouge!
 
@@ -96,7 +96,7 @@ L'aura des cinq éléments émanait de son corps. Dès que Wang Lin vit cet homm
 
 S'il pouvait obtenir un mérite, il le prendrait; sinon, il se concentrerait uniquement sur sa survie!
 
-« Je ne sais pas où se trouve le Frère Aîné Qing Shu, mais je crois qu'il doit être dans les parages! » Wang Lin continua de reculer, mais la femme en robe bleue n'avait aucune intention de le laisser filer. Elle pointa sa main de jade et un cadavre raffiné ordinaire fixa Wang Lin avant de s'élancer à sa poursuite.
+« Je ne sais pas où se trouve le Senior Frère Qing Shu, mais je crois qu'il doit être dans les parages! » Wang Lin continua de reculer, mais la femme en robe bleue n'avait aucune intention de le laisser filer. Elle pointa sa main de jade et un cadavre raffiné ordinaire fixa Wang Lin avant de s'élancer à sa poursuite.
 
 L'expression de Wang Lin devint sombre. S'il devait affronter un Scruteur du Nirvana au stade intermédiaire avec son corps et ses sorts actuels, il pourrait l'emporter. Cependant, face à un Scruteur du Nirvana au stade avancé, il devrait déployer toutes ses capacités pour espérer une victoire, et les variables étaient trop nombreuses.
 

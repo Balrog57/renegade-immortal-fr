@@ -24,7 +24,7 @@ Si Situ Nan n'était pas allé vers Wang Lin, le Maître Fu Fengzi ne serait pas
 
 Les êtres ayant atteint son niveau de culture étaient assez directs. Pourtant, après plusieurs rencontres avec Wang Lin, ses sentiments étaient complexes. Wang Lin l'avait laissé partir à deux reprises. Bien que ce ne fût que pour obtenir son aide dans la Terre des Esprits Démoniaques, c'était lui qui avait eu tort les deux fois, il n'éprouvait donc aucune rancune.
 
-Par conséquent, s'il n'intervenait pas maintenant, cela serait déraisonnable. Les yeux du Maître Fu Fengzi s'illuminèrent et il renonça à soigner ses propres blessures. Alors que Situ Nan se trouvait à moins de cinq kilomètres du palais de Wang Lin, ce dernier apparut devant lui.
+Par conséquent, s'il n'intervenait pas maintenant, cela serait déraisonnable. Les yeux du Maître Fu Fengzi s'illuminèrent et il renonça à soigner ses propres blessures. Alors que Situ Nan se trouvait à moins de cinq kilomètres du palais de Wang Lin, le Maître Fu Fengzi apparut devant lui.
 
 L'expression du Maître Fu Fengzi était calme lorsqu'il dit lentement: « Confrère cultivateur, puisque vous avez déjà pris les personnes que vous convoitez, le mieux serait de partir! »
 
@@ -54,7 +54,7 @@ Ce coup créa un bang sonique qui chargea vers Situ Nan.
 
 Surpris, Situ Nan examina attentivement Ta Shan avant de le pointer du doigt. Le corps de Ta Shan trembla et il fut balayé par la force.
 
-« Intéressant... un Purificateur du Nirvana, un Voyant du Nirvana et une marionnette dotée d'un corps aussi puissant. Il faut absolument que je voie ce cultivateur nommé Wang qu'ils gardent ainsi. »
+« Intéressant... un Purificateur du Nirvana, un Scruteur du Nirvana et une marionnette dotée d'un corps aussi puissant. Il faut absolument que je voie ce cultivateur nommé Wang qu'ils gardent ainsi. »
 
 Riant de bon cœur, Situ Nan s'approcha à moins de mille pieds du palais. Au moment où il atterrit, il fut saisi de stupeur, affichant une expression extrêmement étrange, la bouche bée. Il ne pouvait croire ce qu'il voyait. Après tout, ce que son Sens Divin lui avait montré différait grandement de la réalité physique.
 

@@ -6,13 +6,13 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1532 - Old Ghost Zhan!"
 slug: vieux-fantome-zhan
 ---
-Le Royaume Intérieur était plongé dans un silence absolu. Les cultivateurs du troisième niveau qui combattaient Maître Nuage Sud et Maître Hong Shan s'étaient retirés de la bataille. Ils observaient la scène avec froideur sur le côté.
+Le Royaume Intérieur était plongé dans un silence absolu. Les cultivateurs du troisième niveau qui combattaient Maître Nan Yunzi et Maître Hong Shan s'étaient retirés de la bataille. Ils observaient la scène avec froideur sur le côté.
 
-Cependant, l'impératrice céleste rouge affichait une expression sombre. Elle n'avait pas prévu l'apparition de cet arc et, après avoir entendu les paroles de Feng Yi, une pointe de colère traversa son visage. Elle comprit qu'elle n'était qu'un pion entre les mains de quelqu'un.
+Cependant, la concubine impériale céleste rouge affichait une expression sombre. Elle n'avait pas prévu l'apparition de cet arc et, après avoir entendu les paroles de Feng Yi, une pointe de colère traversa son visage. Elle comprit qu'elle n'était qu'un pion entre les mains de quelqu'un.
 
-L’impératrice céleste rouge laissa échapper un ricanement glacial et lança un regard à Violette du Fleuve Invoqué. Sans accorder plus d'attention à qui que ce soit, elle s'élança vers l'ouverture de la Formation de Scellement du Royaume.
+La concubine impériale céleste rouge laissa échapper un ricanement glacial et lança un regard à Rêve Pourpre de la Rivière Invoquée. Sans accorder plus d'attention à qui que ce soit, elle s'élança vers l'ouverture de la Formation de Scellement du Royaume.
 
-Personne ne tenta de l'arrêter, et les yeux de Maître Nuage Sud s'illuminèrent. L'impératrice céleste rouge venait de pénétrer dans le Système Stellaire Antique et avait disparu sans laisser de trace.
+Personne ne tenta de l'arrêter, et les yeux de Maître Nan Yunzi s'illuminèrent. La concubine impériale céleste rouge venait de pénétrer dans le Système Stellaire Antique et avait disparu sans laisser de trace.
 
 Quant au jeune homme au regard froid et aux autres, ils restèrent silencieux, plongés dans leurs pensées, tandis qu'ils se retiraient et quittaient l'ouverture un à un.
 
@@ -26,9 +26,9 @@ Le visage de Wang Lin était également pâle. Il fut contraint de reculer de pl
 
 Le regard de Maître Hong Shan se durcit. Tout en reculant, il fit un pas en avant et agita sa main droite. Une lumière rouge jaillit et fonça vers la paume qui déchirait la formation.
 
-Au même instant, Maître Nuage Sud frappa son front de la paume. Son corps trembla et des ombres nuageuses apparurent derrière lui. Ces nuages se condensèrent en statues alignées pour former une matrice de combat, lesquelles suivirent le rayon rouge de Maître Hong Shan vers la paume géante.
+Au même instant, Maître Nan Yunzi frappa son front de la paume. Son corps trembla et des ombres nuageuses apparurent derrière lui. Ces nuages se condensèrent en statues alignées pour former une matrice de combat, lesquelles suivirent le rayon rouge de Maître Hong Shan vers la paume géante.
 
-Violette du Fleuve Invoqué, la belle femme d'âge mûr, Maître Lu Fu et Tai Aluo attaquèrent tous simultanément. Divers sorts furent lancés et fusionnèrent avec ceux de Maître Hong Shan et de Maître Nuage Sud, créant une tempête dévastatrice qui s'abattit sur la paume géante!
+Rêve Pourpre de la Rivière Invoquée, la belle femme d'âge mûr, Maître Lu Fu et Tai Aluo attaquèrent tous simultanément. Divers sorts furent lancés et fusionnèrent avec ceux de Maître Hong Shan et de Maître Nan Yunzi, créant une tempête dévastatrice qui s'abattit sur la paume géante!
 
 Sur l'ordre de Wang Lin, l'Estimé Ling Dong et Zhou Jin lancèrent également leurs sorts. On pourrait dire que tous les cultivateurs du troisième niveau du Royaume Intérieur avaient uni leurs forces pour engendrer cette tempête.
 
@@ -42,11 +42,11 @@ Des grondements tonitruants ébranlèrent le système stellaire. Tous, dans les 
 
 Tandis que le tonnerre résonnait, Maître Hong Shan et ses compagnons crachèrent du sang et reculèrent promptement. Sous l'impact violent, quatre des cinq doigts de la paume s'effondrèrent instantanément!
 
-C'est à cet instant précis que le coup de l'Ordre Ancien de Wang Lin atteignit le dernier doigt. Un fracas de tonnerre retentit, le corps de Wang Lin trembla et du sang coula au coin de sa bouche. Une douleur fulgurante irradia de sa main droite, comme si ses os s'étaient brisés.
+C'est à cet instant précis que le coup de l'Ordre Antique de Wang Lin atteignit le dernier doigt. Un fracas de tonnerre retentit, le corps de Wang Lin trembla et du sang coula au coin de sa bouche. Une douleur fulgurante irradia de sa main droite, comme si ses os s'étaient brisés.
 
 Il recula une fois de plus.
 
-Lorsque le dernier doigt fut frappé par le coup de l'Ordre Ancien de Wang Lin, il montra des signes d'effondrement imminent. À cet instant, le dragon démoniaque du démon ancien à neuf étoiles frappa et le dernier doigt céda! Seule la paume subsistait, repoussée par l'attaque combinée de tous les cultivateurs du troisième niveau du Royaume Intérieur!
+Lorsque le dernier doigt fut frappé par le coup de l'Ordre Antique de Wang Lin, il montra des signes d'effondrement imminent. À cet instant, le dragon démoniaque du démon ancien à neuf étoiles frappa et le dernier doigt céda! Seule la paume subsistait, repoussée par l'attaque combinée de tous les cultivateurs du troisième niveau du Royaume Intérieur!
 
 L'onde de choc se propagea dans la Formation de Scellement du Royaume, faisant trembler la structure et élargissant rapidement l'ouverture.
 

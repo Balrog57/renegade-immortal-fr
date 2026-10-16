@@ -106,7 +106,7 @@ Après ces trois pas, le visage du maître était pâle et son corps tremblait l
 
 C'était le huitième pas!
 
-Dès que le cinquième pas fut posé (en comptant l'élan), des craquements furent entendus dans le corps de Maître Pin Cendré et du sang coula du coin de sa bouche. Ses yeux étaient injectés de sang. Mille ans de préparation, et il se retrouvait stoppé par une formation. Il refusait de céder!
+Dès que le cinquième pas fut posé, des craquements furent entendus dans le corps de Maître Pin Cendré et du sang coula du coin de sa bouche. Ses yeux étaient injectés de sang. Mille ans de préparation, et il se retrouvait stoppé par une formation. Il refusait de céder!
 
 Rugissement!
 

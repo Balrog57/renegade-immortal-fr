@@ -14,7 +14,7 @@ Au cri de Wang Lin, les cultivateurs restants du Royaume Intérieur furent saisi
 
 « Tuez! »
 
-Parmi ceux qui s'élancèrent avec eux figuraient Qing Lin, Maître Hong Shan, la femme en violet du Fleuve Invoqué, ainsi que Mu Bingmei, la Secte de Dieu, et d'innombrables cultivateurs du Royaume Intérieur poussés à leurs derniers retranchements.
+Parmi ceux qui s'élancèrent avec eux figuraient Qing Lin, Maître Hong Shan, la femme en violet du Rivière Invoquée, ainsi que Mu Bingmei, la Secte Divine, et d'innombrables cultivateurs du Royaume Intérieur poussés à leurs derniers retranchements.
 
 Il restait moins de 80 000 membres du Royaume Intérieur, mais ces 80 000 âmes ne craignaient pas la mort. Sous le rugissement de Wang Lin, ils devinrent fous de rage!
 

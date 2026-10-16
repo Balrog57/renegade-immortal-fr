@@ -40,7 +40,7 @@ Cette méthode stimulait Qing Shui pour que l'essence du massacre en lui devienn
 
 Wang Lin ressentit une profonde empathie. Il connaissait vaguement l'histoire de Qing Shui, mais le fait de la voir de ses propres yeux lui infligea une tristesse encore plus vive. Il compatissait au destin de Qing Shui et pleurait ce que celui-ci avait dû endurer.
 
-« Frère aîné Qing Shui, je, Wang Lin, ferai tout mon possible pour vous sauver! » Wang Lin se détourna, refusant de contempler davantage les images dans le brouillard de sang. Il chargea vers la Tortue Noire qui emprisonnait Qing Shui!
+« Senior Frère Qing Shui, je, Wang Lin, ferai tout mon possible pour vous sauver! » Wang Lin se détourna, refusant de contempler davantage les images dans le brouillard de sang. Il chargea vers la Tortue Noire qui emprisonnait Qing Shui!
 
 Cette Tortue Noire était gigantesque, aussi vaste que ce Royaume aux Sept Couleurs. Bien qu'elle fût déjà changée en pierre, l'aura qu'elle dégageait était d'une puissance extrême. Wang Lin percevait distinctement cette aura émaner d'elle.
 
@@ -88,7 +88,7 @@ Le corps de Wang Lin trembla. Il sentit clairement d'innombrables rugissements p
 
 C'était la force physique de cent mille cultivateurs, décuplée par un sortilège mystérieux. Elle était suffisante pour blesser un Dieu Antique à sept étoiles!
 
-Pourtiment, Wang Lin ne recula pas d'un pouce, absorbant cette force au sein de son corps. Il poussa un rugissement et agita sa main droite pour repousser une fois de plus la lame de chair et de sang.
+Pourtant, Wang Lin ne recula pas d'un pouce, absorbant cette force au sein de son corps. Il poussa un rugissement et agita sa main droite pour repousser une fois de plus la lame de chair et de sang.
 
 « Pas assez de puissance, encore une fois! » Sa voix résonna. La lame de chair et de sang qui avait été repoussée redescendit avec fracas!
 

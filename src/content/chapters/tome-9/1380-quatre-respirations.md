@@ -10,13 +10,13 @@ Cinq respirations!
 
 Le temps nécessaire pour prendre cinq respirations pourrait être considéré comme un instant, mais c'était à peine plus lent qu'un éclair traversant le ciel!
 
-Que ce soit le Patriarche du Dragon Armuré, le vieil homme du Clan de l'Hirondelle de Feu ou Maître Simo, aucun d'entre eux ne croyait qu'il fût possible de clore le combat en seulement cinq respirations!
+Que ce soit le Patriarche du Clan du Dragon Blindé, le vieil homme du Clan des Moineaux de Feu ou Maître Simo, aucun d'entre eux ne croyait qu'il fût possible de clore le combat en seulement cinq respirations!
 
 Après tout, l'ennemi auquel Wang Lin faisait face était Maître Simo!
 
 Cependant, à ces mots, les yeux de Wang Lin brillèrent d'un éclat vif. Avant même que l'écho du « un » ne se dissipe, Wang Lin agita la main et libéra toute sa culture!
 
-L'End of Time était un sort que Maître Simo avait lui-même compris à partir de la Restriction Temporelle, tout comme le Temps Fluide de Wang Lin! Dès qu'il utilisa ce sort, une tempête éclata au cœur des Restrictions Temporelles.
+La Fin des Temps était un sort que Maître Simo avait lui-même compris à partir de la Restriction Temporelle, tout comme le Temps Fluide de Wang Lin! Dès qu'il utilisa ce sort, une tempête éclata au cœur des Restrictions Temporelles.
 
 Le monde inversé trembla violemment sous cette tempête. Le ciel prit une teinte jaune maladive et du pus commença à perler! La substance se rassembla puis rompit, libérant d'immenses quantités de liquide jaunâtre. Le monde entier devint désolé!
 
@@ -44,7 +44,7 @@ Avec ce mouvement, une empreinte de paume capable de faire trembler les cieux ap
 
 Des vagues de grondements tonitruants résonnèrent de toutes parts et le Bouclier d'Ombre et de Lumière se brisa! Cependant, à l'instant même de sa destruction, Wang Lin poussa un rugissement et en forma un second!
 
-Le processus se répéta. En cet bref instant, trois Boucliers d'Ombre et de Lumière apparurent successivement!
+Le processus se répéta. En ce bref instant, trois Boucliers d'Ombre et de Lumière apparurent successivement!
 
 Après la troisième occurrence, le bouclier s'effondra! Mais au moment de sa rupture, il renvoya la majeure partie de la puissance des Restrictions Temporelles et de l'empreinte de paume vers Maître Simo qui fonçait sur lui!
 
@@ -112,10 +112,10 @@ Si ce n'était le fait que son corps original était au troisième pas, lui perm
 
 Maître Simo avait raffiné cet avatar après avoir réalisé qu'il était resté bloqué trop longtemps au début du Nirvana Vide et ne parvenait pas à obtenir assez d'esprits du Dao. Il avait créé cet avatar dans l'espoir qu'il atteigne le troisième pas et aide à accroître sa culture.
 
-Alors que l'avatar de Maître Simo était repoussé par l'explosion, Wang Lin fit un pas en avant et agita la main droite. Les Cristaux de Mutation du Feu Ardant qu'il avait raffinés furent projetés.
+Alors que l'avatar de Maître Simo était repoussé par l'explosion, Wang Lin fit un pas en avant et agita la main droite. Les Cristaux de Mutation de Feu Déchaîné qu'il avait raffinés furent projetés.
 
-« Explose! » rugit Wang Lin tandis que les Cristaux de Mutation du Feu Ardant convergeaient vers Maître Simo. Tout comme la pilule dorée, les cristaux entamèrent une seconde vague de destruction!
+« Explose! » rugit Wang Lin tandis que les Cristaux de Mutation de Feu Déchaîné convergeaient vers Maître Simo. Tout comme la pilule dorée, les cristaux entamèrent une seconde vague de destruction!
 
 Tout cela semble long, mais en réalité, tout se produisit en un instant!
 
-« Pas bon! » Le Patriarche du Dragon Armuré suivait attentivement la bataille. En voyant cela, son expression changea radicalement!
+« Pas bon! » Le Patriarche du Clan du Dragon Blindé suivait attentivement la bataille. En voyant cela, son expression changea radicalement!

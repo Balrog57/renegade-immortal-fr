@@ -36,7 +36,7 @@ Un bang assourdissant secoua l'espace alors que le corps de Maître Nuage-Âme t
 
 Wang Lin n'eut pas le temps de laisser son épée de fer achever son assaut. Une lueur glaciale passa dans ses yeux. Ce n'était pas une surprise; un cultivateur du stade intermédiaire du Briseur du Nirvana ne tombait pas facilement. Son but était de le blesser! Tout cela n'était qu'une préparation pour la suite!
 
-Alors que Wang Lin reculait, sur le point de s'engouffrer totalement dans la faille, Maître Nuage-Âme se rapprocha et n'était plus qu'à quelques centimètres de l'entrée. Il leva la main, prêt à lancer un sort, mais à cet instant précis, Wang Lin esquissa un sourire qui n'en était pas un. Il ouvrit la bouche et hurla: « Arrête! »
+Alors que Wang Lin reculait, sur le point de s'engouffrer totalement dans la faille, Maître Nuage-Âme se rapprocha et avait déjà commencé à s'engager dans la faille. Il leva la main, prêt à lancer un sort, mais à cet instant précis, Wang Lin esquissa un sourire qui n'en était pas un. Il ouvrit la bouche et hurla: « Arrête! »
 
 L'énergie d'origine céleste qui bouillonnait en lui jaillit avec frénésie pour se transformer en un Sort de Stase qui enveloppa Maître Nuage-Âme. En un clin d'œil, le corps de ce dernier se figea!
 
@@ -58,11 +58,11 @@ Le ciel et la terre existaient ici, mais le firmament irradiait une lueur aux se
 
 Wang Lin ne prit pas le temps d'examiner les environs. Ses yeux s'animèrent alors qu'il inspectait les autres personnes téléportées ici. Maître Nuage-Âme n'était pas là! En constatant cela, Wang Lin se détendit légèrement. Il avait tenté un pari risqué, et il venait de gagner! Son acte avait été extrêmement périlleux. Maître Nuage-Âme n'était pas préparé, et son sort avait été interrompu par la stase. Si le sort de l'autre avait été lancé, les choses ne se seraient pas terminées si vite.
 
-Tous se trouvaient sur une sorte d'autel d'à peine huit cents mètres de large. Le vieil homme nommé Pang observa les alentours en songeant au passé. C'était sa troisième visite ici. La première fois, beaucoup de leurs compagnons étaient morts. La deuxième, le carnage fut encore plus grand. Aujourd'hui, incluant lui-même, ils n'étaient plus que trois.
+Tous se trouvaient sur une sorte d'autel d'à peine mille pieds de large. Le vieil homme nommé Pang observa les alentours en songeant au passé. C'était sa troisième visite ici. La première fois, beaucoup de leurs compagnons étaient morts. La deuxième, le carnage fut encore plus grand. Aujourd'hui, incluant lui-même, ils n'étaient plus que trois.
 
 Le garçon nommé Duanmu fixait la brume devant lui en se léchant les lèvres, murmurant: « Ce brouillard n'est pas de la brume stellaire... »
 
-Chen Tianjun, de la Secte de la Bête de Combat, manifesta une vive excitation dès son arrivée. Il prit plusieurs inspirations profondes, le regard brillant d'une lueur étrange.
+Chen Tianjun, de la Secte des Bêtes de Bataille, manifesta une vive excitation dès son arrivée. Il prit plusieurs inspirations profondes, le regard brillant d'une lueur étrange.
 
 Seule la vieille femme en vert fronça légèrement les sourcils; nul ne savait à quoi elle pensait.
 

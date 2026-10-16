@@ -26,7 +26,7 @@ Face à ces deux âmes puissantes, même Noble Argent se montra extrêmement pru
 
 L'âme d'Omniscient semblait presque avoir sombré dans la folie, formant frénétiquement des sceaux pour lancer des sorts. Ces derniers étaient souvent flous et immatériels, mais ils dirigeaient les lois du monde vers Noble Argent.
 
-Il y avait aussi l'âme de Maître Vide. Ayant atteint sa première Affliction Céleste avant de mourir, il agita ses manches et une tempête de tonnerre surgit pour contrer le sort de Noble Argent.
+Il y avait aussi l'âme de Maître Vide. Ayant atteint son premier Fléau Céleste avant de mourir, il agita ses manches et une tempête de tonnerre surgit pour contrer le sort de Noble Argent.
 
 Si Wang Lin n'avait pas eu la contrainte du temps, il aurait pu utiliser Maître Vide et Omniscient pour épuiser et broyer Noble Argent. Cependant, il manquait de temps et d'énergie originelle céleste pour maintenir ces deux âmes puissantes.
 
@@ -100,7 +100,7 @@ Instantanément, une tempête éclata au loin, la brume tourbillonnant violemmen
 
 Le Doigt du Destin Céleste!
 
-Wang Lin utilisa sa propre puissance et l'âme de l'Omniscient comme guide. Le Doigt du Destin Céleste descendit sur le Système Stellaire de la Mer Nuageuse. Il progressait avec une célérité et un élan inimaginables vers Noble Argent. Malgré tous ses efforts, il fut incapable d'esquiver le doigt qui finit par l'écraser.
+Wang Lin utilisa sa propre puissance et l'âme de l'Omniscient comme guide. Le Doigt du Destin Céleste descendit sur le Système Stellaire de la Mer des Nuages. Il progressait avec une célérité et un élan inimaginables vers Noble Argent. Malgré tous ses efforts, il fut incapable d'esquiver le doigt qui finit par l'écraser.
 
 Alors que le Doigt du Destin Céleste balayait tout sur son passage, l'âme de Noble Argent s'effondra en une multitude de particules de lumière. Le Doigt du Destin Céleste disparut avec lui.
 
@@ -120,9 +120,9 @@ Les cultivateurs de la région de rang 6 trouvèrent naturellement le cadavre da
 
 Un courant souterrain commença à s'agiter dans la région de rang 5.
 
-De retour sur le continent de Mo Luo, Wang Lin se transforma en un rayon de lumière et se dirigea vers la Secte Originelle. Il savait que la région de rang 5 allait sombrer dans le chaos. Les cultivateurs du rang 6 allaient intensifier leurs recherches, et à ce moment-là, son identité au sein de la Secte Originelle deviendrait cruciale.
+De retour sur le continent de Mo Luo, Wang Lin se transforma en un rayon de lumière et se dirigea vers la Secte de l'Origine. Il savait que la région de rang 5 allait sombrer dans le chaos. Les cultivateurs du rang 6 allaient intensifier leurs recherches, et à ce moment-là, son identité au sein de la Secte de l'Origine deviendrait cruciale.
 
-Le retour de Wang Lin ne suscita pas trop d'attention au sein de la Secte Originelle. Il apparut instantanément dans la cour sud. Dès son arrivée, il vit Xu Yun assise devant la maison, dont l'expression était frappée de stupeur.
+Le retour de Wang Lin ne suscita pas trop d'attention au sein de la Secte de l'Origine. Il apparut instantanément dans la cour sud. Dès son arrivée, il vit Xu Yun assise devant la maison, dont l'expression était frappée de stupeur.
 
 « Tu... » Xu Yun allait parler, mais Wang Lin ne lui prêta aucune attention et agita ses manches. Une quantité massive d'herbes apparut, formant rapidement une petite montagne entre eux.
 
@@ -140,7 +140,7 @@ En observant les fils blancs dans sa paume, une froideur glaciale s'empara de so
 
 Il avait consacré tout son voyage de retour à cette tâche; il ne restait donc plus beaucoup de fils blancs en lui.
 
-Trois jours après son retour à la Secte Originelle, Wang Lin avait fini d'expulser toutes les lignes blanches. Après avoir broyé la dernière, ses yeux brillèrent.
+Trois jours après son retour à la Secte de l'Origine, Wang Lin avait fini d'expulser toutes les lignes blanches. Après avoir broyé la dernière, ses yeux brillèrent.
 
 Sa main droite plongea dans le vide pour faire apparaître son espace de stockage. Le jade et la recette de pilule gravée sur l'os de bête volèrent vers sa main.
 

@@ -8,31 +8,31 @@ slug: arc-en-ciel
 ---
 Un rire arrogant résonna. Outre le vieil homme, il y avait aussi un jeune homme vêtu de pourpre. Son éclat de rire se propagea à travers le monde, empreint d'excitation et d'arrogance.
 
-« Désormais, cette Secte Origin appartient à ce jeune maître! »
+« Désormais, cette Secte de l'Origine appartient à ce jeune maître! »
 
-Un grondement tonnerre retentit alors que la bête spirituelle noire géante pénétrait sur le continent de Mo Luo. Le vieil homme, debout sur la tête de la créature monumentale, regarda le jeune homme avec une affection protectrice et sourit.
+Un grondement de tonnerre retentit alors que la bête spirituelle noire géante pénétrait sur le continent de Mo Luo. Le vieil homme, debout sur la tête de la créature monumentale, regarda le jeune homme avec une affection protectrice et sourit.
 
-Tandis que le jeune homme riait, la bête spirituelle noire sous ses pieds chargea à une vitesse inimaginable vers la Secte Origin, situé à l'est du continent.
+Tandis que le jeune homme riait, la bête spirituelle noire sous ses pieds chargea à une vitesse inimaginable vers la Secte de l'Origine, située à l'est du continent.
 
-« Le jeune maître du Dao Pourpre est arrivé. Pourquoi la Secte Origin ne vient-il pas l'accueillir?! » Une voix vieille et lugubre résonna, suivant le rugissement tonnerre de la bête. L'unique secte du continent, la Secte Origin, entendit ces paroles avec une clarté absolue. Le vieil homme savait que son jeune maître aimait agir de manière dominante en public. Normalement, il n'aurait pas agi ainsi, mais en cet instant, le destin de la Secte Origin reposait entre ses mains. Il choisit donc d'accompagner l'arrogance du jeune maître. D'un revers de main, le vieil homme projeta une bourrasque de vent pourpre.
+« Le jeune maître du Dao Pourpre est arrivé. Pourquoi la Secte de l'Origine ne vient-elle pas l'accueillir?! » Une voix vieille et lugubre résonna, suivant le rugissement du tonnerre de la bête. L'unique secte du continent, la Secte de l'Origine, entendit ces paroles avec une clarté absolue. Le vieil homme savait que son jeune maître aimait agir de manière dominante en public. Normalement, il n'aurait pas agi ainsi, mais en cet instant, le destin de la Secte de l'Origine reposait entre ses mains. Il choisit donc d'accompagner l'arrogance du jeune maître. D'un revers de main, le vieil homme projeta une bourrasque de vent pourpre.
 
 Toute la pluie qui tombait fut repoussée. C'était comme si les précipitations devaient s'arrêter partout où passait cette rafale! Même les éclairs furent déchirés par le souffle du vent, se dispersant tels des fleurs épanouies.
 
-À cet instant, tous les disciples de la Secte Origin sortirent de leur culture. Leurs visages étaient pâles, accablés par une pression puissante venant de l'ouest, une force qui semblait pouvoir les écraser à tout moment.
+À cet instant, tous les disciples de la Secte de l'Origine sortirent de leur culture. Leurs visages étaient pâles, accablés par une pression puissante venant de l'ouest, une force qui semblait pouvoir les écraser à tout moment.
 
-Au sommet de la montagne orientale de la Secte Origin, l'homme d'âge mûr parmi les quatre anciens affichait une expression amère. Il ferma silencieusement les yeux, avant de les rouvrir avec véhémence. Se transformant en un rayon de lumière, il s'élança vers l'ouest.
+Au sommet de la montagne orientale de la Secte de l'Origine, l'homme d'âge mûr parmi les quatre anciens affichait une expression amère. Il ferma silencieusement les yeux, avant de les rouvrir avec véhémence. Se transformant en un rayon de lumière, il s'élança vers l'ouest.
 
 « Maître vient à peine de quitter ce monde et la Secte du Dao Pourpre fait déjà preuve d'une telle arrogance. J'ai tout enduré jusqu'ici, mais pourquoi ne pas laisser moi, Li Xiangdong, être arrogant pour une fois? Même si je meurs, je mourrai l'esprit indomptable! »
 
-Un soupir s'éleva des sommets du nord et de l'ouest. Deux vieillards s'envolèrent et se regardèrent avant de foncer vers l'ouest. C'était le moment fatidique pour la Secte Origin, et ils ne pouvaient plus supporter davantage!
+Un soupir s'éleva des sommets du nord et de l'ouest. Deux vieillards s'envolèrent et se regardèrent avant de foncer vers l'ouest. C'était le moment fatidique pour la Secte de l'Origine, et ils ne pouvaient plus supporter davantage!
 
 Pourtant, même s'ils ne pouvaient plus le tolérer, que pouvaient-ils faire? Osaient-ils tuer le jeune maître de la Secte du Dao Pourpre? De plus, la puissance contenue dans les paroles de ce vieil homme suffisait à ébranler leurs cœurs.
 
-« Song Wude... Il avait perdu contre Maître autrefois. Maintenant que Maître est mort, il vient en personne... Se pourrait-il que ma Secte Origin soit vraiment destiné à sombrer dans la déchéance pour l'éternité... » Au sommet de la montagne du sud, Lu Yanfei se tenait dans le pavillon rouge, vêtue d'une robe écarlate. Son visage était empreint de tristesse et d'intention meurtrière. Sans hésiter, elle s'élança en un rayon de lumière rouge vers l'ouest.
+« Song Wude... Il avait perdu contre Maître autrefois. Maintenant que Maître est mort, il vient en personne... Se pourrait-il que ma Secte de l'Origine soit vraiment destiné à sombrer dans la déchéance pour l'éternité... » Au sommet de la montagne du sud, Lu Yanfei se tenait dans le pavillon rouge, vêtue d'une robe écarlate. Son visage était empreint de tristesse et d'intention meurtrière. Sans hésiter, elle s'élança en un rayon de lumière rouge vers l'ouest.
 
 « Lu Di, même si moi, Lu Yanfei, je dois mourir, je ne céderai pas devant vous!!! » Lu Yanfei se mordit la lèvre inférieure en volant. Des larmes coulèrent sur ses joues et se mêlèrent à la pluie; il était impossible de distinguer ses pleurs des précipitations...
 
-Derrière les quatre grands anciens de la Secte Origin, leurs disciples directs les suivaient. Ils volaient vers l'ouest, animés par la panique, la détermination ou la colère.
+Derrière les quatre grands anciens de la Secte de l'Origine, leurs disciples directs les suivaient. Ils volaient vers l'ouest, animés par la panique, la détermination ou la colère.
 
 Xu Yun comptait parmi eux. Son visage témoignait de sa volonté de mourir. Cependant, pour une raison inconnue, alors qu'elle volait, deux silhouettes apparurent dans son esprit.
 
@@ -40,13 +40,13 @@ L'une avait les cheveux noirs et était très svelte, mais demeurait toujours au
 
 Ces deux figures envahirent son esprit jusqu'à ce qu'elles finissent par se superposer.
 
-Wang Lin se tenait à l'intérieur du temple taoïste et regarda les rayons de lumière disparaître devant lui. Il secoua la tête et réfléchit sans hâte à l'endroit où il irait après la destruction de la Secte Origin.
+Wang Lin se tenait à l'intérieur du temple taoïste et regarda les rayons de lumière disparaître devant lui. Il secoua la tête et réfléchit sans hâte à l'endroit où il irait après la destruction de la Secte de l'Origine.
 
 Finalement, il fronça les sourcils et marmonna: « C'est vraiment encombrant... » Il agita ses manches et fit un pas en avant. Des ondulations apparurent sous ses pieds et il disparut du temple taoïste.
 
 Le python pourpre qui s'était tenu à l'écart depuis l'apparition de Wang Lin, toujours empreint de crainte, chargea soudainement. Il laissa échapper un rugissement vers la direction prise par Wang Lin. C'était comme s'il savait que Wang Lin était parti et ne reviendrait pas avant longtemps, ce qui lui permettait d'oser hurler ainsi.
 
-La nuit sur le continent de Mo Luo touchait à sa fin et le soleil commençait à poindre. À cet instant, la bourrasque pourpre traversa le ciel, suivie par la bête spirituelle noire. Le vieil homme paraissait extrêmement arrogant et serein; il était convaincu de pouvoir traiter avec la Secte Origin sans difficulté.
+La nuit sur le continent de Mo Luo touchait à sa fin et le soleil commençait à poindre. À cet instant, la bourrasque pourpre traversa le ciel, suivie par la bête spirituelle noire. Le vieil homme paraissait extrêmement arrogant et serein; il était convaincu de pouvoir traiter avec la Secte de l'Origine sans difficulté.
 
 Le jeune homme en pourpre à ses côtés affichait un regard exalté et se mit à hurler de manière obscène.
 
@@ -62,9 +62,9 @@ En entendant les paroles du vieil homme, le jeune homme en pourpre fut stupéfai
 
 « Je vais te faire l'honneur, alors dégage d'ici immédiatement et ne reviens jamais! » La voix glaciale de Wang Lin frappa l'ancien comme un vent glacial.
 
-Le visage du vieil homme s'assombrit instantanément. Bien qu'il fût moins puissant que l'ancêtre de la Secte Origin, il demeurait un cultivateur au stade intermédiaire de la Purification du Nirvana. Ne pouvant réellement percer le niveau de culture de l'autre, il avait fait preuve de politesse, mais il ne s'attendait pas à une telle arrogance.
+Le visage du vieil homme s'assombrit instantanément. Bien qu'il fût moins puissant que l'ancêtre de la Secte de l'Origine, il demeurait un cultivateur au stade intermédiaire de la Purification du Nirvana. Ne pouvant réellement percer le niveau de culture de l'autre, il avait fait preuve de politesse, mais il ne s'attendait pas à une telle arrogance.
 
-« Quel ton arrogant. Même lorsque l'ancêtre de la Secte Origin a affronté notre Secte du Dao Pourpre, il a dû... » Avant que le vieil homme ne puisse achever sa phrase, le jeune homme en pourpre derrière lui éclata de rire.
+« Quel ton arrogant. Même lorsque l'ancêtre de la Secte de l'Origine a affronté notre Secte du Dao Pourpre, il a dû... » Avant que le vieil homme ne puisse achever sa phrase, le jeune homme en pourpre derrière lui éclata de rire.
 
 Wang Lin ne répondit plus et une froideur fulgurante traversa ses yeux. Alors qu'il avançait, il leva la main droite et des filaments d'énergie de massacre jaillirent de son corps.
 
@@ -82,7 +82,7 @@ Le jeune homme en pourpre n'avait que rarement vu le vieil homme aussi sérieux,
 
 Wang Lin agita sa main droite et toute l'énergie de massacre autour de lui devint déchaînée. Chaque filament émettait un rugissement strident en chargeant le vieil homme.
 
-Les pupilles du vieil homme se rétractèrent brusquement. Ses mains formèrent des sceaux, un vent pourpre apparut et entra en collision avec l'énergie de massacre. Un grondement tonnerre retentit au loin et par ici.
+Les pupilles du vieil homme se rétractèrent brusquement. Ses mains formèrent des sceaux, un vent pourpre apparut et entra en collision avec l'énergie de massacre. Un grondement de tonnerre retentit au loin et par ici.
 
 « Invoquez la Pluie! » Wang Lin leva la main gauche et pointa le ciel. À cet instant, toute la pluie dans un rayon de mille, dix mille, cent mille pieds trembla. Sous le geste de Wang Lin, chaque goutte d'eau vibra, enveloppée d'énergie originelle, avant de s'élancer vers le vieil homme comme des projectiles.
 
@@ -110,6 +110,6 @@ Après avoir instantanément éliminé Song Wude, Wang Lin se tourna vers la bê
 
 Wang Lin lança un regard glacial au jeune homme et fit un pas en avant!
 
-Des rayons de lumière arrivèrent derrière Wang Lin. Le cri empreint d'une peur extrême atteignit clairement les oreilles des quatre anciens de la Secte Origin et résonna dans l'esprit de Lu Yanfei.
+Des rayons de lumière arrivèrent derrière Wang Lin. Le cri empreint d'une peur extrême atteignit clairement les oreilles des quatre anciens de la Secte de l'Origine et résonna dans l'esprit de Lu Yanfei.
 
 À cet instant, le ciel s'éclaircit et la pluie cessa. Un vague arc-en-ciel apparut à travers la voûte céleste. La silhouette poursuivait la bête spirituelle noire. Ses cheveux blancs étaient si éblouissants que l'image de cet homme resta profondément gravée dans les yeux de Lu Yanfei...

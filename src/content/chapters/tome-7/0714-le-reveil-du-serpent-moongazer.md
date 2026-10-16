@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 714 - The Moongazer Serpent Awakens
 slug: le-reveil-du-serpent-moongazer
 ---
-Sur la planète Yun Xia, Wang Lin était assis en position de lotus, le regard étincelant. La puissance du fleuve des Enfers enveloppait les deux segments de l'os. À cet instant, ces derniers s'animaient comme s'ils étaient doués de vie. Après un jaillissement de lumière dorée, les tremblements devinrent plus violents.
+Sur la planète Yun Xia, Wang Lin était assis en position de lotus, le regard étincelant. La puissance de la rivière des enfers enveloppait les deux segments de l'os. À cet instant, ces derniers s'animaient comme s'ils étaient doués de vie. Après un jaillissement de lumière dorée, les tremblements devinrent plus violents.
 
 Ce n'était pas seulement une partie, mais l'intégralité de la structure osseuse qui tressaillait.
 
@@ -20,7 +20,7 @@ Une douleur atroce se propageait à travers le gigantesque Serpent aux yeux de l
 
 Des volutes de brume rouge s'échappaient des innombrables tentacules qui recouvraient la planète. Ces derniers tremblaient avec violence, tandis que des rugissements étouffés semblaient sourdre du globe lui-même.
 
-Tous les tentacules à la surface s'étiraient frénétiquement, leur longueur décuplant par rapport aux mille pieds initiaux. Si l'on observait la planète Yun Xia depuis l'espace, elle ressemblerait à un gigantesque oursin!
+Tous les tentacules à la surface s'étiraient frénétiquement, leur longueur étant multipliée par plusieurs par rapport aux mille pieds initiaux. Si l'on observait la planète Yun Xia depuis l'espace, elle ressemblerait à un gigantesque oursin!
 
 Au plus profond de la planète Yun Xia, les yeux de Wang Lin brillèrent d'un éclat plus intense encore. Une force d'aspiration infinie émanait de ses bras et se propageait sur les deux segments de l'os. Cette aspiration agissait comme une lame, séparant l'os du corps du Serpent aux yeux de lune.
 
@@ -52,7 +52,7 @@ Sept pouces, dix pouces, trois pieds, six pieds, dix pieds, cent pieds...
 
 Le bruit de friction était suffisant pour ébranler l'âme. Wang Lin commença à tirer cette moitié d'os de plus en plus rapidement.
 
-Le visage de Wang Lin était feroche et l'énergie spirituelle céleste dans son corps déferlait avec frénésie. S'il n'avait pas atteint le stade avancé de l'Ascendant, son corps n'aurait sans doute pu supporter une telle utilisation de l'énergie spirituelle céleste.
+Le visage de Wang Lin était féroce et l'énergie spirituelle céleste dans son corps déferlait avec frénésie. S'il n'avait pas atteint le stade avancé de l'Ascendant, son corps n'aurait sans doute pu supporter une telle utilisation de l'énergie spirituelle céleste.
 
 À chaque cycle de son énergie spirituelle céleste, la force de Wang Lin augmentait considérablement. Le temps pressait et le danger doublait à chaque seconde passée sur place. Les yeux de Wang Lin devinrent rouges sang lorsqu'il lâcha un nouveau rugissement.
 

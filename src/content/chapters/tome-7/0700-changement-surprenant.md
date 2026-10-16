@@ -58,13 +58,13 @@ Derrière lui, les cultivateurs au stade de la Transformation de l'Âme tardive 
 
 Les familles Ran et Zhao sortirent également, bien qu'elles ne fussent pas aussi puissantes que la famille Sun; après tout, la plupart de leurs experts étaient partis depuis longtemps.
 
-À la Ville d'Eau Vaste, dans la cour du manoir Wang, Wang Lin posa sa cruche de vin et leva légèrement les yeux. Son regard était dénué de toute couleur, lui donnant l'apparence d'un véritable vieillard dont les yeux étaient voilés par le brouillard.
+À la Ville des Vastes Eaux, dans la cour du manoir Wang, Wang Lin posa sa cruche de vin et leva légèrement les yeux. Son regard était dénué de toute couleur, lui donnant l'apparence d'un véritable vieillard dont les yeux étaient voilés par le brouillard.
 
 Il ne jeta qu'un bref coup d'œil avant de baisser la tête pour boire une gorgée de vin.
 
 Une bête gigantesque couverte d'éclairs fendait le ciel. Deux courants d'air chaud s'échappaient de ses narines, lui conférant un aspect extrêmement féroce, et un homme d'âge moyen siégeait sur son dos. C'était le Daoïste du Tonnerre du Temple Céleste du Tonnerre!
 
-Ses yeux, semblables à des éclairs, fixaient froidement la terre. Son Sens Divin balaya instantanément la planète sans aucune retenue, incluant la Ville d'Eau Vaste.
+Ses yeux, semblables à des éclairs, fixaient froidement la terre. Son Sens Divin balaya instantanément la planète sans aucune retenue, incluant la Ville des Vastes Eaux.
 
 Pourtant, pour une raison quelconque, lorsque son Sens Divin passa sur lui, il ne s'arrêta nullement sur Wang Lin.
 
@@ -102,7 +102,7 @@ Bien que son apparence fût celle d'une vieille femme, ses yeux témoignaient d'
 
 Elle pouvait ressentir une aura inimaginable émanant de l'étranger. Cette présence était si écrasante qu'elle évoquait la puissance des cieux, rendant toute résistance impossible.
 
-Face à lui, Qing Yi se sentait comme une simple fourmi; un seul de ses साथ pensées suffirait à tuer d'innombrables êtres semblables à elle. Elle mourrait sans sépulture et ne pourrait jamais renaître.
+Face à lui, Qing Yi se sentait comme une simple fourmi; une seule de ses pensées suffirait à tuer d'innombrables êtres semblables à elle. Elle mourrait sans sépulture et ne pourrait jamais renaître.
 
 Ce qui fit véritablement contracter ses pupilles, c'était les éclairs qui jaillissaient de lui. La foudre parcourant son corps lui donnait l'aspect d'un céleste du tonnerre.
 
@@ -130,6 +130,6 @@ Cependant, ce seul mortel ne s'était pas effondré, et il semblait même ne pas
 
 Il dit lentement: « Intéressant! Pas étonnant que tu ne sois pas tombée dans les pommes. C'était donc cela... »
 
-Au moment précis où l'homme d'âge moyen franchissait le seuil de la pièce, dans la lointaine Ville d'Eau Vaste, Wang Lin, qui était assis avec sa cruche de vin, se leva brusquement. La cruche dans sa main droite vola en éclats et le vin qu'elle contenait se désintégra totalement.
+Au moment précis où l'homme d'âge moyen franchissait le seuil de la pièce, dans la lointaine Ville des Vastes Eaux, Wang Lin, qui était assis avec sa cruche de vin, se leva brusquement. La cruche dans sa main droite vola en éclats et le vin qu'elle contenait se désintégra totalement.
 
-Lorsque Wang Lin leva la tête, ses yeux, qui n'avaient montré aucune émotion depuis soixante-dix ans, affichèrent une froideur inédite. C'était une présence plus terrifiante encore que lors de l'incident au restaurant. La différence était celle entre le ciel et la terre; elle était tout simplement incomparable!
+Lorsque Wang Lin leva la tête, ses yeux, qui n'avaient montré aucune émotion depuis soixante-dix ans, affichèrent une froideur inédite. C'était une présence plus terrifiante encore que lors de l'incident au restaurant.[1. Fait référence à la menace subie par Wang Ping dans le restaurant, lors de leur arrivée dans la ville.] La différence était celle entre le ciel et la terre; elle était tout simplement incomparable!

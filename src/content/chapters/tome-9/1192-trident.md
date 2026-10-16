@@ -14,7 +14,7 @@ Le doigt géant formé par la lumière aux sept couleurs descendit dans un rugis
 
 Les trois Restrictions de Vie et de Mort de la vieille femme le poursuivaient de près.
 
-Face à l'assaut combiné de ces deux puissants cultivateurs du stade intermédiaire de la Brisure du Nirvana, les yeux de Wang Lin s'illuminèrent. Puisqu'il avait osé voler la nourriture dans la gueule du tigre, il était certain de pouvoir les tenir en respect.
+Face à l'assaut combiné de ces deux puissants cultivateurs du stade intermédiaire du Briseur du Nirvana, les yeux de Wang Lin s'illuminèrent. Puisqu'il avait osé voler la nourriture dans la gueule du tigre, il était certain de pouvoir les tenir en respect.
 
 Soudain, Wang Lin fit volte-face et sa silhouette commença à gonfler. Une aura dense d'Ancien Dieu emplit ce monde aux sept couleurs. Des ondulations parcoururent son corps alors qu'il grandissait: cent pieds, cinq cents pieds, mille pieds... En un clin d'œil, il se mua en un titan de trois mille pieds de haut!
 
@@ -88,7 +88,7 @@ Cette scène changea radicalement l'expression de Maître Pin Cendré. Fort de s
 
 « Que la vieille femme Zhao soit piégée est une chance pour moi. Tant que je tue cet homme nommé Lu, je pourrai récupérer le jade. Grâce à ma connaissance des lieux, personne ne pourra me trouver! » Une lueur d'intention meurtrière traversa les yeux de Maître Pin Cendré et il prit une décision instantanée. Il se déplaça autour des restrictions à l'extérieur de la vallée et ses mains formèrent un sceau. Des dizaines de milliers de particules de lumière dorée apparurent et s'élancèrent toutes vers Wang Lin.
 
-Une froideur glaciale passa dans les yeux de Wang Lin. Il attendait cette opportunité. Il ne pouvait pas combattre deux cultivateurs du stade intermédiaire de la Brisure du Nirvana simultanément. Il devait en blesser ou en piéger un avant de pouvoir lutter sereinement!
+Une froideur glaciale passa dans les yeux de Wang Lin. Il attendait cette opportunité. Il ne pouvait pas combattre deux cultivateurs du stade intermédiaire du Briseur du Nirvana simultanément. Il devait en blesser ou en piéger un avant de pouvoir lutter sereinement!
 
 Même sur Peng Lai, Maître Pin Cendré était malveillant. Voyant le sortilège approcher, Wang Lin laissa échapper un reniflement froid et agita le trident qu'il tenait. Les trois dragons rugirent et la pluie d'épées fut projetée vers le ciel; elles ne parvinrent pas à atteindre Wang Lin.
 
@@ -98,7 +98,7 @@ Les pupilles de Wang Lin se rétractèrent.
 
 À cet instant, Maître Pin Cendré poussa un rugissement et lança l'épée de cristal. L'arme émit un sifflement brisant le ciel en fonçant vers Wang Lin.
 
-Son premier véritable combat contre un cultivateur du stade intermédiaire de la Brisure du Nirvana excitait Wang Lin. Il ne recula pas, mais fit plutôt avancer son trident. Les trois dragons s'envolèrent soudainement de l'arme pour tenter d'engloutir l'épée de cristal.
+Son premier véritable combat contre un cultivateur du stade intermédiaire du Briseur du Nirvana excitait Wang Lin. Il ne recula pas, mais fit plutôt avancer son trident. Les trois dragons s'envolèrent soudainement de l'arme pour tenter d'engloutir l'épée de cristal.
 
 Plus étrange encore: les trois marques formées après avoir dévoré la Restriction de Vie et de Mort se mirent à briller. Elles s'élancèrent et fusionnèrent avec les trois dragons noirs, faisant soudainement apparaître l'aura de la Restriction de Vie et de Mort.
 

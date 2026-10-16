@@ -8,7 +8,7 @@ slug: une-seule-phrase-venue-dil-y-a-des-siecles
 ---
 À l'époque où Wang Lin repoussait inconsciemment la tempête, le frère aîné de Dun Tian ressentit quelque chose. Il consacra alors une grande quantité de sa force vitale pour procéder à neuf divinations.
 
-Il cherchait à découvrir l'avenir de la Secte du Affinement de l'Âme. Il voulait trouver à la Secte du Affinement de l'Âme un chemin vers la survie!
+Il cherchait à découvrir l'avenir de la Secte de l'Affinement de l'Âme. Il voulait trouver à la Secte de l'Affinement de l'Âme un chemin vers la survie!
 
 Les neuf divinations lui donnèrent toutes une conclusion extrêmement absurde. Il ne le crut pas au début, mais après avoir obtenu le même résultat neuf fois, il fut contraint d'y croire.
 
@@ -50,19 +50,19 @@ Si l'un d'eux se mettait à cultiver, il serait un prodige naturel.
 
 Wang Lin était la troisième personne à lui donner cette impression. Après avoir réfléchi un instant, l'homme d'âge moyen joignit les mains en signe de respect devant Wang Lin.
 
-« Ce vieil homme est le maître de la Secte du Affinement de l'Âme, Nian Tian. »
+« Ce vieil homme est le maître de la Secte de l'Affinement de l'Âme, Nian Tian. »
 
 « Une seule ligne pour lire les cieux. Le mot "Nian"[1] couvre tout. Beau nom! » Wang Lin sourit et joignit également ses mains devant l'homme d'âge moyen. L'aura d'un grand érudit devint encore plus forte autour de lui. Les fantômes hurlants se retirèrent lentement, comme s'ils craignaient de s'approcher. Même leurs hurlements s'affaiblirent jusqu'à disparaître complètement.
 
 Cela choqua l'homme d'âge moyen. Il prit une profonde inspiration et un espoir naquit dans ses yeux. Il sentait faiblement qu'il trouverait sa réponse auprès de cet homme. Il était fort probable que ses neuf divinations pointaient vers cette personne!
 
-« Ce vieil homme veut savoir si ma Secte du Affinement de l'Âme a un chemin vers la survie! J'espère que vous pourrez résoudre la question qui tourmente ce vieil homme depuis cent ans! » Nian Tian paraissait sincère et joignit à nouveau ses mains devant Wang Lin.
+« Ce vieil homme veut savoir si ma Secte de l'Affinement de l'Âme a un chemin vers la survie! J'espère que vous pourrez résoudre la question qui tourmente ce vieil homme depuis cent ans! » Nian Tian paraissait sincère et joignit à nouveau ses mains devant Wang Lin.
 
 L'héritage de sa secte était primordial, et interroger un mortel était très étrange. Même Nian Tian pensait que c'était absurde, mais avec neuf divinations aboutissant au même résultat, il devait y croire. Heureusement, le calme extraordinaire de Wang Lin lui permettait d'entrevoir un espoir tandis qu'il attendait sa réponse.
 
 Après avoir entendu cette question, Wang Lin fut surpris et réfléchit silencieusement.
 
-« Je ne peux pas répondre. » Après un long moment, Wang Lin secoua la tête. Il n'avait aucune idée de ce qu'était la Secte du Affinement de l'Âme. Il pouvait seulement deviner vaguement qu'il s'agissait d'une secte immortelle.
+« Je ne peux pas répondre. » Après un long moment, Wang Lin secoua la tête. Il n'avait aucune idée de ce qu'était la Secte de l'Affinement de l'Âme. Il pouvait seulement deviner vaguement qu'il s'agissait d'une secte immortelle.
 
 L'homme d'âge moyen ne dit rien et afficha une expression amère. Il secoua la tête et laissa échapper un soupir. Il regarda le ciel, sentant que son comportement était vraiment déraisonnable: il demandait à ce mortel de prédire le sort de sa secte.
 
@@ -70,33 +70,33 @@ L'homme d'âge moyen ne dit rien et afficha une expression amère. Il secoua la 
 
 Wang Lin observa cette silhouette déclinante. Il pouvait presque sentir une montagne invisible peser sur cet homme. Sous le poids de cette montagne, l'homme d'âge moyen paraissait plus misérable encore.
 
-Wang Lin songea à ses rêves. Il se souvint de la voix qui résonnait dans son esprit et dit calmement: « Emmenez-moi voir la Secte du Affinement de l'Âme. »
+Wang Lin songea à ses rêves. Il se souvint de la voix qui résonnait dans son esprit et dit calmement: « Emmenez-moi voir la Secte de l'Affinement de l'Âme. »
 
 L'homme d'âge moyen, sur le point de partir, s'arrêta et se tourna vers Wang Lin. Après un long moment, il hocha la tête et désigna Wang Lin. Le vent noir convergea de toutes les directions autour de lui. Puis, l'homme d'âge moyen s'éleva dans le ciel et disparut avec Wang Lin.
 
 Dans le comté, personne ne remarqua le sort utilisé à l'extérieur de la zone d'examen. Aucun mortel ne put voir le vent noir qui était apparu. Sous l'arbre, Grande Fortune ronflait toujours. Il marmonna un peu avant de replonger dans son sommeil.
 
-Sur la planète Suzaku, dans le ciel surplombant la Secte du Affinement de l'Âme, Wang Lin apparut avec une expression pâle, mais il restait extrêmement calme. Le vent noir l'entourait, lui permettant de garder une assise stable.
+Sur la planète Suzaku, dans le ciel surplombant la Secte de l'Affinement de l'Âme, Wang Lin apparut avec une expression pâle, mais il restait extrêmement calme. Le vent noir l'entourait, lui permettant de garder une assise stable.
 
 À ses côtés se tenait Nian Tian.
 
-« Voici ma Secte du Affinement de l'Âme. » Nian Tian désigna la terre en contrebas et un grondement résonna. Le brouillard noir qui recouvrait le secteur se dissipa, révélant l'ensemble de la Secte du Affinement de l'Âme aux yeux de Wang Lin.
+« Voici ma Secte de l'Affinement de l'Âme. » Nian Tian désigna la terre en contrebas et un grondement résonna. Le brouillard noir qui recouvrait le secteur se dissipa, révélant l'ensemble de la Secte de l'Affinement de l'Âme aux yeux de Wang Lin.
 
-Wang Lin contempla la Secte du Affinement de l'Âme à ses côtés et ressentit une sensation familière au plus profond de son cœur. Il avait l'impression d'être déjà venu ici dans ses rêves, mais lorsqu'il y réfléchissait attentivement, il ne parvenait à rien identifier.
+Wang Lin contempla la Secte de l'Affinement de l'Âme à ses côtés et ressentit une sensation familière au plus profond de son cœur. Il avait l'impression d'être déjà venu ici dans ses rêves, mais lorsqu'il y réfléchissait attentivement, il ne parvenait à rien identifier.
 
 Un instant plus tard, Wang Lin dit doucement: « Je voudrais faire un tour... »
 
-« Très bien. » Nian Tian n'hésita pas. Il contrôla le vent pour guider Wang Lin vers le cœur de la Secte du Affinement de l'Âme. De nombreux cultivateurs se trouvaient dans la secte, et l'ouverture de celle-ci attira leur attention. Lorsqu'ils sortirent, ils virent immédiatement Wang Lin et Nian Tian.
+« Très bien. » Nian Tian n'hésita pas. Il contrôla le vent pour guider Wang Lin vers le cœur de la Secte de l'Affinement de l'Âme. De nombreux cultivateurs se trouvaient dans la secte, et l'ouverture de celle-ci attira leur attention. Lorsqu'ils sortirent, ils virent immédiatement Wang Lin et Nian Tian.
 
 « Salutations, Maître de Secte! »
 
-Les voix résonnèrent. Les cultivateurs de la Secte du Affinement de l'Âme affichaient tous des expressions étranges. Ils voyaient bien que Wang Lin était un mortel, mais ils ne comprenaient pas pourquoi le maître de secte l'avait amené ici.
+Les voix résonnèrent. Les cultivateurs de la Secte de l'Affinement de l'Âme affichaient tous des expressions étranges. Ils voyaient bien que Wang Lin était un mortel, mais ils ne comprenaient pas pourquoi le maître de secte l'avait amené ici.
 
-Les yeux de Wang Lin étaient emplis de confusion tandis qu'il parcourait la Secte du Affinement de l'Âme. Il sentait cet endroit très familier et semblait même anticiper les dangers qui s'y trouvaient. Plus il avançait, plus cette sensation s'intensifiait.
+Les yeux de Wang Lin étaient emplis de confusion tandis qu'il parcourait la Secte de l'Affinement de l'Âme. Il sentait cet endroit très familier et semblait même anticiper les dangers qui s'y trouvaient. Plus il avançait, plus cette sensation s'intensifiait.
 
 Au pied d'un sommet montagneux, Wang Lin s'arrêta. De nombreuses grottes parsemaient la montagne, visibles depuis le bas. La sensation de familiarité devint encore plus forte; c'était comme s'il avait vécu ici à une époque inconnue.
 
-Nian Tian suivait toujours Wang Lin, l'accompagnant dans sa déambulation à travers la secte. Ses yeux brillaient d'une lueur mystérieuse lorsqu'il regardait Wang Lin. La majeure partie de la journée passa lentement, et Wang Lin arriva finalement près de la montagne principale de la Secte du Affinement de l'Âme.
+Nian Tian suivait toujours Wang Lin, l'accompagnant dans sa déambulation à travers la secte. Ses yeux brillaient d'une lueur mystérieuse lorsqu'il regardait Wang Lin. La majeure partie de la journée passa lentement, et Wang Lin arriva finalement près de la montagne principale de la Secte de l'Affinement de l'Âme.
 
 La montagne principale était entourée d'anneaux de brouillard noir qui s'élevaient vers le ciel. C'était un spectacle majestueux.
 
@@ -104,7 +104,7 @@ La montagne principale était entourée d'anneaux de brouillard noir qui s'élev
 
 Un rugissement retentit depuis la montagne principale et une silhouette apparut dans la brume au sommet. Elle s'avança vers Wang Lin et Nian Tian.
 
-« Frère aîné, qui est cette personne? » Alors qu'une voix ancienne résonnait, l'ombre noire se rapprocha. C'était également un homme d'âge moyen, dont le regard balaya Wang Lin.
+« Senior Frère, qui est cette personne? » Alors qu'une voix ancienne résonnait, l'ombre noire se rapprocha. C'était également un homme d'âge moyen, dont le regard balaya Wang Lin.
 
 « Dun Tian, cet homme est un érudit que j'ai invité ici. Tu es en pleine fusion avec le drapeau, ne te laisse pas distraire. Retourne rapidement à ta culture en méditation fermée. » Une émotion complexe traversa les yeux de Nian Tian lorsqu'il parla.
 
@@ -112,9 +112,9 @@ Dun Tian sourit. Aux yeux de celui-ci, Wang Lin n'était qu'un simple mortel. Bi
 
 Pourtant, en voyant Dun Tian, l'esprit de Wang Lin tourmenta comme s'il venait de se remémorer quelque chose. En regardant la silhouette de Dun Tian s'éloigner, deux filets de larmes commencèrent à couler de ses yeux pour une raison inconnue.
 
-À cet instant précis, un oiseau blanc survola la Secte du Affinement de l'Âme, poussant une série de cris en passant.
+À cet instant précis, un oiseau blanc survola la Secte de l'Affinement de l'Âme, poussant une série de cris en passant.
 
-« Dans des centaines d'années, le jour de ta mort, un homme viendra ici. Il sera la voie de survie pour ta Secte du Affinement de l'Âme! »
+« Dans des centaines d'années, le jour de ta mort, un homme viendra ici. Il sera la voie de survie pour ta Secte de l'Affinement de l'Âme! »
 
 Wang Lin murmura ces mots en fixant le dos de Dun Tian, et ses larmes redoublèrent.
 

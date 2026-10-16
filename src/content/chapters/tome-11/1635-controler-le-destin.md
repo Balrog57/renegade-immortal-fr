@@ -6,11 +6,11 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1635 - Controlling Fate
 slug: controler-le-destin
 ---
-« Quelle vie intéressante, quel ciel fascinant, quelle création prodigieuse! Mais après tout, qu'est-ce que cela change? Si moi, Wang Lin, je pouvais pénétrer dans l’Royaume Céleste Antique et briser la divine rétribution pour découvrir comment elle fut créée, alors un jour, je serais capable de sortir de cette grotte. Je pourrais entrer dans le Continent Astral Immortel et voir à quel point les grands cultivateurs qui s'y trouvent sont puissants!
+« Quelle vie intéressante, quel ciel fascinant, quelle création prodigieuse! Mais après tout, qu'est-ce que cela change? Si moi, Wang Lin, je pouvais pénétrer dans l’Ancien Royaume Céleste et briser la divine rétribution pour découvrir comment elle fut créée, alors un jour, je serais capable de sortir de cette grotte. Je pourrais entrer dans le Continent Astral Immortel et voir à quel point les grands cultivateurs qui s'y trouvent sont puissants!
 
 « De quels droits se permettent-ils d'élever des êtres sensibles en captivité? De quels droits se croient-ils maîtres d'autres êtres?
 
-« Ce n'est pas étonnant que l'oiseau Vermillion de la première génération ait dit qu'il ne pouvait emmener qu'un nombre limité de personnes dans sa ville natale. C'est parce qu'en dehors de lui, tous les autres ne sont pas originaires du Continent Astral Immortel. Ils ne sont que des cultivateurs nés dans cette grotte!
+« Ce n'est pas étonnant que l'Oiseau Vermillon de la première génération ait dit qu'il ne pouvait emmener qu'un nombre limité de personnes dans sa ville natale. C'est parce qu'en dehors de lui, tous les autres ne sont pas originaires du Continent Astral Immortel. Ils ne sont que des cultivateurs nés dans cette grotte!
 
 « Ce n'est pas étonnant qu'il ait dit que quelqu'un dans sa ville natale pourrait ressusciter Li Muwan, mais que lui ne le pouvait pas. Ce n'est pas étonnant... Ce n'est pas étonnant...
 

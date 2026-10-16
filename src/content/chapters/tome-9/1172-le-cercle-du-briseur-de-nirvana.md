@@ -70,7 +70,7 @@ Le troisième objet était une pilule. Entièrement noire, elle ne dégageait au
 
 « Le premier objet est l'Épée de Cristal Sanguin. J'ai tué près de mille bêtes féroces de rang 8 et j'ai utilisé tout leur sang pour la raffiner. J'ai également sollicité l'illumination de Senior Dao Ye lors de sa création, ce qui a considérablement accru sa puissance. La ligne de sang à l'intérieur contient un poison étrange; ainsi, en plus de blesser le corps, elle empoisonne jusqu'à l'âme originelle. »
 
-« Senior Dao Ye vous a guidé? » La belle jeune femme en robe fleurie agita la main et l'épée de cristal sanguin vola vers elle. Après un examen attentif, elle relâcha l'arme qui retourna flotter dans les airs.
+« Senior Dao Ye l'a illuminée? » La belle jeune femme en robe fleurie agita la main et l'épée de cristal sanguin vola vers elle. Après un examen attentif, elle relâcha l'arme qui retourna flotter dans les airs.
 
 « Le deuxième objet contient un ensemble de sorts, mais il est brisé, ce qui rend toute culture impossible. Quel dommage. Quant au troisième objet, tout dépendra de votre perspicacité, chers cultivateurs. Si vous souhaitez l'acquérir, vous devrez respecter ma règle: je n'accepte que les jades célestes. » Le vieil homme sourit en contemplant l'assemblée.
 

@@ -106,10 +106,10 @@ D'innombrables épines étaient reliées à la silhouette à l'intérieur, et lo
 
 Cependant, encore plus d'épines se brisèrent et restèrent logées dans le corps de Wang Lin.
 
-« Frère aîné Qing Shui, je vais vous sauver... » Une voix ténue s'échappa de la bouche de Wang Lin une fois le rugissement dissipé. Il sortit de la sphère d'épines, mais la douleur était presque insupportable. Des dizaines de milliers d'épines lui perçaient le corps.
+« Senior Frère Qing Shui, je vais vous sauver... » Une voix ténue s'échappa de la bouche de Wang Lin une fois le rugissement dissipé. Il sortit de la sphère d'épines, mais la douleur était presque insupportable. Des dizaines de milliers d'épines lui perçaient le corps.
 
 Chaque pas faisait couler le sang le long des pointes. Le corps de Wang Lin rétrécissait lentement, passant de sa taille initiale de dix mille pieds. Au cours de ce processus, beaucoup d'épines se brisèrent, mais des fragments de chacune restèrent ancrés dans son corps, comme s'ils faisaient désormais partie de sa propre chair et ne pouvaient être retirés.
 
-« Frère aîné, j'arrive... » Wang Lin s'avança dans les nuages aux sept couleurs, la vue brouillée. Pourtant, il aperçut toujours le tremblant Qing Shui, dont les cheveux couvraient le visage.
+« Senior Frère, j'arrive... » Wang Lin s'avança dans les nuages aux sept couleurs, la vue brouillée. Pourtant, il aperçut toujours le tremblant Qing Shui, dont les cheveux couvraient le visage.
 
-Alors que le sang continuait de couler, Wang Lin atteignit lentement Qing Shui. Il s'arrêta à vingt centimètres de lui et tendit sa main droite vers la première blessure dans la poitrine de son frère. Après une profonde inspiration, il saisit l'épine et tira!
+Alors que le sang continuait de couler, Wang Lin atteignit lentement Qing Shui. Il s'arrêta à sept pouces de lui et tendit sa main droite vers la première blessure dans la poitrine de son frère. Après une profonde inspiration, il saisit l'épine et tira!

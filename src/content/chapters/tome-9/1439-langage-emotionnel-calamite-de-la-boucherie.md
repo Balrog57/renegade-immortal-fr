@@ -6,13 +6,13 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1439 - Emotional Language, Slaughter Calamity
 slug: langage-emotionnel-calamite-de-la-boucherie
 ---
-Wang Lin avait toujours été décisif. Comment pouvait-il laisser passer une attaque alors qu'on l'avait ciblé dès son arrivée? La Tombe de l'Ordre Antique était déjà périlleuse, et il ne pouvait compter que sur sa propre force. S'il montrait la moindre faiblesse, il serait assiégé par les autres.
+Wang Lin avait toujours été décisif. Comment pouvait-il laisser passer une attaque alors qu'on l'avait ciblé dès son arrivée? La Tombe de l'Ordre Ancien était déjà périlleuse, et il ne pouvait compter que sur sa propre force. S'il montrait la moindre faiblesse, il serait assiégé par les autres.
 
 Par conséquent, il devait se montrer impitoyable pour affirmer sa puissance!
 
 Un éclair de froideur traversa ses yeux alors qu'il fixait l'homme d'âge mûr qui reculait. Son pied droit s'avança et il se déplaça tel un météore.
 
-Le niveau de culture de l'homme d'âge mûr n'était pas très élevé, seulement au troisième Ciel de la Peste. Lorsqu'il avait attaqué Wang Lin par surprise, il était certain de réussir.
+Le niveau de culture de l'homme d'âge mûr n'était pas très élevé, seulement au troisième Fléau Céleste. Lorsqu'il avait attaqué Wang Lin par surprise, il était certain de réussir.
 
 Même si quelqu'un possédait un niveau de culture supérieur au sien, une telle attaque sournoise aurait laissé des blessures. Après tout, quiconque serait aspiré ici serait momentanément hébété et pris de panique. Ce bref instant suffisait amplement pour tuer ou blesser gravement un homme.
 
@@ -36,7 +36,7 @@ C'était une décision aussi simple que tragique!
 
 Wang Lin fonça comme un rayon de lumière vers l'homme d'âge mûr. Voyant Wang Lin se rapprocher à une vitesse fulgurante, une lueur de folie apparut dans ses yeux. Il frappa sa poitrine et cracha une bouchée de sang. Utilisant l'Évasion Sanguine, qui le blessa gravement, il se précipita vers le brouillard. Il était sur le point d'y plonger.
 
-« Quel personnage! » L'analyse rapide et la détermination de l'autre révélaient qu'il était digne de sa culture du troisième Ciel de la Peste. Cependant, il avait attaqué la mauvaise personne, et il devait maintenant faire face à Wang Lin!
+« Quel personnage! » L'analyse rapide et la détermination de l'autre révélaient qu'il était digne de sa culture du troisième Fléau Céleste. Cependant, il avait attaqué la mauvaise personne, et il devait maintenant faire face à Wang Lin!
 
 Wang Lin ne révéla ni son sort d'Arrêt, ni son épée de sang pour achever l'homme avant qu'il n'entre dans le brouillard. Ce n'étaient pas des atouts qu'il dévoilerait sans précaution.
 
@@ -60,7 +60,7 @@ Certains commencèrent même à observer Wang Lin avec perplexité. Le visage de
 
 Derrière l'une des plateformes flottantes au loin, une jeune fille en rouge observait la scène d'un regard timoré. C'était la femme du Clan de l'Extermination des Sceaux qui n'avait plus qu'une seule vie devant elle!
 
-Elle avait été séparée de l'homme robuste du Clan du Loup Céleste Estimé. Ce dernier avait été envoyé dans une zone inconnue, tandis que la jeune fille avait été projetée au même endroit que Wang Lin.
+Elle avait été séparée de l'homme robuste de l'Estimé Clan du Loup Céleste. Ce dernier avait été envoyé dans une zone inconnue, tandis que la jeune fille avait été projetée au même endroit que Wang Lin.
 
 L'expression de Wang Lin restait calme alors qu'il faisait un pas en avant. Il arriva bientôt devant une plateforme flottante haute de 10 000 pieds. Une tête gigantesque trônait sur la plateforme, les yeux ouverts, empreints de colère et de regret. Un immense trou béait entre ses sourcils; sa marque avait été arrachée par quelqu'un.
 
@@ -76,7 +76,7 @@ Une femme en blanc apparut. Ses cheveux noirs cascadaient sur ses épaules jusqu
 
 L'apparition de cette femme fit se rétracter les pupilles de Wang Lin. Elle ressemblait étrangement au lettré d'âge mûr qu'il avait vu à l'extérieur de la faille.
 
-La femme en blanc aperçut également Wang Lin. Au moment où leurs regards se croisèrent, un changement stupéfiant s'opéra à l'intérieur de la Tombe de l'Ordre Antique!
+La femme en blanc aperçut également Wang Lin. Au moment où leurs regards se croisèrent, un changement stupéfiant s'opéra à l'intérieur de la Tombe de l'Ordre Ancien!
 
 Des grondements sourds résonnèrent dans le ciel sombre, semblables à des rugissements lointains. Le brouillard qui formait le sol se mit à trembler violemment, comme si d'innombrables dragons s'y déchaînaient.
 
@@ -84,7 +84,7 @@ Le monde entier ressemblait à une chambre secrète dont la fenêtre aurait ét�
 
 À l'intérieur du Système Stellaire Antique, la faille dans le brouillard se rétracta rapidement avant de disparaître sans laisser de trace. Seul le brouillard subsista, comme s'il devait durer une éternité.
 
-La Tombe de l'Ordre Antique était close!
+La Tombe de l'Ordre Ancien était close!
 
 À l'instant même où la faille se referma, Wang Lin ressentit soudain un puissant sentiment de danger. Une colonne de brume jaillit brusquement du bas. Un cultivateur ne réagit pas assez vite et fut frappé par le courant. Il poussa un cri déchirant tandis que sa marque, située entre ses sourcils, s'envolait sur le côté.
 

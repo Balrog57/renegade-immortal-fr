@@ -26,7 +26,7 @@ Wang Lin observa le continent sauvage sous ses pieds. Il avait le pressentiment 
 
 Les yeux de la vieille femme en vert s'illuminèrent également tandis qu'elle scrutait les environs avec gravité.
 
-Maître Nuage-Âme jeta un regard méprisant à Wang Lin. Le secret de ce continent sauvage ne pouvait être perçu que si l'on y avait vécu durant de longues années.
+Maître Nuage d'Âme jeta un regard méprisant à Wang Lin. Le secret de ce continent sauvage ne pouvait être perçu que si l'on y avait vécu durant de longues années.
 
 Le jeune garçon fronça également les sourcils en observant les lieux, mais nul ne savait ce qu'il pensait. Seul Chen Tianjun restait impassible, assis là, cultivant les yeux clos.
 
@@ -74,11 +74,11 @@ Le continent fonçait vers le nord! C'était un mouvement manifeste; on ne pouva
 
 Tandis que la rune brillait, le continent accélérait encore. Malgré les grondements continus, il s'éloigna totalement de sa position initiale.
 
-Une fissure aux sept couleurs apparut au centre du continent sauvage! Elle n'était pas très large, ne mesurant que cinq pieds de large, mais l'éclat septicolore la rendait extrêmement conspicuous dans le vide spatial!
+Une fissure aux sept couleurs apparut au centre du continent sauvage! Elle n'était pas très large, ne mesurant que cinq pieds de large, mais l'éclat septicolore la rendait extrêmement visible dans le vide spatial!
 
 « C'est donc ça! » haleta le garçon en fixant la faille, surexcité. Ses traits étaient déjà déformés par l'émotion, et sous l'effet de cette excitation, son visage devint proprement terrifiant.
 
-« Quel coup d'éclat! » L'homme robuste, Chen Tianjun de la Secte des Bêtes de Combat, observa Maître Pin Cendré avant de reporter son regard sur la fissure aux sept couleurs.
+« Quel coup d'éclat! » L'homme robuste, Chen Tianjun de la Secte de la Bête de Bataille, observa Maître Pin Cendré avant de reporter son regard sur la fissure aux sept couleurs.
 
 « Ce continent sauvage n'était pas censé être ici. Je suis passé par là par accident au moment même où la fissure est apparue. Par la suite, pour la dissimuler, j'ai déplacé un continent pour la recouvrir afin que les étrangers ne la trouvent pas! » expliqua Maître Pin Cendré avec une pointe de fierté dans la voix.
 
@@ -104,8 +104,8 @@ Sous l'impact du continent, la fissure parut être déchirée de force et s'éla
 
 « Allez! » cria Maître Pin Cendré en se précipitant vers la faille. Les autres suivirent le mouvement, utilisant toute leur vitesse pour pénétrer dans l'ouverture.
 
-À ce moment précis, les deux seuls restés à l'extérieur étaient Maître Nuage-Âme et Wang Lin. Maître Nuage-Âme lança un regard glacial à Wang Lin, lequel laissa échapper un ricanement intérieur avant de se diriger droit vers la faille. Cependant, juste au moment où il allait s'y engouffrer, une lueur froide traversa le regard de Wang Lin et il se retourna brusquement!
+À ce moment précis, les deux seuls restés à l'extérieur étaient Maître Nuage d'Âme et Wang Lin. Maître Nuage d'Âme lança un regard glacial à Wang Lin, lequel laissa échapper un ricanement intérieur avant de se diriger droit vers la faille. Cependant, juste au moment où il allait s'y engouffrer, une lueur froide traversa le regard de Wang Lin et il se retourna brusquement!
 
-Les yeux de Maître Nuage-Âme se contractèrent. Au moment où Wang Lin fit volte-face, sa main droite plongea dans le vide et une épée de fer apparut soudainement dans sa paume!
+Les yeux de Maître Nuage d'Âme se contractèrent. Au moment où Wang Lin fit volte-face, sa main droite plongea dans le vide et une épée de fer apparut soudainement dans sa paume!
 
 Elle était couverte de rouille, mais c'était une lame qui dégageait une aura capable d'ébranler les cieux!

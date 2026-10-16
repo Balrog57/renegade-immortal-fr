@@ -18,7 +18,7 @@ S'ils ne pouvaient entrer, Maître Pin Cendré ne les laisserait pas partir. Bie
 
 « Je demande l'aide de la camarade cultivatrice Zhao pour ouvrir la formation. » Wang Lin joignit les mains vers la femme en vert. Celle-ci se retenait manifestement; elle avait profité de l'impatience de Maître Pin Cendré pour l'inciter à tenter l'expérience lui-même, ce qui l'avait conduit à la blessure.
 
-« Nous n'avons même pas encore trouvé le trésor que ces gens commencent déjà à se livrer des luttes secrètes pour affaiblir les autres... » L'expression de Wang Lin demeura neutre, et nul ne put percer ses pensées.
+« Nous n'avons même pas encore trouvé le trésor, et ces gens commencent déjà à se livrer des luttes secrètes pour affaiblir les autres. Si je veux prendre part à ce désordre, je dois faire de même... » L'expression de Wang Lin demeura neutre, et nul ne put percer ses pensées.
 
 La femme en vert leva sa main droite et fit un geste. Une restriction s'abattit sur le rocher montagneux, le rendant transparent tandis que des ondulations se propageaient à sa surface.
 
@@ -68,7 +68,7 @@ La femme en vert afficha une expression complexe. Elle observa longuement sans v
 
 Wang Lin sembla hésiter au sein du rocher, mais bientôt, il leva le pied droit et fit le dixième pas! À l'instant où ce dixième pas fut posé, la montagne entière rugit et trembla violemment. Des pans entiers de roche s'effondrèrent, alertant les bêtes de brume qui trônaient au sommet.
 
-La Formation de Scellement Céleste en Neuf Pas s'effondra!
+La Formation de Scellement Céleste en Neuf Étapes s'effondra!
 
 Wang Lin cracha encore plus de sang. Alors que la formation se désintégrait, une force puissante projeta Wang Lin hors de la montagne. Les yeux de Maître Pin Cendré s'illuminèrent et il s'élança immédiatement. Sa main droite visa directement le dos de Wang Lin.
 

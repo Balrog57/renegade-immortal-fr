@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1166 - The Lie of Heaven
 slug: le-mensonge-des-cieux
 ---
-Aucun cultivateur de la Secte Origin n'avait remarqué ce qui s'était passé dans la cour sud. La cour sud était une terre interdite, si bien qu'aucun disciple n'osait y pénétrer. Même Lu Yanfei et sa suite n'y venaient que sur invitation, et ils n'auraient jamais osé s'y introduire de force.
+Aucun cultivateur de la Secte de l'Origine n'avait remarqué ce qui s'était passé dans la cour sud. La cour sud était une terre interdite, si bien qu'aucun disciple n'osait y pénétrer. Même Lu Yanfei et sa suite n'y venaient que sur invitation, et ils n'auraient jamais osé s'y introduire de force.
 
-Après avoir instantanément tué une bête de rang 8 et ordonné aux cultivateurs de la secte de rang 6 de déguerpir, Wang Lin était devenu une figure quasi ancestrale pour les disciples de la Secte Origin. Ils étaient empreints de respect et d'une profonde crainte envers lui.
+Après avoir instantanément tué une bête de rang 8 et ordonné aux cultivateurs de la secte de rang 6 de déguerpir, Wang Lin était devenu une figure quasi ancestrale pour les disciples de la Secte de l'Origine. Ils étaient empreints de respect et d'une profonde crainte envers lui.
 
 L'expression de Lu Yuncong était extrêmement disgracieuse alors qu'il fixait Wang Lin. Il se trouvait dans une impasse. Face à cet homme en blanc, il ne pouvait ni avancer, ni reculer. S'il avançait, il avait l'impression que le monde s'effondrerait; mais s'il reculait, son Dao s'écroulerait. C'était comme si son propre Dao n'était qu'un simple jeu d'enfant face à cet homme en blanc.
 
@@ -26,11 +26,11 @@ Wang Lin observa calmement Li Qianmei. La culture de cette femme était insondab
 
 Une brise légère souffla, faisant flotter quelques mèches de cheveux devant le visage de Li Qianmei. Elle les écarta derrière son oreille, regarda Wang Lin et dit doucement:
 
-« Secte Briseur de Ciel, Li Qianmei! »
+« Secte Brise-Ciel, Li Qianmei! »
 
 L'esprit de Wang Lin fut troublé, mais son expression ne changea pas lorsqu'il répondit lentement: « Pourquoi la Compagne de Culture Li est-elle venue ici? »
 
-Li Qianmei eut un petit rire et cligna des yeux avec un sourire. « Je suis venue poser trois questions à l'Aîné Frère afin d'apaiser les doutes de Qianmei. »
+Li Qianmei eut un petit rire et cligna des yeux avec un sourire. « Je suis venue poser trois questions au Senior Frère afin d'apaiser les doutes de Qianmei. »
 
 « Pourquoi devrais-je dissiper tes doutes? » demanda Wang Lin d'un ton imperturbable.
 
@@ -72,7 +72,7 @@ Wang Lin tourna son regard vers Lu Yuncong et demanda avec désinvolture: « Oh?
 
 « Le ciel est une cage! L'ouverture du puits est le ciel! La surface de l'eau est le ciel! » Les paroles de Lu Yuncong étaient posées, mais chargées d'assurance.
 
-Li Qianmei restait pensive, les sourcils froncés. Elle ne parvenait pas à percer le mystère de Wang Lin. En entendant Lu Yuncong, elle dit doucement: « Qianmei a posé cette question à de nombreux compagnons de culture, mais l'Aîné Frère Lu a donné la réponse la plus convaincante. Pourquoi Dao Frère rit-il? Ma question est-elle erronée? »
+Li Qianmei restait pensive, les sourcils froncés. Elle ne parvenait pas à percer le mystère de Wang Lin. En entendant Lu Yuncong, elle dit doucement: « Qianmei a posé cette question à de nombreux compagnons de culture, mais le Senior Frère Lu a donné la réponse la plus convaincante. Pourquoi Dao Frère rit-il? Ma question est-elle erronée? »
 
 Wang Lin regarda Li Qianmei et, après un long silence, demanda calmement: « Existe-t-il un ciel? »
 
@@ -106,7 +106,7 @@ Li Qianmei ferma lentement les yeux, l'esprit ébranlé. Les paroles de Wang Lin
 
 Elle pensait auparavant que la confusion de son Dao était semblable à des nuages; personne ne pouvait les dissiper, si ce n'était les paroles de Lu Yuncong qui agissaient comme un éclair pour les chasser partiellement.
 
-Pourtant, à cet instant, elle comprit que la compréhension du Dao de Lu Yuncong était tout simplement ridicule! Il était tombé dans le mensonge des cieux et était incapable d'en s'extraire.
+Pourtant, à cet instant, elle comprit que la compréhension du Dao de Lu Yuncong était tout simplement ridicule! Il était tombé dans le mensonge des cieux et était incapable de s'en extraire.
 
 La voix de Wang Lin fut comme une tempête. Elle se changea en deux mains invisibles qui balayèrent toute la confusion et les nuages de son esprit, révélant enfin l'azur du ciel!
 

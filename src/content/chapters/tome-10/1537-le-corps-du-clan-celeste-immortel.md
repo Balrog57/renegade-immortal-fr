@@ -98,7 +98,7 @@ Le glyphe circulaire qui était apparu sur la plaie de son bras gauche se manife
 
 « Que les cieux et la terre s'ouvrent, que les ancêtres descendent. Les trois sceaux forgent l'immortalité pour toutes les générations! Le premier sceau invoque les cieux! Le deuxième sceau invoque le Dao! Le troisième sceau invoque... Qu'est-ce qu'il invoque? Petit Rouge, que fait le troisième sceau? » Le fou se figea et secoua la tête.
 
-« Oublié... Maudit soit-il, la mémoire de ce roi est trop bonne, je m'en souviendrai absolument! » murmura-t-il en frappant l'espace entre ses sourcils de sa main droite. Une aura jaillit, suivie d'une force indescriptiblement puissante qui emplit le monde à l'intérieur de la Bête du Néant!
+« Oublié... Maudit soit-il, la mémoire de ce roi est trop bonne, je m'en souviendrai absolument! » murmura-t-il en frappant l'espace entre ses sourcils de sa main droite. Une aura jaillit, suivie d'une force indescriptiblement puissante qui emplit le monde à l'intérieur de la Bête des Limbes!
 
 Dans un rugissement, la main droite du fou s'avança comme pour arracher le sceau entre ses propres sourcils. Il le pressa ensuite contre les étoiles divines antiques de Wang Lin!
 

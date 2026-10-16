@@ -30,7 +30,7 @@ Ce trésor aurait dû être considéré comme une création naissante nécessita
 
 Plus stupéfiant encore était l'intention de combat imprégnée dans l'objet. Il s'agissait de l'intention de bataille unifiée que tous les cultivateurs de Luotian voulaient porter contre le Royaume Extérieur. Ce trésor ne présentait aucune faille! Il était un symbole!
 
-Si Wang Lin détruisait ce trésor, il briserait le momentum même qu'Luotian mobilisait pour cette guerre! Le Maître Lu Fu l'avait compris et avait déployé la ruse d'un vieux monstre ayant vécu des dizaines de milliers d'années!
+Si Wang Lin détruisait ce trésor, il briserait le momentum même que Luotian mobilisait pour cette guerre! Le Maître Lu Fu l'avait compris et avait déployé la ruse d'un vieux monstre ayant vécu des dizaines de milliers d'années!
 
 Un tel trésor n'était le fait que de cultivateurs du troisième pas, et il leur était impossible d'en créer autant!
 
@@ -76,9 +76,9 @@ L'intention meurtrière redoubla d'intensité, faisant trembler les étoiles!
 
 « Dans le Royaume aux Sept Couleurs, la moisson des Dao... » L'expression du Maître Yan Leizi et de son groupe changea radicalement. Lorsque le Dieu de Sang ressentit cette intention meurtrière, il cracha du sang.
 
-« Dans l'Ancien Système Stellaire, le sang coulait à flots comme des rivières... » Le domaine stellaire trembla tandis qu'une lueur sanglante l'illuminait. La propagation se poursuivit, et d'innombrables cultivateurs de Luotian furent saisis de stupeur par cette intention meurtrière.
+« Dans le Système Stellaire Antique, le sang coulait à flots comme des rivières... » Le domaine stellaire trembla tandis qu'une lueur sanglante l'illuminait. La propagation se poursuivit, et d'innombrables cultivateurs de Luotian furent saisis de stupeur par cette intention meurtrière.
 
-« Le Clan du Tonnerre dispersé, l'extermination de tout un clan... » D'innombrables âmes tourmentées semblèrent apparaître, poussant des rugissements funèbres. Le cœur des cultivateurs de Luotian vacilla.
+« Le Clan du Tonnerre Dispersé, l'extermination de tout un clan... » D'innombrables âmes tourmentées semblèrent apparaître, poussant des rugissements funèbres. Le cœur des cultivateurs de Luotian vacilla.
 
 « La Tombe de l'Ordre Ancestral était imprégnée de sang... » Le Maître Lu Fu prit une inspiration glacée. L'intention meurtrière que Wang Lin dégageait le stupéfia lui aussi!
 

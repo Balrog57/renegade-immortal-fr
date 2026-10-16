@@ -1,6 +1,6 @@
 ---
 n: 1713
-title: "Trancher la Voile Fantomatique!"
+title: "Trancher la Voile Fantôme!"
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1713 - Chopping the Ghostly Sail!"
@@ -56,21 +56,21 @@ Wang Lin regarda les restes des trois autels avec des yeux emplis de pitié.
 
 Wang Lin secoua la tête. Ce qu'il avait divisé n'était pas seulement sa lignée du Dao Antique, mais aussi son avatar. On pouvait dire que tout avait été divisé en trois et qu'en conséquence, il possédait désormais trois vies.
 
-« Mon corps a obtenu la lignée du Dao Antique et mes corps de démon antique et de diable antique ont atteint huit étoiles. Il est temps de partir... Cependant, avant de partir, je dois affiner la Voile Fantomatique. Avec cela, je pourrais peut-être former ma septième essence!
+« Mon corps a obtenu la lignée du Dao Antique et mes corps de démon antique et de diable antique ont atteint huit étoiles. Il est temps de partir... Cependant, avant de partir, je dois affiner la Voile Fantôme. Avec cela, je pourrais peut-être former ma septième essence!
 
 « Une fois que l'essence de restriction apparaîtra, mon niveau de culture passera du milieu du stade du Vide Spirituel au stade avancé du Vide Spirituel! Avec ma lignée du Dao Antique, je devrais être capable de combattre des cultivateurs du stade avancé du Vide Arcanique!
 
-« Il y a aussi l'essence de la bataille. Autrefois, toute ma compréhension s'était transformée en étoile de la loi. J'aurai besoin d'un certain temps pour me réajuster, et si une autre essence pouvait naître, alors j'atteindrais le sommet du Vide Arcanique! » Wang Lin marmonna pour lui-même avant de s'asseoir. Il tendit sa main droite et la Voile Fantomatique apparut.
+« Il y a aussi l'essence de la bataille. Autrefois, toute ma compréhension s'était transformée en étoile de la loi. J'aurai besoin d'un certain temps pour me réajuster, et si une autre essence pouvait naître, alors j'atteindrais le sommet du Vide Arcanique! » Wang Lin marmonna pour lui-même avant de s'asseoir. Il tendit sa main droite et la Voile Fantôme apparut.
 
-« L'essence de restriction n'est que secondaire. Plus important encore, puisque Fan Shanmeng a pu l'emprunter pour exécuter le sortilège d'illusion, cette voile doit contenir le sortilège du Dao de l'Illusion du Grand Secte de l'Âme...
+« L'essence de restriction n'est que secondaire. Plus important encore, puisque Fan Shanmeng a pu l'emprunter pour exécuter le sortilège d'illusion, cette voile doit contenir le sortilège du Dao de l'Illusion de la Secte de la Grande Âme...
 
-« Le Dao de l'Illusion est la clé, je dois l'étudier. Si je peux en tirer une quelconque compréhension, peut-être pourrai-je utiliser ce trésor pour chercher la troisième âme, tout comme le Taoïste aux Sept Couleurs tentait de le faire!
+« Le Dao de l'Illusion est la clé, je dois l'étudier. Si je peux en tirer une quelconque compréhension, peut-être pourrai-je utiliser ce trésor pour chercher la troisième âme, tout comme le Daoïste aux Sept Couleurs tentait de le faire!
 
 « Pour l'instant, tout dépend de qui trouvera la troisième âme en premier! »
 
 Les yeux de Wang Lin s'illuminèrent tandis que divers plans complexes se dessinaient dans son esprit.
 
-« Je ne sais pas ce que le Taoïste aux Sept Couleurs a vu, mais au vu de sa colère, il n'a probablement pas trouvé où la troisième âme s'était rendue.
+« Je ne sais pas ce que le Daoïste aux Sept Couleurs a vu, mais au vu de sa colère, il n'a probablement pas trouvé où la troisième âme s'était rendue.
 
 « Outre lui, il y a aussi le Vieux Fantôme Zhan; il cherche également la troisième âme. J'ignore quelle méthode il utilise... mais on ne peut pas le sous-estimer. Ils ont déclenché la guerre entre les Royaumes Intérieur et Extérieur pour trouver cette troisième âme. Maintenant que la guerre est terminée, ils utilisent peut-être encore ce moyen pour la rechercher...
 
@@ -80,7 +80,7 @@ Les yeux de Wang Lin s'illuminèrent tandis que divers plans complexes se dessin
 
 « Troisième âme, qui es-tu donc... » Wang Lin médita silencieusement, et ses pensées devinrent progressivement plus claires.
 
-« Ce n'est qu'en trouvant la troisième âme que je pourrai atteindre la porte et l'ouvrir pour emmener tout le monde vers le Continent Astral Immortel... » Wang Lin ferma les yeux et, après un long moment, les rouvrit. Son regard était calme; il ne pensait plus à ces choses. Il s'apprêtait à observer la Voile Fantomatique.
+« Ce n'est qu'en trouvant la troisième âme que je pourrai atteindre la porte et l'ouvrir pour emmener tout le monde vers le Continent Astral Immortel... » Wang Lin ferma les yeux et, après un long moment, les rouvrit. Son regard était calme; il ne pensait plus à ces choses. Il s'apprêtait à observer la Voile Fantôme.
 
 Cependant, à cet instant précis, l'expression de Wang Lin devint soudainement grave, comme si le tonnerre avait grondé dans son esprit. Il regarda au loin et son visage s'assombrit progressivement.
 
@@ -90,7 +90,7 @@ Cependant, à cet instant précis, l'expression de Wang Lin devint soudainement 
 
 « Ses complots étaient prodigieux, et il m'a tendu des pièges à maintes reprises. Maintenant qu'il est caché, comment ai-je pu l'oublier? » L'expression de Wang Lin devint sombre.
 
-« Le Souverain Céleste aux Sept Couleurs a été divisé en trois âmes et sept fragments. Quant aux sept fragments, je sais seulement que Qing Shui est l'un d'eux. Pour les six autres, j'ai mes hypothèses. L'Omniscient... Est-il l'un des sept fragments ou... la troisième âme! » Les yeux de Wang Lin brillèrent. Il se rappela que la troisième âme avait traversé la Rivière de l'Invocation pour entrer dans le Vide Brillant.
+« Le Souverain Céleste aux Sept Couleurs a été divisé en trois âmes et sept fragments. Quant aux sept fragments, je sais seulement que Qing Shui est l'un d'eux. Pour les six autres, j'ai mes hypothèses. L'Omniscient... Est-il l'un des sept fragments ou... la troisième âme! » Les yeux de Wang Lin brillèrent. Il se rappela que la troisième âme avait traversé la Rivière Invoquée pour entrer dans le Vide Brillant.
 
 « Si la troisième âme s'est retrouvée dans le Vide Brillant, alors il est fort probable qu'il s'agisse de l'Omniscient... S'il est vraiment la troisième âme, ce serait bien trop facile à trouver... Est-ce lui ou non... » Wang Lin fronça les sourcils. Il n'avait jamais pu percer le mystère de l'Omniscient. Dès l'instant où Wang Lin était devenu son disciple, une crainte avait germé en lui. Elle ne faisait que croître à mesure que l'Omniscient devenait plus mystérieux.
 
@@ -100,7 +100,7 @@ Cependant, à cet instant précis, l'expression de Wang Lin devint soudainement 
 
 « L'âme du destin de l'Omniscient n'était pas non plus présente dans la rétribution divine du Royaume Céleste Antique... » Wang Lin médita longuement avant de réprimer lentement cette pensée. Il était inutile d'y songer maintenant. Avec le temps, il obtiendrait naturellement ses réponses.
 
-Ses yeux s'illuminèrent et il se tourna vers la Voile Fantomatique. Il l'examina attentivement et vit qu'elle contenait d'innombrables restrictions, incluant les quatre grandes restrictions et bien d'autres encore.
+Ses yeux s'illuminèrent et il se tourna vers la Voile Fantôme. Il l'examina attentivement et vit qu'elle contenait d'innombrables restrictions, incluant les quatre grandes restrictions et bien d'autres encore.
 
 « Si je veux faire naître l'essence de restriction, je dois fusionner toutes ces restrictions. Une fois que je les aurai toutes maîtrisées, l'essence de restriction se formera », murmura Wang Lin alors que son Sens Divin s'étendait. Il s'immergea dans les restrictions de la voile.
 
@@ -120,10 +120,10 @@ Après un long moment, il serra les dents et tendit sa main gauche vers le vide.
 
 Un fracas tonitruant retentit lorsque l'épée de sang perça la voile et y ouvrit une déchirure. Dès que la brèche apparut, le Sens Divin de Wang Lin s'y précipita.
 
-Peu après, le visage fantomatique sur la voile devint féroce et libéra des vagues de rugissements qui résonnèrent dans tout l'espace. C'était comme si un vent violent soufflait hors de la voile, emportant avec lui d'innombrables restrictions. Ces restrictions entourèrent Wang Lin, remplirent ce vide infini et se propagèrent sur chaque pouce de la Mer Nuageuse!
+Peu après, le visage fantomatique sur la voile devint féroce et libéra des vagues de rugissements qui résonnèrent dans tout l'espace. C'était comme si un vent violent soufflait hors de la voile, emportant avec lui d'innombrables restrictions. Ces restrictions entourèrent Wang Lin, remplirent ce vide infini et se propagèrent sur chaque pouce de la Mer des Nuages!
 
-La fissure spatiale dans la Mer Nuageuse fut totalement occupée par une tempête de restrictions.
+La fissure spatiale dans la Mer des Nuages fut totalement occupée par une tempête de restrictions.
 
 La silhouette de Wang Lin fut engloutie par l'innombrable masse des restrictions!
 
-Lorsque la tempête qui occupait toute la Mer Nuageuse se dissipera pour ne former qu'une seule restriction, l'essence de restriction de Wang Lin sera née! Il possédera alors le pouvoir de combattre les cultivateurs du stade avancé du Vide Arcanique!
+Lorsque la tempête qui occupait toute la Mer des Nuages se dissipera pour ne former qu'une seule restriction, l'essence de restriction de Wang Lin sera née! Il possédera alors le pouvoir de combattre les cultivateurs du stade avancé du Vide Arcanique!

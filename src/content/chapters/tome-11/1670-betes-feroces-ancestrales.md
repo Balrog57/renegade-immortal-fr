@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1670 - Ancient Fierce Beasts
 slug: betes-feroces-ancestrales
 ---
-Le vin tiède entra dans sa bouche avec une pointe de fraîcheur avant de brûler l'intérieur de son estomac. Il leva les yeux et rit en rejetant la cruche de vin dans l'eau bouillante. Puis, il pointa du doigt le Système Stellaire Ancestral.
+Le vin tiède entra dans sa bouche avec une pointe de fraîcheur avant de brûler l'intérieur de son estomac. Il leva les yeux et rit en rejetant la cruche de vin dans l'eau bouillante. Puis, il pointa du doigt le Système Stellaire Antique.
 
 « Quiconque souhaite entrer dans le Royaume Intérieur au cours de ces trois années devra passer sur mon cadavre! »
 
@@ -18,7 +18,7 @@ Dès que la lance apparut, les étoiles tremblèrent et une lueur septicolore br
 
 Ce sort était un secret jalousement gardé par le Souverain Céleste aux Sept Couleurs, et il était presque impossible pour des étrangers de l'apprendre. Seul un fou aurait pu utiliser son identité pour dérober une telle technique.
 
-Au moment où la Lance aux Sept Couleurs apparut dans le Système Stellaire Ancestral, le Souverain afficha un regard complexe, empreint de haine. Il apercevait la lance au loin. Il avait vu son maître utiliser ce sort et avait personnellement été témoin de sa puissance lors des guerres passées.
+Au moment où la Lance aux Sept Couleurs apparut dans le Système Stellaire Antique, le Souverain afficha un regard complexe, empreint de haine. Il apercevait la lance au loin. Il avait vu son maître utiliser ce sort et avait personnellement été témoin de sa puissance lors des guerres passées.
 
 « Maître, je vous ai suivi pendant longtemps, mais durant ces innombrables années, vous ne m'avez jamais enseigné un sort d'une telle envergure. Pourtant, vous l'avez transmis à une simple fourmi des cavernes... Votre nature était excentrique et capricieuse. Durant toutes ces années, je vous suis resté fidèle, mais vous avez toujours été avare envers moi! » murmura le Souverain en serrant les poings.
 
@@ -30,7 +30,7 @@ Alors que le fracas résonnait, le système stellaire trembla, ébranlant jusqu'
 
 Sous l'effet de ces grondements, la lumière antique du vortex fut déchirée et s'effondra. La Lance aux Sept Couleurs qui l'avait percutée se désintégra simultanément. L'éclat fut aveuglant, puis, l'instant d'après, toute lumière disparut.
 
-Au même moment, le Parapluie de Combustion du Royaume commença à pivoter et un feu destructeur s'en dégagea. Finalement, les flammes jaillirent de l'ombre du parapluie vers le vortex antique qui avait perdu sa luminosité.
+Au même moment, l'Ombrelle Brûlante du Royaume commença à pivoter et un feu destructeur s'en dégagea. Finalement, les flammes jaillirent de l'ombre du parapluie vers le vortex antique qui avait perdu sa luminosité.
 
 Bien que la lumière du vortex se soit effondrée, le vortex lui-même subsistait. Il semblait qu'une nouvelle clarté était sur le point d'en jaillir.
 
@@ -38,9 +38,9 @@ La lumière septicolore n'avait fait que retarder l'échéance sans détruire co
 
 Cependant, il pouvait briser la lumière avec la lance et recouvrir le ciel avec le parapluie!
 
-À cet instant, le Parapluie de Combustion du Royaume tourna sur lui-même et fonça vers le vortex. Sa vaste canopée bloqua le trou noir situé à l'intérieur de celui-ci.
+À cet instant, l'Ombrelle Brûlante du Royaume tourna sur lui-même et fonça vers le vortex. Sa vaste canopée bloqua le trou noir situé à l'intérieur de celui-ci.
 
-Une fois le passage obstrué, le gigantesque Parapluie de Combustion du Royaume laissa échapper un fracas tonitruant et s'engouffra dans le vortex formé par les cent mille âmes originelles, scellant totalement le trou noir.
+Une fois le passage obstrué, le gigantesque Ombrelle Brûlante du Royaume laissa échapper un fracas tonitruant et s'engouffra dans le vortex formé par les cent mille âmes originelles, scellant totalement le trou noir.
 
 Le trou noir étant ainsi bloqué, le feu se déchaîna et brûla le vortex constitué des cent mille âmes originelles!
 
@@ -50,7 +50,7 @@ Une fois le vortex effondré, les âmes originelles ayant survécu retournèrent
 
 Ce n'était pas seulement leur cas; les dizaines de milliers d'autres cultivateurs ouvrirent les yeux et recrachèrent également du sang.
 
-Wang Lin se tenait au centre de la formation circulaire. Bien qu'il fût au stade intermédiaire du Vide Spirituel, l'usage combiné de la Lance aux Sept Couleurs et du Parapluie de Combustion du Royaume lui imposait un stress immense. Malgré son apparence calme, une douleur lancinante torturait son âme originelle.
+Wang Lin se tenait au centre de la formation circulaire. Bien qu'il fût au stade intermédiaire du Vide Spirituel, l'usage combiné de la Lance aux Sept Couleurs et de l'Ombrelle Brûlante du Royaume lui imposait un stress immense. Malgré son apparence calme, une douleur lancinante torturait son âme originelle.
 
 Wang Lin agita sa manche et lança froidement aux cultivateurs du Royaume Extérieur: « Recommencez donc! »
 

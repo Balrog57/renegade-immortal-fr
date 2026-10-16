@@ -12,7 +12,7 @@ C'était une formation!
 
 Une immense formation composée de six planètes de culture. Cette structure était assez puissante pour anéantir le monde. Elle avait été placée par le Maître de la Secte Démon comme ultime ligne de défense contre les bêtes féroces!
 
-La Secte Démon était divisé en six branches distinctes, chacune stationnée sur une planète différente. Plusieurs Anciens géraient chaque division, mais ils interagissaient rarement entre eux; ils travaillaient souvent de manière isolée!
+La Secte Démon était divisée en six branches distinctes, chacune stationnée sur une planète différente. Plusieurs Anciens géraient chaque division, mais ils interagissaient rarement entre eux; ils travaillaient souvent de manière isolée!
 
 Ce phénomène avait été instauré par le premier et unique Maître de la Secte Démon, et perdurait encore aujourd'hui.
 
@@ -34,7 +34,7 @@ Quant aux neuf yeux dans le ciel, les simples disciples de la Secte Démon en co
 
 Parmi les Anciens, des rumeurs circulaient selon lesquelles la séparation de la Secte Démon et de la Secte Dieu était due à un ordre du premier Maître de la lignée. Ce dernier avait ordonné qu'un groupe de la Secte Dieu soit stationné ici pour des générations afin de garder ce lieu, interdisant à la moindre bête de sortir vivante de la faille spatiale!
 
-Certains prétendaient même que le Maître de la Secte Dieu était la même personne que le Maître de la Secte Démon... On disait qu'il venait du Royaume Céleste Ancien... On racontait qu'il avait disparu depuis longtemps, et que nul ne savait s'il était mort ou vivant. La Secte Dieu serait actuellement dirigé par l'un de ses esclaves agissant en son nom.
+Certains prétendaient même que le Maître de la Secte Dieu était la même personne que le Maître de la Secte Démon... On disait qu'il venait du Royaume Céleste Ancien... On racontait qu'il avait disparu depuis longtemps, et que nul ne savait s'il était mort ou vivant. La Secte Dieu serait actuellement dirigée par l'un de ses esclaves agissant en son nom.
 
 C'était pour cette raison que la Secte Démon n'obéissait pas aux ordres de la Secte Dieu et possédait les moyens nécessaires pour lui faire face!
 
@@ -48,7 +48,7 @@ En chemin, Wang Lin avait déployé une vitesse presque insensée, traversant la
 
 « La Vieille Dame Blanche est partie il y a une demi-lune sur ordre de la Secte Démon pour accomplir une mission pour Li Qianmei. Qui est cette personne devant elle? »
 
-« Je ne parviens pas à percevoir le niveau de culture de cet individu, mais je tremble devant lui. Il est trop puissant! J'ignore de quel secteur il est l'Ancien, mais pourquoi est-il ici? »
+« Je ne parviens pas à percevoir le niveau de culture de cet individu, mais je tremble devant lui. Il est trop puissant! J'ignore de quelle secte il est l'Ancien, mais pourquoi est-il ici? »
 
 « Cet homme est trop puissant et trop étrange; même les bêtes féroces se sont retirées de terreur. Même ces crânes noirs ont commencé à paniquer en le sentant approcher! » L'homme parmi les six génies regardait Wang Lin avec effroi.
 
@@ -82,7 +82,7 @@ Parmi les milliers de cultivateurs, les six génies furent frappés de stupeur, 
 
 Les trois membres de la Secte Démon, également ébranlés, commencèrent à discuter de la force de Wang Lin.
 
-« Il est au moins au premier niveau de la Plaie Céleste, mais pourquoi ne porte-t-il pas d'aura? »
+« Il est au moins au premier niveau du Fléau Céleste, mais pourquoi ne porte-t-il pas d'aura? »
 
 « Peut-être utilise-t-il un sort pour dissimuler sa présence. »
 
@@ -92,7 +92,7 @@ Les trois membres de la Secte Démon, également ébranlés, commencèrent à di
 
 Les trois hommes échangeaient des messages silencieux tout en restant sur leurs gardes.
 
-Seule la vieille femme en blanc restait de marbre. Elle avait observé chaque geste de Wang Lin et savait que même six Grands Anciens de la Secte Éternel auraient eu trop peur pour l'arrêter; deux d'entre eux avaient même perdu leur corps physique. Pour elle, le fait qu'il ne tue que quelques bêtes féroces n'était rien de notable.
+Seule la vieille femme en blanc restait de marbre. Elle avait observé chaque geste de Wang Lin et savait que même six Grands Anciens de la Secte Éternelle auraient eu trop peur pour l'arrêter; deux d'entre eux avaient même perdu leur corps physique. Pour elle, le fait qu'il ne tue que quelques bêtes féroces n'était rien de notable.
 
 Tous les regards convergeaient vers Wang Lin, mais il n'en avait cure. Son temps était compté. Après avoir absorbé les crânes, il scruta la faille spatiale qui s'ouvrait lentement. Il percevait clairement une aura puissante à l'intérieur, une présence qui hésitait, comme si elle attendait quelque chose.
 

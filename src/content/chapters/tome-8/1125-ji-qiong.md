@@ -22,7 +22,7 @@ Les Quatre Sectes Divines n'auraient plus aucun lien avec lui, mais l'expression
 
 C'était parce que l'ancien Empereur Divin Oiseau Vermillon lui avait également légué le Manteau Oiseau Vermillon et le jeton formé par l'Esprit Oiseau Vermillon.
 
-L'Empereur Divin Dragon Azure n'en avait absolument pas fait mention. Si l'on disait qu'il les avait oubliés... Wang Lin ne l'aurait pas cru. De plus, concernant le secret que seul l'Empereur Divin Oiseau Vermillon pouvait connaître — le secret qui avait causé la guerre entre les Quatre Sectes Divines et le Royaume de l'Espace Brillant — l'Empereur Divin Dragon Azure n'avait rien demandé.
+L'Empereur Divin Dragon Azure n'en avait absolument pas fait mention. Si l'on disait qu'il les avait oubliés... Wang Lin ne l'aurait pas cru. De plus, concernant le secret que seul l'Empereur Divin Oiseau Vermillon pouvait connaître — le secret qui avait causé la guerre entre les Quatre Sectes Divines et le Royaume du Vide Brillant — l'Empereur Divin Dragon Azure n'avait rien demandé.
 
 Après avoir éloigné tout le monde, l'Empereur Divin Dragon Azure s'assit dans la salle principale de la Secte Divine Dragon Azure. Il paraissait épuisé, et les Quatre Trésors Sacrés flottaient devant lui.
 

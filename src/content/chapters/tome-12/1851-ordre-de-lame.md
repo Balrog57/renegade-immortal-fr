@@ -56,7 +56,7 @@ Elle ne dégageait aucune lumière.
 
 Avant de commencer sa convalescence, il avait mis en place cette barrière. Il l'avait compressée, ce qui la rendait plus puissante, et elle ne permettait que de sortir, interdisant toute entrée!
 
-« Mes blessures sont guéries à 70 ou 80 %, il ne devrait donc y avoir aucun problème... Maintenant que mon essence d'eau est complète, je dois retourner au Grand Secte de l'Âme. Je me demande s'ils ont récupéré mon jade. »
+« Mes blessures sont guéries à 70 ou 80 %, il ne devrait donc y avoir aucun problème... Maintenant que mon essence d'eau est complète, je dois retourner à la Secte de la Grande Âme. Je me demande s'ils ont récupéré mon jade. »
 
 « À en juger par le temps, ils ne devraient pas encore être arrivés, mais les tremblements du Continent du Taureau Céleste il y a trois jours ont dû attirer l'attention. » Wang Lin médita en se levant. Ses yeux brillèrent alors que sa main gauche s'étendait pour saisir un morceau de jade.
 
@@ -64,7 +64,7 @@ Ce jade paraissait très commun, mais il contenait l'enregistrement de la second
 
 L'enregistrement se poursuivait jusqu'au départ de Wang Lin de la Mer des Pilules.
 
-Wang Lin n'était pas un jeune cultivateur ignorant les rouages du monde. Depuis qu'il avait rejoint le Grand Secte de l'Âme, il savait que les mérites étaient le principal moyen d'obtenir des trésors, des pilules et des techniques de culture auprès d'une secte!
+Wang Lin n'était pas un jeune cultivateur ignorant les rouages du monde. Depuis qu'il avait rejoint la Secte de la Grande Âme, il savait que les mérites étaient le principal moyen d'obtenir des trésors, des pilules et des techniques de culture auprès d'une secte!
 
 S'il se contentait de parler, on le soupçonnerait ou ne le croirait pas. La meilleure façon de se prouver était, bien sûr, de tout consigner dans un jade. Quant à la véracité des faits, il suffirait de visionner l'enregistrement!
 
@@ -76,11 +76,11 @@ Après avoir parcouru plus de 100 000 pieds, des ondulations se firent entendre 
 
 Sans marquer de pause, il poursuivit son vol rapide.
 
-Le temps s'écoula lentement. En un clin d'œil, plus d'une demi-lune s'était écoulée. Wang Lin n'était plus très loin du Grand Secte de l'Âme, mais ce n'était qu'en utilisant la Déformation Spatiale. S'il devait voler normalement, il lui faudrait encore plusieurs mois.
+Le temps s'écoula lentement. En un clin d'œil, plus d'une demi-lune s'était écoulée. Wang Lin n'était plus très loin de la Secte de la Grande Âme, mais ce n'était qu'en utilisant la Déviation Spatiale. S'il devait voler normalement, il lui faudrait encore plusieurs mois.
 
 Il se trouvait également dans les profondeurs du Continent du Taureau Céleste. Des chaînes de montagnes s'étendaient partout et une herbe verdoyante recouvrait le sol. Cette zone n'avait pas été affectée par l'impact de la Mer des Pilules. Après tout, le Continent du Taureau Céleste était d'une immensité telle que la zone touchée par l'explosion n'en représentait qu'une infime partie.
 
-Entre deux utilisations de la Déformation Spatiale, Wang Lin s'asseyait sur le dos du roi moustique qui volait prestement devant lui. En complément de la téléportation spatiale, il se reposait sur l'insecte pour récupérer. Après plus d'un demi-mois, ses blessures étaient guéries à 80 ou 90 %. Le reste était négligeable.
+Entre deux utilisations de la Déviation Spatiale, Wang Lin s'asseyait sur le dos du roi moustique qui volait prestement devant lui. En complément de la téléportation spatiale, il se reposait sur l'insecte pour récupérer. Après plus d'un demi-mois, ses blessures étaient guéries à 80 ou 90 %. Le reste était négligeable.
 
 Ce jour-là, alors qu'il volait, Wang Lin leva soudainement la tête et plissa les yeux. Devant lui, plusieurs éclats de lumière fantomatique apparurent. Des grues en papier noir volaient au cœur de ces lueurs!
 
@@ -88,13 +88,13 @@ Ces grues s'éparpillèrent dans différentes directions, se déplaçant même p
 
 Son Sens Divin pénétra dans la grue en papier et une voix puissante résonna soudainement dans son esprit:
 
-« Le Continent du Démon Vert envahit les terres. La Mer des Pilules a été détruite, tout comme la barrière entourant le Continent du Taureau Céleste. Leur armée approchera bientôt. Le Grand Secte de l'Âme et la Secte Gui Yi émettent l'Ordre de l'Âme. Toutes les sectes doivent se sceller, et tous les cultivateurs aptes au combat doivent se rassembler aux sept points clés du Continent du Taureau Céleste, établis il y a des éons! »
+« Le Continent du Démon Vert envahit les terres. La Mer des Pilules a été détruite, tout comme la barrière entourant le Continent du Taureau Céleste. Leur armée approchera bientôt. La Secte de la Grande Âme et la Secte Gui Yi émettent l'Ordre de l'Âme. Toutes les sectes doivent se sceller, et tous les cultivateurs aptes au combat doivent se rassembler aux sept points clés du Continent du Taureau Céleste, établis il y a des éons! »
 
 Wang Lin relâcha la grue en papier qui disparut instantanément sans laisser de trace.
 
 Wang Lin contempla le ciel devant lui, l'esprit tourmenté par mille pensées. Après un long moment, il fronça les sourcils et chassa ces réflexions étranges. Il se calma, s'assit sur le dos du roi moustique et reprit sa route.
 
-Pendant que Wang Lin regagnait le Grand Secte, vingt jours après l'explosion, des dizaines de cultivateurs de la Tribulation du Vide du Continent du Démon Vert arrivèrent en éclaireurs. Leur objectif était de dévorer les cultivateurs du troisième stade du Continent du Taureau Céleste à tout prix!
+Pendant que Wang Lin regagnait la Grande Secte, vingt jours après l'explosion, des dizaines de cultivateurs de la Tribulation du Vide du Continent du Démon Vert arrivèrent en éclaireurs. Leur objectif était de dévorer les cultivateurs du troisième stade du Continent du Taureau Céleste à tout prix!
 
 Plus ils massacreraient, plus leurs chances de victoire augmenteraient!
 

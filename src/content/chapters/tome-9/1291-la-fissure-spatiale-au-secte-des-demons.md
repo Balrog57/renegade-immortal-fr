@@ -6,15 +6,15 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1291 - The Spatial Crack at the Demon Secte
 slug: la-fissure-spatiale-au-secte-des-demons
 ---
-Le regard de Wang Lin balaya les six anciens de la Secte Éternel avant qu'il ne retire sa main. L'épée de sang dans sa main droite brilla d'un éclat rouge puis se transforma en une goutte de sang. Celle-ci atterrit entre ses sourcils et s'y grava avant de disparaître progressivement.
+Le regard de Wang Lin balaya les six anciens de la Secte Éternelle avant qu'il ne retire sa main. L'épée de sang dans sa main droite brilla d'un éclat rouge puis se transforma en une goutte de sang. Celle-ci atterrit entre ses sourcils et s'y grava avant de disparaître progressivement.
 
-D'un geste de la main droite, il déclencha une tempête. Il emporta la vieille femme avec lui et disparut sous les yeux des membres de la Secte Éternel.
+D'un geste de la main droite, il déclencha une tempête. Il emporta la vieille femme avec lui et disparut sous les yeux des membres de la Secte Éternelle.
 
 « Ce trésor, raffiné à partir d'une étoile divine ancienne par un dieu ancien d'étoiles inconnues, est véritablement incroyable! En tant que dieu ancien de 6 étoiles, je ne peux utiliser qu'environ 30 % de la puissance de l'épée, mais ces 30 % suffisent à abattre n'importe quel cultivateur du Premier Fléau Céleste! » Wang Lin volait à travers les étoiles à une vitesse fulgurante.
 
 La vieille femme à ses côtés était stupéfaite par ce spectacle. La puissance dont Wang Lin avait fait preuve la remplissait d'incrédulité.
 
-« Avant de combattre le Daoïste Water, j'étais à mi-chemin du stade de la Rupture du Nirvana et je pouvais affronter des cultivateurs du Premier Fléau Céleste. Cependant, ce serait une bataille acharnée. Pour gagner, j'aurais dû payer un prix, et ce serait extrêmement difficile!
+« Avant de combattre le Shui Daozi, j'étais à mi-chemin du stade de la Rupture du Nirvana et je pouvais affronter des cultivateurs du Premier Fléau Céleste. Cependant, ce serait une bataille acharnée. Pour gagner, j'aurais dû payer un prix, et ce serait extrêmement difficile!
 
 Cependant, pour l'instant, je n'ai pas encore levé le sceau de ma culture. Après avoir compris mon premier sort taoïste dans le royaume du Dao, mon corps s'est renforcé, et je peux déjà vaincre des cultivateurs du Premier Fléau Céleste! Quant aux cultivateurs du Deuxième Fléau Céleste, même si je ne suis pas aussi puissant qu'eux, avec cette arme de dieu ancien, je peux tenir tête! »
 
@@ -26,37 +26,37 @@ C'était une puissance acquise au prix de sa propre vie, il était donc difficil
 
 Il ressentait sa propre force. Cette puissance lui donnait l'impression de tenir le monde entier entre ses poings lorsqu'il les serrait. La confiance inondait son cœur!
 
-« Mon objectif est de devenir un cultivateur du troisième niveau, pour tuer le Daoïste Water et l'ancêtre de la famille Luotian qui m'a trompé avec le sort Qixi! » [1]
+« Mon objectif est de devenir un cultivateur du troisième niveau, pour tuer le Shui Daozi et l'ancêtre de la famille Luotian qui m'a trompé avec le sort Qixi! » [1]
 
-Avant son combat contre le Daoïste Water, Wang Lin considérait le troisième niveau comme un royaume légendaire et dévastateur, capable de briser le ciel, que seuls les vrais dieux pouvaient atteindre. Chaque fois qu'il y pensait, cela exerçait sur lui une pression si puissante qu'elle semblait pouvoir tout détruire, une force à laquelle il ne pouvait résister.
+Avant son combat contre le Shui Daozi, Wang Lin considérait le troisième niveau comme un royaume légendaire et dévastateur, capable de briser le ciel, que seuls les vrais dieux pouvaient atteindre. Chaque fois qu'il y pensait, cela exerçait sur lui une pression si puissante qu'elle semblait pouvoir tout détruire, une force à laquelle il ne pouvait résister.
 
-Cependant, désormais, parce que la culture de Wang Lin s'était améliorée, parce qu'il avait combattu le Daoïste Water et parce qu'il avait atteint la compréhension dans le royaume du Dao, le voile mystérieux entourant les cultivateurs du troisième niveau s'était déchiré. Leur légende d'invincibilité s'effondrait, et il ne restait plus que l'intention meurtrière de Wang Lin!
+Cependant, désormais, parce que la culture de Wang Lin s'était améliorée, parce qu'il avait combattu le Shui Daozi et parce qu'il avait atteint la compréhension dans le royaume du Dao, le voile mystérieux entourant les cultivateurs du troisième niveau s'était déchiré. Leur légende d'invincibilité s'effondrait, et il ne restait plus que l'intention meurtrière de Wang Lin!
 
 Franchissant la région de rang 8 avec la détermination de sauver Li Qianmei, Wang Lin pénétrait pour la première fois dans la région de rang 9!
 
-Alors qu'il entrait dans cette région, un homme était assis dans une pièce secrète à l'intérieur de la Secte Divin. Les veines sur son visage étaient gonflées et son corps dégageait une lueur septicolore infinie. Le garçon aux cheveux blancs poussa un cri lugubre.
+Alors qu'il entrait dans cette région, un homme était assis dans une pièce secrète à l'intérieur de la Secte Divine. Les veines sur son visage étaient gonflées et son corps dégageait une lueur septicolore infinie. Le garçon aux cheveux blancs poussa un cri lugubre.
 
 Son visage vieillissait rapidement, mais dès qu'il atteignait une limite d'âge, le processus s'inversait. Ce cycle se répétait sans fin. Cette alternance entre la vie et la mort causait une douleur qu'aucun être ordinaire ne pourrait endurer!
 
-Le Daoïste Water subissait cette agonie depuis 10 ans!
+Le Shui Daozi subissait cette agonie depuis 10 ans!
 
-« Petit bâtard, je vais te faire payer la douleur que ce vieil homme endure par dix mille fois plus encore!!!! De plus, Maître, même si vous n'êtes pas mort, vous devez être extrêmement faible. Sinon, je n'aurais pas pu m'échapper il y a 10 ans! » L'expression du Daoïste Water était féroce, mais bientôt, il se remit à hurler de douleur.
+« Petit bâtard, je vais te faire payer la douleur que ce vieil homme endure par dix mille fois plus encore!!!! De plus, Maître, même si vous n'êtes pas mort, vous devez être extrêmement faible. Sinon, je n'aurais pas pu m'échapper il y a 10 ans! » L'expression du Shui Daozi était féroce, mais bientôt, il se remit à hurler de douleur.
 
 Ses pupilles avaient disparu, totalement remplacées par une lumière septicolore!
 
-Ignorant le Daoïste Water pour l'instant, une fois Wang Lin entré dans la région de rang 9, la vieille femme prit immédiatement les devants. Tous deux percèrent le brouillard et chargèrent vers la Secte des Démons!
+Ignorant le Shui Daozi pour l'instant, une fois Wang Lin entré dans la région de rang 9, la vieille femme prit immédiatement les devants. Tous deux percèrent le brouillard et chargèrent vers la Secte des Démons!
 
 Des bêtes de rang 12 rôdaient dans le brouillard de la région de rang 9, mais Wang Lin n'avait pas le temps de les tuer et ne voulait pas être ralenti. Dès qu'il pénétra dans la brume, sa culture explosa et une intention meurtrière monstrueuse terrassa toutes les bêtes environnantes. Le brouillard fut repoussé et les bêtes cachées à l'intérieur s'écartèrent pour lui laisser le passage!
 
-« Secte Divin, Daoïste Water, je vous tuerai sans faute! » Dans la région de rang 9, l'intention meurtrière de Wang Lin devint plus oppressante encore.
+« Secte Divine, Shui Daozi, je vous tuerai sans faute! » Dans la région de rang 9, l'intention meurtrière de Wang Lin devint plus oppressante encore.
 
 En chemin, Wang Lin se déplaçait à une vitesse suprême. Des grondements tonitruants éclataient alors qu'il déchirait le brouillard devant lui, fonçant vers le champ de bataille de la Secte des Démons sous la guidance de la vieille femme.
 
 La Secte des Démons était l'organisation la plus mystérieuse de la région de rang 9. La rumeur disait que ses disciples étaient peu nombreux, mais que chacun d'entre eux était un cultivateur prodigieux!
 
-Stationnés sur le champ de bataille depuis d'innombrables années pour repousser les vagues d'invasions de bêtes féroces, les membres de la Secte des Démons étaient imprégnés d'une intention meurtrière constante. De plus, comme ils ne quittaient presque jamais leur domaine, les habitants de la Mer des Nuages les considéraient comme l'égal de la Secte Divin!
+Stationnés sur le champ de bataille depuis d'innombrables années pour repousser les vagues d'invasions de bêtes féroces, les membres de la Secte des Démons étaient imprégnés d'une intention meurtrière constante. De plus, comme ils ne quittaient presque jamais leur domaine, les habitants de la Mer des Nuages les considéraient comme l'égal de la Secte Divine!
 
-Les rumeurs affirmaient que la Secte des Démons s'était séparé de la Secte Divin et ne lui obéissait plus. Tout cela était très étrange. Que ce soit vrai ou faux, cela suffisait à démontrer la puissance de la Secte des Démons!
+Les rumeurs affirmaient que la Secte des Démons s'était séparée de la Secte Divine et ne lui obéissait plus. Tout cela était très étrange. Que ce soit vrai ou faux, cela suffisait à démontrer la puissance de la Secte des Démons!
 
 En restant postés sur le champ de bataille durant des éternités pour assurer la paix de la Mer des Nuages, leur manque d'information incitait les habitants de la Mer des Nuages à les regarder avec crainte. Ils respectaient leur vertu et redoutaient leurs secrets!
 
@@ -100,7 +100,7 @@ Derrière la multitude de combattants se tenaient trois individus. Ils étaient 
 
 La mort des cultivateurs, l'effondrement des bêtes et l'odeur du sang semblaient n'avoir aucune emprise sur eux. Ils restaient là, immobiles, observant la fissure spatiale. Personne ne savait ce qu'ils pensaient.
 
-Ils étaient de véritables disciples de la Secte des Démons! Lorsque certains cultivants se retiraient pour avaler des pilules et récupérer, ils les regardaient parfois avec une immense crainte dans les yeux.
+Ils étaient de véritables disciples de la Secte des Démons! Lorsque certains cultivateurs se retiraient pour avaler des pilules et récupérer, ils les regardaient parfois avec une immense crainte dans les yeux.
 
 Au milieu du massacre incessant et des tonnerres, les bêtes féroces à l'intérieur de la fissure reculèrent soudainement. Alors que leurs rugissements faisaient vibrer l'espace, une aura puissante jaillit de la fissure spatiale. Les bêtes environnantes devinrent instantanément plus féroces encore.
 
@@ -110,7 +110,7 @@ Au milieu du massacre incessant et des tonnerres, les bêtes féroces à l'inté
 
 « À l'époque, Li Qianmei et deux autres ont chacune tué une bête royale et ont été reconnues par la Secte des Démons! Une autre bête royale est là aujourd'hui. C'est notre chance! »
 
-Dès que les cultivants environnants perçurent cette aura émanant de la fissure, ils furent frappés de stupeur. Ils reculèrent immédiatement pour se concentrer sur la faille spatiale.
+Dès que les cultivateurs environnants perçurent cette aura émanant de la fissure, ils furent frappés de stupeur. Ils reculèrent immédiatement pour se concentrer sur la faille spatiale.
 
 Les six puissants combattants firent de même. L'une des femmes, au regard glacial, laissa éclater son intention meurtrière.
 

@@ -106,7 +106,7 @@ La tempête l'enveloppa mais ne le blessa pas. Au lieu de cela, elle le tira der
 
 Tandis qu'elle s'effondrait, des filaments de gaz blanc s'en échappèrent pour pénétrer dans le corps de Maître Long Pan. Simultanément, un Feu Éthéré commença à brûler en son sein.
 
-« Je vais sacrifier ma vitalité et, en échange, je brûlerai mon âme originelle pour atteindre la force du début du stade Arcanique... Je vais tuer tous les cultivateurs du Royaume Extérieur dans le Royaume Intérieur... détruire les Royaumes aux Sept Couleurs restants, et reprendre la Rivière des Invocations en échange de la vie de Maître Zhong Xuan... » Maître Long Pan joignit les mains devant Wang Lin avant de lancer un regard empreint de douceur à Maître Zhong Xuan.
+« Je vais sacrifier ma vitalité et, en échange, je brûlerai mon âme originelle pour atteindre la force du début du stade Arcanique... Je vais tuer tous les cultivateurs du Royaume Extérieur dans le Royaume Intérieur... détruire les Royaumes aux Sept Couleurs restants, et reprendre la Rivière Invoquée en échange de la vie de Maître Zhong Xuan... » Maître Long Pan joignit les mains devant Wang Lin avant de lancer un regard empreint de douceur à Maître Zhong Xuan.
 
 « Maître!!! » Maître Zhong Xuan reprit ses esprits et se prostra sans cesse au sol, les yeux emplis d'une tristesse infinie et d'un profond remords...
 

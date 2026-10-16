@@ -14,7 +14,7 @@ L'ensemble de la Secte Dong Lin ressemblait à une bulle soufflée par un enfant
 
 Plus une chose est belle, plus elle est illusoire.
 
-Dans la montagne arrièré de cette illusion, les oiseaux chantaient et le parfum des fleurs flottait dans l'air. Des cris joyeux s'échappaient de petites bêtes, tandis qu'un imposant autel se dressait là.
+Dans la montagne arrière de cette illusion, les oiseaux chantaient et le parfum des fleurs flottait dans l'air. Des cris joyeux s'échappaient de petites bêtes, tandis qu'un imposant autel se dressait là.
 
 Cet autel ressemblait à une tour. Il mesurait 10 000 pieds de large pour 1 000 pieds de haut. Taillé dans la pierre bleue, il dégageait une sensation de froid intense.
 
@@ -50,7 +50,7 @@ Lorsqu'il avait pénétré pour la première fois dans la Secte Dong Lin sur le 
 
 « Est-ce que je contrôle vraiment tout ce qui se trouve dans le monde de la grotte... L'aura de l'Omniscient, ces tablettes de pierre... Les faux souvenirs du Souverain Céleste aux Sept Couleurs... Quel secret se cache derrière tout cela? »
 
-« Cette Secte Dong Lin n'est pas un lieu ordinaire. Le Grand Empereur Dong Lin est apparu ici avant de tomber. On ne peut même pas retrouver son corps... »
+« Cette Secte Dong Lin n'est pas un lieu ordinaire. Le Grand Empyréen Dong Lin est apparu ici avant de tomber. On ne peut même pas retrouver son corps... »
 
 « Qui a détruit l'ensemble de la Secte Dong Lin... Était-ce l'Omniscient? Le Souverain Céleste aux Sept Couleurs? Ou quelqu'un ayant des liens profonds avec le monde de la grotte et que j'aurais manqué... » Wang Lin méditait en silence.
 
@@ -58,13 +58,13 @@ Wang Lin observa le Bassin Dong Lin durant un long moment avant de prendre une p
 
 En voyant son image aux cheveux blancs et à la robe blanche, son corps trembla. Un grondement résonna dans son esprit et il sembla se souvenir de quelque chose.
 
-« Une chose était très étrange. J'avais émis des hypothèses à ce sujet... À propos de ma Perle Défiante du Ciel. Comment le Souverain Céleste aux Sept Couleurs a-t-il pu dérober la Perle Défiante du Ciel au Grand Empereur Dao Yi et à mon Maître sans attirer leur attention... »
+« Une chose était très étrange. J'avais émis des hypothèses à ce sujet... À propos de ma Perle Défiante du Ciel. Comment le Souverain Céleste aux Sept Couleurs a-t-il pu dérober la Perle Défiante du Ciel au Grand Empyréen Dao Yi et à mon Maître sans attirer leur attention... »
 
 « Pourquoi est-ce que, dans le monde de la grotte, Rêve Bleu et les autres, y compris le Daoïste aux Sept Couleurs, pouvaient voir que je possédais la Perle Défiante du Ciel... alors que sur le Continent Astral Immortel, même à présent, personne ne l'a remarqué... »
 
 « Pourquoi mon propre Maître, Xuan Luo, n'a-t-il rien vu lorsqu'il s'est rendu dans le monde de la grotte? Peut-être l'avait-il décelée sans pour autant parler? »
 
-« Si c'est réellement le cas, j'ai également rencontré le Grand Empereur Dao Yi. Pourquoi n'a-t-il rien dit et n'a-t-il pas tenté de la voler... Je suis désormais convaincu qu'ils ne l'ont pas vue! »
+« Si c'est réellement le cas, j'ai également rencontré le Grand Empyréen Dao Yi. Pourquoi n'a-t-il rien dit et n'a-t-il pas tenté de la voler... Je suis désormais convaincu qu'ils ne l'ont pas vue! »
 
 « Que représente exactement la Perle Défiante du Ciel? Qui a créé la boussole qui lui est destinée, et quelle est sa fonction... Pourquoi certains dans le monde de la grotte peuvent-ils voir que je la possède, alors que personne sur le Continent Astral Immortel n'en est capable... »
 
@@ -72,7 +72,7 @@ En voyant son image aux cheveux blancs et à la robe blanche, son corps trembla.
 
 « Si je parviens à lier cette affaire à la destruction de la Secte Dong Lin, je découvrirai peut-être les secrets les plus stupéfiants cachés dans le monde de la grotte! » L'expression de Wang Lin changea alors qu'il scrutait les environs.
 
-« En vérité, j'ai un autre moyen de découvrir ce qui est arrivé à la Secte Dong Lin et qui l'a détruit... Mais même les Grands Empereurs ne peuvent le deviner par divination. Même l'Instructeur Impérial fut troublé pendant trois jours et en perdit la mémoire. Moi... puis-je y parvenir... »
+« En vérité, j'ai un autre moyen de découvrir ce qui est arrivé à la Secte Dong Lin et qui l'a détruit... Mais même les Grands Empyréens ne peuvent le deviner par divination. Même l'Enseignant Impérial fut troublé pendant trois jours et en perdit la mémoire. Moi... puis-je y parvenir... »
 
 Wang Lin hésita un instant, mais bientôt, ses yeux s'emplirent de détermination. Ce n'était pas seulement une question liée à la Secte Dong Lin, c'était aussi une affaire le concernant personnellement. Après tout, il venait du monde de la grotte et possédait la Perle Défiante du Ciel.
 
@@ -84,11 +84,11 @@ Liu Jinbiao, qui se tenait aux côtés de Wang Lin, se retourna soudainement. Wa
 
 « Que mon corps fusionne avec ce monde... Que mon Sens Divin s'assimile au vide... Avec mon âme, je créerai un monde; avec mon rêve, je rêverai du changement dans le temps... » La fusion du Tao des Rêves de Wang Lin et du Temps Fluide créa une puissance mystérieuse lui permettant de retourner dans le passé, tout comme dans le monde de la grotte!
 
-Wang Lin ignorait si d'autres pouvaient accomplir un tel prodige, mais parmi tous ceux qu'il avait rencontrés, lui seul en était capable, et il devait emprunter la puissance de la Voile Fantôme du Grande Secte des Âmes!
+Wang Lin ignorait si d'autres pouvaient accomplir un tel prodige, mais parmi tous ceux qu'il avait rencontrés, lui seul en était capable, et il devait emprunter la puissance de la Voile Fantôme de la Secte de la Grande Âme!
 
 Alors qu'il s'immergeait dans le Tao des Rêves, il leva silencieusement sa main droite et fit un geste. La Voile Fantôme apparut et tourna autour de lui.
 
-Un rêve de mille ans...
+Un rêve de milliers d'années...
 
 Dans le rêve de Wang Lin, le temps recula d'un millénaire, puis d'un autre, encore un autre... jusqu'à ce qu'il oublie lui-même le temps écoulé. La Secte Dong Lin était redevenu la Secte Dong Lin...
 
@@ -108,7 +108,7 @@ L'instant d'après, le ciel s'assombrit, mais cela n'attira l'attention d'aucun 
 
 Les compagnons de secte qui se saluaient poussèrent tous des cris déchirants avant que leurs corps ne deviennent des amas sanglants de cadavres... Dans le ciel, dans le jardin d'herbes, parmi les petites bêtes et lors des conférences de Dao, des hurlements de douleur résonnèrent.
 
-Tout la Secte Dong Lin était comme une bulle, mais à cet instant précis, ce fut comme si une main venait de la toucher, faisant éclater cette magnifique bulle... Et dès que la bulle éclata, toute vie en son sein s'éteignit!
+Toute la Secte Dong Lin était comme une bulle, mais à cet instant précis, ce fut comme si une main venait de la toucher, faisant éclater cette magnifique bulle... Et dès que la bulle éclata, toute vie en son sein s'éteignit!
 
 Tandis que les membres de la Secte Dong Lin mouraient, une silhouette floue apparut dans le ciel, sous le soleil. Cette figure se découpait sur l'astre solaire, rendant toute observation précise impossible...
 

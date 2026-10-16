@@ -10,7 +10,7 @@ Le ciel se déforma alors que la planète illusoire des Cinq Éléments s'effond
 
 Sans l'intervention de ces trois-là, le renversement de la formation de la Roue Céleste à Neuf Cycles aurait tué tous les présents. Ce n'était pas par cruauté que Wang Lin agissait, mais il venait lui-même d'en subir les conséquences.
 
-Wang Lin apparut dans ce ciel distordu et observa calmement la planète. Il vit les centaines de cultivateurs inconscients, Na Dou, le vieil homme au bras droit brisé, ainsi que trois hommes d'âge moyen à l'aura sombre qui le fixaient.
+Wang Lin apparut dans ce ciel distordu et observa calmement la planète. Il vit les centaines de cultivateurs inconscients, Na Duo, le vieil homme au bras droit brisé, ainsi que trois hommes d'âge moyen à l'aura sombre qui le fixaient.
 
 Bien que ces trois individus parussent d'âge mûr, leurs auras antiques révélaient qu'ils avaient vécu depuis bien trop longtemps. Leurs vêtements singuliers indiquaient qu'ils n'étaient pas des cultivateurs du monde des grottes, mais du Continent Astral Immortel!
 
@@ -66,7 +66,7 @@ Cependant, à cet instant précis, une aura puissante émana du quatrième étag
 
 Ce jeune homme paraissait ordinaire, mais ses yeux brillaient d'une lueur étrange. C'était le même qui était sorti de la faille spatiale lors de la rétribution divine de Wang Lin!
 
-Ce jeune homme cherchait quelque chose dans la Rivière des Appels, mais des années auparavant, il était revenu, impuissant, pour s'isoler en culture secrète au quatrième étage. Il était désormais contraint de sortir par Wang Lin!
+Ce jeune homme cherchait quelque chose dans la Rivière Invoquée, mais des années auparavant, il était revenu, impuissant, pour s'isoler en culture secrète au quatrième étage. Il était désormais contraint de sortir par Wang Lin!
 
 Il connaissait Wang Lin, et Wang Lin l'avait déjà rencontré!
 

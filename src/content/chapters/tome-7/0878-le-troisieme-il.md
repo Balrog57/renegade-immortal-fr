@@ -124,7 +124,7 @@ L'expression de Wang Lin resta sereine face à Xu Ting, mais l'intention meurtri
 
 La ligne rouge entre ses sourcils commença soudainement à s'étendre sur les côtés. Le troisième œil s'ouvrit et libéra un rayon de lumière rouge d'une intensité inimaginable. Cette lumière se déploya comme un éventail et se propagea avec rapidité!
 
-Du fait de la libération de l'un des sceaux, une partie de la puissance terrifiante scellée par Wang Lin fusionna avec la lumière rouge!
+Du fait de la libération de l'un des sceaux, un tiers de la puissance terrifiante scellée par Wang Lin fusionna avec la lumière rouge!
 
 Au moment où la montagne noire descendait, elle fut enveloppée par cette lueur. Elle commença à se désintégrer couche après couche. En un demi-souffle, elle redevint une brume noire avant de disparaître totalement.
 

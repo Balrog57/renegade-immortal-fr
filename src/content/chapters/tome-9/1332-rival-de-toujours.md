@@ -62,7 +62,7 @@ Grand Rouge fixa Xu Liguo, son expression devenant encore plus grave: « Même s
 
 Wang Lin esquissa un sourire énigmatique tout en alternant son regard entre Xu Liguo et Grand Rouge. La raison pour laquelle il avait convoqué Xu Liguo était en partie liée à Grand Rouge.
 
-« Il serait peut-être préférable que Xu Liguo collecte des cristaux de tonnerre pour moi au sein du Clan de la Foudre Dispersée... » Wang Lin prit sa décision, puis hocha légèrement la tête et dit lentement: « Si tu accomplis cela avec succès, nous pourrons en discuter. »
+« Il serait peut-être préférable que Xu Liguo collecte des cristaux de tonnerre pour moi au sein du Clan du Tonnerre Dispersé... » Wang Lin prit sa décision, puis hocha légèrement la tête et dit lentement: « Si tu accomplis cela avec succès, nous pourrons en discuter. »
 
 Sur ces mots, Wang Lin envoya un message mental à Xu Liguo lui signifiant son ordre. En l'entendant, le corps de ce dernier se mit à trembler. Il tremblait d'excitation et, une fois Wang Lin achevé, il leva les yeux avec enthousiasme en riant:
 
@@ -88,7 +88,7 @@ Il sortit avec désinvolture une pilule dont il ne mentionnait pas la valeur. C'
 
 Les yeux de Wang Lin s'illuminèrent et il fit un geste de la main. La pilule atterrit dans la paume de Grand Rouge.
 
-« Je te donne cette pilule. Désormais, tu m'aideras à collecter des objets pour les échanger contre des cristaux de tonnerre! » dit doucement Wang Lin. Il n'avait pas l'intention d'échanger ses propres pilules, car cela renforcerait le Clan de la Foudre Dispersée. Au lieu de cela, il allait utiliser Grand Rouge pour soutirer les trésors des membres du clan afin de les convertir en cristaux!
+« Je te donne cette pilule. Désormais, tu m'aideras à collecter des objets pour les échanger contre des cristaux de tonnerre! » dit doucement Wang Lin. Il n'avait pas l'intention d'échanger ses propres pilules, car cela renforcerait le Clan du Tonnerre Dispersé. Au lieu de cela, il allait utiliser Grand Rouge pour soutirer les trésors des membres du clan afin de les convertir en cristaux!
 
 Grand Rouge prit une profonde inspiration, serra la pilule et déclara immédiatement: « Aîné, soyez assuré que le junior fera de son mieux! »
 

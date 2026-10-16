@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1150 - Shocking Change
 slug: changement-de-toute-ampleur
 ---
-Ce vaste système stellaire était saturé de brume stellaire. Bien qu'il semblât calme, une pesante intention meurtrière imprégnait ce brouillard. Il s'agissait de la région de rang 5 de la Mer Nuageuse, où environ 40 % des continents appartenaient à des sectes.
+Ce vaste système stellaire était saturé de brume stellaire. Bien qu'il semblât calme, une pesante intention meurtrière imprégnait ce brouillard. Il s'agissait de la région de rang 5 de la Mer des Nuages, où environ 40 % des continents appartenaient à des sectes.
 
 Pour les régions de rang 1 à 4, la région de rang 5 représentait une existence inaccessible. Si un membre d'une secte de rang 5 se rendait dans une région de rang 4, il y serait accueilli avec les plus grands honneurs.
 
@@ -66,7 +66,7 @@ Certains cultivateurs de sectes de rang 5 observaient la scène de loin. Ils res
 
 Ils formaient un groupe de sept et s'étaient montrés très prudents dès leur arrivée, craignant d'attirer trop de bêtes; ils n'avaient donc naturellement récolté que peu d'herbes. En voyant l'arrogance du singe noir, ils en furent totalement stupéfaits.
 
-Le singe noir courait à toute allure et, d'un bond, franchit des milliers de pieds pour atteindre une autre montagne. Le sommet de cette montagne, semblable à une lame, était extrêmement escarpé, mais cela n'était rien pour le singe. Arrivé au sommet, l'animal tendit la main vers un bouquet de fleurs de brume qui y croissaient.
+Le singe noir courait à toute allure et, d'un bond, franchit des milliers de pieds pour atteindre une autre montagne. Le sommet de cette montagne, semblable à une lame, était extrêmement escarpé, mais cela n'était rien pour le singe. Arrivé au sommet, l'animal tendit la main vers un bouquet de Fleurs de Brume qui y croissaient.
 
 Il s'empara immédiatement des fleurs nichées dans la brume.
 
@@ -84,11 +84,11 @@ D'autres bêtes encore plus féroces se mirent à sa poursuite.
 
 Shi Luoxing était assis en position de lotus dans une vallée sombre. Son visage était pâle et du sang séché maculait le coin de sa bouche. Ses cheveux noirs étaient ébouriffés; il était dans un état déplorable.
 
-Un hurlement fantomatique continuait de résonner et de siffler dans la zone. Peu de temps après, quatre silhouettes titubèrent dans la vallée et, lorsqu'elles furent à moins de dix mètres de Shi Luoxing, l'une d'elles cracha une bouchée de sang.
+Un hurlement fantomatique continuait de résonner et de siffler dans la zone. Peu de temps après, quatre silhouettes titubèrent dans la vallée et, lorsqu'elles furent à moins de trente pieds de Shi Luoxing, l'une d'elles cracha une bouchée de sang.
 
 — Maître, le troisième frère est mort. Nous... nous ne pouvons pas nous échapper... Ces cinq jeunes hommes portaient des robes blanches couvertes de taches de sang.
 
-Shi Luoxing resta pensif. Il ne prit pas les yeux, mais la tristesse se lut sur son visage.
+Shi Luoxing resta pensif. Il n'ouvrit pas les yeux, mais la tristesse se lut sur son visage.
 
 Lui et ses disciples se trouvaient dans cette vallée saturée de brume. Des âmes errantes emplissaient ce brouillard et, à l'extérieur de la vallée, huit crânes géants flottaient, reliés par des éclairs verts pour former une formation.
 

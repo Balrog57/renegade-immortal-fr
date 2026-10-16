@@ -1,6 +1,6 @@
 ---
 n: 980
-title: Maître Vent Creux (2)
+title: Maître Fu Fengzi (2)
 book: 8
 bookTitle: "Alliance's Secret"
 en: Chapter 980 - Master Hollow Wind (2)
@@ -52,7 +52,7 @@ Le vieil homme n'osa pas résister et permit à Wang Lin de poser le sceau. L'em
 
 Les sept hommes en noir avaient déjà été éliminés par Da Tou. Se léchant les lèvres, Da Tou retourna aux côtés de Wang Lin.
 
-Le vieil homme poussa un soupir, puis revint sur le bateau en un éclair. Il convoqua tous ses disciples et, après avoir donné quelques ordres, les laissa partir avec l'embarcation. Il rejoignit le dos de Lei Ji avant Wang Lin et eut un sourire amer: « Suivant les ordres du camarade cultivateur, j'ai réglé toutes les affaires triviales. Mon vrai nom est Chen Feng et mon surnom est Maître Vent Creux. Aujourd'hui, j'ai perdu face à vous et je n'en ai aucun regret. Moi, Chen Feng, respecterai ma promesse de vous aider dans la Terre des Esprits Démoniaques. Cependant, j'espère qu'après notre retour, le camarade cultivateur relâchera le sceau et qu'il n'y aura aucune rancune entre nous! »
+Le vieil homme poussa un soupir, puis revint sur le bateau en un éclair. Il convoqua tous ses disciples et, après avoir donné quelques ordres, les laissa partir avec l'embarcation. Il rejoignit le dos de Lei Ji avant Wang Lin et eut un sourire amer: « Suivant les ordres du camarade cultivateur, j'ai réglé toutes les affaires triviales. Mon vrai nom est Chen Feng et mon surnom est Maître Fu Fengzi. Aujourd'hui, j'ai perdu face à vous et je n'en ai aucun regret. Moi, Chen Feng, respecterai ma promesse de vous aider dans la Terre des Esprits Démoniaques. Cependant, j'espère qu'après notre retour, le camarade cultivateur relâchera le sceau et qu'il n'y aura aucune rancune entre nous! »
 
 Wang Lin regarda calmement Chen Feng et dit lentement: « Mon sceau n'est pas puissant. Si vous voulez le lever, vous le pourrez facilement. »
 
@@ -126,7 +126,7 @@ Cette scène stupéfia une fois de plus les trois frères Chen.
 
 Le Maître Yi Chen rendit rapidement le geste, mais son cœur était sous le choc. Il ne s'attendait pas à ce que Chen Feng manifeste une telle peur par la simple parole de Wang Lin.
 
-Le Maître Yi Chen joignit les mains et dit: « Camarade cultivateur Wang, j'ignorais que vous et le Senior Vent Creux étiez... »
+Le Maître Yi Chen joignit les mains et dit: « Camarade cultivateur Wang, j'ignorais que vous et le Senior Fu Fengzi étiez... »
 
 « C'est mon serviteur. » Wang Lin n'en dit pas plus. Il adressa un signe de tête au Maître Yi Chen et s'apprêta à partir.
 
@@ -134,4 +134,4 @@ Il ignorait que ses paroles furent comme des dizaines de milliers d'éclairs exp
 
 Le Maître Yi Chen s'exclama rapidement sans hésitation: « Frère Wang Lin, ne partez pas si vite. La planète Esprit de l'Eau est immense. Si le frère Wang n'y voit aucun inconvénient, vous pouvez y cultiver! »
 
-« Cet homme a un membre du Clan des Démons Géants comme monture, est un cultivateur Purificateur du Nirvana et a fait du célèbre Maître Vent Creux son serviteur. Il y a aussi ce cultivateur à la tête étrange qui est au stade Scruteur du Nirvana, et sa marionnette n'est manifestement pas faible. Je dois absolument me lier d'amitié avec une telle personne! »
+« Cet homme a un membre du Clan des Démons Géants comme monture, est un cultivateur Purificateur du Nirvana et a fait du célèbre Maître Fu Fengzi son serviteur. Il y a aussi ce cultivateur à la tête étrange qui est au stade Scruteur du Nirvana, et sa marionnette n'est manifestement pas faible. Je dois absolument me lier d'amitié avec une telle personne! »

@@ -8,7 +8,7 @@ slug: resoudre-lancien-pacte
 ---
 Le jeune homme portant la marque du croissant de lune se retourna et rugit face à Wang Lin: « Je ne viens pas d'un clan esclave! »
 
-Wang Lin le regarda avec indifférence, tandis que les flammes autour de lui redoublaient d'intensité. La première fois qu'il avait rencontré ce jeune homme, c'était au sein du vide lors de la bataille contre le Serpent Lunatique. Ce dernier venait du Royaume Extérieur et avait formé un vortex dans une tentative de capturer le Serpent Lunatique!
+Wang Lin le regarda avec indifférence, tandis que les flammes autour de lui redoublaient d'intensité. La première fois qu'il avait rencontré ce jeune homme, c'était au sein du vide lors de la bataille contre le Serpent aux yeux de lune. Ce dernier venait du Royaume Extérieur et avait formé un vortex dans une tentative de capturer le Serpent aux yeux de lune!
 
 Cet individu était d'une arrogance extrême, se vantant fièrement d'être le Dao Céleste devant les habitants du Royaume Scellé comme Wang Lin. Wang Lin avait été stupéfait à l'époque, mais plus il en apprenait sur le passé, plus son regard devenait glacial envers le jeune homme.
 
@@ -88,23 +88,23 @@ Wang Lin retira sa main et poussa un soupir.
 
 À cet instant, les flammes de l'Oiseau Vermillon atteignirent un nouveau sommet. Tandis que le feu brûlait, il continua de croître vers le troisième éveil!
 
-À l'extérieur de la majestueuse formation qui scellait cette zone se trouvait le vaste système stellaire connu sous le nom d'Ancien Système Stellaire, ou le Royaume Extérieur!
+À l'extérieur de la majestueuse formation qui scellait cette zone se trouvait le vaste système stellaire connu sous le nom de Système Stellaire Antique, ou le Royaume Extérieur!
 
-Dans l'immensité de l'Ancien Système Stellaire, il existait un lieu empli d'éclairs. C'était là que résidait le célèbre Clan du Tonnerre Disséminé.
+Dans l'immensité du Système Stellaire Antique, il existait un lieu empli d'éclairs. C'était là que résidait le célèbre Clan du Tonnerre Dispersé.
 
-Un lac de tonnerre existait depuis l'éternité au sein du Clan du Tonnerre Disséminé. Ce tonnerre émanait du vide et grondait sans cesse. Le clan avait édifié un temple autour de lui pour lui offrir des sacrifices.
+Un lac de tonnerre existait depuis l'éternité au sein du Clan du Tonnerre Dispersé. Ce tonnerre émanait du vide et grondait sans cesse. Le clan avait édifié un temple autour de lui pour lui offrir des sacrifices.
 
-Cependant, au moment où le membre portant la marque d'éclair mourut et que Wang Lin déclara qu'il leur retirait le droit de contrôler le tonnerre, ce lac éternel émit un hymne tonnerre capable de faire trembler les cieux! Cela choqua tout le Clan du Tonnerre Disséminé et fit sursauter tous leurs cœurs!
+Cependant, au moment où le membre portant la marque d'éclair mourut et que Wang Lin déclara qu'il leur retirait le droit de contrôler le tonnerre, ce lac éternel émit un hymne tonnerre capable de faire trembler les cieux! Cela choqua tout le Clan du Tonnerre Dispersé et fit sursauter tous leurs cœurs!
 
 Les visages de chacun changèrent et ils se précipitèrent. Au moment où ils déployèrent leur Sens Divin, le lac de tonnerre éternel disparut soudainement sans laisser de trace, comme s'il avait été arraché... Après dix respirations, il réapparut, mais cette scène provoqua une panique et une terreur infinies au sein du clan.
 
-Dans l'Ancien Système Stellaire, il y avait aussi la zone du Clan de l'Hirondelle de Feu... Cet endroit ressemblait beaucoup à la Secte Divine de l'Oiseau Vermillon, où toute la région était en flammes.
+Dans le Système Stellaire Antique, il y avait aussi la zone du Clan des Moineaux de Feu... Cet endroit ressemblait beaucoup à la Secte Divine de l'Oiseau Vermillon, où toute la région était en flammes.
 
 De même, d'innombrables statues d'oiseaux vermillions étaient érigées sur les temples. Cependant, ces oiseaux étaient noirs, comme s'ils étaient des oiseaux de feu.
 
-Pourtant, au moment où le membre du Clan de l'Hirondelle de Feu mourut et que Wang Lin déclara qu'il reprenait le contrôle du feu, toutes les statues d'oiseaux de feu tremblèrent et des cris d'hostilité emplirent les étoiles. Des craquements retentirent à travers le cosmos et environ 30 % des statues s'effondrèrent!
+Pourtant, au moment où le membre du Clan des Moineaux de Feu mourut et que Wang Lin déclara qu'il reprenait le contrôle du feu, toutes les statues d'oiseaux de feu tremblèrent et des cris d'hostilité emplirent les étoiles. Des craquements retentirent à travers le cosmos et environ 30 % des statues s'effondrèrent!
 
-Tout le Clan de l'Hirondelle de Feu fut sous le choc!
+Tout le Clan des Moineaux de Feu fut sous le choc!
 
 Au moment où les statues s'écroulèrent, un vieil homme leva les yeux vers le ciel et murmura pour lui-même: « La légende ancienne disait que lorsqu'ils reviendraient, tous les faux oiseaux vermillions s'effondreraient... »
 

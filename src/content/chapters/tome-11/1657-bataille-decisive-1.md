@@ -12,7 +12,7 @@ Cependant, ce n'est qu'à cet instant qu'il réalisa à quel point Wang Lin éta
 
 Désormais, sous le regard de Wang Lin, son cœur battait la chamade. Le regard de ce dernier était tel une épée fendant le ciel pour venir se planter sur Dao Feishan. Inconsciemment, Dao Feishan recula de quelques pas, le visage blême.
 
-Il perdait presque la raison. Les paroles de Wang Lin résonnaient comme un glas funèbre, laissant son esprit vide. Il n'était qu'au stade du Néant Vide et, face à Wang Lin, il avait l'illusion de contempler une montagne infranchissable.
+Il perdait presque la raison. Les paroles de Wang Lin résonnaient comme un glas funèbre, laissant son esprit vide. Il n'était qu'au stade du Vide du Nirvana et, face à Wang Lin, il avait l'illusion de contempler une montagne infranchissable.
 
 À cet instant, le remords l'engloutit comme une mer déchaînée. Il n'aurait pas dû provoquer Mu Bingmei. Il n'aurait jamais dû nourrir de désirs pour la femme du Seigneur du Royaume Scellé.
 
@@ -24,9 +24,9 @@ Une folie pure, dictée par l'instinct de survie!
 
 Il allait capturer Mu Bingmei pour s'en servir comme monnaie d'échange et sauver sa peau. C'était là son unique et ultime espoir!
 
-La distance de trente mètres n'était rien pour un cultivateur de la troisième étape, mais tout dépendait de celui qui observait. Aux yeux de Wang Lin, Dao Feishan n'en était absolument pas digne!
+La distance de cent pieds n'était rien pour un cultivateur de la troisième étape, mais tout dépendait de celui qui observait. Aux yeux de Wang Lin, Dao Feishan n'en était absolument pas digne!
 
-Il parvint à moins de trois mètres de Mu Bingmei, mais celle-ci ne esquiva nullement. Elle lança un regard glacial à Dao Feishan, ses beaux yeux empreints de mépris.
+Il parvint à moins de dix pieds de Mu Bingmei, mais celle-ci ne esquiva nullement. Elle lança un regard glacial à Dao Feishan, ses beaux yeux empreints de mépris.
 
 L'expression de Wang Lin resta sereine alors qu'il faisait un pas en avant. Sa vitesse dépassait l'entendement de Dao Feishan. Son ombre sembla encore figée sur place lorsqu'il apparut soudain devant Mu Bingmei, la main tendue.
 
@@ -54,7 +54,7 @@ Puis, son corps trembla et explosa. Le sang éclaboussa partout, mais aucune gou
 
 Bien que son corps fût réduit en miettes, l'âme originelle de Dao Feishan était gravement blessée mais pas encore éteinte. Elle s'échappa du cadavre dans un état de confusion totale, avant que Wang Lin ne lui saisisse le cou.
 
-Wang Lin serra impitoyablement, et dans un craquement sinistre, un cultivateur du Néant Vide de la troisième étape rendit l'âme!
+Wang Lin serra impitoyablement, et dans un craquement sinistre, un cultivateur du Vide du Nirvana de la troisième étape rendit l'âme!
 
 Cette scène sanglante fit reculer les cultivateurs du Royaume Extérieur dans un souffle de stupeur. L'homme robuste qui se tenait devant Qing Shui sentit son cuir chevelu s'engourdir; il battit en retraite sans hésiter.
 
@@ -64,7 +64,7 @@ Cependant, alors qu'il commençait sa fuite, Wang Lin se retourna brusquement. S
 
 L'homme robuste poussa un rugissement de folie et fit volte-face. Ses mains formèrent des sceaux et sa paume jaillit vers Wang Lin.
 
-Des grondements de tonnerre retentirent et l'homme cracha du sang. Ses bras craquèrent sous l'impact alors qu'ils s'effondraient. Il hurla tandis que son corps était projeté en arrière sur plus de trois cents mètres.
+Des grondements de tonnerre retentirent et l'homme cracha du sang. Ses bras craquèrent sous l'impact alors qu'ils s'effondraient. Il hurla tandis que son corps était projeté en arrière sur plus de mille pieds.
 
 L'intention meurtrière brûlait dans les yeux de Wang Lin lorsqu'il rattrapa l'homme. Sa main droite se referma et fonça vers la poitrine de sa proie. Le regard de l'homme était empreint d'une folie née du désespoir. Dans un ultime sursaut, il mordit le bout de sa langue et projeta une flèche de sang. Celle-ci se mua en un souffle de vent écarlate qui se transforma en une tempête rugissante vers Wang Lin.
 
@@ -98,7 +98,7 @@ Pourtant, la force d'aspiration des doigts de Wang Lin ne faiblit pas; elle s'in
 
 Son corps se mua en liquide et, dans ce processus de dissolution, son âme originelle fut également extraite. Ce spectacle frappa les esprits de tous les témoins.
 
-Ils venaient d'assister à la destruction totale d'un cultivateur du Néant Vide de la troisième étape. En fin de compte, tout ce qui restait de lui formait une simple boule de gaz dans la main de Wang Lin!
+Ils venaient d'assister à la destruction totale d'un cultivateur du Vide du Nirvana de la troisième étape. En fin de compte, tout ce qui restait de lui formait une simple boule de gaz dans la main de Wang Lin!
 
 Cette sphère gazeuse était l'essence même de l'homme robuste!
 

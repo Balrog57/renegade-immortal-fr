@@ -12,7 +12,7 @@ L'apparition soudaine du Grand Empyréen Jiu Di ne surprit pas l'Empereur Céles
 
 L'expression du Grand Empyréen Jiu Di était grave tandis qu'il fixait l'Empereur Céleste. Son regard se posa sur la tête de l'Ancêtre Céleste, et une expression complexe traversa son visage.
 
-« La tête de l'Ancêtre Céleste... Autrefois, ce vieil homme suivait l'Ancêtre Céleste, et voilà maintenant des millénaires qui ont passé... Lian Daozhen, ce vieil homme a connu plusieurs générations d'Empereurs Célestes, mais tu peux être considéré comme le plus grandiose!
+« La tête de l'Ancêtre Céleste... Autrefois, ce vieil homme suivait l'Ancêtre Céleste, et voilà maintenant d'innombrables années qui ont passé... Lian Daozhen, ce vieil homme a connu plusieurs générations d'Empereurs Célestes, mais tu peux être considéré comme le plus grandiose!
 
 « En utilisant le désir de l'Instructeur Impérial, tu as obtenu le contrôle de la tête de l'Ancêtre Céleste. Si tu avais eu assez de temps pour absorber pleinement la tête de l'Ancêtre Céleste dans ton corps, tu serais bel et bien le premier Grand Empyréen de notre clan céleste!
 

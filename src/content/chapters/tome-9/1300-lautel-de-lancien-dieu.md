@@ -48,11 +48,11 @@ Wang Lin apprit également qu'il existait une zone interdite au plus profond de 
 
 Wang Lin retira son sens divin et se mit à réfléchir. Il comprit que l'endroit vers lequel menait cette faille n'était probablement pas le Royaume Extérieur, comme le pensait la Secte Démon, mais un lieu mystérieux.
 
-Pour une raison inconnue, alors qu'il retirait son sens divin après avoir exploré les souvenirs du scorpion, il pensa involontairement à la fissure spatiale du Royaume Céleste des Vents. Il se remémora le roi des moustiques géants luttant pour sortir de la faille et ce monde chaotique peuplé de bêtes moustiques de l'autre côté.
+Pour une raison inconnue, alors qu'il retirait son sens divin après avoir exploré les souvenirs du scorpion, il pensa involontairement à la fissure spatiale du Royaume Céleste du Vent. Il se remémora le roi des moustiques géants luttant pour sortir de la faille et ce monde chaotique peuplé de bêtes moustiques de l'autre côté.
 
 « Existe-t-il un lien entre ces deux endroits... » Wang Lin médita un instant avant de cesser sa réflexion. Au lieu de cela, il se tourna vers la sortie et s'y précipita.
 
-Puisque Wang Lin n'était pas certain que ce lieu menait au Royaume Extérieur, il ne comptait plus perdre de temps ici. Il devait retourner à la Secte Démon le plus vite possible pour rejoindre la Formation du Royaume Scellé. Il lui fallait trouver un moyen d'en sortir et de chercher le Maître du Dao, Rêve Bleu!
+Puisque Wang Lin n'était pas certain que ce lieu menait au Royaume Extérieur, il ne comptait plus perdre de temps ici. Il devait retourner à la Secte Démon le plus vite possible pour rejoindre la Formation du Royaume Scellé. Il lui fallait trouver un moyen d'en sortir et de chercher le Maître du Dao Rêve Bleu!
 
 Au début, c'étaient les bêtes féroces qui assiégeaient Wang Lin; désormais, c'était lui qui les chassait une à une. Au fil de son massacre, il accélérait de plus en plus vers la sortie.
 
@@ -82,7 +82,7 @@ Le regard de la femme se posa sur l'épée. Ses yeux brillèrent d'une lueur ét
 
 Wang Lin devint prudent tout en fixant la femme. Celle-ci ne semblait pas puissante, mais il avait le vague sentiment qu'il ne faisait pas face à son corps véritable, mais à un avatar!
 
-La femme joua avec ses cheveux et murmura: « Ne soyez pas nerveux, mon corps originel est en pleine guérison, c'est pourquoi seul mon avatar est venu. Bien qu'il soit au stade de la Flétrissure Céleste, je ne pourrai peut-être pas vous forcer à rester, et je ne souhaite pas devenir votre ennemie! »
+La femme joua avec ses cheveux et murmura: « Ne soyez pas nerveux, mon corps originel est en pleine guérison, c'est pourquoi seul mon avatar est venu. Bien qu'il soit au stade du Fléau Céleste, je ne pourrai peut-être pas vous forcer à rester, et je ne souhaite pas devenir votre ennemie! »
 
 Wang Lin ne prononça pas un mot et son visage resta impassible, mais il serra l'épée de sang plus fermement dans sa main gauche.
 

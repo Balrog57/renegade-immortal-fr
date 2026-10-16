@@ -14,9 +14,9 @@ Zhou Yi afficha une expression mélancolique en regardant Wang Lin et secoua la 
 
 Wang Lin eut un sourire amer et expliqua simplement la situation à Zhou Yi. Il ne mentionna pas l'origine et parla seulement du réveil de l'Oiseau Vermillon. Ce n'était pas que Wang Lin ne faisait pas confiance à Zhou Yi, mais la question de l'origine était tout simplement trop importante.
 
-« Maître Vide! » Une lueur froide brilla dans les yeux de Zhou Yi, et une pointe de culpabilité apparut dans son regard envers Wang Lin.
+« Maître du Vide! » Une lueur froide brilla dans les yeux de Zhou Yi, et une pointe de culpabilité apparut dans son regard envers Wang Lin.
 
-« Si ce n'était pas pour avoir ramené Qing Shuang, il n'aurait pas été dans un tel danger... Maître Vide, je me souviendrai de cette personne! » Zhou Yi hocha la tête et n'insista pas, mais il grava le nom de Maître Vide dans son cœur. Blesser Wang Lin, qui était venu lui apporter Qing Shuang, revenait à franchir sa limite. Si l'occasion se présentait, compte tenu de la personnalité de Zhou Yi, il ferait payer un terrible prix à Maître Vide.
+« Si ce n'était pas pour avoir ramené Qing Shuang, il n'aurait pas été dans un tel danger... Maître du Vide, je me souviendrai de cette personne! » Zhou Yi hocha la tête et n'insista pas, mais il grava le nom de Maître du Vide dans son cœur. Blesser Wang Lin, qui était venu lui apporter Qing Shuang, revenait à franchir sa limite. Si l'occasion se présentait, compte tenu de la personnalité de Zhou Yi, il ferait payer un terrible prix à Maître Vide.
 
 « Tu es probablement venu pour les pilules ici, bien que la plupart aient déjà été prises par le couple de cultivateurs du Nuage Céleste. Les seules qui restent sont celles qui sont utiles aux corps spirituels. Ils ne les ont pas prises car leur méthode de stockage est très complexe. » Alors que Zhou Yi parlait, il changea soudainement de sujet: « Mais ne t'inquiète pas, je trouverai un moyen de t'obtenir ces pilules! »
 
@@ -104,7 +104,7 @@ Hu Juan regarda Wang Lin et agita la main vers la restriction sur la droite. La 
 
 « Vous avez dû remarquer la différence entre les restrictions autour de la salle d'alchimie. Avec votre culture des restrictions, vous auriez dû vous en douter... Une fois que le Maître a ouvert l'antre céleste, tous les bâtiments et les restrictions ici ont été mis en place par moi sur ses ordres. Seule moi peux parfaire les restrictions de ce lieu. » La voix de Hu Juan n'était pas forte, mais lorsqu'elle atteignit les oreilles de Wang Lin, elle résonna comme un tonnerre rugissant.
 
-Wang Lin eut un haut-le-cœur et sourit amèrement. « C'est donc bien vous. Je pensais que c'était le Senior Wang Wei. »
+Wang Lin eut un sursaut et sourit amèrement. « C'est donc bien vous. Je pensais que c'était le Senior Wang Wei. »
 
 Wang Wei secoua la tête en riant. « Ma culture des restrictions est plus faible que la sienne, sinon je n'aurais pas perdu notre pari concernant votre restriction à l'époque. »
 

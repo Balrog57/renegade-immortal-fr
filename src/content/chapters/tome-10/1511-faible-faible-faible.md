@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1511 - Weak Weak Weak!"
 slug: faible-faible-faible
 ---
-Au moment où le Taoïste Water agita la main, la montagne de l'image sembla perdre toute la puissance qui la soutenait. Elle commença sa chute, prête à écraser les membres de la Secte Origin!
+Au moment où le Shui Daozi agita la main, la montagne de l'image sembla perdre toute la puissance qui la soutenait. Elle commença sa chute, prête à écraser les membres de la Secte de l'Origine!
 
 Les cultivateurs vêtus de noir qui flottaient autour de la montagne restèrent de marbre, affichant des sourires cruels comme s'ils se délectaient de la mort tragique imminente des disciples de la Secte Origin.
 
@@ -14,11 +14,11 @@ Cependant, à cet instant précis, une lueur sanglante teinta toute l'image de r
 
 Un rouge vif, semblable au sang!
 
-Une épée de sang apparut de nulle part au cœur de cette lumière écarlate et fonça vers la montagne gigantesque qui s'apprêtait à broyer les membres de la Secte Origin!
+Une épée de sang apparut de nulle part au cœur de cette lumière écarlate et fonça vers la montagne gigantesque qui s'apprêtait à broyer les membres de la Secte de l'Origine!
 
 Tout se produisit en un instant, avec une rapidité dépassant l'entendement. L'épée de sang entra en collision avec la montagne. Ce n'était pas une montagne ordinaire; elle était protégée par d'innombrables restrictions. Ces dernières s'illuminèrent dans une tentative désespérée de résister à l'épée!
 
-Pourtant, si même les cultivateurs du troisième pas ne pouvaient y résister, et si le corps de Tuo Sen lui-même ne pouvait l'arrêter, comment cette simple montagne pourrait-elle espérer tenir? La montagne était un trésor de la Secte Divin et du Taoïste Water, mais peu importait.
+Pourtant, si même les cultivateurs du troisième pas ne pouvaient y résister, et si le corps de Tuo Sen lui-même ne pouvait l'arrêter, comment cette simple montagne pourrait-elle espérer tenir? La montagne était un trésor de la Secte Divine et du Shui Daozi, mais peu importait.
 
 Elle ne put rien contre l'épée de sang!
 
@@ -38,35 +38,35 @@ Tout cela se passa si vite que personne ne put percevoir clairement la scène. S
 
 Une fois leurs corps transpercés, leurs âmes originelles périrent. Toute leur essence fut absorbée en un instant. Lorsqu'ils frappèrent le sol, ils n'étaient déjà plus que des cadavres momifiés!
 
-Tout ce qui s'était produit dans l'illusion entre Wang Lin et le Taoïste Water ne prit que trois respirations après que Wang Lin eut parlé!
+Tout ce qui s'était produit dans l'illusion entre Wang Lin et le Shui Daozi ne prit que trois respirations après que Wang Lin eut parlé!
 
 « Es-tu qualifié... » Les paroles de Wang Lin résonnaient encore sur la planète. L'épée de sang brilla une nouvelle fois et, après avoir massacré tout le monde, elle jaillit hors de l'image!
 
 Au moment où elle surgit, l'aura sanglante passa de l'illusion à la réalité. L'épée de sang fit s'effondrer l'image, propageant son aura écarlate!
 
-L'épée de sang à ses côtés, Wang Lin avança vers le Taoïste Water stupéfait, le regard glacial! Il leva la main droite et la frappa violemment!
+L'épée de sang à ses côtés, Wang Lin avança vers le Shui Daozi stupéfait, le regard glacial! Il leva la main droite et la frappa violemment!
 
 Le monde trembla. Bien que Wang Lin ne fût pas un cultivateur du troisième pas, son corps était aussi puissant qu'un tel! Lorsqu'il leva la main, une paume gigantesque apparut dans le ciel!
 
-Cette paume couvrit l'horizon et descendit soudainement des cieux. Elle perça la montagne et fonça sur le Taoïste Water!
+Cette paume couvrit l'horizon et descendit soudainement des cieux. Elle perça la montagne et fonça sur le Shui Daozi!
 
-De loin, cette scène était inoubliable! Les cinq montagnes entourant le Taoïste Water ressemblaient à une paume, et elles entrèrent bientôt en collision avec l'illusion créée par Wang Lin!
+De loin, cette scène était inoubliable! Les cinq montagnes entourant le Shui Daozi ressemblaient à une paume, et elles entrèrent bientôt en collision avec l'illusion créée par Wang Lin!
 
-Le visage du Taoïste Water se décomposa. Alors que Wang Lin se rapprochait, ce dernier agita ses manches. Plusieurs clous aux sept couleurs apparurent et furent projetés vers Wang Lin!
+Le visage du Shui Daozi se décomposa. Alors que Wang Lin se rapprochait, ce dernier agita ses manches. Plusieurs clous aux sept couleurs apparurent et furent projetés vers Wang Lin!
 
-« Petit bâtard, puisque tu cherches la mort, je vais exaucer ton vœu! » À cet instant, le Taoïste Water restait arrogant. Il agita la main, lançant plusieurs clous aux sept couleurs qui entrèrent en collision avec la paume de Wang Lin.
+« Petit bâtard, puisque tu cherches la mort, je vais exaucer ton vœu! » À cet instant, le Shui Daozi restait arrogant. Il agita la main, lançant plusieurs clous aux sept couleurs qui entrèrent en collision avec la paume de Wang Lin.
 
 Des grondements tonnerreux secouèrent la planète entière et la paume illusoire de Wang Lin se brisa. La force des clous aux sept couleurs contraignit Wang Lin à reculer de trois pas!
 
 Cependant, de la même manière, ces clous tremblèrent et furent balayés au loin!
 
-Tandis que la terre tremblait et que des débris s'effondraient des cinq pics, le Taoïste Water cracha une bouchée de sang et rugit avec terreur dans les yeux: « Zhou De!! »
+Tandis que la terre tremblait et que des débris s'effondraient des cinq pics, le Shui Daozi cracha une bouchée de sang et rugit avec terreur dans les yeux: « Zhou De!! »
 
 À la suite de ce cri, un rire résonna à travers le monde. Le ciel autrefois limpide fut soudainement englouti par les ténèbres. En un instant, le jour fit place à la nuit!
 
 Sous cette obscurité, une silhouette illusoire se condensa et marcha vers Wang Lin!
 
-« Prendre l'argent de quelqu'un et éliminer son désastre. Taoïste Water, n'oublie pas ta promesse, je ne t'aiderai qu'une seule fois! » La silhouette prit rapidement forme pour devenir un vieil homme vêtu de noir!
+« Prendre l'argent de quelqu'un et éliminer son désastre. Shui Daozi, n'oublie pas ta promesse, je ne t'aiderai qu'une seule fois! » La silhouette prit rapidement forme pour devenir un vieil homme vêtu de noir!
 
 Le visage du vieil homme était couvert de protubérances et d'une hideuse apparence. Toutefois, il restait loin de la Grande Désolation. À cet instant, il fit un pas en avant et se retrouva instantanément à moins de mille pieds de Wang Lin.
 
@@ -76,7 +76,7 @@ En vérité, il brûlait de désir pour l'esprit Dao de rang 6 et était venu de
 
 Il se rapprocha instantanément, puis un marais sans fin apparut dans l'obscurité derrière lui. C'était comme s'il voulait dévorer Wang Lin au sein de ce bourbier!
 
-Les yeux du Taoïste Water étaient emplis d'une intention meurtrière monstrueuse. Il chargea Wang Lin depuis une autre direction, et les deux tentèrent de le prendre en étau!
+Les yeux du Shui Daozi étaient emplis d'une intention meurtrière monstrueuse. Il chargea Wang Lin depuis une autre direction, et les deux tentèrent de le prendre en étau!
 
 Deux cultivateurs du troisième pas unissant leurs forces pour tuer une seule personne... Une telle chose était extrêmement rare dans le Royaume Extérieur, et plus encore dans le Royaume Intérieur!
 
@@ -84,7 +84,7 @@ Deux cultivateurs du troisième pas unissant leurs forces pour tuer une seule pe
 
 Trente-deux perles d'abaque apparurent soudainement au sein de ces ondulations. Elles formèrent une ligne droite et se rabattirent instantanément!
 
-L'expression de Wang Lin resta sereine. Il ne jeta même pas un regard au vieil homme en noir ni aux perles d'abaque alors qu'il avançait vers le Taoïste Water!
+L'expression de Wang Lin resta sereine. Il ne jeta même pas un regard au vieil homme en noir ni aux perles d'abaque alors qu'il avançait vers le Shui Daozi!
 
 Dès qu'il bougea, les étoiles du Dieu Antique de Wang Lin brillèrent et l'Estimé Ling Dong apparut dans un éclair violet. Sans hésiter, il chargea le vieil homme avec un sourire narquois. Il agita la main droite et le monde gronda, faisant apparaître une mer pourpre monstrueuse. D'innombrables âmes de flammes Joss hurlèrent tandis que la statue d'un dieu démon se manifestait, ses bras s'ouvrant largement!
 
@@ -108,8 +108,8 @@ Cet homme était venu avec son corps originel. Du sang coula du coin de sa bouch
 
 Zhou Jin recula également de quelques pas, mais resta calme. Il s'élança et sa main droite traça un sceau. Le loup de sang poussa un rugissement et bondit sur l'homme d'âge moyen!
 
-Tandis que tout cela se déroulait, Wang Lin approchait rapidement du Taoïste Water. Ce dernier était en proie à une frénésie, sa voix perçante résonnant dans l'air.
+Tandis que tout cela se déroulait, Wang Lin approchait rapidement du Shui Daozi. Ce dernier était en proie à une frénésie, sa voix perçante résonnant dans l'air.
 
 « Disciples du Yin et du Yang! » Derrière lui, d'innombrables disciples du Yin et du Yang surgirent. Ils se condensèrent pour former une lance et frappèrent vers Wang Lin!
 
-Cette lance contenait toute la culture du Taoïste Water ainsi que toutes ses flammes Joss. À son apparition, le monde trembla. De vastes fissures lacérèrent la planète, comme si celle-ci était sur le point de se briser!
+Cette lance contenait toute la culture du Shui Daozi ainsi que toutes ses flammes Joss. À son apparition, le monde trembla. De vastes fissures lacérèrent la planète, comme si celle-ci était sur le point de se briser!

@@ -60,7 +60,7 @@ Le temps passa sans qu'on ne s'en aperçoive. Des cheveux blancs apparurent sur 
 
 À ce moment-là, Wang Ping se maria. Sa femme portait un très joli nom: Qing Yi. C'était une jeune fille magnifique issue d'une riche famille de la capitale.
 
-Elle se montrait très dévouée envers Wang Lin et Liu Mei, ce qui les comblait de bonheur tout en les émuit profondément. Après tout, cela signifiait que Wang Ping allait fonder sa propre famille et que, tel un oiseau ayant grandi, il s'envolerait haut dans le ciel. Peut-être ne reviendrait-il pas chez lui avant longtemps.
+Elle se montrait très dévouée envers Wang Lin et Liu Mei, ce qui les comblait de bonheur tout en les émut profondément. Après tout, cela signifiait que Wang Ping allait fonder sa propre famille et que, tel un oiseau ayant grandi, il s'envolerait haut dans le ciel. Peut-être ne reviendrait-il pas chez lui avant longtemps.
 
 Wang Lin et Liu Mei choisirent de partir. Ils quittèrent la capitale pour retourner dans leur paisible village de montagne afin d'y passer leurs dernières années.
 

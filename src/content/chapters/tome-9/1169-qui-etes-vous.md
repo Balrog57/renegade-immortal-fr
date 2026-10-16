@@ -86,7 +86,7 @@ De même, dans la Mer des Nuages, il existait une ressource encore plus précieu
 
 Les cristaux originels n'existaient que dans la Mer des Nuages et étaient choyés par ces derniers. Leur absorption permettait de restaurer rapidement l'énergie originelle et pouvait augmenter considérablement la vitesse de culture.
 
-De plus, si l'on utilisait un cristal originel pour créer une formation ou raffiner un trésor, leur puissance en était décuplée.
+De plus, si l'on utilisait un cristal originel pour créer une formation ou raffiner un trésor, leur puissance en était accrue.
 
 Cependant, les cristaux originels étaient aussi rares que les jades célestes. La seule différence résidait dans le fait que les jades célestes se trouvaient dans le Royaume Céleste du Vent, les rendant presque impossibles à obtenir. Quant aux cristaux originels, ils étaient principalement contrôlés par les sectes de rang 8 ou supérieur, et surtout par celles de rang 9.
 

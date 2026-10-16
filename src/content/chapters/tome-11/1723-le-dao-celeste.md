@@ -12,7 +12,7 @@ En observant le jeune homme qui s'ajustait le visage d'un geste de la main, Wang
 
 Sous son regard, le jeune homme maintint son sourire et disparut au loin. Le système stellaire s'estompa et s'effondra progressivement devant Wang Lin, mais celui-ci restait pétrifié par le choc.
 
-À l'extérieur, dans la Rivière des Invocations, le visage de l'avatar de Wang Lin était livide. Des veines pulsaient et disparaissaient sur tout son visage.
+À l'extérieur, dans la Rivière Invoquée, le visage de l'avatar de Wang Lin était livide. Des veines pulsaient et disparaissaient sur tout son visage.
 
 D'innombrables âmes des avatars de l'Omniscient pénétraient une à une dans l'avatar de Wang Lin, tentant de s'en emparer.
 
@@ -20,7 +20,7 @@ Alors que ces âmes fusionnaient, la voix lugubre de l'Omniscient résonna dans 
 
 « Comment peux-tu rivaliser avec ce vieil homme? Ce vieil homme peut désormais prendre possession de ton corps. Ton corps originel a-t-il trouvé le mien? »
 
-Plus de mille âmes de l'Omniscient, provenant de la Rivière des Invocations et du Vide Brillant, avaient déjà fusionné avec l'avatar de Wang Lin. Celles de la Mer Nuageuse et de Luotian approchaient.
+Plus de mille âmes de l'Omniscient, provenant de la Rivière Invoquée et du Vide Brillant, avaient déjà fusionné avec l'avatar de Wang Lin. Celles de la Mer des Nuages et de Luotian approchaient.
 
 Alors que l'image du second éveil de l'Omniscient s'effondrait, Wang Lin vit la scène de son premier éveil!
 
@@ -42,7 +42,7 @@ La masse de fragments fusionna avec le vide, rendant l'espace instable et créan
 
 Après bien des années, un groupe issu des Quatre Sectes Divines, utilisant une méthode inconnue, vint à la recherche d'une planète de culture. Ils masquèrent l'instabilité et dissimulèrent cette faille spatiale en la reliant à la planète.
 
-Ce groupe de cultivateurs finit par repartir. Avec le temps, la faille spatiale réapparaissait occasionnellement. Certains cultivateurs talentueux de la planète la découvrirent et s'en servirent. Elle devint finalement le Champ de Bataille Étranger.
+Ce groupe de cultivateurs finit par repartir. Avec le temps, la faille spatiale réapparaissait occasionnellement. Certains cultivateurs talentueux de la planète la découvrirent et s'en servirent. Elle devint finalement le Champ de Bataille Extérieur.
 
 Au moment où la porte géante se fendit, Wang Lin vit une boule de brouillard percer l'ouverture.
 
@@ -102,7 +102,7 @@ Wang Lin ignora son départ et fixa le demi-compas. Il mémorisa chaque détail 
 
 Les plus de quatre-vingt-dix réincarnations de l'Omniscient prirent fin!
 
-Lorsque Wang Lin ferma les yeux, son rêve prit fin. Il ouvrit les paupières et vit le Maître Dao Bleu Rêve, Qing Lin et le Maître Hong Shan. Il réalisa que son avatar était sur le point d'être totalement submergé dans la Rivière des Invocations!
+Lorsque Wang Lin ferma les yeux, son rêve prit fin. Il ouvrit les paupières et vit le Maître du Dao Rêve Bleu, Qing Lin et le Maître Hong Shan. Il réalisa que son avatar était sur le point d'être totalement submergé dans la Rivière Invoquée!
 
 « J'ai trouvé son corps originel. Vous trois, seniors, n'avez pas besoin de m'accompagner. J'espère que vous pourrez m'aider à contrôler mon avatar pour me gagner du temps! » Wang Lin se leva et salua les trois seniors en joignant les mains. Puis, d'un pas décidé, il s'élança vers l'horizon.
 

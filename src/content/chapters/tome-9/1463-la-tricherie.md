@@ -8,7 +8,7 @@ slug: la-tricherie
 ---
 Le regard de Wang Lin devint sérieux alors qu'il fixait la brume devant lui. Celle-ci disparut progressivement, emportant la jeune fille avec elle.
 
-« Intéressant… » murmura Wang Lin pour lui-même. Il regarda ensuite le symbole numérique qu'il avait pris sur elle. Il écarta la marque sur le côté et laissa la plateforme s'élancer vers l'avant. Après un long moment, il sortit une autre âme de démon ancien et la broya pour en extraire la puissance de démon ancien. Puis, il puisa davantage de puissance de démon ancien dans sa gourde et la fusionna avec sa propre puissance de dieu ancien. Sans hésiter, il porta ensuite sa main sur son propre front.
+« Intéressant… » murmura Wang Lin pour lui-même. Il regarda ensuite le symbole numérique qu'il avait pris sur elle. Il écarta la marque sur le côté et laissa la plateforme s'élancer vers l'avant. Après un long moment, il sortit une autre âme de diable ancien et la broya pour en extraire la puissance de diable ancien. Puis, il puisa davantage de puissance de démon ancien dans sa gourde et la fusionna avec sa propre puissance de dieu ancien. Sans hésiter, il porta ensuite sa main sur son propre front.
 
 Un fracas tonitruant retentit. Le visage de Wang Lin trembla et son énergie originelle circula à une vitesse fulgurante. Il pâlit, mais ses yeux s'illuminèrent. À cet instant, les trois puissances formèrent un vortex entre ses sourcils, et une douleur aiguë, comme si quelque chose le transperçait, envahit son corps.
 
@@ -98,7 +98,7 @@ Ces runes fusionnaient sans cesse avec la plateforme de rang 7, la rapprochant r
 
 Wang Lin était désormais extrêmement habile. D'un geste de la main, il créait une rune, l'arrachait instantanément de son front, puis la plaçait sur la plateforme. Le temps passa. En seulement quelques heures, le nombre de runes sur la plateforme atteignit un chiffre terrifiant.
 
-Il y avait suffisamment d'âmes de démons anciens dans la bouteille pour supporter une telle consommation. Wang Lin pouvait également générer assez de puissance de dieu ancien. Cependant, sa réserve de puissance de démon ancien s'épuisait et il n'en restait presque plus dans la gourde.
+Il y avait suffisamment d'âmes de diables anciens dans la bouteille pour supporter une telle consommation. Wang Lin pouvait également générer assez de puissance de dieu ancien. Cependant, sa réserve de puissance de démon ancien s'épuisait et il n'en restait presque plus dans la gourde.
 
 Heureusement, Wang Lin avait obtenu plusieurs trésors de démons anciens depuis son arrivée. Pour extraire leur puissance, il était prêt à les détruire.
 

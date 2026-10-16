@@ -46,7 +46,7 @@ Sa tristesse avait toujours été enfouie au plus profond de son cœur, dissimul
 
 Tandis qu'il s'éloignait en silence, ses larmes tombaient sur les toits des maisons qu'il dépassait. Les bruits joyeux du palais résonnaient encore, mais Wang Lin ne voulait pas les entendre. Il cherchait un endroit où il pourrait être seul pour se remémorer ses souvenirs.
 
-Il retourna au Temple du Dao Antique et regagna sa demeure. Il s'assit à l'intérieur, sans aucun cœur pour la culture ou pour contempler le Grand Soleil Éthéré dans le monde de la grotte. Il resta là, contemplant le monde coloré pendant un long moment.
+Il retourna au Temple du Dao Antique et regagna sa demeure. Il s'assit à l'intérieur, sans aucun cœur pour la culture ou pour contempler le Grand Soleil Empyréen dans le monde de la grotte. Il resta là, contemplant le monde coloré pendant un long moment.
 
 « J'ai une culture qui perce les cieux... Mais à quoi bon... »
 
@@ -104,7 +104,7 @@ Il était le disciple de Xuan Luo, et Xuan Luo était le gardien du Dao Antique.
 
 Les yeux de Wang Lin s'illuminèrent et il leva la main droite. Un jade noir apparut soudainement dans sa paume!
 
-Ce jade dégageait une lueur sombre et spectrale, comme si un simple regard pouvait vous y emprisonner. Ce jade lui avait été offert par l'Estimé Taureau Vert au sein du Grand Secte des Âmes. Il provenait du génie du clan Dao Wang qui avait tout orchestré pour obtenir la liberté des siens. Ce génie qui avait extrait son propre cerveau et son cœur pour s'agenouiller devant une statue de Wang Lin, comme s'il implorait le pardon, pesant ainsi l'importance de son esprit face à sa vie!
+Ce jade dégageait une lueur sombre et spectrale, comme si un simple regard pouvait vous y emprisonner. Ce jade lui avait été offert par l'Estimé Taureau Vert au sein de la Secte de la Grande Âme. Il provenait du génie du clan Dao Wang qui avait tout orchestré pour obtenir la liberté des siens. Ce génie qui avait extrait son propre cerveau et son cœur pour s'agenouiller devant une statue de Wang Lin, comme s'il implorait le pardon, pesant ainsi l'importance de son esprit face à sa vie!
 
 « Ce jade peut vous aider à diviner l'avenir une fois... » Les paroles gravées dans le jade résonnèrent dans l'esprit de Wang Lin.
 

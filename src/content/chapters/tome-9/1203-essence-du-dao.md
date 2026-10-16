@@ -12,11 +12,11 @@ L'histoire du Royaume aux Sept Couleurs était mystérieuse, et ce lieu regorgea
 
 Après avoir absorbé les souvenirs du Maître Pin Cendré, Wang Lin en avait appris davantage sur le Royaume aux Sept Couleurs. Il avait même découvert l'utilité de la bouteille de liquide ainsi que la méthode pour quitter cet endroit.
 
-S'il ne s'était pas élevé du stade initial au stade intermédiaire de la Condensation de Qi, il aurait hésité. Après tout, Wang Lin avait acquis une bien meilleure compréhension des périls qui régnaient ici grâce aux souvenirs du Maître Pin Cendré. Plus important encore, il connaissait désormais l'existence de cette montagne nichée dans les profondeurs du Royaume aux Sept Couleurs.
+S'il ne s'était pas élevé du stade initial au stade intermédiaire du Purificateur du Nirvana, il aurait hésité. Après tout, Wang Lin avait acquis une bien meilleure compréhension des périls qui régnaient ici grâce aux souvenirs du Maître Pin Cendré. Plus important encore, il connaissait désormais l'existence de cette montagne nichée dans les profondeurs du Royaume aux Sept Couleurs.
 
-Cependant, le domaine de Wang Lin ayant progressé, il lui suffisait d'absorber assez de cristaux d'origine pour atteindre le stade intermédiaire de la Condensation de Qi. À ce moment-là, grâce à son corps de Dieu Ancien, il pourrait éliminer sans difficulté des cultivateurs au stade intermédiaire de la Brisure de Nirvana. Seuls les cultivateurs au stade tardif de la Brisure de Nirvana représenteraient un véritable défi.
+Cependant, le domaine de Wang Lin ayant progressé, il lui suffisait d'absorber assez de cristaux d'origine pour atteindre le stade intermédiaire du Purificateur du Nirvana. À ce moment-là, grâce à son corps de Dieu Ancien, il pourrait éliminer sans difficulté des cultivateurs au stade intermédiaire du Briseur du Nirvana. Seuls les cultivateurs au stade tardif du Briseur du Nirvana représenteraient un véritable défi.
 
-« Si je peux atteindre le sommet du stade de Condensation de Qi, ces vieux monstres au stade tardif de la Brisure de Nirvana ne feront pas le poids! » Wang Lin prit une profonde inspiration, et une immense quantité d'énergie originelle se précipita dans son corps pour y être entièrement absorbée.
+« Si je peux atteindre le sommet du stade du Purificateur du Nirvana, ces vieux monstres au stade tardif du Briseur du Nirvana ne feront pas le poids! » Wang Lin prit une profonde inspiration, et une immense quantité d'énergie originelle se précipita dans son corps pour y être entièrement absorbée.
 
 Des bruits de craquements résonnèrent tandis que ses cheveux s'agitaient sans qu'aucun vent ne souffle. Son âme originelle était également en pleine culture et continuait de croître alors qu'elle dévorait cette énergie originelle infinie.
 
@@ -24,13 +24,13 @@ Des bruits de craquements résonnèrent tandis que ses cheveux s'agitaient sans 
 
 À l'instant même où il ouvrit les yeux, la masse de cristaux d'origine autour de lui s'effondra en poussière, formant un anneau protecteur tout autour de lui.
 
-Stade intermédiaire de la Condensation de Qi!
+Stade intermédiaire du Purificateur du Nirvana!
 
 Wang Lin sourit et expira une bouffée d'air. Puis, d'un geste de la main, il fit apparaître une bouteille de jade. C'était l'objet qu'il avait pris au Maître Pin Cendré.
 
-« Utiliser les Perdus pour dévorer le Dao et les Éclairés pour nourrir le Dao. Le Dao ainsi nourri est ensuite absorbé par les quatre tablettes de pierre. Puis, utiliser la scripture gravée sur le squelette sous la tablette pour transformer ce Dao en une force inimaginable. Cette force sert alors à extraire ce sang noir du squelette. Mais ce n'est pas du sang, c'est l'essence du Dao de cette personne! » Les yeux de Wang Lin brillèrent intensément. C'était l'information cruciale qu'il avait extraite de l'esprit du Maître Pin Cendré.
+« Utiliser les Perdus pour dévorer le Dao et les Éveillés pour nourrir le Dao. Le Dao ainsi nourri est ensuite absorbé par les quatre tablettes de pierre. Puis, utiliser la scripture gravée sur le squelette sous la tablette pour transformer ce Dao en une force inimaginable. Cette force sert alors à extraire ce sang noir du squelette. Mais ce n'est pas du sang, c'est l'essence du Dao de cette personne! » Les yeux de Wang Lin brillèrent intensément. C'était l'information cruciale qu'il avait extraite de l'esprit du Maître Pin Cendré.
 
-Wang Lin n'avait pas découvert comment le Maître Pin Cendré avait obtenu ces informations. Après tout, ce dernier était un cultivateur au stade intermédiaire de la Brisure de Nirvana, et le sort de recherche d'âme n'était pas exempt de défauts. Wang Lin n'avait pu tout obtenir.
+Wang Lin n'avait pas découvert comment le Maître Pin Cendré avait obtenu ces informations. Après tout, ce dernier était un cultivateur au stade intermédiaire du Briseur du Nirvana, et le sort de recherche d'âme n'était pas exempt de défauts. Wang Lin n'avait pu tout obtenir.
 
 « La clé de cette essence du Dao réside dans l'identité de ce demi-squelette! Il y a deux tablettes de pierre et, d'après ce que j'ai vu, chacune devrait avoir un demi-squelette cloué en dessous; il ne s'agissait donc que d'une seule personne! »
 
@@ -78,13 +78,13 @@ Une formation était tracée sur le sol de la grotte. Elle dégageait une lumiè
 
 Trois personnes se trouvaient dans la sixième grotte. Ces trois individus semblaient dépourvus de corps physique, n'étant que des fantômes. Ils dérivaient dans la grotte en semblant réciter quelque chose, mais la paroi bloquant le passage empêchait Wang Lin d'entendre quoi que ce soit.
 
-« Les Éclairés... » Wang Lin vit qu'il y avait encore plus de restrictions à l'intérieur. Elles étaient là pour les sceller totalement, rendant leur sortie impossible, à moins qu'ils ne s'éveillent un jour et ne brisent la restriction par eux-mêmes.
+« Les Éveillés... » Wang Lin vit qu'il y avait encore plus de restrictions à l'intérieur. Elles étaient là pour les sceller totalement, rendant leur sortie impossible, à moins qu'ils ne s'éveillent un jour et ne brisent la restriction par eux-mêmes.
 
 Un jade était également placé dans la grotte.
 
 Prenant une profonde inspiration, Wang Lin avança vers la septième grotte et rendit elle aussi la paroi transparente. Ses yeux se rétrécirent lorsqu'il aperçut un vieil homme assis à l'intérieur.
 
-Les cheveux de ce vieillard étaient gris et son visage d'une pâleur mortelle. Il restait là, comme s'il avait siégé depuis une éternité. Les restrictions ici étaient encore plus nombreuses que dans la grotte des Éclairés; elles scellaient hermétiquement l'endroit.
+Les cheveux de ce vieillard étaient gris et son visage d'une pâleur mortelle. Il restait là, comme s'il avait siégé depuis une éternité. Les restrictions ici étaient encore plus nombreuses que dans la grotte des Éveillés; elles scellaient hermétiquement l'endroit.
 
 Au moment où Wang Lin posa les yeux sur le vieillard, celui-ci ouvrit les yeux. Son regard, empreint de folie, fixa Wang Lin à travers la roche et poussa un rugissement. Il chargea telle une bête sauvage, des sorts se manifestant autour de lui alors qu'il s'élançait contre la paroi.
 
@@ -94,11 +94,11 @@ Aucun son ne parvint à Wang Lin. Il pouvait voir le rugissement du vieillard, m
 
 Après un long moment, le vieil homme sembla épuisé. Il fixa Wang Lin d'un regard las avant de reculer et de se rasseoir. Les restrictions retrouvèrent leur état normal.
 
-« Serait-il... un Défiant! » Après avoir inspecté les trois grottes, Wang Lin avait compris que ces personnes étaient des membres de la secte de Sima Mo. Ce dernier les avait ramenés et scellés dans ces grottes dans l'espoir de les réveiller.
+« Serait-il... un Défieur! » Après avoir inspecté les trois grottes, Wang Lin avait compris que ces personnes étaient des membres de la secte de Sima Mo. Ce dernier les avait ramenés et scellés dans ces grottes dans l'espoir de les réveiller.
 
 Toutefois, au vu de la situation, Sima Mo avait échoué.
 
-« Les jades à l'intérieur des grottes des Perdus et des Éclairés doivent contenir la Restriction Temporelle! L'idée de Sima Mo était que si l'un d'eux s'éveillait, il n'aurait qu'à apprendre la restriction pour briser le sceau. »
+« Les jades à l'intérieur des grottes des Perdus et des Éveillés doivent contenir la Restriction Temporelle! L'idée de Sima Mo était que si l'un d'eux s'éveillait, il n'aurait qu'à apprendre la restriction pour briser le sceau. »
 
 En soupirant, Wang Lin se dirigea vers la huitième grotte. Sa restriction n'était pas de nature temporelle. D'un simple geste de la main, Wang Lin fit disparaître l'obstacle. La roche gronda et s'écarta.
 

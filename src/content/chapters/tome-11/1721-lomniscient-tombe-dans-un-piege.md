@@ -10,7 +10,7 @@ La tempête formée par la lignée de sang de l'Ancien Dao se dissipa. Hormis le
 
 Wang Lin regarda vers l'est. Il ressentit à nouveau l'aura de l'Omniscient dans cette direction. Une illusion semblait se superposer à son corps; elle se détacha lentement pour laisser place à son corps original qui en sortit.
 
-Au moment où son corps original émergea, la main droite de son avatar s'élança vers le vide. La Voile Fantomatique apparut et s'étendit soudainement, enveloppant toute la zone dans une illusion.
+Au moment où son corps original émergea, la main droite de son avatar s'élança vers le vide. La Voile Fantôme apparut et s'étendit soudainement, enveloppant toute la zone dans une illusion.
 
 À l'intérieur de cette illusion, Wang Lin observa son avatar, un éclair de froideur brillant dans ses yeux.
 
@@ -20,7 +20,7 @@ Au moment où son corps original émergea, la main droite de son avatar s'élan�
 
 Un hurlement résonna à travers le système stellaire et les yeux de l'avatar de Wang Lin s'illuminèrent d'une étrange lueur. Le bout de son doigt sembla se poser directement sur l'âme du corps original.
 
-En un instant, la Voile Fantomatique se mit soudainement en mouvement et se transforma en un nuage gigantesque qui se contracta vers Wang Lin.
+En un instant, la Voile Fantôme se mit soudainement en mouvement et se transforma en un nuage gigantesque qui se contracta vers Wang Lin.
 
 De loin, cette scène était prodigieuse. Tandis que le grand nuage se condensait, la majeure partie s'accumula entre les sourcils du corps original de Wang Lin, tandis qu'une partie se divisa pour recouvrir son avatar.
 
@@ -50,7 +50,7 @@ L'âme de l'avatar était le point de convergence de toutes ses essences, et mê
 
 Sans plus hésiter, son esprit fusionna totalement avec l'âme de l'avatar de l'Omniscient, qui gagnait en puissance. Il vola vers l'est.
 
-Dans la partie orientale de la Rivière des Invocations, parmi les étoiles infinies, l'Omniscient apparut. Son sourire étrange avait disparu et son expression n'était plus calme; elle était désormais aussi sombre que l'eau profonde.
+Dans la partie orientale de la Rivière Invoquée, parmi les étoiles infinies, l'Omniscient apparut. Son sourire étrange avait disparu et son expression n'était plus calme; elle était désormais aussi sombre que l'eau profonde.
 
 Il scruta l'horizon, un éclat de froideur dans le regard.
 
@@ -58,15 +58,15 @@ Il scruta l'horizon, un éclat de froideur dans le regard.
 
 « Une fois terminé, je sombrerai dans le sommeil et j'attendrai le 99e éveil. À ce moment-là, j'atteindrai mon but! »
 
-« Wang Lin, ton niveau de culture est suffisamment élevé pour que mon sommeil se termine instantanément et mène au 99e éveil! » Les yeux de l'Omniscient brillèrent d'une lumière glaciale tandis qu'il levait les mains. Il ferma les yeux et, à l'instant même, des centaines d'Omniscients apparurent partout dans la Rivière des Invocations!
+« Wang Lin, ton niveau de culture est suffisamment élevé pour que mon sommeil se termine instantanément et mène au 99e éveil! » Les yeux de l'Omniscient brillèrent d'une lumière glaciale tandis qu'il levait les mains. Il ferma les yeux et, à l'instant même, des centaines d'Omniscients apparurent partout dans la Rivière Invoquée!
 
 Dès leur apparition, tous tournèrent le regard vers une seule direction: celle où se trouvait Wang Lin en plein mouvement!
 
 Au même instant, dans le Vide Brillant, alors que des ondulations résonnaient entre les étoiles, d'autres Omniscients commencèrent à apparaître.
 
-À l'instant même, ils fixèrent tous la Rivière des Invocations!
+À l'instant même, ils fixèrent tous la Rivière Invoquée!
 
-Simultanément, des ondes de choc parcoururent Luotian et la Mer Nuageuse. Le nombre total d'avatars à travers les quatre systèmes stellaires atteignait désormais 3 000!
+Simultanément, des ondes de choc parcoururent Luotian et la Mer des Nuages. Le nombre total d'avatars à travers les quatre systèmes stellaires atteignait désormais 3 000!
 
 C'étaient les 3 000 avatars de l'Omniscient, tous les corps qu'il avait acquis par sa dévoration constante au cours de ses 98 éveils!
 
@@ -90,19 +90,19 @@ C'était comme chercher un chemin: il est difficile de progresser quand on est a
 
 Les yeux de Wang Lin brillaient intensément comme la pleine lune. Un sourire étira ses lèvres alors qu'il formait un sceau et pointait entre ses sourcils!
 
-« Avec ces 3 000 âmes pour guides, avec le Dao du Rêve pour chemin, j'emprunte l'illusion de la Voile Fantomatique pour rêver des 3 000 avatars et entrer dans la réincarnation! Cherchez le corps originel de l'Omniscient! » Au moment où Wang Lin pointa son front, son propre corps original, plongé au plus profond de la Rivière des Invocations sous la garde du Maître du Dao Rêve Bleu, de Qing Lin et du Maître Hong Shan, ouvrit les yeux.
+« Avec ces 3 000 âmes pour guides, avec le Dao du Rêve pour chemin, j'emprunte l'illusion de la Voile Fantôme pour rêver des 3 000 avatars et entrer dans la réincarnation! Cherchez le corps originel de l'Omniscient! » Au moment où Wang Lin pointa son front, son propre corps original, plongé au plus profond de la Rivière Invoquée sous la garde du Maître du Dao Rêve Bleu, de Qing Lin et du Maître Hong Shan, ouvrit les yeux.
 
 « Je connais le chemin pour trouver son corps originel! » Ses yeux projetèrent une lumière étrange qui enveloppa tout son être. L'esprit du corps original de Wang Lin trembla. En empruntant les 3 000 âmes, il avait utilisé le Dao du Rêve pour ouvrir un passage vers le passé.
 
 La vision de Wang Lin devint floue. Le temps sembla remonter à reculons, suivant les 3 000 âmes de l'Omniscient. Il eut l'impression de plonger dans une illusion onirique.
 
-C'était une illusion créée par le Dao du Rêve de Wang Lin, assisté par la Voile Fantomatique et guidé par les 3 000 âmes de l'Omniscient. Cela permettait à Wang Lin de s'immerger dans le monde de ces 3 000 âmes afin d'observer leurs éveils successifs et de localiser le corps originel de l'Omniscient!
+C'était une illusion créée par le Dao du Rêve de Wang Lin, assisté par la Voile Fantôme et guidé par les 3 000 âmes de l'Omniscient. Cela permettait à Wang Lin de s'immerger dans le monde de ces 3 000 âmes afin d'observer leurs éveils successifs et de localiser le corps originel de l'Omniscient!
 
 C'était là la méthode que Wang Lin avait conçue pour riposter!
 
 À cet instant, dans l'esprit de Wang Lin, il se trouvait dans un monde brumeux, mais bientôt la confusion se dissipa et tout devint limpide.
 
-Ce qu'il vit, ce furent les étoiles. Il connaissait bien ce système stellaire: c'était la Rivière des Invocations. Il vit une météorite, et à l'intérieur de celle-ci se trouvait l'Omniscient! De l'autre côté siégeait un vieil homme plongé dans le coma. Ce vieil homme était Ling Tianhou!
+Ce qu'il vit, ce furent les étoiles. Il connaissait bien ce système stellaire: c'était la Rivière Invoquée. Il vit une météorite, et à l'intérieur de celle-ci se trouvait l'Omniscient! De l'autre côté siégeait un vieil homme plongé dans le coma. Ce vieil homme était Ling Tianhou!
 
 L'Omniscient affichait une expression douloureuse. Des traces de sang maculaient encore ses mains. Si les spéculations de Wang Lin étaient exactes, il s'agissait du sang du Dao Céleste altéré par l'Empereur Divin Dragon Azure!
 

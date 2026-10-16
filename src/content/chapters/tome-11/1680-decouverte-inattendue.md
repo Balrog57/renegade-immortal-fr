@@ -38,7 +38,7 @@ Les yeux du roi moustique s'illuminèrent et il reprit sa course. En un éclair,
 
 La vitesse du roi moustique était bien supérieure à celle d'autrefois. Tandis que Wang Lin se tenait sur son dos, il observa la scène avec attention, une lueur étrange dans le regard.
 
-Bien que la bête n'eût pas été faible auparavant, elle n'était en rien aussi puissante qu'aujourd'hui. Elle était infiniment proche d'un cultivateur du troisième pas, dotée de la puissance d'un cultivateur de la cinquième Affliction Céleste.
+Bien que la bête n'eût pas été faible auparavant, elle n'était en rien aussi puissante qu'aujourd'hui. Elle était infiniment proche d'un cultivateur du troisième pas, dotée de la puissance d'un cultivateur du cinquième Fléau Céleste.
 
 Ce changement surprit grandement Wang Lin.
 

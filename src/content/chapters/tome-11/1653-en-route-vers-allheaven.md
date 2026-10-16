@@ -116,4 +116,4 @@ Ces grondements tonitruants résonnaient dans tout Luotian et secouaient l'espri
 
 En plus de ces sept individus, une femme se trouvait parmi le groupe des cultivateurs du Royaume Extérieur. Cette femme était d'une grande beauté et contemplait la formation planétaire d'un regard froid, mais une pointe d'inquiétude se cachait dans ses yeux.
 
-C'était le corps originel du Grand Maître Yun Luo, qui avait perdu son avatar!
+C'était le corps originel du Grande Maîtresse Yun Luo, qui avait perdu son avatar!

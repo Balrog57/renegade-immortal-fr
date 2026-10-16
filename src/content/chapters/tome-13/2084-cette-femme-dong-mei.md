@@ -6,13 +6,13 @@ bookTitle: Light of the coming end
 en: Chapter 2084 - That Woman, Dong Mei
 slug: cette-femme-dong-mei
 ---
-Jiu Du partit à contrecœur, impuissant. Tandis que sa silhouette s'effaçait progressivement, seuls cinq individus demeurèrent à l'extérieur de la tempête marine.
+Jiu Di partit à contrecœur, impuissant. Tandis que sa silhouette s'effaçait progressivement, seuls cinq individus demeurèrent à l'extérieur de la tempête marine.
 
-Gu Dao contempla le tumulte des eaux et dit lentement: « Partez tous maintenant. Le grondement du dernier jour exigera même toute ma puissance pour être contenu. Et même lorsque l'ouverture finale surviendra, vous ne pourrez pas pénétrer dans le Royaume Divin Immemorial... »
+Gu Dao contempla le tumulte des eaux et dit lentement: « Partez tous maintenant. Le grondement du dernier jour exigera même toute ma puissance pour être contenu. Et même lorsque l'ouverture finale surviendra, vous ne pourrez pas pénétrer dans le Royaume Divin Immémorial... »
 
 « Je ne m'en suis aperçu qu'il y a quelques jours. »
 
-Xuan Luo et ses compagnons réfléchirent en silence, puis s'inclinèrent devant Gu Dao. Après avoir vu Jiu Du et les autres partir, ils comprirent que l'ouverture du Royaume Divin Immemorial n'était pas un événement auquel ils pourraient participer.
+Xuan Luo et ses compagnons réfléchirent en silence, puis s'inclinèrent devant Gu Dao. Après avoir vu Jiu Di et les autres partir, ils comprirent que l'ouverture du Royaume Divin Immémorial n'était pas un événement auquel ils pourraient participer.
 
 Alors qu'ils s'apprêtaient à s'en aller, Wang Lin se leva et s'avança vers Xuan Luo.
 
@@ -20,7 +20,7 @@ Alors qu'ils s'apprêtaient à s'en aller, Wang Lin se leva et s'avança vers Xu
 
 Xuan Luo leva les yeux vers Wang Lin et sourit.
 
-« Le Maître est sur le point de se réincarner bientôt. Le disciple est sur le point d'entrer dans le Royaume Divin Immemorial. Si je m'en sors sain et sauf, j'irai protéger la réincarnation du Maître... Sinon, le Maître pourra toujours se réincarner en toute sécurité grâce à ceci. » Wang Lin regarda Xuan Luo et tendit la main vers le vide. Un jade apparut, et il le lui remit respectueusement.
+« Le Maître est sur le point de se réincarner bientôt. Le disciple est sur le point d'entrer dans le Royaume Divin Immémorial. Si je m'en sors sain et sauf, j'irai protéger la réincarnation du Maître... Sinon, le Maître pourra toujours se réincarner en toute sécurité grâce à ceci. » Wang Lin regarda Xuan Luo et tendit la main vers le vide. Un jade apparut, et il le lui remit respectueusement.
 
 Xuan Luo saisit le jade. Il ne l'examina pas immédiatement, mais fixa Wang Lin. Après un long moment, il murmura doucement:
 
@@ -28,11 +28,11 @@ Xuan Luo saisit le jade. Il ne l'examina pas immédiatement, mais fixa Wang Lin.
 
 Wang Lin hocha la tête.
 
-Xuan Luo ferma les yeux. Lorsqu'il les rouvrit, il se changea en un rayon de lumière aux côtés de Song Tian et du Grand Empereur Ji Antique. En un éclair, ils disparurent sans laisser de trace.
+Xuan Luo ferma les yeux. Lorsqu'il les rouvrit, il se changea en un rayon de lumière aux côtés de Song Tian et du Grand Empyréen Ji Antique. En un éclair, ils disparurent sans laisser de trace.
 
 À cet instant, à l'extérieur de la tempête marine, seuls Wang Lin et Gu Dao restèrent.
 
-Le temps s'écoulait lentement. Soudainement, le crépuscule tomba. Il ne restait plus qu'une demi-heure avant l'ouverture du Royaume Divin Immemorial, et les grondements de la tempête marine atteignirent leur paroxysme. Le vortex tournait si rapidement qu'au premier regard, il semblait immobile.
+Le temps s'écoulait lentement. Soudainement, le crépuscule tomba. Il ne restait plus qu'une demi-heure avant l'ouverture du Royaume Divin Immémorial, et les grondements de la tempête marine atteignirent leur paroxysme. Le vortex tournait si rapidement qu'au premier regard, il semblait immobile.
 
 Pourtant, cette apparence trompeuse signifiait qu'il avait atteint une vitesse alarmante.
 
@@ -40,9 +40,9 @@ Tandis que le vortex pivotait, l'eau de mer semblait être aspirée par lui. Ell
 
 Le vortex était tel un trou noir dévorant tout sur son passage. Il absorbait constamment d'immenses quantités d'eau, faisant ainsi rétrécir la tempête marine.
 
-Gu Dao observa le phénomène et dit: « Lorsque toute l'eau aura été aspirée, le Royaume Divin Immemorial... » Sa voix parvenait pourtant distinctement aux oreilles de Wang Lin malgré le fracas.
+Gu Dao observa le phénomène et dit: « Lorsque toute l'eau aura été aspirée, le Royaume Divin Immémorial... » Sa voix parvenait pourtant distinctement aux oreilles de Wang Lin malgré le fracas.
 
-« J'entre dans le Royaume Divin Immemorial pour ressusciter ma femme. Et vous... Pourquoi y allez-vous? » Wang Lin regardait le vortex dévorer férocement l'océan. Il ne tarderait pas que la tempête disparaisse totalement.
+« J'entre dans le Royaume Divin Immémorial pour ressusciter ma femme. Et vous... Pourquoi y allez-vous? » Wang Lin regardait le vortex dévorer férocement l'océan. Il ne tarderait pas que la tempête disparaisse totalement.
 
 «...Pour une réponse! » Gu Dao se tourna vers Wang Lin.
 
@@ -68,7 +68,7 @@ Gu Dao détourna les yeux de Wang Lin et fixa la tempête qui se contractait, av
 
 Wang Lin resta plongé dans une réflexion silencieuse.
 
-La demi-heure s'écoula progressivement. Une fois que toute l'eau eut été dévorée par le vortex, les grondements tonitruants continuèrent de résonner. Les neuf piliers colossaux, désormais libérés des flots, émettaient une lumière éclatante aux neuf couleurs. La porte du Royaume Divin Immemorial, formée par ces neuf piliers, s'ouvrit lentement!
+La demi-heure s'écoula progressivement. Une fois que toute l'eau eut été dévorée par le vortex, les grondements tonitruants continuèrent de résonner. Les neuf piliers colossaux, désormais libérés des flots, émettaient une lumière éclatante aux neuf couleurs. La porte du Royaume Divin Immémorial, formée par ces neuf piliers, s'ouvrit lentement!
 
 Dès son ouverture, une onde se propagea depuis la porte avec une vitesse inimaginable. Elle balaya instantanément le vaste bassin en direction des clans Antique et Céleste.
 
@@ -76,9 +76,9 @@ Lorsque l'onde traversa le bassin, le vent s'arrêta net. Song Tian et les autre
 
 Au sein du clan Antique, qu'ils soient mortels ou cultivateurs, tout être vivant se figea lorsque l'onde passa. Le feu, les rivières, tout s'immobilisa en cet instant précis.
 
-Dans les terres de l'Ji Antique, la pluie tombait, mais soudain, même les gouttes suspendirent leur chute dans le ciel.
+Dans les terres du Ji Antique, la pluie tombait, mais soudain, même les gouttes suspendirent leur chute dans le ciel.
 
-Il en fut de même pour le clan Céleste. Le groupe de trois de Jiu Du, Gémeaux, l'Empereur Céleste et d'innombrables cultivateurs, mortels et bêtes célestes cessèrent tout mouvement. Les cinq éléments du monde, toutes les lois de l'univers, tout s'arrêta complètement.
+Il en fut de même pour le clan Céleste. Le groupe de trois de Jiu Di, Gémeaux, l'Empereur Céleste et d'innombrables cultivateurs, mortels et bêtes célestes cessèrent tout mouvement. Les cinq éléments du monde, toutes les lois de l'univers, tout s'arrêta complètement.
 
 Le continent Astral Immortel tout entier plongea dans le silence.
 
@@ -90,11 +90,11 @@ Les yeux de Gu Dao s'illuminèrent et il n'hésita pas une seconde. Il s'élanç
 
 À cet instant, Wang Lin était le seul encore debout devant la porte. Il ferma les yeux et, lorsqu'il les rouvrit, il marcha vers l'ouverture. Il franchit le seuil pas à pas.
 
-Une fois que Wang Lin eut pénétré dans le Royaume Divin Immemorial, tout sur le continent Astral Immortel retrouva son cours normal. Le plus étrange était que presque personne n'avait perçu ce moment où tout s'était figé. Les cultivateurs ne l'avaient pas remarqué, les membres du clan Antique non plus, et même les Grands Empereurs n'avaient pas réalisé qu'ils avaient perdu environ dix respirations de temps.
+Une fois que Wang Lin eut pénétré dans le Royaume Divin Immémorial, tout sur le continent Astral Immortel retrouva son cours normal. Le plus étrange était que presque personne n'avait perçu ce moment où tout s'était figé. Les cultivateurs ne l'avaient pas remarqué, les membres du clan Antique non plus, et même les Grands Empyréens n'avaient pas réalisé qu'ils avaient perdu environ dix respirations de temps.
 
-Ces dix respirations avaient été arrachées au ciel et à la terre, aux cinq éléments, à chaque mortel, à chaque cultivateur, à chaque membre du clan Antique et aux huit Grands Empereurs. C'était comme si cette courte période avait été absorbée par une force mystérieuse pour disparaître dans la porte du Royaume Divin Immemorial.
+Ces dix respirations avaient été arrachées au ciel et à la terre, aux cinq éléments, à chaque mortel, à chaque cultivateur, à chaque membre du clan Antique et aux huit Grands Empyréens. C'était comme si cette courte période avait été absorbée par une force mystérieuse pour disparaître dans la porte du Royaume Divin Immémorial.
 
-Lorsque le continent Astral Immortel reprit ses droits, les neuf piliers du bassin brillèrent intensément. La lumière obscurcit tout avant de s'évanouir sans laisser de trace. Avec eux disparut également la porte du Royaume Divin Immemorial.
+Lorsque le continent Astral Immortel reprit ses droits, les neuf piliers du bassin brillèrent intensément. La lumière obscurcit tout avant de s'évanouir sans laisser de trace. Avec eux disparut également la porte du Royaume Divin Immémorial.
 
 Une fois la porte disparue, le vortex résiduel gronda sans fin. L'océan infini qui avait été englouti se déversa à nouveau dans le bassin. L'eau retomba dans un fracas de tonnerre. Plusieurs heures plus tard, le vaste bassin redevint une mer infinie où les vagues s'entrechoquaient. Les grondements cessèrent, remplacés par le murmure régulier de l'océan.
 
@@ -108,7 +108,7 @@ La vieille femme, réticente à l'idée de partir, dit doucement: « Dong Mei...
 
 C'était Song Zhi...
 
-Song Zhi n'était qu'une membre ordinaire du clan Antique; cinq cents ans étaient la limite de son existence.
+Song Zhi n'était qu'un membre ordinaire du clan Antique; cinq cents ans étaient la limite de son existence.
 
 La vieille femme regarda la jeune fille qui avait grandi à ses côtés et murmura: « Je sais qu'il y a une histoire en toi... Je t'ai vue contempler le ciel d'un air absent et pleurer bien des fois... Je me souviens même que lorsque je te racontais ce qui s'était passé dans la cité impériale du Dao Antique, ou l'histoire de Wang Lin et Li Muwan, tu te forçais à sourire. »
 

@@ -16,7 +16,7 @@ L'Omniscient ignora tout cela, fixant Ta Shan couvert de tatouages, et dit lente
 
 Ta Shan réfléchit en silence. Il s'était effectivement caché là-dessous depuis longtemps. Il n'avait pas besoin d'intervenir dans ce combat; après tout, cela ne le concernait guère.
 
-En vérité, c’était son intention. Cependant, à l'instant même où Wang Lin fut confronté à un moment de vie ou de mort, il avait laissé échapper un rugide. Son corps sembla perdre le contrôle et il s'était précipité hors de sa cachette.
+En vérité, c’était son intention. Cependant, à l'instant même où Wang Lin fut confronté à un moment de vie ou de mort, il avait laissé échapper un rugissement. Son corps sembla perdre le contrôle et il s'était précipité hors de sa cachette.
 
 « Ta Shan... » L'expression de Wang Lin était hagarde, mais son regard devint plus acéré encore. À cet instant, Ta Shan l'aidait à se redresser, tandis que du sang coulait du coin de sa bouche.
 
@@ -24,13 +24,13 @@ Wang Lin prit une profonde inspiration et dit: « Lâche-moi et va aider Da Tou!
 
 Il semblait être redevenu celui qu'il était sur la planète Suzaku: un démon à l'intention meurtrière terrifiante!
 
-« Moi, Wang Lin, je suis un cultivateur qui défie le ciel. Même si je meurs, je mourrai avec un esprit indomptable! Il n'y a rien à craindre dans la vie, seule la mort compte! » Le fourreau dans la main de Wang Lin vola en mille morceaux, ne laissant que l'épée de fer rouillée!
+« Moi, Wang Lin, je suis un cultivateur qui défie le ciel. Même si je meurs, je mourrai avec un esprit indomptable! Il n'y a rien à craindre dans la vie, la mort n'est rien de plus!! » Le fourreau dans la main de Wang Lin vola en mille morceaux, ne laissant que l'épée de fer rouillée!
 
 Ta Shan hésita un instant avant de se retirer silencieusement. Il regarda Wang Lin et, pendant un court instant, une lueur de vie revint dans les yeux de ce dernier.
 
 Puis, Ta Shan fit brusquement volte-face et chargea vers Da Tou et Maître Fu Fengzi.
 
-Wang Lin avait demandé à Ta Shan de partir car il savait qu'avec son niveau de culture, même doté de l'héritage de l'Ancêtre Saint du Clan des Tatouages, il n'était pas assez puissant pour arrêter l'Omniscient. Bien que Ta Shan ne semblât pas gravement blessé par ce coup, Wang Lin savait qu'il ne pourrait pas en encaisser un second!
+Wang Lin avait demandé à Ta Shan de partir car il savait qu'avec son niveau de culture, même doté de l'héritage de l'Ancêtre Saint du Clan du Tatouage, il n'était pas assez puissant pour arrêter l'Omniscient. Bien que Ta Shan ne semblât pas gravement blessé par ce coup, Wang Lin savait qu'il ne pourrait pas en encaisser un second!
 
 Serrant l'épée de fer, Wang Lin prit une profonde inspiration. Il regarda l'Omniscient avec une pointe d'amertume.
 
@@ -64,7 +64,7 @@ Avec un sourire misérable, Wang Lin leva à nouveau son épée. Le vingt-sixiè
 
 À cet instant, l'Omniscient fut touché. Il fixa Wang Lin et réfléchit:
 
-« Ce que tu fais est inutile... Avec ma culture du Premier Ciel de la Blight, il te faudrait au moins trente coups avec ce trésor du Pseudo-Nirvana du Vide pour m'empêcher d'avancer. »
+« Ce que tu fais est inutile... Avec ma culture du Premier Fléau Céleste, il te faudrait au moins trente coups avec ce trésor du Pseudo-Nirvana du Vide pour m'empêcher d'avancer. »
 
 « Est-ce donc vrai... » La vision de Wang Lin était encore floue, mais sa main droite ne s'arrêta pas et fendit à nouveau l'air. Les éclats d'épée sifflèrent autour de l'Omniscient et le vingt-septième coup apparut!
 
@@ -96,7 +96,7 @@ Même le Démon Ancien Ta Jia afficha un regard étrange.
 
 Une tempête d'épées surgit là où se trouvaient Wang Lin et l'Omniscient, une tempête qui s'élançait jusqu'aux cieux. Le Domaine de l'Esprit Démon entier trembla violemment, la terre s'effondra et le ciel changea de couleur.
 
-Tandis que des grondements tonnantes résonnaient, le firmament fut déchiré, révélant l'espace infini au-delà!
+Tandis que des grondements tonnants résonnaient, le firmament fut déchiré, révélant l'espace infini au-delà!
 
 Lorsque la tempête d'épées balaya tout sur son passage, le Domaine de l'Esprit Démon s'effondra. Alors que le ciel s'écroulait, une énergie originelle infinie s'engouffra dans le vide.
 

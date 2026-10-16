@@ -30,9 +30,9 @@ Il aurait préféré ne rien savoir du tout... Ne pas savoir qu'il existait des 
 
 Il ne voulait pas savoir que l'espace entourant la planète Suzaku abritait d'innombrables autres mondes. Il ne voulait pas savoir qu'au-delà de la planète Suzaku se trouvait l'Alliance de Culture, et que celle-ci n'était présente que dans le Vide Brillant...
 
-Il ne voulait pas non plus savoir qu'au-delà du Vide Brillant se trouvaient Luotian, la Mer des Nuages et la Rivière des Invocations...
+Il ne voulait pas non plus savoir qu'au-delà du Vide Brillant se trouvaient Luotian, la Mer des Nuages et la Rivière Invoquée...
 
-Il ne voulait pas savoir que tout cela n'était que le Domaine Intérieur. Il ne voulait pas savoir qu'il existait un Domaine Extérieur au-delà...
+Il ne voulait pas savoir que tout cela n'était que le Royaume Intérieur. Il ne voulait pas savoir qu'il existait un Royaume Extérieur au-delà...
 
 Au fil de son existence, Wang Lin avait faiblement réalisé qu'il y avait encore bien plus loin... Et encore plus...
 
@@ -104,16 +104,16 @@ Même les eaux en contrebas éclatèrent, et ce monde scellé se fragmenta. Les 
 
 Cette tempête déchira le monde, déchira l'espace et déchira l'existence même. Soudain, un trou noir apparut. Ce gouffre menait vers un lieu inconnu, d'une obscurité absolue.
 
-Ce fou possédait un Corps d'Immortel Céleste complet. Durant cet effondrement, son corps s'était désintégré à plusieurs reprises. Finalement, sous la force destructrice de la lance aux sept couleurs, il maintint le corps inconscient de Wang Lin et tous deux furent aspirés par le trou noir.
+Ce fou possédait un Corps Céleste Immortel complet. Durant cet effondrement, son corps s'était désintégré à plusieurs reprises. Finalement, sous la force destructrice de la lance aux sept couleurs, il maintint le corps inconscient de Wang Lin et tous deux furent aspirés par le trou noir.
 
 À ce moment-là, alors que le monde scellé s'effondrait, l'apparence du Souverain devint floue. Il fixa le trou noir qui s'était déjà dissipé et murmura pour lui-même:
 
-« Il est vraiment devenu fou... Complètement fou... C'est lui qui a donné le Corps d'Immortel Céleste à Wang Lin. S'il n'avait pas perdu la raison, il ne ferait jamais une chose pareille... Il était gravement blessé et, connaissant son caractère passé, il n'aurait jamais sauvé qui que ce soit. Il est vraiment... vraiment devenu fou... Il ne me reconnaît même plus... » Le Souverain se détendit et son corps s'évapora.
+« Il est vraiment devenu fou... Complètement fou... C'est lui qui a donné le Corps Céleste Immortel à Wang Lin. S'il n'avait pas perdu la raison, il ne ferait jamais une chose pareille... Il était gravement blessé et, connaissant son caractère passé, il n'aurait jamais sauvé qui que ce soit. Il est vraiment... vraiment devenu fou... Il ne me reconnaît même plus... » Le Souverain se détendit et son corps s'évapora.
 
 Juste au moment où il allait disparaître, une personne sortit silencieusement à ses côtés: le Vieux Fantôme Zhan. Dès qu'il apparut, il pointa du doigt la silhouette vacillante du Souverain.
 
 Le Souverain tourna brusquement la tête, mais plongé dans sa transe, il fut pris au dépourvu. Il était trop tard pour esquiver; il laissa échapper un gémissement de douleur avant que sa forme ne disparaisse sans laisser de trace.
 
-Le Vieux Fantôme Zhan observa l'endroit où se trouvait le trou noir et réfléchit. Ce monde scellé avait été créé par de nombreux cultivateurs du troisième niveau du Domaine Extérieur. Même en suivant l'aura qui s'échappait de la brèche, il lui avait fallu un certain temps pour parvenir jusqu'ici.
+Le Vieux Fantôme Zhan observa l'endroit où se trouvait le trou noir et réfléchit. Ce monde scellé avait été créé par de nombreux cultivateurs du troisième niveau du Royaume Extérieur. Même en suivant l'aura qui s'échappait de la brèche, il lui avait fallu un certain temps pour parvenir jusqu'ici.
 
-« Un pas trop tard. Quel dommage pour ce sang céleste. Quant à ce fou... Serait-ce vraiment cette personne de ses souvenirs? Je ne pensais pas qu'il était réellement devenu fou... Ils ont été dévorés par ce trou noir. L'aura qui en émanait était clairement celle de la couche de la paroi de la grotte. Un niveau dans le Corps d'Immortel Céleste, un niveau ici... » Le Vieux Fantôme Zhan secoua la tête et s'en alla.
+« Un pas trop tard. Quel dommage pour ce sang céleste. Quant à ce fou... Serait-ce vraiment cette personne de ses souvenirs? Je ne pensais pas qu'il était réellement devenu fou... Ils ont été dévorés par ce trou noir. L'aura qui en émanait était clairement celle de la couche de la paroi de la grotte. Un niveau dans le Corps Céleste Immortel, un niveau ici... » Le Vieux Fantôme Zhan secoua la tête et s'en alla.

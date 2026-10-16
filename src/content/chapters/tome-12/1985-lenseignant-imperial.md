@@ -26,7 +26,7 @@ Wang Lin leva les yeux vers l'Enseignant Impérial perché sur le temple. Dans l
 
 Hormis l'Empereur Céleste, le palais n'abritait que l'Enseignant Impérial, dont la culture était étrange!
 
-Wang Lin réfléchit silencieusement, puis frappa le sol de son pied droit. Des grondements tonnantes résonnèrent et les cultivateurs environnants choisirent de battre en retraite. Ils n'étaient pas comme le clan Antique, où il n'existait pas de sectes mais seulement trois royaumes et le temple du clan Antique, où presque tous les membres vouaient une loyauté fanatique à la famille royale. Dans le clan céleste, la famille royale n'était qu'un symbole!
+Wang Lin réfléchit silencieusement, puis frappa le sol de son pied droit. Des grondements tonnants résonnèrent et les cultivateurs environnants choisirent de battre en retraite. Ils n'étaient pas comme le clan Antique, où il n'existait pas de sectes mais seulement trois royaumes et le temple du clan Antique, où presque tous les membres vouaient une loyauté fanatique à la famille royale. Dans le clan céleste, la famille royale n'était qu'un symbole!
 
 Le véritable pouvoir était entre les mains des Grands Empyréens et des nombreuses sectes!
 
@@ -42,7 +42,7 @@ Wang Lin leva les yeux vers l'Enseignant Impérial et dit lentement: « La perso
 
 « La personne que vous avez tuée était moi, mais elle ne l'était pas non plus! » Tandis qu'il souriait, l'Enseignant Impérial ferma sa main droite avant de l'ouvrir lentement. Une minuscule silhouette faite de lumière blanche apparut et s'inclina devant lui.
 
-« Vous êtes allé au Grand Secte des Âmes et vous avez appris son sortilège. Le Dao de l'Œil de l'Âme et le Dao de l'Œil de l'Âme se ressemblent, mais ils sont en réalité bien différents... » L'Enseignant Impérial agita la main et la petite silhouette s'envola. Elle grandit instantanément pour atteindre une taille humaine et se précipita vers Wang Lin.
+« Vous êtes allé à la Secte de la Grande Âme et vous avez appris son sortilège. Le Dao de l'Œil de l'Âme et le Dao de l'Œil de l'Âme se ressemblent, mais ils sont en réalité bien différents... » L'Enseignant Impérial agita la main et la petite silhouette s'envola. Elle grandit instantanément pour atteindre une taille humaine et se précipita vers Wang Lin.
 
 Cette silhouette bougea avec une rapidité fulgurante, fusionnant presque avec le monde lui-même. Cependant, alors qu'elle approchait, Wang Lin leva soudainement sa main droite, reproduisant son geste de la rue. Des ondulations résonnèrent tandis qu'il étranglait la figure blanche et l'écrasait!
 
@@ -104,7 +104,7 @@ Wang Lin ne cilla pas et soutint son regard. Après un long silence, l'Enseignan
 
 « C'est exact. L'Ancêtre Céleste est puissant, extrêmement puissant. Mon clan est contraint de le servir, et la grande majorité des Flammes de Joss sont raffinées par les corps des membres de mon clan avant d'être offertes à l'Ancêtre Céleste!
 
-« Il a laissé un sceau qui se transmet de génération en génération au sein de mon clan. Non seulement nous ne pouvons pas quitter la cité ancestrale, mais nous devons même rester silencieux et prudents. Chaque génération d'Empereur Céleste peut contrôler la vie et la mort de mon peuple! Quiconque prend le risque de partir meurt! L'Ancien du Grand Secte des Âmes était un génie de mon clan, mais même lui n'a pu échapper à la mort après son départ!
+« Il a laissé un sceau qui se transmet de génération en génération au sein de mon clan. Non seulement nous ne pouvons pas quitter la cité ancestrale, mais nous devons même rester silencieux et prudents. Chaque génération d'Empereur Céleste peut contrôler la vie et la mort de mon peuple! Quiconque prend le risque de partir meurt! L'Ancien de la Secte de la Grande Âme était un génie de mon clan, mais même lui n'a pu échapper à la mort après son départ!
 
 « Par conséquent, mon clan doit être loyal envers chaque Empereur Céleste! Je veux changer cela, et j'ai enfin l'opportunité de le faire! »
 

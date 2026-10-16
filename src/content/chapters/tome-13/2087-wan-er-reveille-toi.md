@@ -10,7 +10,7 @@ La voix de l'Omniscient résonna dans le Royaume Divin Immémorial, avec la mont
 
 Il refusait d'accepter cette issue. Il avait attendu si longtemps, traversé d'innombrables réincarnations jusqu'à ce jour fatidique, mais il ne s'était jamais attendu à ce que tout se termine ainsi.
 
-Wang Lin avait trompé tout le monde. Même l'Omniscient ignorait que tout n'était pas un rêve de Wang Lin, mais plutôt la Voie de l'avatar de la mise à mort.
+Wang Lin avait trompé tout le monde. Même l'Omniscient ignorait que tout n'était pas un rêve de Wang Lin, mais plutôt la Voie de l'avatar de massacre.
 
 Le cœur de l'Omniscient était envahi par un sentiment absurde, une sensation suffisante pour le rendre fou. Il était l'âme précieuse de la Boussole des Limites, et il avait vu Wang Lin revenir ici encore et encore, se dissipant à chaque réincarnation.
 

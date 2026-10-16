@@ -40,7 +40,7 @@ Il en oublia le temps. Tout en accédant à l'illumination, il ramassa les pilul
 
 De plus en plus d'intentions Dao chaotiques apparurent et commencèrent à se propager une fois de plus.
 
-Les Perdus, à l'extérieur de la vallée, retrouvèrent progressivement une lueur de clarté dans leurs yeux confus. Les corps éthérés des Éclairés commençaient à se matérialiser.
+Les Perdus, à l'extérieur de la vallée, retrouvèrent progressivement une lueur de clarté dans leurs yeux confus. Les corps éthérés des Éveillés commençaient à se matérialiser.
 
 Ces bêtes féroces de rang 12 ne dégageaient plus d'auras sauvages en leur quête du Dao.
 
@@ -52,7 +52,7 @@ En se propageant, même les profondeurs du Royaume aux Sept Couleurs furent ains
 
 Alors que Wang Lin continuait de s'éveiller, son esprit quitta progressivement son corps. Il vit la vallée, il se vit assis au milieu de celle-ci, et il vit les pilules flotter devant lui avant de s'effondrer une à une.
 
-Son esprit s'étendit lentement, prenant la vallée pour centre. Lorsque sa conscience balaya les Éclairés, leurs corps tremblèrent tous.
+Son esprit s'étendit lentement, prenant la vallée pour centre. Lorsque sa conscience balaya les Éveillés, leurs corps tremblèrent tous.
 
 Les Perdus et les bêtes féroces subirent le même sort. Quant au Maître Pin Cendré, son cœur Dao s'effondra soudainement et ses yeux se remplirent de confusion.
 
@@ -60,7 +60,7 @@ Rien de tout cela n'intéressait Wang Lin. Son esprit continua de s'étendre et 
 
 Même après le départ de l'esprit de Wang Lin, l'homme robuste ne se remit pas de son choc.
 
-L'esprit de Wang Lin parcourut toute la région extérieure et traversa toutes les grottes avant de se diriger vers la chaîne de montagnes semblable à un mur. En chemin, il aperçut la restriction où la Restriction de Vie et de Mort avait fusionné avec la Restriction d'Annihilation.
+L'esprit de Wang Lin parcourut toute la région extérieure et traversa toutes les grottes avant de se diriger vers la chaîne de montagnes semblable à un mur. En chemin, il aperçut la restriction où la Restriction de la Vie et de la Mort avait fusionné avec la Restriction d'Annihilation.
 
 Il vit une vieille femme au visage pâle, vêtue de vert, assise là, cultivant les yeux clos. Son cœur Dao était en désordre et montrait des signes inattendus de rupture. Son apparence changeait rapidement: tantôt elle paraissait vieille, tantôt antique, tantôt d'âge moyen.
 
@@ -106,7 +106,7 @@ Après un long moment, les trois se regardèrent, voyant le choc dans les yeux d
 
 « Quelle puissance d'esprit! » haleta le jeune homme marqué par la foudre.
 
-« Il doit s'agir d'un ancêtre de mon Clan du Paon de Feu. Cet esprit que je viens de ressentir contenait certainement l'un des ancêtres de mon clan, sans quoi ma marque n'aurait pas réagi ainsi! » Le jeune homme à la flamme était pâle, mais ses yeux brillaient de cupidité.
+« Il doit s'agir d'un ancêtre de mon Clan des Moineaux de Feu. Cet esprit que je viens de ressentir contenait certainement l'un des ancêtres de mon clan, sans quoi ma marque n'aurait pas réagi ainsi! » Le jeune homme à la flamme était pâle, mais ses yeux brillaient de cupidité.
 
 Seul le dernier, le jeune homme au croissant de lune, resta silencieux. Il réfléchissait, une peur cachée dans le regard. Au moment où l'esprit de Wang Lin l'avait effleuré, il s'était remémoré cette scène cauchemardesque qu'il refusait de se souvenir.
 

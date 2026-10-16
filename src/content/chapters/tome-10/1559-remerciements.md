@@ -36,19 +36,19 @@ Wang Lin regarda le Fruit du Dao et fronça les sourcils. La silhouette aux sept
 
 Rien de tout cela ne pouvait être fait sans raison; il devait y avoir un piège!
 
-Wang Lin réfléchit silencieusement avant de détourner son regard du Fruit du Dao. Il fixa la huitième épine, située à quelques centimètres entre les sourcils de Qing Shui!
+Wang Lin réfléchit silencieusement avant de détourner son regard du Fruit du Dao. Il fixa la huitième épine, située à quelques pouces entre les sourcils de Qing Shui!
 
 Wang Lin percevait les deux autres épines, mais elles ne seraient pas simples à retirer.
 
 Prenant une profonde inspiration, la main droite de Wang Lin s'éleva lentement vers la tête de Qing Shui. Cette fois, il agissait avec une lenteur et un sérieux bien plus grands que lors de ses actions précédentes.
 
-Cette huitième épine se trouvait au niveau de la tête, au carrefour de la vie et de la mort. S'il avait été parfaitement centré entre les sourcils de Qing Shui, cela aurait eu du sens, mais il était décalé de quelques centimètres, ce qui troublait Wang Lin.
+Cette huitième épine se trouvait au niveau de la tête, au carrefour de la vie et de la mort. S'il avait été parfaitement centré entre les sourcils de Qing Shui, cela aurait eu du sens, mais il était décalé de quelques pouces, ce qui troublait Wang Lin.
 
 « Cette huitième épine n'est pas une simple épine, mais quelque chose placé là pour briser son cycle de réincarnation... » La silhouette aux sept couleurs semblait sourire en observant la main de Wang Lin se refermer lentement sur l'objet.
 
-La main de Wang Lin marqua un temps d'arrêt lorsqu'elle fut à un centimètre de l'épine. Celle-ci était différente des sept autres. Bien qu'elles fussent toutes incrustées dans le corps de Qing Shui, la plupart des autres épines ne dépassaient que légèrement. En revanche, cette huitième épine était presque entièrement enfouie, avec seulement deux centimètres à l'extérieur.
+La main de Wang Lin marqua un temps d'arrêt lorsqu'elle fut à un pouce de l'épine. Celle-ci était différente des sept autres. Bien qu'elles fussent toutes incrustées dans le corps de Qing Shui, la plupart des autres épines ne dépassaient que légèrement. En revanche, cette huitième épine était presque entièrement enfouie, avec seulement deux pouces à l'extérieur.
 
-Deux centimètres, c'était très peu!
+Deux pouces, c'était très peu!
 
 La main de Wang Lin ne pouvait s'arrêter, mais il ignorait ce qui arriverait à Qing Shui une fois l'épine retirée. Sa position était tout simplement trop périlleuse.
 
@@ -58,11 +58,11 @@ Wang Lin regarda Qing Shui et serra les dents. Sans plus hésiter, il saisit l'h
 
 Dès que Wang Lin toucha l'épine, des souvenirs distordus envahirent son esprit, le plongeant dans un état de chaos. Cet afflux massif d'images fit que l'esprit de Wang Lin sembla gonfler sous la douleur.
 
-Il ne pouvait pas examiner les souvenirs en détail. Sa main, agrippée à la huitième épine, l'arracha sans pitié sur quatre centimètres!
+Il ne pouvait pas examiner les souvenirs en détail. Sa main, agrippée à la huitième épine, l'arracha sans pitié sur quatre pouces!
 
 Qing Shui serra les dents, refusant toujours de pousser un cri violent. Il tenait bon, des sifflements étouffés s'échappant entre ses dents serrées.
 
-Quelques respirations courtes parurent une éternité pour Wang Lin et Qing Shui. Les souvenirs qui envahissaient son esprit le poussaient presque à la folie, mais il ne lâcha pas prise. Il extrayait lentement l'épine, centimètre après centimètre.
+Quelques respirations courtes parurent une éternité pour Wang Lin et Qing Shui. Les souvenirs qui envahissaient son esprit le poussaient presque à la folie, mais il ne lâcha pas prise. Il extrayait lentement l'épine, pouce après pouce.
 
 Finalement, l'épine plantée dans la tête de Qing Shui fut totalement extraite. Lorsque l'objet sortit, du sang coula de la bouche de Qing Shui. Libéré de son tourment, il tomba vers Wang Lin qui le rattrapa.
 
@@ -70,7 +70,7 @@ Sa tête reposa sur l'épaule de Wang Lin. Son corps était si faible que Wang L
 
 « Merci... » Après cela, Qing Shui s'évanouit.
 
-« Frère aîné... » Wang Lin jeta l'épine et serra Qing Shui contre lui, des larmes coulant de ses yeux.
+« Senior Frère... » Wang Lin jeta l'épine et serra Qing Shui contre lui, des larmes coulant de ses yeux.
 
 « Pas mal; cependant, les deux dernières épines sont bien plus difficiles que les précédentes. Oublie cela, prends ceci et pars. » La silhouette aux sept couleurs agita la main et le Fruit du Dao vola vers Wang Lin.
 

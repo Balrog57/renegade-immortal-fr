@@ -70,7 +70,7 @@ Le visage de Maître Simo, déjà tuméfié, gonfla davantage et il cracha du sa
 
 « Humph, tu oses insulter ce vieil homme?! » Une lueur meurtrière traversa les yeux de l'Oiseau Vermillon. S'il n'avait pas voulu que Wang Lin utilise Maître Simo pour faire étalage de sa puissance, il ne se serait pas contenté de trois gifles; il lui aurait instantanément pris la vie!
 
-L'Oiseau Vermillon osait défier les dragons et possédait un niveau de culture terrifiant. Bien que Maître Simo fût un cultivateur de la troisième étape, il venait tout juste d'atteindre ce stade. Si n'avait été l'Oiseau Vermillon, quiconque aurait montré une certaine hésitation, car le Conseil Souverain soutenait Maître Simo.
+L'Oiseau Vermillon osait pêcher un dragon et possédait un niveau de culture terrifiant. Bien que Maître Simo fût un cultivateur de la troisième étape, il venait tout juste d'atteindre ce stade. Si n'avait été l'Oiseau Vermillon, quiconque aurait montré une certaine hésitation, car le Conseil Souverain soutenait Maître Simo.
 
 Cependant, l'Oiseau Vermillon n'en avait cure. Il n'avait qu'une seule pensée: personne ne pouvait provoquer le Clan de l'Oiseau Vermillon! Même si ses adversaires possédaient une culture supérieure à la sienne, il s'en moquait. L'Ancêtre de la première génération s'en chargerait.
 
@@ -78,7 +78,7 @@ Le parti pris du Clan de l'Oiseau Vermillon se transmettait de génération en g
 
 Wang Lin esquissa un sourire en observant la scène. Il voyait en ce vieil homme l'ombre de Qing Shui et du cinquième Empereur Divin de l'Oiseau Vermillon.
 
-La personnalité de Wang Lin était parfois très simple: ceux qui lui étaient bienveillants recevaient des faveurs multipliées par cent. À l'instar de Situ Na, Qing Shui, de l'Empereur Divin de l'Oiseau Vermillon ou de Dun Tian... Les cultivateurs qui se disputaient le poste d'Ancien Déchu s'arrêtèrent et reculèrent. Les 10 000 cultivateurs des Terres Tombées manifestèrent un immense respect, et les dix messagers levèrent également les yeux vers le ciel avec déférence.
+La personnalité de Wang Lin était parfois très simple: ceux qui lui étaient bienveillants recevaient des faveurs multipliées plusieurs fois. À l'instar de Situ Na, Qing Shui, de l'ancien Empereur Divin de l'Oiseau Vermillon ou de Dun Tian... Les cultivateurs qui se disputaient le poste d'Ancien Déchu s'arrêtèrent et reculèrent. Les 10 000 cultivateurs des Terres Tombées manifestèrent un immense respect, et les dix messagers levèrent également les yeux vers le ciel avec déférence.
 
 Quant aux autres personnes suspendues dans le ciel, elles restèrent silencieuses.
 

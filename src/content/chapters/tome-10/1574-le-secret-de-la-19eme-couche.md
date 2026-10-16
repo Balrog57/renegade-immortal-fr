@@ -41,7 +41,7 @@ C'était ici que Wang Lin avait absorbé une étrange essence avec l'aide du vie
 
 En observant la flamme, Wang Lin constata que l'essence qu'elle contenait était bien trop instable et chaotique. C'était comme si quelqu'un l'avait créée de force; elle ne présentait aucun attrait pour lui.
 
-« La dernière couche... Que cache-t-elle exactement? Yun Quezi a dit qu'une partie de l'âme de l'ancêtre du Clan du Tatouage se trouvait dans la 19ème couche... » Les yeux de Wang Lin s'illuminèrent. « Cependant, l'ancêtre du Clan du Tatouage est la fille du Souverain, et elle fut scellée par Qing Ling dans la Terre des Esprits Démoniaques. Il est impossible que son âme soit ici! »
+« La dernière couche... Que cache-t-elle exactement? Yun Quezi a dit qu'une partie de l'âme de l'ancêtre du Clan du Tatouage se trouvait dans la 19ème couche... » Les yeux de Wang Lin s'illuminèrent. « Cependant, l'ancêtre du Clan du Tatouage est la fille du Souverain, et elle fut scellée par Qing Lin dans la Terre des Esprits Démoniaques. Il est impossible que son âme soit ici! »
 
 Wang Lin leva la main droite et saisit la flamme. L'essence à l'intérieur de la flamme entra en éruption comme pour résister, mais sa puissance était désormais insignifiante face à Wang Lin. Il pressa sans pitié, et la flamme s'effondra dans un fracas. La lumière sembla se diffuser dans la pièce, dissipant les fantômes qui se cachaient dans les recoins.
 

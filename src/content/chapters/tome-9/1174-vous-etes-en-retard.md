@@ -50,7 +50,7 @@ Un homme d'âge mûr était assis à une table dans la pièce voisine de celle d
 
 Il y avait également des cultivateurs puissants de diverses factions qui n'avaient pas déployé leur sens divin. Cependant, en remarquant que tous ces vieux monstres le faisaient, ils furent surpris et commencèrent eux aussi à observer.
 
-À cet instant, un courant sous-jacent commença à s'agiter suite au départ de Wu Qing! Nul ne pouvait prédire la suite. Ils seraient tous stupéfaits et son nom deviendrait une légende inoubliable. Il grimperait toujours plus haut. La bataille de Peng Lai serait le théâtre où il déploiera sa puissance devant toute la Mer Nuageuse!
+À cet instant, un courant sous-jacent commença à s'agiter suite au départ de Wu Qing! Nul ne pouvait prédire la suite. Ils seraient tous stupéfaits et son nom deviendrait une légende inoubliable. Il grimperait toujours plus haut. La bataille de Peng Lai serait le théâtre où il déploiera sa puissance devant toute la Mer des Nuages!
 
 Li Qianmei n'était pas dans une auberge de la partie est de Peng Lai, mais sur un sommet vertigineux. Assise là, les vents violents faisaient flotter ses cheveux. Ses yeux brillaient tandis qu'elle regardait silencieusement vers l'ouest.
 
@@ -98,7 +98,7 @@ Cette fois, toute l'énergie originelle de Peng Lai sembla entrer en ébullition
 
 Le vortex trembla et s'effondra instantanément. Une onde de choc surpuissante se propagea dans toutes les directions, soulevant un nuage de poussière titanesque. D'innombrables rochers furent projetés et pulvérisés par l'onde de choc, plongeant le monde sous une poussière infinie.
 
-Sans son corps original, Wang Lin pouvait tuer un Briseur du Nirvana au stade initial. Mais avec son corps original, il était bien plus puissant qu'auparavant. La force de son corps était inconcevable et, alliée à la puissance d'un Dieu Ancien, sa capacité de destruction avait décuplé!
+Sans son corps original, Wang Lin pouvait tuer un Briseur du Nirvana au stade initial. Mais avec son corps original, il était bien plus puissant qu'auparavant. La force de son corps était inconcevable et, alliée à la puissance d'un Dieu Ancien, sa capacité de destruction avait considérablement augmenté!
 
 Après l'impact des trois doigts, la main droite de Wang Lin s'abattit, projetant son énergie originelle sur Wu Qing. Les pupilles de ce dernier se contractèrent. En cet instant de vie ou de mort, il n'eut même pas le temps de regretter. Des trésors jaillirent précipitamment de son espace de stockage pour tenter d'endiguer cette force.
 
@@ -118,11 +118,11 @@ Dans la Terre des Esprits Démoniaques, il en avait saisi à nouveau la techniqu
 
 Lors de sa seconde visite dans la Terre des Esprits Démoniaques, l'empreinte de sa paume fit trembler les cieux et détruisit le huitième étage de la grotte céleste, laissant Ling Tianhou profondément ébranlé!
 
-Dans l'Alliance, pour empêcher les membres de la Secte du Dao Pourpre de la Mer Nuageuse de s'enfuir, il avait utilisé cette technique une fois de plus, massacrant tout ce qui se trouvait sur son passage! C'est à cet instant que Wang Lin avait appris le nom de ce sortilège!
+Dans l'Alliance, pour empêcher les membres de la Secte du Dao Pourpre de la Mer des Nuages de s'enfuir, il avait utilisé cette technique une fois de plus, massacrant tout ce qui se trouvait sur son passage! C'est à cet instant que Wang Lin avait appris le nom de ce sortilège!
 
 L'Empreinte de l'Esprit Guerrier!
 
-L'Empreinte de l'Esprit Guerrier de la Secte Divin de Rang 9!!
+L'Empreinte de l'Esprit Guerrier de la Secte Divine de Rang 9!!
 
 Toutes ces pensées se succédèrent dans son esprit, de sa première compréhension aux quatre fois où il l'avait employée. Ces souvenirs tourbillonnèrent jusqu'à ce qu'ils s'effondrent tous, ne laissant subsister que l'empreinte de la main.
 
@@ -134,9 +134,9 @@ La volonté contenue dans cette paume était celle d'un être s'élevant au-dess
 
 Cette paume était comme le firmament! Et sous elle, Wu Qing n'était qu'une fourmi! Dès l'apparition de cette main, le sens divin de tous les vieux monstres trembla et tout Peng Lai fut saisi par la terreur!
 
-« L'Empreinte... l'Empreinte de l'Esprit Guerrier!!! L'Empreinte de l'Esprit Guerrier de la Secte Divin de Rang 9!! » Wu Qing était totalement pétrifié, et un sentiment de désespoir sans précédent envahit son être. Bien qu'il fût un Briseur du Nirvana, la pression de l'Empreinte de l'Esprit Guerrier lui donnait l'impression que le monde s'effondrait. Ce qui était encore plus terrifiant, c'était de voir l'emblématique Empreinte de la Secte Divin se manifester devant ses yeux.
+« L'Empreinte... l'Empreinte de l'Esprit Guerrier!!! L'Empreinte de l'Esprit Guerrier de la Secte Divine de Rang 9!! » Wu Qing était totalement pétrifié, et un sentiment de désespoir sans précédent envahit son être. Bien qu'il fût un Briseur du Nirvana, la pression de l'Empreinte de l'Esprit Guerrier lui donnait l'impression que le monde s'effondrait. Ce qui était encore plus terrifiant, c'était de voir l'emblématique Empreinte de la Secte Divine se manifester devant ses yeux.
 
-Dans son esprit, ce n'était pas seulement l'Empreinte, mais tout la Secte Divin qui s'abattait sur lui!
+Dans son esprit, ce n'était pas seulement l'Empreinte, mais toute la Secte Divine qui s'abattait sur lui!
 
 Il poussa un cri et commença à reculer comme un fou. La peur dans ses yeux submergea sa raison. À cet instant, il ne se souciait plus de la blessure grave de son esprit ou de l'effondrement imminent de son corps; il ne voulait qu'une chose: s'échapper. Mais la fuite était impossible, car la paume continuait de croître jusqu'à saturer sa vision.
 
@@ -202,11 +202,11 @@ Le lettré en blanc eut un haut-le-cœur, mais ses yeux brillèrent d'un éclat 
 
 Non loin de là, le vieil homme balafré restait pétrifié. Il n'arrivait toujours pas à croire ce qu'il venait de voir.
 
-« Je ne pensais pas qu'il appartenait à la Secte Divin... L'Empreinte de l'Esprit Guerrier est trop terrifiante! »
+« Je ne pensais pas qu'il appartenait à la Secte Divine... L'Empreinte de l'Esprit Guerrier est trop terrifiante! »
 
 Le vieillard desséché en noir fut le plus chanceux. À cet instant, les deux sphères dans ses mains avaient cessé de tourner. Son visage était pâle et la sueur froide coulait sur son front alors qu'il reprenait son souffle.
 
-« Heureusement que Wu Qing a attaqué en premier; sinon, c'est moi qui serais mort! La Secte de la Collection des Démons sera bientôt anéantie pour avoir osé provoquer quelqu'un de la Secte Divin! »
+« Heureusement que Wu Qing a attaqué en premier; sinon, c'est moi qui serais mort! La Secte de la Collection des Démons sera bientôt anéantie pour avoir osé provoquer quelqu'un de la Secte Divine! »
 
 Il y avait aussi la vieille femme en vert qui avait vendu la carte des étoiles à Wang Lin. Ses yeux s'illuminèrent et elle fronça les sourcils, réprimant le choc dans son cœur. Elle observa les ruines laissées par la paume, mais nul ne savait ce qu'elle pensait réellement.
 

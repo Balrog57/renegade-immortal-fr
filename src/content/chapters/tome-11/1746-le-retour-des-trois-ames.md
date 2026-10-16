@@ -62,21 +62,21 @@ C'était la deuxième fois qu'il la traquait. Cette fois, il n'y avait ni Daoïs
 
 Wang Lin sentait que l'identité et la localisation de la troisième âme étaient sur le point d'être révélées!
 
-La troisième âme traversa la Rivière des Invocations et atteignit le Vide Brillant. Elle ralentit dans le Vide Brillant, comme si elle cherchait un lieu pour se réincarner.
+La troisième âme traversa la Rivière Invoquée et atteignit le Vide Brillant. Elle ralentit dans le Vide Brillant, comme si elle cherchait un lieu pour se réincarner.
 
 Wang Lin la suivait, utilisant toute sa vitesse pour espérer la rattraper. Il observa la troisième âme, mais elle était nuageuse, dépourvue de toute silhouette intérieure. Elle était manifestement différente des deux autres âmes; avant de se réincarner, elle n'avait aucune apparence!
 
 La troisième âme marqua un temps d'arrêt devant une planète abandonnée. Cependant, finalement, elle ne choisit pas cet endroit et passa son chemin.
 
-Après un temps indéterminé, Wang Lin suivait toujours la troisième âme. Après avoir fait le tour du Vide Brillant, celle-ci accéléra soudainement et fonça vers la Mer Nuageuse!
+Après un temps indéterminé, Wang Lin suivait toujours la troisième âme. Après avoir fait le tour du Vide Brillant, celle-ci accéléra soudainement et fonça vers la Mer des Nuages!
 
-Les yeux de Wang Lin brillèrent intensément. Il estima le temps écoulé. À l'époque, le Daoïste aux Sept Couleurs n'avait probablement vu que la troisième âme entrer dans le Vide Brillant sans jamais la voir voler vers la Mer Nuageuse, car il avait été réveillé par Wang Lin!
+Les yeux de Wang Lin brillèrent intensément. Il estima le temps écoulé. À l'époque, le Daoïste aux Sept Couleurs n'avait probablement vu que la troisième âme entrer dans le Vide Brillant sans jamais la voir voler vers la Mer des Nuages, car il avait été réveillé par Wang Lin!
 
 Pourtant, en y réfléchissant, un frisson soudain parcourut le cœur de Wang Lin. Ce frisson venait d'une pensée qui traversa son esprit.
 
 « Cette troisième âme a tourné autour du Vide Brillant comme si elle cherchait quelque chose... Ou peut-être savait-elle que le Daoïste aux Sept Couleurs la chercherait des millénaires plus tard, et qu'elle s'était donc intentionnellement attardée dans le Vide Brillant... » Wang Lin secoua la tête. Il trouvait cette idée tout simplement trop absurde.
 
-La troisième âme vola vers l'arrière de la Mer Nuageuse et pénétra sur une planète sauvage! Wang Lin arriva et fixa l'astre du regard.
+La troisième âme vola vers l'arrière de la Mer des Nuages et pénétra sur une planète sauvage! Wang Lin arriva et fixa l'astre du regard.
 
 Le temps passa. Un jour donné, la planète s'effondra et se dispersa dans toutes les directions. Des nuées de poussière se répandirent, enveloppant le lieu. Sur l'un des fragments, un python mourut et un rayon de lumière s'élança vers le système stellaire.
 

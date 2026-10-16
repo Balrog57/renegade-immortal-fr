@@ -60,7 +60,7 @@ Ainsi, il n'hésita pas à aider Wang Lin. C'était aussi une opportunité pour 
 
 « Membres du clan, brisez vos Esprits Lunaires et offrez-les en sacrifice pour le Clan de la Lune! »
 
-Le corps du vieil homme commença aussitôt à gonfler; il pointa impitoyablement vers le bas et cria d'une voix rauque: « Invoquez à nouveau le trésor du Clan de la Lune: l'Os Résiduel du Dieu Ancien! »
+Le corps du vieil homme commença aussitôt à gonfler; il pointa impitoyablement vers le bas et cria d'une voix rauque: « Invoquez à nouveau le trésor du Clan de la Lune: l'Os Fragmentaire d'Ancien Dieu! »
 
 Au moment où ses paroles résonnèrent, la lumière lunaire autour de son corps devint monstrueuse. Le doigt du Dieu Ancien, planté profondément dans le sol, s'éleva soudainement et chargea vers Tuo Sen!
 
@@ -84,7 +84,7 @@ Wang Lin avait un tempérament décisif. Une fois sa décision prise, il n'hési
 
 Un fracas tonitruant retentit et une fissure béante fut créée par l'épée de sang. Alors que Tuo Sen absorbait frénétiquement, l'objet fut scindé en deux!
 
-La tranchant de l'épée de sang était terrifiant!
+Le tranchant de l'épée de sang était terrifiant!
 
 Le doigt s'effondra soudainement, libérant une puissante onde de choc. La majeure partie de cette force se projeta vers Tuo Sen, le faisant hurler de douleur. Lorsque l'impact frappa son corps, il cracha une large bouffée de sang. Son corps recula rapidement et disparut en un clin d'œil. La force poussa la moitié du doigt dans son vortex stellaire, où elle fut scellée à l'intérieur d'une étoile!
 

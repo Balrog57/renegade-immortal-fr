@@ -22,7 +22,7 @@ Trois Portes du Vide apparurent simultanément dans le monde. De loin, ce specta
 
 « Il... Que diable fait-il? Après avoir déployé tant d'efforts pour ouvrir la Porte du Vide... »
 
-« Même parmi les Cinq Maîtres du Système Stellaire Antique, je n'ai jamais entendu parler de quelqu'un capable de faire une telle chose... Le Seigneur du Domaine Scellé... Le Seigneur du Domaine Scellé... »
+« Même parmi les Cinq Maîtres du Système Stellaire Antique, je n'ai jamais entendu parler de quelqu'un capable de faire une telle chose... Le Seigneur du Royaume Scellé... Le Seigneur du Royaume Scellé... »
 
 L'expression de Wang Lin restait calme alors qu'il contemplait les trois Portes du Vide. Il fit un pas en avant et chargea comme une météorite vers elles, sous les yeux de tous.
 
@@ -114,4 +114,4 @@ Près de dix mille personnes ne purent même pas pousser un cri avant de mourir 
 
 « La concubine impériale céleste disait que la Porte des Dix Mille Os du Vide était un gouffre immense à franchir. Les êtres capables de déclencher cette porte sont extrêmement rares, mais tant qu'ils survivent, ils deviendront assurément de puissants maîtres à l'avenir! »
 
-« La Porte des Dix Mille Os du Vide... L'ancien Seigneur du Domaine Scellé disait que quiconque parviendrait à déclencher cette porte pour atteindre la troisième étape aurait un avenir inimaginable. Il affirmait que cette porte d'os n'appartenait pas à ce monde... mais était un signe des cieux provenant de sa terre natale! » Le Maître Nan Yunzi contemplait l'étrange porte d'os, les yeux écarquillés par l'incrédulité.
+« La Porte des Dix Mille Os du Vide... L'ancien Seigneur du Royaume Scellé disait que quiconque parviendrait à déclencher cette porte pour atteindre la troisième étape aurait un avenir inimaginable. Il affirmait que cette porte d'os n'appartenait pas à ce monde... mais était un signe des cieux provenant de sa terre natale! » Le Maître Nan Yunzi contemplait l'étrange porte d'os, les yeux écarquillés par l'incrédulité.

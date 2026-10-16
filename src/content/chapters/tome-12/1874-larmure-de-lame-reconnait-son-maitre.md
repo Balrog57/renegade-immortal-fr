@@ -16,13 +16,13 @@ Wang Lin ne cessa pas sa retraite. Tout en reculant, il leva les mains. Le vorte
 
 Grâce à cette cadence, la culture de Wang Lin circulait à un rythme effréné. Il commença à enchaîner les sorts sans interruption, tout comme Xu Decai.
 
-La main droite de Wang Lin traça un sceau et l'Empreinte de l'Esprit Martial apparut. Deux empreintes de paumes volèrent l'une après l'autre vers Lu Wenran.
+La main droite de Wang Lin traça un sceau et l'Empreinte de l'Esprit Guerrier apparut. Deux empreintes de paumes volèrent l'une après l'autre vers Lu Wenran.
 
 Aussitôt, la main gauche de Wang Lin forma des sceaux et le monde se mua en une mer de feu. L'Ombrelle Brûlante du Royaume fit son apparition. Deux ombrelles antiques, superposées, libérèrent un incendie monstrueux.
 
-Les Lances aux Sept Couleurs atteignirent Lu Wenran les premières. D'un revers de manche, il déchaîna la puissance de sa culture de milieu de stade de la Tribulation du Vide, faisant éclater les deux lances. Cependant, peu après, les deux Empreintes de l'Esprit Martial entrèrent en collision avec lui.
+Les Lances aux Sept Couleurs atteignirent Lu Wenran les premières. D'un revers de manche, il déchaîna la puissance de sa culture de milieu de stade de la Tribulation du Vide, faisant éclater les deux lances. Cependant, peu après, les deux Empreintes de l'Esprit Guerrier entrèrent en collision avec lui.
 
-Des grondements tonitruants résonnèrent. Avant même que Lu Wenran ne puisse réagir, les deux Ombreslles Brûlantes du Royaume libérèrent un feu destructeur qui se referma sur lui.
+Des grondements tonitruants résonnèrent. Avant même que Lu Wenran ne puisse réagir, les deux Ombrelles Brûlantes du Royaume libérèrent un feu destructeur qui se referma sur lui.
 
 Les pupilles de Lu Wenran se rétractèrent. À cet instant, il ne doutait plus que Wang Lin avait tué Xu Decai. Hormis ce dernier, nul autre n'était capable de lancer des sorts à une telle vitesse terrifiante.
 
@@ -45,11 +45,11 @@ Mais la série ne s'arrêta pas là. Dès qu'il eut achevé Nuit Brisée et Temp
 « Appelle le Vent, Invoque la Pluie! »
 « Arsenal Magique! »
 « Montagnes S’Effondrent, Terres S'Écroulent! »
-« Lune Noire, Ciel Clair! »
+« Lune Noire, Ciel Dégagé! »
 
 Alors qu'il agitait sa manche, deux lunes noires apparurent aux côtés des deux soleils brillants, créant un contraste d'ombres. Lu Wenran fut alors pris dans le sort de la Secte de la Lune Noire.
 
-Les fracas du tonnerre se succédèrent. Lu Wenran luttait contre les Empreintes de l'Esprit Martial tout en étant brûlé par les Ombreslles Brûlantes du Royaume et frappé par la puissance de Nuit Brisée. Alors que le temps commençait à s'inverser, un rugissement de colère retentit et tous les sorts de Wang Lin s'effondrèrent.
+Les fracas du tonnerre se succédèrent. Lu Wenran luttait contre les Empreintes de l'Esprit Guerrier tout en étant brûlé par les Ombrelles Brûlantes du Royaume et frappé par la puissance de Nuit Brisée. Alors que le temps commençait à s'inverser, un rugissement de colère retentit et tous les sorts de Wang Lin s'effondrèrent.
 
 Les deux empreintes de paumes géantes explosèrent et les deux ombrelles antiques se brisèrent. Le ciel et la mer se désintégrèrent totalement. Enfin, les deux lunes et les portes de pierre s'écroulèrent.
 
@@ -77,7 +77,7 @@ Alors que l'Engrenage aux Neuf Dents approchait, Wang Lin sentit la mort rôder.
 
 « Déchirement Céleste! » rugit Wang Lin en déchirant l'espace de ses mains. L'Engrenage aux Neuf Dents percuta la faille ainsi ouverte. Dans un fracas tonitruant, quatre des dents de l'engrenage volèrent en éclats. Cependant, les cinq dents restantes agirent comme des lames mortelles projetées droit sur Wang Lin!
 
-En un instant, elles furent à moins de dix mètres de lui. L'objet tournait frénétiquement avec une acuité extrême, comme s'il voulait scinder Wang Lin en deux.
+En un instant, elles furent à moins de trente pieds de lui. L'objet tournait frénétiquement avec une acuité extrême, comme s'il voulait scinder Wang Lin en deux.
 
 Wang Lin ressentit une douleur atroce, comme si son corps allait être tranché net. L'engrenage rotatif l'atteignit et le sang jaillit de tout son corps.
 
@@ -107,9 +107,9 @@ Une lanterne émettant une douce lueur apparut au-dessus de la tête de Wang Lin
 
 Les yeux de Lu Wenran brillèrent d'une intention meurtrière délirante. Voyant que Wang Lin n'était pas mort, il chargea de nouveau.
 
-« Peu importe la force de ton corps ou le trésor qui te protège! Meurs, meurs, MEURS! » En un pas, Lu Wenran se retrouva à moins de 150 mètres de Wang Lin!
+« Peu importe la force de ton corps ou le trésor qui te protège! Meurs, meurs, MEURS! » En un pas, Lu Wenran se retrouva à moins de 500 pieds de Wang Lin!
 
-Au second pas, il n'était plus qu'à 30 mètres. Il leva la main, prêt à porter le coup fatal. À cet instant précis, l'armure de l'âme du Taureau Céleste se transforma en d'innombrables filaments noirs qui filèrent à une vitesse fulgurante devant Lu Wenran pour atteindre Wang Lin.
+Au second pas, il n'était plus qu'à 100 pieds. Il leva la main, prêt à porter le coup fatal. À cet instant précis, l'armure de l'âme du Taureau Céleste se transforma en d'innombrables filaments noirs qui filèrent à une vitesse fulgurante devant Lu Wenran pour atteindre Wang Lin.
 
 Tout cela se produisit en un éclair. En un instant, Wang Lin fut entouré d'une multitude de filaments noirs et une aura puissante explosa. Lorsque cette onde frappa Lu Wenran, il cracha du sang, ses yeux remplis d'une terreur et d'un regret profonds!
 

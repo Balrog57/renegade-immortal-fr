@@ -100,7 +100,7 @@ Son véritable corps d'essence de feu apparut et s'étendit soudainement, envelo
 
 Le Feu Éthéré commença à consumer les cultivateurs. Des jaillissements de flammes illuminèrent la zone tandis que des cris misérables résonnaient.
 
-« Quiconque se mettra sur mon chemin mourra!! » Wang Lin se mordit la langue pour chasser sa fatigue. Dans un rugissement, il chargea. Dans un éclat de lumière rouge sang, l'épée de sang apparut dans sa main droite. Il agita sa main gauche et le Voile Fantomatique surgit. La voile se transforma en une brume noire qui devint d'innombrables fantômes se précipitant devant Wang Lin!
+« Quiconque se mettra sur mon chemin mourra!! » Wang Lin se mordit la langue pour chasser sa fatigue. Dans un rugissement, il chargea. Dans un éclat de lumière rouge sang, l'épée de sang apparut dans sa main droite. Il agita sa main gauche et le Voile Fantôme surgit. La voile se transforma en une brume noire qui devint d'innombrables fantômes se précipitant devant Wang Lin!
 
 La scène était absolument terrifiante. Les cultivateurs brûlés par le Feu Éthéré étaient soit tués par les flammes, soit par l'épée de sang de Wang Lin. Les autres n'osaient même pas attaquer face à cette intention meurtrière monstrueuse qui semblait vouloir tout anéantir sur son passage.
 

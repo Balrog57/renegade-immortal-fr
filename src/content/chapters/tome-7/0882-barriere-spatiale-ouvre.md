@@ -78,7 +78,7 @@ Il avait fallu tant d'efforts pour ouvrir une brèche dans la barrière spatiale
 
 Cependant, la déchirure dans la barrière spatiale possédait une puissance à laquelle aucun cultivateur ne pouvait résister. Le fragment fut instantanément broyé et s'effondra!
 
-Pourtiment, son effondrement réussit à retarder suffisamment la fermeture de la brèche. D'autres fragments se précipitèrent dans la faille pour l'empêcher de se refermer, et finalement, la brèche perdit lentement sa capacité de régénération.
+Pourtant, son effondrement réussit à retarder suffisamment la fermeture de la brèche. D'autres fragments se précipitèrent dans la faille pour l'empêcher de se refermer, et finalement, la brèche perdit lentement sa capacité de régénération.
 
 Alors que davantage de fragments s'y engouffraient, la fissure fut impitoyablement déchirée et s'élargit considérablement. Elle gagna mille pieds!
 

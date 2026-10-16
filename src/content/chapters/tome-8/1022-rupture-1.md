@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1022 - Break (1)
 slug: rupture-1
 ---
-L'Omniscient n'était pas le seul à réagir ainsi. Dans un autre royaume à l'intérieur du monde de la bouteille, Maître du Vide, le jeune frère apprenti de l'Ancien principal de l'Alliance, Maître Zhong Xuan, se déplaçait sur un nuage vert. Il tenait une pierre de jade violette et verte. Le jade brillait et illuminait tout dans un rayon de plusieurs kilomètres.
+L'Omniscient n'était pas le seul à réagir ainsi. Dans un autre royaume à l'intérieur du monde de la bouteille, Maître du Vide, le jeune frère apprenti de l'Ancien principal de l'Alliance, Maître Zhong Xuan, se déplaçait sur un nuage vert. Il tenait une pierre de jade violette et verte. Le jade brillait et illuminait tout dans un rayon d'innombrables kilomètres.
 
 Même en étant très loin, on pouvait clairement distinguer cette lumière pourpre et verte.
 
@@ -78,7 +78,7 @@ Situ Nan leva brusquement la tête, affichant une expression féroce et impatien
 
 Une autre personne se trouvait dans le monde de la bouteille! Cet homme au crâne rasé marchait à travers le désert de sable noir avec un sourire démoniaque. Son corps scintillait et franchissait sans cesse les frontières des royaumes. Bien qu'il réapparaisse toujours dans le désert de sable noir, il se trouvait déjà dans un autre royaume!
 
-« Ce "Souvenir douloureux du Désert Solitaire" doit se trouver dans ces quelques royaumes! Ancien Démon Ta Jia... Bien que moi, Bei Lou, ne sois pas complet, j'ai recouvré environ 80 % de ma puissance. Cette fois, tu n'auras pas la même chance qu'autrefois! »
+« Ce "Tableau de la Fumée du Désert Solitaire" doit se trouver dans ces quelques royaumes! Ancien Démon Ta Jia... Bien que moi, Bei Lou, ne sois pas complet, j'ai recouvré environ 80 % de ma puissance. Cette fois, tu n'auras pas la même chance qu'autrefois! »
 
 L'œil droit de Bei Lou s'illumina. Sept étoiles étincelantes, saturées d'énergie démoniaque, brillaient dans son regard.
 
@@ -104,7 +104,7 @@ On entendit un grincement de dents dans l'obscurité du brouillard noir. L'homme
 
 Dans le monde de la bouteille, la mer de flammes qui entourait Wang Lin se précipita vers l'Oiseau Vermillon.
 
-Cet Oiseau Vermillon mesurait environ trente mètres de haut et était d'un rouge éclatant. Lorsqu'il déployait ses ailes, son envergure atteignait des centaines de mètres. Sa queue enflammée lui conférait une majesté absolue!
+Cet Oiseau Vermillon mesurait environ cent pieds de haut et était d'un rouge éclatant. Lorsqu'il déployait ses ailes, son envergure atteignait des centaines de pieds. Sa queue enflammée lui conférait une majesté absolue!
 
 Plus particulièrement, les yeux de l'Oiseau Vermillon affichaient un regard froid; il était le miroir exact du regard de Wang Lin.
 
@@ -132,17 +132,17 @@ Au sein de la Secte des Quatre Divinités, les éveils de la Tortue Noire n'éta
 
 Le Dragon Azure était le plus puissant. Ceux qui l'éveillaient étaient rares, mais ils échouaient rarement. Une fois leur éveil accompli, ils finiraient par devenir l'Empereur Divin du Dragon Azure!
 
-Dans les temps anciens, si ce n'était la disparition mystérieuse de l'Empereur Divin du Dragon Azure et le fait que l'Empereur Saint de l'Oiseau Vermillon faisait face à sa troisième Affliction Céleste — ce qui l'empêchait d'utiliser pleinement sa culture —, la guerre contre l'Alliance aurait pu avoir un tout autre dénouement!
+Dans les temps anciens, si ce n'était la disparition mystérieuse de l'Empereur Divin du Dragon Azure et le fait que l'Empereur Saint de l'Oiseau Vermillon faisait face à son troisième Fléau Céleste — ce qui l'empêchait d'utiliser pleinement sa culture —, la guerre contre l'Alliance aurait pu avoir un tout autre dénouement!
 
 L'Oiseau Vermillon était le plus difficile à éveiller parmi les Quatre Divinités; même le Dragon Azure ne pouvait l'égaler. Ceux qui réussissaient leur éveil et survivaient aux épreuves pour devenir un Empereur Divin étaient bien trop peu nombreux!
 
 Ceux qui possédaient un talent prodigieux et la légendaire constitution de l'Oiseau Vermillon devaient accumuler une puissance de flammes suffisante par leur culture pour activer l'éveil de l'Oiseau Vermillon! Ce n'était qu'à cette condition qu'ils pourraient supporter une chaleur inimaginable sans mourir durant le processus!
 
-Quiconque ne possédait pas la constitution de l'Oiseau Vermillon ne pouvait réaliser d'éveil interne et devait compter sur une force externe. Dans toute la longue histoire de la Secte Divin de l'Oiseau Vermillon, nul n'avait jamais réussi par cette méthode!
+Quiconque ne possédait pas la constitution de l'Oiseau Vermillon ne pouvait réaliser d'éveil interne et devait compter sur une force externe. Dans toute la longue histoire de la Secte Divine de l'Oiseau Vermillon, nul n'avait jamais réussi par cette méthode!
 
 L'éveil de Wang Lin était classé comme un éveil par force externe. À mesure que les flammes s'accumulaient, la chaleur devenait plus intense encore. S'il n'avait pas eu son corps de Dieu Ancien, il serait déjà réduit en poussière!
 
-Personne ne s'était jamais éveillé par une force externe dans toute l'histoire de la Secte Divin de l'Oiseau Vermillon. Cependant, la marque de l'Oiseau Vermillon n'avait jamais été accordée à un Dieu Ancien capable de supporter l'éveil par la seule force de son corps!
+Personne ne s'était jamais éveillé par une force externe dans toute l'histoire de la Secte Divine de l'Oiseau Vermillon. Cependant, la marque de l'Oiseau Vermillon n'avait jamais été accordée à un Dieu Ancien capable de supporter l'éveil par la seule force de son corps!
 
 Wang Lin endurait actuellement cette chaleur incroyable grâce à son corps de Dieu Ancien Royal à 5 étoiles. Lorsque sa peau se fissurait, une chair nouvelle la remplaçait instantanément. Ce cycle se poursuivait jusqu'à ce que le corps de Dieu Ancien de Wang Lin s'adapte progressivement à cette température extrême!
 
@@ -166,7 +166,7 @@ Une fois la mer de flammes épuisée, la terre blanche semblable à un miroir fu
 
 La boule de feu grandissait sans cesse jusqu'à atteindre le ciel! Le feu du royaume diminua, car presque toutes les flammes de ce plan avaient été absorbées par la sphère!
 
-À cet instant, il ne restait plus aucune flamme à part celle de la sphère. Les flammes infinies invoquées par le « Brûler le Ciel » de Ming Hai se trouvaient toutes à l'intérieur de la boule de feu!
+À cet instant, il ne restait plus aucune flamme à part celle de la sphère. Les flammes infinies invoquées par le « Brûle les Cieux » de Ming Hai se trouvaient toutes à l'intérieur de la boule de feu!
 
 Au même moment, la fumée noire qui recouvrait le ciel s'agglutina autour de la sphère. Si quiconque avait vu cette scène, son esprit en aurait été ébranlé!
 
@@ -198,7 +198,7 @@ Pourtant, alors que l'ombre démoniaque convergeait, des flammes jaillirent des 
 
 Wang Lin avait dévoré trop de flammes. Les flammes qui jaillissaient de lui étaient les résidus après que son corps eut absorbé ce qu'il pouvait. S'il les gardait en lui, elles finiraient par le blesser; il n'avait d'autre choix que de les libérer!
 
-La chaleur de cette mer de feu différait du « Brûler le Ciel ». Non seulement elle possédait la puissance de cette technique, mais elle contenait également une étincelle de la Flamme Divine de l'Oiseau Vermillon!
+La chaleur de cette mer de feu différait du « Brûle les Cieux ». Non seulement elle possédait la puissance de cette technique, mais elle contenait également une étincelle de la Flamme Divine de l'Oiseau Vermillon!
 
 Elle jaillit et s'étendit rapidement en un cercle parfait. La mer de flammes était si vaste qu'elle couvrit le ciel et la terre. En se propageant, l'ombre démoniaque envoyée par l'homme caché dans les brumes noires percuta de front cet océan de feu!
 
@@ -208,7 +208,7 @@ Cependant, il était trop tard!
 
 Dès son retrait, la mer de flammes se projeta comme une vague colérique pour submerger l'ombre démoniaque. Le rugissement de cette ombre résonna dans les flammes avant de se dissiper rapidement. Lorsqu'il ne resta qu'un minuscule fragment, celui-ci parvint enfin à s'extirper de la mer de feu et tenta de fuir!
 
-Hélas, il avait sous-estimé la puissance de cet océan ardent. La chaleur de la mer de flammes, combinée à la Flamme Divine issue de l'éveil de l'Oiseau Vermillon, l'avait rendue bien plus puissante que le « Brûler le Ciel »!
+Hélas, il avait sous-estimé la puissance de cet océan ardent. La chaleur de la mer de flammes, combinée à la Flamme Divine issue de l'éveil de l'Oiseau Vermillon, l'avait rendue bien plus puissante que le « Brûle les Cieux »!
 
 À cet instant, elle se propagea dans toutes les directions. Ce qu'elle consumait n'était pas seulement le royaume de Wang Lin, mais tous les royaumes contenus dans cette bouteille!
 
@@ -220,7 +220,7 @@ Ce royaume était rempli de sable noir, mais une masse de flammes s'y précipita
 
 Celui-ci se désintégra à son tour!
 
-*Rumble, rumble, rumble, rumble!*
+*Grondement, grondement, grondement, grondement!*
 
 Des grondements titanesques résonnèrent alors que les royaumes de la bouteille s'effondraient les uns après les autres. Dès qu'un royaume cédait, les flammes s'engouffraient dans le suivant, provoquant sa chute!
 

@@ -22,7 +22,7 @@ Plus il s'enfonçait, plus la lumière verte se faisait dense. Finalement, elle 
 
 Le sens divin de Wang Lin se rétracta brusquement, et toute la partie qui avait pénétré la zone se condensa en une aiguille. Au moment où la lumière verte se refermait, son sens divin jaillit pour percuter violemment l'éclat verdâtre.
 
-Des grondements tonnantes résonnèrent. Dans la grotte, Wang Lin avait toujours la main posée sur le front de la femme. Ses yeux étaient clos et son visage blême, tandis que du sang coulait du coin de sa bouche. Pourtant, il ne cessa pas d'ouvrir les yeux.
+Des grondements tonnants résonnèrent. Dans la grotte, Wang Lin avait toujours la main posée sur le front de la femme. Ses yeux étaient clos et son visage blême, tandis que du sang coulait du coin de sa bouche. Pourtant, il ne cessa pas d'ouvrir les yeux.
 
 À l'intérieur de l'esprit de la femme, la majeure partie du sens divin de Wang Lin s'était dissipée au moment où il avait percé la lumière verte. Le reste du sens divin chargea dans les profondeurs de cette zone trouble.
 
@@ -38,7 +38,7 @@ Dans la grotte, Wang Lin ouvrit brusquement les yeux, profondément troublé. Il
 
 « La silhouette dans l'esprit de cette femme est identique à celle de la statue! » songea silencieusement Wang Lin.
 
-« C'est encore sept couleurs... » À la vue de cette figure, il pensa d'abord au Souverain! Cependant, il écarla immédiatement cette idée.
+« C'est encore sept couleurs... » À la vue de cette figure, il pensa d'abord au Souverain! Cependant, il écarta immédiatement cette idée.
 
 Bien que le Souverain fût puissant, il n'était pas assez fort pour terrifier Wang Lin comme cette statue! Il avait déjà rencontré des cultivateurs du troisième pas; le niveau de culture du Maître Dao Bleu Rêve était très proche de celui du Souverain, et Wang Lin pouvait donc facilement faire la distinction.
 
@@ -58,9 +58,9 @@ Les yeux de Wang Lin s'illuminèrent tandis que son sens divin balayait la zone.
 
 « Ce trésor... dois-je le garder ou le raffiner? » Wang Lin hésita un instant avant d'agiter la main. Il y laissa son empreinte de sens divin ainsi que des restrictions avant de les ranger dans son espace de stockage.
 
-« Si je les raffine, l'énergie démoniaque qu'ils contiennent sera gaspillée. Une fois revenu dans le Royaume Intérieur, mon second avatar pourra l'absorber! Malheureusement, ma connexion avec lui est entravée par la Formation du Domaine Scellé, sans quoi je pourrais effectuer le transfert dès maintenant. »
+« Si je les raffine, l'énergie démoniaque qu'ils contiennent sera gaspillée. Une fois revenu dans le Royaume Intérieur, mon second avatar pourra l'absorber! Malheureusement, ma connexion avec lui est entravée par la Formation du Royaume Scellé, sans quoi je pourrais effectuer le transfert dès maintenant. »
 
-« Je ne saurais dire comment évolue mon second avatar après toutes ces années... » Wang Lin sortit silencieusement le second trésor: les Tablettes d'Os de Protection!
+« Je ne saurais dire comment évolue mon second avatar après toutes ces années... » Wang Lin sortit silencieusement le second trésor: les Tablettes de Protection Osseuse!
 
 Les neuf tablettes l'entourèrent, dégageant une aura familière à ses sens. C'était l'aura des anciens dieux!
 
@@ -102,7 +102,7 @@ Tuo Sen avait fusionné des cultivateurs du troisième pas dans ses étoiles, ta
 
 Le corps de Wang Lin trembla et sa puissance d'ancien dieu augmenta en flèche. Des bruits de craquements résonnèrent en lui. Cela dura longtemps avant de s'estomper. Ses cheveux ondulaient sans vent et son corps gagna en vigueur.
 
-« Bien qu'il ne puisse rivaliser avec l'Épée de Sang ou la Hache Brise-Ciel de la Formation du Domaine Scellé, il est presque à égalité avec la Lance Tueuse de Dieux de Tu Si. Si je parviens à le raffiner totalement, son pouvoir sera sans limite! Plus important encore, sa puissance est axée sur le raffinement! »
+« Bien qu'il ne puisse rivaliser avec l'Épée de Sang ou la Hache Brise-Ciel de la Formation du Royaume Scellé, il est presque à égalité avec la Lance Tueuse de Dieux de Tu Si. Si je parviens à le raffiner totalement, son pouvoir sera sans limite! Plus important encore, sa puissance est axée sur le raffinement! »
 
 La joie dans les yeux de Wang Lin s'intensifia. Il agita sa manche et sortit le quatrième trésor: la lance de brouillard qui oscillait constamment entre réalité et illusion!
 

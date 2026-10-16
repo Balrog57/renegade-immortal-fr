@@ -16,7 +16,7 @@ En observant Wang Lin et le roi moustique qui s'éloignaient au loin, Du Qing af
 
 S'il avait découvert l'identité et l'origine de Wang Lin, et s'il avait appris les deux mille ans de tribulations que celui-ci avait endurés, son cœur ne serait pas aussi apaisé. Même s'il était né dans le Monde des Grottes avec la chance de Cupidité, il n'aurait jamais pu en sortir comme Wang Lin après deux mille ans!
 
-En un éclair, une demi-mois s'écoula. Durant cette période, Wang Lin s'arrêta à plusieurs reprises pour attendre que Du Qing le rattrape. Après avoir volé sans interruption pendant quinze jours, le roi moustique était toujours en pleine forme et ne montrait aucun signe de fatigue. Ayant subi de nombreuses métamorphoses, sa vitesse avait atteint un degré terrifiant. Même Du Qing ne parvenait pas à tenir son rythme.
+En un éclair, un demi-mois s'écoula. Durant cette période, Wang Lin s'arrêta à plusieurs reprises pour attendre que Du Qing le rattrape. Après avoir volé sans interruption pendant quinze jours, le roi moustique était toujours en pleine forme et ne montrait aucun signe de fatigue. Ayant subi de nombreuses métamorphoses, sa vitesse avait atteint un degré terrifiant. Même Du Qing ne parvenait pas à tenir son rythme.
 
 En volant, la créature pouvait absorber l'aura du Continent Astral Immortel et cultiver telle une véritable cultivatrice. Par conséquent, elle volait de plus en plus vite, dépassant désormais de plusieurs fois la vitesse de Wang Lin lorsqu'il volait seul.
 
@@ -64,41 +64,41 @@ En entendant cela, Du Qing comprit l'intention de Wang Lin. Après une courte r�
 
 « Cependant, il existe une autre théorie. Les veines de feu n'auraient pas été placées par l'Ancêtre Céleste, mais seraient les propres veines du Taureau Céleste... La principale veine de terre-feu que vous cherchez devrait être la plus grande de toutes, celle qui traverse tout le continent! »
 
-« Le Grand Secte des Âmes a un lien avec cette veine! » En prononçant ces derniers mots, la voix de Du Qing se fit soudainement basse. Il agita sa main droite et des restrictions apparurent pour sceller la zone.
+« La Secte de la Grande Âme a un lien avec cette veine! » En prononçant ces derniers mots, la voix de Du Qing se fit soudainement basse. Il agita sa main droite et des restrictions apparurent pour sceller la zone.
 
-Du Qing murmura: « Le Grand Secte des Âmes fait partie des neuf sectes et treize factions. Ils possèdent d'innombrables experts et de nombreux sorts mystérieux. Lorsqu'on évoque cette secte, il faut rester prudent. »
+Du Qing murmura: « La Secte de la Grande Âme fait partie des neuf sectes et treize factions. Ils possèdent d'innombrables experts et de nombreux sorts mystérieux. Lorsqu'on évoque cette secte, il faut rester prudent. »
 
-« Le feu est l'une de mes essences et j'ai une forte affinité avec la terre-feu. Chaque fois que je me rends au Grand Secte des Âmes, le feu en mon corps est réprimé. C'est comme si une volonté puissante forçait tout feu à plier. »
+« Le feu est l'une de mes essences et j'ai une forte affinité avec la terre-feu. Chaque fois que je me rends à la Secte de la Grande Âme, le feu en mon corps est réprimé. C'est comme si une volonté puissante forçait tout feu à plier. »
 
-« Selon mon analyse, c'est là que se situe la principale veine de terre-feu du continent. Il est même probable qu'un individu possédant une essence de feu extrêmement puissante réside au sein du Grand Secte des Âmes. »
+« Selon mon analyse, c'est là que se situe la principale veine de terre-feu du continent. Il est même probable qu'un individu possédant une essence de feu extrêmement puissante réside au sein de la Secte de la Grande Âme. »
 
-« Je connais également l'Ancien du Grand Secte des Âmes, le Très Respecté Taureau Vert; son niveau de culture est très élevé. Il est votre égal et possède lui aussi un corps véritable d'essence! » Lorsque Du Qing parla du Très Respecté Taureau Vert, ses yeux trahirent une profonde crainte.
+« Je connais également l'Ancien de la Secte de la Grande Âme, le Très Respecté Taureau Vert; son niveau de culture est très élevé. Il est votre égal et possède lui aussi un corps véritable d'essence! » Lorsque Du Qing parla du Très Respecté Taureau Vert, ses yeux trahirent une profonde crainte.
 
 Les yeux de Wang Lin se rétrécirent; il se souvenait de ce nom.
 
-« Avec mon niveau actuel, je ne suis qualifié que pour être un Ancien extérieur au Grand Secte des Âmes. J'ai un prédécesseur qui est Ancien intérieur. C'est grâce à cette relation et à mon rang d'Ancien extérieur que le Grand Secte des Âmes m'accorde sa protection. »
+« Avec mon niveau actuel, je ne suis qualifié que pour être un Ancien extérieur à la Secte de la Grande Âme. J'ai un prédécesseur qui est Ancien intérieur. C'est grâce à cette relation et à mon rang d'Ancien extérieur que la Secte de la Grande Âme m'accorde sa protection. »
 
 « Le camarade cultivateur Wang possédant un trésor offert par un Grand Empyréen, vous devez être traité comme un hôte d'honneur. Mais si jamais vous veniez à affecter la principale veine de terre-feu, alors... » Du Qing laissa sa menace en suspens.
 
-L'expression de Wang Lin resta imperturbable. Il ne connaissait que deux personnes au Grand Secte des Âmes.
+L'expression de Wang Lin resta imperturbable. Il ne connaissait que deux personnes à la Secte de la Grande Âme.
 
-« Avez-vous entendu parler de deux disciples du Grand Secte des Âmes nommées 'Fan Shanmeng' et 'Fan Shanlu'? » demanda Wang Lin en fixant Du Qing.
+« Avez-vous entendu parler de deux disciples de la Secte de la Grande Âme nommées 'Fan Shanmeng' et 'Fan Shanlu'? » demanda Wang Lin en fixant Du Qing.
 
 « Fan Shanmeng!! » L'expression de Du Qing changea radicalement.
 
-« J'ai entendu ce nom. C'est une disciple centrale du Grand Secte des Âmes et l'un des deux génies de la secte! Le camarade la connaît-il? »
+« J'ai entendu ce nom. C'est une disciple centrale de la Secte de la Grande Âme et l'un des deux génies de la secte! Le camarade la connaît-il? »
 
 « Son nom m'est familier. » Wang Lin réfléchit un instant, puis changea de sujet.
 
-« Qu'en est-il de la Secte Gui Yi? Cette secte se trouve également sur le Continent du Taureau Céleste. Comment se compare-t-elle au Grand Secte des Âmes? » Le niveau de culture de Kang Ren n'étant pas élevé, il ne pouvait rivaliser avec Du Qing en termes de connaissances. Wang Lin ne disposait que de peu d'informations extraites de lui.
+« Qu'en est-il de la Secte Gui Yi? Cette secte se trouve également sur le Continent du Taureau Céleste. Comment se compare-t-elle à la Secte de la Grande Âme? » Le niveau de culture de Kang Ren n'étant pas élevé, il ne pouvait rivaliser avec Du Qing en termes de connaissances. Wang Lin ne disposait que de peu d'informations extraites de lui.
 
-« La Secte Gui Yi est très puissant et semble actuellement surpasser légèrement le Grand Secte des Âmes. Le classement des neuf sectes et treize factions pourrait changer. Ces dernières années, un disciple nommé Yun Yifeng a émergé au sein de la Secte Gui Yi. Sa culture est impressionnante et son talent immense. Hormis la génération plus ancienne, c'est l'expert numéro un! »
+« La Secte Gui Yi est très puissante et semble actuellement surpasser légèrement la Secte de la Grande Âme. Le classement des neuf sectes et treize factions pourrait changer. Ces dernières années, un disciple nommé Yun Yifeng a émergé au sein de la Secte Gui Yi. Sa culture est impressionnante et son talent immense. Hormis la génération plus ancienne, c'est l'expert numéro un! »
 
-« J'ai eu des contacts avec cet homme. Il est extraordinaire! » Du Qing se remémora comment Yun Yifeng, d'un simple revers de sabre, avait contraint plusieurs membres du Grand Secte des Âmes à battre en retraite.
+« J'ai eu des contacts avec cet homme. Il est extraordinaire! » Du Qing se remémora comment Yun Yifeng, d'un simple revers de sabre, avait contraint plusieurs membres de la Secte de la Grande Âme à battre en retraite.
 
 « En parlant de Yun Yifeng, je viens de penser à une chose. Il a affirmé qu'il existait quelqu'un qui, après seulement un peu plus de deux mille ans de culture, possédait une puissance insondable. Même lui n'osait dégainer son arme devant cette personne! Même les quatre génies du Continent de l'Est ne seraient pas dignes d'être appelés "génies" face à cet individu! »
 
-« À l'époque, cela avait provoqué une immense onde de choc. Les doutes étaient nombreux, mais le Grand Secte des Âmes est resté silencieux et même la Secte Gui Yi n'a fourni aucune explication. »
+« À l'époque, cela avait provoqué une immense onde de choc. Les doutes étaient nombreux, mais la Secte de la Grande Âme est resté silencieux et même la Secte Gui Yi n'a fourni aucune explication. »
 
 « Aujourd'hui, après tant d'années, il y a 80 % de chances que ces paroles soient mensongères. Ce vieil homme ne croit pas qu'une telle personne existe... » Tandis que Du Qing parlait, il ne remarqua pas l'étincelle qui traversa les yeux de Wang Lin.
 

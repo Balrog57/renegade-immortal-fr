@@ -12,13 +12,13 @@ Quiconque aurait été témoin de cette scène en serait resté pantois et total
 
 Le problème résidait dans le fait que ces volcans paraissaient trop réels. D'un simple coup d'œil, on pouvait deviner leur nature illusoire, mais en y regardant à nouveau, on aurait eu l'impression de se tenir juste à leurs côtés. Leur réalisme était tel qu'il pouvait ébranler l'esprit.
 
-Cette frontière ténue entre le vrai et le faux suffisait à faire vaciller tout cultivateur inférieur au stade de la Rupture du Nirvana. Même les cultivateurs de la Rupture du Nirvana y auraient été sensibles. Après tout, il s'agissait du premier des trois derniers sorts de l'Empereur Céleste Bai Fan.
+Cette frontière ténue entre le vrai et le faux suffisait à faire vaciller tout cultivateur inférieur au stade du Briseur du Nirvana. Même les cultivateurs du Briseur du Nirvana y auraient été sensibles. Après tout, il s'agissait du premier des trois derniers sorts de l'Empereur Céleste Bai Fan.
 
 Montagnes S'Écroulent!
 
 La colère qui bouillonnait dans le cœur de Wang Lin se manifesta sous la forme de ces volcans alors qu'il traquait la bête-moustique. Ces créatures dégageaient une odeur unique que seul leur propre clan pouvait détecter. À cet instant, la bête-moustique affichait une expression féroce; l'effluve de ses congénères était si puissante qu'il n'était même pas nécessaire de chercher pour la trouver.
 
-Ainsi, l'homme et la bête progressèrent rapidement à travers le système stellaire. Après quinze minutes, Wang Lin fronça les sourcils. La bête-moustique, blessée, était lente; s'ils continuaient à ce rythme, qui savait combien de temps il leur faudrait pour retrouver ceux qui avaient dérobé les spécimens?
+Ainsi, l'homme et la bête progressèrent rapidement à travers le système stellaire. Après quinze minutes, Wang Lin fronça les sourcils. La bête-moustique, blessée, était lente; s'ils continuaient à ce rythme, qui savait combien de temps il leur faudrait pour retrouver ceux qui avaient dérobé les bêtes-moustiques?
 
 De plus, Wang Lin sentait progressivement la rétribution divine approcher. Le sceau qu'il avait posé grâce aux Neuf Transformations Mystérieuses commençait à se relâcher.
 
@@ -30,11 +30,11 @@ Tout en réfléchissant, Wang Lin agita la main droite et une fissure d'environ 
 
 La main droite de Wang Lin plongea dans la fissure pour en extraire un talisman jaune. D'une simple pensée, la faille disparut instantanément.
 
-Il projeta le talisman jaune sur la bête-moustique. L'animal trembla, puis un tourbillon l'enveloppa avant qu'il ne s'élance dans l'espace supérieur. Ce tourbillon teintait la terre de jaune et, en tournant, il produisait un hurlement de vent violent. Simultanément, un oiseau géant apparut au-dessus du vortex et déploya ses ailes. La bête-moustique poussa soudain un cri assourdissant et fonça en avant tel un éclair, décuplant sa vitesse.
+Il projeta le talisman jaune sur la bête-moustique. L'animal trembla, puis un tourbillon l'enveloppa avant qu'il ne s'élance dans l'espace supérieur. Ce tourbillon teintait la terre de jaune et, en tournant, il produisait un hurlement de vent violent. Simultanément, un oiseau géant apparut au-dessus du vortex et déploya ses ailes. La bête-moustique poussa soudain un cri assourdissant et fonça en avant tel un éclair, multipliant plusieurs fois sa vitesse.
 
 La bête atteignit alors une limite de célérité telle que Wang Lin se retrouva chevauchant la créature; elle allait si vite que les étoiles au loin ne lui apparaissaient plus que comme de longues traînées lumineuses.
 
-C'était là la vitesse d'un cultivateur de la Rupture du Nirvana!
+C'était là la vitesse d'un cultivateur du Briseur du Nirvana!
 
 La bête-moustique n'avait jamais connu une telle vélocité. Désormais investie de ce pouvoir, elle poussait des cris stridents, bien que cette allure ne lui causât aucun inconfort dans sa course à travers les étoiles.
 
@@ -48,7 +48,7 @@ Grâce à sa vitesse, la bête ne mit pas longtemps à suivre l'odeur de ses sem
 
 En voyant cette étendue de ruines, la bête-moustique poussa un cri strident, ses yeux brillant d'une colère infinie. Elle chargea à travers le champ de débris dans une série de fracas successifs, pulvérisant tout ce qui se dressait sur son passage. La bête fonçait tête baissée dans les profondeurs du chaos, comme possédée par la folie.
 
-À l'intérieur d'un écran de lumière verte, niché au cœur des décombres, une formation érigée par près de cent cultivateurs touchait à sa fin. Les deux anciens vêtus de pourpre étaient exaltés. Une fois la formation achevée, ils pourraient ramener ces bêtes-moustiques géantes dans le système stellaire de la Mer Nuageuse. Leur Secte de la Porte Céleste pourrait alors les échanger contre des bénéfices inestimables.
+À l'intérieur d'un écran de lumière verte, niché au cœur des décombres, une formation érigée par près de cent cultivateurs touchait à sa fin. Les deux anciens vêtus de pourpre étaient exaltés. Une fois la formation achevée, ils pourraient ramener ces bêtes-moustiques géantes dans le système stellaire de la Mer des Nuages. Leur Secte de la Porte Céleste pourrait alors les échanger contre des bénéfices inestimables.
 
 Leur humeur était excellente tandis qu'ils discutaient; tous leurs soucis s'étaient dissipés à l'approche de l'achèvement. Cependant, soudainement, les bêtes-moustiques géantes qui étaient pourtant apaisées par l'encens commencèrent à hurler. Ce n'était pas une seule créature qui criait, mais toutes; leurs yeux devinrent rouges et elles se mirent à se débattre violemment.
 
@@ -70,7 +70,7 @@ Wang Lin, resté en retrait, observait l'écran vert avec un calme imperturbable
 
 « Tu te surestimes! » Un ricanement s'éleva de l'intérieur de la protection. Les deux anciens en pourpre étaient arrivés. Ils dédaignaient Wang Lin depuis leur abri.
 
-Leur tension s'était évaporée en percevant le niveau de culture du jeune homme. Ces deux anciens n'étaient ni des cultivateurs de la Rupture du Nirvana, ni même au sommet du Purificateur du Nirvana; ils n'étaient qu'au stade avancé du Purificateur du Nirvana. Après tout, ils n'étaient pas de véritables émissaires de la Mer Nuageuse, mais étaient arrivés là par une méthode secrète.
+Leur tension s'était évaporée en percevant le niveau de culture du jeune homme. Ces deux anciens n'étaient ni des cultivateurs du Briseur du Nirvana, ni même au sommet du Purificateur du Nirvana; ils n'étaient qu'au stade avancé du Purificateur du Nirvana. Après tout, ils n'étaient pas de véritables émissaires de la Mer des Nuages, mais étaient arrivés là par une méthode secrète.
 
 Wang Lin agita la main droite et la mer de flammes se retira. Son regard sombre perça l'écran pour se poser sur les deux anciens. D'une voix lugubre, il déclara lentement: « Livrez les bêtes-moustiques et ces trois jeunes téméraires, et je pourrai épargner le reste d'entre vous! »
 
@@ -87,4 +87,4 @@ Des nuages de rétribution divine commencèrent à s'amonceler au-dessus du cham
 « Ceci... C'est... »
 « La rétribution divine!!! »
 
-Les yeux des deux anciens en pourpre s'écarquillèrent, envahis par l'incrédulité et la terreur. Bien qu'ils fussent des cultivateurs du Purificateur du Nirvana, ils ne connaissaient que peu de choses sur la rétribution divine; s'ils purent la reconnaître, c'est uniquement parce qu'ils en avaient été témoins dans le système stellaire de la Mer Nuageuse avant d'arriver ici.
+Les yeux des deux anciens en pourpre s'écarquillèrent, envahis par l'incrédulité et la terreur. Bien qu'ils fussent des cultivateurs du Purificateur du Nirvana, ils ne connaissaient que peu de choses sur la rétribution divine; s'ils purent la reconnaître, c'est uniquement parce qu'ils en avaient été témoins dans le système stellaire de la Mer des Nuages avant d'arriver ici.

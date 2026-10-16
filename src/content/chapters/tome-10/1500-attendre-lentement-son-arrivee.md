@@ -78,7 +78,7 @@ La vieille femme fut stupéfaite en entendant la voix de Wang Lin. Elle se retou
 
 « Xu Mu... » La vieille femme regarda Wang Lin et, après un long moment, elle sourit.
 
-« Quand es-tu revenu...? » La vieille femme ne perdit pas la raison comme le Maître Étincelle ou ses semblables; elle retrouva vite ses esprits. Bien que sa longévité fût bien inférieure à celle du Maître Étincelle et son niveau de culture bien plus bas, avec seulement sept jours à vivre, elle avait déjà tout compris. Désormais, elle ne ressentait que la joie de retrouver un vieil ami.
+« Quand es-tu revenu...? » La vieille femme ne perdit pas la raison comme le Maître Yan Leizi ou ses semblables; elle retrouva vite ses esprits. Bien que sa longévité fût bien inférieure à celle du Maître Yan Leizi et son niveau de culture bien plus bas, avec seulement sept jours à vivre, elle avait déjà tout compris. Désormais, elle ne ressentait que la joie de retrouver un vieil ami.
 
 « Je viens juste de revenir. Je passais par là et je voulais voir s'il restait encore des vieux amis. » Wang Lin s'assit en face de la vieille femme. Il la regarda comme on regarde un compagnon de longue date.
 

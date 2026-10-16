@@ -28,11 +28,11 @@ Les pupilles de Wang Lin se rétractèrent tandis que des centaines d'idées tra
 
 Le vieux cultivateur regarda Wang Lin avec un sourire qui n'en était pas un et demanda: « Qui est ton maître de secte? »
 
-L'expression de Wang Lin resta neutre alors qu'il répondait: « Si l'Aîné ne l'admet pas, considérez que le Junior s'est mépris. »
+L'expression de Wang Lin resta neutre alors qu'il répondait: « Si Senior ne l'admet pas, considérez que le Junior s'est mépris. »
 
 Le vieux cultivateur rit et dit: « Tu es un petit gars intéressant. Pourquoi penses-tu que je suis le maître de la Secte Heng Yue? »
 
-Wang Lin répondit calmement: « Junior s'est rendu dans les Terres des Esprits Démoniaques et y a vu une peinture contenant l'image de l'Aîné. »
+Wang Lin répondit calmement: « Junior s'est rendu dans les Terres des Esprits Démoniaques et y a vu une peinture contenant l'image de Senior. »
 
 Le vieux cultivateur réfléchit un instant avant de sourire. « Petit gars, on ne peut pas appeler n'importe qui "maître de secte". Le digne Céleste du Tonnerre du Système Stellaire Luotian, Xu Mu... Quand ai-je eu un tel disciple? »
 
@@ -70,7 +70,7 @@ Un instant plus tard, la silhouette du vieux cultivateur disparut. Wang Lin s'é
 
 Wang Lin ne ressentit qu'une vague de chaleur contenant une trace d'origine primordiale. Bien que stupéfait par les flammes qui l'entouraient, il redoubla de prudence.
 
-Sa vision se brouilla. Lorsqu'elle se clarifia, il découvrit qu'il se trouvait dans une chambre secrète d'environ 300 mètres de large!
+Sa vision se brouilla. Lorsqu'elle se clarifia, il découvrit qu'il se trouvait dans une chambre secrète d'environ 1 000 pieds de large!
 
 L'obscurité régnait partout, si ce n'est autour d'une flamme vacillante au centre, conférant au lieu une atmosphère sinistre. On aurait dit que des spectres se cachaient dans les ténèbres entourant la lueur, cherchant à la dévorer, pour être systématiquement repoussés par le feu.
 
@@ -88,7 +88,7 @@ Les poissons du Yin et du Yang apparurent dans son esprit. En tournoyant, ils ba
 
 À ce moment-là, la silhouette de l'ancien cultivateur apparut aux côtés de Wang Lin. Il l'observa avec admiration et murmura: « Pas mal. Ce petit gars était sur le point d'acquérir une compréhension de ce niveau d'origine primordiale. Après observation, je pourrai le laisser entrer dans la Série de l'Oiseau Vermillon! »
 
-À cet instant, Wang Lin était immergé dans un ciel étoilé. Il voyait d'innombrables êtres célestes maniant divers trésors magiques. Devant eux s'étendaient des talismans jaunes de dizaines, de centaines, de milliers, voire de dizaines de milliers de mètres de long!
+À cet instant, Wang Lin était immergé dans un ciel étoilé. Il voyait d'innombrables êtres célestes maniant divers trésors magiques. Devant eux s'étendaient des talismans jaunes de dizaines, de centaines, de milliers, voire de dizaines de milliers de pieds de long!
 
 Sur chaque talisman se tenaient d'étranges individus. Bien que leurs vêtements ne diffèrent guère de ceux des cultivateurs, ils arboraient des tatouages représentant les plantes du Clan des Immortels Délaissés. La distinction résidait dans le nombre de feuilles sur ces tatouages.
 

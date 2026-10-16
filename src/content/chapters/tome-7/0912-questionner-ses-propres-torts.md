@@ -10,7 +10,7 @@ Le corps imposant de Lei Ji dégageait une pression colossale alors qu'il traver
 
 Le meneur était l'un des Célestes Terrestres. Lorsqu'il aperçut la silhouette gigantesque de Lei Ji, il se montra immédiatement vigilant. Même les cultivateurs derrière lui se préparèrent à affronter un adversaire redoutable, et des éclairs de sorts jaillirent.
 
-À cet instant précis, les yeux du chef se rétrécirent en découvrant Wang Lin et le garçon à la grosse tête sur le dos de Lei Ji. Il eut un haut-le-cœur, recula brusquement de quelques pas et dit respectueusement: « Salutations, Céleste du Tonnerre. »
+À cet instant précis, les yeux du chef se rétrécirent en découvrant Wang Lin et le garçon à la grosse tête sur le dos de Lei Ji. Il sursauta, recula brusquement de quelques pas et dit respectueusement: « Salutations, Céleste du Tonnerre. »
 
 Le nom de « Xu Mu » était illustre à Luotian, et il avait personnellement été témoin des exploits héroïques de Wang Lin. Il l'admirait profondément, et son admiration était d'une sincérité absolue.
 
@@ -32,9 +32,9 @@ Un jour plus tard, Lei Ji s'arrêta devant une planète abandonnée. L'énergie 
 
 Wang Lin observa attentivement la planète délaissée. Cet endroit était en effet très reculé. Bien qu'occupé par Luotian, il n'empêcherait pas Wang Lin d'y pratiquer sa culture en vase clos.
 
-Après réflexion, Wang Lin descendit du dos de Lei Ji et se dirigea vers la planète. Le garçon à la grosse tête et Ta Shan le suivirent immédiatement. Quant à Lei Ji, son corps rétrécit pour reprendre la forme d'un homme de neuf mètres de haut et les suivit.
+Après réflexion, Wang Lin descendit du dos de Lei Ji et se dirigea vers la planète. Le garçon à la grosse tête et Ta Shan le suivirent immédiatement. Quant à Lei Ji, son corps rétrécit pour reprendre la forme d'un homme de trente pieds de haut et les suivit.
 
-En approchant de la planète, il entendit des rugissements s'en échapper. Bien qu'abandonnée, elle abritait encore une multitude de bêtes féroces. Ces créatures dépourvues d'intelligence ne survivaient que par instinct. On y trouvait des serpents de plusieurs dizaines de mètres de long ou des tigres ailés; des espèces très communes ici.
+En approchant de la planète, il entendit des rugissements s'en échapper. Bien qu'abandonnée, elle abritait encore une multitude de bêtes féroces. Ces créatures dépourvues d'intelligence ne survivaient que par instinct. On y trouvait des serpents de plusieurs dizaines de pieds de long ou des tigres ailés; des espèces très communes ici.
 
 Dès que Wang Lin posa le pied sur la planète, les quelques cultivateurs en poste furent tirés de leur culture. Ils hésitèrent un instant avant de fondre sur lui sur des éclairs d'énergie d'épée.
 
@@ -42,7 +42,7 @@ L'endroit choisi par Wang Lin était un sommet montagneux. Cette montagne était
 
 Alors qu'il se tenait sur cette montagne étrange, Ta Shan frappa immédiatement la roche pour creuser une grotte, sans même attendre l'ordre de Wang Lin.
 
-À cet instant, plusieurs traînées de lumière traversèrent le ciel et les cultivateurs stationnés sur place approchèrent. Les cinq ou six hommes s'arrêtèrent à trois cents pieds de distance et dirent respectueusement: « Salutations, Céleste du Tonnerre. »
+À cet instant, plusieurs traînées de lumière traversèrent le ciel et les cultivateurs stationnés sur place approchèrent. Les cinq ou six hommes s'arrêtèrent à mille pieds de distance et dirent respectueusement: « Salutations, Céleste du Tonnerre. »
 
 Wang Lin hocha légèrement la tête et dit d'une voix lente: « Je dois pratiquer un sortilège céleste ici. Ne me dérangez pas. »
 

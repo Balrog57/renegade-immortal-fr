@@ -8,7 +8,7 @@ slug: deuxieme-annee-encore-six-mois
 ---
 Wang Lin regarda le Maître Dao Bleu Rêve. Il prit ensuite la cruche de vin que Papillon Rouge lui avait tendue et en but une gorgée avant de fermer les yeux.
 
-Le Maître Dao Bleu Rêve n'était pas pressé. Il restait assis là, observant l'Royaume Extérieur, attendant la réponse de Wang Lin. Li Qianmei resta silencieuse pendant un long moment avant de s'asseoir lentement. Sa position était très claire: elle se tenait plus près de Wang Lin, comme si elle se méfiait de son propre père.
+Le Maître Dao Bleu Rêve n'était pas pressé. Il restait assis là, observant le Royaume Extérieur, attendant la réponse de Wang Lin. Li Qianmei resta silencieuse pendant un long moment avant de s'asseoir lentement. Sa position était très claire: elle se tenait plus près de Wang Lin, comme si elle se méfiait de son propre père.
 
 Comment le Maître Dao Bleu Rêve aurait-il pu ne pas remarquer l'attitude de sa fille? Ses yeux s'assombrirent imperceptiblement, mais Li Qianmei ne s'en aperçut pas.
 
@@ -84,7 +84,7 @@ Li Qianmei baissa la tête pour que Wang Lin ne voie pas son expression déçue.
 
 Le Maître Dao Bleu Rêve sourit en regardant sa fille et dit doucement: « Tu peux toujours avoir une seconde épouse. »
 
-« Prends le temps de réfléchir, je ne suis pas pressé. Ce vieil homme a amené sa fille ici et n'a aucune intention de partir. Tu n'as pas la force de faire face à Seven-Color ou au Vieux Fantôme Zhan, n'est-ce pas... » Le regard du Maître Dao Bleu Rêve se posa sur Wang Lin.
+« Prends le temps de réfléchir, je ne suis pas pressé. Ce vieil homme a amené sa fille ici et n'a aucune intention de partir. Tu n'as pas la force de faire face au Daoïste aux Sept Couleurs ou au Vieux Fantôme Zhan, n'est-ce pas... » Le regard du Maître Dao Bleu Rêve se posa sur Wang Lin.
 
 « Si je l'avais voulu, j'aurais pu entrer dans la Tribulation Arcane il y a des années. Si je pouvais survivre neuf fois, je pourrais atteindre le stade de la Tribulation du Vide... C'est juste que je n'en suis pas certain... Mais même si le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan sont de puissants cultivateurs, et même s'il existe cette troisième existence, avec mon aide, nous pourrions encore gagner! » Le Maître Dao Bleu Rêve parlait lentement. Li Qianmei et Mu Bingmei ne comprenaient pas, mais les yeux de Wang Lin se plissèrent.
 

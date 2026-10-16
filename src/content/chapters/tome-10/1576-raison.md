@@ -34,7 +34,7 @@ Cette flèche avait déchiré le vide et brisé l'ancien sort. Elle avait traver
 
 Après un long moment, Wang Lin cracha une gorgée de sang. Son corps tremblait encore; il recula de quelques pas avant de s'asseoir pour cultiver. Il pratiqua durant une période indéterminée, puis finit par expirer un souffle vicié. Il ouvrit les yeux et contempla la flèche dans le ciel avec une expression complexe.
 
-« L'œil gauche de Ye Mo n'est pas ici, il n'y a que cette flèche... » Wang Lin observa l'artillerie. Il devait admettre que son hypothèse n'était qu'à moitié correcte.
+« L'œil gauche de Ye Mo n'est pas ici, il n'y a que cette flèche... » Wang Lin observa la flèche. Il devait admettre que son hypothèse n'était qu'à moitié correcte.
 
 Outre l'œil gauche de Ye Mo, qui possédait l'aura ancienne, et l'arc, qui portait l'énergie céleste, il restait une autre chose capable de contenir cette force de rejet.
 
@@ -46,7 +46,7 @@ Il remarqua que la pointe de la flèche n'était pas acérée comme une épine, 
 
 « Les trésors précieux doivent être cachés là où nul ne peut les trouver... Un trésor que l'on ne peut utiliser doit être particulièrement bien dissimulé... Car s'il est découvert, il pourrait causer la perte de tout votre clan... »
 
-« Le Clan du Tatou l'a très bien caché... » Wang Lin regarda la flèche dans le ciel. Il comprenait désormais beaucoup de choses.
+« Le Clan du Tatouage l'a très bien caché... » Wang Lin regarda la flèche dans le ciel. Il comprenait désormais beaucoup de choses.
 
 Diverses scènes défilèrent dans son esprit. Celles-ci se lièrent à ses propres souvenirs pour reconstituer la vérité.
 
@@ -86,27 +86,27 @@ La tempête bouleversa le monde et détruisit tout. C'est pourquoi ce monde éta
 
 Ce monde était dissimulé au sein de l'espace. C'était l'énergie céleste émanant de la flèche qui le rendait indétectable. Ce n'est qu'après l'apparition de la Formation de Scellement du Royaume et les innombrables batailles entre les Royaumes Intérieur et Extérieur qu'un jour, un expert du Royaume Extérieur parvint à calculer sa position approximative.
 
-C’est ainsi que le Clan du Tatou y pénétra...
+C’est ainsi que le Clan du Tatouage y pénétra...
 
 Peut-être que l'objectif de la fille du Souverain était de comploter contre Qing Lin, ou peut-être son véritable but était-il de trouver cette flèche...
 
-Après d'innombrables péripéties, le Clan du Tatou finit par trouver ce monde abritant la flèche. Cependant, ils découvrirent qu'ils ne pouvaient dissiper la force de rejet et qu'ils étaient incapables de la contrôler.
+Après d'innombrables péripéties, le Clan du Tatouage finit par trouver ce monde abritant la flèche. Cependant, ils découvrirent qu'ils ne pouvaient dissiper la force de rejet et qu'ils étaient incapables de la contrôler.
 
 Ils scellèrent donc l'endroit. Peut-être le Clan de l'Extermination des Sceaux les avait-il aidés. Finalement, ils laissèrent cette porte ici. Elle fut placée en un lieu ingénieux, utilisant le cercle pour former le premier sceau de la porte!
 
 Ils attendaient... Ils attendaient que le Souverain vienne personnellement chercher cette flèche...
 
-Cependant, entre-temps, un immense bouleversement survint. La fille du Souverain fut scellée par Qing Lin dans la Terre des Esprits Démoniaques. Le Clan du Tatou fut massacré par les quatre Royaumes Célestes et laissé en ruines.
+Cependant, entre-temps, un immense bouleversement survint. La fille du Souverain fut scellée par Qing Lin dans la Terre des Esprits Démoniaques. Le Clan du Tatouage fut massacré par les quatre Royaumes Célestes et laissé en ruines.
 
 Une partie des membres du clan fut prise comme esclave par les êtres célestes et devint le Clan Immortel Élu...
 
 Un groupe d'entre eux partit pour la planète Suzaku où ils survécurent. Cette porte était entre leurs mains et fut enterrée ici. La vérité s'était peu à peu estompée, remplacée par une légende racontant que la 19e couche scellait une partie de l'âme de leur ancêtre.
 
-Peut-être le Souverain était-il déjà venu ici. Il était prêt à pénétrer dans le Royaume Scellé quel qu'en soit le prix. Peut-être qu'au-delà de vouloir tuer le Seigneur du Royaume Scellé, il était aussi venu pour la flèche que le Clan du Tatou avait découverte...
+Peut-être le Souverain était-il déjà venu ici. Il était prêt à pénétrer dans le Royaume Scellé quel qu'en soit le prix. Peut-être qu'au-delà de vouloir tuer le Seigneur du Royaume Scellé, il était aussi venu pour la flèche que le Clan du Tatouage avait découverte...
 
 Pourtant, le rugissement provenant du Royaume Intérieur brisa les plans du Souverain. Terrifié, il fut contraint de quitter le Royaume Intérieur, gravement blessé.
 
-Cette flèche resta là pour l'éternité, scellée par le Clan du Tatou durant des âges sans nombre. Finalement, même Yun Quezi ignorait la vérité, jusqu'à l'arrivée de Wang Lin.
+Cette flèche resta là pour l'éternité, scellée par le Clan du Tatouage durant des âges sans nombre. Finalement, même Yun Quezi ignorait la vérité, jusqu'à l'arrivée de Wang Lin.
 
 Wang Lin soupira. Il ne savait pas si ses déductions étaient exactes. Tout cela n'était que le résultat de liens tissés entre ses connaissances. Peut-être était-ce là la vérité...
 

@@ -82,7 +82,7 @@ Wang Lin avait déjà vu la Peinture de Montagnes et de Rivières. Cupidité pos
 
 Il percevait même des Flammes Joss à l'intérieur. Il semblait que des disciples des Flammes Joss y résidaient! La Peinture de Montagnes et de Rivières constituait son propre royaume, dont l'origine demeurait inconnue pour beaucoup.
 
-Soudain, la peinture s'ouvrit et se propagea rapidement. Une force d'aspiration surgit, tentant d'aspirer Wang Lin. Il eut l'impression d'être dévoré par une Bête du Néant; l'espace lui-même semblait être absorbé par le tableau!
+Soudain, la peinture s'ouvrit et se propagea rapidement. Une force d'aspiration surgit, tentant d'aspirer Wang Lin. Il eut l'impression d'être dévoré par une Bête des Limbes; l'espace lui-même semblait être absorbé par le tableau!
 
 Une sensation de passage du temps s'installa, comme si des millénaires s'écoulaient durant cette aspiration.
 

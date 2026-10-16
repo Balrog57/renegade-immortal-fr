@@ -8,19 +8,19 @@ slug: lintrus
 ---
 Cette épée brisée était d'un rouge éclatant et, dès son apparition, une monstrueuse énergie de massacre se manifesta. Cette énergie était si puissante qu'elle déferla instantanément hors de la planète, repoussant même les flammes qui l'entouraient.
 
-Cette épée brisée était la source de l'énergie de massacre du Vraie-Vision en robe grise. Après la bataille dans le Domaine de l'Esprit Démon, la moitié brisée était restée dans le corps de Wang Lin. Durant ces trois années, tout en se soignant et en cultivant, il avait également affiné lentement son épée. La partie qui résidait dans son âme originelle s'était déjà dissipée, ne laissant que cette épée brisée dans son corps.
+Cette épée brisée était la source de l'énergie de massacre de l'Omniscient en robe grise. Après la bataille dans le Domaine de l'Esprit Démon, la moitié brisée était restée dans le corps de Wang Lin. Durant ces trois années, tout en se soignant et en cultivant, il avait également affiné lentement son épée. La partie qui résidait dans son âme originelle s'était déjà dissipée, ne laissant que cette épée brisée dans son corps.
 
 « Après trois ans d'affinage, j'ai acquis une certaine compréhension de base. Une fois cet affinage achevé, je pourrai cultiver l'Art Céleste du Massacre sans aucun problème. Il n'y aura aucun risque d'explosion tant que je n'atteindrai pas un million de brins d'énergie de massacre. »
 
 Wang Lin ne pouvait toujours oublier cette énergie de massacre. Après tout, il l'avait cultivée pendant de nombreuses années et avait atteint un stade avancé. À l'époque, c'était avec l'aide de l'Ancien Démon Bei Lou qu'il avait compris les dangers de l'Art Céleste du Massacre.
 
-S'il avait continué à le cultiver, son corps se serait effondré pour devenir un véritable brin d'énergie de massacre. Il serait devenu une entité appartenant au Vraie-Vision en robe grise.
+S'il avait continué à le cultiver, son corps se serait effondré pour devenir un véritable brin d'énergie de massacre. Il serait devenu une entité appartenant à l'Omniscient en robe grise.
 
 Finalement, il avait dû renoncer à cette voie, mais il en éprouvait encore des regrets. Cependant, à cet instant, ce regret disparut alors qu'il fixait l'épée brisée et rougeoyante. L'œil droit de Wang Lin s'illumina et une mer de flammes apparut soudainement. Les flammes entourèrent l'épée brisée et commencèrent à la consumer lentement.
 
 Tandis que l'épée brûlait, la main droite de Wang Lin forma un sceau et pointa entre ses sourcils. Son ancienne âme originelle du dragon de tonnerre s'élança de son front et cracha une bouffée d'énergie originelle essentielle.
 
-La seconde âme originelle de Wang Lin, issue de la Neuf Transformation Mystérieuse, ouvrit également les yeux pour expulser une autre bouffée d'énergie originelle essentielle.
+La seconde âme originelle de Wang Lin, issue des Neuf Transformations Mystérieuses, ouvrit également les yeux pour expulser une autre bouffée d'énergie originelle essentielle.
 
 Ainsi, l'essence originelle du feu et du tonnerre fusionna. Dès qu'elle approcha des flammes entourant l'épée, celles-ci devinrent encore plus intenses, comme si on y avait jeté de l'huile brûlante.
 
@@ -42,15 +42,15 @@ Wang Lin fixa l'épée un instant et son œil droit étincela. La seconde âme o
 
 À cet instant, Wang Lin forma un sceau complexe et expulsa un artefact: le Sceau Céleste des 18 Enfers!
 
-« Arsenal Magique, Maître du Vide, Vraie-Vision, apparaissez! » Après avoir lancé l'invocation, il agita la main droite et des éclats de lumière entourèrent le Sceau Céleste des 18 Enfers. Ces éclats se rassemblèrent rapidement pour former les silhouettes de deux âmes!
+« Arsenal Magique, Maître du Vide, Omniscient, apparaissez! » Après avoir lancé l'invocation, il agita la main droite et des éclats de lumière entourèrent le Sceau Céleste des 18 Enfers. Ces éclats se rassemblèrent rapidement pour former les silhouettes de deux âmes!
 
-C'étaient Maître du Vide et le Vraie-Vision, formés par la fusion de leurs deux avatars!
+C'étaient Maître du Vide et l'Omniscient, formés par la fusion de leurs deux avatars!
 
 Dès l'apparition de ces deux âmes captives, elles se précipitèrent sur l'épée brisée. Elles encerclèrent l'arme avec la seconde âme originelle de Wang Lin pour accélérer son affinage! Simultanément, Wang Lin leva sa main gauche et pressa le volcan. La terre commença à gronder, la fumée noire s'intensifia et une vague de chaleur jaillit soudainement des entrailles du volcan.
 
 De la lave rougeja également avec cette onde thermique. Mais d'un geste de la main gauche, Wang Lin fit couler le magma comme de l'eau pour entourer l'épée brisée. Il forma une sphère de magma de cent pieds de large, faisant grimper la température intérieure à un niveau extrême.
 
-Cette fois, Wang Lin était prêt à tout pour affiner totalement cette épée de massacre du Vraie-Vision en robe grise. Il utilisait sa seconde âme originelle, Maître du Vide, le Vraie-Vision, l'énergie originelle du feu planétaire et enfin la lave pour créer une enveloppe destinée à accélérer le processus.
+Cette fois, Wang Lin était prêt à tout pour affiner totalement cette épée de massacre de l'Omniscient en robe grise. Il utilisait sa seconde âme originelle, Maître du Vide, l'Omniscient, l'énergie originelle du feu planétaire et enfin la lave pour créer une enveloppe destinée à accélérer le processus.
 
 Wang Lin se tenait sous cette sphère de cent pieds tout en contrôlant l'énergie originelle du feu qui y pénétrait. Le temps s'écoula lentement; douze heures s'étaient déjà écoulées depuis le début de l'opération.
 
@@ -58,7 +58,7 @@ Wang Lin ne pouvait maintenir cette méthode d'affinage intense très longtemps.
 
 Après douze heures, les yeux de Wang Lin brillèrent d'un éclat vif et il poussa un rugissement. D'un revers de main, il fit éclater la sphère de magma en une multitude de débris brûlants. À cet instant, l'épée brisée ne put plus résister à la chaleur extrême et fondit complètement. La seconde âme originelle de Wang Lin dévora l'acier fondu et retourna dans son corps.
 
-Les âmes du Maître du Vide et du Vraie-Vision regagnèrent également le Sceau Céleste des 18 Enfers.
+Les âmes du Maître du Vide et de l'Omniscient regagnèrent également le Sceau Céleste des 18 Enfers.
 
 Wang Lin ferma les yeux pour cultiver un instant. Une épée rouge commença lentement à se condenser devant sa seconde âme originelle. Elle dégageait une puissance de massacre terrifiante qui, à la moindre pensée, s'apprêtait à jaillir.
 
@@ -68,7 +68,7 @@ Wang Lin fixa le trident, mais soudain, son expression changea et il leva les ye
 
 « Je dois encore lui donner des explications concernant cette affaire... » soupira Wang Lin avant de ranger le trident et de disparaître.
 
-Non loin de la planète où se trouvait Wang Lin, une autre planète subsistait. C'était également l'une des planètes principales de la Secte Divin de l'Oiseau Vermillon. Cette planète était parsemée de montagnes rouge feu et possédait une grande beauté.
+Non loin de la planète où se trouvait Wang Lin, une autre planète subsistait. C'était également l'une des planètes principales de la Secte Divine de l'Oiseau Vermillon. Cette planète était parsemée de montagnes rouge feu et possédait une grande beauté.
 
 À cet instant, une femme était agenouillée sur le plus haut sommet. Elle était magnifique, mais son visage portait une expression d'amertume alors qu'elle restait immobile en prière.
 
@@ -96,7 +96,7 @@ Le corps originel de Wang Lin ouvrit les yeux, révélant lui aussi une profonde
 
 Nul ne vit que Wang Lin était assis sur des ossements. C'était un spectacle sinistre...
 
-Un vieil homme aux cheveux blancs, paraissant très âgé, buvait du vin sur les remparts d'une ville de la Secte Divin de l'Oiseau Vermillon. Un éclat de folie brillait dans ses yeux.
+Un vieil homme aux cheveux blancs, paraissant très âgé, buvait du vin sur les remparts d'une ville de la Secte Divine de l'Oiseau Vermillon. Un éclat de folie brillait dans ses yeux.
 
 « Deuxième frère, troisième frère, votre grand frère vous a fait du tort. Je suis désolé... » L'homme déversait le vin dans sa bouche, laissant le liquide s'écouler du coin de ses lèvres pour se mêler à ses larmes.
 

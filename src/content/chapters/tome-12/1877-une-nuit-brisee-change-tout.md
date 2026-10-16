@@ -46,7 +46,7 @@ Zhang Daozong était stupéfait. Il fixait la paume géante, les yeux écarquill
 
 Le vieil homme nommé Zhao était lui aussi plongé dans le choc. Sans perdre un instant, il agita sa manche et son corps fut enveloppé d'un flou protecteur. Ses mains formèrent rapidement des sceaux pour lancer des sorts de protection.
 
-Tout se produisit en un éclair. Après sa mutation, la paume s'abattit brutalement sur la Prairie du Ciel Extrême. Les mille et un cultivateurs du Continent du Démon Vert ne purent opposer la moindre résistance et furent les premiers à périr!
+Tout se produisit en un éclair. Après sa mutation, la paume s'abattit brutalement sur la Prairie du Ciel Extrême. Les plus de mille cultivateurs du Continent du Démon Vert ne purent opposer la moindre résistance et furent les premiers à périr!
 
 Leurs âmes originelles furent totalement anéanties!
 
@@ -90,11 +90,11 @@ La terre trembla sous des grondements tonitruants. Chaque écho rendait les visa
 
 Wang Lin continuait de bombarder depuis les profondeurs. Il comptait briser la projection pour surgir!
 
-« Parapluie Brûlant du Royaume! » Les mains de Wang Lin formèrent des sceaux et d'innombrables restrictions apparurent. Un parapluie de feu gigantesque surgit dans le ciel, surplombant la projection du Continent du Démon Vert!
+« Ombrelle Brûlante du Royaume! » Les mains de Wang Lin formèrent des sceaux et d'innombrables restrictions apparurent. Un parapluie de feu gigantesque surgit dans le ciel, surplombant la projection du Continent du Démon Vert!
 
 Le parapluie s'ouvrit un instant et un incendie monstrueux déferla, consumant la projection et le monde. Dès que la mer de feu apparut, les âmes originelles des deux cultivatrices poussèrent des cris de douleur, mais elles serrèrent les dents et sacrifièrent leurs trésors de vie pour unir leurs forces et résister aux flammes!
 
-Le Parapluie Brûlant du Royaume ne possédait pas de transformation comme la Lance aux Sept Couleurs ou l'Empreinte de l'Esprit de la Guerre. Il restait identique, bien que beaucoup plus puissant. Néanmoins, il demeurait légèrement inférieur à ces deux autres techniques.
+L'Ombrelle Brûlante du Royaume ne possédait pas de transformation comme la Lance aux Sept Couleurs ou l'Empreinte de l'Esprit de la Guerre. Il restait identique, bien que beaucoup plus puissant. Néanmoins, il demeurait légèrement inférieur à ces deux autres techniques.
 
 « Ce sort semble extrêmement puissant, mais en vérité, même le fou n'en avait qu'effleuré la surface. Même avec mon niveau de culture actuel, je ne peux exprimer sa véritable force... Ou plutôt, le sort n'est pas aussi puissant que je le pensais, et voici ma limite », pensa Wang Lin.
 

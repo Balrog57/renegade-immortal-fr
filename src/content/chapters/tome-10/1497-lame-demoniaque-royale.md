@@ -48,7 +48,7 @@ Bien que les auras des trois clans de l'Ordre Ancien fussent différentes et tr�
 
 Cependant, il n'aurait jamais imaginé qu'une action passée puisse causer sa perte aujourd'hui!
 
-Tout en reculant, il agita les mains et commença à incanter dans la langue de l'Ordre Ancien. Un sort multicolore, saturé d'énergie démoniaque, jaillit vers Wang Lin.
+Tout en reculant, il agita les mains et commença à incanter dans la langue de l'Ordre Ancien. Un sort aux cinq couleurs, saturé d'énergie démoniaque, jaillit vers Wang Lin.
 
 Neuf fantômes de dragons démoniaques apparurent et chargèrent Wang Lin! Derrière eux, 99 drapeaux démoniaques surgirent, libérant une puissance maléfique colossale. Un démon résidait dans chaque drapeau, et ces grands démons se précipitèrent sur Wang Lin!
 

@@ -14,7 +14,7 @@ slug: letoile-du-desastre-pour-le-prince
 
 Les deux groupes comptaient près de mille hommes. Ils sortirent rapidement de la ville, dégageant une aura meurtrière. Simultanément, trois individus émergèrent également de la cité.
 
-L'homme en tête des trois était un colosse. Il mesurait près de trois mètres et surpassait visiblement tous les autres par sa stature. Revêtu d'une armure dorée et d'une cape rouge, il dégageait une impression de puissance sans pour autant paraître colérique, avançant à grands pas.
+L'homme en tête des trois était un colosse. Il mesurait près de dix pieds et surpassait visiblement tous les autres par sa stature. Revêtu d'une armure dorée et d'une cape rouge, il dégageait une impression de puissance sans pour autant paraître colérique, avançant à grands pas.
 
 Derrière l'homme en armure dorée, sur sa gauche, se tenait un homme d'âge mûr. C'était un bel homme qui portait une chemise bleue semblable à celle d'un cultivateur et exhalait une aura céleste.
 
@@ -80,7 +80,7 @@ En contemplant ce démon ancien, le cœur de Wang Lin trembla et ses yeux se ré
 
 « Ceci... Ce n'est pas un démon ancien ordinaire! » Wang Lin comprit immédiatement le problème. Il avait vu des démons anciens dans le Monde de la Grotte, mais, tout comme les Dieux Antiques, à moins qu'ils ne révèlent leur véritable forme, ils ressemblaient à des humains ordinaires.
 
-Et même une fois leur véritable forme révélée, ils conservaient leur conscience sans sombrer dans la folie. Plus important encore, l'aura démoniaque de ce démon ancien était aussi puissante que celle de cultivateurs Exalté Empyréen.
+Et même une fois leur véritable forme révélée, ils conservaient leur conscience sans sombrer dans la folie. Plus important encore, l'aura démoniaque de ce démon ancien était aussi puissante que celle de cultivateurs Exaltés Empyréens.
 
 Dès que le démon ancien posa le pied au sol et rugit, l'homme en armure dorée, le Seigneur Démon et le jeune homme en noir s'agenouillèrent sur un genou et déclarèrent respectueusement: « Salutations, Prince! »
 

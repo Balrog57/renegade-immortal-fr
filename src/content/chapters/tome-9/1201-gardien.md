@@ -22,7 +22,7 @@ Un cri de surprise retentit dans le vide, et simultanément, un vieil homme aux 
 
 Un écho tonnerre retentit et l'esprit de Wang Lin trembla. Toutes les illusions s'effondrèrent et se dissipèrent totalement.
 
-« Tu oses utiliser de simples illusions devant ce vieil homme? Puisque tu apportes ce cadeau à ma porte, reste donc! Ce domaine pur est cent fois plus puissant que celui des Éclairés! »
+« Tu oses utiliser de simples illusions devant ce vieil homme? Puisque tu apportes ce cadeau à ma porte, reste donc! Ce domaine pur est cent fois plus puissant que celui des Éveillés! »
 
 Tandis que le vieil homme parlait, il se rapprocha encore. Sa main droite semblait capable de couvrir le ciel pour atteindre Wang Lin. Sa paume dégageait une force d'aspiration si puissante qu'elle fit tordre l'esprit de Wang Lin, tentant de l'aspirer.
 
@@ -44,19 +44,19 @@ Un instant plus tard, il ouvrit lentement les yeux, laissant transparaître une 
 
 Se relevant, Wang Lin pointa le ciel et les intentions du Dao infinies s'engouffrèrent dans la vallée. Elles affluèrent de tout le royaume aux sept couleurs pour se condenser en une sphère de lumière noire dans la main droite de Wang Lin.
 
-Peu après, toutes les intentions du Dao que Wang Lin avait rejetées s'étaient rassemblées dans cette sphère. Tous les Perdus à l'extérieur de la vallée furent de nouveau confus et se dispersèrent. Les Éclairés commencèrent à marmonner avant de s'éloigner.
+Peu après, toutes les intentions du Dao que Wang Lin avait rejetées s'étaient rassemblées dans cette sphère. Tous les Perdus à l'extérieur de la vallée furent de nouveau confus et se dispersèrent. Les Éveillés commencèrent à marmonner avant de s'éloigner.
 
 Même les bêtes féroces de rang 12 semblèrent reprendre leurs esprits et rugirent en partant. Tout ce qui se trouvait hors de la vallée revint à la normale. Le visage du Maître Pin Cendré était pâle et il se retira précipitamment.
 
 La main droite de Wang Lin s'étendit et des craquements résonnèrent dans la lumière noire avant qu'elle ne se transforme en un cristal noir. Wang Lin observa le cristal un instant. C'était un trésor formé par les intentions du Dao chaotiques issues de toutes ces pilules, et il était extrêmement puissant. Si ce cristal se brisait, les intentions du Dao qui s'en échapperaient suffiraient à anéantir le cœur du Dao d'un cultivateur au niveau Briseur du Nirvana.
 
-« Que garde-t-il... » Wang Lin commença à réfléchir. Il songea au vieil homme. Il était évident que s'il n'avait pas attaqué, c'était par crainte de quelque chose. Ce vieil homme se trouvait au stade avancé de Briseur du Nirvana mais vivait seul sur cette montagne. S'il prétendait ne rien garder ou ne rien comploter, Wang Lin ne le croirait pas.
+« Que garde-t-il... » Wang Lin commença à réfléchir. Il songea au vieil homme. Il était évident que s'il n'avait pas attaqué, c'était par crainte de quelque chose. Ce vieil homme se trouvait au stade avancé du Briseur du Nirvana mais vivait seul sur cette montagne. S'il prétendait ne rien garder ou ne rien comploter, Wang Lin ne le croirait pas.
 
 « Il y avait aussi ces trois jeunes cultivateurs, et j'en ai déjà vu un auparavant. Je ne m'attendais pas à ce qu'il apparaisse ici... » Wang Lin fronça les sourcils.
 
 « Cependant, puisque cet endroit est lié au Souverain, sa présence est compréhensible. » Wang Lin leva les yeux vers le ciel, calme. Son regard dégageait une lueur profonde, comme s'il contenait le Dao céleste.
 
-« Lorsque mon domaine a rencontré l'écrit sur le squelette, il a fait une percée. Je n'ai plus qu'à le consolider pour atteindre le stade intermédiaire de Purificateur du Nirvana. » Wang Lin prit une profonde inspiration et son regard se porta au-delà de la restriction. Il se leva et sortit.
+« Lorsque mon domaine a rencontré l'écrit sur le squelette, il a fait une percée. Je n'ai plus qu'à le consolider pour atteindre le stade intermédiaire du Purificateur du Nirvana. » Wang Lin prit une profonde inspiration et son regard se porta au-delà de la restriction. Il se leva et sortit.
 
 Les ondulations de la restriction résonnèrent alors que Wang Lin apparut hors de la vallée. Il repéra la direction de la fuite du Maître Pin Cendré et chargea tel un éclair.
 
@@ -64,7 +64,7 @@ Les ondulations de la restriction résonnèrent alors que Wang Lin apparut hors 
 
 Maître Pin Cendré s'enfuit à toute allure, le visage livide. Son cœur était bouillonnant de rage. Il pensait que ses blessures étaient guéries et qu'il pourrait facilement tuer ce dénommé Lu; au pire, il devrait simplement fournir un effort pour briser la restriction. Cependant, lorsqu'il se retrouva à moins de 10 000 pieds de Wang Lin, son cœur du Dao fut saisi et son esprit faillit s'effondrer.
 
-En particulier, lorsqu'il se trouva au milieu des immanentes intentions du Dao chaotique, il se sentit comme un barque solitaire sur une mer déchaînée. Lorsque l'esprit de Wang Lin passa à sa portée, son âme trembla. Il eut la vague intuition que Wang Lin avait atteint l'illumination et amélioré son domaine, et que peut-être, son niveau de culture était sur le point d'augmenter!
+En particulier, lorsqu'il se trouva au milieu des intentions du Dao chaotique infinies, il se sentit comme une barque solitaire sur une mer déchaînée. Lorsque l'esprit de Wang Lin passa à sa portée, son âme trembla. Il eut la vague intuition que Wang Lin avait atteint l'illumination et amélioré son domaine, et que peut-être, son niveau de culture était sur le point d'augmenter!
 
 À cette pensée, un frisson parcourut l'échine de Maître Pin Cendré. Avant que la culture de Wang Lin ne progresse, il avait tout utilisé pour n'aboutir qu'à un affrontement où les deux parties furent gravement blessées. Maintenant que Wang Lin s'apprêtait à faire une percée, il mourrait sans aucun doute s'ils venaient à combattre!
 

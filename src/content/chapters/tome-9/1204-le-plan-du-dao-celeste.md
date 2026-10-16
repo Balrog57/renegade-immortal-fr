@@ -36,7 +36,7 @@ C'était comme si le monde s'était inversé, toute la lumière se rassemblant p
 
 La lumière aux sept couleurs fulgura une dernière fois, comme si le monde allait s'effondrer. Des rugissements éclatèrent de l'intérieur de ce royaume chromatique, mais ils s'étouffèrent peu à peu jusqu'à se dissiper.
 
-« Zhan Xingye, si ce vieillard ne t'avait pas offert le Parchemin de la Bataille, comment aurais-tu pu atteindre le stade du Vide Spirituel? Si je m'empare de l'âme de ta lignée Zhan, je pourrai m'en servir de guide pour découvrir où ce Vieux Fantôme Zhan a caché ses restes pour sa Tribulation du Vide. Ensuite, je prendrai son squelette et j'extirperai l'essence du Dao de vous deux! Je détruirai son nirvana et accomplirai le plan céleste! » La voix ancienne du Souverain semblait épuisée et s'évanouit progressivement.
+« Zhan Xingye, si ce vieillard ne t'avait pas offert le Parchemin de la Bataille, comment aurais-tu pu atteindre le stade du Vide Spirituel? Si je m'empare de l'âme de ta lignée Zhan, je pourrai m'en servir de guide pour découvrir où ce Vieux Fantôme Zhan a caché ses restes pour sa Tribulant du Vide. Ensuite, je prendrai son squelette et j'extirperai l'essence du Dao de vous deux! Je détruirai son nirvana et accomplirai le plan céleste! » La voix ancienne du Souverain semblait épuisée et s'évanouit progressivement.
 
 Simultanément, le monde dans lequel Wang Lin se trouvait commença à se briser. Il eut l'impression que son âme originelle allait s'effondrer et se désintégrer avec lui.
 
@@ -60,7 +60,7 @@ La gorge de Wang Lin devint sèche. Tout en réfléchissant, il fronça les sour
 
 « Quelque chose ne va pas! Si Zhan Xingye a été tué ainsi, comment une volonté aussi claire peut-elle encore subsister? S'il est mort, sa volonté aurait dû se dissiper. Même si elle persiste, elle ne devrait pas être aussi nette... De plus, la voix du Souverain à la fin semblait manifestement épuisée... » Des idées défilaient dans l'esprit de Wang Lin, mais il ne parvenait pas à trouver de réponse définitive.
 
-« Vide Spirituel, Tribulation du Vide! S'agirait-il de deux royaumes de la troisième étape? Lorsque j'ai étudié les Parchemins de la Bataille, j'ai vu un vieillard. Ce sont ces Parchemins qui ont été créés par lui. Il avait dit que son niveau de culture avait atteint le vide et qu'il allait réaliser une percée. Se pourrait-il... se pourrait-il qu'il soit ce "Vieux Fantôme Zhan" mentionné par le Souverain? »
+« Vide Spirituel, Tribulant du Vide! S'agirait-il de deux royaumes de la troisième étape? Lorsque j'ai étudié les Parchemins de la Bataille, j'ai vu un vieillard. Ce sont ces Parchemins qui ont été créés par lui. Il avait dit que son niveau de culture avait atteint le vide et qu'il allait réaliser une percée. Se pourrait-il... se pourrait-il qu'il soit ce "Vieux Fantôme Zhan" mentionné par le Souverain? »
 
 « D'après ses paroles, ce Souverain semble craindre ce Vieux Fantôme Zhan. Afin de découvrir où ce dernier avait caché ses os, le Souverain a offert le Parchemin de la Bataille à Zhan Xingye. Il l'a laissé maîtriser le domaine de la bataille avant de le tuer pour s'emparer de son âme. Tout cela n'était qu'un rouage du plan céleste. Mais quel est donc ce plan? » L'esprit de Wang Lin s'éclaircit. Bien que certaines zones d'ombre subsistent, ses pensées étaient désormais limpides.
 
@@ -90,11 +90,11 @@ Après avoir fouillé les souvenirs de Pang Decai et du Maître Pin Cendré, Wan
 
 Il traversa diverses vallées avant d'atteindre l'endroit où la vieille femme en vert était emprisonnée. La restriction avait été levée et la vieille femme avait disparu.
 
-Après un bref coup d'œil, Wang Lin poursuivit sa route sans s'arrêter. Il franchit la montagne pour s'enfoncer dans la brume. Il connaissait désormais parfaitement cette zone. Les murmures des Éclairés parvenaient à ses oreilles, certains frôlant même son corps.
+Après un bref coup d'œil, Wang Lin poursuivit sa route sans s'arrêter. Il franchit la montagne pour s'enfoncer dans la brume. Il connaissait désormais parfaitement cette zone. Les murmures des Éveillés parvenaient à ses oreilles, certains frôlant même son corps.
 
-Plus Wang Lin apprenait, plus il comprenait la nature de ces Éclairés. C'étaient d'anciens cultivateurs qui étaient devenus des ressources pour aider autrui à nourrir le Dao.
+Plus Wang Lin apprenait, plus il comprenait la nature de ces Éveillés. C'étaient d'anciens cultivateurs qui étaient devenus des ressources pour aider autrui à nourrir le Dao.
 
-Il pouvait imaginer que ces Éclairés furent autrefois des génies prodigieux dotés d'une compréhension profonde du Dao. C'est précisément cette excellence qui les avait rendus vulnérables aux écritures du Dao, les transformant en Éclairés destinés à nourrir la voie.
+Il pouvait imaginer que ces Éveillés furent autrefois des génies prodigieux dotés d'une compréhension profonde du Dao. C'est précisément cette excellence qui les avait rendus vulnérables aux écritures du Dao, les transformant en Éveillés destinés à nourrir la voie.
 
 Un soupir monta dans son cœur, mais il ne ralentit pas et continua de foncer. Il aperçut bientôt une statue gigantesque émergeant de la brume. Wang Lin s'arrêta devant elle.
 

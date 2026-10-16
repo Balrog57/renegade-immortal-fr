@@ -14,7 +14,7 @@ La taille de Peng Lai était bien plus vaste que celle de Mo Luo; elle était au
 
 Dans la Mer des Nuages, les planètes de culture étaient très rares. Seules les sectes les plus puissantes pouvaient en posséder.
 
-Même la Secte du Jade Précieux n'était pas qualifié pour occuper une planète de culture entière; il n'en avait obtenu que la moitié! S'il ne possédait qu'une fraction de cet astre, c'est parce qu'un ancêtre, il y a 20 000 ans, avait accompli de grands mérites et que la Secte Fantôme de rang 9 lui en avait fait don.
+Même la Secte du Jade Précieux n'était pas qualifiée pour occuper une planète de culture entière; il n'en avait obtenu que la moitié! S'il ne possédait qu'une fraction de cet astre, c'est parce qu'un ancêtre, il y a 20 000 ans, avait accompli de grands mérites et que la Secte Fantôme de rang 9 lui en avait fait don.
 
 Jusqu'à ce jour, aucun autre cultivateur de rang supérieur n'avait osé convoiter cette planète, permettant ainsi à la Secte du Jade Précieux de la conserver.
 
@@ -32,7 +32,7 @@ L'enchère sur Peng Lai était sur le point d'ouvrir, et de nombreux rayons de l
 
 Parmi les étoiles, deux rayons de lumière se distinguaient: un homme et une femme. L'homme, vêtu de blanc, dégageait un calme olympien. Même si une montagne s'effondrait devant lui, son expression resterait imperturbable. C'était Wang Lin.
 
-La femme à ses côtés était d'une beauté exquise, vêtue elle aussi de blanc immaculé. Ses cheveux bleus ondulaient sans qu'aucun vent ne soufflât, et son visage sublime aurait fait palpiter le cœur de n'importe qui. Elle dégageait une aura tranquille et élégante, telle une fée descendue dans ce monde mortel. Croiser son regard enough pour que l'on se sente soudainement honteux de sa propre existence.
+La femme à ses côtés était d'une beauté exquise, vêtue elle aussi de blanc immaculé. Ses cheveux bleus ondulaient sans qu'aucun vent ne soufflât, et son visage sublime aurait fait palpiter le cœur de n'importe qui. Elle dégageait une aura tranquille et élégante, telle une fée descendue dans ce monde mortel. Croiser son regard suffisait pour que l'on se sente soudainement honteux de sa propre existence.
 
 « Encore quelques jours avant d'atteindre le continent de Peng Lai. Qianmei est venue à Peng Lai il y a 500 ans avec un membre de sa secte. C'était très animé, j'en garde de bons souvenirs. » Les yeux magnifiques de la femme trahissaient une pointe de nostalgie tandis qu'elle souriait.
 
@@ -58,11 +58,11 @@ Quant à Li Qianmei, elle avait utilisé une matrice de transfert unique reliant
 
 C'était une méthode courante pour les sectes de rang 8 et supérieur dans la Mer des Nuages. À l'instar de semer des graines dans les régions inférieures, elles soutenaient ou reconstruisaient diverses sous-sectes. Ces dernières servaient principalement de points de relais, permettant aux membres de la secte principale de se déplacer entre les différentes régions tout en contournant le problème du manque de cartes stellaires.
 
-La Secte Originelle possédait un réseau de transfert similaire.
+La Secte de l'Origine possédait un réseau de transfert similaire.
 
 Cependant, chaque activation de la matrice impliquait de traverser des champs d'étoiles et exigeait une quantité massive de jade céleste ou de cristaux d'origine. Ainsi, sans l'autorisation explicite de la secte principale, il était impossible de l'utiliser.
 
-Tout au long du voyage, Wang Lin restait pensif. Il faisait semblant d'écouter Li Qianmei, mais ne engageait pas la conversation.
+Tout au long du voyage, Wang Lin restait pensif. Il faisait semblant d'écouter Li Qianmei, mais n'engageait pas la conversation.
 
 Li Qianmei en était très irritée. Tout au long du trajet, l'homme à ses côtés s'était comporté comme un muet, ne prononçant pas un mot. Elle seule parlait, comme si elle s'adressait à elle-même.
 
@@ -72,11 +72,11 @@ Wang Lin regarda Li Qianmei. Après une courte réflexion, il demanda d'une voix
 
 Sa question n'avait rien d'inapproprié. Dans la Mer des Nuages, la brume stellaire créait des barrières entre les cultivateurs, empêchant la diffusion large des informations. La région de rang 9, située bien au-delà, demeurait une existence énigmatique.
 
-Les archives de la Secte Originelle n'offraient qu'une description sommaire de la région de rang 9, mentionnant seulement l'existence d'une Secte Divine. Wang Lin n'avait découvert l'existence de la Secte Céleste Brisée qu'après avoir obtenu le jade et fouillé les souvenirs de la Vieille Poisonneuse. Après tout, une secte de rang 5 ne pouvait en savoir plus qu'une secte de rang 6.
+Les archives de la Secte de l'Origine n'offraient qu'une description sommaire de la région de rang 9, mentionnant seulement l'existence d'une Secte Divine. Wang Lin n'avait découvert l'existence de la Secte Brise-Ciel qu'après avoir obtenu le jade et fouillé les souvenirs de la Vieille Poisonneuse. Après tout, une secte de rang 5 ne pouvait en savoir plus qu'une secte de rang 6.
 
 Li Qianmei entendit Wang Lin et, après un instant de réflexion, lui répondit.
 
-« Il y a au total quatre sectes dans la région de rang 9: la Secte Divine, la Secte Fantôme, la Secte Démon et la Secte Céleste Brisée. La Secte Céleste Brisée, à laquelle j'appartiens, est la plus faible, tandis que la Secte Divine est la plus puissante! La Secte Fantôme est la plus mystérieuse! Quant à la Secte Démon... » Li Qianmei marqua une hésitation et murmura:
+« Il y a au total quatre sectes dans la région de rang 9: la Secte Divine, la Secte Fantôme, la Secte Démon et la Secte Brise-Ciel. La Secte Brise-Ciel, à laquelle j'appartiens, est la plus faible, tandis que la Secte Divine est la plus puissante! La Secte Fantôme est la plus mystérieuse! Quant à la Secte Démon... » Li Qianmei marqua une hésitation et murmura:
 
 « La Secte Démon est située dans la partie la plus profonde de la région de rang 9, et il est extrêmement difficile pour les cultivateurs d'y pénétrer. Toutes les bêtes féroces les plus puissantes s'y rassemblent. Mon Maître disait qu'il existe là-bas des bêtes terrifiantes capables de prendre forme humaine... Cependant, avec la présence de la Secte Divine, la Secte Démon ne peut guère agir! »
 
@@ -84,7 +84,7 @@ Li Qianmei entendit Wang Lin et, après un instant de réflexion, lui répondit.
 
 Li Qianmei hocha la tête et répondit doucement: « Les bêtes féroces peuvent comprendre les cieux et cultiver le Dao, alors pourquoi ne pourraient-elles pas cultiver une forme humaine? Cependant, elles sont très rares.
 
-« Il existe des choses que vous et la grande majorité des cultivateurs ignorez. Même ma Secte Céleste Brisée n'a découvert certains de ces secrets qu'après avoir pénétré dans la région de rang 9. »
+« Il existe des choses que vous et la grande majorité des cultivateurs ignorez. Même ma Secte Brise-Ciel n'a découvert certains de ces secrets qu'après avoir pénétré dans la région de rang 9. »
 
 Le visage de Li Qianmei devint grave. Après un silence, elle murmura: « Il y a fort longtemps, il n'y avait qu'une seule secte dans la région de rang 9 de la Mer des Nuages. C'était la Secte Divine!
 
@@ -94,9 +94,9 @@ Le visage de Li Qianmei devint grave. Après un silence, elle murmura: « Il y a
 
 « Une partie de la Secte Divine a renoncé à sa liberté pour rester dans les profondeurs de la région de rang 9, agissant comme première ligne de défense. Cependant, avec le temps, ces disciples sont devenus indépendants et ont commencé à se faire appeler la Secte Démon. Ils ont cessé de recevoir les ordres de la Secte Divine, tout en continuant à défendre cette position contre les vagues d'attaques des bêtes féroces. »
 
-La voix de Li Qianmei était mélodieuse, mais le contenu de ses paroles était terrifiant. Le regard de Wang Lin se fit sérieux. Il n'aurait jamais imaginé que le Système Stellaire des Nuages cachait un secret aussi vertigineux.
+La voix de Li Qianmei était mélodieuse, mais le contenu de ses paroles était terrifiant. Le regard de Wang Lin se fit sérieux. Il n'aurait jamais imaginé que le Système Stellaire de la Mer des Nuages cachait un secret aussi vertigineux.
 
-« La Secte Divine s'en inquiétait. Elle craignait la Secte Démon et l'invasion des bêtes féroces. C'est pourquoi elle a d'abord favorisé l'ascension de la Secte Fantôme, experte en sorts de capture d'âmes, pour en faire une secte de rang 9. Ensuite, elle a élevé ma Secte Céleste Brisée au rang 9 également. Tout cela afin de se préparer à une seconde éruption qui pourrait survenir à tout moment! » Après avoir fini, elle regarda Wang Lin et ajouta doucement:
+« La Secte Divine s'en inquiétait. Elle craignait la Secte Démon et l'invasion des bêtes féroces. C'est pourquoi elle a d'abord favorisé l'ascension de la Secte Fantôme, experte en sorts de capture d'âmes, pour en faire une secte de rang 9. Ensuite, elle a élevé ma Secte Brise-Ciel au rang 9 également. Tout cela afin de se préparer à une seconde éruption qui pourrait survenir à tout moment! » Après avoir fini, elle regarda Wang Lin et ajouta doucement:
 
 « Cette affaire est d'une importance capitale. J'espère que le frère Lu ne la répétera pas. »
 
