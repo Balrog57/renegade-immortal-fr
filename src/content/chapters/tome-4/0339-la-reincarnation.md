@@ -147,5 +147,3 @@ Le corps de Wang Lin fut projeté violemment et il continuait de cracher du sang
 « Maintenant qu'elle a été réincarnée avec son Âme Naissante, sa vie est prolongée. Cela respecte les lois des cieux. Tant qu'elle ne pratiquera pas la culture, elle pourra échapper au regard des cieux. Dans dix-neuf ans, quand son âme se sera solidifiée, vous reviendrez, mais je vous arrêterai à nouveau! »
 
 Les yeux dans le nuage rouge contemplèrent calmement Wang Lin un instant avant de disparaître. Le poing géant disparut également. Les nuages rouges se dissipèrent.
-
-Chapitre 339 - La Réincarnation

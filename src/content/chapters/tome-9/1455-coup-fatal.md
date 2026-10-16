@@ -110,8 +110,6 @@ Il fut projeté en arrière dans une brume de sang. Au même moment, l'âme de l
 
 C'était l'atout de Wang Lin, le coup le plus puissant qu'il avait préparé pour prendre l'adversaire totalement au dépourvu!!
 
-Chapitre 1455 - L'Apparition de la Main Géante
-
 L’estimé Ling Dong, qui venait tout juste de devenir un esclave ancien [1], n'avait pas encore été suffisamment affiné et ne pouvait donc être invoqué que peu de temps. Il n'y avait de la place que pour un seul coup. Wang Lin saisit cette opportunité cruciale et ordonna à l’esclave ancien d'attaquer.
 
 Le Maître Dao Miao Yin était l'un des cinq grands maîtres; ainsi, bien que sa culture fût supprimée, sa puissance demeurait inimaginable. S'il n'avait pas été pris par surprise par l'épée de sang de Wang Lin alors qu'il affrontait Grande Désolation, puis frappé par le sort le plus puissant de ce dernier, il aurait été impossible pour Wang Lin de le blesser.

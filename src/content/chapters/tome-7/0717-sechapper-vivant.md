@@ -135,8 +135,6 @@ Wang Lin traversa le domaine Nord et atteignit le domaine Sud du système stella
 
 Se déplacer à pleine vitesse sur une aussi longue période affaiblit progressivement son âme originelle, qui ne pouvait plus tenir longtemps. Cependant, le Serpent aux yeux de lune ralentit également avant de s'arrêter net à la frontière du domaine Sud. Il émit quelques grondements étouffés, mais n'osa pas franchir la limite.
 
-Chapitre 717 (2) - La Prison de Tonnerre
-
 Wang Lin fut surpris, puis immédiatement envahi par l'extase. Il accéléra sa course et, après un long moment, il remarqua que le Serpent aux yeux de lune ne le poursuivait plus; la distance entre eux ne cessait de croître.
 
 Wang Lin poussa un grand soupir de soulagement, ses yeux trahissant encore une trace de peur persistante.

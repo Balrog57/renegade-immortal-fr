@@ -26,7 +26,7 @@ L'expression de Wang Lin était sombre alors qu'il restait assis là. Il avait l
 
 « Omniscient, autrefois, je t'ai fait commettre une erreur. Aujourd'hui, je vais te faire échouer totalement! »
 
-Wang Lin frappa son sac de rangement et l'Yang Extrême apparut dans sa main tel un soleil. Wang Lin n'osait pas le tenir directement, mais utilisait sa puissance pour le maintenir. Il sentait clairement que s'il le tenait au creux de sa paume, la chaleur percerait sa main!
+Wang Lin frappa son sac de rangement et le Yang Extrême apparut dans sa main tel un soleil. Wang Lin n'osait pas le tenir directement, mais utilisait sa puissance pour le maintenir. Il sentait clairement que s'il le tenait au creux de sa paume, la chaleur percerait sa main!
 
 Même son âme originelle en serait gravement blessée!
 
@@ -36,7 +36,7 @@ S'il n'avait pas possédé le corps d'un Dieu Ancien, il ne pourrait même pas s
 
 Cependant, cela ne ferait que résoudre la situation superficiellement, sans pour autant la briser! Pour déjouer ce complot, il devait faire quelque chose que l'Omniscient n'attendait pas et rendre sa divination erronée!
 
-Après une longue réflexion, Wang Lin serra les dents; il prit une trace de l'Yang Extrême et la pressa entre ses sourcils. Il ressentit une douleur fulgurante au milieu de son front, puis l'Yang Extrême disparut.
+Après une longue réflexion, Wang Lin serra les dents; il prit une trace du Yang Extrême et la pressa entre ses sourcils. Il ressentit une douleur fulgurante au milieu de son front, puis le Yang Extrême disparut.
 
 Cependant, c'était comme si une mer de flammes d'une chaleur inimaginable avait surgi au sein de son corps. Il eut l'impression d'être cuit dans un four.
 
@@ -44,7 +44,7 @@ Ling Tianhou, assis à l'intérieur de la tour rugissante sur la planète Da Lou
 
 Il fixa la direction où se trouvait Wang Lin et réfléchit.
 
-« C'est... l'Yang Extrême! » Les yeux de Ling Tianhou se rétrécirent soudainement.
+« C'est... le Yang Extrême! » Les yeux de Ling Tianhou se rétrécirent soudainement.
 
 « Omniscient, vieux scélérat, avec quoi me tends-tu ce piège avec cet Yang Extrême? Quel est ton but ultime... » Ling Tianhou leva sa main droite, mais après un long moment, il la baissa. Il secoua la tête et murmura: « Omniscient, vieux scélérat, se pourrait-il que tu veuilles que je prenne cet Yang Extrême? »
 

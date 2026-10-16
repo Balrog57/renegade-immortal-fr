@@ -7,8 +7,13 @@ en: Chapter 48 - Exchange (2)
 slug: echange-2
 ---
 
+« Trop de fanfaronnade! Frère apprenti Zhao, tabasse-le et fais honneur à la secte! »
 
+« Montrons à ce joli visage la puissance de notre Secte Heng Yue. Allez, frère Zhao! »
 
+« La Secte Xuan Dao est bien trop arrogante. Frère Zhao, tu dois le faire souffrir! Ils ont même osé prétendre n'utiliser que 50 % de leur puissance! »
+
+« La Secte Xuan Dao est bien trop rusée. Ils ont déjà préparé une excuse pour parer à une éventuelle défaite. Je vais observer cela de près, frère Zhao! Vas-y! »
 
 Tous les disciples de la Secte Heng Yue étaient en ébullition. Les propos de l'Ancien de la Secte Xuan Dao avaient atteint leur orgueil.
 

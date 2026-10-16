@@ -116,8 +116,6 @@ Au cœur de la tempête, Wang Lin restait calme. Tout cela était prévu. Tandis
 
 « C'est un sortilège similaire au Corps Céleste Immortel... Que va-t-il bien faire... »
 
-Chapitre 1740 (2) - Armure à Double Élément (2)
-
 Au cœur de la tempête de sable, tout n'était que flou alors que le corps de Wang Lin se recroquevillait sous l'impact du poing de l'homme-arbre. Ce coup ne contenait pas une force brute colossale, mais portait un sortilège imprégné de toute la culture de l'ancien, canalisé par son armure.
 
 Ce n'était pas un coup de puissance, mais un coup de sort!

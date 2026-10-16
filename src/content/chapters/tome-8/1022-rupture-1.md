@@ -124,8 +124,6 @@ Ses yeux brillèrent intensément et son énergie originelle circula frénétiqu
 
 Une telle chaleur pouvait détruire n'importe quelle chair, aussi résistante soit-elle. C'était là le véritable défi de l'éveil de l'Oiseau Vermillon! Au fil des millénaires, de nombreux éveils avaient eu lieu au sein des Quatre Sectes Divines. Cependant, au moment crucial, la majorité de ceux qui tentaient l'expérience ne supportaient pas la chaleur et finissaient en cendres.
 
-Chapitre 1022.1 - Rupture (2)
-
 Au sein de la Secte des Quatre Divinités, une antique maxime se transmettait depuis les temps primordiaux. Cette phrase englobait l'essence même des héritages de cette secte!
 
 « Des Quatre Divinités qui s'éveillent: la Tortue Noire est la plus rapide, le Tigre Blanc est le plus féroce, le Dragon Azure est le plus puissant et l'Oiseau Vermillon est le plus difficile! »
